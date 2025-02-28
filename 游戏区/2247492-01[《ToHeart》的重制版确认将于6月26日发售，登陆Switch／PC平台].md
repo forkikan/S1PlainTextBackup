@@ -602,3 +602,27 @@ to heart是解决了邂逅的问题，从3月3日到5月3日，谁在什么地�
 
 而且剧情和ps版也不太一样，如果不是冲着R18那点的话，就读ps版或者ps2算了
 
+
+*****
+
+####  760194962  
+##### 53#       发表于 2025-2-28 13:16
+
+ 本帖最后由 760194962 于 2025-2-28 13:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541406&amp;ptid=2247492" target="_blank">穿越护城河 发表于 2025-2-28 12:39</a>
+
+97版和后来的ps版就这点差距
+
+而且剧情和ps版也不太一样，如果不是冲着R18那点的话，就读ps版或者ps2算了 ...</blockquote>
+剧情好像差别挺大的，至少宮内レミィ线是这样的。
+
+另外这事好像网上没什么人说，我再次强调PS1版的音乐是不同的，而后面的版本的BGM都改回跟PC版一样了
+
+所以我推荐玩PS2版，不推荐PS1版
+
+我会说PS1版的音质是糊的，后面有人玩的话可以注意下。
+
+非PS1: [https://youtu.be/_0oCNrOZeGk](https://youtu.be/wqw_cCsPBFc)
+
+PS1: [https://youtu.be/ZQM1WbeOhQk](https://youtu.be/ZQM1WbeOhQk)
+

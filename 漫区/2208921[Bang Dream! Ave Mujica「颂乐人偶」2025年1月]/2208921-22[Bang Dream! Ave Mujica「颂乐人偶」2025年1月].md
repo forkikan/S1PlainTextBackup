@@ -4345,3 +4345,195 @@ mujica唯一的危机是第二天要演出了，吉他手突发恶疾，不能�
 
 我们至今不知道制作组为什么要把MyGO时期大家都喜欢的无口剑姬小黄瓜写成似掉之后大家直呼好似的反派役角色<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">虽然我还挺喜欢大墨老师的
 
+
+*****
+
+####  qratosones1337  
+##### 31470#       发表于 2025-2-28 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541783&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-28 13:15</a>
+
+那你说说，
+
+说贡献，mujica火起来，是喵梦的贡献大，还是大祥老师、初华或者睦贡献大？</blockquote>
+那当然是丰川的大手贡献大，然后现在丰川的大手想让大小姐玩够了赶紧回来继承家产233333
+
+*****
+
+####  qratosones1337  
+##### 31471#       发表于 2025-2-28 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541787&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-2-28 13:15</a>
+
+不好说，我反正是看到有人说大祥全责跟大喵没关系，建议你去找滑坡的人别找我 ...</blockquote>
+大喵摘面具背锅，跟大祥第四集摆烂导致团队崩溃，这俩事冲突么？
+
+*****
+
+####  影伴光生  
+##### 31472#       发表于 2025-2-28 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541792&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-2-28 13:16</a>
+初华有保密义务这事是明确给出的台词，在此前提下自己摘面具那不就是说明经纪公司已经觉得无所谓了么？
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">初华喜欢骗人，所以“有保密义务”这事情可不能当真
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  qratosones1337  
+##### 31473#       发表于 2025-2-28 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541843&amp;ptid=2208921" target="_blank">影伴光生 发表于 2025-2-28 13:20</a>
+
+初华喜欢骗人，所以“有保密义务”这事情可不能当真
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+那就更闹麻了……
+
+*****
+
+####  大户爱  
+##### 31474#       发表于 2025-2-28 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541734&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-2-28 13:12</a>
+祥学长确实叹为观止——再一次提醒你露脸这事是一开始大祥明确给的承诺，现在最好的舞台这个条件达成了， ...</blockquote>
+说了大祥欠你喵梦的啊，带你上了武道馆，成为火爆乐队的一员，已经对的起你喵梦的付出了。
+
+这已经是喵梦没有祥子之前不可能吃到的福利了。
+
+才几个月，祥子自己都不清楚后面规划。你喵梦就要心想事成，我说什么，领导就给我做什么。你谁啊。
+
+还一个祥学长帽子扣过来，我今天刚批判了祥子自私自利，空话一套一套。就开始饭圈撕逼了。
+
+我发现了，mujica是四个伪人一个拟人。本来是想无所谓，还真有拟人粉丝跳出来洗的清清白白了。
+
+*****
+
+####  huxiaopao163  
+##### 31475#       发表于 2025-2-28 13:21
+
+看到一个这样的分析视频（[https://www.bilibili.com/video/BV1YZ9AYuEFS](https://www.bilibili.com/video/BV1YZ9AYuEFS)），从已知后面的设定，回看前三集里的小睦的精神状态。。。
+
+里面提到小睦把祥子当做一个“外挂的功能型人格”，差不多就是祥子是天然的类似mortis的存在，能帮助小睦。
+
+等到祥子不行了，帮不忙甚至还有反效果时，才需要蹦出来一个mortis人格帮助小睦。
+
+可能所谓“半身”有这方面的意思？
+
+*****
+
+####  Lyzers  
+##### 31476#       发表于 2025-2-28 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541792&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-2-28 13:16</a>
+
+初华有保密义务这事是明确给出的台词，在此前提下自己摘面具那不就是说明经纪公司已经觉得无所谓了么？
+
+ ...</blockquote>
+没听过演出出事故要假装没出事故硬演下去吗？大祥都准备下场稳住局势了，被你喵圣硬拉在场上还推到人前了。而且还是那个问题，你喵圣不第一个摘面具哪来第二个摘面具啊，退一步说大祥自己摘是自己的责任，你大喵自己第一个摘完还去摘别人的，现在追究大祥责任不追究大喵责任是吧
+
+*****
+
+####  Lyzers  
+##### 31477#       发表于 2025-2-28 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541841&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-2-28 13:20</a>
+
+大喵摘面具背锅，跟大祥第四集摆烂导致团队崩溃，这俩事冲突么？</blockquote>
+我没说冲突啊，但说全责的是你，你问我？
+
+*****
+
+####  江口夕  
+##### 31478#       发表于 2025-2-28 13:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">事到如今大猫还有啥好洗的。底边网红混到现在不都是大祥给的。就是个为达目的不择手段的人设
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  Mika-S  
+##### 31479#       发表于 2025-2-28 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541783&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-28 13:15</a>
+那你说说，
+说贡献，mujica火起来，是喵梦的贡献大，还是大祥老师、初华或者睦贡献大？</blockquote>
+首先，你转移话题了，没有正面回答这车是不是喵梦要自己主动蹭上去的
+其次，mujica火到武道馆上究竟是怎么回事并没有讲清楚过，而且到武道馆之前没摘面具大家都是各司其职，不存在睦和初华身份暴露带来的流量也就更谈不上能判断睦和初华比喵梦贡献高，大家都一起正常演出的难道鼓手就低人一等贡献低了？
+
+
+*****
+
+####  狮子咕  
+##### 31480#       发表于 2025-2-28 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541887&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-2-28 13:23</a>
+
+事到如今大猫还有啥好洗的。底边网红混到现在不都是大祥给的。就是个为达目的不择手段的人设
+
+—— 来自 Xi ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">初华都只有5.8w粉丝，也不用说初华底边
+
+
+*****
+
+####  qratosones1337  
+##### 31481#       发表于 2025-2-28 13:24
+
+ 本帖最后由 qratosones1337 于 2025-2-28 13:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541858&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-28 13:21</a>
+
+说了大祥欠你喵梦的啊，带你上了武道馆，成为火爆乐队的一员，已经对的起你喵梦的付出了。
+
+这已经是喵梦 ...</blockquote>
+所以你完全不敢回复大祥的承诺是吧？火爆乐队算个屁，戴了面具谁知道你是谁，明天把你踢了换人就彻底血本无归了。说你学长你还真就一点都不装了，但凡你掰扯两句大棋论长远规划？按你这论调，大祥自己都不清楚后续规划，然后还食言而肥背弃承诺，那不更罪大恶极彻底坐实黑心资本家画饼了？要我说，对黑心资本家就不能惯着，就该死命拷打
+
+*****
+
+####  影伴光生  
+##### 31482#       发表于 2025-2-28 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541851&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-2-28 13:20</a>
+那就更闹麻了……</blockquote>
+mujica整部剧目前都是闹麻了，人设一集一个样，所以跨集内容的讨论错位感太强烈了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  江口夕  
+##### 31483#       发表于 2025-2-28 13:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541904&amp;ptid=2208921" target="_blank">狮子咕 发表于 2025-2-28 13:24</a>
+初华都只有5.8w粉丝，也不用说初华底边</blockquote>
+那都是底边，正常人设要么给祥子报恩，要么给祥子背后的老登报恩。要么就承认不择手段。洗出淤泥而不染是不是脑子有问题
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  qratosones1337  
+##### 31484#       发表于 2025-2-28 13:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541886&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-2-28 13:23</a>
+
+我没说冲突啊，但说全责的是你，你问我？</blockquote>
+全责说的是第四集演出砸锅导致炸团，大祥如果不摆烂是可以救的。
+
+*****
+
+####  大户爱  
+##### 31485#       发表于 2025-2-28 13:27
+
+本来喵梦行为也是编剧的大手，很多时候都不能用自私自利解释过去。比如第四集闹着解散。
+
+像第一集摘面具，也太急了。前面真有点铺垫，无论观感还是逻辑上，都会好很多。这完全是为了mujica在第一集摘面具倒果为因对设计。
+
+结果我没想到真有人能和喵梦共情。这么刻板的设计，怎么就没人和大祥老师共情呢。大祥虽然又蠢又自私，但看起来还是不自觉的自私，和喵梦这种摆明的自私还是有差别的。
+
+再退一步，你喜欢这种自私的人设也行，怎么连自私也要洗啊。只能说看镜子看到自己了。
+

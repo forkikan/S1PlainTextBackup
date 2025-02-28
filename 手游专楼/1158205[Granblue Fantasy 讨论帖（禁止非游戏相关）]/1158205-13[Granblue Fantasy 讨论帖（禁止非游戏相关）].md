@@ -16,3 +16,13 @@
 
 就是这前排是不是有点挤 250HL难道终于要把炎帝踢了吗
 
+
+*****
+
+####  Geyorkias  
+##### 18208#       发表于 2025-2-28 13:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">乐观的讲，我不需要砸猪枪了，悲观的讲，我有两把猪枪，而新武器要抽。
+
+快进到因为服务器压力GBF以后取消火团。
+

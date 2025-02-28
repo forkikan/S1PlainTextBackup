@@ -3244,3 +3244,22 @@ disruption？？？？？
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  安娜导函数  
+##### 353#       发表于 2025-2-28 13:24
+
+剧情-2
+大喵老师:恶心🤮 +2
+合计我给0分<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yongze  
+##### 354#       发表于 2025-2-28 13:24
+
+很热闹很疯的一集，娱乐指数+2，但是完全不知道制作组想在第几集刹车收官，还在那里爆爆爆，有些角色塑造在不断反复原地打转，有个角色突然疯了，有个角色突然就哭了，还有个在旁边一言不发跟个空气一样，实在是不能再期待可以好好收尾了，剧情展开-2，综合下来打个0分。
+
+—— 来自 vivo V2218A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
