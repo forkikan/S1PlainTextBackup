@@ -4607,3 +4607,133 @@ mujica整部剧目前都是闹麻了，人设一集一个样，所以跨集内�
 
 总不能在粪海里感觉捞到了一块巧克力就吃得下去吧
 
+
+*****
+
+####  是谁的书画  
+##### 31491#       发表于 2025-2-28 13:38
+
+本集唯一正常人：
+<img src="https://i.miji.bid/2025/02/28/d650b164364a4d9c525c5f4c36daa9be.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lyzers  
+##### 31492#       发表于 2025-2-28 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541929&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-2-28 13:27</a>
+
+全责说的是第四集演出砸锅导致炸团，大祥如果不摆烂是可以救的。</blockquote>
+哦那没事了，脑补出一堆阴晴不定的大手和自适应合同，原来最后还是洗不了喵圣摘面具那就没问题了啊
+
+*****
+
+####  qratosones1337  
+##### 31493#       发表于 2025-2-28 13:40
+
+ 本帖最后由 qratosones1337 于 2025-2-28 13:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541998&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-28 13:35</a>
+
+戴了面具就不知道自己是谁，
+
+因为我没长嘴，被保密协议封了口。不能发媒体，不能联系记者，告诉啪啪啪一 ...</blockquote>
+让大喵蹭到睦头和初华（而不是两串字母）的流量，这是大祥拉大喵入队的时候明确许诺的，入队之后也亲口说了“在最好的舞台上摘面具”，现在最好的舞台已经上了，然后你大祥既不点头，也不讲清楚后续规划，那不就说明你是黑心资本家画饼么？你代入老板代入魔怔了？
+
+*****
+
+####  qratosones1337  
+##### 31494#       发表于 2025-2-28 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67542036&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-2-28 13:39</a>
+
+哦那没事了，脑补出一堆阴晴不定的大手和自适应合同，原来最后还是洗不了喵圣摘面具那就没问题了啊 ...</blockquote>
+摘面具大喵当然要背锅，这个毫无疑问
+
+*****
+
+####  modkingr  
+##### 31495#       发表于 2025-2-28 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541068&amp;ptid=2208921" target="_blank">盗号找不回 发表于 2025-2-28 12:08</a>
+配合第九集怕不是还能给大猫盖个：能感知能评论就是不能自己上去演的章，让我想起了那个自己拍不好电影但 ...</blockquote>
+对啊，差不多就是这个意思，喵梦对于多栖的渴求与关注以及为什么见了睦这个天赋怪被搞得ptsd打退堂鼓了这些都借由第八话睦妈之口非常直白的告诉观众了，见到这种怪物退缩了很正常
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  大户爱  
+##### 31496#       发表于 2025-2-28 13:42
+
+还黑心资本家，祥子黑心喵梦什么呢。
+
+祥子实实在在让喵梦最速出道，武道馆，拿代言，上综艺，攀上了睦妈人脉，成为了小明星。
+
+反过来，喵梦这么怼祥子，给祥子捅篓子。祥子也只是对着她哈气，一点反击都没有。
+
+祥子伪人主要是对待其他人。在喵梦方面的问题，就是只哈气，但凡是个正经领导，早把喵梦这种傻逼按下去了。
+
+
+*****
+
+####  qratosones1337  
+##### 31497#       发表于 2025-2-28 13:44
+
+ 本帖最后由 qratosones1337 于 2025-2-28 13:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67542065&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-28 13:42</a>
+
+还黑心资本家，祥子黑心喵梦什么呢。
+
+祥子实实在在让喵梦最速出道，武道馆，拿代言，上综艺，攀上了睦妈人 ...</blockquote>
+然而拿代言上综艺都是摘面具之后的事233333
+
+没有摘面具你拿个屁的代言上个屁的综艺，这下黑心资本家彻底实锤了。
+
+现在唯一能支持大祥不摘面具的理由是保护吉他睦，但问题是从5-9集的表现来看大祥自己也根本就没往这方面想，炸团之后能把睦晾家里一个月，这个唯一正当理由现在都站不住脚了。
+
+*****
+
+####  moras2694  
+##### 31498#       发表于 2025-2-28 13:45
+
+别说战吧了，感觉泥漏也不落下风啊，mujica这片里已经没有人类了，还能仔细分析锅碗瓢盆归属的，现在是什么版本了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大户爱  
+##### 31499#       发表于 2025-2-28 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67542047&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-2-28 13:40</a>
+让大喵蹭到睦头和初华（而不是两串字母）的流量，这是大祥拉大喵入队的时候明确许诺的，入队之后也亲口说 ...</blockquote>
+说了你还是觉得全天下最欠你的。
+
+无论你自己得到什么，别人没完全给你想要的，你就可以为所欲为。
+
+事实上，祥子就是不欠大喵。最好的舞台，这种模糊的承诺，不是给你解释权。就算你觉得不对，你也可以和大祥吵一架，而不是直接损人利己坑队友。
+
+当然，正常人的逻辑不是所有人都有。
+
+*****
+
+####  Dayahal  
+##### 31500#       发表于 2025-2-28 13:46
+
+喵梦不服从，要么惹了黑心队长要么惹了大手可不就是蠢么
+
+不和队友商量就摘面具这不就是坏
+
+车大祥就车大祥，贱猫也要洗也太神奇了
+
+*****
+
+####  木板春香  
+##### 31501#       发表于 2025-2-28 13:47
+
+<img src="https://img.saraba1st.com/forum/202502/28/134708t8ata4aitaaztooy.jpg" referrerpolicy="no-referrer">
+
+<strong>)KY`P%T70UTXW0CXAG}A3O1_tmb.jpg</strong> (141.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-28 13:47 上传
+
