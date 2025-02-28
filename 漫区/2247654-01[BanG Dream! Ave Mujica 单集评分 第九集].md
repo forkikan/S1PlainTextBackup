@@ -2882,3 +2882,13 @@ Mujica确实没一个像人，哦，不能冤枉嘴替大猫老师<img src="http
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  hahass_  
+##### 316#       发表于 2025-2-28 07:49
+
+-2
+
+好笑吗？感觉不如木子米和mortis抢吉他撞破栏杆摔死好笑。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
