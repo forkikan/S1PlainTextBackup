@@ -1965,3 +1965,311 @@ ave ...</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Slyvan  
+##### 31257#       发表于 2025-2-28 11:26
+
+这越看越像那些什么破网文
+
+女一和白月光吵架,  出去找舔狗备胎千斤顶找安慰  , 搞得一地鸡毛
+
+回头气消了又要和白月光搞一起 ,  其他人都成了play的一环
+
+*****
+
+####  莱茵哈鲁特  
+##### 31258#       发表于 2025-2-28 11:26
+
+炸团的本质是因为没有团魂，而mujica的故事就是找到团魂的过程。
+
+现在要解决的问题就是斩断祥子和睦对c团的留恋，以及让他们都爱上ji团，目前看来任务很艰巨啊。
+
+*****
+
+####  钦念以忱  
+##### 31259#       发表于 2025-2-28 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67539831&amp;ptid=2208921" target="_blank">甲鱼 发表于 2025-2-28 10:35</a>
+
+原来是WSD的大手
+
+Ave Mujica监督·柿本广大访谈 （上）杂志25.4月号</blockquote>
+武士道的大手很成功吧，至少好了一部mygo，要是mygo和avemujica的剧情穿插着演，那两部都烂完了。
+
+*****
+
+####  qratosones1337  
+##### 31260#       发表于 2025-2-28 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540502&amp;ptid=2208921" target="_blank">YF31 发表于 2025-2-28 11:26</a>
+
+你话都说完了截图给你有屁用，装瞎的。
+
+**身体不适不会？队长说逼话你上去给她几个大逼兜不会？我队长吉 ...</blockquote>
+笑死，因为不给大祥惹的祸擦屁股所以大喵全责，哈哈哈哈哈哈
+
+你这下真是装都不装了
+
+*****
+
+####  qlipho  
+##### 31261#       发表于 2025-2-28 11:27
+
+在ring从头开始活动，我海喵不要面子的，配你们两大小姐
+
+*****
+
+####  syndrome2032  
+##### 31262#       发表于 2025-2-28 11:27
+
+睦对c团的感情也斩的差不多了吧。都整出莫搞死睦的活了。
+
+就只剩大象被架在火上烤了。
+
+*****
+
+####  aptx8285144  
+##### 31263#       发表于 2025-2-28 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67534301&amp;ptid=2208921" target="_blank">琉璃苑軒風 发表于 2025-2-27 22:19</a>
+
+也就anon不会把饮料泼过去了
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+有一说一，大祥把爱音叫过来当面说是对的，但是连一句给爱音和猫猫带来精神压力很抱歉都不肯说而是“不会给GO团”带来麻烦，这人真得是白祥吗<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿兹尔  
+##### 31264#       发表于 2025-2-28 11:28
+
+ 本帖最后由 阿兹尔 于 2025-2-28 11:29 编辑 
+
+让初华一个当红偶像陪祥子从头开始吗，这下真的恩情还不完了，还是请大手再次出山吧，能利用好背后的资源也是一种能力，不如想想自己身上所谓的特质有多少是因为自己的姓带来的，家庭环境，从小的教育，和名人女儿的认识渠道，一般人怎么做得到呢
+
+*****
+
+####  厚乳果珍爽  
+##### 31265#       发表于 2025-2-28 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540464&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-2-28 11:23</a>
+
+所以你把明摆着大祥脑抽捅出来的篓子推到大喵头上不就是洗大祥么233333
+
+“我想让睦回来”这几个字你是一 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是抛开事实了，为什么不先问问mo老师是怎么产生的？
+
+mo老师是因为摘了面具以后要面对无数通告压力下，而产生的自我保护人格。
+
+为什么又这么多通告，因为她是大明星的孩子的事情被曝光了。
+
+为什么会被曝光，因为被大猫摘面具了。
+
+这就是直接原因。
+
+你说祥子软弱没问题，如果是真心狠手辣的祥子，在第二集里就看到喵梦在东京湾表演潜水了。
+
+*****
+
+####  YF31  
+##### 31266#       发表于 2025-2-28 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540463&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-28 11:23</a>
+
+炸团？mujica什么时候是个团了，不一直是大小姐过家家嘛
+
+过家家玩不下去了别人走还不行了 ...</blockquote>
+来，喵圣正论接好了：
+
+<img src="https://img.saraba1st.com/forum/202502/28/112831f43p8xhxp858h7h5.png" referrerpolicy="no-referrer">
+
+<strong>微信图片_20250228112735_compressed.png</strong> (576.65 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-28 11:28 上传
+
+*****
+
+####  topia  
+##### 31267#       发表于 2025-2-28 11:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这也太神经病院了
+
+*****
+
+####  YF31  
+##### 31268#       发表于 2025-2-28 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540520&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-2-28 11:27</a>
+
+笑死，因为不给大祥惹的祸擦屁股所以大喵全责，哈哈哈哈哈哈
+
+你这下真是装都不装了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">太他妈惹的祸了，所以我说喵圣塑造得好，用来人群识别太有用了，是真有道理，不是乱讲的。
+
+*****
+
+####  Lyzers  
+##### 31269#       发表于 2025-2-28 11:30
+
+我又幻想了，幻想我是个试妆网红被财团大手看中去磨炼大小姐，整垮她拉我进去的乐队，事成让我当大明星
+
+*****
+
+####  syndrome2032  
+##### 31270#       发表于 2025-2-28 11:30
+
+我是觉得初华最后放弃一切干脆连偶像也不当了就陪祥子在ring出道也挺好的。
+
+毕竟她在sumimi也是真不开心，她出道当偶像也是为了来东京追祥子。
+
+唯一缺点就是苦了甜甜圈女士。
+
+但是祥冰这块真得说清楚。只是一个小姨说真不可能构成这样偏执的感情。
+
+*****
+
+####  huxiaopao163  
+##### 31271#       发表于 2025-2-28 11:30
+
+幼年睦祥关系似乎没有什么重大事件，重大转折式的存在。。。就是睦慢慢变得话少了，但是祥子作为身边人没注意到
+ <blockquote>在祥子眼中，睦是"幼时活泼健谈，接触吉他后渐趋寡言，回过神来已成需要照顾对象"的存在
+
+确实存在"当局者迷"的现象。久别重逢的朋友能立刻察觉变化，但朝夕相处的人反而难以察觉渐变。不知不觉间形成了类似姐弟的照顾与被照顾关系。在组建Ave Mujica时，心力交瘁的祥子视野变得狭隘，未能察觉睦的变化，反而形成了依赖关系。当重新审视这种关系时，"自我不可饶恕"与"亏欠睦"的双重心理开始在她心中交织。</blockquote>
+
+*****
+
+####  qlipho  
+##### 31272#       发表于 2025-2-28 11:30
+
+现阶段肯定不是白祥，有睦就行的负罪状态
+
+*****
+
+####  zhzij111  
+##### 31273#       发表于 2025-2-28 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540493&amp;ptid=2208921" target="_blank">Hchan 发表于 2025-2-28 11:25</a>
+没了上面的大手，那不是母鸡卡只能在ring从头开始活动了吗，无缝衔接手游了 ...</blockquote>
+Ring出道那海铃消费撑不住了，不得赶紧把十几个老兼职找回来
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  清江望月  
+##### 31274#       发表于 2025-2-28 11:31
+
+我看隔壁说灯有个可以看到别人内心戏的设定？真的吗，mygo里我没看到这个啊？如果是真的，那不是两起杀人案，灯全部在现场？哦哟这个牛逼，灯皇的含金量，这都能绷得住啊。
+
+*****
+
+####  盗号找不回  
+##### 31275#       发表于 2025-2-28 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540269&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-2-28 11:10</a>
+
+来点日式冷吐槽吧，来源水印。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我能发到小红书吗，我最开始看邦邦的这种图就是在小红书
+
+
+*****
+
+####  kurihayn  
+##### 31276#       发表于 2025-2-28 11:32
+
+原来mygo的设定就是个推特211粉的地下乐队，倒是可以解释为什么以柿本为首的编剧层会觉得CCC复活也没问题，因为这种玩票一样的强度完全可以人均兼职两个乐队<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  钦念以忱  
+##### 31277#       发表于 2025-2-28 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540236&amp;ptid=2208921" target="_blank">一个陆仁贾 发表于 2025-2-28 11:07</a>
+
+这b动画就算是放在dy贴吧做成几分钟看完素材都不一定能吸引人看完
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+这集已经很像几段几分钟看完，合一起剪成的22分钟动画。
+
+*****
+
+####  一心而用  
+##### 31278#       发表于 2025-2-28 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540597&amp;ptid=2208921" target="_blank">盗号找不回 发表于 2025-2-28 11:32</a>
+我能发到小红书吗，我最开始看邦邦的这种图就是在小红书</blockquote>
+作者可能也发小红书了，要不先去看看？
+
+*****
+
+####  qratosones1337  
+##### 31279#       发表于 2025-2-28 11:34
+
+ 本帖最后由 qratosones1337 于 2025-2-28 11:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540549&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-2-28 11:28</a>
+
+这就是抛开事实了，为什么不先问问mo老师是怎么产生的？
+
+mo老师是因为摘了面具以后要面对无数通告压力下 ...</blockquote>
+要分锅的话大喵摘面具肯定是要背锅的，但摘面具本身是大祥自己做的承诺，从后续的情况来看大祥作为青梅竹马也对睦头的情况一无所知——不然大墨也不会专门点草大祥。至于心狠手辣，大祥在没有大人的支持的情况下显然谁都弄不死——现在看来从经纪公司到丰川家大手都没把大祥那个难绷面具当回事，想送人去东京湾那是真的想多了。
+
+*****
+
+####  qratosones1337  
+##### 31280#       发表于 2025-2-28 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540551&amp;ptid=2208921" target="_blank">YF31 发表于 2025-2-28 11:29</a>
+
+来，喵圣正论接好了：</blockquote>
+所以你大祥摆了，演出就要砸锅，你这自己打自己脸真的好吗233333
+
+
+*****
+
+####  厚乳果珍爽  
+##### 31281#       发表于 2025-2-28 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540578&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-28 11:30</a>
+
+幼年睦祥关系似乎没有什么重大事件，重大转折式的存在。。。就是睦慢慢变得话少了，但是祥子作为身边人没注 ...</blockquote>
+第三集就说得很明显了，她上节目，无论怎么表现，都说是父母给的东西（演技、口才），都被认为不是她自己的东西，所以都封印了，最后才变得话少的。
+
+祥子身边的话，美奈美也注意到了，但是她妈不在意。
+
+*****
+
+####  YF31  
+##### 31282#       发表于 2025-2-28 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540631&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-2-28 11:34</a>
+
+所以你大祥摆了，演出就要砸锅，你这自己打自己脸真的好吗233333</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">我还以为这段是幽默喵圣前脚满足观众后脚自己撂桃子不干的笑点解析呢，太他妈打脸了，你看看你自己在说什么。
+
+*****
+
+####  稀勢のささ  
+##### 31283#       发表于 2025-2-28 11:35
+
+<img src="https://img.saraba1st.com/forum/202502/28/113516rgim755o3d7cgxjp.jpg" referrerpolicy="no-referrer">
+
+<strong>{15DC66E1-DA92-4880-10C7-C320623B53DB}.jpg</strong> (49.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-28 11:35 上传
+
+<img src="https://img.saraba1st.com/forum/202502/28/113516g3iemxxemfmcffxb.png" referrerpolicy="no-referrer">
+
+<strong>{61C07987-35C7-0D40-0917-63211EE99B7A}.png</strong> (91.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-28 11:35 上传
+
+为什么有三个人不笑啊 是不爱笑吗
+
