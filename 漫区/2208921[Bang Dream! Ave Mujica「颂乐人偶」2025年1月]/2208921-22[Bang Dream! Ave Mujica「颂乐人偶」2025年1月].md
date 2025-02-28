@@ -3027,3 +3027,206 @@ ps：睦的面具是被喵梦摘的
 那么如何在“我想要睦回来”的前提下把演出应付过去呢23333</blockquote>
 别转移话题，你说大祥全锅，我就辩你这个，但我可没说什么大祥没锅的话
 
+
+*****
+
+####  qratosones1337  
+##### 31353#       发表于 2025-2-28 12:08
+
+ 本帖最后由 qratosones1337 于 2025-2-28 12:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541050&amp;ptid=2208921" target="_blank">Skymoon 发表于 2025-2-28 12:07</a>
+
+别转移话题，你说大祥全锅，我就辩你这个，但我可没说什么大祥没锅的话 ...</blockquote>
+因为大祥摆了导致演出100%砸锅啊，这不就是全锅么？所以现在大祥摆了的前提下你其他成员到底要怎么样才能让演出不砸锅呢，你不会想说虽然至关重要的演出砸锅了但是乐队还可以不解散吧233333
+
+不管大祥身为领导不决策，还是身为普通成员不配合，都必然导致演出100%砸锅，在演出必砸锅的前提下讨论可以不解散，有什么意义呢？大喵至少之前还是在提出解决方案想解决问题的，否决海铃的代打方案也是出于正常讨论的范围。大祥呢？
+
+*****
+
+####  盗号找不回  
+##### 31354#       发表于 2025-2-28 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540992&amp;ptid=2208921" target="_blank">modkingr 发表于 2025-2-28 12:02</a>
+
+因为喵梦对于【演技】的感知是在第八话被睦的亲妈盖章了的直觉，对于睦的状态谁都能误会喵梦不会</blockquote>
+配合第九集怕不是还能给大猫盖个：能感知能评论就是不能自己上去演的章，让我想起了那个自己拍不好电影但是影评相当不错的某导演<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可惜那导演家里吃喝不愁，大猫可还得作为臭外地的在东京讨生活呢
+
+*****
+
+####  Lyzers  
+##### 31355#       发表于 2025-2-28 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540960&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-2-28 12:00</a>
+
+巧了，第九集明着告诉你有大手存在了。中层领导顶着上下压力胡搞被掀翻，那是真活该——正常公司也没有这 ...</blockquote>
+是有大手存在啊，但前面你们说的是这大手把大祥推向顶端，现在又说大手是给大祥压力，那这不就是全自动大手了吗？你说完前后句有顺过自己的逻辑吗？
+
+顺带一提你鸡团一开始的方向就是面具，你不同意就一开始别搞，搞了现在又不跟任何人对流程把人面具摘了整大活，完了说都是你自己问题啦。有方向问题那也是领导间决定调整，除了都市剧没听说过谁是小员工跨过中层领导跟老板协商，瞒着中层整大活，完事还把中层踢了的
+
+*****
+
+####  Vitiate  
+##### 31356#       发表于 2025-2-28 12:10
+
+新一狗=211<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
+日本人统一度量衡的又一步<img src="https://static.saraba1st.com/image/smiley/animal2017/029.png" referrerpolicy="no-referrer">
+
+*****
+
+####  有钱多买小人  
+##### 31357#       发表于 2025-2-28 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540760&amp;ptid=2208921" target="_blank">YF31 发表于 2025-2-28 11:45</a>
+前三集怎么没听丰川祥子做决定？到第四集要找人背锅来听了，喵圣也是多重人格DID是不是？ ...</blockquote>
+管不好下属那的确是领导的锅。说白了还是母鸡卡时期没有团魂，大祥表面领导实际管不了任何一个。对大喵最大的问题就是擅自摘面具后大祥没给任何处罚。
+
+大喵进来就是为了蹭热度，大祥也深知这点才在招募时明言我们银河战舰里有蜘蛛侠和木头人。成团后大喵理论也是最对乐队上心的人，蜘蛛侠和木头人只要大祥在就行，海铃雇佣兵给钱就行。只有大喵是真的想要靠乐队成名。但你上来带面具这就跟其根本需求相悖了。
+
+大祥这时正确做法应该先给大喵画饼，说什么先积累人气再摘面具，现在一摘风头肯定被本来人气就高的蜘蛛侠和木头人抢去。结果大喵搞事后大祥也没给处罚，大喵怕不是这时候也看出来都是过家家。
+
+*****
+
+####  南宮凝香  
+##### 31358#       发表于 2025-2-28 12:10
+
+<blockquote>天空塔书记官 发表于 2025-2-28 11:59
+素世在第七集的时候就已经和CCC告别了，就是CCC公式号最后一次更新
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+還是有分別的
+
+第七話3C 告別能算是美好回憶
+
+這話後3C約等於牢師被駕駛的屍體了
+
+以前的3C 有種回憶中的神聖感
+
+這話就變成讓兩位大小姐高興的工具罷了
+
+*****
+
+####  Skymoon  
+##### 31359#       发表于 2025-2-28 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541065&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-2-28 12:08</a>
+因为大祥摆了导致演出100%砸锅啊，这不就是全锅么？所以现在大祥摆了的前提下你其他成员到底要怎么样才能 ...</blockquote>
+你没看我前面说的话吗，第八集里大喵已经很直白的说了别把作为成员的锅全部让领导背了，难不成大喵那个时候在串？
+
+*****
+
+####  NEWROMANCER  
+##### 31360#       发表于 2025-2-28 12:11
+
+其实面具和祥子那个人偶挺适合作为和MyGO里创可贴和笔记本一样的线索物件串联全片去讲角色境遇变化角色间关系变化等等等等的。
+但现在一点用处没有。看柿本访谈好像压根没意识到这俩东西的可用性。
+
+
+*****
+
+####  Lyzers  
+##### 31361#       发表于 2025-2-28 12:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">反正我是早就说了这动画没逻辑的，我已经不care这里面什么角色定位了
+
+这不就是有人为了圆这玩意还硬要扯什么打工什么领导来露屁股还要给人按个角色厨帽子
+
+*****
+
+####  lzhjr  
+##### 31362#       发表于 2025-2-28 12:12
+
+动画剧情进展回退到第五话时期
+
+漏油们的讨论版本也跟着回退了<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qlipho  
+##### 31363#       发表于 2025-2-28 12:13
+
+柿本：能给亲女儿加戏吗，不能就是没用
+
+*****
+
+####  Skymoon  
+##### 31364#       发表于 2025-2-28 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541099&amp;ptid=2208921" target="_blank">NEWROMANCER 发表于 2025-2-28 12:11</a>
+其实面具和祥子那个人偶挺适合作为和MyGO里创可贴和笔记本一样的线索物件串联全片去讲角色境遇变化角色间关 ...</blockquote>
+看最新的访谈，柿本在构思mujica时老“过载”，想出个莫提斯已经是他的作为神人的极限了，就别再为难他那可怜的小脑了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉缇娅  
+##### 31365#       发表于 2025-2-28 12:14
+
+别吵了，赶紧切割动画等手游重制剧情吧<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+反正也不是第一次切割了，二偶企划
+
+*****
+
+####  阿兹尔  
+##### 31366#       发表于 2025-2-28 12:15
+
+可惜，要是能看到独角兽的访谈就更好了，来点更衣室往事
+
+*****
+
+####  qratosones1337  
+##### 31367#       发表于 2025-2-28 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541069&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-2-28 12:08</a>
+
+是有大手存在啊，但前面你们说的是这大手把大祥推向顶端，现在又说大手是给大祥压力，那这不就是全自动大 ...</blockquote>
+谁让你中层自己也做不好对上管理啊233333
+
+事实上就是至少初华和经纪公司肯定是知道摘面具这回事的，大喵再怎么肆意妄为，起码也知道至少跟关键节点对齐。大祥的“最好的舞台”有跟其它人讲过规划么？
+
+*****
+
+####  qratosones1337  
+##### 31368#       发表于 2025-2-28 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541088&amp;ptid=2208921" target="_blank">有钱多买小人 发表于 2025-2-28 12:10</a>
+
+管不好下属那的确是领导的锅。说白了还是母鸡卡时期没有团魂，大祥表面领导实际管不了任何一个。对大喵最 ...</blockquote>
+正确的做法其实是先点头让大喵自己摘面具，其它人面具不动，这样既有热度也能为今后留下后手，大喵自己流量也大概率比现在多
+
+*****
+
+####  玖羽  
+##### 31369#       发表于 2025-2-28 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540647&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-2-28 11:35</a>
+
+第三集就说得很明显了，她上节目，无论怎么表现，都说是父母给的东西（演技、口才），都被认为不是她自己 ...</blockquote>
+我猜是上节目出过一次事故，可能就是说出“像妈妈一样是什么意思？”导致某些麻烦（虽然不知道这句话有什么问题，姑且这么认为）
+
+*****
+
+####  玖羽  
+##### 31370#       发表于 2025-2-28 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540092&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-28 10:57</a>
+
+哈哈，访谈里直接解释了这集mortis害死睦的剧情，就是mortis为了自保杀死了睦，甚至为了让自己好过一点伪造 ...</blockquote>
+其实老蒋之前在直播里说过，Mortis除了不会吉他，全方面碾压睦，那Mortis会了吉他之后还有睦什么事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  烂片雷达  
+##### 31371#       发表于 2025-2-28 12:16
+
+莉可丽丝第九集很多观众还高呼神回，母鸡卡第九集大部分人已经看乐子了，令人感叹
+看来蒜＞鸡
+
+*****
+
+####  非建政专用号  
+##### 31372#       发表于 2025-2-28 12:17
+
+哦牛逼，墨指导从过失致人死亡变成故意杀人犯了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -895,3 +895,24 @@ SD高达G世纪永恒，来讲讲这次的母舰吧_1_ztkong_来自小红书网�
 
 现在就看活动和关卡难度吧，别搞成非UR机不得进场，排位得机体啥的就行了
 
+
+*****
+
+####  ztkong  
+##### 72#       发表于 2025-2-28 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67532090&amp;ptid=2071758" target="_blank">plok201 发表于 2025-2-27 18:07</a>
+
+现在就看活动和关卡难度吧，别搞成非UR机不得进场，排位得机体啥的就行了 ...</blockquote>
+目前来说没有pvp，没有排位内容，首抽可无限次重制，用首抽满级的0破UR红剑机打活动最高难度无压力，关卡只要不死人，满星通过即开放扫荡，所以只要开完荒还是挺轻松的。
+
+下图这一队SSR都是开发出来的，因为开发等级不重置，所以升完都是50级，还是有一定的战力。玩法上主线开荒必须要上原作机体的。
+
+<img src="https://img.saraba1st.com/forum/202502/28/120653qnkd89tm5tofpkod.jpg" referrerpolicy="no-referrer">
+
+<strong>webwxgetmsgimg (33).jpg</strong> (350.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-28 12:06 上传
+
