@@ -5216,3 +5216,114 @@ https://weibo.com/1195908387/5139019394452597
 
 拆面具的这流量是人当红偶像初华和大手艺人女儿睦的，人只要还是当红偶像和艺人女儿这流量就跑不了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  syndrome2032  
+##### 31543#       发表于 2025-2-28 14:35
+
+现在鸡团最多只能给出为什么要回来，给不出回来以后怎么办。
+
+那就只能一步步来，既然要回来就先组起来。
+
+*****
+
+####  qratosones1337  
+##### 31544#       发表于 2025-2-28 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67542507&amp;ptid=2208921" target="_blank">看穿一切的鱼 发表于 2025-2-28 14:33</a>
+
+先不说不摘面具就已经武道馆了，大喵在频道疯狂暗示大祥也没管。
+
+就算是领导画大饼，你要是母鸡卡一年两 ...</blockquote>
+承诺就是“最好的舞台”啊，跟你开始多长时间有什么关系？武道馆就是一般认知中的最好的舞台，现在最好的舞台已经上了，你既不点头，也给不出个可以信服的解释和规划，那不就是骗人么？就算不恶意揣测，万一出道即巅峰，后续一路下坡路怎么办？
+
+*****
+
+####  看穿一切的鱼  
+##### 31545#       发表于 2025-2-28 14:36
+
+母鸡卡回来都不如ccc回来，都别活了 全回来包饺子吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cccpprc  
+##### 31546#       发表于 2025-2-28 14:39
+
+<blockquote>zhoujin8584 发表于 2025-2-28 14:33
+水友们收收味吧，太像饭圈妹撕咖位了，没车的地方可以去赚小钱钱，版本回退我都不知道你们是不是伪人了 ...</blockquote>
+说白了现在其实是没有车任何角色的必要的，甚至车角色都会出现前后剧情打架的情况。何苦呢。
+
+*****
+
+####  荷包的荷包  
+##### 31547#       发表于 2025-2-28 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67542541&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-2-28 14:35</a>
+
+现在鸡团最多只能给出为什么要回来，给不出回来以后怎么办。
+
+那就只能一步步来，既然要回来就先组起来。 ...</blockquote>
+以后有人问起书名杀的作品，我一定推荐《BanG Dream! Ave Mujica》<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+但凡换个主题还有四集充裕得很
+
+
+*****
+
+####  zhoujin8584  
+##### 31548#       发表于 2025-2-28 14:41
+
+特别是在现在战犯都跳出来说话的当下，都说是面具这玩意是木谷高明要加的也是他要第一话就摘的。
+
+也就是按原本的黑祥boss设定，一开始睦就会因为高强度曝光走向失能（无二人格），炸团进度速推，然后这话以更严肃的姿态承认不该拿她钓网红。
+
+虽然很俗套但也算是通顺的王道剧情。
+
+不如说是为了这个点了找了大猫当工具，还顺带用诡异的姿势卖了共犯。
+
+一个编剧的大手还可以说是编剧本身要表达的，一个社长的大手那是真的打工人替他擦屁股勉强圆回去，角色啥的还去计较就味太大了。
+
+*****
+
+####  swessia  
+##### 31549#       发表于 2025-2-28 14:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">你楼总是在莫名其妙的地方吵起来
+
+*****
+
+####  大户爱  
+##### 31550#       发表于 2025-2-28 14:41
+
+本来打一串字，还想说两个月上武道馆放现实已经不可想象了，你就知足吧。不带你，你都没这个摘面具的机会。
+
+不过想想还是算了，跟某些人，鸡同鸭讲。
+
+这种现实因素放mujica里只能当作舞台背景，不能细想。 喵梦从开始的美妆博主数字、代言，舞台剧ptsd都有一种过于强行设定的既视感。
+
+像这集的事业失败，完全是机械降神的设定，你要设定她这集综艺大火，美妆频道蒸蒸日上。只是看到海玲的短信怅然若失，也是可以的。
+
+完全是看编剧想从哪个角度写。
+
+*****
+
+####  66367749  
+##### 31551#       发表于 2025-2-28 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67542567&amp;ptid=2208921" target="_blank">cccpprc 发表于 2025-2-28 14:39</a>
+说白了现在其实是没有车任何角色的必要的，甚至车角色都会出现前后剧情打架的情况。何苦呢。 ...</blockquote>
+能产生这种争论本身就能说明动画做的有多崩了，这角色全是编剧的紫薇牺牲品<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qratosones1337  
+##### 31552#       发表于 2025-2-28 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67542586&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-2-28 14:41</a>
+
+特别是在现在战犯都跳出来说话的当下，都说是面具这玩意是木谷高明要加的也是他要第一话就摘的。
+
+也就是按 ...</blockquote>
+这就是故意的，如果大喵真只摘自己的话那道德和利益都最大化了，现在落得个道心破碎的下场也是咎由自取
+

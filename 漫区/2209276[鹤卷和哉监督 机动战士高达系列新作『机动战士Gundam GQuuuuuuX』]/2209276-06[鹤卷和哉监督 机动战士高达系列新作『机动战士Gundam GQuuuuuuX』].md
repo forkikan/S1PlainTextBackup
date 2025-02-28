@@ -3730,3 +3730,14 @@ image.png
 
 那这个情况是不是前40分钟只能电影院看到了？4月tv从0085开始放
 
+
+*****
+
+####  王留美  
+##### 7708#       发表于 2025-2-28 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67542403&amp;ptid=2209276" target="_blank">中野梓 发表于 2025-2-28 14:22</a>
+ 那这个情况是不是前40分钟只能电影院看到了？4月tv从0085开始放</blockquote>
+一般的推测是TV“第一话”从85开始放
+但是之前（或者之后）可能会有TV SP或者网络播放把0079的部分单独放出来
+
