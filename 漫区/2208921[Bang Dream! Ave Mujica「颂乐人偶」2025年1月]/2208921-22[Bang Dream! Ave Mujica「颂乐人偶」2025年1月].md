@@ -7411,3 +7411,113 @@ mortis是假扮睦的不说了，和睦的演技相比，喵梦的演技又是�
 
 2025-2-28 19:56 上传
 
+
+*****
+
+####  aptx8285144  
+##### 31737#       发表于 2025-2-28 19:56
+
+ 本帖最后由 aptx8285144 于 2025-2-28 19:58 编辑 
+
+我说个对十本和独角兽可能已经是很超纲的问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  堆雪若叶  
+##### 31738#       发表于 2025-2-28 19:57
+
+如果母鸡卡重组不走商业团那其实和老登都没什么关系，但初华现在和大手绑一块要参团横竖回避不了这个问题，加上喵梦目前还是攫利为优先倒逼成没得选。说起来也是海铃神人非要拉原本五个人回来，喵梦看起来高高在上突然出场喊恶心，实际除了海铃剩下初睦祥眼里有她一点吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DeltaStriker  
+##### 31739#       发表于 2025-2-28 19:57
+
+你说他们不会吧 mygo又是他们整的 你说他们会吧……
+所以纯故意的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  Raven314  
+##### 31740#       发表于 2025-2-28 20:00
+
+怎么还有人觉得有双子说
+那个其实被打假了，所谓的姐妹可能指的祥妈
+<img src="https://p.sda1.dev/22/50d92aeb16f8b57f3d0f90fd9e19d50d/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 31741#       发表于 2025-2-28 20:01
+
+本周邦世界的貝斯手時薪突然上升，
+
+你們有頭緒嗎？
+
+*****
+
+####  阿兹尔  
+##### 31742#       发表于 2025-2-28 20:01
+
+<blockquote>堆雪若叶 发表于 2025-2-28 19:57
+如果母鸡卡重组不走商业团那其实和老登都没什么关系，但初华现在和大手绑一块要参团横竖回避不了这个问题， ...</blockquote>
+初华其实也是，这集海睦祥喵眼里也没她，她的戏份都很神秘
+
+*****
+
+####  adretyu67.  
+##### 31743#       发表于 2025-2-28 20:01
+
+我倾向于是没什么好斗的。
+
+老登大手赔钱这事就这么糊弄过去。
+
+鸡团2.0重组就是回归学生乐队去livehouse演出。
+
+
+*****
+
+####  ape-apple  
+##### 31744#       发表于 2025-2-28 20:02
+
+错，最后鸡还是银河战舰，tgw还是赞助，这就是你鸡的毒理撕烤
+
+*****
+
+####  Raven314  
+##### 31745#       发表于 2025-2-28 20:03
+
+上过武道馆的乐队，只要还是ave mujica这个名字就不可能用于非商业演出吧，因为版权还在事务所手上，而事务所社长说了她上面还有人
+
+*****
+
+####  堆雪若叶  
+##### 31746#       发表于 2025-2-28 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67545221&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-28 20:01</a>
+
+初华其实也是，这集海睦祥喵眼里也没她，她的戏份都很神秘</blockquote>
+初华知道自己是路边一条不敢出声，喵梦拿睦和海铃讨价还价还跳出来开喷，谁问她了我请问了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DeltaStriker  
+##### 31747#       发表于 2025-2-28 20:04
+
+恢复学生乐队？你问问海铃的账单乐不乐意（？）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  adretyu67.  
+##### 31748#       发表于 2025-2-28 20:05
+
+金毛路边成这样，明显是故意的啊。
+
+这怎么看初华都只有执着于祥子的理由，没有执着于鸡团的理由。
+
+9话海铃直接发言只要乐队能组成痛苦也无所谓事后她脸都黑了。
+
