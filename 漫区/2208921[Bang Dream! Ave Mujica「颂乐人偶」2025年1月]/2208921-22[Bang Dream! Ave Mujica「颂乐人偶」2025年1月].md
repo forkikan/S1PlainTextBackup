@@ -6889,3 +6889,94 @@ c团的几位也是一闻到祥子就忍不住想演奏春日影
 
 做个参考
 
+
+*****
+
+####  玖羽  
+##### 31694#       发表于 2025-2-28 17:56
+
+ 本帖最后由 玖羽 于 2025-2-28 17:57 编辑 
+
+我觉得原因很简单，即使是先抑后扬，抑的部分也明显过多了，用常见的话说就是抽陀螺抽了九话，导致观众很难相信这个角色能合理地扬起来（注意是合理地），
+
+和MyGO里的灯对比，灯看似一直抑到第十话开头，但是仔细看就能发现她在队里有着绝对权威，还有第五话主动拉爱音这个高光，
+
+更不用说灯有两段内心主视角，这使得灯很容易被观众移情，我认为纯粹从理论上说，哪怕前面的描写都不变，如果在前八话里给祥子一段内心主视角，情况也不至于如此
+
+以上三点是很明显的失误，尤其是第三点
+
+第9话祥子终于有了<strong>一句</strong>内心主视角，为了让睦不受苦绝对不能重组Mujica，就凭这一句，先别管是不是对麦琪的礼物东施效颦，至少这个逻辑是非常明白的
+
+*****
+
+####  阿兹尔  
+##### 31695#       发表于 2025-2-28 17:56
+
+突然想到祥子是不是有种无能的妈妈属性，别人是正常的她就不会管，一旦亲近的人出事了(她爸酗酒堕落，睦人格分裂)，她就会拼命帮忙，但是因为照顾人的方面她实在太菜了，所以是无能的妈妈。所以初华，快闹起来吧，该争取祥子的关注了
+
+*****
+
+####  稀勢のささ  
+##### 31696#       发表于 2025-2-28 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67544252&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-28 17:43</a>
+
+也许是“开始”，可是那几年真得没有现在那么恐怖，像异度侵入和巴克亚罗播出期间还是有很多讨论的，总感 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">蒜的时候最多也就是嘴硬吧，不少人都知道烂了就嘴硬说来看贴贴的，跟现在的鸡打分楼比较像，后面还被绿毛炸完了
+
+*****
+
+####  半年  
+##### 31697#       发表于 2025-2-28 18:00
+
+不如三团合一吧<img src="https://static.saraba1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">重复的位置就当替补队员，也很好轮班
+
+*****
+
+####  huxiaopao163  
+##### 31698#       发表于 2025-2-28 18:00
+
+话说下集祥子听说睦死了，mortis还演戏骗她，会不会气得打人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Raven314  
+##### 31699#       发表于 2025-2-28 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67544383&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-28 17:56</a>
+突然想到祥子是不是有种无能的妈妈属性，别人是正常的她就不会管，一旦亲近的人出事了(她爸酗酒堕落，睦人 ...</blockquote>
+这集soyo妈妈就吐槽了祥子对睦莫关注交流过了吗
+还有小日向访谈透露，第十集还有手莫。柿本要求小日向像对待幼稚园孩子一样配手莫
+
+*****
+
+####  安娜导函数  
+##### 31700#       发表于 2025-2-28 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67544298&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-28 17:47</a>
+这不是问题，不如说很正常，其实就是不好意思露脸，就跟夏亚戴面具一样，隐瞒身份只是借口 </blockquote>
+就算不露脸，光母鸡卡的钱还不够嘛？难不成真是海玲兼职乐队收入远大于母鸡卡这个最速武道馆一票难求的乐队的收入？？？
+
+*****
+
+####  堆雪若叶  
+##### 31701#       发表于 2025-2-28 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67544383&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-28 17:56</a>
+
+突然想到祥子是不是有种无能的妈妈属性，别人是正常的她就不会管，一旦亲近的人出事了(她爸酗酒堕落，睦人 ...</blockquote>
+soyo：原来是我闹的不够狠吗
+
+
+*****
+
+####  玖羽  
+##### 31702#       发表于 2025-2-28 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67544427&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-28 18:01</a>
+
+就算不露脸，光母鸡卡的钱还不够嘛？难不成真是海玲兼职乐队收入远大于母鸡卡这个最速武道馆一票难求的乐 ...</blockquote>
+Mujica从出道到解散一共两个月<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，而且这两个月祥子忙到根本没时间干别的事
+
