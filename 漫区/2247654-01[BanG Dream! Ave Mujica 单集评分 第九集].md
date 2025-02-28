@@ -2960,3 +2960,32 @@ Mujica确实没一个像人，哦，不能冤枉嘴替大猫老师<img src="http
  ...</blockquote>
 她只是support band，出cd都不能一起拍写真的存在，又不是正式成员
 
+
+*****
+
+####  kuhailz  
+##### 324#       发表于 2025-2-28 08:34
+
+仍然不知道初华为什么这么喜欢祥子
+
+*****
+
+####  黒鈴ミヲ  
+##### 325#       发表于 2025-2-28 08:40
+
+-2 不要再破坏我们mygo的世界观了 我人晕了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  朔洵千夜  
+##### 326#       发表于 2025-2-28 08:42
+
+ 本帖最后由 朔洵千夜 于 2025-2-28 08:43 编辑 
+
+大祥当着爱音面求灯回来重组，编剧这是演啥呢，这演的是《女朋友借我一下》吗<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+制作组就觉得高松灯的语言文字就这么有毒吗？大祥看了几天小字条，嗷得一下不做人了；初华看了一眼笔记本，嗷得一下成杀人犯了，立希只要离灯远点，智商就能重新占领高地了。合着灯真是外域古神？天天晚上拿着望远镜遥望家乡呢？<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+9集了咱能不能整点阳间的玩意儿啊我艹<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
