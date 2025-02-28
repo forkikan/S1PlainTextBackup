@@ -3473,3 +3473,20 @@ mcl的特典场时间还稍好一点，不过肯定更难抢了
 
 TV都开播了，应该不会有多少人去影院看这个了吧？
 
+
+*****
+
+####  psycho_Gadfly  
+##### 7693#       发表于 2025-2-28 08:59
+
+是不是完整版的0079if只有电影院有？
+
+那估计只有核心粉去看了
+
+*****
+
+####  Gysumitka  
+##### 7694#       发表于 2025-2-28 09:00
+
+这不得亏爆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 虽然上了我会去看的
+

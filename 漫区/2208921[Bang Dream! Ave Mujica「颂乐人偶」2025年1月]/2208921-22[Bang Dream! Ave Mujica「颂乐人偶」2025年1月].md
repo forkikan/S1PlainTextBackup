@@ -153,3 +153,78 @@
 
 这一季唯二的收获就是看莫小姐卖萌和看素莫？
 
+
+*****
+
+####  蒹葭公子  
+##### 31093#       发表于 2025-2-28 08:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67538820&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-28 08:53</a>
+
+我现在想吐槽，母鸡卡学到烂片的功夫实在太快，6,7,8都没有财阀任何影子，甚至素世绑架大祥去睦家都没人 ...</blockquote>
+此事在炒面王子与摄影师传中亦有记载<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  斯大林的拖拉机  
+##### 31094#       发表于 2025-2-28 08:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67538124&amp;ptid=2208921" target="_blank">盐盐盐盐盐 发表于 2025-2-28 03:10</a>
+祥子自己都说保证不给mygo添麻烦，剧中人没人觉得不可以参加复数乐队呀，只不过在灯素希眼里又回头搞c团已 ...</blockquote>
+参加多个乐队不会给人添麻烦成立的话显得海铃退乐队很不知所谓<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  上条仁美  
+##### 31095#       发表于 2025-2-28 08:59
+
+<img src="https://img.saraba1st.com/forum/202502/28/095733zkrg0whngrl33rjk.jpg" referrerpolicy="no-referrer">
+
+<strong>1000019386.jpg</strong> (327.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-28 08:57 上传
+
+没人在意海铃在这话第一次露出狱卒吗
+
+这低D数的嗨丝在大闷罐一样的高筒皮靴里闷一整天还到处走，不敢想象有多酸臭
+
+
+*****
+
+####  ml1642879  
+##### 31096#       发表于 2025-2-28 09:01
+
+睦头还要复活？那太没意思了
+
+*****
+
+####  天空塔书记官  
+##### 31097#       发表于 2025-2-28 09:02
+
+ 本帖最后由 天空塔书记官 于 2025-2-28 09:03 编辑 
+
+关于灯对于重组CCC的态度，她犹不犹豫都是次要的，而是事实是灯已经无法具备再成为CCC的灯的条件，所以CCC已经事实性“死亡”，再争论这个没有任何意义
+
+<img src="https://p.sda1.dev/22/54b74b83ae0e34ea5d73542c144842f5/image.jpg" referrerpolicy="no-referrer">
+
+可以对比春日影的歌词看看，初华说的没错，灯的歌已经变成了迷子的风格，“虽然迷茫但仍要携手向前”，而不是执着于留在过去，留在“短暂而又和煦的春日里”，正是这句话暂时“杀死”了吉他睦，因为她和“白祥”一样是属于过去的“幽灵”，过去无法重现，自我的维持就会变得困难，那么她唯一的支点就只剩下对音乐的执念了，看之后怎么表现吧
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  syndrome2032  
+##### 31098#       发表于 2025-2-28 09:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67538839&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-28 08:55</a>
+實際上168 億還真是少有的解
+
+雞團本來可以是五個人在現實壓力下靠僅有的歌來反抗的故事</blockquote>
+168e也无解，还没出道就欠下168e债务。
+
+这要是组队时候不说，组完了一起背锅也是被喷欺诈的。
+
