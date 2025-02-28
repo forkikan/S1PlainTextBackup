@@ -3128,3 +3128,13 @@ Mujica确实没一个像人，哦，不能冤枉嘴替大猫老师<img src="http
 只说初华舔狗未免太冤枉，这片里🐘是人形催眠APP不是底层逻辑嘛，但凡沾上一点的还有一个像人的吗？看看海玲的堕落过程，简直禁毒教育片<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 还得是大喵老师，用拜金主义抗住了诱惑，不过还是被吉他狂魔腐乳了，一辈子ptsd了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  精神  
+##### 341#       发表于 2025-2-28 10:45
+
+沾上祥子这辈子算是完了<img src="https://static.saraba1st.com/image/smiley/face2017/129.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

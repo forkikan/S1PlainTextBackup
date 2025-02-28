@@ -1297,3 +1297,11 @@ DeepSeek：让我这个做量化的告诉你们应该如何研究AI<img src="htt
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  moekyo  
+##### 112#         楼主| 发表于 2025-2-28 10:47
+
+完结散花，可以预见，后面DS会自研算计芯片了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

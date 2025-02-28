@@ -1162,3 +1162,75 @@ mygo两百粉挺正常的
 
 sumimi的商业营业，就是那种正常的感谢寒暄。基本全是甜甜圈女士先说然后才是初华。
 
+
+*****
+
+####  syndrome2032  
+##### 31183#       发表于 2025-2-28 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67539804&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-28 10:32</a>
+初华是作词作曲和第二主唱，主要工作都在幕后，而且主打一个偏高冷的人设，她的人气会和真奈这样的王道偶 ...</blockquote>
+恐怖故事，mygo200关注，阿侬东京600多还是多少，反正比mygo多，初华5w粉，这3个都是推特账号。
+
+大喵的你土鳖直播关注32w。
+
+*****
+
+####  天空塔书记官  
+##### 31184#       发表于 2025-2-28 10:38
+
+ 本帖最后由 天空塔书记官 于 2025-2-28 10:40 编辑 
+
+而且从丰川家的大手来看sumimi的迅速走红也是资本运作的结果，大量的宣发资源可能都投在了鲜花真奈身上，而绿叶初华则并没有多少自己的粉丝群体和资源，这也许会和她在ave的主唱身份产生落差
+
+而且初华估计并不想粉丝营业，在sumimi的工作就只是工作，对初华来说甚至是一种负担，所以她才没有那么上心
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wwwttth  
+##### 31185#       发表于 2025-2-28 10:39
+
+怎么还在车摘面具，说到底这块车的完全是信息不足，你根本不知道带面具演是经济公司的意思还是大祥本人加的戏，经济公司因为这个肯定是少接了很多商务的，以及你根本不知道她没有和工作人员报备过，毕竟演的时候镜头提前都给到了要摘的对象上去了。实际上根据表现更像是经济公司默许，大喵提前打过招呼（可能连顺序都给了）。
+
+
+*****
+
+####  swessia  
+##### 31186#       发表于 2025-2-28 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67539458&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-2-28 09:52</a>
+
+看访谈下话还要给莫当妈。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有熟肉不
+
+*****
+
+####  aptx8285144  
+##### 31187#       发表于 2025-2-28 10:43
+
+<blockquote>甲鱼 发表于 2025-2-28 10:35
+原来是WSD的大手
+
+Ave Mujica监督·柿本广大访谈 （上）杂志25.4月号</blockquote>
+最初的创作还有更尖锐的故事……这是嫌现在还不够尖锐吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  曼彻斯特联  
+##### 31188#       发表于 2025-2-28 10:45
+
+也许是mygo本来也要这么尖锐，后来为了符合邦邦世界观就下调了一下冲突程度，结果歪打正着了。
+
+*****
+
+####  syndrome2032  
+##### 31189#       发表于 2025-2-28 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67539933&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-28 10:43</a>
+最初的创作还有更尖锐的故事……这是嫌现在还不够尖锐吗</blockquote>
+现在的问题不是尖锐而是儿戏吧。
+

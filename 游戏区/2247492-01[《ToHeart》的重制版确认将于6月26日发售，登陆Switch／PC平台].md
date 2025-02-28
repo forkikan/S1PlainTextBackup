@@ -512,3 +512,33 @@ Leaf的《雫》《痕》以及《TOHEART》最大的特点在于覆盖全屏幕
 
 无论如何比起Key的秋之回忆那些，我似乎是更喜欢Leaf的风格，痕有机会也想找来玩下，奈何win11好像打不开98版。
 
+
+*****
+
+####  geniuswu  
+##### 47#       发表于 2025-2-28 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67539771&amp;ptid=2247492" target="_blank">760194962 发表于 2025-2-28 10:29</a>
+原来如此，Key的我就玩过一部份MO1，2还有MO6+FD，MO8+FD. 整体来讲其实没给我留下很深印象。星之梦不错 ...</blockquote>
+MO那个不是Key，是KID<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  760194962  
+##### 48#       发表于 2025-2-28 10:40
+
+<blockquote>wolf1997 发表于 2025-2-28 02:18
+我之前在S1写过一篇从《16bit的感动》的考据引申Galgame历史的文章（在B站也发过专栏https://www.bilibil ...</blockquote>
+沿着女孩「迷宫化」，小叙事的线索，我也感觉更能解释我对白色相簿1重制版的欣赏了
+
+*****
+
+####  760194962  
+##### 49#       发表于 2025-2-28 10:42
+
+<blockquote>geniuswu 发表于 2025-2-28 10:37
+MO那个不是Key，是KID</blockquote>
+哦，这下打脸了XD
+
+圆不回来了，那就先当我毫无理由地把KID引入了讨论吧。
+
