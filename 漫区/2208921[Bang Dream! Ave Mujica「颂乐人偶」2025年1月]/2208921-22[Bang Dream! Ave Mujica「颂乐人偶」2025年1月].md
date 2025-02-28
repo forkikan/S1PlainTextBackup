@@ -6343,3 +6343,71 @@ NGA的投票甜甜圈是算酱油票，虽然我确实想投甜甜圈
 这里还能深挖一下初华本来是被祥子夺走一切之人，本来是该憎恨的对象却成了最为憧憬的人，这初祥关系性就非常扭曲又美味了
 但是这是我脑补，独角兽那个脑回路xp我很难理解<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Raven314  
+##### 31647#       发表于 2025-2-28 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67543638&amp;ptid=2208921" target="_blank">AlterDialog 发表于 2025-2-28 16:40</a>
+这个倒是不会，各种精神疾病的确诊基本都有一条“症状长期反复”的要求，初华这种偶发的发狂还远没到边缘 ...</blockquote>
+你不能真写成精神问题，不然人格障碍最后还有紫砂倾向呢，wsd怎敢端上来<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  金钱与民主  
+##### 31648#       发表于 2025-2-28 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67543675&amp;ptid=2208921" target="_blank">盐盐盐盐盐 发表于 2025-2-28 16:44</a>
+
+单纯是第七集一大堆无关路人跑来跟风而已吧，第八集没大风波路人也散了，第九集才改分或者新打分的人没多少 ...</blockquote>
+第九话这个烂状，信不信车的路人更起劲了。现在无非是B站锁分了而已。
+
+*****
+
+####  钦念以忱  
+##### 31649#       发表于 2025-2-28 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67521374&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-2-26 12:01</a>
+
+狗里，爱灯素都是主角位，祥睦都是配角位，主角可以能动性很强跑来跑去推动剧情，配角可以无口或者谜语人 ...</blockquote>
+所以按照现在的访谈，鸡团5人的人设确实不行吧，原定可能就是一个mygo主角5人团的敌役设计，祥子打造的商业团打压狗团用的，所以5人都是配角设计，也没好好考虑故事怎么编团魂怎么构建，现在要抬高成单独的主角团了，故事编不下去了，就只好又加多重人格又加小姨豪门戏。
+
+碰到事了，也没个能带剧情的角色，要从狗团借人。
+
+*****
+
+####  金钱与民主  
+##### 31650#       发表于 2025-2-28 16:49
+
+说真的现在我反倒觉得空中飞祥居然算好结局了：与其被编剧们一而再再而三的折磨、蹂躏、羞辱，有尊严的死去甚至还挺好的。<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  syndrome2032  
+##### 31651#       发表于 2025-2-28 16:50
+
+空中飞祥那就真成骆驼祥子了吧。
+
+*****
+
+####  金钱与民主  
+##### 31652#       发表于 2025-2-28 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67543729&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-2-28 16:50</a>
+
+空中飞祥那就真成骆驼祥子了吧。</blockquote>
+都被定性为大小姐过家家了，就别碰瓷劳动人民了吧。
+
+*****
+
+####  syndrome2032  
+##### 31653#       发表于 2025-2-28 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67543750&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2025-2-28 16:52</a>
+都被定性为大小姐过家家了，就别碰瓷劳动人民了吧。</blockquote>
+骆驼祥子这个角色虽然是劳动人民，但是他底层的那股气质是知识分子。
+
+当然也不是非得类比。
+
