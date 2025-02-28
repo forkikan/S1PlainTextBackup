@@ -1269,3 +1269,17 @@ https://github.com/deepseek-ai/3FS
 
 — from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  V5Style  
+##### 110#       发表于 2025-2-28 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67539221&amp;ptid=2246987" target="_blank">Azcarlo 发表于 2025-2-28 09:31</a>
+最后一天是文件系统
+https://github.com/deepseek-ai/3FS
+太哈人了，为了训练大模型写了个文件系统？？？</blockquote>
+其实早就有了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">：https://www.high-flyer.cn/blog/3fs/
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
