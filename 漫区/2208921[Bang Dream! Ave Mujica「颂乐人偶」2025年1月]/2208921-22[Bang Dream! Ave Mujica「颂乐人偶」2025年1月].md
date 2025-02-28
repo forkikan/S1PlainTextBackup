@@ -7049,3 +7049,55 @@ soyo不够堕落，还有自主行动能力，没有被祥子判定为需要照�
 访谈里柿本这么跳，菜逼瞎jb改快把锅背完了。独角兽不知道什么时候开摆的，最轻可能只用背一个初版大纲也不 ...</blockquote>
 祥子塑造这么差也应该是她的锅，现在这个样子完全符合她xp，没有多大可能不是她写的
 
+
+*****
+
+####  Raven314  
+##### 31709#       发表于 2025-2-28 18:17
+
+与其说是无能妈妈不如说本来是爸爸位强行暂代了妈妈位，而乐队里爸爸位也被立希完爆了
+
+
+*****
+
+####  与太郎  
+##### 31710#       发表于 2025-2-28 18:24
+
+有两个点不知道有没有人发过：
+
+<img src="https://img.saraba1st.com/forum/202502/28/182054pv717vwyzw101v6a.jpg" referrerpolicy="no-referrer">
+
+<strong>Honeyview_videoframe_830160.jpg</strong> (191.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-28 18:20 上传
+
+<img src="https://img.saraba1st.com/forum/202502/28/182055xytko0cvt4zofc7c.jpg" referrerpolicy="no-referrer">
+
+<strong>Honeyview_videoframe_832393.jpg</strong> (178.34 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-28 18:20 上传
+
+1、这里的mortis说「本気でやってんのに」不是说她真在学吉他，这里一定是在练习假弹，这句话对应的是海铃的上一句，也就是说海铃表示我还有其他乐队，mortis因此埋怨道“我为了复活mujica而努力，你却这么三心二意”，恐怕海铃也是在这个节点之后才退了其他30（10）个乐队；
+
+<img src="https://img.saraba1st.com/forum/202502/28/182055p3kikg93t9qye03g.jpg" referrerpolicy="no-referrer">
+
+<strong>Honeyview_videoframe_1162735.jpg</strong> (160.49 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-28 18:20 上传
+
+<img src="https://img.saraba1st.com/forum/202502/28/182056jmopvovz4t4qsfnz.jpg" referrerpolicy="no-referrer">
+
+<strong>Honeyview_videoframe_1163907.jpg</strong> (265.52 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-28 18:20 上传
+
+2、这个是喵梦的手，喵梦提前到咖啡店，高高在上地看完了整场戏，所以才会说出那句“恶心”
+
