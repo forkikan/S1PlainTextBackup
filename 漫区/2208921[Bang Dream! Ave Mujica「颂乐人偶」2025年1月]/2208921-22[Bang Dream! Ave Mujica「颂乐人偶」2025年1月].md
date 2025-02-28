@@ -6411,3 +6411,68 @@ NGA的投票甜甜圈是算酱油票，虽然我确实想投甜甜圈
 
 当然也不是非得类比。
 
+
+*****
+
+####  安娜导函数  
+##### 31654#       发表于 2025-2-28 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67543434&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-2-28 16:22</a>
+EP9 欢乐节奏榜</blockquote>
+这个假弹假唱前辈给我笑死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  MuramasaSP  
+##### 31655#       发表于 2025-2-28 16:58
+
+希望祥子喝酒喝醉然后在冬夜的路边死去。
+
+在酒精的作用下，她看到了老爹、睦、初华都振奋起来获得幸福的幻象，然后永远地离开让她遍体鳞伤的世界。
+
+我真心的。
+
+*****
+
+####  圣血天使  
+##### 31656#       发表于 2025-2-28 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67543346&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-28 16:13</a>
+没有人觉得祥子在母鸡卡没问题，不如说她就是问题的根源，大小姐过姐姐没有方向拉一堆神人开始就错了。
+
+ ...</blockquote>
+喵梦性格问题在买狗就能看出来了，早就有预期啊，祥子对我来说就太久没品尝过了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PJC110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+
+*****
+
+####  安娜导函数  
+##### 31657#       发表于 2025-2-28 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67543814&amp;ptid=2208921" target="_blank">圣血天使 发表于 2025-2-28 16:58</a>
+喵梦性格问题在买狗就能看出来了，早就有预期啊，祥子对我来说就太久没品尝过了我现在已经是乐奈状态了， ...</blockquote>
+能坚持mygo时期人设已经是很了不起的成就了<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+现在还对的上的估计不超过2个
+
+*****
+
+####  AlterDialog  
+##### 31658#       发表于 2025-2-28 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67543707&amp;ptid=2208921" target="_blank">Raven314 发表于 2025-2-28 16:47</a>
+
+你不能真写成精神问题，不然人格障碍最后还有紫砂倾向呢，wsd怎敢端上来 ...</blockquote>
+已经干了吧，睦的分离性身份识别障碍、焦虑型依恋，海玲和小祥的回避型依恋，灯的阿斯伯格，虽然都有艺术性处理的地方，但真的都挺写实的
+
+*****
+
+####  Raven314  
+##### 31659#       发表于 2025-2-28 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67543844&amp;ptid=2208921" target="_blank">AlterDialog 发表于 2025-2-28 17:01</a>
+已经干了吧，睦的分离性身份识别障碍、焦虑型依恋，海玲和小祥的回避型依恋，灯的阿斯伯格，虽然都有艺术 ...</blockquote>
+独角兽写个剧本手边上还带一本精神科诊断大全是吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+初华这边也是戏份刚刚多起来，根据舅舅剧透写到后面说不定还有多疯，可能不敢真明写紫砂倾向，给点留白暗示的胆子说不定有
+

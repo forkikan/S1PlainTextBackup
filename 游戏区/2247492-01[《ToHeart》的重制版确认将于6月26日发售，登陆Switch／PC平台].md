@@ -637,3 +637,13 @@ PS1: [https://youtu.be/ZQM1WbeOhQk](https://youtu.be/ZQM1WbeOhQk)
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  pcsx2  
+##### 55#       发表于 2025-2-28 16:55
+
+<blockquote>Quelaan 发表于 2025-2-28 03:32
+完全没接触过这系列，值得玩吗？</blockquote>
+强烈推荐玩一下pc版，音乐好人设好，剧情轻松欢乐，没有啥生离死别没有勾心斗角，反正现在我还挺怀念这个游戏的，可惜只有pc版能玩，家用机版没汉化，psp版汉化死机
+

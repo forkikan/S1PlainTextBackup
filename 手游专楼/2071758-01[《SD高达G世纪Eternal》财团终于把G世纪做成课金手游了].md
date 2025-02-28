@@ -954,3 +954,36 @@ SD高达G世纪永恒，来讲讲这次的母舰吧_1_ztkong_来自小红书网�
 为了开荒和图鉴是一定要开发的，卡池等真爱机体抽爆就行。抽到的UR除了白值强，还多了技能和ex必杀技。开 ...</blockquote>
 我就担心开发的机体就和G世纪世界过完剧情送的机体一样，武器只有刀枪豆豆炮，想要三红五彩大炮就还得抽
 
+
+*****
+
+####  ztkong  
+##### 77#       发表于 2025-2-28 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67543570&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-2-28 16:34</a>
+
+我就担心开发的机体就和G世纪世界过完剧情送的机体一样，武器只有刀枪豆豆炮，想要三红五彩大炮就还得抽 ...</blockquote>
+举例：
+
+开发的自由高达是SR。。。流星自由是SSR
+
+而卡池里面会有UR的自由高达给你抽，多个ex必杀技，还送UR基神。
+
+*****
+
+####  ティグル  
+##### 78#       发表于 2025-2-28 17:02
+
+没独眼没闪哈，这参战也太敷衍了
+
+
+*****
+
+####  ztkong  
+##### 79#       发表于 2025-2-28 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67543851&amp;ptid=2071758" target="_blank">ティグル 发表于 2025-2-28 17:02</a>
+
+没独眼没闪哈，这参战也太敷衍了</blockquote>
+还有and more的，会追加的。尤其是闪哈这种。
+

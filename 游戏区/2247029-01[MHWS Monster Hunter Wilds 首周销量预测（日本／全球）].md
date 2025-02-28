@@ -41,3 +41,11 @@ https://steamdb.info
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Humpy  
+##### 51#       发表于 2025-2-28 17:00
+
+这次能不能首周千万销量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
