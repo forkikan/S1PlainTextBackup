@@ -7825,3 +7825,18 @@ pico4来了，神神又要增加表情包了
 如果是按歌剧魅影的假药来说，第十集对应假面舞会，魅影会向女主男主宣战并且强制他们演自己写的舞台剧， ...</blockquote>
 doloris说不准要向ob一串字母女士表白心意了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qratosones1337  
+##### 31779#       发表于 2025-2-28 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67545648&amp;ptid=2208921" target="_blank">qiyu1234 发表于 2025-2-28 21:02</a>
+
+外网好评也不是不能理解
+
+一来本身观众人数和热度有限
+
+再者这种动画好坏都是横向对比，这个时代的异世界厕纸 ...</blockquote>
+已经沦落到跟异世界厕纸比了……
+

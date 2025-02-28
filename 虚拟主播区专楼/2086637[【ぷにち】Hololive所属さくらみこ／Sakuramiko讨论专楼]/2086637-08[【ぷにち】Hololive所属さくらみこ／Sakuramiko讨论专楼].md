@@ -1025,3 +1025,34 @@ bn
 
 2025-2-28 20:07 上传
 
+
+*****
+
+####  holofan  
+##### 10828#       发表于 2025-2-28 21:18
+
+<img src="https://img.saraba1st.com/forum/202502/28/211807fnkzhj1w58iv1xjq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (113.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-28 21:18 上传
+
+<img src="https://img.saraba1st.com/forum/202502/28/211354wh47tdzw725pmu7s.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (32.19 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-28 21:13 上传
+
+*****
+
+####  holofan  
+##### 10829#       发表于 2025-2-28 21:23
+
+当初怕就是小看holo粉的购买力了想着12万的机器应该没那么好卖结果预定量直接把产能爆了
+
+不如直接单独开一条新生产线单独生产这个机器算了
+
