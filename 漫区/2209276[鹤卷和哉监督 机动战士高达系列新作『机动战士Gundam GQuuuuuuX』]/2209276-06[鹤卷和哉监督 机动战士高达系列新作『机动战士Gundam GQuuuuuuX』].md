@@ -4316,3 +4316,21 @@ flcl的人声插入曲我当角色的潜台词看待，gq里的插入曲只能�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  王留美  
+##### 7744#       发表于 2025-3-1 02:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67546739&amp;ptid=2209276" target="_blank">oi99o 发表于 2025-3-1 00:19</a>
+ 对了，GQX第一次出击前夏利亚对它的称呼是Gundam Quuuuuux，好像之前没见人提过？  论坛助手,iPhone ...</blockquote>
+9号机的说法就是来自这个
+
+
+*****
+
+####  YESIARE  
+##### 7745#       发表于 2025-3-1 02:52
+
+麻球的“我寻思能行”JK光环也太离谱了，不过至少展开不无聊，对我来说比水魔第一话那种一眼到头的发展吸引多了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

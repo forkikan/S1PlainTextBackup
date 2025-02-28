@@ -8263,3 +8263,11 @@ soyo新卡有点像:唉有点无聊，调戏一下立希吧
 
 —— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  草化木  
+##### 31815#       发表于 2025-3-1 02:53
+
+刚看完《开膛手初华》，我宣布这才是正作！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
