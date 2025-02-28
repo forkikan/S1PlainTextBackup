@@ -2273,3 +2273,193 @@ mo老师是因为摘了面具以后要面对无数通告压力下 ...</blockquot
 
 为什么有三个人不笑啊 是不爱笑吗
 
+
+*****
+
+####  qratosones1337  
+##### 31284#       发表于 2025-2-28 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540570&amp;ptid=2208921" target="_blank">YF31 发表于 2025-2-28 11:30</a>
+
+太他妈惹的祸了，所以我说喵圣塑造得好，用来人群识别太有用了，是真有道理，不是乱讲的。 ...</blockquote>
+那毕竟还是比不过大祥，真代入到社会化生产的话“领导选个or”这种事能给领导洗让员工背锅，那真是这辈子都有了。
+
+*****
+
+####  wwwttth  
+##### 31285#       发表于 2025-2-28 11:37
+
+第九集已经明示了上面的大手的存在，结果有些人的脑回路却是在这里返回去车喵，说实话有点太变态了。
+
+*****
+
+####  刑部姬真可爱  
+##### 31286#       发表于 2025-2-28 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540592&amp;ptid=2208921" target="_blank">清江望月 发表于 2025-2-28 11:31</a>
+
+我看隔壁说灯有个可以看到别人内心戏的设定？真的吗，mygo里我没看到这个啊？如果是真的，那不是两起杀人案 ...</blockquote>
+MYGO前面几集爱音的内心戏灯会给出反应，再就是第十集睦找灯希解决素世的问题时，旁边立希还不明白在说什么时灯已经懂了睦的意思，不过灯一向是不懂立希和素世甚至乐奈在想什么的，大概就只对得上爱音和睦的电波（祥子存疑）
+
+*****
+
+####  盗号找不回  
+##### 31287#       发表于 2025-2-28 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540535&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-28 11:28</a>
+
+有一说一，大祥把爱音叫过来当面说是对的，但是连一句给爱音和猫猫带来精神压力很抱歉都不肯说而是“不会 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">什么黑祥白祥，这不是完美符合祥子大小姐过家家的人设吗，你还指望打点短工真能让大小姐提升情商懂人情世故啊，任性妄为不计后果自以为是这三个词我觉得完美符合祥子从买狗到现在的人设，考虑到高中生大小姐其实没啥问题，只是不让我喜欢
+
+*****
+
+####  qratosones1337  
+##### 31288#       发表于 2025-2-28 11:38
+
+ 本帖最后由 qratosones1337 于 2025-2-28 11:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540655&amp;ptid=2208921" target="_blank">YF31 发表于 2025-2-28 11:35</a>
+
+我还以为这段是幽默喵圣前脚满足观众后脚自己撂桃子不干的笑点解析呢，太他妈打脸了，你看看你自己在说什 ...</blockquote>
+你这自打脸打得不是更狠了么？因为大祥摆了所以演出要砸锅，结果大喵全责是吧233333
+
+*****
+
+####  天空塔书记官  
+##### 31289#       发表于 2025-2-28 11:38
+
+mygo活动只限于livehouse，而且其实也没有演出多少场次，没人知道是正常情况，PPP真正出名也是在第三季的对邦大赛时肝出来的，bnag真正有声量的组合其实并没有多少，除了完全商业化运行的pp，主流出道的萝，四处砸场子的RAS，其他人都只能算是地方小乐队<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  刑部姬真可爱  
+##### 31290#       发表于 2025-2-28 11:39
+
+我寻思就不能喵梦和祥都有锅？这也能非此即彼吗
+
+*****
+
+####  帆前  
+##### 31291#       发表于 2025-2-28 11:39
+
+mygo官漫更新了！大家快来看软糯soyo
+
+蜜月期素祥😭 
+<img src="https://p.sda1.dev/22/4ce869316292741188940e96a93c8b49/Screenshot_20250228_111059.jpg" referrerpolicy="no-referrer">
+
+纯良付出型妈妈期soyo <img src="https://static.saraba1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/45ebca586781c30b868c25714de8e78c/Screenshot_20250228_111117.jpg" referrerpolicy="no-referrer">
+
+为了帮小灯想到卡拉OK，灯素 <img src="https://static.saraba1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/0202a979682453d5d465df9cd2f70f26/Screenshot_20250228_111206.jpg" referrerpolicy="no-referrer">
+
+萌萌少女乐队时期的c团 <img src="https://static.saraba1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/c8174377a5f237361a836c6d1f478095/Screenshot_20250228_111221.jpg" referrerpolicy="no-referrer">
+<strong>会因为soyo帮忙凝聚团队而道谢的白祥！</strong>（恍如隔世）😭😭😭<img src="https://p.sda1.dev/22/e502bca9c116852e4441eac0e0452edf/Screenshot_20250228_111342.jpg" referrerpolicy="no-referrer">
+<strong>会好好传达心意的白祥×为第一次得到友情而开心的软糯soyo</strong>😭😭😭  
+<img src="https://p.sda1.dev/22/1986aa37090db3713e5f72c252d5d62a/Screenshot_20250228_111441.jpg" referrerpolicy="no-referrer">
+
+我宣布雨中祈晴是一款老五人粉的疗伤药，就是月更有点不够看😭😭😭
+
+*****
+
+####  YF31  
+##### 31292#       发表于 2025-2-28 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540671&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-2-28 11:36</a>
+
+那毕竟还是比不过大祥，真代入到社会化生产的话“领导选个or”这种事能给领导洗让员工背锅，那真是这辈子 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">太有了，怎么这个领导他妈的天天给员工骑脸骑到公开节目直播间里去了？领导天天连轴转给员工擦屁股擦疯了连开都不能开，员工倒是想走就走爱来不来。
+
+谁是领导谁是员工？
+
+1.想干就干想不干就不干事最少钱没少，能骑脸骑到公开直播间里被路人看见，狠狠鞭打祥符号作曲写剧本拉磨还能站道德高地狠狠输出的喵圣。
+
+2.连轴转给喵圣擦屁股擦疯了，擦得半身都没了，还不敢把喵圣踢了的祥符号。
+
+*****
+
+####  YF31  
+##### 31293#       发表于 2025-2-28 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540684&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-2-28 11:38</a>
+
+你这自打脸打得不是更狠了么？因为大祥摆了所以演出要砸锅，结果大喵全责是吧233333
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">太打脸了，我不说是谁。
+
+
+*****
+
+####  刑部姬真可爱  
+##### 31294#       发表于 2025-2-28 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540702&amp;ptid=2208921" target="_blank">帆前 发表于 2025-2-28 11:39</a>
+
+mygo官漫更新了！大家快来看软糯soyo
+
+蜜月期素祥😭 </blockquote>
+这漫画已经和mujica动画不是一条世界线了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wwwttth  
+##### 31295#       发表于 2025-2-28 11:44
+
+我觉得没有必要有锅，这集都摆明了有大手，至少目前所有的情报能让前四集逻辑合上，就看后面能不能让这几集逻辑合上来（最难的就是这个双重人格了）
+
+*****
+
+####  安娜导函数  
+##### 31296#       发表于 2025-2-28 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540655&amp;ptid=2208921" target="_blank">YF31 发表于 2025-2-28 11:35</a>
+我还以为这段是幽默喵圣前脚满足观众后脚自己撂桃子不干的笑点解析呢，太他妈打脸了，你看看你自己在说什 ...</blockquote>
+不能满足观众是因为大喵不玩了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+备选方案提了等你大祥做决定呢，结果大小姐在干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+为啥不能满足观众你别管，你大喵说了这话就该负全责<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  钦念以忱  
+##### 31297#       发表于 2025-2-28 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540493&amp;ptid=2208921" target="_blank">Hchan 发表于 2025-2-28 11:25</a>
+
+没了上面的大手，那不是母鸡卡只能在ring从头开始活动了吗，无缝衔接手游了 ...</blockquote>
+来了来了，下集爱音提议去RING演奏一把
+
+*****
+
+####  6030sylar  
+##### 31298#       发表于 2025-2-28 11:45
+
+<blockquote>        在进入《Ave Mujica》篇后，我重新思考了睦这一角色。我开始想：“她的父母是名人，周围有各色各样的成年人出于各种目的想要接近她，在如此环境下，她真的能一直保持纯真吗？” 我开始思考“在心灵如此幼小脆弱却无人帮助的情况下，保持纯真究竟有着什么含义呢”，进而想到“她是否在隔绝成年人的干涉？”“她是否为了隔绝与周围的关系而停止了内心的成长？” 之后我试着稍微转变视角，之前一直在摸索角色的人格，但脑海中突然浮想到 “人格稀薄意味着什么？” 由此形成了睦的角色：人格应当占有的大部分心灵容量被天赋占据，她是所谓的“天才”，却没有意识到自己天赋异禀，反而一直在做与之相反的事情。
+
+        《It’s MyGO!!!!!》的时候也是，睦的行为逻辑是“周围的一切都是父母给予的，自己唯一能给予别人的只有自己种的黄瓜”，这种极端的情况也反映在她的精神层面。睦的自我在天赋和环境的压迫下几乎无法成长，如果作为Ave Mujica的一员踏入波涛汹涌的世界，会发生什么呢？反复思考的结果，最终分裂出了“只有天赋”的Mortis和“仅有笨拙自我”的睦的两个人格。
+
+        从剧本上讲，因为增加了一个角色，当时已经推进到第4话左右的剧情不得不重新构建。在此之前，祥子的过去是一大主题，但由于剧情中心大幅侧重向Mortis，原有的节奏无法容纳新的变动。这时我收到了脚本家们 “在第1话中完整呈现祥子的过去”的提议，考虑到《It’s MyGO!!!!!》留下了许多未解之谜，这的确可能是更诚实的做法，于是决定重写剧本。</blockquote>
+菜就是菜，硬加一个上一季没有的角色
+ <blockquote>――在第9话中，睦和Mortis在精神世界中争斗，睦掉进了洞里，为何要如此描写呢？
+
+        在第8话中，提到睦和Mortis这两个人格“实际上并不是真正的人格分裂，而是角色扮演”，但事实上，活跃在表面舞台上的确实是这两个人，说到底她们两人都是若叶睦的人格。弹吉他的纯真睦和为了保护她而诞生的Mortis。因此，这并不是多重人格，仅仅是扮演“角色”过多的双重人格。第9话中发生的是主人格（睦）和副人格（Mortis）之间的自我冲突。
+
+        原本，Mortis的作用是保护睦。如果Mortis仅遵从自己的存在意义，在睦接受了现状的时候，Mortis的角色就应该“杀青”了。然而，正因为Mortis成了“人格”，她自身产生了对生存的执着，并且因为防卫过当，凌驾了主人格的睦。Mortis是一个能在社会上与他人建立联系的有着强烈自我主张的人格，而睦则是脆弱、天然的自我，故而弱小。睦的坠落看似是防卫过当的意外，但也反映了Mortis无意识中为自己制造脱罪理由的意图。Mortis的存在理由“为了保护睦”没有改变，因此她不能直接对睦下手。于是，她利用<strong>舞台装置</strong>，为自己制造了一个“这不是我的错”的脱罪证明。因为这里是心象空间，不过是落脚点崩塌罢了，想救下睦的话是可以救得了的，但Mortis有着即便是杀掉睦也要生存下来的执着，因此地板变成了深渊。<strong>虽然我不认为有必要将这些细节完全传达给观众，但作为演出意图而言其实是这么一回事。</strong></blockquote>
+是舞台装置！！！没有必要传达给观众那你演个屁
+
+*****
+
+####  YF31  
+##### 31299#       发表于 2025-2-28 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540749&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-28 11:44</a>
+
+不能满足观众是因为大喵不玩了嘛
+
+备选方案提了等你大祥做决定呢，结果大小姐在干嘛
+
+为啥不能满足观众你别 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">前三集怎么没听丰川祥子做决定？到第四集来听了，喵圣也是多重人格DID是不是？
+
