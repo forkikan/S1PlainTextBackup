@@ -371,3 +371,180 @@ Soyo： 唱歌的地方是她可以放下面具的地方
 海铃是为了表现自己的诚意，她知道自己不是很能被其他人信任，她退其他乐队是在告诉队友，重组ave她是认 ...</blockquote>
 餐厅那里海玲的语气和态度与其说是在说服他人让对方信她，都不如说像只差要把枪掏出来的嘶揭底理，我是其他人就直接怒斥不要“绑架”我<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星星狐  
+##### 31110#       发表于 2025-2-28 09:27
+
+我觉得后续的走向是很明显的吧。c团肯定不可能重组，应该就是初华瞒着公司偷了母鸡卡的演出服，然后母鸡卡五个人在live house或者街头免费演出，好评如潮，最后生米煮成熟饭，财团和事务所也顺水推舟接受了母鸡卡复活的事实。
+
+----发送自 [HUAWEI RTE-AL00,Android 12](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  syndrome2032  
+##### 31111#       发表于 2025-2-28 09:28
+
+初华把病娇女同删掉，那就是放台留声机就行。
+但是这话来看她和灯之间的交流说明她确实是主唱。
+
+最可怕的是下面假药重点全在同上。
+
+*****
+
+####  swessia  
+##### 31112#       发表于 2025-2-28 09:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">包不能假弹的，假弹是一定要被发现的，下一集根本没篇幅写这个
+
+*****
+
+####  堆雪若叶  
+##### 31113#       发表于 2025-2-28 09:28
+
+海铃和祥子还在吵保大保小，莫老师一旁流汗不敢说小睦的号玩死了已经够难蚌，旁边一直颜艺不敢说母鸡卡已经被大手摁死的初华更难蚌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qratosones1337  
+##### 31114#       发表于 2025-2-28 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67528999&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-2-27 11:59</a>
+
+是的没错，丰川的大手包办了从水军到广告到场地的一切内容就为了大小姐过家家，偏偏就在保密协议上整活，单 ...</blockquote>
+讲个笑话，初华的面具甚至是她自己摘的
+
+
+*****
+
+####  天空塔书记官  
+##### 31115#       发表于 2025-2-28 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67539159&amp;ptid=2208921" target="_blank">斯大林的拖拉机 发表于 2025-2-28 09:24</a>
+那大家怎么相信avemujica不会成为下一个退队流对象三十个也是退一个也是退，回答不了mujica的不可替代性 ...</blockquote>
+所以海铃在片尾急了啊<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  swessia  
+##### 31116#       发表于 2025-2-28 09:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我一直觉得主导重组鸡团这个戏份，给初华比给海玲更通顺
+
+*****
+
+####  阿兹尔  
+##### 31117#       发表于 2025-2-28 09:31
+
+灯的歌词一次就能传达到祥子的内心，初华的歌词这辈子能打动祥子吗
+
+*****
+
+####  斯大林的拖拉机  
+##### 31118#       发表于 2025-2-28 09:31
+
+能记住每个和弦的动作却弹不来感觉不符合吉他这个乐器的底层逻辑啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">尤其睦还是节奏吉他，你左手和弦的动作都对了，右手扫就完事了
+
+*****
+
+####  qlipho  
+##### 31119#       发表于 2025-2-28 09:31
+
+a团对这版本‘有睦就行’的负罪祥完全没意义<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">海玲这打法属于是赖子
+
+*****
+
+####  syndrome2032  
+##### 31120#       发表于 2025-2-28 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67539167&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-28 09:26</a>
+餐厅那里海玲的语气和态度与其说是在说服他人让对方信她，都不如说像只差要把枪掏出来的嘶揭底理，我是其 ...</blockquote>
+肯定是急了啊，我整这么多就是为了重组。
+
+但是呢，大家都知道你想重组了，要被重组的别人呢。
+
+这就是当年第一次组队出道一样的事再次发生了。
+
+
+*****
+
+####  一心而用  
+##### 31121#       发表于 2025-2-28 09:32
+
+声优众的反应有点……
+<img src="https://p.sda1.dev/22/5b0ceb25a24ec3654467bc6132e5bc66/QQ图片20250228092401.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/b1c32fb7fddcc6abd8088050ae03d7e1/QQ图片20250228092405.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/10011877fe1d6af98e9394d7732d57b0/QQ图片20250228092410.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/3da887f3b11a79ecce45d9cf3e5a92fd/QQ图片20250228092414.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/34fd1c4143cb99bfbde9a65a8991848a/QQ图片20250228092426.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/752920a158dc93703d57bc780e801fde/QQ图片20250228092431.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/937100846f234ea75ff9397773e95040/QQ图片20250228092435.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  盗号找不回  
+##### 31122#       发表于 2025-2-28 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537921&amp;ptid=2208921" target="_blank">kooler2002 发表于 2025-2-28 02:21</a>
+
+替代个屁啊，下集剧透说live吉他一响睦又回来了，然后莫很感动融合进睦里面了。我剧透应该没人还期待接着看 ...</blockquote>
+我对木头人毫无期待，反而在想祥子怎么进母鸡卡，祥子这人物塑造让我想到了初中看的青春小说和玛丽苏小说
+
+*****
+
+####  南宮凝香  
+##### 31123#       发表于 2025-2-28 09:33
+
+海子是我都跟三十個**斷了
+
+你怎麼還不跟我復合呀！
+
+也是邏輯神人
+
+*****
+
+####  武男  
+##### 31124#       发表于 2025-2-28 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67539240&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-2-28 09:32</a>
+
+肯定是急了啊，我整这么多就是为了重组。
+
+但是呢，大家都知道你想重组了，要被重组的别人呢。</blockquote>
+效逐星之香澄，怀忠志而长存
+
+知乐队而不顺，履穷途而强为
+
+香澄摘星，爱音挽澜，铃不才，谨以身复团！
+
+昔小灯遇爱音于静好，今海铃逢小莫于乱离
+
+莫才胜若叶睦十倍，何故居于人下？
+
+丰川祥废团，大逆之贼也，莫何不复义于天下？
+
+海铃海铃，枯骸乞凝…
+
+与君并肩高处，可观众山之小
+
+24873df1237a936093c27d5e36b28cc05979550.jpg
+(783.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-28 09:35 上传
+
+<img src="https://img.saraba1st.com/forum/202502/28/093506hvpbn000n66iubc5.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  zhzij111  
+##### 31125#       发表于 2025-2-28 09:35
+
+唯一能解释海神人的就是上一集贷款消费这集要还钱了，那确实该急哭了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

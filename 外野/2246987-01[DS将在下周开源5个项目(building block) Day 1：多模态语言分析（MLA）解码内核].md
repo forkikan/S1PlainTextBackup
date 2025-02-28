@@ -1257,3 +1257,15 @@ parallism algorithm
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Azcarlo  
+##### 109#       发表于 2025-2-28 09:31
+
+最后一天是文件系统
+https://github.com/deepseek-ai/3FS
+太哈人了，为了训练大模型写了个文件系统？？？<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
