@@ -329,3 +329,45 @@ Soyo： 唱歌的地方是她可以放下面具的地方
 
 属于车可以强行开，但是能开多远就不知道。
 
+
+*****
+
+####  syndrome2032  
+##### 31106#       发表于 2025-2-28 09:20
+
+ 本帖最后由 syndrome2032 于 2025-2-28 09:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67539016&amp;ptid=2208921" target="_blank">堆雪若叶 发表于 2025-2-28 09:11</a>
+单说最后莫老师嘴祥子其实也没有什么问题？祥子确实自己没想复活crychic，如果取这集睦真为了祥子着想反而 ...</blockquote>
+莫演的太急了，直接180度转向从ccc转到鸡团。
+
+下话应该就会被戳穿。
+莫这种自觉杀了自己半身的精神状态会相当不稳定。估摸下话就是讨论了半天先开个live安抚一下。
+
+*****
+
+####  卡密sama  
+##### 31107#       发表于 2025-2-28 09:24
+
+详言详语<img src="https://p.sda1.dev/22/4df50a130c9214452c6bc2881bcad482/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  斯大林的拖拉机  
+##### 31108#       发表于 2025-2-28 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67538991&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-28 09:09</a>
+海铃是为了表现自己的诚意，她知道自己不是很能被其他人信任，她退其他乐队是在告诉队友，重组ave她是认 ...</blockquote>
+那大家怎么相信avemujica不会成为下一个退队流对象<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 31109#       发表于 2025-2-28 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67538991&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-28 09:09</a>
+
+海铃是为了表现自己的诚意，她知道自己不是很能被其他人信任，她退其他乐队是在告诉队友，重组ave她是认 ...</blockquote>
+餐厅那里海玲的语气和态度与其说是在说服他人让对方信她，都不如说像只差要把枪掏出来的嘶揭底理，我是其他人就直接怒斥不要“绑架”我<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
