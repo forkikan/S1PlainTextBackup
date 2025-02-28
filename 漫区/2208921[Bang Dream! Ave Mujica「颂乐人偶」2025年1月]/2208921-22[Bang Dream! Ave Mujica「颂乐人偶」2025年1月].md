@@ -4737,3 +4737,45 @@ mujica整部剧目前都是闹麻了，人设一集一个样，所以跨集内�
 
 2025-2-28 13:47 上传
 
+
+*****
+
+####  qratosones1337  
+##### 31502#       发表于 2025-2-28 13:48
+
+ 本帖最后由 qratosones1337 于 2025-2-28 13:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67542096&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-28 13:45</a>
+
+说了你还是觉得全天下最欠你的。
+
+无论你自己得到什么，别人没完全给你想要的，你就可以为所欲为。</blockquote>
+所以你就是不敢提大祥一开始的承诺是吧233333
+
+大喵有锅也是在于擅自摘了其它人的面具（主要是睦头）——在大祥已经坐实伪人的前提下，现在回过头来看大祥的所作所为，不就是一般认知中的黑心画饼老板么？大喵要是只摘自己面具拷打大祥那还真就是纯洁白莲花了
+
+都黑心画饼老板了，怎么有脸扯“不欠什么”啊？
+
+*****
+
+####  安娜导函数  
+##### 31503#       发表于 2025-2-28 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67542007&amp;ptid=2208921" target="_blank">荷包的荷包 发表于 2025-2-28 13:36</a>
+唯一正常人这个论点是怎么提出来的我很好奇，总不能太阳出来就把前八集演的都忘了吧
+
+没有逻辑的作品里，第 ...</blockquote>
+因为大喵是目前编剧位一还没写炸的角色啊，她剧情里的行动从开始到现在都起码能和她的人设（性格、出身、脾气等）对应的起来，她的自私自利啊、小地方出身带来的自卑和上进心啊、对待事业的认真态度啊至少和她的行为是能前后对照的，鸡团其他人呢？睦头就不说了，多首的怪物（笑，谁来给我解释一下海玲是怎么突然在这2话变成非mujica不行的<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qratosones1337  
+##### 31504#       发表于 2025-2-28 13:52
+
+ 本帖最后由 qratosones1337 于 2025-2-28 13:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67542123&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-28 13:48</a>
+
+因为大喵是目前编剧位一还没写炸的角色啊，她剧情里的行动从开始到现在都起码能和她的人设（性格、出身、 ...</blockquote>
+海铃第八集勉强能解释上，就是第九集这个哭实在是太难绷了。
+
+初华病娇重女也算前后一致——但代价就是作为主唱，“前”几乎没有
+
