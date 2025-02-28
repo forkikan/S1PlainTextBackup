@@ -6980,3 +6980,72 @@ soyo：原来是我闹的不够狠吗
 就算不露脸，光母鸡卡的钱还不够嘛？难不成真是海玲兼职乐队收入远大于母鸡卡这个最速武道馆一票难求的乐 ...</blockquote>
 Mujica从出道到解散一共两个月<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，而且这两个月祥子忙到根本没时间干别的事
 
+
+*****
+
+####  SakuraのOrigami  
+##### 31703#       发表于 2025-2-28 18:06
+
+米室(2nd Live KV图担当)
+
+GkzgOcGbsAAeLuO.jpg
+(298.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-28 18:06 上传
+
+<img src="https://img.saraba1st.com/forum/202502/28/180612mzttdaocr34stt3i.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 31704#       发表于 2025-2-28 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67544422&amp;ptid=2208921" target="_blank">Raven314 发表于 2025-2-28 18:00</a>
+这集soyo妈妈就吐槽了祥子对睦莫关注交流过了吗
+还有小日向访谈透露，第十集还有手莫。柿本要求小日向像 ...</blockquote>
+莫下话肯定要被戳穿假装。
+这种情况下精神状态会非常不稳定。
+
+*****
+
+####  Victorino  
+##### 31705#       发表于 2025-2-28 18:07
+
+ 本帖最后由 Victorino 于 2025-2-28 18:09 编辑 
+<blockquote>syndrome2032 发表于 2025-2-28 17:35
+不缺键盘也可以作曲啊。
+
+比较可能的是不想这么做，觉得丢份?自己作的曲被其他人用。 ...</blockquote>
+
+作为一个九大团有至少八个都自己作曲的世界观，可能作曲战力早就通货膨胀了吧，随便凑五个人必有一个能作曲，以剧外现实的视角看简直是高高高魔世界
+
+*****
+
+####  Raven314  
+##### 31706#       发表于 2025-2-28 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67544491&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-2-28 18:07</a>
+莫下话肯定要被戳穿假装。
+这种情况下精神状态会非常不稳定。</blockquote>
+不知名剧透是被大喵看穿的
+
+*****
+
+####  阿兹尔  
+##### 31707#       发表于 2025-2-28 18:08
+
+<blockquote>堆雪若叶 发表于 2025-2-28 18:01
+soyo：原来是我闹的不够狠吗</blockquote>
+soyo不够堕落，还有自主行动能力，没有被祥子判定为需要照顾的孩子
+
+*****
+
+####  上条仁美  
+##### 31708#       发表于 2025-2-28 18:11
+
+<blockquote>xyion 发表于 2025-2-28 18:40
+访谈里柿本这么跳，菜逼瞎jb改快把锅背完了。独角兽不知道什么时候开摆的，最轻可能只用背一个初版大纲也不 ...</blockquote>
+祥子塑造这么差也应该是她的锅，现在这个样子完全符合她xp，没有多大可能不是她写的
+
