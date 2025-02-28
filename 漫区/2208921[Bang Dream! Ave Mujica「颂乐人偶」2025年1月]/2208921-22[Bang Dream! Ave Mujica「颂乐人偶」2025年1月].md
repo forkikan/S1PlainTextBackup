@@ -6012,3 +6012,44 @@ nga声称5ch也破防了：​[吐槽氵][讨论]第九集一出，本子那边�
 
 很可怕的消息。狗13播出的时候鸡的命运可能就决定了。
 
+
+*****
+
+####  圣血天使  
+##### 31616#       发表于 2025-2-28 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67542198&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-28 13:58</a>
+不吵了，aoe一下，母鸡卡放到现在就是五个不正常人。能完全共情他们多多少少都不正常。
+
+至少到现在，除了 ...</blockquote>
+说的对，都不是正常人。大猫在买狗里就能看出的人设到现在也没变，没啥问题，说她蠢作为外地来东京混的也没问题。但是因为这个就共情玛丽苏大小姐觉得祥子带母鸡卡没问题的我是理解不了
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你们是不是把丰川集团和祥子混为一谈了？母鸡卡刚成立时候祥子知道她姥爷为她准备了这么多吗？
+
+—— 来自 OPPO PJC110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+
+*****
+
+####  sauron.j  
+##### 31617#       发表于 2025-2-28 16:13
+
+重看了下老蒋的分析明白些什么，海玲上一集要是不喝饮料把情绪压下去，就会当着喵梦的面发狂然后和本集一样爆小珍珠了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大户爱  
+##### 31618#       发表于 2025-2-28 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67543306&amp;ptid=2208921" target="_blank">圣血天使 发表于 2025-2-28 16:08</a>
+说的对，都不是正常人。大猫在买狗里就能看出的人设到现在也没变，没啥问题，说她蠢作为外地来东京混的也 ...</blockquote>
+没有人觉得祥子在母鸡卡没问题，不如说她就是问题的根源，大小姐过姐姐没有方向拉一堆神人开始就错了。
+
+我只是看到有人觉得喵梦在母鸡卡没问题，就绷不住。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿兹尔  
+##### 31619#       发表于 2025-2-28 16:15
+
+初华要是真小姨，那还是太宠祥子了啊，这就是血缘关系的力量吗
+

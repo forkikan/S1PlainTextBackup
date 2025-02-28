@@ -3363,3 +3363,29 @@ disruption？？？？？
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  小妻水亚美  
+##### 365#       发表于 2025-2-28 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67542670&amp;ptid=2247654" target="_blank">LLLLLuB 发表于 2025-2-28 14:50</a>
+现在最难想象的是，鸡团5个人后续还要上手游卖卡的，现在这角色塑造真的能吸引人氪金抽卡吗？ ...</blockquote>
+🥵立绘色一点才行，但是肯定做不到的
+
+—— 来自 OPPO PGFM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Victorino  
+##### 366#       发表于 2025-2-28 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67543196&amp;ptid=2247654" target="_blank">ArcadiaMartyr 发表于 2025-2-28 15:56</a>
+
+难道不是一直就想让她加入，只不过海玲一直以自己跑无数个乐队做借口婉拒？才会说什么正式加入
+
+—— 来 ...</blockquote>
+对啊，海铃自己要拒绝，怎么邀请都没用
+
+用流行的乐队夫妻论，这相当于海铃和disruption二位都没有正式告白交往（py关系），难道要这两位先自顾自把海铃当女友来yy吗？太变态了吧
+
