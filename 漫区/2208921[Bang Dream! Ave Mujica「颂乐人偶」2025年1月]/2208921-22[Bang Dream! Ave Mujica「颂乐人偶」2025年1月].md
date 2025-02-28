@@ -8158,3 +8158,33 @@ Anon 比Raina 五十音在前面
 
 是一个不知道几手的剧透说的，我从洗白老登的角度看，老登是全剧最白的角色的话，那初华就可以是二代出轨的结果，不知道和小姨论哪个更变态
 
+
+*****
+
+####  plusSharp  
+##### 31805#       发表于 2025-2-28 23:43
+
+太怪了，如果是清告出轨那初华就和丰川毫无关系，怎么可能不把她按死，还是祥母或者定治女儿更合理
+
+*****
+
+####  huxiaopao163  
+##### 31806#       发表于 2025-2-28 23:43
+
+怎么包饺子，就这样包<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+海玲已经有内味了，看看其他人怎么将一切都献给ave mujica
+   
+
+<img src="https://p.sda1.dev/22/6ca1e518dabfd8fda117006674ce0cf3/IMG_CMP_142768774.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  非建政专用号  
+##### 31807#       发表于 2025-2-28 23:45
+
+老登，你去羽丘找个叫千早爱音的小留逃兵，跟着她一起去live，然后踹开，换你上去当节奏吉他
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

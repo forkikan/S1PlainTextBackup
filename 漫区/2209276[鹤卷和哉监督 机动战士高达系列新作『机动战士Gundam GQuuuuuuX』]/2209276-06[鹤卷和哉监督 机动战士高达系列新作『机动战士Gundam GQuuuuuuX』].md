@@ -4184,3 +4184,29 @@ plazma算什么，中段管人插曲也一样莫名其妙，滚ed的时候发现
 
 我看高达是从oo开始看的，倒也没兴趣充什么遗老的姿态对高达的内核指指点点。只是单纯觉得女高插卡带上高达打黑拳很奇怪而已，特别是我前半段还在看夏亚开红高达的情况下。打完黑拳还有吉翁的人出现了，他们像是一个世界观下的产物吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  兔狐子  
+##### 7732#       发表于 2025-2-28 23:45
+
+不过鹤卷哥哥这个人声配乐的喜好有时候确实不太好适应，flcl的人声配乐就很频繁，导致我有时没法集中在人物台词上……<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Oshino  
+##### 7733#       发表于 2025-2-28 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67546507&amp;ptid=2209276" target="_blank">兔狐子 发表于 2025-2-28 23:33</a>
+
+建议マチュ胶片出我</blockquote>
+我从电影院出来就觉得这片tv化之后在s1有一集直播保底2000楼的潜力，万事俱备就差凯子来找我了
+
+<img src="https://img.saraba1st.com/forum/202502/28/234544rnxz9lgn6zga36gz.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_2143.JPG</strong> (808.43 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-28 23:45 上传
+
