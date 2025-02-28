@@ -8188,3 +8188,14 @@ Anon 比Raina 五十音在前面
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  堆雪若叶  
+##### 31808#       发表于 2025-2-28 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67546411&amp;ptid=2208921" target="_blank">plusSharp 发表于 2025-2-28 23:15</a>
+
+之前看某些日本作品讲什么“伪善”，“自我满足”，“感动自己”总感觉是在无病呻吟，水平不够还硬要讲大道 ...</blockquote>
+说祥子两次退团是自我满足就算了，重组crychic是睦亲口要求的，结果还被莫老师演当众打脸，也就是祥子现在抽无可抽还要把她碎一地的自尊当奉献了。
+

@@ -4210,3 +4210,25 @@ plazma算什么，中段管人插曲也一样莫名其妙，滚ed的时候发现
 
 2025-2-28 23:45 上传
 
+
+*****
+
+####  lickey  
+##### 7734#       发表于 2025-2-28 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67546595&amp;ptid=2209276" target="_blank">Oshino 发表于 2025-2-28 23:47</a>
+
+我从电影院出来就觉得这片tv化之后在s1有一集直播保底2000楼的潜力，万事俱备就差凯子来找我了
+
+ ...</blockquote>
+有一说一，你现在把这张胶片放煤炉上，说不定也能也能出个几百<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔狐子  
+##### 7735#       发表于 2025-2-28 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67546632&amp;ptid=2209276" target="_blank">lickey 发表于 2025-2-28 23:55</a>
+ 有一说一，你现在把这张胶片放煤炉上，说不定也能也能出个几百</blockquote>
+同意 感觉能卖出点价格的这张<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+

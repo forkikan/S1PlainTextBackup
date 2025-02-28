@@ -171,3 +171,14 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">另外我为什么还却一个金星开全天赋树
 
+
+*****
+
+####  qixinno2  
+##### 16421#       发表于 2025-2-28 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67546471&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-2-28 23:25</a>
+
+另外我为什么还却一个金星开全天赋树</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为这次给的是蓝星
+
