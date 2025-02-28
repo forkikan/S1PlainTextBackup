@@ -7612,3 +7612,62 @@ mortis是假扮睦的不说了，和睦的演技相比，喵梦的演技又是�
 </blockquote>
 认同第二点，第一点是墨提斯实际上可以弹出来，因为AM没有录过现场吉他音源，这是重组门槛
 
+
+*****
+
+####  扶桑洛槿  
+##### 31758#       发表于 2025-2-28 20:28
+
+<blockquote>盐盐盐盐盐 发表于 2025-2-28 20:17
+如果按某个聊天记录剧透的话祥子一辈子也摆脱不了丰川家的荫蔽的（后面还会有很多因为她是丰川家的人才能办 ...</blockquote>
+真这样，大祥人设还有充分向下跌的空间嘛。
+
+*****
+
+####  plok201  
+##### 31759#       发表于 2025-2-28 20:30
+
+3集战财团，想想都觉得变态，留给LIVE的时间不多了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  非建政专用号  
+##### 31760#       发表于 2025-2-28 20:31
+
+能不能直接快进到日服第一酒桶和丰川老头爆了，大象继承遗产
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  adretyu67.  
+##### 31761#       发表于 2025-2-28 20:33
+
+还是老登和中登两个因素有点负面了。
+
+邦之前应该没这么多过于压力的家长吧
+
+*****
+
+####  与太郎  
+##### 31762#       发表于 2025-2-28 20:33
+
+<img src="https://img.saraba1st.com/forum/202502/28/203241qfuac222bqvfg9a2.gif" referrerpolicy="no-referrer">
+
+<strong>anontokyo2.gif</strong> (1.97 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-28 20:32 上传
+
+<img src="https://img.saraba1st.com/forum/202502/28/203254uklqbtqred5q55d5.gif" referrerpolicy="no-referrer">
+
+<strong>64f4a4ece591cd5c5ee18dca27311591480072510.gif</strong> (1.66 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-28 20:32 上传
+
+突然想到这个镜头其实还对偶了爱音脑内崩溃鸭子坐
+
