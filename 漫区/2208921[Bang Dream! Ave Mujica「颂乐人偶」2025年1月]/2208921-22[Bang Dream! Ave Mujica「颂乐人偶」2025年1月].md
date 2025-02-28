@@ -1381,3 +1381,142 @@ Ave Mujica监督·柿本广大访谈 （上）杂志25.4月号</blockquote>
 
 [https://b23.tv/y6KRKsy](https://b23.tv/y6KRKsy) 访谈的翻译有了
 
+
+*****
+
+####  huxiaopao163  
+##### 31204#       发表于 2025-2-28 10:57
+
+ 本帖最后由 huxiaopao163 于 2025-2-28 10:59 编辑 
+
+哈哈，访谈里直接解释了这集mortis害死睦的剧情，就是mortis为了自保杀死了睦，甚至为了让自己好过一点伪造成意外。
+
+那就能解释了，mortis开始练吉他的时候，实力就已经发生了逆转。而睦和灯遇到初华那段，说祥子在重组C团的时候，mortis决定先下手为强下死手了。
+
+而那些小睦在掐mortis脖子等等剧情，并不是睦在这个时候变强了，而是mortis希望把自己伪造成受害者，让自己心里好过点。
+ <blockquote>原本，Mortis的作用是保护睦。如果Mortis仅遵从自己的存在意义，在睦接受了现状的时候，Mortis的角色就应该“杀青”了。然而，正因为Mortis成了“人格”，她自身产生了对生存的执着，并且因为防卫过当，凌驾了主人格的睦。Mortis是一个能在社会上与他人建立联系的有着强烈自我主张的人格，而睦则是脆弱、天然的自我，故而弱小。睦的坠落看似是防卫过当的意外，但也反映了Mortis无意识中为自己制造脱罪理由的意图。Mortis的存在理由“为了保护睦”没有改变，因此她不能直接对睦下手。于是，她利用舞台装置，为自己制造了一个“这不是我的错”的脱罪证明。因为这里是心象空间，不过是落脚点崩塌罢了，想救下睦的话是可以救得了的，但Mortis有着即便是杀掉睦也要生存下来的执着，因此地板变成了深渊。虽然我不认为有必要将这些细节完全传达给观众，但作为演出意图而言其实是这么一回事。</blockquote>
+
+*****
+
+####  丹德里恩  
+##### 31205#       发表于 2025-2-28 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540033&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-2-28 10:51</a>
+
+虽然但是，今天是反田叶月24岁生日。</blockquote>
+你知道的，真奈一直是我姐妹，她强的不可思议。
+
+*****
+
+####  曼彻斯特联  
+##### 31206#       发表于 2025-2-28 10:57
+
+设定越多越难塑造，爱音这个mygo前7集的主视点就是因为设定相对简单好塑造才容易让观众代入和共情，方便观众理解之后的剧情。mujica的两个主视点太抽象了，所以观众才完全跟不上角色的想法。
+
+*****
+
+####  qlipho  
+##### 31207#       发表于 2025-2-28 10:58
+
+看完访谈不是柿本有菜又爱玩，加个亲女儿墨提斯，还能引入皮套论（独角兽箱子我要推出mujica的制作，柿本素食给亲女儿当妈妈宽宏为大，单集脚本全都已读不回）柿本是该恨的
+
+*****
+
+####  天空塔书记官  
+##### 31208#       发表于 2025-2-28 10:58
+
+对比现实中的组合团体，成员间的热度差距存在天壤之别是十分常见的，所以才会出现因为核心单飞，组合就停止活动的情况
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Lyzers  
+##### 31209#       发表于 2025-2-28 10:58
+
+确实，人本来早死晚死都要死的，为什么我捅死他要怪我啊，太不公平了
+
+*****
+
+####  厚乳果珍爽  
+##### 31210#       发表于 2025-2-28 10:59
+
+<blockquote>**关于"面具"设定的叙事策略**  
+
+问：第1集就让成员摘下面具的设计令人意外。  
+
+答：其实在并入《BanG Dream!》主宇宙时，我们曾移除面具设定。但收到Bushirood木谷高明先生的建议后，重新思考如何将其融入叙事。最终决定"用首集摘面具打破观众预期"，同时隐喻角色们隐藏真实自我的生存状态。考虑到两作播出间隔一年半，这个时机反而成就了戏剧张力。  </blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我就想炸了，没有任何理由
+
+*****
+
+####  EverNight  
+##### 31211#       发表于 2025-2-28 11:00
+
+早上起来想了一下，现在的问题就是聊得太多了，说了太多的没有用的话，却在动作和场景上极度缺乏演出。最激烈的矛盾用最清汤寡水的方式表现出来。
+
+动作和场景是很重要的，我们对比一下mygo，当soyo终于去现场之后是怎么表现的呢？首先是anno给了一个眼神，视角转到灯，看到soyo，然后冲下舞台，万军丛中取大将soyo，拼命拉了过来。说话？最后anno一把拽上舞台。还有anno给soyo挂上bass之后拉脸庞。没有多余的说话，靠动作拉满情绪和张力。就像“大吼一声扑向xxx”。
+
+这些，mujica全都没有，最像的只有脑内小剧场，大莫老师把吉他睦塞回去和吉他睦跌下栏杆（这也很难崩）的这几幕。最激烈的矛盾用最清汤寡水的方式表现出来，仿佛把孜然抹在嗓子里，仿佛有东西，咽了又什么都没有，难受得要死。
+
+
+*****
+
+####  安娜导函数  
+##### 31212#       发表于 2025-2-28 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67539741&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-28 10:26</a>
+啊…这，都把丰川家的大手摁在脸上了，怎么还在车轱辘摘面具的事，如果摘面具是“上面”的意思怎么办
+
+ave ...</blockquote>
+摘面具好像是木谷高明的意思，果然是"上面"<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YF31  
+##### 31213#       发表于 2025-2-28 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540080&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-2-28 10:56</a>
+你要是说社会化生产，那第四集代入到职场，就是某重大业务需要决策，先走的审批流程A，要么通过要么否决之 ...</blockquote>
+又来了，能不能换种花样，你早晚都是要死的，所以我捅你一刀也没关系，死去吧。
+谁第一个退出，谁嚷着退出就等于解散，谁是炸团谁担责这很难理解吗？到了第十集还要站到道德高地上胡搅蛮缠真是太牛逼了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 31214#       发表于 2025-2-28 11:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540169&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-28 11:03</a>
+摘面具好像是木谷高明的意思，果然是"上面"</blockquote>
+还有一句“融入叙事”，所以应该会有剧情解释<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  firestorm5  
+##### 31215#       发表于 2025-2-28 11:05
+
+祥子发现睦是mortis演的 现在的初华也是假的
+
+内心经过强烈刺激后的祥子，开始追求人与人之间的关系要绝对真实、绝不说谎，立志要创造一个“没有谎言的世界”。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ml1642879  
+##### 31216#       发表于 2025-2-28 11:05
+
+不是邦多利就能给柿本广大判刑了，这种原案武士道非要纳入邦多利宇宙，我真觉得柿本广大洗白了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 31217#       发表于 2025-2-28 11:06
+
+战吧现在有些神经病还在给WSD的烂炒当帮凶，我都怀疑他们是不是收了WSD的钱<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">，这种神人动画以后LIVE开的再好又有啥挽救剧本的可能??
+

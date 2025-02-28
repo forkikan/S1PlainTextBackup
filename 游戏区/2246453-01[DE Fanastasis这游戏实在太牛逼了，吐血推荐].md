@@ -2842,3 +2842,16 @@ pc玩走几步一掉帧，手机玩反倒很流畅没感觉有明显卡顿，除
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  JamesDrapor  
+##### 249#       发表于 2025-2-28 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67539470&amp;ptid=2246453" target="_blank">CnIV 发表于 2025-2-28 09:53</a>
+
+想问下魂之块后面方便刷吗，现在攒着不少但不太敢用
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+后期走路就能刷，也能用魔石直接买。敞开用就得了！
+
