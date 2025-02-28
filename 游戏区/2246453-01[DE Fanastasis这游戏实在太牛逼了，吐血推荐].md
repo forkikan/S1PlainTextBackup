@@ -2923,3 +2923,16 @@ f5可以改
 f5可以改</blockquote>
 F5确实可以，但是又觉得分辨率有点低...
 
+
+*****
+
+####  83913536  
+##### 257#       发表于 2025-3-1 04:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67485530&amp;ptid=2246453" target="_blank">JamesDrapor 发表于 2025-2-21 14:42</a>
+
+是在最后阶段集齐了8个异界碎片打完隐藏Boss之后才能解锁的功能。
+
+在那里可以看到所有“阅览过的血迹剧 ...</blockquote>
+已经看完结局回标题重新读档了，好像还是没有解锁新功能的提示
+
