@@ -3088,3 +3088,43 @@ Mujica确实没一个像人，哦，不能冤枉嘴替大猫老师<img src="http
 
 初华塑造的有点太舔狗的感觉。
 
+
+*****
+
+####  Lawliet.L  
+##### 337#       发表于 2025-2-28 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67538610&amp;ptid=2247654" target="_blank">航母掉头 发表于 2025-2-28 08:21</a>
+
+怎么到现在还没人说，传奇雇佣兵拆了十几个队是不是造成了十几个c团鸡团的尸体
+
+ ...</blockquote>
+又到了贝斯笑话时间<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  喜闻乐见  
+##### 338#       发表于 2025-2-28 10:30
+
++2键按冒烟了
+
+看了前八集去看山田你的颜色的，都说最佳大脑按摩片，这才是少女乐队  爽
+
+看完你的颜色再看这周第九集——这才是少女乐队  爽炸力
+
+
+*****
+
+####  一色いろは  
+##### 339#       发表于 2025-2-28 10:33
+
++2大家都不是人等于大家都是好人
+
+*****
+
+####  saglork  
+##### 340#       发表于 2025-2-28 10:34
+
+只说初华舔狗未免太冤枉，这片里🐘是人形催眠APP不是底层逻辑嘛，但凡沾上一点的还有一个像人的吗？看看海玲的堕落过程，简直禁毒教育片<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+还得是大喵老师，用拜金主义抗住了诱惑，不过还是被吉他狂魔腐乳了，一辈子ptsd了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

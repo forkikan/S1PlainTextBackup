@@ -3514,3 +3514,27 @@ TV都开播了，应该不会有多少人去影院看这个了吧？
 
 特典打包送就原谅了<img src="https://static.saraba1st.com/image/smiley/face2017/215.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  兔狐子  
+##### 7698#       发表于 2025-2-28 10:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然我会去看 但真的有点晚
+
+*****
+
+####  王留美  
+##### 7699#       发表于 2025-2-28 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67538256&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-2-28 05:09</a>
+
+有点...尴尬</blockquote>
+说是买的太迟了
+
+讲道理大屏幕看还是好看的，如果有imax那就更好
+
+4、5月哪吒也差不多了，能让出一点屏来，3月就很微妙
+
+0079那部分也不好说上不上TV呢
+

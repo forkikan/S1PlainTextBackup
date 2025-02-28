@@ -1064,3 +1064,101 @@ mygo跟mujica影响的范围可太不同了。
 祥子怎么保证不给mygo添麻烦啊？本来团员专心一个团，现在部分成员要两头跑，而且核心主唱灯还要负责两团 ...</blockquote>
 她自己都没想明白重建c团具体之后怎么活动怎么安排，只是盲目的觉得睦想要那她就得先弄起来，说不影响mygo是她不会说让三个人退go团，然后活动时间肯定是go团优先空闲时间再给c团的意思，祥子不一直就这样其实她做事都是没什么计划的走一步看一步，她都未必知道go团现在一周练习几次纯纯先画饼求同意（
 
+
+*****
+
+####  天空塔书记官  
+##### 31174#       发表于 2025-2-28 10:26
+
+ 本帖最后由 天空塔书记官 于 2025-2-28 10:29 编辑 
+
+啊…这，都把丰川家的大手摁在脸上了，怎么还在车轱辘摘面具的事，如果摘面具是“上面”的意思怎么办
+
+ave的起点虚高就是事实，它不是靠自己的硬实力上武道馆的，只是资本的笼中鸟
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  66367749  
+##### 31175#       发表于 2025-2-28 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67539541&amp;ptid=2208921" target="_blank">YF31 发表于 2025-2-28 10:00</a>
+参加点社会生产吧，在项目重大节点上瞎搞的后果一定是你滚蛋，重大演出不报备自己瞎搞，从宣发到物料全部 ...</blockquote>
+你应该反思为什么会和这部动画的自适应现实要素谈逻辑。并且和别的神仙级日常比起来已经是相对接近人类的内容了，live演出暴言暴行的也不是没有过<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhoujin8584  
+##### 31176#       发表于 2025-2-28 10:28
+
+认定一件事，用演技（本色）破防喵梦的是睦，喵梦从来没有闪回过莫的演技片段。
+
+反观第四集，她马上就能认出来莫在演祥“确实像是祥子会说的台词呢”
+
+*****
+
+####  Lawliet.L  
+##### 31177#       发表于 2025-2-28 10:29
+
+小孩子胡闹本身就是大人故意放纵的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  K·os  
+##### 31178#       发表于 2025-2-28 10:29
+
+mygo两百粉挺正常的
+初华五万粉确实有点乱填
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  天空塔书记官  
+##### 31179#       发表于 2025-2-28 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67539775&amp;ptid=2208921" target="_blank">K·os 发表于 2025-2-28 10:29</a>
+mygo两百粉挺正常的
+初华五万粉确实有点乱填</blockquote>
+初华是作词作曲和第二主唱，主要工作都在幕后，而且主打一个偏高冷的人设，她的人气会和真奈这样的王道偶像差很多还是可以预料的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  飞天意面怪  
+##### 31180#       发表于 2025-2-28 10:34
+
+五万粉我觉得别说打不过pp，可能还不如桐谷透子。
+
+*****
+
+####  甲鱼  
+##### 31181#       发表于 2025-2-28 10:35
+
+原来是WSD的大手<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[Ave Mujica监督·柿本广大访谈 （上）杂志25.4月号](https://www.bilibili.com/opus/1038765869510950920?spmid=dt.opus-detail.0.0)
+
+4A84CAE6CDD5F4AA9EECC8F0D669E421.png
+(98.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-28 10:34 上传
+
+<img src="https://img.saraba1st.com/forum/202502/28/103459wkgxmm5odn4oln89.png" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 31182#       发表于 2025-2-28 10:36
+
+sumimi的商业营业，就是那种正常的感谢寒暄。基本全是甜甜圈女士先说然后才是初华。
+
