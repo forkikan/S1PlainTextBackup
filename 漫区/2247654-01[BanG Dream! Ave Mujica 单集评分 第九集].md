@@ -3338,3 +3338,16 @@ disruption？？？？？
 
 疯起来疯起来，我就是想看这个。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Victorino  
+##### 363#       发表于 2025-2-28 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541355&amp;ptid=2247654" target="_blank">ArcadiaMartyr 发表于 2025-2-28 12:34</a>
+
+disruption？？？？？
+
+—— 来自 鹅球 v3.3.96</blockquote>
+罚你重看那一段，那段disruption俩人说的是「要是你正式加入就好了」之类的话，是把海铃从0.5个乐队成员升格到1个正式成员的邀请而已，相当于实习尚未转正
+
