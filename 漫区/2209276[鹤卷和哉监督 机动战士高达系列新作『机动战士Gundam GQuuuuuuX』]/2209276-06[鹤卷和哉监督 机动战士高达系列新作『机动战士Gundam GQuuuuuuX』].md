@@ -4063,3 +4063,11 @@ Q.请谈谈为本作创作配乐的理念，以及与监督的交流过程。
 
 喜欢人声歌曲配乐应该是鹤卷的一个个人癖好吧，flcl里是摇滚乐，i can friday by day里也是
 
+
+*****
+
+####  Oshino  
+##### 7721#       发表于 2025-2-28 22:15
+
+plazma算什么，中段管人插曲也一样莫名其妙，滚ed的时候发现是个管人的名字我就跟这股莫名其妙的心情和解了。国内上映之后能不能吸一波萌二，让我把手上的麻秋胶片倒了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
