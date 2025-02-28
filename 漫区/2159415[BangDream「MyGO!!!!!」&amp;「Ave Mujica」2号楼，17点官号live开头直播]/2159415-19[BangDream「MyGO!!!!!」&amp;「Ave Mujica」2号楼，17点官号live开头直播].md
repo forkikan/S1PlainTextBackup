@@ -5044,3 +5044,13 @@ BanG Dream新作迷你动画52话制作决定
 人最齐的一次，大概也是最后一次人这么齐了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">说，你想给谁开FL
 
+
+*****
+
+####  SakuraのOrigami  
+##### 27027#       发表于 2025-2-28 22:24
+
+说起来，wsd怎么又让羊唱逆天高音曲啊()
+
+だれかの心臓になれたなら可是有C6的部分啊()
+
