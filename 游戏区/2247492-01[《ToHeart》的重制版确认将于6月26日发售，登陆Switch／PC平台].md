@@ -626,3 +626,14 @@ to heart是解决了邂逅的问题，从3月3日到5月3日，谁在什么地�
 
 PS1: [https://youtu.be/ZQM1WbeOhQk](https://youtu.be/ZQM1WbeOhQk)
 
+
+*****
+
+####  麻生椎子  
+##### 54#       发表于 2025-2-28 15:06
+
+我当年玩的叫PCE版来着？比原版多两个角色线 还有TV版的声优与小游戏
+后面也玩过原版一两条线 但印象没那么深
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
