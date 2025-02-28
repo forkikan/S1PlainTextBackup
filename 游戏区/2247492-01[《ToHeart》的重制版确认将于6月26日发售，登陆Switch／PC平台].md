@@ -647,3 +647,18 @@ PS1: [https://youtu.be/ZQM1WbeOhQk](https://youtu.be/ZQM1WbeOhQk)
 完全没接触过这系列，值得玩吗？</blockquote>
 强烈推荐玩一下pc版，音乐好人设好，剧情轻松欢乐，没有啥生离死别没有勾心斗角，反正现在我还挺怀念这个游戏的，可惜只有pc版能玩，家用机版没汉化，psp版汉化死机
 
+
+*****
+
+####  穿越护城河  
+##### 56#       发表于 2025-2-28 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67542807&amp;ptid=2247492" target="_blank">麻生椎子 发表于 2025-2-28 15:06</a>
+
+我当年玩的叫PCE版来着？比原版多两个角色线 还有TV版的声优与小游戏
+
+后面也玩过原版一两条线 但印象没那么 ...</blockquote>
+PSE（PS EDITION）
+
+基于ps版逆移植回电脑的版本
+

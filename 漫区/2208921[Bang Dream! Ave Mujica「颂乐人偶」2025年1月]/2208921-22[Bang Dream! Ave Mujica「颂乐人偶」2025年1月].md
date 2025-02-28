@@ -6621,3 +6621,75 @@ mygo里祥子误会了灯在天桥上想抓花瓣的行为为紫砂把人强行�
 战吧那地方，感觉现在是不是比百棕楼还恐怖，有相当部分的观众不要最起码的逻辑，不想思考，只要有一群美少 ...</blockquote>
 我怀疑你括号里的内容过几年就能去掉了。
 
+
+*****
+
+####  ape-apple  
+##### 31673#       发表于 2025-2-28 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67544039&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-28 17:24</a>
+战吧那地方，感觉现在是不是比百棕楼还恐怖，有相当部分的观众不要最起码的逻辑，不想思考，只要有一群美少 ...</blockquote>
+战吧当年是因为刀使巫女假药火起来的，你可以查这个作品监督是谁<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Victorino  
+##### 31674#       发表于 2025-2-28 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67542751&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-28 15:00</a>
+
+有一說一，
+
+速通武道館就算了吧</blockquote>
+………………你这突然击杀我的思维盲点了，如果海铃可以当支援乐手赚钱买奢牌，为什么祥子缺钱的时候不能，还要送报纸当客服，难道是因为大家都不缺键盘吗
+
+
+*****
+
+####  aptx8285144  
+##### 31675#       发表于 2025-2-28 17:33
+
+ 本帖最后由 aptx8285144 于 2025-2-28 17:34 编辑 
+<blockquote>ape-apple 发表于 2025-2-28 17:27
+战吧当年是因为刀使巫女假药火起来的，你可以查这个作品监督是谁</blockquote>
+知道也是柿本，当年的战吧还没有现在“提纯“的这么可怕，还会讨论很多其他作品，现在连咪西把一些没有百合元素作品的情报都不发战吧了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wwwttth  
+##### 31676#       发表于 2025-2-28 17:34
+
+真就是为啥一直说没苦硬吃啊，大祥老师的脑回路是没法理解的，就算没人缺键盘她光给别人写谱子改谱子都不可能缺钱
+
+*****
+
+####  Lyzers  
+##### 31677#       发表于 2025-2-28 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67544035&amp;ptid=2208921" target="_blank">Victorino 发表于 2025-2-28 17:24</a>
+
+这种剧本在网文感觉还挺常见的啊，甚至现实世界可能都有这种例子，很符合财团姥爷的刻板印象 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">常不常见，现不现实我不评价，好几年前现实还有在路边吃着面突然跳出来个神经病把人头割了的事件是吧
+
+我就是这么把大伙的观点捋出来问一下，认为鸡团的故事就是想表达这个内容的人是不是真的在对这样的故事投入感情和时间，在理直气壮地汴京说这故事就是这么写的
+
+*****
+
+####  Raven314  
+##### 31678#       发表于 2025-2-28 17:35
+
+祥子没办法了，这次访谈柿本已经明牌了创作方式是先定绝对目标再从中间写过程
+祥子的成长在李子和奏音的访谈里已经确认要到初华篇才会端上来，nga的舅舅也吐槽祥子的成长在家族戏里，作为祥厨的舅舅很不满意
+所以下集有live也只可能是队友带飞，大祥依旧被动
+
+*****
+
+####  syndrome2032  
+##### 31679#       发表于 2025-2-28 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67544091&amp;ptid=2208921" target="_blank">Victorino 发表于 2025-2-28 17:29</a>
+………………你这突然击杀我的思维盲点了，如果海铃可以当支援乐手赚钱买奢牌，为什么祥子缺钱的时候不能 ...</blockquote>
+没有键盘也可以作曲啊。
+
+比较可能的是不想这么做，觉得不够高雅?
+
