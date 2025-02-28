@@ -4268,3 +4268,16 @@ plazma算什么，中段管人插曲也一样莫名其妙，滚ed的时候发现
 
 历史上长期对峙的局面下什么事没有。
 
+
+*****
+
+####  Oshino  
+##### 7739#       发表于 2025-3-1 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67546672&amp;ptid=2209276" target="_blank">AraTurambar 发表于 2025-3-1 00:03</a>
+
+有什么不像的吗？夏利亚不是明牌了这个世界线吉翁自己也很困难吗？
+
+既然困难，那么79年机到85年还有竞争 ...</blockquote>
+我觉得不像啊，又不是过了六百年。不过你说得对，人和人之间口味差别很大。你觉得这个合理我都不知道怎么聊下去。还是等tv给大🔥来几次大的吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
