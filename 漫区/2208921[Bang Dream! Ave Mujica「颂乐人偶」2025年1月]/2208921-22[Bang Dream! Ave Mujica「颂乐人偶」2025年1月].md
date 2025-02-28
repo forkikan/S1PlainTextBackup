@@ -8016,3 +8016,63 @@ doloris说不准要向ob一串字母女士表白心意了<img src="https://stati
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  南宮凝香  
+##### 31794#       发表于 2025-2-28 22:58
+
+ 本帖最后由 南宮凝香 于 2025-2-28 23:00 编辑 
+<blockquote>非建政专用号 发表于 2025-2-28 22:41
+奶龙确实有点变态了，才注意到mygo主页里gt奶龙排在gt小喵前面
+
+—— 来自 S1Fun ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202502/28/225944okska849b1x98wwz.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5677.webp</strong> (109.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-28 22:59 上传
+
+有一說一，
+
+那是祖傳排位法
+
+主唱 吉他 貝斯 鼓
+
+Anon 比Raina 五十音在前面
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 非建政专用号| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  一心而用  
+##### 31795#       发表于 2025-2-28 22:59
+
+李子真的爱增高
+<img src="https://p.sda1.dev/22/966d9108c206a004b3219e2cdd279712/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  江戸前ルナ  
+##### 31796#       发表于 2025-2-28 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67546302&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-2-28 22:55</a>
+
+吉他睦的死是自己也迷失了，本该以吉他为锚点的她，拉住灯的手时执念已经歪曲成“为了祥复辟C团顺便除掉mo ...</blockquote>
+你这么解释我觉得不错。
+
+但问题是从剧里吉他睦莫名其妙自掐着和吉他在摆在地上这一幕要看这一点出来，emmm感觉像是在做语文阅读理解题了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
