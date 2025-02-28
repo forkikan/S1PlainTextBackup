@@ -3148,3 +3148,13 @@ Mujica确实没一个像人，哦，不能冤枉嘴替大猫老师<img src="http
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  mj240608414  
+##### 343#       发表于 2025-2-28 11:11
+
+现在+2的有不少只是单纯套了个乐子人盾的mmr罢了233
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

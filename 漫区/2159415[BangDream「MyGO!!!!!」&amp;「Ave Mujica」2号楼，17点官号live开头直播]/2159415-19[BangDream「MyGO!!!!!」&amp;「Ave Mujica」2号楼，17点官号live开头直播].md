@@ -4774,3 +4774,13 @@ ars和otae也可以
 
 小祥这衣品也太土了
 
+
+*****
+
+####  CRYCHIC  
+##### 27005#       发表于 2025-2-28 11:11
+
+别忘了看纯良素祥
+
+[[CHS]BanG Dream! It's MyGO!!!!! 雨中祈晴   第3話](https://comic-growl.com/episode/2550912964996119373)
+

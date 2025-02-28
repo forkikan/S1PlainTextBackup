@@ -1330,3 +1330,21 @@ https://github.com/deepseek-ai/3FS
 太哈人了，为了训练大模型写了个文件系统？？？</blockquote>
 这个是幻方时就有的，不过确实是为了训练模型做的。原来市面上有的方案不适合大模型训练的场景。
 
+
+*****
+
+####  万恶淫猥手  
+##### 115#       发表于 2025-2-28 11:09
+
+完结撒花<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nexus1  
+##### 116#       发表于 2025-2-28 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67539984&amp;ptid=2246987" target="_blank">moekyo 发表于 2025-2-28 10:47</a>
+
+完结散花，可以预见，后面DS会自研算计芯片了</blockquote>
+他从设计托卡马克开始发电顺便用产生的中子轰击汞批量制造黄金我都信<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+

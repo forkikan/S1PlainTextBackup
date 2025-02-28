@@ -1520,3 +1520,209 @@ ave ...</blockquote>
 
 战吧现在有些神经病还在给WSD的烂炒当帮凶，我都怀疑他们是不是收了WSD的钱<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">，这种神人动画以后LIVE开的再好又有啥挽救剧本的可能??
 
+
+*****
+
+####  阿兹尔  
+##### 31218#       发表于 2025-2-28 11:07
+
+经过这么狠的拷打，活下来的祥厨精锐有多结晶我都不敢想，到时候进手游还有混活，夸张哦
+
+*****
+
+####  qratosones1337  
+##### 31219#       发表于 2025-2-28 11:07
+
+ 本帖最后由 qratosones1337 于 2025-2-28 11:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540192&amp;ptid=2208921" target="_blank">YF31 发表于 2025-2-28 11:04</a>
+
+又来了，能不能换种花样，你早晚都是要死的，所以我捅你一刀也没关系，死去吧。
+
+谁第一个退出，谁嚷着退 ...</blockquote>
+所以你不承认演出砸锅大祥全责是吧？一个没法上台的乐队跟炸团有什么区别？ 一个人给一个已经没有生命体征的尸体宣告死亡，所以他杀了人？
+
+*****
+
+####  一个陆仁贾  
+##### 31220#       发表于 2025-2-28 11:07
+
+这b动画就算是放在dy贴吧做成几分钟看完素材都不一定能吸引人看完<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wwwttth  
+##### 31221#       发表于 2025-2-28 11:09
+
+喜欢上纲上线到社会生产那祥子说到底就是个空降的中层管理，带假面演戏是显然不在合同纸上的纯中层管理自己加的戏。
+
+上一层（经济公司）：唉这大小姐过家家戏真多，我商务都没法做了，上面的意思是先由着她来，算了算了。
+
+最上一层（老登）：历练历练差不多得了，该回来继承家业了。
+
+*****
+
+####  南宮凝香  
+##### 31222#       发表于 2025-2-28 11:09
+
+<blockquote>EverNight 发表于 2025-2-28 11:00
+早上起来想了一下，现在的问题就是聊得太多了，说了太多的没有用的话，却在动作和场景上极度缺乏演出。最激 ...</blockquote>
+聊得太多同時聊得太短
+
+像這話愛燈祥，
+
+演出來就是大象一鼓腦子把要求跟堵嘴說話全甩出來
+
+連讓愛燈回應的時間也沒給就轉進了
+
+*****
+
+####  qlipho  
+##### 31223#       发表于 2025-2-28 11:09
+
+武士道下一代产品弄不出来呗，只能邦多利宇宙，本质宣传番。唉，都怪啤酒烧烤
+
+*****
+
+####  一心而用  
+##### 31224#       发表于 2025-2-28 11:10
+
+来点日式冷吐槽吧，来源水印。
+<img src="https://p.sda1.dev/22/488c91feeb36b17d219027f2ad357c0f/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/56de0466ea5a0cb0701b2e4e4a9f50b4/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/f42d62e5d4226d7ca84aa4b3545c9e89/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/19b3aa2d576318f97f95373ab0aa6da0/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/2283e1c0a62f18e81ea83b8399952a9e/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/8a8be81fcbd5e0d1475ff7205c580736/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/5ce822574c2dbee87fdaf462ef6b944c/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/5046bf990b61dc6003de99c5fb8c6d86/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/1cc1b107e96039b026f7fd829c2a0c66/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/2ea27330146b81684a718d76199becb7/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  安娜导函数  
+##### 31225#       发表于 2025-2-28 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540192&amp;ptid=2208921" target="_blank">YF31 发表于 2025-2-28 11:04</a>
+又来了，能不能换种花样，你早晚都是要死的，所以我捅你一刀也没关系，死去吧。
+谁第一个退出，谁嚷着退 ...</blockquote>
+只要把锅全算在大喵老师头上，其他一切就都没问题了对吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+这剧情现在这狗屎样子，还在角色身上分锅<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qlipho  
+##### 31226#       发表于 2025-2-28 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540234&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-28 11:07</a>
+
+经过这么狠的拷打，活下来的祥厨精锐有多结晶我都不敢想，到时候进手游还有混活，夸张哦 ...</blockquote>
+等啤酒烧烤国服了
+
+*****
+
+####  qratosones1337  
+##### 31227#       发表于 2025-2-28 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540260&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-2-28 11:09</a>
+
+喜欢上纲上线到社会生产那祥子说到底就是个空降的中层管理，带假面演戏是显然不在合同纸上的纯中层管理自己 ...</blockquote>
+按照他们的逻辑，空降的大小姐领导自己作妖把项目作死了，最后集团出来擦屁股，下面员工一怒之下离职，所以员工全责233333
+
+*****
+
+####  天空塔书记官  
+##### 31228#       发表于 2025-2-28 11:11
+
+把双子团原案融入bang宇宙应该是wsd之前砍掉一大批项目时做出的决定，包括D5J，因为已经没有资源再搞新的乐队企划，而且wsd也吃了盲目扩张的苦头，所以对新企划态度更加保守，迷子的走红完全是意外的情况
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Lyzers  
+##### 31229#       发表于 2025-2-28 11:12
+
+鸡团突然就是个死团了，还是睦头突然是个死人了，妙手回春啊喵大师
+
+
+*****
+
+####  syndrome2032  
+##### 31230#       发表于 2025-2-28 11:12
+
+访谈里比较有趣的。
+
+2支乐队10个人。
+
+所以甜甜圈女士果然是充话费送的吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  qratosones1337  
+##### 31231#       发表于 2025-2-28 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540275&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-28 11:10</a>
+
+只要把锅全算在大喵老师头上，其他一切就都没问题了对吧
+
+这剧情现在这狗屎样子，还在角色身上分锅 ...</blockquote>
+第四集这事大喵还真就一丁点责任都没有，真要清算也只能清算第一集摘面具。
+
+*****
+
+####  厚乳果珍爽  
+##### 31232#       发表于 2025-2-28 11:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">火药桶放在稳定环境里是不会爆炸的，除非有火星。
+
+你要追究这里为什么有个火药桶的问题。
+
+不如追究是谁点燃的火药桶。
+
+*****
+
+####  huxiaopao163  
+##### 31233#       发表于 2025-2-28 11:13
+
+ 本帖最后由 huxiaopao163 于 2025-2-28 11:14 编辑 
+
+所以到底是表演，还是多重人格啊，感觉还是很难理解<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+是表演，但是是无意识的表演双重人格，不是那种目的明确的表演双重人格，就像睦妈说的那样是吗？
+ <blockquote>在第8话中，提到睦和Mortis这两个人格“实际上并不是真正的人格分裂，而是角色扮演”，但事实上，活跃在表面舞台上的确实是这两个人，说到底她们两人都是若叶睦的人格。弹吉他的纯真睦和为了保护她而诞生的Mortis。因此，这并不是多重人格，仅仅是扮演“角色”过多的双重人格。第9话中发生的是主人格（睦）和副人格（Mortis）之间的自我冲突。</blockquote>
+
+*****
+
+####  syndrome2032  
+##### 31234#       发表于 2025-2-28 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540321&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-28 11:13</a>
+所以到底是表演，还是多重人格啊，感觉还是很难理解</blockquote>
+表演到了多重人格的程度吧。
+
+*****
+
+####  qlipho  
+##### 31235#       发表于 2025-2-28 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540321&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-28 11:13</a>
+
+所以到底是表演，还是多重人格啊，感觉还是很难理解</blockquote>
+套皮写个亲女儿，其他都是虚话
+
+*****
+
+####  安娜导函数  
+##### 31236#       发表于 2025-2-28 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540317&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-2-28 11:12</a>
+第四集这事大喵还真就一丁点责任都没有，真要清算也只能清算第一集摘面具。
+
+ ...</blockquote>
+看到第9话的这时候，还在想着1.0炸团大喵老师全责的，除了可能是某些角色的极端角色厨外，我实在是不能理解他们的逻辑了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
