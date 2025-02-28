@@ -3232,3 +3232,15 @@ disruption？？？？？
 
 一堆睦在那哦那段实在是太好笑了，差点给我笑背气了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PrincessBanana  
+##### 352#       发表于 2025-2-28 13:00
+
++2 一集优秀的喜剧动画
+到这集为止其搞笑与有趣程度已经达到甚至隐隐有超越寒蝉业和卒的趋势。
+非常期待接下来的表演<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
