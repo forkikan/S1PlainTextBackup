@@ -3772,3 +3772,25 @@ q娃现在算是把某些日剧的操作学来了吗，女主剧但是故意安�
 偶像活动（×）
 带货（√）
 
+
+*****
+
+####  renkan119  
+##### 619#       发表于 2025-2-28 17:46
+
+经纪人是女王的人 而且原本也不是来当经纪人 和女王一样反对抛头露面 但噗噜伦闹着一定要接
+
+感觉这设定就弄的怪怪的 女王反对当偶像 主角团好像当不当比较无所谓 噗噜伦不知道为什么一定要当 女王虽然反对 但噗噜伦闹一闹也就随她去了…
+
+
+*****
+
+####  modedd  
+##### 620#       发表于 2025-2-28 17:54
+
+交响战姬定档周日九点，隔壁爱噗哩二期还提档了半小时，也就是偶q战姬爱噗哩三连星的无缝Jet 
+Stream Attack，今年的周日也太充实了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/767bddb1818e837d26006fa0e962d8b6/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
