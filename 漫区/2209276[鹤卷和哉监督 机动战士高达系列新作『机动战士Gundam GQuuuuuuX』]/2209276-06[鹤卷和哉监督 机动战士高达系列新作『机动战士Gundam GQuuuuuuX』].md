@@ -3538,3 +3538,11 @@ TV都开播了，应该不会有多少人去影院看这个了吧？
 
 0079那部分也不好说上不上TV呢
 
+
+*****
+
+####  积木23ki  
+##### 7700#       发表于 2025-2-28 11:47
+
+闹斯特麻麻了tv放了才上映，可能只有我这样的万代凯子才会去看<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

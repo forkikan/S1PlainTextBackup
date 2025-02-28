@@ -2463,3 +2463,358 @@ mygo官漫更新了！大家快来看软糯soyo
 为啥不能满足观众你别 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">前三集怎么没听丰川祥子做决定？到第四集来听了，喵圣也是多重人格DID是不是？
 
+
+*****
+
+####  qratosones1337  
+##### 31300#       发表于 2025-2-28 11:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540715&amp;ptid=2208921" target="_blank">YF31 发表于 2025-2-28 11:41</a>
+
+太有了，怎么这个领导他妈的天天给员工骑脸骑到公开节目直播间里去了？领导天天连轴转给员工擦屁股擦疯了 ...</blockquote>
+谁让你领导非要搞那个难绷面具？这玩意根本不是上头让你搞的，人经纪公司还嫌你天天戴个逼面具导致商单都没法接呢。唯一可能涉及到保密的只有身兼Sumimi的初华，然而初华的面具甚至还是她自己摘的。擦屁股归根结底不是你大祥自己没苦硬吃么？这倒是真符合大祥一直以来的设定233333
+
+顺带一提，摘面具是大祥自己做的承诺，那她承诺的时候就没想过睦头什么情况？还是所谓的承诺纯粹就是画饼骗人？那更欠正义拷打了233333
+
+*****
+
+####  阿兹尔  
+##### 31301#       发表于 2025-2-28 11:47
+
+大祥怎么保证重组c团不会麻烦mygo啊，虽然mygo是喝茶乐队，但是你莫名其妙又开始保证又没有方案，不对齐颗粒度就走了，是不是不太行
+
+*****
+
+####  Lyzers  
+##### 31302#       发表于 2025-2-28 11:47
+
+ 本帖最后由 Lyzers 于 2025-2-28 11:48 编辑 
+
+那按大喵老师逻辑不是更这辈子有了，以后谁还敢当中层？
+
+换个最近的内容就是雷布斯本来拿su7u当大活，交个祥组长打理，给小组各人分任务自己也上手，其中PPT给了喵老师。喵老师一看内容大纲，md大小姐懂个der的市场，几十万豪车谁买啊，电饭煲才接地气，于是给你整了个一百页的电饭煲两页的su7u，雷总一看大怒，把项目负责人大祥踢了，然后对大喵说大祥是负责人所以全责，而你，你很有想法，你才是着眼于团队的大能啊，然后真就把这PPT拿去用了还把大喵供着吃好喝好
+
+厕妹都市剧终极幻想啊属于是
+
+*****
+
+####  天空塔书记官  
+##### 31303#       发表于 2025-2-28 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540694&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-2-28 11:38</a>
+mygo活动只限于livehouse，而且其实也没有演出多少场次，没人知道是正常情况，PPP真正出名也是在第三季的对 ...</blockquote>
+hhw专注于线下公益演出，夕阳红专注于商店街活动，放在外边其实都没多大影响力，粉丝和关注者应该都是本地居民为主
+
+相反蝶团因为透子超级网红的身份，才拥有了远超其他乐队的影响力，爱音也是类似的情况，作为劣化版的透子，个人粉丝比组合多才是正常情况
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Lyzers  
+##### 31304#       发表于 2025-2-28 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540765&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-2-28 11:46</a>
+
+谁让你领导非要搞那个难绷面具？这玩意根本不是上头让你搞的，人经纪公司还嫌你天天戴个逼面具导致商单都 ...</blockquote>
+这个时候丰川的大手给大祥过家家又不存在了是吧？
+
+*****
+
+####  qratosones1337  
+##### 31305#       发表于 2025-2-28 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540760&amp;ptid=2208921" target="_blank">YF31 发表于 2025-2-28 11:45</a>
+
+前三集怎么没听丰川祥子做决定？到第四集要找人背锅来听了，喵圣也是多重人格DID是不是？ ...</blockquote>
+因为第四集决定之后需要团队所有人配合，就算大祥不是领导，只要她摆了不配合就一样能砸锅，更何况她还真是领导呢。
+
+*****
+
+####  YF31  
+##### 31306#       发表于 2025-2-28 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540765&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-2-28 11:46</a>
+
+谁让你领导非要搞那个难绷面具？这玩意根本不是上头让你搞的，人经纪公司还嫌你天天戴个逼面具导致商单都 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">所以说喵圣厨子确实用来人群识别是真有用，我说直播间骑脸队长公开矛盾到路人都听麻了，他说又带摘面具节奏。
+
+乐了，你爱咋样咋样。
+
+*****
+
+####  厄神之息  
+##### 31307#       发表于 2025-2-28 11:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">看漏油吵这种话题就好像在看什么“蟹老板和章鱼哥谁是打工人理想同事”的脑残议题一样。答案是我不是海绵宝宝，我两个都不想要。
+
+*****
+
+####  南宮凝香  
+##### 31308#       发表于 2025-2-28 11:49
+
+大祥就是大小姐過家家
+
+她心情好的時候會跟下人們笑
+
+心情不好那就別指望她會給回應
+
+做事不用想後果跟影響
+
+根本不存在什麼黑白祥
+
+也就是心情好跟心情差的大小姐罷了
+
+*****
+
+####  厚乳果珍爽  
+##### 31309#       发表于 2025-2-28 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540765&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-2-28 11:46</a>
+
+谁让你领导非要搞那个难绷面具？这玩意根本不是上头让你搞的，人经纪公司还嫌你天天戴个逼面具导致商单都 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">带面具保护的是初华跟睦啊。
+
+你看动画不够仔细，摘了面具以后，睦就一直是各种通告的重心。
+
+ps：睦的面具是被喵梦摘的
+
+*****
+
+####  是谁的书画  
+##### 31310#       发表于 2025-2-28 11:50
+
+只有一种情节可以拯救mujica了
+
+那就是ins上爱音的平板肋骨三点式泳装了
+
+*****
+
+####  Mika-S  
+##### 31311#       发表于 2025-2-28 11:52
+
+我穿越了吗，还在扯摘面具<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qratosones1337  
+##### 31312#       发表于 2025-2-28 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540785&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-2-28 11:47</a>
+
+那按大喵老师逻辑不是更这辈子有了，以后谁还敢当中层？
+
+换个最近的内容就是雷布斯本来拿su7u当大活，交个 ...</blockquote>
+大祥的内容大纲代入之后不就是“为了维持高端形象，我们不能跑赛道不能投自媒体，这也不能做那也不能做”么？这种方案从上到下都不待见，被掀翻那不是活该么？第一集镜头甚至还配合，初华面具是自己摘的，事后还真来了一大堆商单，你大祥混成这样不是自己活该么？
+
+*****
+
+####  刑部姬真可爱  
+##### 31313#       发表于 2025-2-28 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540778&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-28 11:47</a>
+
+大祥怎么保证重组c团不会麻烦mygo啊，虽然mygo是喝茶乐队，但是你莫名其妙又开始保证又没有方案，不对齐颗 ...</blockquote>
+这完全可以理解为只说了“组乐队”，没说要“开live”啊，名义上ccc活了，实际上可能就只是以这个名义喝喝茶聊聊天逛逛ktv<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  安娜导函数  
+##### 31314#       发表于 2025-2-28 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540760&amp;ptid=2208921" target="_blank">YF31 发表于 2025-2-28 11:45</a>
+前三集怎么没听丰川祥子做决定？到第四集要找人背锅来听了，喵圣也是多重人格DID是不是？ ...</blockquote>
+没听嘛？我寻思给睦头加采访时候你大祥老师也没提出反对呀<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+后续巡演时候，大喵希望增加睦头的戏剧表演，大祥老师不同意，我寻思实际舞台上确实也没演啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+在电视节目直播查广告的时候，大喵老师直接找大祥说要按导演组意见让睦头表演，我寻思这不摆明了乐队里还是祥子话事人啊<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+你不能只在酒店大战分锅的时候把祥子摘出来说她不能决定乐队方向吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 31315#       发表于 2025-2-28 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540844&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-2-28 11:52</a>
+这完全可以理解为只说了“组乐队”，没说要“开live”啊，名义上ccc活了，实际上可能就只是以这个名义喝 ...</blockquote>
+按照大祥的理解还是要，起码要一起演奏的。
+开始她去睦家问情况就是这个。
+
+只不过她没想到是莫在地下室练吉他。
+
+*****
+
+####  天空塔书记官  
+##### 31316#       发表于 2025-2-28 11:53
+
+可以这么理解，“白祥”是“抑郁的祥子”，“黑祥”是“抑郁转双相的祥子”，然后她会在这两种状态左右横跳
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  qratosones1337  
+##### 31317#       发表于 2025-2-28 11:54
+
+ 本帖最后由 qratosones1337 于 2025-2-28 11:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540819&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-2-28 11:50</a>
+
+带面具保护的是初华跟睦啊。
+
+你看动画不够仔细，摘了面具以后，睦就一直是各种通告的重心。</blockquote>
+那就更难绷了，第一集大祥的台词明摆着说明摘面具是已经做出的承诺（“最好的舞台”），这样的话坐实了画饼那不真成了黑心资本家么？
+
+然后第一话初华的面具是初华自己摘的——说明事前大概率跟经纪公司那边已经谈妥了。睦头这个情况大祥自己作为青梅竹马都不知道（而且现在看来大祥也确实没准备什么善后）
+
+*****
+
+####  qratosones1337  
+##### 31318#       发表于 2025-2-28 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540809&amp;ptid=2208921" target="_blank">YF31 发表于 2025-2-28 11:49</a>
+
+所以说喵圣厨子确实用来人群识别是真有用，我说直播间骑脸队长公开矛盾到路人都听麻了，他说又带摘面具节 ...</blockquote>
+毕竟比不上祥学长，尤其还是第九集之后的
+
+*****
+
+####  Mika-S  
+##### 31319#       发表于 2025-2-28 11:54
+
+都第九集了还在追溯第一集的摘面具，要不再往前追溯一点追溯到mygo13集，祥子现在可是自己都承认当时利用睦来组mujica的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们这分锅分到什么时候是个头呢
+
+*****
+
+####  wwwttth  
+##### 31320#       发表于 2025-2-28 11:55
+
+<blockquote>Mika-S 发表于 2025-2-28 11:52
+我穿越了吗，还在扯摘面具</blockquote>
+关键第九集还专门给你了“上面有大手”这个说法，这还版本回退我觉得是真有点变态
+
+
+*****
+
+####  安娜导函数  
+##### 31321#       发表于 2025-2-28 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540842&amp;ptid=2208921" target="_blank">Mika-S 发表于 2025-2-28 11:52</a>
+我穿越了吗，还在扯摘面具</blockquote>
+因为有些人为了车角色已经不在乎实际这b剧情演成啥样了呀，都第9话了还不跳出剧情骂编剧，而在那说某个角色全责的，我不敢说是啥想法<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhzij111  
+##### 31322#       发表于 2025-2-28 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540778&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-28 11:47</a>
+大祥怎么保证重组c团不会麻烦mygo啊，虽然mygo是喝茶乐队，但是你莫名其妙又开始保证又没有方案，不对齐颗 ...</blockquote>
+本来就是口嗨一下，真搞了把狗团玩炸接着边哭边跑路呗。大祥这角色现在正面特质只剩孝顺了，伏惟圣祥以孝治天下属于是
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  YF31  
+##### 31323#       发表于 2025-2-28 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540874&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-2-28 11:54</a>
+
+毕竟比不上祥学长，尤其还是第九集之后的</blockquote>
+太祥学长了，太角色厨党同伐异了，丰川祥子畜不代表你喵圣就不畜了。
+
+*****
+
+####  暮星弥空  
+##### 31324#       发表于 2025-2-28 11:56
+
+还在灯箱，有点太恶心了武士道
+
+*****
+
+####  天空塔书记官  
+##### 31325#       发表于 2025-2-28 11:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  阿兹尔  
+##### 31326#       发表于 2025-2-28 11:57
+
+目前大祥还是不顾及他人，初华都没被正眼看过。后面家族戏该怎么演，明示大手的助力，大手也不想看你接着玩大小姐过家家，样子能咋办，站楼顶“我要组乐队，要是不让我组，我就跳下去，咱家就断子绝孙了！”
+
+*****
+
+####  南宮凝香  
+##### 31327#       发表于 2025-2-28 11:57
+
+<blockquote>阿兹尔 发表于 2025-2-28 11:47
+大祥怎么保证重组c团不会麻烦mygo啊，虽然mygo是喝茶乐队，但是你莫名其妙又开始保证又没有方案，不对齐颗 ...</blockquote>
+所以Soyo 脫魅了
+
+姐跪下求你回來當命運共同體你不要
+
+現在要討睦開心又回來要組團
+
+那兩位大小姐又玩不開心是不是又要炸團了？
+
+*****
+
+####  qratosones1337  
+##### 31328#       发表于 2025-2-28 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540899&amp;ptid=2208921" target="_blank">YF31 发表于 2025-2-28 11:56</a>
+
+太祥学长了，太角色厨党同伐异了，丰川祥子畜不代表你喵圣就不畜了。</blockquote>
+你把大祥明摆着全锅的事强行扣给大喵，那不就是学长么？尤其还是第九集，截止到目前大喵是全团最正常人类，你这强行甩锅甩得更离谱了
+
+*****
+
+####  Lyzers  
+##### 31329#       发表于 2025-2-28 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540843&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-2-28 11:52</a>
+
+大祥的内容大纲代入之后不就是“为了维持高端形象，我们不能跑赛道不能投自媒体，这也不能做那也不能做” ...</blockquote>
+从上到下不待见那前面的粉丝是哪来的？又是丰川的大手？但这时候又说大祥混成这样活该了，全自动适应大手是吧
+
+打工是这样打的，灵感来了拦都拦不住管他什么场合什么后果，反正我肯定是对的，公司方向不对我一脚给你踹开线老板还要给你顶礼膜拜，大网红整顿职场了属于是
+
+*****
+
+####  厉飞雨  
+##### 31330#       发表于 2025-2-28 11:57
+
+牢猫也变了
+卖狗里面看着几个人闹别扭不玩音乐第一个就开溜
+鸡这里还淡定看了两场戏
+连带有趣女人的概念也变了
+
+*****
+
+####  梅杜莎  
+##### 31331#       发表于 2025-2-28 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540778&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-2-28 11:47</a>
+
+大祥怎么保证重组c团不会麻烦mygo啊，虽然mygo是喝茶乐队，但是你莫名其妙又开始保证又没有方案，不对齐颗 ...</blockquote>
+这个真不难，本身CRYCHIC也是喝茶乐队，把喝茶时间错开呗，有冲突时，优先MYGO喝茶<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+两个星期（非实指）碰个头，在录音室玩玩，放长假的时候自费开个LIVE
+
+*****
+
+####  是谁的书画  
+##### 31332#       发表于 2025-2-28 11:58
+
+怎么还在寄吧白祥黑祥的呢，这角色现在的立意已经是为了自己从头到尾都在做恶心人的事了
+
+她阳光一点黑暗一点能改变她是不是一个出生的事实吗？
+
