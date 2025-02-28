@@ -751,3 +751,146 @@ Ave Mujica遗志，已成泡影
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  南宮凝香  
+##### 31146#       发表于 2025-2-28 09:46
+
+問題是母雞卡分手又不是因為海鈴有**
+
+大主唱 有另一個家
+
+鍵盤跟節奏結他想從別人家偷人再組一個家
+
+這背景下把斷炮 拿來情勒就有點可笑了
+
+當然， 大祥又吃回旋標了
+
+她前腳說不會麻煩到MyGo
+
+現在就要面對再多組母雞卡為什麼不行
+
+也不會麻煩到她跟睦的3C
+
+大不了到了母雞卡就切莫
+
+建議大家回到高中重修邏輯
+
+*****
+
+####  真爱与热情  
+##### 31147#       发表于 2025-2-28 09:47
+
+春日影是吧
+
+初华：我有意见
+
+祥子：我没意见
+
+初华：我没意见（NEW！）
+
+*****
+
+####  syndrome2032  
+##### 31148#       发表于 2025-2-28 09:47
+
+还是换首吧。出现频率太高了。
+
+*****
+
+####  老贝  
+##### 31149#       发表于 2025-2-28 09:47
+
+Mujica队内就没一个人在意过祥子的曲和初华的词，重点全在关注演戏。
+
+*****
+
+####  YF31  
+##### 31150#       发表于 2025-2-28 09:47
+
+在朴素价值观里，什么东西上称了真没几两:
+祥符号、圣爱音和她的动物朋友们的那点谁给谁磕一个谁跟谁冷暴力的屁事，总结起来完全可以用一句高中小女生闹别扭结束，告班主任班主任都懒得管。
+什么东西上称了真千斤重：
+键盘手抛弃大小姐生活选爹，被爹砸罐还要被动画导演本人盖章没苦硬吃;
+吉他手作为精神病人被架着上台，从爹妈到路人不闻不问不去寻求正规治疗，后续用这孩子从小就DID搪塞过去；
+鼓手自私自利炸团吃饱人血馒头，赢麻了还能站到道德高地大小便；
+主唱独占欲发作幻想杀人:
+贝斯手为了过乐队指导瘾教唆假弹←现在这个8+的2.5次元偶像企划在这里
+我不是很想多用三观不正这个词，因为经常性这个词小题大做闹麻了，但这个动画的创作团队，和给这个剧本拍板的制作人，他们真心觉得上面那个小女生闹别扭，比下面这些一件比一件重量级的东西能上称，上称了还要重得多。
+他们绝对值得一个三观不正的评价。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ape-apple  
+##### 31151#       发表于 2025-2-28 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67539247&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-2-28 09:32</a>
+声优众的反应有点……</blockquote>
+不用担心，多年经验表示声优说话就是放香屁，都在这集体炒作呢，就类似于日综里右上角放个小窗，小窗里的人要不断发出“诶，诶”的声音，真正知道成品做烂的声优反而不愿意说话
+
+
+*****
+
+####  一心而用  
+##### 31152#       发表于 2025-2-28 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67539408&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-28 09:47</a>
+
+不用担心，多年经验表示声优说话就是放香屁，都在这集体炒作呢，就类似于日综里右上角放个小窗，小窗里的 ...</blockquote>
+我想也是。
+
+*****
+
+####  钦念以忱  
+##### 31153#       发表于 2025-2-28 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537815&amp;ptid=2208921" target="_blank">北条早苗 发表于 2025-2-28 02:00</a>
+
+说句不爱听的，素睦/莫真的王朝了吧
+
+9个人里就爽姐真的把睦和莫当成两个人有各自需求去对待了吧 ...</blockquote>
+这集爽姐高光回了，虽然她好像一共就2、3句台词，一句CCC已经死了，一句Mortis呢
+
+*****
+
+####  圣血天使  
+##### 31154#       发表于 2025-2-28 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67539402&amp;ptid=2208921" target="_blank">YF31 发表于 2025-2-28 09:47</a>
+在朴素价值观里，什么东西上称了真没几两:
+祥符号、圣爱音和她的动物朋友们的那点谁给谁磕一个谁跟谁冷暴力 ...</blockquote>
+某真乐队键盘up锐评母鸡卡的时候表示母鸡卡作为明面上的职业乐队，大猫摘面具真不是大事，职业音乐人只看结果不看过程的，有活儿有流量了结果没问题<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">或者说跟祥子木头比，我觉得母鸡卡里大猫很不错了已经
+
+—— 来自 OPPO PJC110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+*****
+
+####  syndrome2032  
+##### 31155#       发表于 2025-2-28 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67539449&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-2-28 09:51</a>
+这集爽姐高光回了，虽然她好像一共就2、3句台词，一句CCC已经死了，一句Mortis呢 ...</blockquote>
+看访谈下话还要给莫当妈。
+
+*****
+
+####  aptx8285144  
+##### 31156#       发表于 2025-2-28 09:54
+
+<blockquote>一心而用 发表于 2025-2-28 09:32
+声优众的反应有点……</blockquote>
+太正常不过了，这就是工作，当年蒜楼大骂安济和若山在广播里赞美真岛的往事还历历在目呢
+
+*****
+
+####  丹德里恩  
+##### 31157#       发表于 2025-2-28 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67539458&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-2-28 09:52</a>
+
+看访谈下话还要给莫当妈。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">前面都三天三夜了下集还来？没完了是吧
+

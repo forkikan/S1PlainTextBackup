@@ -2832,3 +2832,13 @@ pc玩走几步一掉帧，手机玩反倒很流畅没感觉有明显卡顿，除
 确认了一下，去卡侬之柩四层就是要杀罗贝尔，然后从他所在的房间左下用拷问室钥匙通过 ...</blockquote>
 发现了，这游戏还是不能心软<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CnIV  
+##### 248#       发表于 2025-2-28 09:53
+
+想问下魂之块后面方便刷吗，现在攒着不少但不太敢用
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
