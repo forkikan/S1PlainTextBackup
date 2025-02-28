@@ -962,3 +962,49 @@ MyGo！！！！！ 200 跟蹤， 但都是少女樂隊的精銳
 
 清告的女儿一条虫
 
+
+*****
+
+####  wwwttth  
+##### 31165#       发表于 2025-2-28 10:07
+
+我觉得大喵看出来的是睦在欺骗祥子而不是莫在演睦，因为大喵从一开始的逻辑就是不认双重人格，且她从第五集开始就没有和任何一个认双重人格的人共享过这一情报，她从美奈美酱得到的情报也是“卧槽这家伙3岁开始就在演，老戏骨了”。
+
+这时候大喵的视角应该是“这睦头怎么还在勉强自己，演的自己可以放弃ccc的样子勉强和祥子组mujica，那不是和之前一样有啥区别，依然随时可能解散么，真恶心”
+
+*****
+
+####  厚乳果珍爽  
+##### 31166#       发表于 2025-2-28 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67539402&amp;ptid=2208921" target="_blank">YF31 发表于 2025-2-28 09:47</a>
+
+在朴素价值观里，什么东西上称了真没几两:
+
+祥符号、圣爱音和她的动物朋友们的那点谁给谁磕一个谁跟谁冷暴力 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">差不多就我的想法吧，之前还发过贴说了这东西的。
+
+mygo跟mujica影响的范围可太不同了。
+
+*****
+
+####  zhoujin8584  
+##### 31167#       发表于 2025-2-28 10:08
+
+<blockquote>DARK_HGCG 发表于 2025-2-28 10:05
+凤生凤龙生龙
+
+清告的女儿一条虫</blockquote>
+定治的女儿温柔又强大（
+
+
+*****
+
+####  Hchan  
+##### 31168#       发表于 2025-2-28 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67539541&amp;ptid=2208921" target="_blank">YF31 发表于 2025-2-28 10:00</a>
+
+参加点社会生产吧，在项目重大节点上瞎搞的后果一定是你滚蛋，重大演出不报备自己瞎搞，从宣发到物料全部 ...</blockquote>
+这都能给你指导上，只能说你肯定是个宅宅，但凡看过几场音乐节都不会说这种话<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
