@@ -4176,3 +4176,172 @@ mujica唯一的危机是第二天要演出了，吉他手突发恶疾，不能�
 解散更是如此，大祥犹豫也好，不提出解决办法也好，那是大祥的问题，至少她也没明确否决海玲或者初华的方 ...</blockquote>
 你这一句“犹豫”就给轻描淡写带过去了，真是洗的一手好地啊。大祥那叫摆烂，不叫犹豫——海铃说找代打，大喵说改演戏，那都是解决方案，无论好不好，总归是解决问题的态度。你大祥那个“我想让睦回来”叫什么？这叫摆烂，不叫犹豫，明摆着不想好好解决问题。那可不就于事无补么？大祥自己先摆烂的前提下，就算有团魂也得先给大祥两个大嘴巴抽醒才能谈下一步，现在没团魂，那不散还等什么？
 
+
+*****
+
+####  qratosones1337  
+##### 31455#       发表于 2025-2-28 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541624&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-2-28 13:01</a>
+
+笑几掰死，大伙玩过家家是真过家家，你玩过家家是要么赚钱要么给你家大小姐整大活给狠狠一发重锤
+
+就你难 ...</blockquote>
+瞒着所有成员这事显然是你脑补的，起码最关键的初华和经纪公司是已经谈好了，其它成员还真可以算在即兴发挥范围内——甚至连大祥自己的面具也是自己摘的
+
+*****
+
+####  Mika-S  
+##### 31456#       发表于 2025-2-28 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541628&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-28 13:02</a>
+解散更是如此，大祥犹豫也好，不提出解决办法也好，那是大祥的问题，至少她也没明确否决海玲或者初华的方 ...</blockquote>
+好好好，又成“蹭车”的了，这就是窝们的少女乐队动画吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大概喵梦是哭着求祥子要让她进mujica的而不是祥子主动拿青梅竹马做饵联系喵梦让她来的吧
+
+*****
+
+####  帆前  
+##### 31457#       发表于 2025-2-28 13:10
+
+明明是小睦在问问题，但是却要跑去拉soyo手对着soyo回答问题撩soyo，哎这蓝女巫心眼怎么这么坏啊😭 （
+<img src="https://p.sda1.dev/22/24805434f6bd837d9a05d6eb83317c9c/Screenshot_20250228_111059.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  大户爱  
+##### 31458#       发表于 2025-2-28 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541592&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-2-28 12:58</a>
+戴面具的大热搜拉满，然而跟喵梦有个屁的关系？再一次提醒“在最好的舞台上摘面具”这事是大祥从一开始就 ...</blockquote>
+你看，你就是这种，自私自利，又蠢又坏的脑回路。
+
+作为最快上武道馆的团队鼓手，团队再火，只要不露脸，就和我没关系。
+虽然我用自己账号引流，工资照拿，但我必须按我的想法露脸，不露，就是领导对不起我。
+
+虽然我自私自利的行为给队友造成了一大堆麻烦。但这不是我的锅。是领导的锅，因为领导没通知我。
+
+怎么能不要脸到这种程度。我会想不通，大祥欠其他人就算了，欠喵梦什么呢？
+
+*****
+
+####  安娜导函数  
+##### 31459#       发表于 2025-2-28 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541488&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-2-28 12:48</a>
+那你不用担心，八集开始大莫表演深海少女撕心裂肺的喊不要，我不想死。大家以为大莫要淹死了，结果演到一 ...</blockquote>
+墨指导惊天开局，
+墨指导昏招频出，
+墨指导垂死挣扎，
+墨指导败局已定，
+墨指导发表获奖感言←new
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  盐盐盐盐盐  
+##### 31460#       发表于 2025-2-28 13:11
+
+初华在海铃和立希单独谈话的时候特意跑去说我要搞am确实是在宣示主权（？）吧，故意在立希面前说想让立希不要打c团主意，走前还恶狠狠地瞥了一眼，第九集真的把初华刻画的太杂鱼了一点
+
+*****
+
+####  qratosones1337  
+##### 31461#       发表于 2025-2-28 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541716&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-28 13:10</a>
+
+你看，你就是这种，自私自利，又蠢又坏的脑回路。
+
+作为最快上武道馆的团队鼓手，团队再火，只要不露脸， ...</blockquote>
+祥学长确实叹为观止——再一次提醒你露脸这事是一开始大祥明确给的承诺，现在最好的舞台这个条件达成了，然后你既不点头也不解释下一步安排，那除了画饼骗人之外还有第二种可能么？全团热度大爆，接综艺接到手软，这还真是“一大堆麻烦”是吧233333
+
+*****
+
+####  Lyzers  
+##### 31462#       发表于 2025-2-28 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541691&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-2-28 13:08</a>
+
+瞒着所有成员这事显然是你脑补的，起码最关键的初华和经纪公司是已经谈好了，其它成员还真可以算在即兴发 ...</blockquote>
+睦被吓到捂住脸了，海玲也完全不知道这事
+
+然后什么叫初华已经谈好了，初华第一反应也在蒙蔽，第二反应是向大祥确认，第三是犹豫一下再摘面具
+
+退一万步说，登台成员就五个人，大祥睦头海玲都不知道，就你初华和大喵跟场外人员先协定好整活，那最多也就不是瞒着所有人而是瞒着其他三人吗
+
+
+*****
+
+####  AlterDialog  
+##### 31463#       发表于 2025-2-28 13:14
+
+能收收味吗水友们，和饭圈妹撕咖位有什么区别
+
+*****
+
+####  安娜导函数  
+##### 31464#       发表于 2025-2-28 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541652&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-2-28 13:04</a>
+哦那就是论心不论迹，大喵心是对的办的事错了
+
+二是我没说过大喵是乐队解散的凶手，别给我滑坡结论还隔这 ...</blockquote>
+大喵摘面具本来就是自私自利满脑子只想着自己，这点毫无疑问。
+问题总有人要从这开始滑坡，由于摘了面具所以好好的mujica就解散了，大喵老师是毁了mujica的千古罪人<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大户爱  
+##### 31465#       发表于 2025-2-28 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541705&amp;ptid=2208921" target="_blank">Mika-S 发表于 2025-2-28 13:09</a>
+好好好，又成“蹭车”的了，这就是窝们的少女乐队动画吗大概喵梦是哭着求祥子要让她进mujica的而不是祥子 ...</blockquote>
+那你说说，
+说贡献，mujica火起来，是喵梦的贡献大，还是大祥老师、初华或者睦贡献大？
+
+说回报，mujica从合体到散团，谁拿到的回报最多。其他四个人一个个精神病，喵梦综艺上了、代言拿了，人脉攀上了。然后付出了什么，ptsd？
+
+得亏是我们母鸡卡精神病少女乐队啊。
+换到现实职业片场，喵梦这种贡献最少，拿的不少，逼事最多，还第一个跳出来闹着解散的自私逼，早被个正常领导拿着违约金怼死了。
+
+*****
+
+####  Lyzers  
+##### 31466#       发表于 2025-2-28 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541777&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-28 13:15</a>
+
+大喵摘面具本来就是自私自利满脑子只想着自己，这点毫无疑问。
+
+问题总有人要从这开始滑坡，由于摘了面具 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">不好说，我反正是看到有人说大祥全责跟大喵没关系，建议你去找滑坡的人别找我
+
+*****
+
+####  狮子咕  
+##### 31467#       发表于 2025-2-28 13:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下集该不会类似第一集的op live那样，删掉原本的ed画面，表演一个纱我纱你吧……
+
+*****
+
+####  qratosones1337  
+##### 31468#       发表于 2025-2-28 13:16
+
+ 本帖最后由 qratosones1337 于 2025-2-28 13:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541758&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-2-28 13:13</a>
+
+睦被吓到捂住脸了，海玲也完全不知道这事
+
+然后什么叫初华已经谈好了，初华第一反应也在蒙蔽，第二反应是 ...</blockquote>
+初华有保密义务这事是明确给出的台词，在此前提下自己摘面具那不就是说明经纪公司已经觉得无所谓了么？
+
+刚刚又重看了一遍，大祥也是自己摘的面具，而且是第二个摘的……那你这保密保了个勾八
+
+*****
+
+####  Versedust  
+##### 31469#       发表于 2025-2-28 13:17
+
+我们至今不知道制作组为什么要把MyGO时期大家都喜欢的无口剑姬小黄瓜写成似掉之后大家直呼好似的反派役角色<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">虽然我还挺喜欢大墨老师的
+

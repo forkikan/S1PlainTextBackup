@@ -3577,3 +3577,16 @@ TV都开播了，应该不会有多少人去影院看这个了吧？
 
 GQ也是这种片子
 
+
+*****
+
+####  AraTurambar  
+##### 7704#       发表于 2025-2-28 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541189&amp;ptid=2209276" target="_blank">王留美 发表于 2025-2-28 12:19</a>
+
+大荧幕看是真的爽，和电脑甚至电视机都不一样的
+
+GQ也是这种片子</blockquote>
+玛秋跳进高达那一幕真的是大屏幕才爽。
+
