@@ -4937,3 +4937,74 @@ PICO！！！！！！
 
 哎，这回终于不会再有遗憾了，2022 没有 amita 真的太伤了
 
+
+*****
+
+####  CyDiablo  
+##### 27021#       发表于 2025-2-28 21:07
+
+手游：
+邦邦手游八周年主视觉图
+<img src="https://p.sda1.dev/22/ee6a0d7d2af9bf400bf18973e1bb55bb/1740747394524.jpg" referrerpolicy="no-referrer">
+手游周新功能​：
+摄影室模式，可以设置3D角色的位置、动作、背景等，可以设置为主页背景
+歌曲排序添加“获得顺序”功能
+潜力解放操作改良，可以分别设置升级等级
+
+游戏3.15 16:00~23:00维护，客户端更新到9.0.0版本
+
+<img src="https://p.sda1.dev/22/89ceca76c0b5cd22a6087be2ccc6dea1/1740747508426.jpg" referrerpolicy="no-referrer">
+
+FES（花前）
+<img src="https://p.sda1.dev/22/39819260e2c0dfe8f44ba7e52eadd98f/1740747545332.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/96d08278bcb62b514c7991dbcd1ffcfe/1740747547952.jpg" referrerpolicy="no-referrer">
+五⭐（花前）
+<img src="https://p.sda1.dev/22/d7c4a11b915c0c9e8af8110bcdab7834/1740747553342.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/e10bcb4cb4a39b271f53f2671d3b438d/1740747555660.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/526e595f9343b104af4aec710622ef09/1740747557911.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/4e56d5e35e41dea5956a8ff154df93e2/1740747560247.jpg" referrerpolicy="no-referrer">
+四⭐（花前）
+<img src="https://p.sda1.dev/22/be069ed5563febbee113f1a480560ba1/1740747550787.jpg" referrerpolicy="no-referrer">
+
+平行主唱企划
+<img src="https://p.sda1.dev/22/2f71ccd9aa7223fdd67f50560aa6d671/1740747884332.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/eca7c9d466d085957206e6c3898d78ed/1740747886785.jpg" referrerpolicy="no-referrer">
+
+乐曲追加
+<img src="https://p.sda1.dev/22/7577fe55dbc360788ad8ed9a0a54fdfb/1740747827792.jpg" referrerpolicy="no-referrer">
+
+Special难度谱面8日连续追加
+<img src="https://p.sda1.dev/22/48fc490dc5716f695f98c9ace084e7f5/1740747991966.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  CyDiablo  
+##### 27022#       发表于 2025-2-28 21:15
+
+Poppin'Party ASMR作品2025年发售决定
+<img src="https://p.sda1.dev/22/d11da0df04bf750bb7cd9eb66c4868cf/1740748098158.jpg" referrerpolicy="no-referrer">
+
+Poppin'Party 十周年纪念BD box 5.21发售，封面和收录内容公开
+<img src="https://p.sda1.dev/22/ba2e33a41b414e771d45fb3d66c2c067/1740748150836.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/8a96847e182bb761da8fa33074bfc68c/1740748154973.jpg" referrerpolicy="no-referrer">
+
+Poppin'Party十周年纪念Live视觉图/标题公开
+<img src="https://p.sda1.dev/22/590e04fab000debb062c467208c6fa8c/1740748221286.jpg" referrerpolicy="no-referrer">
+
+Morfonica LIVE「Rubato」 主视觉图公开
+<img src="https://p.sda1.dev/22/1a89d14da16c2335cd7c027ef37ea3e6/1740748265009.jpg" referrerpolicy="no-referrer">
+
+BanG Dream 10周年纪念本发售决定，今日预约开始
+<img src="https://p.sda1.dev/22/788b6067fa2aae25ecd4a7b9a1784931/1740748316011.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/6fd8b479695c30c703f9e322f2bde226/1740748319376.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/09113c7b4e41381030e65d7baf59af2b/1740748322612.jpg" referrerpolicy="no-referrer">
+
+BanG Dream新作迷你动画52话制作决定
+<img src="https://p.sda1.dev/22/1a0595fb25342d105662fd673e444bf0/1740748411058.png" referrerpolicy="no-referrer">
+
+2026.2.28 BanG Dream 10th Anniversary LIVE举办决定
+<img src="https://p.sda1.dev/22/863a89e8ade32c897e8cc13c38953d04/1740748414528.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/22/63012d87486c60278aab11d2770d7b88/1740748495530.jpg" referrerpolicy="no-referrer">
+

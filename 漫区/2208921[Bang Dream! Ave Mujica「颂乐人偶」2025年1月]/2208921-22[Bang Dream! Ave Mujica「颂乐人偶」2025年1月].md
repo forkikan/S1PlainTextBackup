@@ -7814,3 +7814,14 @@ pico4来了，神神又要增加表情包了
 
 相信pico的创造力，只会更混沌
 
+
+*****
+
+####  adretyu67.  
+##### 31778#       发表于 2025-2-28 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67545640&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-2-28 21:01</a>
+
+如果是按歌剧魅影的假药来说，第十集对应假面舞会，魅影会向女主男主宣战并且强制他们演自己写的舞台剧， ...</blockquote>
+doloris说不准要向ob一串字母女士表白心意了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
