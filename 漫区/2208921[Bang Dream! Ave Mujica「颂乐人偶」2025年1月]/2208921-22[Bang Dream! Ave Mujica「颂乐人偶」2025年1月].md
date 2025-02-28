@@ -3230,3 +3230,256 @@ ps：睦的面具是被喵梦摘的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  qratosones1337  
+##### 31373#       发表于 2025-2-28 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541091&amp;ptid=2208921" target="_blank">Skymoon 发表于 2025-2-28 12:10</a>
+
+你没看我前面说的话吗，第八集里大喵已经很直白的说了别把作为成员的锅全部让领导背了，难不成大喵那个时 ...</blockquote>
+第八集大喵哪句话能理解出你这个意思？你要是说大喵第一话摘面具有锅那肯定没问题，但是第四话大喵做任何事都不可能让演出不砸，所以大祥全锅。在这个基础上再扯什么谁先提解散谁背锅不过就是离职背绩效罢了
+
+*****
+
+####  大户爱  
+##### 31374#       发表于 2025-2-28 12:18
+
+说了祥子是个编剧手里的空心，大喵是个又蠢又坏的“正常人”，怎么还有人吵啊。
+
+放到别的片场，喵梦就是个又蠢又low的反派，就和这集当面呛喵梦演技的路人一样，反派的刻板。
+
+但凡大祥没被按住手脚，早把这种傻逼怼死了。可惜有编剧的大手。
+
+虽然这几集大家都不是人，显得喵梦拟人了一点。但现在就跳出来反攻倒算，觉得喵梦清清白白，感觉和喵梦一个脑回路，全天下欠她的
+
+*****
+
+####  Versedust  
+##### 31375#       发表于 2025-2-28 12:19
+
+比起过失杀人我倾向于防卫过当
+
+有判例，无罪！
+
+*****
+
+####  Skymoon  
+##### 31376#       发表于 2025-2-28 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541185&amp;ptid=2208921" target="_blank">Versedust 发表于 2025-2-28 12:19</a>
+比起过失杀人我倾向于防卫过当
+
+有判例，无罪！</blockquote>
+但现实中防卫过当也是要判刑的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ziqing  
+##### 31377#       发表于 2025-2-28 12:20
+
+当一个角色行为逻辑，设定表现全面崩坏后，还厨她的是什么想法，感觉只能用战吧吧务爆的典来形容了
+
+—— 来自 Xiaomi 24129PN74C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  天空塔书记官  
+##### 31378#       发表于 2025-2-28 12:21
+
+其实说是在看第九集的乐子，不如说是在看场外观众乐子，但这也不好笑啊，无聊
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  qratosones1337  
+##### 31379#       发表于 2025-2-28 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541175&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-28 12:18</a>
+
+说了祥子是个编剧手里的空心，大喵是个又蠢又坏的“正常人”，怎么还有人吵啊。
+
+放到别的片场，喵梦就是个 ...</blockquote>
+第四集之前尚且还能用大祥一盘大棋找补，结果演到现在大祥已经石锤真就是这么逆天，于是全剧唯一正常人的含金量就来了。
+
+虽然目前看来大喵也就只能坚持到现在了，如果剧透是真的第十集大喵最终还是祥堕了
+
+*****
+
+####  TheCyrodiil  
+##### 31380#       发表于 2025-2-28 12:22
+
+哇，soyo凭什么觉得ano是劣等版的自己的，因为豪斯比较大吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Versedust  
+##### 31381#       发表于 2025-2-28 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541202&amp;ptid=2208921" target="_blank">Skymoon 发表于 2025-2-28 12:20</a>
+
+但现实中防卫过当也是要判刑的</blockquote>
+戳啦，昆山睦姐嘛
+
+*****
+
+####  最终兵器狂战  
+##### 31382#       发表于 2025-2-28 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541217&amp;ptid=2208921" target="_blank">TheCyrodiil 发表于 2025-2-28 12:22</a>
+
+哇，soyo凭什么觉得ano是劣等版的自己的，因为豪斯比较大吗</blockquote>
+不止豪斯比较大，而且宝箱更是大（
+
+*****
+
+####  qratosones1337  
+##### 31383#       发表于 2025-2-28 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541217&amp;ptid=2208921" target="_blank">TheCyrodiil 发表于 2025-2-28 12:22</a>
+
+哇，soyo凭什么觉得ano是劣等版的自己的，因为豪斯比较大吗</blockquote>
+其实更有可能是大雷更大，粉色奶龙家境估计也差不到哪去
+
+*****
+
+####  厚乳果珍爽  
+##### 31384#       发表于 2025-2-28 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541044&amp;ptid=2208921" target="_blank">whzfjd 发表于 2025-2-28 12:06</a>
+
+想起了传说系列的马场英雄，虽然也是几代元老，但一朝发昏就是身败名裂失去所有 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">几代元老是真，但是没能力也是真，一旦当上了p，能力不足的情况全暴露出来了。
+
+炸了一个tales还炸了一个樱战。
+
+*****
+
+####  厚乳果珍爽  
+##### 31385#       发表于 2025-2-28 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540993&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-2-28 12:02</a>
+
+那毕竟我们是普通打工人，不会自动代入领导。啊，说起来你这套“有人离职了所以他背绩效”的逻辑还真是领 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">作为普通打工人，自然不会带入领导，作为打工人的自觉是一切都听领导的，可不会干啥独走的事情。
+
+*****
+
+####  Lyzers  
+##### 31386#       发表于 2025-2-28 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541135&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-2-28 12:15</a>
+
+谁让你中层自己也做不好对上管理啊233333
+
+事实上就是至少初华和经纪公司肯定是知道摘面具这回事的，大喵 ...</blockquote>
+哦那太牛逼了，组团到炸团时间虽然没完全明确，但最多也就半年左右
+
+半年就开始搞你瞒我瞒并且不是你走就是我走的办公室政治，而且还是直接先踢的创组组长，而且这个创组组长还是顶上大老板的大小姐，创业做出了一定的成绩，也没明确说过有亏钱有损失，但大手就突然嫌钱不够了，然后跟一个组员瞒着其他所有人密谋踢掉大小姐，太有逻辑了太现实了
+
+*****
+
+####  Skymoon  
+##### 31387#       发表于 2025-2-28 12:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541222&amp;ptid=2208921" target="_blank">Versedust 发表于 2025-2-28 12:22</a>
+戳啦，昆山睦姐嘛</blockquote>
+那是正当防卫，不等于防卫过当，况且最主要的是莫提斯在成功防卫后是有救助能力的但却不去履行救助义务，在现实中必会给你判个几年的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  安娜导函数  
+##### 31388#       发表于 2025-2-28 12:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541069&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-2-28 12:08</a>
+是有大手存在啊，但前面你们说的是这大手把大祥推向顶端，现在又说大手是给大祥压力，那这不就是全自动大 ...</blockquote>
+鸡团的一开始的方向是面具，那么这个"一开始"要持续到什么时候呢？大祥老师有明确的计划嘛，有跟队友们讨论过乐队未来的走向嘛？大喵问祥子"什么时候才是你所说的最合适的舞台"，大祥老师有给出正面回复嘛？？
+开始表现的是你们都得听我的，真遇到点情况了就软糯小祥哭哭，这种乐队不解散才见鬼了<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大户爱  
+##### 31389#       发表于 2025-2-28 12:25
+
+摘面具说了一万遍，都没什么好车的。
+
+最简单的祥睦自己肯定不愿意摘，她这种不征求队友意见，先斩后奏，损人利己，已经low到骨子里了。
+
+解散更不用说了，祥受到打击，犹犹豫豫，你要说没尽到领导责任，也就算了。
+喵梦莫名其妙怼人，开始说一堆八杆子打不着的大道理，然后开始滑坡，撂挑子退出，第一个提出解散。 闹麻了。
+
+当然，这里也是编剧的大手。喵梦强行作为工具人领了一锅。不然，即使大莫不会弹，mujica虽然没有团魂，到现在看来，也不至于滑坡到解散。
+
+*****
+
+####  久井路路  
+##### 31390#       发表于 2025-2-28 12:26
+
+没关系，现实中应该判不了左脑对右脑的防卫过当<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  老贝  
+##### 31391#       发表于 2025-2-28 12:27
+
+那个深渊一眼都看不到底的，墨真的能救吗。<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+虽然访谈里说她确实能救，但柿本甚至明确补了句这个不需要观众理解，他就是想把这里刻画成救不了也不愿救的形象吧。
+
+*****
+
+####  Lyzers  
+##### 31392#       发表于 2025-2-28 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541247&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-28 12:25</a>
+
+鸡团的一开始的方向是面具，那么这个"一开始"要持续到什么时候呢？大祥老师有明确的计划嘛，有跟队友们讨 ...</blockquote>
+有没有计划我们现在也不知道了啊，因为从第一集就已经全是大祥计划外的内容了
+
+那还是那句话，我捅你一刀捅死你，人本来就要死的，那你能别怪我吗？
+
+*****
+
+####  厄神之息  
+##### 31393#       发表于 2025-2-28 12:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">呵，又是这套“同为打工人所以能带入的说辞”，跟B站章鱼哥粉一个脑残样，你只能带入共情章鱼哥，只能说明你是个和章鱼哥一样自私自利，尖酸刻薄，自诩高雅，对上唯唯诺诺，对下重拳出击，干啥啥不行还瞧不起帮你把活都干了的工友的杂种小布。正常观众是不会带入蟹堡王三神人任意一个的。同理的，你只能带入喵梦却和其他人无感，说明你是和喵梦一样责任感淡薄，趋炎附势，为自己的利益不择手段完事不粘锅，认为流量至上毫无职业道德的真小人。正常观众是不会选择母鸡卡的五个神人中的任意一个去共情带入的。
+
+*****
+
+####  qratosones1337  
+##### 31394#       发表于 2025-2-28 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541242&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-2-28 12:24</a>
+
+哦那太牛逼了，组团到炸团时间虽然没完全明确，但最多也就半年左右
+
+半年就开始搞你瞒我瞒并且不是你走就 ...</blockquote>
+那大小姐为啥在面具这事上拿不到上面的支持呢233333
+
+真要是人均保密协议，不签就滚，那肯定没这事了（那样的话大喵从一开始就不会来，也就没后面的事了）——结果唯一真的明确要保密的初华还是自己摘的面具，这不是更难绷了？
+
+*****
+
+####  huxiaopao163  
+##### 31395#       发表于 2025-2-28 12:28
+
+话说访谈里直接漏了下一集的内容了啊。
+
+就是mortis被看穿了是演技，只能承认睦死了，小祥又崩溃了。然后发生了什么关键的转折
+ <blockquote>虽然因素世的愿望促成了CRYCHIC重组，但祥子对音乐的热情已荡然无存。此时Mortis却宣告"睦已死"，祥子的再次振作宣告失败。在剧本会议上，我们特别探讨了"祥子最大的敌人是什么"，由此产生"这真是重生故事吗"的疑问。前作《MyGO!!!!!》讲述的是重生，那么《Ave Mujica》是否不能简单重复这个主题？这部分详细解说会涉及第10话后的关键转折。</blockquote>
+
+*****
+
+####  syndrome2032  
+##### 31396#       发表于 2025-2-28 12:28
+
+上一话有人说吉他睦压制其他人格不算杀人。
+
+按照同一理由理由第九话莫搞死睦也不算杀人<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

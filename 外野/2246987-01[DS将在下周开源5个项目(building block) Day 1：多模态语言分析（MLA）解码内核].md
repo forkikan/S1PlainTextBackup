@@ -1384,3 +1384,26 @@ https://github.com/deepseek-ai/3FS
 
 夺取宣称 重建openai 是吧<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jie2000  
+##### 121#       发表于 2025-2-28 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541078&amp;ptid=2246987" target="_blank">烦不烦 发表于 2025-2-28 12:09</a>
+夺取宣称 重建openai 是吧</blockquote>
+从降低门槛，普及应用这个角度说，我愿称之为liberateAI<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  HentaiShareMax!  
+##### 122#       发表于 2025-2-28 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541045&amp;ptid=2246987" target="_blank">nukacolamania 发表于 2025-2-28 12:07</a>
+
+加油，欧美那几家是不是全面开放搞黄就看DS卷到什么程度了
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">逼良家下水，这个可以有
+
