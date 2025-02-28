@@ -4334,3 +4334,11 @@ flcl的人声插入曲我当角色的潜台词看待，gq里的插入曲只能�
 
 麻球的“我寻思能行”JK光环也太离谱了，不过至少展开不无聊，对我来说比水魔第一话那种一眼到头的发展吸引多了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  太极八爪鱼  
+##### 7746#       发表于 2025-3-1 03:56
+
+昨天去看的片，前面40分钟主要是夏亚那个配音一点都不像，我脑子里总要转一下看得特别痛苦，其他还成。他们就不能找一个和夏亚声线比较像的人么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

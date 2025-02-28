@@ -204,3 +204,11 @@
 可我看到隔壁有人说又能点满一个天赋树了。。结果发现我缺一个金的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正确实能点满三个 你是不是之前点过别的
 
+
+*****
+
+####  khxooo  
+##### 16424#       发表于 2025-3-1 03:49
+
+挖矿完毕，和娄西无缘咯<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
