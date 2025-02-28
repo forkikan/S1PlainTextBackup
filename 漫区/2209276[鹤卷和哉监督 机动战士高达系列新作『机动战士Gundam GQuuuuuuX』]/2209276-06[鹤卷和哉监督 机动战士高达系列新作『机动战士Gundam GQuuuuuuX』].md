@@ -4232,3 +4232,39 @@ plazma算什么，中段管人插曲也一样莫名其妙，滚ed的时候发现
  有一说一，你现在把这张胶片放煤炉上，说不定也能也能出个几百</blockquote>
 同意 感觉能卖出点价格的这张<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Oshino  
+##### 7736#       发表于 2025-2-28 23:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67546632&amp;ptid=2209276" target="_blank">lickey 发表于 2025-2-28 23:55</a>
+
+有一说一，你现在把这张胶片放煤炉上，说不定也能也能出个几百</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">我哪来的煤炉号，只能跟人海鲜市场见啊
+
+*****
+
+####  兔狐子  
+##### 7737#       发表于 2025-3-1 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67546653&amp;ptid=2209276" target="_blank">Oshino 发表于 2025-2-28 23:59</a>
+ 我哪来的煤炉号，只能跟人海鲜市场见啊</blockquote>
+那还是等tv播了之后再挂海鲜吧，时间越久特典越珍稀<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AraTurambar  
+##### 7738#       发表于 2025-3-1 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67546530&amp;ptid=2209276" target="_blank">Oshino 发表于 2025-2-28 23:37</a>
+
+笑死，高达这个ip能活到今天是因为傻逼胶佬太多了
+
+我看高达是从oo开始看的，倒也没兴趣充什么遗老的姿态 ...</blockquote>
+有什么不像的吗？夏利亚不是明牌了这个世界线吉翁自己也很困难吗？
+
+既然困难，那么79年机到85年还有竞争力、卖扎古给民间人、有人走私卡带，不都很合理吗？
+
+历史上长期对峙的局面下什么事没有。
+

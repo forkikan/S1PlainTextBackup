@@ -182,3 +182,14 @@
 另外我为什么还却一个金星开全天赋树</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为这次给的是蓝星
 
+
+*****
+
+####  alucardcz  
+##### 16422#       发表于 2025-2-28 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67546628&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-2-28 23:54</a>
+
+因为这次给的是蓝星</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可我看到隔壁有人说又能点满一个天赋树了。。结果发现我缺一个金的
+
