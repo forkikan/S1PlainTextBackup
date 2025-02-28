@@ -3483,3 +3483,256 @@ ps：睦的面具是被喵梦摘的
 
 按照同一理由理由第九话莫搞死睦也不算杀人<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  非建政专用号  
+##### 31397#       发表于 2025-2-28 12:28
+
+墨指导未成年，建议追究当前监护人海玲责任
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Skymoon  
+##### 31398#       发表于 2025-2-28 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541260&amp;ptid=2208921" target="_blank">久井路路 发表于 2025-2-28 12:26</a>
+没关系，现实中应该判不了左脑对右脑的防卫过当</blockquote>
+但会被抓进精神病院好好治疗一番<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qlipho  
+##### 31399#       发表于 2025-2-28 12:28
+
+祥老师只是体现了二游中 旧编剧角色被新编剧拿去擦脚落地的那啥，此事平平无奇
+
+*****
+
+####  qratosones1337  
+##### 31400#       发表于 2025-2-28 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541239&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-2-28 12:24</a>
+
+作为普通打工人，自然不会带入领导，作为打工人的自觉是一切都听领导的，可不会干啥独走的事情。 ...</blockquote>
+所以领导让你背绩效也很合理233333
+
+
+*****
+
+####  玖羽  
+##### 31401#       发表于 2025-2-28 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541245&amp;ptid=2208921" target="_blank">Skymoon 发表于 2025-2-28 12:25</a>
+
+那是正当防卫，不等于防卫过当，况且最主要的是莫提斯在成功防卫后是有救助能力的但却不去履行救助义务， ...</blockquote>
+这都什么鬼<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">，那tm是脑内剧场，又不是现实世界，如果杀个人格就算杀人，睦都杀了多少人格了，那不是杀人狂吗
+
+跟第7话一样，放着问题很大的地方不说，反倒轮这种没问题的地方有意思吗
+
+*****
+
+####  syndrome2032  
+##### 31402#       发表于 2025-2-28 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541273&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-28 12:28</a>
+话说访谈里直接漏了下一集的内容了啊。
+
+就是mortis被看穿了是演技，只能承认睦死了，小祥又崩溃了。然后发 ...</blockquote>
+第九话大象老师已经弹不动钢琴了。
+
+*****
+
+####  秋月孝三  
+##### 31403#       发表于 2025-2-28 12:31
+
+港真，从包寿司的大前提来看mtm人格肯定是不死的；再从🐱觉得🐱喜欢大墨老师这种典中典桥段来看大墨老师人格肯定也是不死的。所以最后mtm肯定要进行超兵融合<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  非建政专用号  
+##### 31404#       发表于 2025-2-28 12:31
+
+木头人当年脑内大屠杀的时候buff确实拉满了，未成年+精神病
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  hysjmr  
+##### 31405#       发表于 2025-2-28 12:31
+
+大伙攻击A，然后A的粉丝攻击B，感觉这种套路已经见过太多次了。
+嘬奶嘴果然是饭圈大战的底层逻辑
+
+*****
+
+####  南宮凝香  
+##### 31406#       发表于 2025-2-28 12:32
+
+<blockquote>TheCyrodiil 发表于 2025-2-28 12:22
+哇，soyo凭什么觉得ano是劣等版的自己的，因为豪斯比较大吗</blockquote>
+這兩人嚴格來說還是像的
+
+她倆看的東西東西基本一樣 （每次愛音的話題她都能不情不願的接上）
+
+對外人也是靠營業養人氣
+
+分別是愛音比Soyo 的同理心跟耐性更高，攻擊性更低
+
+人格劣化，
+
+雷子優化
+
+考慮到雷子有2顆， 人格只有一個
+
+的確是強化版
+
+
+*****
+
+####  老贝  
+##### 31407#       发表于 2025-2-28 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541273&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-28 12:28</a>
+话说访谈里直接漏了下一集的内容了啊。
+
+就是mortis被看穿了是演技，只能承认睦死了，小祥又崩溃了。然后发 ...</blockquote>
+这个说的不是第八集两个人在卡拉ok的谈话吗。
+
+*****
+
+####  qratosones1337  
+##### 31408#       发表于 2025-2-28 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541328&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-2-28 12:32</a>
+
+這兩人嚴格來說還是像的
+
+她倆看的東西東西基本一樣 （每次愛音的話題她都能不情不願的接上）</blockquote>
+毕竟16岁小寡妇的含金量摆在这里呢
+
+*****
+
+####  圣血天使  
+##### 31409#       发表于 2025-2-28 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541273&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-2-28 12:28</a>
+话说访谈里直接漏了下一集的内容了啊。
+
+就是mortis被看穿了是演技，只能承认睦死了，小祥又崩溃了。然后发 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">大猫工具人，祥子也是工具人，各种演的木头也是工具人，初华对祥子没法理解的爱和海玲对恢复母鸡卡的执着一样很工具人，这么看确实是人偶，编剧的人偶啊
+
+—— 来自 OPPO PJC110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+*****
+
+####  Skymoon  
+##### 31410#       发表于 2025-2-28 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541298&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-2-28 12:29</a>
+这都什么鬼，那tm是脑内剧场，又不是现实世界，如果杀个人格就算杀人，睦都杀了多少人格了，那不是杀人狂 ...</blockquote>
+没有啊，我只是调侃而已，没看到我还在后面补了个“在现实中”嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qratosones1337  
+##### 31411#       发表于 2025-2-28 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541339&amp;ptid=2208921" target="_blank">圣血天使 发表于 2025-2-28 12:33</a>
+
+大猫工具人，祥子也是工具人，各种演的木头也是工具人，初华对祥子没法理解的爱和海玲对恢复母鸡卡的执着 ...</blockquote>
+私心还是希望大喵能多坚持个一两集，起码到最后包寿司的时候再祥堕。虽然现在看来估计是没戏了，全团唯一正常人下一集就无了
+
+*****
+
+####  大户爱  
+##### 31412#       发表于 2025-2-28 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541247&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-28 12:25</a>
+鸡团的一开始的方向是面具，那么这个"一开始"要持续到什么时候呢？大祥老师有明确的计划嘛，有跟队友们讨 ...</blockquote>
+这是大祥老师的问题，但也只是小问题。不是你喵梦不听不问，直接掀桌子的理由。
+
+因为mujica在喵梦掀桌子前，起码看起来一直在蒸蒸日上。最速武道馆，全国巡游排面拉满。
+
+而且这个最速，从组团到喵梦掀面具可能没几个月。刚开局，有什么好解释发展方向的呢。
+
+这么一看，很难解释喵梦这么急。人家大小姐攒局带你上了大项目，刚两个月，领导不给你解释，自己就抢班夺权，先斩后奏，捅出大篓子来。
+
+包括后面，喵梦自己提出解散，也很怪。好不容易抓住的机会，项目出了问题。人家领导还在犹豫呢，你不想办法弥合，第一个跳出分家。
+
+大祥回家迈巴赫，喵梦你要再有母鸡卡这么好机会，多难啊。
+
+只能说，喵梦也是工具人属性拉满。
+
+*****
+
+####  看穿一切的鱼  
+##### 31413#       发表于 2025-2-28 12:35
+
+打工人是怎么共情大喵的，喜欢同事破釜沉舟往上爬的时候拿自己当祭品？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厚乳果珍爽  
+##### 31414#       发表于 2025-2-28 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541283&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-2-28 12:28</a>
+
+所以领导让你背绩效也很合理233333</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你怎么滑坡到背绩效了？我是没想到你这么能滑
+
+*****
+
+####  安娜导函数  
+##### 31415#       发表于 2025-2-28 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541263&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-2-28 12:27</a>
+有没有计划我们现在也不知道了啊，因为从第一集就已经全是大祥计划外的内容了
+
+那还是那句话，我捅你一刀 ...</blockquote>
+摘面具到炸团中间隔着3话呢，哪里就是捅一刀了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+核心就是你们觉得炸团的直接原因是摘面具，那我只能说每个人对因果关系的理解不一样了<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TheCyrodiil  
+##### 31416#       发表于 2025-2-28 12:36
+
+看来还得是大雷啊，那大雷确实NB，别的都是假的，大雷才是真的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lyzers  
+##### 31417#       发表于 2025-2-28 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541271&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-2-28 12:28</a>
+
+那大小姐为啥在面具这事上拿不到上面的支持呢233333
+
+真要是人均保密协议，不签就滚，那肯定没这事了（那 ...</blockquote>
+是啊，那为什么呢？我也不知道啊，我反正一直都给你们说的这动画没逻辑，是你们总在绕来绕去圆这玩意，那我怎么知道为什么
+
+造成这样的情况需要同时满足，财力大到包满一个乐队全流程支出但阴晴不定的家族大手，莫名其妙对大喵老师十分赞许甚至大于一开始资助的大祥老师，包办了全流程却唯独在保密协议上整活而且还整的是兼任两组大乐队本来就忙不过来的当红主唱，前面一直不干预不参与突然之间全冒出来的工作人员和合同违约金，还有各种各样**小小的问题，几乎没有一件事是符合逻辑的，我还想问你为什么这些会在乐队动画冒出来然后你们还能当理所当然地在这上面讨论呢
+
+*****
+
+####  qratosones1337  
+##### 31418#       发表于 2025-2-28 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541361&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-2-28 12:35</a>
+
+你怎么滑坡到背绩效了？我是没想到你这么能滑</blockquote>
+你不是说领导说啥你就干啥么？不多长个心眼不就是被画饼吊着然后背绩效么
+
+*****
+
+####  非建政专用号  
+##### 31419#       发表于 2025-2-28 12:37
+
+大初老师的脑内小剧场能不能多来点，感觉最后一段初华瞪着眼睛不说话是在想象把老c团四人挨个掼杀
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

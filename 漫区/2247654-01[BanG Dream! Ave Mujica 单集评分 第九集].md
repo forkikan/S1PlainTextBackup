@@ -3183,3 +3183,44 @@ Mujica确实没一个像人，哦，不能冤枉嘴替大猫老师<img src="http
 
 现在的mujica如同冲着悬崖油门一脚踩死的公交车，司机还不忘回头向乘客保证这是最刺激最安全的一条路线。
 
+
+*****
+
+####  makece  
+##### 347#       发表于 2025-2-28 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67538610&amp;ptid=2247654" target="_blank">航母掉头 发表于 2025-2-28 08:21</a>
+
+怎么到现在还没人说，传奇雇佣兵拆了十几个队是不是造成了十几个c团鸡团的尸体
+
+ ...</blockquote>
+她就是个代打的，那些团本来就不会当她是自己人
+
+*****
+
+####  makece  
+##### 348#       发表于 2025-2-28 12:29
+
++2
+
+我只是讨厌C团而已啊<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  MINKE  
+##### 349#       发表于 2025-2-28 12:34
+
+这每集必爆，高潮迭起，悬念不断，话题拉满的剧情太爽了，这不比什么dkdkkrkr的烂俗美少女乐队番刺激，我要看到就是这个口牙（怎么没有长颈鹿麻将）
+
+*****
+
+####  ArcadiaMartyr  
+##### 350#       发表于 2025-2-28 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541282&amp;ptid=2247654" target="_blank">makece 发表于 2025-2-28 12:28</a>
+她就是个代打的，那些团本来就不会当她是自己人</blockquote>
+disruption？？？？？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
