@@ -4858,3 +4858,74 @@ v那几首终于买回来了<img src="https://p.sda1.dev/22/f772984d15f09554353f
 
 2025-2-28 20:05 上传
 
+
+*****
+
+####  ml1642879  
+##### 27012#       发表于 2025-2-28 20:48
+
+PICO！！！！！！
+
+*****
+
+####  月島まりな  
+##### 27013#       发表于 2025-2-28 20:48
+
+52话pico无敌了
+<[img src="https://s2.loli.net/2025/02/28/VXqIBeAuWYmHSaD.png" referrerpolicy="no-referrer">
+
+*****
+
+####  木板春香  
+##### 27014#       发表于 2025-2-28 20:49
+
+ 这下要看到爽啊
+
+*****
+
+####  月島まりな  
+##### 27015#       发表于 2025-2-28 20:51
+
+我草真有gbp live，今天不骂根本雄贵了
+<[img src="https://s2.loli.net/2025/02/28/GuVv2QWgoNxAK8D.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 27016#       发表于 2025-2-28 20:51
+
+<img src="https://img.saraba1st.com/forum/202502/28/205116v5bce1w45vejlnz5.png" referrerpolicy="no-referrer">
+
+<strong>MH9$B2L]PE6FAP3}88%N6J9.png</strong> (74.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-28 20:51 上传
+
+
+*****
+
+####  ads147147  
+##### 27017#       发表于 2025-2-28 20:54
+
+52话吃得太好了，拉拉人真的羡慕疯了。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  CyDiablo  
+##### 27018#       发表于 2025-2-28 20:54
+
+看一年pico，还有GBP盼<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+收拾一下整理情报
+
+*****
+
+####  紫吹兰  
+##### 27019#         楼主| 发表于 2025-2-28 20:55
+
+<blockquote>月島まりな 发表于 2025-2-28 20:51
+我草真有gbp live，今天不骂根本雄贵了</blockquote>
+10周年不可能没有吧
+
