@@ -5725,3 +5725,62 @@ mujica是在给mygo补坑，c团确实是最初的五个人，然后这c团五�
 我看了眼，MAL上这片还有8.24分，还比mygo的8.23高一点点，到底外网啥时候开始掉分呢。 ...</blockquote>
 没准白皮就好这一口呢
 
+
+*****
+
+####  595505568  
+##### 31589#       发表于 2025-2-28 15:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我现在觉得你不如当年做项目的时候直接做CCC，另外拉人做MyGO和Ave Mujica 形成PPP2.0 AG2.0 Rosalia2.0算了，这个不伦不类的情况谁接下来做产品都得因为这种撕裂感过大的背景差异玩崩掉；话说这个原案怎么一股子超级负面属性plus黑化chuchu的味道，脚本团是RAS惨案还没享受够吗？
+
+*****
+
+####  滑稽Captain  
+##### 31590#       发表于 2025-2-28 15:34
+
+简单过了一下5ch昨晚到现在的两三串鸡讨论串，对照了一下id，疯狂破防刷屏的从头到尾只有同一个人，而且从之前几集就开始刷了，不能作为参考
+
+其他不满的观点其实都很正常，比如ccc的戏有点太多了，又是要让mygo来帮忙解决吗，海铃能接受空气吉他不合适吧，祥子有点太➗了，编剧大手的提线木偶感有点强烈
+
+好评的观点比如真的做到了和mygo完全不同的剧情，要是和mygo一样套路就太无聊了，最后十人齐聚的信息差大战很有意思
+
+相比于第七集的全面好评，第九集确实不满的声音变多一些了
+
+*****
+
+####  sauron.j  
+##### 31591#       发表于 2025-2-28 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67542875&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-2-28 15:15</a>
+
+是，睦的演技，从头到尾就是个稀里糊涂的设定。
+
+我就没搞懂，一个紧张性木僵，怎么就被吹得神乎其神。还 ...</blockquote>
+吉他睦宕机了，那个演木偶的姿态是无人格接管空壳状态，所以这么逼真
+
+
+*****
+
+####  金钱与民主  
+##### 31592#       发表于 2025-2-28 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540843&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-2-28 11:52</a>
+大祥的内容大纲代入之后不就是“为了维持高端形象，我们不能跑赛道不能投自媒体，这也不能做那也不能做” ...</blockquote>
+这什么混账逻辑？因为结果上有尝到甜头，所以错误操作就可以是对的，你这是裕仁上身、九一八夺下了中国东北，所以关东军独走可以事后追认的意思喽？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  syndrome2032  
+##### 31593#       发表于 2025-2-28 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67543031&amp;ptid=2208921" target="_blank">595505568 发表于 2025-2-28 15:34</a>
+我现在觉得你不如当年做项目的时候直接做CCC，另外拉人做MyGO和Ave Mujica 形成PPP2.0 AG2.0 Rosalia2.0算 ...</blockquote>
+撕裂感是人为制造出来的。
+
+可能两支都是社团乐队起家敌对要好点。
+鸡团现在就是起点高速通太快了炸了
+
+这样大祥老师黑刀之夜那句菜就多练也没啥毛病。
+
