@@ -3351,3 +3351,15 @@ disruption？？？？？
 —— 来自 鹅球 v3.3.96</blockquote>
 罚你重看那一段，那段disruption俩人说的是「要是你正式加入就好了」之类的话，是把海铃从0.5个乐队成员升格到1个正式成员的邀请而已，相当于实习尚未转正
 
+
+*****
+
+####  ArcadiaMartyr  
+##### 364#       发表于 2025-2-28 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67543178&amp;ptid=2247654" target="_blank">Victorino 发表于 2025-2-28 15:53</a>
+罚你重看那一段，那段disruption俩人说的是「要是你正式加入就好了」之类的话，是把海铃从0.5个乐队成员 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">难道不是一直就想让她加入，只不过海玲一直以自己跑无数个乐队做借口婉拒？才会说什么正式加入
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
