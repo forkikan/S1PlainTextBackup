@@ -1726,3 +1726,242 @@ ave ...</blockquote>
  ...</blockquote>
 看到第9话的这时候，还在想着1.0炸团大喵老师全责的，除了可能是某些角色的极端角色厨外，我实在是不能理解他们的逻辑了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  钦念以忱  
+##### 31237#       发表于 2025-2-28 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67537771&amp;ptid=2208921" target="_blank">帆前 发表于 2025-2-28 01:53</a>
+
+这集出来，已经，已经没有办法再期待主线了，我看啊，最合适的看番姿势就是躺下看整活了。就当这是鸡狗十人 ...</blockquote>
+都可以洗，吉他睦都是多重人格了，记忆错乱正符合病症描述，吉他睦在7话演奏之后对CCC的认知就和之前不同了，完全可以洗成她脑内重构了关于CCC团的记忆。
+
+当然，从剧透来看，睦的这个多重人格故事线估计是要烂尾了，不值得怎么分析了。
+
+*****
+
+####  YF31  
+##### 31238#       发表于 2025-2-28 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540235&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-2-28 11:07</a>
+
+所以你不承认演出砸锅大祥全责是吧？一个没法上台的乐队跟炸团有什么区别？ 一个人给一个已经没有生命体征 ...</blockquote>
+
+他妈的你喵圣炸的团要丰川祥子背锅是不是太无耻了一点啊？
+
+你喵圣先否了代打，后面又他妈自己明说了要炸，这他妈能丢过给被抽陀螺抽疯的队长？那他妈那陀螺就是你喵圣抽的，方向盘就是你抢疯的，怎么有脸说喵圣没错的啊？
+
+给你画面，你说话来，你说不清楚你随你喵圣一样站道德高地大小便：
+
+<img src="https://img.saraba1st.com/forum/202502/28/111702mu1my8mmucq11mby.png" referrerpolicy="no-referrer">
+
+<strong>微信图片_20250228111232 (1).png</strong> (366.65 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-28 11:17 上传
+
+1740712332649.png
+(184.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-28 11:12 上传
+
+<img src="https://img.saraba1st.com/forum/202502/28/111223do4p8nor4njzmepr.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lyzers  
+##### 31239#       发表于 2025-2-28 11:17
+
+意思是实在洗不出来了就撇开关系，牢祥也干了，你肯定是角色厨吧
+
+*****
+
+####  天空塔书记官  
+##### 31240#       发表于 2025-2-28 11:18
+
+把bang的资源抽走去搞D5J，然后遇上“大灾变”就是wsd最大的败笔，完全的商业决策失误，只能说是活该
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  qratosones1337  
+##### 31241#       发表于 2025-2-28 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540361&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-28 11:15</a>
+
+看到第9话的这时候，还在想着1.0炸团大喵老师全责的，除了可能是某些角色的极端角色厨外，我实在是不能理 ...</blockquote>
+当时尚且可以掰扯一下大祥在下一盘大棋结果被大喵给搅黄了，现在信息差消除之后一看哪还有什么大棋，纯粹就是大祥逆天操作罢了。
+
+以大喵的出发点来看，摘面具还真就摘对了，不然一直戴面具戴到大祥玩崩那就血本无归了——这下鸡团唯一正常人类的含金量又上升了。
+
+*****
+
+####  qratosones1337  
+##### 31242#       发表于 2025-2-28 11:19
+
+ 本帖最后由 qratosones1337 于 2025-2-28 11:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540381&amp;ptid=2208921" target="_blank">YF31 发表于 2025-2-28 11:17</a>
+
+他妈的你喵圣炸的团要丰川祥子背锅是不是太无耻了一点啊？
+
+你喵圣先否了代打，后面又他妈自己明说了要炸 ...</blockquote>
+所以你是不是不敢截图大祥说的那句“我想让睦回来”啊233333
+
+那么问题来了，大祥说她想让睦回来，明天就演出了，你倒是说说假如现在所有人都听大祥的，你怎么在“我想让睦回来”的前提下让演出不砸锅啊？
+
+*****
+
+####  syndrome2032  
+##### 31243#       发表于 2025-2-28 11:20
+
+ 本帖最后由 syndrome2032 于 2025-2-28 11:21 编辑 
+
+第四话炸团我始终都觉得是大祥老师全责。
+
+大象“我想要睦回来”。
+现在睦回来不来，就不就只剩散场了。
+
+海铃的意见是找临时代打或者假弹糊弄过去，但是前者大象不同意，后者不用说，死线外加没音源。从上帝视角来说，海玲的意见只是保障继续进行演出，不能保障鸡团。
+
+初华“有人退出等于解散”也别怪内鬼说，这话说出来就是冲着解散去的。
+
+大喵“不陪了”，确实没法陪了。有个人倒了就直接滑坡到解散了。
+
+*****
+
+####  曼彻斯特联  
+##### 31244#       发表于 2025-2-28 11:20
+
+<blockquote>第八话已揭示“睦与Mortis并非多重人格，而是角色扮演式的人格切换”</blockquote>
+
+让人不禁想问真的揭示了吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  YF31  
+##### 31245#       发表于 2025-2-28 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540275&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-2-28 11:10</a>
+
+只要把锅全算在大喵老师头上，其他一切就都没问题了对吧
+
+这剧情现在这狗屎样子，还在角色身上分锅 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">炸团喵圣全锅有问题？你要车祥畜随便你车我拦着你车了？
+
+编剧狗屎是编剧狗屎，正常人会觉得编剧狗屎塑造这一堆烂人没一个是人。
+
+现在好了，就是有人要跳出来说站道德高地大小便的烂人没问题，那他妈是谁有问题？
+
+*****
+
+####  阿兹尔  
+##### 31246#       发表于 2025-2-28 11:21
+
+这集里一句上面不允许，就让母鸡卡复活无望，看来上面出的力很多啊，要不也凑不齐这么多资源，大家都来玩过家家
+
+*****
+
+####  万书言  
+##### 31247#       发表于 2025-2-28 11:21
+
+就是能力不足，为了方便剧情发展和收束，让睦“精神分裂”来找补一下
+
+
+*****
+
+####  ml1642879  
+##### 31248#       发表于 2025-2-28 11:22
+
+搞不好真是男人邦遗产🤣🤣🤣🤣
+
+*****
+
+####  清江望月  
+##### 31249#       发表于 2025-2-28 11:22
+
+老实说，看前几集我还挺好奇编剧会怎么洗白键帽这厮，我做梦也没想到是这么洗白成毫猫的。
+
+*****
+
+####  安娜导函数  
+##### 31250#       发表于 2025-2-28 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540427&amp;ptid=2208921" target="_blank">YF31 发表于 2025-2-28 11:21</a>
+炸团喵圣全锅有问题？你要车祥畜随便你车我拦着你车了？
+
+编剧狗屎是编剧狗屎，正常人会觉得编剧狗屎塑造 ...</blockquote>
+炸团？mujica什么时候是个团了，不一直是大小姐过家家嘛<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+过家家玩不下去了别人走还不行了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qratosones1337  
+##### 31251#       发表于 2025-2-28 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540427&amp;ptid=2208921" target="_blank">YF31 发表于 2025-2-28 11:21</a>
+
+炸团喵圣全锅有问题？你要车祥畜随便你车我拦着你车了？
+
+编剧狗屎是编剧狗屎，正常人会觉得编剧狗屎塑造 ...</blockquote>
+所以你把明摆着大祥脑抽捅出来的篓子推到大喵头上不就是洗大祥么233333
+
+“我想让睦回来”这几个字你是一句都不敢提是吧233333
+
+*****
+
+####  qlipho  
+##### 31252#       发表于 2025-2-28 11:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">看了访谈，只能说远离糊比企划了，一切苦难都是应该的
+
+*****
+
+####  qratosones1337  
+##### 31253#       发表于 2025-2-28 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540452&amp;ptid=2208921" target="_blank">清江望月 发表于 2025-2-28 11:22</a>
+
+老实说，看前几集我还挺好奇编剧会怎么洗白键帽这厮，我做梦也没想到是这么洗白成毫猫的。 ...</blockquote>
+至少到目前为止大喵还是鸡团唯一正常人，虽然估计下集也要祥堕了，但是能坚持到第十集也算不白忙
+
+*****
+
+####  Hchan  
+##### 31254#       发表于 2025-2-28 11:25
+
+没了上面的大手，那不是母鸡卡只能在ring从头开始活动了吗，无缝衔接手游了
+
+*****
+
+####  YF31  
+##### 31255#       发表于 2025-2-28 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67540411&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-2-28 11:19</a>
+
+所以你是不是不敢截图大祥说的那句“我想让睦回来”啊233333
+
+大喵的意思是现实睦头人还在就找代打肯定是 ...</blockquote>
+你话都说完了截图给你有屁用，装瞎的。
+
+**身体不适不会？队长说逼话你上去给她几个大逼兜不会？我队长吉他手被抽疯了暂停巡演不会？你喵圣抢了三集方向盘了，到要你开的时候不干了，你前面抢方向盘干嘛？哦前脚说要尊重观众后脚轮到你尊重观众了你两手一摊了是吧。
+
+*****
+
+####  天空塔书记官  
+##### 31256#       发表于 2025-2-28 11:26
+
+<blockquote>关键问题还是祥子身上并不存在的所谓“万能大女主”滤镜，A团1.0的乐队活动模式也并不健康，不能长久，这不是监督临时起意，而是剧本一开始就定下的基调，如果不能想通这点，就会陷入只会复读“一切都是喵梦的错”和“全世界都在针对我女”的死胡同重复无意义的精神内耗</blockquote>
+勿谓言之不预也
+
+所以还要内耗吗，对自己好点吧<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

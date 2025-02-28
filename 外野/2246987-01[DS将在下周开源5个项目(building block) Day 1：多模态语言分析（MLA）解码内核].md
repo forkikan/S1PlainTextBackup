@@ -1348,3 +1348,11 @@ https://github.com/deepseek-ai/3FS
 完结散花，可以预见，后面DS会自研算计芯片了</blockquote>
 他从设计托卡马克开始发电顺便用产生的中子轰击汞批量制造黄金我都信<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  goranger  
+##### 117#       发表于 2025-2-28 11:22
+
+做实事的人真的能发光
+
