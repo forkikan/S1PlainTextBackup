@@ -8252,3 +8252,14 @@ soyo新卡有点像:唉有点无聊，调戏一下立希吧
 和mujca和解了
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  huxiaopao163  
+##### 31814#       发表于 2025-3-1 02:27
+
+才知道母鸡卡的元素歌里，以太是睦，不是祥子。。。
+难道睦真的是被设计为一种更高位的存在，相比其他几个人
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
