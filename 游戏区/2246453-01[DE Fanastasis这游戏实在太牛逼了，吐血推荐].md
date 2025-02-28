@@ -2874,3 +2874,15 @@ pc玩走几步一掉帧，手机玩反倒很流畅没感觉有明显卡顿，除
 
 地图上显示灰色的部分，是不是一定代表着没探索完？
 
+
+*****
+
+####  alleriawr9  
+##### 252#       发表于 2025-2-28 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67546145&amp;ptid=2246453" target="_blank">森田美位子 发表于 2025-2-28 22:27</a>
+地图上显示灰色的部分，是不是一定代表着没探索完？</blockquote>
+不是，很多就是过不去，可以开穿墙过去看
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -4154,3 +4154,33 @@ plazma算什么，中段管人插曲也一样莫名其妙，滚ed的时候发现
 
 既然插入时机和传达的感情都是到位的，高达不高达可以放松一点。
 
+
+*****
+
+####  kuriri  
+##### 7729#       发表于 2025-2-28 23:30
+
+迄今为止任何一部高达都有“不是高达”的理由，高达这个ip能活到今天是靠每一个勇敢创造“不是高达的高达”的伟大创作者实现的
+
+*****
+
+####  兔狐子  
+##### 7730#       发表于 2025-2-28 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67546061&amp;ptid=2209276" target="_blank">Oshino 发表于 2025-2-28 22:15</a>
+ plazma算什么，中段管人插曲也一样莫名其妙，滚ed的时候发现是个管人的名字我就跟这股莫名其妙的心情和解了 ...</blockquote>
+建议マチュ胶片出我<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Oshino  
+##### 7731#       发表于 2025-2-28 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67546491&amp;ptid=2209276" target="_blank">kuriri 发表于 2025-2-28 23:30</a>
+
+迄今为止任何一部高达都有“不是高达”的理由，高达这个ip能活到今天是靠每一个勇敢创造“不是高达的高达” ...</blockquote>
+笑死，高达这个ip能活到今天是因为傻逼胶佬太多了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+我看高达是从oo开始看的，倒也没兴趣充什么遗老的姿态对高达的内核指指点点。只是单纯觉得女高插卡带上高达打黑拳很奇怪而已，特别是我前半段还在看夏亚开红高达的情况下。打完黑拳还有吉翁的人出现了，他们像是一个世界观下的产物吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
