@@ -8098,3 +8098,43 @@ Anon 比Raina 五十音在前面
 坏消息，也许私生子是冯川清告搞的，又变成姐妹不伦文学了 ...</blockquote>
 真的假的？初祥姐妹<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhoujin8584  
+##### 31799#       发表于 2025-2-28 23:21
+
+<blockquote>plusSharp 发表于 2025-2-28 23:15
+之前看某些日本作品讲什么“伪善”，“自我满足”，“感动自己”总感觉是在无病呻吟，水平不够还硬要讲大道 ...</blockquote>
+社区发明了一个不那么难听的形容，叫“殉道者品格”<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  灼眼的夏娜酱  
+##### 31800#       发表于 2025-2-28 23:24
+
+希望下集能彻底把睦的问题解决了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sauron.j  
+##### 31801#       发表于 2025-2-28 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67546339&amp;ptid=2208921" target="_blank">江戸前ルナ 发表于 2025-2-28 23:00</a>
+
+你这么解释我觉得不错。
+
+但问题是从剧里吉他睦莫名其妙自掐着和吉他在摆在地上这一幕要看这一点出来，emm ...</blockquote>
+拉灯的手无缝切镜掐脖子，组C团=杀mortis这个意向应该是没问题的
+
+抛弃吉他这个涉及到我自己的关注点，不保真。mygo全篇和mujica头两集的睦头是个吉他不离身的孩子，出镜时只要有条件永远是杵在那摆弄吉他。8、9集她不但吉他摸得没mortis多，言行举止就像忘了自己是个吉他手一样
+
+*****
+
+####  wwwttth  
+##### 31802#       发表于 2025-2-28 23:26
+
+不是，如果是姐妹那更变态了啊，这爹还能不t的啊，老登不早说你那变态爹搞外遇t了不比168亿有用？
+
