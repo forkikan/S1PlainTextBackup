@@ -4071,3 +4071,37 @@ Q.请谈谈为本作创作配乐的理念，以及与监督的交流过程。
 
 plazma算什么，中段管人插曲也一样莫名其妙，滚ed的时候发现是个管人的名字我就跟这股莫名其妙的心情和解了。国内上映之后能不能吸一波萌二，让我把手上的麻秋胶片倒了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AraTurambar  
+##### 7722#       发表于 2025-2-28 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67546061&amp;ptid=2209276" target="_blank">Oshino 发表于 2025-2-28 22:15</a>
+
+plazma算什么，中段管人插曲也一样莫名其妙，滚ed的时候发现是个管人的名字我就跟这股莫名其妙的心情和解了 ...</blockquote>
+诶？
+
+星街那首我觉得很好啊，插入时机绝妙。
+
+人和人之间口味差别真是大lol
+
+*****
+
+####  ryanghj  
+##### 7723#       发表于 2025-2-28 22:49
+
+歌曲插入最大问题是人声太吵了
+
+*****
+
+####  Oshino  
+##### 7724#       发表于 2025-2-28 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67546258&amp;ptid=2209276" target="_blank">AraTurambar 发表于 2025-2-28 22:47</a>
+
+诶？
+
+星街那首我觉得很好啊，插入时机绝妙。</blockquote>
+不把这片看成是高达的话，这插入曲确实也没啥问题。这也是我觉得这片最大的问题，有无数原创萝卜片的影子，唯独不像高达，结果它是高达
+

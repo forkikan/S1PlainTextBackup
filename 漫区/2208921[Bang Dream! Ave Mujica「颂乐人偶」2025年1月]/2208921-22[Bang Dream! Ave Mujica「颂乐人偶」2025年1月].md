@@ -7967,3 +7967,52 @@ doloris说不准要向ob一串字母女士表白心意了<img src="https://stati
 坏消息，也许私生子是冯川清告搞的，又变成姐妹不伦文学了 ...</blockquote>
 你的这个坏消息直接让前面的好消息也变坏消息了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一心而用  
+##### 31789#       发表于 2025-2-28 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67545562&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-2-28 20:51</a>
+好消息说一个，可能没有小姨文学了
+坏消息，也许私生子是冯川清告搞的，又变成姐妹不伦文学了 ...</blockquote>
+消息来源？
+
+*****
+
+####  一心而用  
+##### 31790#       发表于 2025-2-28 22:47
+
+【打破次元壁！传统国乐解锁动漫神曲《春日影》聆听春天的故事-哔哩哔哩】
+[https://b23.tv/b7mRKBE](https://b23.tv/b7mRKBE)
+<img src="https://p.sda1.dev/22/89f82149c8ed0160f0fa9a3371fb61a8/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zhoujin8584  
+##### 31791#       发表于 2025-2-28 22:55
+
+古弦乐春日影不好听，像哀乐
+
+*****
+
+####  sauron.j  
+##### 31792#       发表于 2025-2-28 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67545989&amp;ptid=2208921" target="_blank">江戸前ルナ 发表于 2025-2-28 22:02</a>
+
+看完了。这话人物的表现错位基本因为相互间的信息差啊。
+
+祥：为了睦而去找爱音和灯要求复活C团。</blockquote>
+吉他睦的死是自己也迷失了，本该以吉他为锚点的她，拉住灯的手时执念已经歪曲成“为了祥复辟C团顺便除掉mortis”，所以此时的内心剧场表现是她掐脖子、背后吉他落地无人关心
+
+*****
+
+####  非建政专用号  
+##### 31793#       发表于 2025-2-28 22:56
+
+小闭灯的阿斯伯格是不是吃满红利了，mygo里憋半天来个天台，来个诗超绊奠定核心位置，母鸡卡里支支吾吾说不出话来和周围的神人大乱斗一比就是正面塑造，除了羊叫
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -3507,3 +3507,14 @@ mygo时期我们看初华海铃也都觉得很像人
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  aptx8285144  
+##### 378#       发表于 2025-2-28 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67546092&amp;ptid=2247654" target="_blank">江戸前ルナ 发表于 2025-2-28 22:19</a>
+
+这集还行。看鸡团动画不能从上帝视角看，要代入剧中人物的信息差去看。那么基本上绝大多数人物的逻辑还是可 ...</blockquote>
+二次元多重人格或双重人格大部分都是出去大杀四方的，像用在少女乐队里面自家撕逼，还一路从第四集撕到第九集还没结束的，也算是开眼界了，这简直是造了航母却要吵架要不要对自家开炮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
