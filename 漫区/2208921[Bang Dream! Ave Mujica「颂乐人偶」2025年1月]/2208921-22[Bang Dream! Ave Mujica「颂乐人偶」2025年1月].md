@@ -5649,3 +5649,79 @@ MyGo！！！！！ 200 跟蹤， 但都是少女樂隊的精銳</blockquote>
 
 怎么感觉 睦和mortis每回合翻面
 
+
+*****
+
+####  曼彻斯特联  
+##### 31582#       发表于 2025-2-28 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67542928&amp;ptid=2208921" target="_blank">fuochai 发表于 2025-2-28 15:22</a>
+
+怎么感觉 睦和mortis每回合翻面</blockquote>
+从第六话开始不就这样了，没有刻画明确的人格转换规则导致的。
+
+*****
+
+####  大户爱  
+##### 31583#       发表于 2025-2-28 15:26
+
+单个行为你要联系现实的话，还是可以讨论对错的。 不然你不会发现某些人脑回路真是天差地别<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+不过这个访谈不知道楼里之前发过没有。
+[https://bbs.nga.cn/read.php?tid=43401278](https://bbs.nga.cn/read.php?tid=43401278)
+
+mujica是在给mygo补坑，c团确实是最初的五个人，然后这c团五个人确实是mygo-mujica企划的核心和起点。其他人是c团拆队后，再填补的角色。
+
+所以mujica里c团戏份这么重，不见得是场外因素。因为把mygo-mujica合起来的话，c团才是母题。只不过mygo放在前面，留给c团反而喧宾夺主了。
+
+*****
+
+####  aptx8285144  
+##### 31584#       发表于 2025-2-28 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67542353&amp;ptid=2208921" target="_blank">cccpprc 发表于 2025-2-28 14:18</a>
+
+人类范畴内的反派也是反派啊</blockquote>
+确实是，但毕竟在各种“非人”演出衬托下看起来反而没那么可怕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 31585#       发表于 2025-2-28 15:27
+
+鸡团本质是3带2，或者说2带1带2。
+
+大祥，睦头，初华，海铃，大喵。
+海铃和大喵在形象塑造上是必然要被略过的。
+
+但是13话里没有鸡团发家流程，只有速通后一路爆炸。
+
+大部分时间观众都必须要忍受鸡团里各成员的缺点导致的冲突。
+
+*****
+
+####  大户爱  
+##### 31586#       发表于 2025-2-28 15:29
+
+比如祥喵场内场外吵起来，这当然是编剧的大手。
+因为喵梦最初的人设就是“能反驳祥子的强角”
+纯纯的祥子附属物，工具人设定。
+
+
+*****
+
+####  钦念以忱  
+##### 31587#       发表于 2025-2-28 15:31
+
+我看了眼，MAL上这片还有8.24分，还比mygo的8.23高一点点，到底外网啥时候开始掉分呢。
+
+*****
+
+####  qratosones1337  
+##### 31588#       发表于 2025-2-28 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67543004&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-2-28 15:31</a>
+
+我看了眼，MAL上这片还有8.24分，还比mygo的8.23高一点点，到底外网啥时候开始掉分呢。 ...</blockquote>
+没准白皮就好这一口呢
+
