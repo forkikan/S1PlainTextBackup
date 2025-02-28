@@ -6535,3 +6535,89 @@ EP9 欢乐节奏榜</blockquote>
 
 祥子这个从一个极端快速走向另一个极端的设计真不是人能想出来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Raven314  
+##### 31666#       发表于 2025-2-28 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67543900&amp;ptid=2208921" target="_blank">AlterDialog 发表于 2025-2-28 17:08</a>
+不是不可能哦，b站早就有好多有相关背景的人发视频分析症状了</blockquote>
+mygo里祥子误会了灯在天桥上想抓花瓣的行为为紫砂把人强行救下来
+到mujica里祥子又一次阻止紫砂，只不过这次比较顶针，就现在犹如强迫症一样的回收伏笔方式确实<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  单脚着地  
+##### 31667#       发表于 2025-2-28 17:23
+
+我其实对这些乱七八糟的剧情已经不感兴趣了，我只想快点看A队的LIVE
+
+*****
+
+####  Victorino  
+##### 31668#       发表于 2025-2-28 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67543529&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-2-28 16:30</a>
+
+还在聊呢
+
+那就退一万步说我们就确认这一切都是主编想表达的，那意思就是主编想写一个财团大手给离家出走去 ...</blockquote>
+这种剧本在网文感觉还挺常见的啊，甚至现实世界可能都有这种例子，很符合财团姥爷的刻板印象
+
+*****
+
+####  aptx8285144  
+##### 31669#       发表于 2025-2-28 17:24
+
+ 本帖最后由 aptx8285144 于 2025-2-28 17:25 编辑 
+
+战吧那地方，感觉现在是不是比百棕楼还恐怖，有相当部分的观众不要最起码的逻辑，不想思考，只要有一群美少女在一起做事，哪怕是毫无道理的非人行为(别直接砂仁放火就行)，最后也能磕CP<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 31670#       发表于 2025-2-28 17:24
+
+大祥的問題是她被抽打了二十二集還學不會把問題拿出來， 跟朋友一起商量怎解決
+
+偏偏她是一個高權力的無能之輩
+
+永遠是，
+
+問題來了
+
+-》 急轉彎
+
+-〉 創死身邊的人
+
+-》 受不了， 逃
+
+-〉 問題來了
+
+-》 急轉彎
+
+-〉 創死身邊的人
+
+*****
+
+####  未来起航  
+##### 31671#       发表于 2025-2-28 17:24
+
+看的时候比较关注的两个点：白猫和灯出场说话，就意味着官方要给事情定性了。毕竟是这部狗血大作里唯一设定有洞察力的角色。
+结果白猫定的事件是木头的没苦硬吃<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">自己对ccc魔怔似的发癫，结果到这讲了两句人话。实在找不出比“闹麻了”更好的形容词。
+灯则是脑子发昏，递个笔记本完全意义不明。迷茫期间讲两句谜语是能点醒梦中人，人急得要命你还讲谜语不是纯欠打<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">callback能做成恩将仇报的啊？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  曼彻斯特联  
+##### 31672#       发表于 2025-2-28 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67544039&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-28 17:24</a>
+
+战吧那地方，感觉现在是不是比百棕楼还恐怖，有相当部分的观众不要最起码的逻辑，不想思考，只要有一群美少 ...</blockquote>
+我怀疑你括号里的内容过几年就能去掉了。
+

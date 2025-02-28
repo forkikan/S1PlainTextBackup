@@ -60,3 +60,15 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  khxooo  
+##### 16411#       发表于 2025-2-28 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67543947&amp;ptid=2084912" target="_blank">jackyhuang 发表于 2025-2-28 17:14</a>
+早上看没活就把最后的茶壶用了
+
+—— 来自 鹅球 v3.3.96</blockquote>
+今晚过后就有30茶壶拿了，也就等一晚上的事。
+
