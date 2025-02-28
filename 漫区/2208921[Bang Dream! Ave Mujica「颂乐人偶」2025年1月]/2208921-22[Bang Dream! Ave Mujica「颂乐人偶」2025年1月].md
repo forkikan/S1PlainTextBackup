@@ -8271,3 +8271,15 @@ soyo新卡有点像:唉有点无聊，调戏一下立希吧
 
 刚看完《开膛手初华》，我宣布这才是正作！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岬开斗  
+##### 31816#       发表于 2025-3-1 03:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67546484&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-2-28 23:26</a>
+不是，如果是姐妹那更变态了啊，这爹还能不t的啊，老登不早说你那变态爹搞外遇t了不比168亿有用？ ...</blockquote>
+因为老登没苦硬吃<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
