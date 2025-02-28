@@ -2886,3 +2886,29 @@ pc玩走几步一掉帧，手机玩反倒很流畅没感觉有明显卡顿，除
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  童贞阿龙  
+##### 253#       发表于 2025-3-1 01:10
+
+草，跟着wiki走，到海怪那靠主角大剑、船长举双手盾无脑防御加buff硬是熬过去了，想着这游戏难度怎么那么高。到了海底隧道跟着地图走，里面的怪没一个打的过去，靠走位硬是让法师加入了队伍，才发现之前的宝珠可以放在祭祀场后面柱子上<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  DDWarrior  
+##### 254#       发表于 2025-3-1 01:12
+
+求问一下，magpie只能把这个窗口从一丁点直接放大成全屏吗？可以配置成只放大到一定大小的窗口吗？
+
+*****
+
+####  水边井  
+##### 255#       发表于 2025-3-1 01:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67546920&amp;ptid=2246453" target="_blank">DDWarrior 发表于 2025-3-1 01:12</a>
+
+求问一下，magpie只能把这个窗口从一丁点直接放大成全屏吗？可以配置成只放大到一定大小的窗口吗？ ...</blockquote>
+f5可以改
+
