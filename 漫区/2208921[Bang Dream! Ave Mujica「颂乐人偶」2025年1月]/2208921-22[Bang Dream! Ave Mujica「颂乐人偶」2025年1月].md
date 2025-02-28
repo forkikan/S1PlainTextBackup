@@ -7521,3 +7521,74 @@ mortis是假扮睦的不说了，和睦的演技相比，喵梦的演技又是�
 
 9话海铃直接发言只要乐队能组成痛苦也无所谓事后她脸都黑了。
 
+
+*****
+
+####  阿兹尔  
+##### 31749#       发表于 2025-2-28 20:07
+
+接下来就是大家最爱的豪门家族剧lowb版《继承者们》了
+
+*****
+
+####  aptx8285144  
+##### 31750#       发表于 2025-2-28 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67545249&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-2-28 20:05</a>
+
+金毛路边成这样，明显是故意的啊。
+
+这怎么看初华都只有执着于祥子的理由，没有执着于鸡团的理由。</blockquote>
+不是故意不故意的问题，现在感觉剧本别看经常爆炸，其实就是有注水的味道，大祥，睦各自的破事折腾了那么久，无用的信息又多，有一大半独角兽和十本用来满足精神拷打谁谁谁去了（岂止是大祥）
+
+*****
+
+####  595505568  
+##### 31751#       发表于 2025-2-28 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67545180&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-2-28 19:56</a></blockquote>
+素希的卡面，立希永远在吃瘪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  堆雪若叶  
+##### 31752#       发表于 2025-2-28 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67545243&amp;ptid=2208921" target="_blank">DeltaStriker 发表于 2025-2-28 20:04</a>
+
+恢复学生乐队？你问问海铃的账单乐不乐意（？）
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+海铃被下降头也就是看了个学生乐队演出啊，还是crychic有三个富姐给她看眼红了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  凉良  
+##### 31753#       发表于 2025-2-28 20:13
+
+悲哀地想 是不是睦祥最后可能真的连童年回忆都没了
+
+*****
+
+####  adretyu67.  
+##### 31754#       发表于 2025-2-28 20:14
+
+ 本帖最后由 adretyu67. 于 2025-2-28 20:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67545287&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-2-28 20:10</a>
+
+不是故意不故意的问题，现在感觉剧本别看经常爆炸，其实就是有注水的味道，大祥，睦各自的破事折腾了那么 ...</blockquote>
+因为他们思路里摊开来解决问题可能就只需要1话半的时间。
+
+那不就得注水了吗。
+
+比如说567的ccc和解问题，你以为已经和解完成了，结果89还要再来一通。
+
+*****
+
+####  Raven314  
+##### 31755#       发表于 2025-2-28 20:16
+
+第十集应该是睦莫最终回了，因为舅舅说要演三集家族戏<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+下集回忆没有那就是没有
+
