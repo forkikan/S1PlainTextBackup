@@ -5008,3 +5008,11 @@ BanG Dream新作迷你动画52话制作决定
 
 <img src="https://p.sda1.dev/22/63012d87486c60278aab11d2770d7b88/1740748495530.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  丹德里恩  
+##### 27023#       发表于 2025-2-28 21:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">52集pico有点牛逼
+
