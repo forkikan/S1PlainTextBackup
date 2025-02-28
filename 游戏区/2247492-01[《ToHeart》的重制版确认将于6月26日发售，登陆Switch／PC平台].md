@@ -589,3 +589,16 @@ to heart是解决了邂逅的问题，从3月3日到5月3日，谁在什么地�
 </blockquote>
 不过To Heart PC原版是没有显示哪里会有谁的，只有选择地点，这也是我之前搞了原版下来但是没玩太多的原因之一
 
+
+*****
+
+####  穿越护城河  
+##### 52#       发表于 2025-2-28 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67541303&amp;ptid=2247492" target="_blank">760194962 发表于 2025-2-28 12:29</a>
+
+不过To Heart PC原版是没有显示哪里会有谁的，只有选择地点，这也是我之前搞了原版下来但是没玩太多的原 ...</blockquote>
+97版和后来的ps版就这点差距
+
+而且剧情和ps版也不太一样，如果不是冲着R18那点的话，就读ps版或者ps2算了
+
