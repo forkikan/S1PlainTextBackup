@@ -10363,3 +10363,40 @@ Mygo三个月纪念live哈哈哈哈<img src="https://static.saraba1st.com/image/
 
 这会议最搞笑的是明明双方都约定在周末，结果同一时间在ring都撞上了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Lawliet.L  
+##### 32000#       发表于 2025-3-1 18:46
+
+CCC复活不可能不影响mygo，有了团魂的🐱到场挺合适的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zhoujin8584  
+##### 32001#       发表于 2025-3-1 18:51
+
+这集大喵的观战位，确实是观众皮套了
+
+<img src="https://img.saraba1st.com/forum/202503/01/185133i0pqqrfhp4ar9j8q.png" referrerpolicy="no-referrer">
+
+<strong>116539717408262372.png</strong> (168.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-1 18:51 上传
+
+
+*****
+
+####  rollingusagi  
+##### 32002#       发表于 2025-3-1 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67550284&amp;ptid=2208921" target="_blank">DeltaStriker 发表于 2025-3-1 16:10</a>
+
+哈哈 确实
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">抱歉我真没看出论音乐数值鸡团这几个和老团比起来优势在哪里
+
