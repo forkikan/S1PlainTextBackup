@@ -2803,3 +2803,16 @@ KONAMI的世界级ip现在能拿多少出来？
 
 会增加啥新要素不
 
+
+*****
+
+####  灰狼  
+##### 309#       发表于 2025-3-2 04:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67551969&amp;ptid=2090186" target="_blank">Dreammask 发表于 2025-3-1 20:23</a>
+
+看了下试玩发现高速模式bgm也跟着加速的，也不知道Konami能不能改掉
+
+另外居然没想过把2代两个外传拿来当限 ...</blockquote>
+这么糙，那不就真是模拟器加速了
+
