@@ -5109,3 +5109,14 @@ X 上的 干し丿：“捏造120%まんが。 戦いに呼ばれる男と戦い
 
 二刷发现有很多特写镜头里会把机体上的各种安全标志画出来，这是不是高达tv里第一次常规性的体现安全标识？
 
+
+*****
+
+####  ryanghj  
+##### 7806#       发表于 2025-3-1 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67550314&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-3-1 16:16</a>
+
+吉翁这仗怎么打得和输差不多</blockquote>
+和一战后的法国比较像吧，惨胜
+

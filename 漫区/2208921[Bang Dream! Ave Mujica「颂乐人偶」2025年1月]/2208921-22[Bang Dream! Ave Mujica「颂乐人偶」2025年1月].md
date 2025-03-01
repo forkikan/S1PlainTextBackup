@@ -10972,3 +10972,42 @@ Mujica那边甚至完全没有人在意过她的歌词与祥子作曲之间的�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  老贝  
+##### 32047#       发表于 2025-3-1 22:58
+
+ 本帖最后由 老贝 于 2025-3-1 23:01 编辑 
+
+看歌词能看出个知道祥子在重组ccc与Mujica是想要遗忘ccc的替代品一样的破防表情，初华对这两句就算不是害怕也大概率不会是普通的觉得没威胁。
+
+*****
+
+####  与太郎  
+##### 32048#       发表于 2025-3-1 22:59
+
+就不能是NT之间的心灵感应吗
+
+因为初华在脑内摔了睦，睦衰弱了才被mortis摔死了
+
+*****
+
+####  阿兹尔  
+##### 32049#       发表于 2025-3-1 22:59
+
+主要是睦之前还说“祥子就拜托你了”，现在却这样，初华的智商又不支持她看出睦有什么变化，那她眼里睦不就是个绿茶吗，想推睦也算正常了
+
+*****
+
+####  江口夕  
+##### 32050#       发表于 2025-3-1 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67552921&amp;ptid=2208921" target="_blank">小博禹 发表于 2025-3-1 22:31</a>
+灯毕竟只是偶遇过的人，睦子米可是祥的半身青梅，而且之前一起组乐队，还亲手把小祥托付给初华
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以才说她打错人了，心上人的心明明在灯身上。间接把初华这个人设搞的很傻
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
