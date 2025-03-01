@@ -10039,3 +10039,45 @@ ras的剧情是谁负责来着<img src="https://static.saraba1st.com/image/smile
 
 再来一次双r之争的话，应该没那么多人看就是了
 
+
+*****
+
+####  DeltaStriker  
+##### 31968#       发表于 2025-3-1 16:14
+
+贴两个霓虹人二创的mygo和am能力评级表
+注意是二创 有问题别问我.jpg<img src="https://p.sda1.dev/22/2ef62810419b6f92fae0208cc83c402b/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  阿兹尔  
+##### 31969#       发表于 2025-3-1 16:18
+
+说起来前几集的音乐性之争也没人提了
+
+*****
+
+####  syndrome2032  
+##### 31970#       发表于 2025-3-1 16:19
+
+音乐性是往哪开的问题，现在车都没了哪来音乐性。
+
+
+*****
+
+####  DeltaStriker  
+##### 31971#       发表于 2025-3-1 16:20
+
+有人翻译了那还是贴个翻译的吧<img src="https://p.sda1.dev/22/d6e0e22aa42d5b2b286a6978219ffc0e/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  Lyzers  
+##### 31972#       发表于 2025-3-1 16:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人格分裂从第三集正式登场，至少到第十集都还在讲，哪有音乐性登场的余地啊
+

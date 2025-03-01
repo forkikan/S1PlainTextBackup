@@ -4696,3 +4696,11 @@ gqx和红高闯进side6后，有一个镜头是给到一个bit，然后那个bit
 
 话说木马上的吉翁官兵都是旧军服，只有夏利亚和他的两名少尉是新军服，也不知道是不是吉翁囊中羞涩，只能一点点换<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猪突猛进R  
+##### 7776#       发表于 2025-3-1 16:16
+
+吉翁这仗怎么打得和输差不多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
