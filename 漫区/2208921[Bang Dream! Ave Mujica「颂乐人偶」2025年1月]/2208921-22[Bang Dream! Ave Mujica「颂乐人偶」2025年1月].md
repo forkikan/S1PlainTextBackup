@@ -9239,3 +9239,46 @@ mygo第五集的时候我已经是一辈子爱灯党不动摇了，母鸡卡这c
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  钦念以忱  
+##### 31899#       发表于 2025-3-1 12:08
+
+看访谈的意思，睦头这个多重人格真就是演技太强出来的了，和什么童年创伤回忆，缺少睦妈的母爱看来都无关了，那睦妈从动画制作组的角度就算洗白了？
+
+然后祥爹在最后的家族戏里大概率也要洗白，详外公更是剧透盖章了是个好人一直对祥子很好。
+
+也就是这片母鸡卡5人全是神人，反而大人各个都是好人，也太恶心了吧。
+
+
+*****
+
+####  zhzij111  
+##### 31900#       发表于 2025-3-1 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67548785&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-1 12:08</a>
+看访谈的意思，睦头这个多重人格真就是演技太强出来的了，和什么童年创伤回忆，缺少睦妈的母爱看来都无关了 ...</blockquote>
+祥爷的大手太温暖了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 31901#       发表于 2025-3-1 12:14
+
+如果都是好人，舅舅说的斗财阀是啥意思，意思是你再出钱或者再允许我<strong>再组一次商业乐队</strong>？我是老登也绷不住了，你们搞点业余乐队不就得了，海林自己脑抽要搞退其他乐队来证明自己值得信任然而却发现自己没钱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，你们也脑抽再去速通武道管？？
+
+*****
+
+####  甲鱼  
+##### 31902#       发表于 2025-3-1 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67548547&amp;ptid=2208921" target="_blank">lkjasd 发表于 2025-3-1 11:32</a>
+
+第二季补完一言难尽啊，感觉混乱得很，不如mygo啊
+
+—— 来自 鹅球 v3.3.96</blockquote>
+mygo才是那个意外<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
