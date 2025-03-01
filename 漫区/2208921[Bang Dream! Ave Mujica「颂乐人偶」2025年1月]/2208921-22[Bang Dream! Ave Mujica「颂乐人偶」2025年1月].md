@@ -10298,3 +10298,16 @@ Mygo三个月纪念live哈哈哈哈<img src="https://static.saraba1st.com/image/
 
 但是mujica镜头语言实在是太差了，只能说柿本老师那句“没打算让观众完全理解镜头语言”实在是有点变态了
 
+
+*****
+
+####  钦念以忱  
+##### 31994#       发表于 2025-3-1 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67550172&amp;ptid=2208921" target="_blank">风道北来 发表于 2025-3-1 15:47</a>
+
+原案基本能还原得七七八八了吧
+
+牢祥炸了C团结果发现前队友二婚后日子过得蜜里调油，心态爆炸后利用睦头人 ...</blockquote>
+你说的这个原案在整个企划被并入邦邦之后就已经作废不可能再这么拍了。
+
