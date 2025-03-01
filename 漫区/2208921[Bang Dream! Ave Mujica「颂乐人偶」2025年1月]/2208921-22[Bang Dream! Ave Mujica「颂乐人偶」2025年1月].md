@@ -10269,3 +10269,32 @@ Mygo三个月纪念live哈哈哈哈<img src="https://static.saraba1st.com/image/
 
 初華吧
 
+
+*****
+
+####  aptx8285144  
+##### 31991#       发表于 2025-3-1 16:54
+
+ 本帖最后由 aptx8285144 于 2025-3-1 16:55 编辑 
+
+随着猫猫被这种肉麻台词（更别提上帝视角两个人格已经有一个“永远沉睡”的讽刺）打动而说好有趣的女人，<strong>十本独角兽这群这神人已经达成两个团10人的人设全毁的“成就”吧</strong><img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Amiyanya  
+##### 31992#       发表于 2025-3-1 16:59
+
+进手游后人设就会自适应发生改变了
+
+*****
+
+####  与太郎  
+##### 31993#       发表于 2025-3-1 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67550547&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-1 16:54</a>
+
+随着猫猫被这种肉麻台词（更别提上帝视角两个人格已经有一个“永远沉睡”的讽刺）打动而说好有趣的女人，十 ...</blockquote>
+看下集怎么表现吧，这里一说是看着喵梦说的，如果是这样，那还能和“喜欢ego强烈的人”这个一贯的印象靠上边
+
+但是mujica镜头语言实在是太差了，只能说柿本老师那句“没打算让观众完全理解镜头语言”实在是有点变态了
+

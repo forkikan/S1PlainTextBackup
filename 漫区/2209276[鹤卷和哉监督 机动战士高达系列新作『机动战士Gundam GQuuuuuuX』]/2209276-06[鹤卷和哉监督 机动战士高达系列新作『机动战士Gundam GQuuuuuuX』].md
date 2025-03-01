@@ -4756,3 +4756,16 @@ gqx和红高闯进side6后，有一个镜头是给到一个bit，然后那个bit
 还有那个mav战术，那不就是长机僚机么……这玩意 ...</blockquote>
 mav战术我比较喜欢考据哥的假药：这是夏利亚捏造的战术，两ot用mav战术会**降低对nt的胜率，mav战术本质是给nt用的战术，一切都是夏利亚在为夏亚闪电归来铺路
 
+
+*****
+
+####  xwr  
+##### 7782#       发表于 2025-3-1 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67550372&amp;ptid=2209276" target="_blank">太极八爪鱼 发表于 2025-3-1 16:24</a>
+
+我记得台词不是为了联邦残党是必要之恶，是为了和平。
+
+还有那个mav战术，那不就是长机僚机么……这玩意 ...</blockquote>
+我记得应该两者都有，北美上映有字幕，什么Earth Federation Remnants<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
