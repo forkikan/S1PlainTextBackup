@@ -9974,3 +9974,16 @@ ras的剧情是谁负责来着<img src="https://static.saraba1st.com/image/smile
 
 你们他妈的是个乐队耶
 
+
+*****
+
+####  huxiaopao163  
+##### 31962#       发表于 2025-3-1 15:59
+
+ 本帖最后由 huxiaopao163 于 2025-3-1 16:02 编辑 
+
+啊，喵梦说的恶心，如果只是在说莫在演，甚至重点是说她演技不好，感觉差点意思。
+要是喵梦基于手中情报，指出莫，海，初，三个都是谎话连篇的神人，感觉比较带劲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
