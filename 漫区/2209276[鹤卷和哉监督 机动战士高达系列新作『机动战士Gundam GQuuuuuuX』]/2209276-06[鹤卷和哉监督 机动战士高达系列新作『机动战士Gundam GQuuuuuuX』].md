@@ -4680,3 +4680,19 @@ gqx和红高闯进side6后，有一个镜头是给到一个bit，然后那个bit
 
 不知道0085部分有没有可能真的变成第一部不杀人的高达动画
 
+
+*****
+
+####  xwr  
+##### 7775#       发表于 2025-3-1 16:10
+
+ 本帖最后由 xwr 于 2025-3-1 16:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67550176&amp;ptid=2209276" target="_blank">kuriri 发表于 2025-3-1 15:49</a>
+
+所以红高达可能确实是不杀吉翁士兵的
+
+不知道0085部分有没有可能真的变成第一部不杀人的高达动画 ...</blockquote>
+也许主角团三人应该可以，虽然现在就直接告诉你军团战很危险，除了掉头算赢以外没有任何其他规则，夏利亚这边难说。
+
+话说木马上的吉翁官兵都是旧军服，只有夏利亚和他的两名少尉是新军服，也不知道是不是吉翁囊中羞涩，只能一点点换<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

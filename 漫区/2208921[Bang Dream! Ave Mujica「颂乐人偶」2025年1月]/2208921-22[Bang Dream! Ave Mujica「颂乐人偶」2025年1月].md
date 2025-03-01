@@ -9987,3 +9987,55 @@ ras的剧情是谁负责来着<img src="https://static.saraba1st.com/image/smile
 
 —— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  aptx8285144  
+##### 31963#       发表于 2025-3-1 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67550237&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-3-1 15:59</a>
+
+啊，喵梦说的恶心，如果只是在说莫在演，甚至重点是说她演技不好，感觉差点意思。
+
+要是喵梦基于手中情报， ...</blockquote>
+后者才是一针见血，前者就太爆笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 31964#       发表于 2025-3-1 16:04
+
+原创作品翻车的最大原因通常都是不愿意好好讲故事，都在追求故事性之外的花活，不是说不能整花活，咱好歹得把故事说明白吧
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  DeltaStriker  
+##### 31965#       发表于 2025-3-1 16:10
+
+哈哈 确实<img src="https://p.sda1.dev/22/81f73e650b492104a1eac4b01ab37d40/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  xyion  
+##### 31966#       发表于 2025-3-1 16:11
+
+柿本能让多重人格贯穿鸡炸团、ccc和解、鸡重组三个核心事件，他肯定觉得这是个好活。
+
+说不定人得意得很呢，本来每一个事件都不太容易设计，现在拿出个莫全串起来了。
+
+然后观众吐了一地。
+
+*****
+
+####  阿兹尔  
+##### 31967#       发表于 2025-3-1 16:12
+
+再来一次双r之争的话，应该没那么多人看就是了
+
