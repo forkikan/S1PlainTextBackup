@@ -10400,3 +10400,17 @@ CCC复活不可能不影响mygo，有了团魂的🐱到场挺合适的<img src=
 —— 来自 鹅球 v3.3.96-alpha</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">抱歉我真没看出论音乐数值鸡团这几个和老团比起来优势在哪里
 
+
+*****
+
+####  南宮凝香  
+##### 32003#       发表于 2025-3-1 19:01
+
+在貓的角度就是上次去拉尿回來就被兄弟的第二人格偷家，
+
+這次雙馬尾又打算來拆家
+
+還好兄弟帶人來抓雙馬尾
+
+Homie 好， Homie 有趣
+
