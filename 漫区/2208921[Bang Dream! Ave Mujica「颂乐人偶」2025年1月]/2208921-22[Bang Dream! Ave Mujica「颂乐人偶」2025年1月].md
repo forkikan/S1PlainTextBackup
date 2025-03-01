@@ -8706,3 +8706,26 @@ Soyo 想組命運共同體的三思， 同甘共苦那種
 Soyo 想組命運共同體的三思， 同甘共苦那種</blockquote>
 睦一直很重视crychic是祥子自己之前就说过的，甚至原话直接打动莫老师，不如当时就问问为什么祥子和莫老师都觉得睦重视crychic？而祥子就是不知道睦为了她高兴而组回crychic的想法才只有睦自始自终喜欢crychic一个理由。
 
+
+*****
+
+####  zhoujin8584  
+##### 31852#       发表于 2025-3-1 09:42
+
+<img src="https://img.saraba1st.com/forum/202503/01/094217cspyhhuu3v78zxyx.jpg" referrerpolicy="no-referrer">
+
+<strong>axw3Q2v-2072XaT3cSn0-t4.jpg.medium.jpg</strong> (138.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-1 09:42 上传
+
+*****
+
+####  zhoujin8584  
+##### 31853#       发表于 2025-3-1 09:44
+
+重视crychic是一回事，大家都重视好聚好散以后还是一辈子的白月光。
+
+重组了就是尸变的白月光了，不如说她就是想在人格剧场吃鸡，不然不至于到这一步的。
+
