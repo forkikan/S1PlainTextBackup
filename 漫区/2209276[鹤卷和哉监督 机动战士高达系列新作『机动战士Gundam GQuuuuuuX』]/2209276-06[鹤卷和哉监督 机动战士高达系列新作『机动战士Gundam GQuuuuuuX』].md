@@ -4474,3 +4474,29 @@ x上看见的，麻球头发反色是nt角色常见的薄荷绿头发，修司�
 
 —— 来自 HONOR BVL-AN00, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  刺客ares  
+##### 7757#       发表于 2025-3-1 12:58
+
+https://x.com/zoo0420/status/1895454815926501635?s=46
+
+<img src="https://img.saraba1st.com/forum/202503/01/125752zp11xppyzrpwqpo9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0465.jpeg</strong> (770.53 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-1 12:57 上传
+
+反色都有二创了是吧
+
+
+*****
+
+####  虛無迴廊  
+##### 7758#       发表于 2025-3-1 13:02
+
+在4月8号到来之前大家都会这么无聊的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
