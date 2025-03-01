@@ -10081,3 +10081,101 @@ ras的剧情是谁负责来着<img src="https://static.saraba1st.com/image/smile
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人格分裂从第三集正式登场，至少到第十集都还在讲，哪有音乐性登场的余地啊
 
+
+*****
+
+####  zhoujin8584  
+##### 31973#       发表于 2025-3-1 16:24
+
+<blockquote>huxiaopao163 发表于 2025-3-1 15:59
+啊，喵梦说的恶心，如果只是在说莫在演，甚至重点是说她演技不好，感觉差点意思。
+
+要是喵梦基于手中情报， ...</blockquote>
+即使从海铃看。
+
+海铃自诩自己成功让睦回归，问她过程支支吾吾的，结果端上来的就是莫假扮睦，吉他假弹吗？还宣称退出了其他乐队哭自己的决心，哪怕是弱化版的黑刀之夜也这么多量了，那就是不可信任啊。还搁这卖惨上了，好神经啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 31974#       发表于 2025-3-1 16:25
+
+感觉鸡狗在学习和人际方面应该要被老团拉的厉害。
+
+前者没什么意义，反正最后都能上大学继续搞乐队。后者，后者那就是新版本的问题了，大家都有不想说的东西。
+
+*****
+
+####  swessia  
+##### 31975#       发表于 2025-3-1 16:25
+
+Mygo三个月纪念live哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">突出个塑料感
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 31976#       发表于 2025-3-1 16:25
+
+ 本帖最后由 天空塔书记官 于 2025-3-1 16:27 编辑 
+
+其实可以把“多重人格”和音乐性一起讲，不同人格对应不同风格的音乐，可惜，没这种可能
+
+估计这版剧本设计之初就是要故意避开音乐要素的融入，这很难评<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 31977#       发表于 2025-3-1 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67549960&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-1 15:09</a>
+
+看最近的訪談
+
+你會覺得要不是柿本哥哥知道搞砸了硬行說成是自己的有心設計</blockquote>
+外表美这玩意吗，<strong>二次元美少女比狗还多</strong>，我真不觉得大祥的美已经到了足以让我喜欢的地步<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">，因为这人设实在太玛丽苏了，无论是爱还是恨，这群主创让人无语
+
+
+*****
+
+####  天空塔书记官  
+##### 31978#       发表于 2025-3-1 16:32
+
+往最好了说，即使真能用神反转在最后几集把一切都圆回来，那这之前所用的篇幅有什么意义，纯纯的水时间吗
+
+这不是一个创作者应有的态度<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  syndrome2032  
+##### 31979#       发表于 2025-3-1 16:32
+
+多重人格纯粹就是个推进剧情的点子。
+基本上很难和音乐风格挂钩。
+
+总不能说睦喜欢ccc音乐，莫喜欢鸡团音乐。这下是真的要生死决了。
+
+*****
+
+####  南宮凝香  
+##### 31980#       发表于 2025-3-1 16:33
+
+實際上喵祥也不是在談音樂性
+
+純粹是表演：音樂 的佔比
+
+還是演技對音樂
+
+但尷尬的是在本作中對演這兩點的人格都是偽物
+
+睦的吉他不會唱歌
+
+莫的演技不真
+
+偽物戰偽物有意思嗎？
+

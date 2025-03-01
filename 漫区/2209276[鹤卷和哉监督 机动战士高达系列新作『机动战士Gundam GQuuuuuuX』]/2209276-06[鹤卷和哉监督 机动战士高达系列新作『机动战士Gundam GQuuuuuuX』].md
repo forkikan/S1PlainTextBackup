@@ -4704,3 +4704,23 @@ gqx和红高闯进side6后，有一个镜头是给到一个bit，然后那个bit
 
 吉翁这仗怎么打得和输差不多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  0aleph37  
+##### 7777#       发表于 2025-3-1 16:24
+
+靠偶发的泽克诺瓦赢了，但是经济缓不过来吧，只能靠裁军减少开支
+
+*****
+
+####  太极八爪鱼  
+##### 7778#       发表于 2025-3-1 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67550285&amp;ptid=2209276" target="_blank">xwr 发表于 2025-3-1 00:10</a>
+
+也许主角团三人应该可以，虽然现在就直接告诉你军团战很危险，除了掉头算赢以外没有任何其他规则，夏利亚 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">我记得台词不是为了联邦残党是必要之恶，是为了和平。
+
+还有那个mav战术，那不就是长机僚机么……这玩意和持续发明轮子有什么区别<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
