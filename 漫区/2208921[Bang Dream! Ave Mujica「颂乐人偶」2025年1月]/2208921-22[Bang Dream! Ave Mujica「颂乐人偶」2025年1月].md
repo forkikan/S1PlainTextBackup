@@ -10826,3 +10826,16 @@ gv一样的运镜
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  江口夕  
+##### 32036#       发表于 2025-3-1 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67552609&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-1 21:44</a>
+不考虑包饺子，角色最怕的不是“做恶”而是怕没有觉悟或弱智，初华是后者，当年那个神秘女人一去不复返 ...</blockquote>
+初华的bug是明明知道ccc，结果看到ccc又破防了。初华的点从来不是什么乐队不乐队，而是大祥跟谁好。组乐队对于初华来说只有和祥子相处这一点。
+看到大祥对灯眉目传情的视频，却把睦甩出去，非常蛋疼，她该甩的是灯。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
