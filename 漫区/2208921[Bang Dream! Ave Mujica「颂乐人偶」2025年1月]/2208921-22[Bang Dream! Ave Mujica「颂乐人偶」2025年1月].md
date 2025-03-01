@@ -8561,3 +8561,29 @@ soyo新卡有点像:唉有点无聊，调戏一下立希吧
 
 這是黑心大廠的HR嗎？
 
+
+*****
+
+####  swessia  
+##### 31840#       发表于 2025-3-1 09:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">第六集还有的救，第七集才是判死刑
+
+哦第六集还在敲打章鱼，那确实难救了
+
+章鱼崩了母鸡卡就崩了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  影伴光生  
+##### 31841#       发表于 2025-3-1 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67547144&amp;ptid=2208921" target="_blank">草化木 发表于 2025-3-1 02:53</a>
+刚看完《开膛手初华》，我宣布这才是正作！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开膛手初华至少发挥了主观能动性
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
