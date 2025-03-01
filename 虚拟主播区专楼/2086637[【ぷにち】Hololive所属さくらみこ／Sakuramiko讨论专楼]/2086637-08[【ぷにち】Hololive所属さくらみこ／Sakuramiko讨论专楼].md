@@ -1114,3 +1114,34 @@ bn
 
 这又是什么玩意，cover法务最近又松弛了是吧
 
+
+*****
+
+####  holofan  
+##### 10834#       发表于 2025-3-1 19:57
+
+<img src="https://img.saraba1st.com/forum/202503/01/195606a5z252o752o205oi.png" referrerpolicy="no-referrer">
+
+<strong>【 #ホロタイピング最速王 】ホロライブタイピング最速王決定戦💻🏆！！！【ホロライ.png</strong> (178.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-1 19:56 上传
+
+这前8强这么看很平衡了，只可惜今天唯2个参加的ID全部临时取消不参加了
+
+说明打字快的不分国界
+
+*****
+
+####  holofan  
+##### 10835#       发表于 2025-3-1 20:10
+
+<img src="https://img.saraba1st.com/forum/202503/01/201043eudymy4ymmy4ym6h.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (145.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-1 20:10 上传
+

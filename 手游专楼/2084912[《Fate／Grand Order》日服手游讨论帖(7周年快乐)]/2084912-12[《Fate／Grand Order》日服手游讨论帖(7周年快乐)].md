@@ -335,3 +335,13 @@
 
 调整了下，第十队一回合干掉
 
+
+*****
+
+####  qixinno2  
+##### 16436#       发表于 2025-3-1 20:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太强了
+
+【【FGO】我们月姬玩家真是太有操作辣！土之奥尔加玛丽，4队首通思路阵容参考】 [https://www.bilibili.com/video/B ... ec0f62ca61a2eb74538](https://www.bilibili.com/video/BV15MXSYKEV1/?share_source=copy_web&amp;vd_source=666108a9094a0ec0f62ca61a2eb74538)
+
