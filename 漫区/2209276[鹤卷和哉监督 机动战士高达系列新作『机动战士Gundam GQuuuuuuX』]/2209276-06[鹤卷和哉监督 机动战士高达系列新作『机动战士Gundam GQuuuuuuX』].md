@@ -5128,3 +5128,15 @@ X 上的 干し丿：“捏造120%まんが。 戦いに呼ばれる男と戦い
 
 吉翁这真的是“赢了吗？如赢。”
 
+
+*****
+
+####  被子十三  
+##### 7808#       发表于 2025-3-2 00:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67550867&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-3-1 17:55</a>
+有点军事常识都知道，俘获的孤品军舰维护成本相当高。电子系统、武器系统什么的，制式不一样，标准不一样， ...</blockquote>
+辽宁舰…<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
