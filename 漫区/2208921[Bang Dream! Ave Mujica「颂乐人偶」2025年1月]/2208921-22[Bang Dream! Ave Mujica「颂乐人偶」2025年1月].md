@@ -8418,3 +8418,16 @@ soyo新卡有点像:唉有点无聊，调戏一下立希吧
 已知剧透10话要爆睦头已完<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 这种展开就是连祥子最后的逻辑都要敲碎在地了。
 
+
+*****
+
+####  堆雪若叶  
+##### 31829#       发表于 2025-3-1 08:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67547447&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-3-1 07:58</a>
+
+已知剧透10话要爆睦头已完
+
+这种展开就是连祥子最后的逻辑都要敲碎在地了。 ...</blockquote>
+也不好说敲烂祥子剩下的逻辑和现在被莫老师唬住哪个更差了，正常的剧本会说破而后立，但母鸡卡的底层逻辑是祥子破而破破破破<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
