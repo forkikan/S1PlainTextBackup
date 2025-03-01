@@ -10342,3 +10342,24 @@ Mygo三个月纪念live哈哈哈哈<img src="https://static.saraba1st.com/image/
 
 小莫你竟然为了阻止ccc重组愿意做到这种程度，没白交这朋友了属于是。
 
+
+*****
+
+####  南宮凝香  
+##### 31998#       发表于 2025-3-1 18:37
+
+真要說的話這會議就是最高規格了
+
+貓一般集會都不出現
+
+這次乖乖在旁邊吃抹茶芭菲
+
+屬於談不擺就以擲杯為號， 刀斧手上前的陣勢
+
+*****
+
+####  adretyu67.  
+##### 31999#       发表于 2025-3-1 18:39
+
+这会议最搞笑的是明明双方都约定在周末，结果同一时间在ring都撞上了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
