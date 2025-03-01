@@ -4860,3 +4860,22 @@ mav战术我比较喜欢考据哥的假药：这是夏利亚捏造的战术，�
 
 吉翁战后经济不行是明确的，因为已经比不过side 6了，这个鹤卷说过
 
+
+*****
+
+####  xwr  
+##### 7792#       发表于 2025-3-1 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67550654&amp;ptid=2209276" target="_blank">太极八爪鱼 发表于 2025-3-1 17:13</a>
+
+吉翁战后经济不行也是有可能的。战后没吃到红利，前面经济全靠军工。不过台词里有一句，你们还在用6年前的 ...</blockquote>
+当时看的时候我也觉得奇怪，这到底是什么意思，难道是作为拯救基西莉亚的功勋舰应该进博物馆，然后给夏利亚发个新锐舰，但是吉翁没钱然后告诉夏利亚你凑合着用吧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xwr  
+##### 7793#       发表于 2025-3-1 17:42
+
+军团战，毫无公平可言，扎古双机都配有经典机炮，主角方就热能斧和链锤，开始前还要散布米粒，为什么没有远程武器，原来是主角团队买不起，这要不是俩高达那不是妥妥送人头，这赛事急需正规化<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
