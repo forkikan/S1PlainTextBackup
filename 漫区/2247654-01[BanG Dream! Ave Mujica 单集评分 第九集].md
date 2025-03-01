@@ -3624,3 +3624,15 @@ mygo时期我们看初华海铃也都觉得很像人
 
 而鸡方面某人孤注一掷了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FanKiE  
+##### 391#       发表于 2025-3-1 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67550186&amp;ptid=2247654" target="_blank">sdeplee 发表于 2025-3-1 15:50</a>
++1 当成X音几分钟短剧合集来看的话节奏正好</blockquote>
+所以说🐔实际上是已经掌握了短视频时代的精华奥义了，可谓遥遥领先！<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
