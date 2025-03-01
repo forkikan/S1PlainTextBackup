@@ -11766,3 +11766,28 @@ staff还是太有感情了，要是我这种摸鱼怪写mygo和mujica，直接�
 
 <img src="https://img.saraba1st.com/forum/202503/02/021523tnlppc9gl2jw0e5m.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  影伴光生  
+##### 32120#       发表于 2025-3-2 02:18
+
+ 本帖最后由 影伴光生 于 2025-3-2 02:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67554160&amp;ptid=2208921" target="_blank">岬开斗 发表于 2025-3-2 02:10</a>
+现在是剧本问题，跟成本关系不大，总不能说加钱剧本就更好了吧。
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+制作也不太上心吧，目前这些观感糟糕的地方（尤其是4集往后）大概率都是一年前就做好了，之后无人在意衔接，只是随意堆砌，就冲着短视频平台爆款片段努力，然后还把乐队主题核心的live做砸了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  sauron.j  
+##### 32121#       发表于 2025-3-2 02:23
+
+这几年的原创番剧本困境有个共性，都陷入了在原地打转的窘境，叨逼叨好几集还不前进，想要找个锚点结果都找到老登身上去
+
+宽松世代大约的确已经无法深刻理解人生分阶段心境的概念了
+

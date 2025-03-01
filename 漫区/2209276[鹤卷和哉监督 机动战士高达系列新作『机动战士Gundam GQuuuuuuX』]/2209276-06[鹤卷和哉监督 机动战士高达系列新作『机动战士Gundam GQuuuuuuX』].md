@@ -5198,3 +5198,16 @@ X 上的 干し丿：“捏造120%まんが。 戦いに呼ばれる男と戦い
 — from S1 Next Goose v3.3.96</blockquote>
 鹤卷设成0085年就是为了回避有奶奶头的存在还已经从木星归来搞事破坏设定的平衡，已经被禁赛了
 
+
+*****
+
+####  AraTurambar  
+##### 7814#       发表于 2025-3-2 02:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67554085&amp;ptid=2209276" target="_blank">太极八爪鱼 发表于 2025-3-2 01:49</a>
+
+还是内部有矛盾吧，要不然按汤大基（还活着）的性格，不是说屠就屠了，灭side 6如灭side 2。经济不行没啥 ...</blockquote>
+内部矛盾、经济困难的因素都有吧，可能已经连开拨费都发不出了。
+
+以及吉翁拿下月神2的话应该手里多了很多很多核武器吧。
+
