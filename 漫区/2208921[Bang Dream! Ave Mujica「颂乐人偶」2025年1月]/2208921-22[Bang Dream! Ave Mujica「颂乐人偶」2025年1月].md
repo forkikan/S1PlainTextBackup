@@ -11966,3 +11966,16 @@ mujica内部的路线矛盾可以让喵梦和海铃发起，喵梦更在意热�
 
 双重人格就是便宜设定有啥巧妙的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  الطائر  
+##### 32134#       发表于 2025-3-2 06:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67554375&amp;ptid=2208921" target="_blank">الطائر 发表于 2025-3-2 05:38</a>
+
+叙诡说还在追我，第9集灯手上的笔记本是绿色竖边编号AP-98红牵牛花，递给初华时变成了蓝绿色竖边编号CC-05 ...</blockquote>
+2020年满月，以旧历15日（中国农历十五）计，有9月2日、10月1日、10月31日、11月29日。
+
+参考 [@玖羽](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=13058) 总结的时间线。9月2日在武道馆公演之前，母鸡卡还未摘面具。10月1日母鸡卡已经解散，祥子离开初华家，还在祥爹家。10月31日祥子在睦家门外站岗。
+
