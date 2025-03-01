@@ -5062,3 +5062,19 @@ MAV是一年战争结束后才被夏利亚写入吉翁军教科书并推广到�
 
 2025-3-1 19:38 上传
 
+
+*****
+
+####  kuriri  
+##### 7802#       发表于 2025-3-1 20:50
+
+还有一种可能魔女口中的Mav只是亲友，鹤卷说麻球就不知道mav 是一种战术，只是当作“亲友”的含义在使用，和扎古一样,mav这个词的含义也民用化了
+
+<img src="https://img.saraba1st.com/forum/202503/01/204927lvekafefifbhkbhk.png" referrerpolicy="no-referrer">
+
+<strong>IMG_0033.png</strong> (617.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-1 20:49 上传
+
