@@ -11011,3 +11011,57 @@ Mujica那边甚至完全没有人在意过她的歌词与祥子作曲之间的�
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  灼眼的夏娜酱  
+##### 32051#       发表于 2025-3-1 23:09
+
+现在初华小姨和双子的说法哪个是真的还是一真一假<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 32052#       发表于 2025-3-1 23:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">老登女儿更靠谱吧
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  zhoujin8584  
+##### 32053#       发表于 2025-3-1 23:11
+
+<blockquote>小博禹 发表于 2025-3-1 22:31
+灯毕竟只是偶遇过的人，睦子米可是祥的半身青梅，而且之前一起组乐队，还亲手把小祥托付给初华
+
+ ...</blockquote>
+但是初华攻略小祥，也得靠莫给攻略，也许融合后睦自觉又到助攻位了，有这个可能
+
+*****
+
+####  skylah  
+##### 32054#       发表于 2025-3-1 23:11
+
+万一双子小姨都是真的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  非建政专用号  
+##### 32055#       发表于 2025-3-1 23:12
+
+大初老师看过羊叫live的，羊叫小灯不过尔尔
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  滑稽Captain  
+##### 32056#       发表于 2025-3-1 23:15
+
+理论上CryChic的歌词和MyGO的歌词都是灯内心的呐喊，对于初华来说她真能分明白这个呐喊是属于哪一边的吗，她应该也不知道MyGO的歌词有迷茫的要素吧
+
+我个人理解那段一方面是强调灯在作词上的天才，初华一看也就理解感受到了灯的感情，但同时在另一方面，结合前面睦说的话和爱音那里看到的ep7的live，初华注意到了灯祥的神交程度可能远超自己这个代餐，不愿意接受灯在祥子心中的地位真的在自己之上，才会矢口否认，试图将灯推离CryChic推向MyGO，阻挠CryChic的复活
+
