@@ -4667,3 +4667,16 @@ gqx和红高闯进side6后，有一个镜头是给到一个bit，然后那个bit
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
 
+
+*****
+
+####  kuriri  
+##### 7774#       发表于 2025-3-1 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67550029&amp;ptid=2209276" target="_blank">xwr 发表于 2025-3-1 15:20</a>
+
+应该没有吧，全片应该都没有扎古爆炸的镜头。我就记得宇宙战扎古被砍脑袋，红高达一次，军团战gqx一次，地 ...</blockquote>
+所以红高达可能确实是不杀吉翁士兵的
+
+不知道0085部分有没有可能真的变成第一部不杀人的高达动画
+
