@@ -8431,3 +8431,48 @@ soyo新卡有点像:唉有点无聊，调戏一下立希吧
 这种展开就是连祥子最后的逻辑都要敲碎在地了。 ...</blockquote>
 也不好说敲烂祥子剩下的逻辑和现在被莫老师唬住哪个更差了，正常的剧本会说破而后立，但母鸡卡的底层逻辑是祥子破而破破破破<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhoujin8584  
+##### 31830#       发表于 2025-3-1 08:16
+
+第10话是莫老师献舍吧
+
+*****
+
+####  gane1010  
+##### 31831#       发表于 2025-3-1 08:16
+
+这不是我想看的 Mujica<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Victorino  
+##### 31832#       发表于 2025-3-1 08:21
+
+<blockquote>DeltaStriker 发表于 2025-2-28 19:54
+还不如写爷爷突然似了比较好 大象和初华有任何比较拟人的理由说得动爷爷吗
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+写老登突然死了的话那就真的成了小时代了
+
+
+*****
+
+####  akiomn  
+##### 31833#       发表于 2025-3-1 08:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67547301&amp;ptid=2208921" target="_blank">kooler2002 发表于 2025-3-1 06:08</a>
+拿祥睦垫素莫是最傻逼操作了，请问柿本是不是觉得莫是什么高人气角色值得别人厨？记住风评好不代表能厨， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要不是拿睦祥垫素莫的问题，是这个双重人格写的太长了，又臭又长，2-10集全在写这玩意，还毫无进展，睦死了活活了死，下集又要打赢复活赛了。整个过程里演出还很差，搞得海初喵没篇幅了，最后boss初华最多只有2集的篇幅了
+连推特上的日本人都在吐槽双重人格太长了，为什么还不写初华
+都这个地步了，明眼人全看得出柿本的那点心思，这逼大纲到底怎么给过？
+
+*****
+
+####  operatbig  
+##### 31834#       发表于 2025-3-1 08:25
+
+想起来对祥子的塑造是真的优秀，她的坏和糯并不是监督或是编剧的创作失误，而是有迹可寻的精心设计，是从一而终高度统一的，所以大伙才能抽得这么爽，以至于所有人每周四都急不可耐想着新的一周能怎么抽她。
+
