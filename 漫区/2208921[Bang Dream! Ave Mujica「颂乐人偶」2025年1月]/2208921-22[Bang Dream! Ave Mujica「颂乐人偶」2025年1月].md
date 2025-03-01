@@ -9343,3 +9343,18 @@ mygo才是那个意外<img src="https://static.saraba1st.com/image/smiley/face20
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  zhoujin8584  
+##### 31910#       发表于 2025-3-1 12:42
+
+我最感兴趣的是大墨老师现在被场外盖章假弹了，她要怎么上live，还有新曲子
+
+*****
+
+####  Mika-S  
+##### 31911#       发表于 2025-3-1 12:44
+
+下集吉他睦一秒原地复活不就没事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
