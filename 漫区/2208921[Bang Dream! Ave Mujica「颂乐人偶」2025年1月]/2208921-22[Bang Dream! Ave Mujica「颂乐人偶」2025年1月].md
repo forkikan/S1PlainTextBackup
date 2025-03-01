@@ -8781,3 +8781,13 @@ Soyo 想組命運共同體的三思， 同甘共苦那種</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  zhoujin8584  
+##### 31859#       发表于 2025-3-1 10:09
+
+还是擅自以为的锅
+
+如果说是心情没有传达到，在爱灯明确告知睦想见她的情况下，还需要爽姐拽过去，这个情节设计太要命了。<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
