@@ -4408,3 +4408,12 @@ GQ夏亚CV新祐树特意去模仿名台词还是能有7，8成像的，这个�
 
 楼友这么搞，我的期待值已经拉满了
 
+
+*****
+
+####  虛無迴廊  
+##### 7752#       发表于 2025-3-1 11:42
+
+x上看见的，麻球头发反色是nt角色常见的薄荷绿头发，修司反色是和夏亚一样的金发碧眼<img src="https://p.sda1.dev/22/82c54a12010f4d9a19a9f7f588ab7ec7/20250301_113952.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/8aaf4e5e6d5ce81eb78d7079da7ec900/20250301_113943.jpg" referrerpolicy="no-referrer">
+

@@ -9124,3 +9124,91 @@ mygo第五集的时候我已经是一辈子爱灯党不动摇了，母鸡卡这c
 
 2025-3-1 11:34 上传
 
+
+*****
+
+####  天空塔书记官  
+##### 31889#       发表于 2025-3-1 11:37
+
+现在一个很明显的问题，睦祥的关系性根本站不住脚，就摁造工业糖精呗，以柿本设计的“人格分裂”来解释人物的塑造，既无趣又无聊，还无益于对角色形象的完善，纯纯的debuff，说是剧情推进和矛盾发展的主轴，但事实上并不能很好地衔接剧情和人物，可以被其他人物关系轻松取代，除了挤占团队和各成员的塑造空间外没有任何意义
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  钦念以忱  
+##### 31890#       发表于 2025-3-1 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67548447&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-3-1 11:19</a>
+
+这个明摆着是哪里来的，舅舅剧透吗
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+一个确实是舅舅剧透，一个是看访谈也能看出来若叶睦的这个多重人格实在没活了。
+
+*****
+
+####  ads147147  
+##### 31891#       发表于 2025-3-1 11:39
+
+转出租往灯家走也很合理，灯家都在月之森边上，平时肯定是坐车去的月之森，睦顶号后马上叫车过去也时间差不多，毕竟之后还要去星象馆真花了几个小时哪里来得及，人家肯定闭馆了。
+
+黄昏时间其实挺短的。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  钦念以忱  
+##### 31892#       发表于 2025-3-1 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67548569&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-1 11:34</a>
+
+虽然有点夸张，但结论合理</blockquote>
+我觉得睦头这三小时拿来弹弹吉他，可能之后也不会死得这么快。
+
+
+*****
+
+####  aptx8285144  
+##### 31893#       发表于 2025-3-1 11:41
+
+已知家族戏码的主角是初华，“第二主角”是大祥，而被疯狂加码双人格到多重人格的睦是不是家族戏码的第三主角都存疑（可能就不重要），而这种人格戏码基本上就是对内内耗甚至还没折腾完，这也算是独角兽和十本打造出来的新一代角色版的德不配位吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 31894#       发表于 2025-3-1 11:41
+
+<blockquote>zhoujin8584 发表于 2025-3-1 11:34
+虽然有点夸张，但结论合理</blockquote>
+超人姐妹
+
+*****
+
+####  南宮凝香  
+##### 31895#       发表于 2025-3-1 11:41
+
+<blockquote>天空塔书记官 发表于 2025-3-1 11:37
+现在一个很明显的问题，睦祥的关系性根本站不住脚，就摁造工业糖精呗，以柿本设计的“人格分裂”来解释人物 ...</blockquote>
+整季母雞卡就沒有好吃的 CP 糖
+
+柿本哥哥這方面差🦄太多
+
+*****
+
+####  ads147147  
+##### 31896#       发表于 2025-3-1 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67548620&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-1 11:41</a>
+整季母雞卡就沒有好吃的 CP 糖
+
+柿本哥哥這方面差🦄太多</blockquote>
+设计感太强，又缺乏角色之间故事火花带来的浪漫性。
+
+直男审美。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
