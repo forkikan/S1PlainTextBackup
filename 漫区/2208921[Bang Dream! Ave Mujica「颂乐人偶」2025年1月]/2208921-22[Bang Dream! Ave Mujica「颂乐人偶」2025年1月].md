@@ -11633,3 +11633,41 @@ ave的第一首动画插入曲下话才会到，看看到底是怎么个事吧
 
 你们Ave Mujica这团名真有在赞美音乐吗？
 
+
+*****
+
+####  ccared  
+##### 32109#       发表于 2025-3-2 01:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">早期讨论里，大喵摘面具破坏世界观但没有受到惩罚这件事，其实很大程度上关系到mujica这个团的定性。如果这个世界观对mujica的成员全都无关紧要，那mujica的音乐性就不成立，和成员只是有个代号的匿名乐队找了个噱头烂炒没有区别。
+
+但这个讨论迅速被什么职场番啊大人的大手啊拐到别的地方去了，当时的女女关系性厨子也没有真把mujica世界观当回事，只是单纯拿这玩意儿当弹药打角色厨黑大战。
+
+现在再拿出来质疑已经没什么意义了。
+
+*****
+
+####  小博禹  
+##### 32110#       发表于 2025-3-2 01:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67553998&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-3-2 01:29</a>
+最可怕的是制作组对于鸡团的角色是没有爱的，创作者对于角色的热情一点都没有
+
+作为对比的c团漫画，可以看出 ...</blockquote>
+母鸡卡其他角色也没写好呀<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">而且按访谈，与其说十本是恨角色，不如说他是倾尽了自己的理解的（
+
+只是他的理解与一般大众不太一样<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  小博禹  
+##### 32111#       发表于 2025-3-2 01:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67554091&amp;ptid=2208921" target="_blank">ccared 发表于 2025-3-2 01:52</a>
+早期讨论里，大喵摘面具破坏世界观但没有受到惩罚这件事，其实很大程度上关系到mujica这个团的定性。如果这 ...</blockquote>
+十本不都说了，摘面具这出戏纯是为了完成mggm的指令<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不然他甚至准备取消面具这个设定的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
