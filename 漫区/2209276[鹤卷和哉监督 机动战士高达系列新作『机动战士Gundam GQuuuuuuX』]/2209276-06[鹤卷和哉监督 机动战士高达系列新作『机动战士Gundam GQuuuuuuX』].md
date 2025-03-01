@@ -4448,3 +4448,29 @@ x上看见的，麻球头发反色是nt角色常见的薄荷绿头发，修司�
 
 #GQuuuuuuX       #ジークアクス   </blockquote>
 
+
+*****
+
+####  AvenueIII  
+##### 7755#       发表于 2025-3-1 12:46
+
+<img src="https://img.saraba1st.com/forum/202503/01/124608oix2mqe00mz3qgh0.jpg" referrerpolicy="no-referrer">
+
+<strong>1000151872.jpg</strong> (105.34 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-1 12:46 上传
+
+难不成喵安是琪琪
+
+
+*****
+
+####  暗黑能乐  
+##### 7756#       发表于 2025-3-1 12:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这种当玩个梗差不多了，真拿去认真分析就有点
+
+—— 来自 HONOR BVL-AN00, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

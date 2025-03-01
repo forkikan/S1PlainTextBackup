@@ -9358,3 +9358,111 @@ mygo才是那个意外<img src="https://static.saraba1st.com/image/smiley/face20
 
 下集吉他睦一秒原地复活不就没事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adretyu67.  
+##### 31912#       发表于 2025-3-1 12:46
+
+我觉得目前剧透里斗财阀的内容最奇怪的一点是。
+
+斗什么。老登或者中登的烂裤裆真的算是什么很值得拿来反复算账的事吗。
+
+那就只剩9话老登大手冻结鸡团了。
+
+可是从旁观者角度来看，冻结满地鸡毛的鸡团算什么坏事吗？
+
+*****
+
+####  zhoujin8584  
+##### 31913#       发表于 2025-3-1 12:46
+
+<blockquote>天空塔书记官 发表于 2025-3-1 10:54
+相反，祥子现在很想要重组ave，否则不会这么说
+
+双重否定表示肯定</blockquote>
+虽然很认同漏油对书记官的评价，不过也可以从另一种角度切入，牢祥又在批发回旋镖了…
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 天空塔书记官| + 1|?|
+
+查看全部评分
+
+*****
+
+####  adretyu67.  
+##### 31914#       发表于 2025-3-1 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67549062&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-1 12:46</a>
+
+虽然很认同漏油对书记官的评价，不过也可以从另一种角度切入，牢祥又在批发回旋镖了… ...</blockquote>
+主观想，但是客观不允许。这个意思
+
+*****
+
+####  南宮凝香  
+##### 31915#       发表于 2025-3-1 12:47
+
+<blockquote>aptx8285144 发表于 2025-3-1 12:17
+母鸡卡和go团不同，商业乐队要花的钱不是go团能比的，初华张嘴就要重组，那么多钱去找谁要，结果不还是要富 ...</blockquote>
+我， 祥子， 打錢
+
+玩樂隊的錢也沒多少，
+
+老登就乾脆點出吧
+
+*****
+
+####  adretyu67.  
+##### 31916#       发表于 2025-3-1 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67549026&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-1 12:42</a>
+
+我最感兴趣的是大墨老师现在被场外盖章假弹了，她要怎么上live，还有新曲子 ...</blockquote>
+估摸是卡壳，然后吉他复活大和解。
+
+*****
+
+####  梅杜莎  
+##### 31917#       发表于 2025-3-1 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67548785&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-1 12:08</a>
+
+看访谈的意思，睦头这个多重人格真就是演技太强出来的了，和什么童年创伤回忆，缺少睦妈的母爱看来都无关了 ...</blockquote>
+这得看是哪种好人吧
+
+个人看来，在自己很有能力的情况下，逼迫母亲逝世不久的十五岁外孙女切割亲爹，并对其在十分窘迫的环境中放养一年多，如果没啥隐情，已经够不着好人的边了
+
+但同样理解有些人的标准并不是这样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  الطائر  
+##### 31918#       发表于 2025-3-1 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67548843&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-1 12:14</a>
+
+如果都是好人，舅舅说的斗财阀是啥意思，意思是你再出钱或者再允许我再组一次商业乐队？我是老登也绷不住了 ...</blockquote>
+老登是好人，那只能是祥子黑化了，派出宣誓效忠的无人岛暗杀兵，冒充私生女潜入丰川家。不久，老登跌落楼梯身亡，祥子继承丰川家家主，把祥爹送进地下矿场狠狠戒酒。
+
+
+*****
+
+####  天空塔书记官  
+##### 31919#       发表于 2025-3-1 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67549090&amp;ptid=2208921" target="_blank">梅杜莎 发表于 2025-3-1 12:50</a>
+这得看是哪种好人吧
+
+个人看来，在自己很有能力的情况下，逼迫母亲逝世不久的十五岁外孙女切割亲爹，并对 ...</blockquote>
+还有那个见鬼的初华小姨说<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
