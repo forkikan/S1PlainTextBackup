@@ -345,3 +345,15 @@
 
 【【FGO】我们月姬玩家真是太有操作辣！土之奥尔加玛丽，4队首通思路阵容参考】 [https://www.bilibili.com/video/B ... ec0f62ca61a2eb74538](https://www.bilibili.com/video/BV15MXSYKEV1/?share_source=copy_web&amp;vd_source=666108a9094a0ec0f62ca61a2eb74538)
 
+
+*****
+
+####  壳壳牛  
+##### 16437#       发表于 2025-3-1 23:27
+
+往死里贪...
+如果玛修能喂梦火换伊阿宋就是绝杀，可惜换不得...
+<img src="https://p.sda1.dev/22/b921be19e9a68b59ebe94e3438474a53/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

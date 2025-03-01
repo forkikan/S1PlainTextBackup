@@ -11133,3 +11133,68 @@ Mujica那边甚至完全没有人在意过她的歌词与祥子作曲之间的�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  聊nsy专用号  
+##### 32062#       发表于 2025-3-1 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67553287&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-3-1 23:24</a>
+
+初华就是mujica剧组剧本失控兼对观众预期管理失败的最佳例子
+
+不说和MyGO里知心姐姐形象的对比了，初华和祥 ...</blockquote>
+初华病娇此前并无征兆吗，我看完3集联播就看出来初华是大象毒唯了，还在楼里被厨子追着骂
+
+*****
+
+####  阿兹尔  
+##### 32063#       发表于 2025-3-1 23:31
+
+说起来素在三天三夜那集，一直在问莫:睦去哪里了，到最新一集，也会问那莫怎么办。感觉爽姐真是母爱爆发把睦莫都当自己孩子了
+
+*****
+
+####  adretyu67.  
+##### 32064#       发表于 2025-3-1 23:31
+
+mujica初华就是蓝冰重度患者，最后这样爆发出来是意料之中吧。
+
+但是戏份就集中在最后三集是有点惨。
+
+*****
+
+####  与太郎  
+##### 32065#       发表于 2025-3-1 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67553316&amp;ptid=2208921" target="_blank">聊nsy专用号 发表于 2025-3-1 23:29</a>
+
+初华病娇此前并无征兆吗，我看完3集联播就看出来初华是大象毒唯了，还在楼里被厨子追着骂 ...</blockquote>
+重女和病娇之间应该还是有一堵高墙的
+
+就是在访谈里「害意」这个词出来的时候，好多人还不觉得这会表现为明确的杀意呢
+
+如果你在第3集的时候就能预测到第9集会是这个剧情走向，那我只能称你一声柿本soulmate了
+
+*****
+
+####  灼眼的夏娜酱  
+##### 32066#       发表于 2025-3-1 23:32
+
+All in最新的时间线乱序说<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  adretyu67.  
+##### 32067#       发表于 2025-3-1 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67553339&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-3-1 23:31</a>
+
+重女和病娇之间应该还是有一堵高墙的
+
+就是在访谈里「害意」这个词出来的时候，好多人还不觉得这会表现为 ...</blockquote>
+其实看到害意就明白为啥按头下线了。
+
+这就是必须隐身
+
