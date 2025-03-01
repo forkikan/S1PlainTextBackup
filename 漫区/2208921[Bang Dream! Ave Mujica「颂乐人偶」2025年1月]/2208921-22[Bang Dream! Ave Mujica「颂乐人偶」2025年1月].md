@@ -9282,3 +9282,21 @@ mygo第五集的时候我已经是一辈子爱灯党不动摇了，母鸡卡这c
 —— 来自 鹅球 v3.3.96</blockquote>
 mygo才是那个意外<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 31903#       发表于 2025-3-1 12:17
+
+母鸡卡和go团不同，商业乐队要花的钱不是go团能比的，初华张嘴就要重组，那么多钱去找谁要，结果不还是要富人们出钱<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  6030sylar  
+##### 31904#       发表于 2025-3-1 12:21
+
+人物行为混乱又矛盾，这剧本混乱程度像是编剧监督们互殴中写的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
