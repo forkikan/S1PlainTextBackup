@@ -11621,3 +11621,15 @@ ave的第一首动画插入曲下话才会到，看看到底是怎么个事吧
 
 柿本最大的问题就是他真的在Mujica里这么干，而且还默认观众都能接受。
 
+
+*****
+
+####  相坂君  
+##### 32108#       发表于 2025-3-2 01:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">看到现在我都觉得真没有什么Mujica的事
+
+都播了9话了，音乐番重要的词曲几乎没有篇幅。Mujica的词曲组，都在说灯的词，这词还把鸡的主唱破防了……
+
+你们Ave Mujica这团名真有在赞美音乐吗？
+
