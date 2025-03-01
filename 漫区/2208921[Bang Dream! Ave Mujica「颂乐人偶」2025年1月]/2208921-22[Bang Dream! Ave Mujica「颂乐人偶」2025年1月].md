@@ -10554,3 +10554,82 @@ mortis人格里想要活下来的欲望，被扭曲到了她存在意义的对�
 
 傭兵之王真打的Live？
 
+
+*****
+
+####  K·os  
+##### 32015#       发表于 2025-3-1 20:19
+
+邦多利乐队战力学这个东西，如果你愿意信其有还是很好玩的
+
+首先要注意到的就是邦多利剧中三年的时间里战力是存在膨胀的，作为标杆的自然是单纯以强为目标的roselia，战力进入下一个层级的关键剧情点就是ras登场，楚平芳引入了职业级的layer和masking加上自身的商业级包装让ras成为了职业级的门槛，萝过了ras然后就进了出道剧情，正式盖章你邦的战力上限进入职业级，这种战力上的变化体现得最直接的就是两次萝ag对邦，第一次还仿佛有来有回，第二次美竹兰就路边了
+
+而mygoave作为在邦三年加入的新角色，虽然剧情上没有特别直接的表示，但是我是认为是直接按照邦三年的强度进行设定的，首先猫绝对是邦多利里数一数二的吉他手，而海铃则是直接盖章进职业级，可以对标layer，masking等人。当然喵姆被masking认可也许可以作为战力体现，但其实尼邦的鼓手很喜欢商业互吹，所以也不能很算
+
+当然最主要的还是祥子对标凑女人和楚平芳实在太全面，对ave的战力进行了一个定位
+
+后续进了手游跨团互动的时候，我是认为会直接给到和萝不相上下的定位，然后典中典让凑女人锐评祥子“虽然你的音乐很牛逼，但是你的内心还不够强大”，当然，凑女人只是这么说说而已，因为我们都知道凑女人内心实际弱小，只是其他角色都觉得她很牛逼，逼格这块拿捏了
+
+*****
+
+####  指南アキラ  
+##### 32016#       发表于 2025-3-1 20:20
+
+ 本帖最后由 指南アキラ 于 2025-3-1 20:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67550343&amp;ptid=2208921" target="_blank">DeltaStriker 发表于 2025-3-1 16:20</a>
+
+有人翻译了那还是贴个翻译的吧
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+祥子运动能力不应该给D，随便举几个例子：
+
+负重推车走陡坡
+
+<img src="https://img.saraba1st.com/forum/202503/01/201504carjd9wzd9h9whne.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-03-01-1.jpg</strong> (415.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-1 20:15 上传
+
+托醉汉回家
+
+<img src="https://img.saraba1st.com/forum/202503/01/201502utcmi08nclt4qr8m.gif" referrerpolicy="no-referrer">
+
+<strong>2025-03-01-2.gif</strong> (1.2 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-1 20:15 上传
+
+撞门至变形
+
+<img src="https://img.saraba1st.com/forum/202503/01/201503ka0lprlzp03asaqp.gif" referrerpolicy="no-referrer">
+
+<strong>2025-03-01-3.gif</strong> (248.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-1 20:15 上传
+
+<img src="https://img.saraba1st.com/forum/202503/01/201504yj9xd9y15fnxxx8m.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-03-01-4.jpg</strong> (256.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-1 20:15 上传
+
+躺着把爽世推翻150度
+
+<img src="https://img.saraba1st.com/forum/202503/01/201503gr8i7t38txnw4vgt.gif" referrerpolicy="no-referrer">
+
+<strong>2025-03-01-5.gif</strong> (400.34 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-1 20:15 上传
+
+简直像门小钢炮，如果不是自愿，爽世别想拉着她走路<img src="https://static.saraba1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer"> 
+
