@@ -678,3 +678,27 @@ PSE（PS EDITION）
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  760194962  
+##### 58#       发表于 2025-3-1 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67543776&amp;ptid=2247492" target="_blank">pcsx2 发表于 2025-2-28 16:55</a>
+
+强烈推荐玩一下pc版，音乐好人设好，剧情轻松欢乐，没有啥生离死别没有勾心斗角，反正现在我还挺怀念这个 ...</blockquote>
+PC有汉化？
+
+
+*****
+
+####  760194962  
+##### 59#       发表于 2025-3-1 17:11
+
+另外值得说的是原版动画还有几集映像特典 短篇
+
+我觉得也是非常优秀的
+[https://www.youtube.com/playlist ... IBNDQrwFpZwB0OYYlib](https://www.youtube.com/playlist?list=PLIebkAWJ6f3K5TIBNDQrwFpZwB0OYYlib)
+
+不过没说的话估计蓝光盘不会收录吧
+

@@ -4769,3 +4769,73 @@ mav战术我比较喜欢考据哥的假药：这是夏利亚捏造的战术，�
 还有那个mav战术，那不就是长机僚机么……这玩意 ...</blockquote>
 我记得应该两者都有，北美上映有字幕，什么Earth Federation Remnants<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  太极八爪鱼  
+##### 7783#       发表于 2025-3-1 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67550484&amp;ptid=2209276" target="_blank">az一串字母 发表于 2025-3-1 00:44</a>
+
+mav战术我比较喜欢考据哥的假药：这是夏利亚捏造的战术，两ot用mav战术会**降低对nt的胜率，mav战术本质 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">……不就是长机，僚机。就算是捏造也是基于这个。而且就算逻辑上来讲，俩OT用长-撩战术打2各自为战的怎么还能降低胜率
+
+*****
+
+####  xwr  
+##### 7784#       发表于 2025-3-1 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67550314&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-3-1 16:16</a>
+
+吉翁这仗怎么打得和输差不多</blockquote>
+根本就是停战，北美上映给的字幕写的也是truce<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+怕不是和日俄战争差不多，沙俄当年就说赔款不可能，有本事继续打，打到圣彼得堡再谈。
+
+吉翁：现在是时候谈谈战争赔款问题了
+
+联邦：门儿都没有，有本事继续打，打下贾布罗再说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  太极八爪鱼  
+##### 7785#       发表于 2025-3-1 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67550578&amp;ptid=2209276" target="_blank">xwr 发表于 2025-3-1 01:01</a>
+
+我记得应该两者都有，北美上映有字幕，什么Earth Federation Remnants</blockquote>
+是，我也是看的有字幕，前面搭了一句为了和平什么的。话说那个大使，是米莱8州的原未婚夫吧
+
+*****
+
+####  王留美  
+##### 7786#       发表于 2025-3-1 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67550630&amp;ptid=2209276" target="_blank">太极八爪鱼 发表于 2025-3-1 17:09</a>
+ 是，我也是看的有字幕，前面搭了一句为了和平什么的。话说那个大使，是米莱8州的原未婚夫吧 ...</blockquote>
+是的
+
+
+*****
+
+####  王留美  
+##### 7787#       发表于 2025-3-1 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67550626&amp;ptid=2209276" target="_blank">xwr 发表于 2025-3-1 17:08</a>
+ 根本就是停战，北美上映给的字幕写的也是truce  怕不是和日俄战争差不多，沙俄当年就说赔款不可能，有本 ...</blockquote>
+艹
+
+*****
+
+####  太极八爪鱼  
+##### 7788#       发表于 2025-3-1 17:13
+
+吉翁战后经济不行也是有可能的。战后没吃到红利，前面经济全靠军工。不过台词里有一句，你们还在用6年前的船，啊我们也很困难。这个逻辑不通……谁家正经人船用6年就退啊。主世界的联邦照样萨拉米斯用几十年<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakufa782  
+##### 7789#       发表于 2025-3-1 17:13
+
+正史里战后联邦有殖民地修复和重建项目来解决难民问题，而且side3还是施工方，if世界里看着不像有重建计划的样子，地球和宇宙之间还在冷战，地球圈整体经济估计是不如正史的。
+
