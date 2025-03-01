@@ -3672,3 +3672,11 @@ Ave Mujica niconico 前9话 好评率
 
 自由自在精神病，每集都有新设定～
 
+
+*****
+
+####  ardente  
+##### 395#       发表于 2025-3-2 05:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">是不是已经可以证实变态剧透是真的了
+
