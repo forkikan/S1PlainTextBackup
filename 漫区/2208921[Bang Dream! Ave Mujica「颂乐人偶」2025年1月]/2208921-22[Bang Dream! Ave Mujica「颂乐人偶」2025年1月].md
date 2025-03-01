@@ -8968,3 +8968,35 @@ MyGO的后期大概是10-13集的时候，这个时候她应该还是有参与�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  adretyu67.  
+##### 31875#       发表于 2025-3-1 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67548233&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-3-1 10:54</a>
+
+相反，祥子现在很想要重组ave，否则不会这么说
+
+双重否定表示肯定</blockquote>
+有点三天不打上房揭瓦了。
+
+
+*****
+
+####  堆雪若叶  
+##### 31876#       发表于 2025-3-1 11:10
+
+不管效果如何，访谈是确认了祥子现在心里一点音乐的冲动都没有。说还要寻找最大的敌人，接下来都是家族戏只能说母鸡卡重组不恶心到所有人就算成功。
+
+*****
+
+####  天空塔书记官  
+##### 31877#       发表于 2025-3-1 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67548314&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-1 11:04</a>
+有点三天不打上房揭瓦了。</blockquote>
+重组ave对大家都好，起码不用看CCC被从墓地里拉起来反复仰卧起坐了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
