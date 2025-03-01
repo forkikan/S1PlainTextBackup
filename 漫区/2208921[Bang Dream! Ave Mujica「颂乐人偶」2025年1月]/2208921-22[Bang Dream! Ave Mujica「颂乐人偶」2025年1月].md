@@ -10795,3 +10795,34 @@ gv一样的运镜
 
 不考虑包饺子，角色最怕的不是“做恶”而是怕没有觉悟或弱智，初华是后者，当年那个神秘女人一去不复返<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  结衣小比取  
+##### 32034#       发表于 2025-3-1 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67552481&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-1 21:22</a>
+狗里初华就以为大祥是为了排解母亲去世的悲伤才组的。</blockquote>
+坛友记错了吧，初华MyGO动画第八话会面试探发现CRYCHIC是雷点就没敢继续这个话题，Ave Mujica动画第二话拿人偶当话题切入再试探的时候才会错意的（16:48），当时那个气氛，祥子又不好纠正她
+
+*****
+
+####  6030sylar  
+##### 32035#       发表于 2025-3-1 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67552577&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-3-1 21:38</a>
+gv一样的运镜
+
+当爆了的金毛决定囚禁小祥 https://b23.tv/clhkF6r</blockquote>
+《Yes，Oblivionis》S1E4
+初华：saki酱，在你的心目中，我是值得信赖的陪伴你一生的女孩子吗？
+祥子：You know……我很高兴你问了这个问题……
+初华：那么，祥子，我能得到你的答复吗？
+祥子：当然可以……初华酱，我正要回答……如果可以的话。额……正如我所说，我很高兴你问了这个问题，因为……这个问题……很多人在问。为什么呢？因为人们都想知道。那我就不转弯抹角了。这个问题很明摆着的事实就是……它的确是个很重要的问题！无论是MyGO还是AveMujica，成员们都有权知道。
+初华：可是祥子，我还是没得到答案。
+祥子：不好意思，问题是什么？！
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">下面这评论
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
