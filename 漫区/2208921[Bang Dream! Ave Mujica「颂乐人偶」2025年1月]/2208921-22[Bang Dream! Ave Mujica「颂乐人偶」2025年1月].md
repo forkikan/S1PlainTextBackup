@@ -10633,3 +10633,32 @@ mortis人格里想要活下来的欲望，被扭曲到了她存在意义的对�
 
 简直像门小钢炮，如果不是自愿，爽世别想拉着她走路<img src="https://static.saraba1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  Lyzers  
+##### 32017#       发表于 2025-3-1 20:32
+
+<img src="https://p.sda1.dev/22/497ef8ea01ffe52410cddf50c34f94a9/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  yy19  
+##### 32018#       发表于 2025-3-1 20:33
+
+<blockquote>zhoujin8584 发表于 2025-3-1 19:24
+知乎通道</blockquote>
+借贴说说，母鸡卡动画截至目前给咱的感受就是：眼看铁血高达、国家队ditf的老问题再临——仿佛反高达底层逻辑的高达片，反保人类打外星人底层逻辑的打异类片，母鸡卡目前就是反少女乐队底层逻辑的所谓少女乐队片。——倒是微妙符合司马wsd的广告词（“最狂乐队番”）哩！
+
+最近母鸡卡看不下去，回去补了 孤独摇滚，这个感受就更深刻嘹LoL
+
+*****
+
+####  小博禹  
+##### 32019#       发表于 2025-3-1 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67552059&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-3-1 20:32</a></blockquote>
+天才<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
