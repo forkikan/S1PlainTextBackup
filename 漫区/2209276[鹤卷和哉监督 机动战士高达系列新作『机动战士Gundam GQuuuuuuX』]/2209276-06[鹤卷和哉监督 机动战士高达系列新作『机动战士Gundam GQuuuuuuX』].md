@@ -4510,3 +4510,11 @@ https://x.com/zoo0420/status/1895454815926501635?s=46
 
 然后01高达和轻加农都是赶工拼凑设计的，说明确实还有很多未露面的重要机体。鹤卷：0085做不过来啦0079就别来添乱啦。
 
+
+*****
+
+####  Gysumitka  
+##### 7760#       发表于 2025-3-1 13:48
+
+<img src="https://p.sda1.dev/22/80e8b3f15cb42e40d292932bc599f8f7/image.jpg" referrerpolicy="no-referrer">
+
