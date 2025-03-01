@@ -10852,3 +10852,48 @@ gv一样的运镜
 
 鸡只喜欢mas和Symbol II : Air
 
+
+*****
+
+####  南宮凝香  
+##### 32038#       发表于 2025-3-1 22:29
+
+<blockquote>大丈夫萌大乃 发表于 2025-3-1 21:21
+十五年未有之小主唱</blockquote>
+嚴格來說那是9 號位置
+
+1 燈 2 祥 3 愛音
+
+4 希 5 喵 
+
+6 海 7 貓 8 睦頭
+
+9 初 10 素
+
+所以還是贏了一人的
+
+*****
+
+####  小博禹  
+##### 32039#       发表于 2025-3-1 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67552743&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-3-1 22:03</a>
+初华的bug是明明知道ccc，结果看到ccc又破防了。初华的点从来不是什么乐队不乐队，而是大祥跟谁好。组乐 ...</blockquote>
+灯毕竟只是偶遇过的人，睦子米可是祥的半身青梅，而且之前一起组乐队，还亲手把小祥托付给初华<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+不敢想睦在初华眼中是个多坏的女人<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  大丈夫萌大乃  
+##### 32040#       发表于 2025-3-1 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67552743&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-3-1 22:03</a>
+
+初华的bug是明明知道ccc，结果看到ccc又破防了。初华的点从来不是什么乐队不乐队，而是大祥跟谁好。组乐 ...</blockquote>
+虽然金毛塑造一坨但是人还是讲道理的,灯皇并没有什么错金毛干嘛摔她
+
+睦帝强行拉人复辟C团还要金毛shut up,也就金毛脾气好忍了,换狸希直接上去揪衣领<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
