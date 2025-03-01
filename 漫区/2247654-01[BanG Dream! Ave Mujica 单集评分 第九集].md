@@ -3542,3 +3542,15 @@ mygo时期我们看初华海铃也都觉得很像人
 
 撕逼不如小时代乐
 
+
+*****
+
+####  FanKiE  
+##### 382#       发表于 2025-3-1 08:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67539129&amp;ptid=2247654" target="_blank">dogman 发表于 2025-2-28 09:22</a>
+7集我能感觉导演想说啥，但是表现得不尽如人意，第8集还是挺乐的，我都是给的正分，这集真只能-2了。给+2的 ...</blockquote>
+怎么乐不起来，墨提斯在RiNG汗流浃背的样子可好玩了，吉他睦已经挂了这种事根本说不出来<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -8395,3 +8395,26 @@ soyo新卡有点像:唉有点无聊，调戏一下立希吧
 
 9话最后爽姐的话其实是祥子这个阶段的问题所在，只想着睦头没想过莫。
 
+
+*****
+
+####  堆雪若叶  
+##### 31827#       发表于 2025-3-1 07:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67547398&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-3-1 07:33</a>
+
+9话在睦家门口听到弹吉他不想进去确认一下而是下意识的认为弹吉他的一定是睦就已经是说明一些问题了。
+
+9 ...</blockquote>
+不说莫老师从一开头对祥子soyo分别是什么态度了。祥子以为自己在二选一，soyo可没这种心理负担。当然祥子怎么重新看待莫老师和睦的关系可能会是她继续改变的方向。
+
+*****
+
+####  syndrome2032  
+##### 31828#       发表于 2025-3-1 07:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67547435&amp;ptid=2208921" target="_blank">堆雪若叶 发表于 2025-3-1 07:55</a>
+不说莫老师从一开头对祥子soyo分别是什么态度了。祥子以为自己在二选一，soyo可没这种心理负担。当然祥子 ...</blockquote>
+已知剧透10话要爆睦头已完<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+这种展开就是连祥子最后的逻辑都要敲碎在地了。
+
