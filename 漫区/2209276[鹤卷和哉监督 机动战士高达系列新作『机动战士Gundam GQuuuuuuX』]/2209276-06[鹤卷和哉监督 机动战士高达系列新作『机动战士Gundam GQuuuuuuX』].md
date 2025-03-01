@@ -5211,3 +5211,44 @@ X 上的 干し丿：“捏造120%まんが。 戦いに呼ばれる男と戦い
 
 以及吉翁拿下月神2的话应该手里多了很多很多核武器吧。
 
+
+*****
+
+####  岸浪白野  
+##### 7815#       发表于 2025-3-2 02:14
+
+ 本帖最后由 岸浪白野 于 2025-3-2 02:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67553751&amp;ptid=2209276" target="_blank">被子十三 发表于 2025-3-2 00:42</a>
+
+这个同人画得好啊。假如奶奶头能在TV露脸就爽了
+
+— from S1 Next Goose v3.3.96</blockquote>
+鹤卷设成0085年就是为了回避有奶奶头的存在还已经从木星归来搞事破坏设定的平衡，已经被禁赛了
+
+说到底奶奶头的存在正因为有能过头太恐怖了，85年就能当他还在木星
+
+*****
+
+####  AraTurambar  
+##### 7816#       发表于 2025-3-2 02:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67554085&amp;ptid=2209276" target="_blank">太极八爪鱼 发表于 2025-3-2 01:49</a>
+
+还是内部有矛盾吧，要不然按汤大基（还活着）的性格，不是说屠就屠了，灭side 6如灭side 2。经济不行没啥 ...</blockquote>
+内部矛盾、经济困难的因素都有吧，可能已经连开拨费都发不出了。
+
+以及吉翁拿下月神2的话应该手里多了很多很多核武器吧。
+
+*****
+
+####  被子十三  
+##### 7817#       发表于 2025-3-2 07:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67554168&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-3-2 02:14</a>
+鹤卷设成0085年就是为了回避有奶奶头的存在还已经从木星归来搞事破坏设定的平衡，已经被禁赛了
+
+说到底奶 ...</blockquote>
+原来是这样，奶奶头确实是UC为数不多的全才了。有相应的访谈吗？
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
