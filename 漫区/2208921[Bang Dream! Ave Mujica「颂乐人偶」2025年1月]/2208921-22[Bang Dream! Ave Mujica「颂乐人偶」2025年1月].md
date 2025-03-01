@@ -11247,3 +11247,25 @@ All in最新的时间线乱序说<img src="https://static.saraba1st.com/image/sm
 
 但本可不必如此，或者换个女监督来整点扇巴掌扯头发都比这种演出观感上会好一些。
 
+
+*****
+
+####  adretyu67.  
+##### 32073#       发表于 2025-3-1 23:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67553499&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-1 23:56</a>
+
+动杀心还是不对的，估计给她迫害位也是为了平衡这一场。
+
+但本可不必如此，或者换个女监督来整点扇巴掌扯 ...</blockquote>
+先放预言。
+
+动杀心收手就是准备让初华跑路，然后大祥负责去追人。
+
+*****
+
+####  宵神乐  
+##### 32074#       发表于 2025-3-1 23:59
+
+大家都成为祥子的翅膀 不就解决了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
