@@ -11876,3 +11876,27 @@ mujica内部的路线矛盾可以让喵梦和海铃发起，喵梦更在意热�
 
 现在双重人格拖到第十集，还是睦仰卧起坐这一套，祥子还在挨抽。那么动画剧情直接判死刑没一点问题
 
+
+*****
+
+####  杂灰  
+##### 32126#       发表于 2025-3-2 03:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67554169&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-3-2 02:15</a>
+
+柿本的理解能直接入土了。按他自己说的把祥子逼入绝境，实际第五集祥子回家已经被逼入绝境了，后续正常就该 ...</blockquote>
+五六集是因为要给c团老人上情绪以在第七集开上live，祥子不断打滚只为秀给c团老人让她们上情绪。但柿本那种粗暴交代的角色互动法让角色之间的互动情节变得过于简短，飞鸟山之战换他那套来处理可能两分钟内就结束了。这两集真正的关键内容以他的方式拍根本填不满两集的内容量所以开始塞猫莫之类的无意义水时间桥段，就变得更加拖沓。
+
+声优我觉得没什么好担心，日本人对你鸡的评价确实好的有点莫名其妙，可能人家真的吃得了这套<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岬开斗  
+##### 32127#       发表于 2025-3-2 03:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67554281&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-3-2 03:09</a>
+把双重人格删了能省很多事，其次就是别无脑抽祥子陀螺，抽到第五集就差不多得了。六七集写c团和解是可以 ...</blockquote>
+删双重人格的话只能留前两集了，你得从拆团原因开始重新写，之后走向完全不一样。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
