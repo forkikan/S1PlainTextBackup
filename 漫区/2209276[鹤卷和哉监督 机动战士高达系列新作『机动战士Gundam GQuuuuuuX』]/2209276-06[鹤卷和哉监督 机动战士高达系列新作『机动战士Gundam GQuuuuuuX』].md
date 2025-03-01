@@ -5140,3 +5140,17 @@ X 上的 干し丿：“捏造120%まんが。 戦いに呼ばれる男と戦い
 
 — from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  被子十三  
+##### 7809#       发表于 2025-3-2 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67551572&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-3-1 19:38</a>
+奶奶头与绿叔叔的同人
+
+X 上的 干し丿：“捏造120%まんが。 戦いに呼ばれる男と戦いを呼ぶ男(1/2) [ht ...](https://www.pgyer.com/GcUxKd4w]S1 Next Goose)</blockquote>
+这个同人画得好啊。假如奶奶头能在TV露脸就爽了
+
+— from [url=https://www.pgyer.com/GcUxKd4w]S1 Next Goose v3.3.96
+
