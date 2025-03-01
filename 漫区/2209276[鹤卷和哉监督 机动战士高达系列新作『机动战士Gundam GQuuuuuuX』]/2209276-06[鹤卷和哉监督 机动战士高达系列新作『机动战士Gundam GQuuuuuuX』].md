@@ -4724,3 +4724,23 @@ gqx和红高闯进side6后，有一个镜头是给到一个bit，然后那个bit
 
 还有那个mav战术，那不就是长机僚机么……这玩意和持续发明轮子有什么区别<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kuriri  
+##### 7779#       发表于 2025-3-1 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67550285&amp;ptid=2209276" target="_blank">xwr 发表于 2025-3-1 16:10</a>
+
+也许主角团三人应该可以，虽然现在就直接告诉你军团战很危险，除了掉头算赢以外没有任何其他规则，夏利亚 ...</blockquote>
+谢谢！因为我完全不懂日文当时只是觉得画面和氛围超级好，这样看故事不也超级合理的吗，更加期待了！
+
+*****
+
+####  岸浪白野  
+##### 7780#       发表于 2025-3-1 16:34
+
+ 本帖最后由 岸浪白野 于 2025-3-1 16:37 编辑 
+
+独立后内部斗争继续加深，裁军和贩卖MS终究还是缓解不了经济压力
+
