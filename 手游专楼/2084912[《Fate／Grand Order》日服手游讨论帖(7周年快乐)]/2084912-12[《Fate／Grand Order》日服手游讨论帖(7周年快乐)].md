@@ -212,3 +212,16 @@
 
 挖矿完毕，和娄西无缘咯<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 16425#       发表于 2025-3-1 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67546420&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-2-28 23:16</a>
+
+90++都打得我累死了....还有一个90+++不打了
+
+一张护符不要也罢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">怎么能不要呢  一张护符对于你来说那就是1个5星！
+

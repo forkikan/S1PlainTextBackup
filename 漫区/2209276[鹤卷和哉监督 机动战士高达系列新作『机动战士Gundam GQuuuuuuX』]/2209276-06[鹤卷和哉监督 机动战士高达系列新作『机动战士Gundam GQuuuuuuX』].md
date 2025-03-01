@@ -4603,3 +4603,14 @@ GQuuuuuuX对红高达，GQuuuuuuX率先在殖民地外发现带两个浮游炮�
 gqx和红高闯进side6后，有一个镜头是给到一个bit，然后那个bit看起来不知道是失灵还是功率减小总之在抖动， ...</blockquote>
 我看的时候以为是因为离地面太近受到重力影响需要多余的控制，就好像UC里刹帝利的浮游炮受重力影响不小心打爆了融合炉。
 
+
+*****
+
+####  xwr  
+##### 7768#       发表于 2025-3-1 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67549796&amp;ptid=2209276" target="_blank">kuriri 发表于 2025-3-1 14:43</a>
+
+红高达里有夏亚灵魂的话，不愿意伤害吉翁的普通士兵也是可能的吧？所以主要的攻击手段都是撞击。 ...</blockquote>
+有可能，一开始用了浮游炮打GQuuuuuuX，光束步枪就是这时丢掉的，上去近战时没记错的话还打了一轮加特林，打着打着可能发现是吉翁的机体，然后一路摔跤打进殖民地<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

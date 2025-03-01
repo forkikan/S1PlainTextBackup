@@ -9704,3 +9704,33 @@ mortis不是假弹，是逆练吉他。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">任你购:草了，这生意亏大了
 
+
+*****
+
+####  K·os  
+##### 31938#       发表于 2025-3-1 14:50
+
+bd这个确实没法，核心粉丝肯定不走国内渠道，目前来看路人粉确实指望不上
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  akiomn  
+##### 31939#       发表于 2025-3-1 14:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妈的想想这逼动画到底干好了啥？别说剧情逻辑，连cp都没卖好
+团内主推的初祥在11和12集，结局估计也是赢的很难看，还掺杂了恶心的家族戏。而初华直接被按着头不让在67集登场，第八集只有一句话。睦祥直接被一路下毒，好不容易第八集有个爆点结果告诉你第九集睦又死了，场外还对睦死了一片叫好的，第十集大概率垫给睦莫。强度全靠场外找补。
+睦水仙，第十集大概率和解，然而前面我杀你你杀我，别问怎么和解了，就问你是不是和解了吧。
+跨团的素睦一股异味，实际卖的素莫。灯祥……沟槽的怎么也是一股味
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太无敌了柿本，剧情逻辑搞不好就算了，工业糖精都不会造
+与其bangdream Avemujica，不如叫bangdream mortis，能让我恶心一个角色也是没谁了
+
+*****
+
+####  syndrome2032  
+##### 31940#       发表于 2025-3-1 14:56
+
+真的有灯祥吗。
+
