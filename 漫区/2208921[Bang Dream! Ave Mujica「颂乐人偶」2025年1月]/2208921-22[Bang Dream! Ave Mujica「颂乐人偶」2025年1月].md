@@ -10839,3 +10839,16 @@ gv一样的运镜
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  everdream  
+##### 32037#       发表于 2025-3-1 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67552203&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-3-1 20:47</a>
+
+说起来你们听不听鸡狗的歌，我是一首都不听纯看片的</blockquote>
+狗只喜欢几首翻唱的：Henceforth和猛独が襲う，原创曲感觉一般，念诗的听不了一点
+
+鸡只喜欢mas和Symbol II : Air
+
