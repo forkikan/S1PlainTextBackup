@@ -11269,3 +11269,21 @@ All in最新的时间线乱序说<img src="https://static.saraba1st.com/image/sm
 
 大家都成为祥子的翅膀 不就解决了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  z-hunter  
+##### 32075#       发表于 2025-3-2 00:11
+
+刚看完第9集，然后爬了一下这楼，发现刚播完时都在版本回溯谁应该为mujica解散背锅，证实了自己的感觉时没错的
+
+这集TM的就不应该是第9话，应该放在第5话甚至第4话。中间的C团剧情完全是割裂的，硬塞的，导致这集观感非常奇怪。。。当然了还有演出、系构剧情分布的问题
+
+虽然这楼一开始的鸡粉和占据了旧楼一年从定档25年之后都在车武士道偏心顺带黑GO团，一定要切割GO团让我心理不适和嗤之以鼻
+
+不过有一点我是同意的，mujica的动画不应该让GO团插入过深，而是蜻蜓点水般推动剧情，互动，甚至用音乐来引导剧情。这点在MYGO动画里做得非常好
+
+本来GO团的风格朋克就很适合表达情感，天然地适合灯。我原来还想着灯给祥子的便贴，到最后会叫她来看LIVE，然后引导剧情的。。。
+
+现在搞成这个样子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">让本来就不擅长说话，用歌词来表达的灯，在mujica动画里变成了一个哑巴
+
