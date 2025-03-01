@@ -10321,3 +10321,14 @@ Mygo三个月纪念live哈哈哈哈<img src="https://static.saraba1st.com/image/
 
 按照原案拍，估计柿本和独角兽的恶名不会传得这么广，也没人在乎独角兽退出的更衣室往事了，wsd都不知道mygo咋在cn火的，双r之争1.0都没出圈，2.0还能火吗
 
+
+*****
+
+####  sauron.j  
+##### 31996#       发表于 2025-3-1 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67550547&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-1 16:54</a>
+
+随着猫猫被这种肉麻台词（更别提上帝视角两个人格已经有一个“永远沉睡”的讽刺）打动而说好有趣的女人，十 ...</blockquote>
+有趣的女人是在说莫竟然在假扮吉他睦
+
