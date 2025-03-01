@@ -1083,3 +1083,34 @@ bn
 
 玩偶虽然看着有意思而且便宜但是买的人不多还不如加湿器，还有料理机卖的还不如玩偶，性价比最低了
 
+
+*****
+
+####  holofan  
+##### 10832#       发表于 2025-3-1 17:22
+
+<img src="https://img.saraba1st.com/forum/202503/01/172224u70vpah7ax8r9h06.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (13.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-1 17:22 上传
+
+！？
+
+*****
+
+####  holofan  
+##### 10833#       发表于 2025-3-1 17:27
+
+<img src="https://img.saraba1st.com/forum/202503/01/172717ix8nrh7fugizgwgu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (177.04 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-1 17:27 上传
+
+这又是什么玩意，cover法务最近又松弛了是吧
+
