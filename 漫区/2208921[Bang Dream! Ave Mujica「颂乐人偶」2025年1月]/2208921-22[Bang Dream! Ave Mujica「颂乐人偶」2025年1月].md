@@ -8638,3 +8638,71 @@ soyo为什么想复活crychic，灯为什么想找人一辈子，海铃为什么
 
 祥子不开口mujica2.0肯定没戏，论丰川家的势力轮不到初华的。
 
+
+*****
+
+####  南宮凝香  
+##### 31847#       发表于 2025-3-1 09:29
+
+<blockquote>堆雪若叶 发表于 2025-3-1 09:13
+soyo为什么想复活crychic，灯为什么想找人一辈子，海铃为什么想重组母鸡卡。什么时候开始组队需要回答的 ...</blockquote>
+心理預期她也不知道呀
+
+Soyo 想組命運共同體的三思， 同甘共苦那種
+
+燈 要的是不會散， 組了就是終生合同沒辭職條款的樂隊
+
+海玲要的是她能獲得信任的長期飯票
+
+那若叶陸想組的3C是什麼？
+
+第九話又爆出了睦想要3C 是因為她覺得祥子在3C很高興的新設定
+
+大祥知道嗎？
+
+什麼都不知道，老闆一句話就跑出去組3C，
+
+3C是個口號嗎
+
+*****
+
+####  ads147147  
+##### 31848#       发表于 2025-3-1 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67547744&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-1 09:23</a>
+祥子不开口mujica2.0肯定没戏，论丰川家的势力轮不到初华的。</blockquote>
+少女乐队毕竟不能真的杀人，歌剧里魅影已经下手杀了人才逼着剧院必须按他的要求安排。
+
+大不了拿睦做要挟吧，反正睦已经有过多的标签在上面了，也不差那么几个。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  adretyu67.  
+##### 31849#       发表于 2025-3-1 09:34
+
+不一定是拿睦做要挟。
+
+可以为了睦组ccc，自然可以为莫组mujica。
+
+*****
+
+####  山ノ内花音  
+##### 31850#       发表于 2025-3-1 09:36
+
+这剧情真是弱智的牛逼<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  堆雪若叶  
+##### 31851#       发表于 2025-3-1 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67547765&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-1 09:29</a>
+
+心理預期她也不知道呀
+
+Soyo 想組命運共同體的三思， 同甘共苦那種</blockquote>
+睦一直很重视crychic是祥子自己之前就说过的，甚至原话直接打动莫老师，不如当时就问问为什么祥子和莫老师都觉得睦重视crychic？而祥子就是不知道睦为了她高兴而组回crychic的想法才只有睦自始自终喜欢crychic一个理由。
+
