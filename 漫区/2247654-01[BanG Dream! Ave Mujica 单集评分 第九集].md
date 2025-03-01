@@ -3554,3 +3554,23 @@ mygo时期我们看初华海铃也都觉得很像人
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  mhss  
+##### 383#       发表于 2025-3-1 11:14
+
+呱！好颠的剧情！乐起来了必须+2
+看到金毛被疯狂迫害我只想笑啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Liza  
+##### 384#       发表于 2025-3-1 11:16
+
+我喜欢莫提斯，莫提斯上位很棒
+
+但是一看下集就第10集了，祥子脑子还没拎清楚，你邦总得live一集合家欢一集吧，下集能搞定？我很怀疑。就算是一直在专楼里说没关系这个节奏可以的我也坐不住了。-2
+
+祥子这个不管队友，只管自己一会儿这样一会儿那样，明明是最只想着自己的人，却没有自觉把别人搞疯的感觉，倒是和我前公司董事长那个人给我的感觉很像，真实资本家。<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+

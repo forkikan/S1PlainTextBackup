@@ -9000,3 +9000,66 @@ MyGO的后期大概是10-13集的时候，这个时候她应该还是有参与�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  钦念以忱  
+##### 31878#       发表于 2025-3-1 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67548370&amp;ptid=2208921" target="_blank">堆雪若叶 发表于 2025-3-1 11:10</a>
+
+不管效果如何，访谈是确认了祥子现在心里一点音乐的冲动都没有。说还要寻找最大的敌人，接下来都是家族戏只 ...</blockquote>
+是的，虽然母鸡卡拍睦头传和大莫传，恶评如潮，但总还有些人是喜欢看这些的，结果明摆着睦头和大莫下一集就要草草收场，最后都去演丰川家族戏去了，哪怕这种人也要被恶心到。
+
+*****
+
+####  huxiaopao163  
+##### 31879#       发表于 2025-3-1 11:17
+
+睦的双重人格，定位不就和mygo里素世想要复辟c团差不多。
+本来就不是那种每个人分配差不多的集数来写的单元剧，而是会以某个人或者某几人的事情当做主线，其他人被动卷入主线的方式来写。
+比如mujica这里，先不说祥子，海玲和喵梦，明显就是通过被动卷入睦的事情，来写这两人的故事。如果睦的问题早早解决了，那海玲和喵梦现在的故事都不成立了。
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  huxiaopao163  
+##### 31880#       发表于 2025-3-1 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67548421&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-1 11:16</a>
+是的，虽然母鸡卡拍睦头传和大莫传，恶评如潮，但总还有些人是喜欢看这些的，结果明摆着睦头和大莫下一集 ...</blockquote>
+这个明摆着是哪里来的，舅舅剧透吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  الطائر  
+##### 31881#       发表于 2025-3-1 11:19
+
+根据声优访谈，第10话应该会有Live，祥子会有音乐性的蜕变。
+
+猜想：第10话墨提斯的表演会被戳穿，祥子以为一辈子见不到睦了，万念俱灰，终于领悟了黯然销魂掌，说错了，是新曲“黑色生日”。
+
+
+*****
+
+####  zhoujin8584  
+##### 31882#       发表于 2025-3-1 11:22
+
+做好最大的滑坡，万一是抓住你抓住我，真要退票了
+
+*****
+
+####  bbjajdd  
+##### 31883#       发表于 2025-3-1 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67548447&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-3-1 11:19</a>
+
+这个明摆着是哪里来的，舅舅剧透吗
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+各路舅舅都在说大段家族戏
+

@@ -3854,3 +3854,46 @@ Stream Attac ...</blockquote>
 <img src="https://files.catbox.moe/s60a69.jpg" referrerpolicy="no-referrer">
 <img src="https://files.catbox.moe/brf28e.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  咲良うた  
+##### 626#       发表于 2025-3-1 11:17
+
+第05話　マネージャーさん、ついちゃった！
+
+脚本：山田由香
+
+絵コンテ：佐々木憲世
+
+演出：渡邊智喜
+
+作画監督：青山充
+
+美術：徐柱星
+
+うた（CV.松岡美里）となな（CV.髙橋ミナミ）のもとに、ふたりがアイドルプリキュアであることを知る「田中」と名乗る人物が訪れてきた。キラキランドの女王・ピカリーネに聞いてみると、田中はアイドルプリキュアの使命をサポートするためにやってきたというのだ。その話を聞いている途中、「プリキュアにお仕事を頼みたい」というメッセージを見かけたうたとななは、これを引き受けたいと田中にお願いする。「人前に出るような活動は避けるべき」と言う田中だったが、プリルンにも強くお願いされ、引き受けることにする。仕事の内容は「プリティホリックの新作コスメのCMに出てほしい」というもので、撮影場所ははなみちタウンに新しくオープンするお店だったが、撮影日はなんと明日だった。
+<img src="https://files.catbox.moe/l3sr0w.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/4a3cnv.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/dnp619.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/oqcpvv.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/azrd6z.jpg" referrerpolicy="no-referrer">
+
+諏訪部順一（田中役）コメント
+
+遂に私もプリキュアに！齢五十を越えても夢は……え、違うんですか！？キュアジェントルとか、キュアダンディとか、演じる準備万端なんですけどォ！冗談はさておき、以前劇場作品に一度出演したことはありましたが、TV シリーズはこれが初。田中ことタナカーンは、アイドルプリキュアたちにとって、その正体を知る一番身近な大人（な見た目）的存在。つまり、この作品をご覧くださっている大人のみなさんが、最もご自身を投影しやすいポジションというわけです！この先どのように関わっていくのかはわかりませんが、最終回までいて欲しいなぁと切に願っております。応援よろしくお願いします！あわよくばプリ……もう言いますまい（笑）。
+
+
+*****
+
+####  modedd  
+##### 627#       发表于 2025-3-1 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67548430&amp;ptid=2208663" target="_blank">咲良うた 发表于 2025-3-1 11:17</a>
+第05話　マネージャーさん、ついちゃった！
+
+脚本：山田由香</blockquote>
+又是个大物cv呀<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
