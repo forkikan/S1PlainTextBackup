@@ -4969,3 +4969,96 @@ MAV是一年战争结束后才被夏利亚写入吉翁军教科书并推广到�
 
 性转牢修，那不是拉拉吗？（指牢鸭先来的但心被红发少年泡走<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 7799#       发表于 2025-3-1 19:35
+
+[ふたい (@futai21) / X](https://x.com/futai21)
+
+<img src="https://img.saraba1st.com/forum/202503/01/193519hbbkki7ctuf2itvt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.97 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-1 19:35 上传
+
+<img src="https://img.saraba1st.com/forum/202503/01/193534bam5wp8so2g1mglg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-1 19:35 上传
+
+*****
+
+####  刺客ares  
+##### 7800#       发表于 2025-3-1 19:35
+
+还有一个假药就是，<strong>修司</strong>和<strong>夏亚</strong>是反色前面已经说过了
+
+玛秋反色后的<strong>绿发绿瞳</strong>不是在呼应凤或者葵丝这些NT少女，而是<strong>夏利亚·布尔</strong>本人
+
+为什么夏利亚在原作是灰发灰须，新版却变成了绿叔叔，也是给这个对照关系包饺子
+
+<img src="https://img.saraba1st.com/forum/202503/01/193011e3x84hllxelo8htl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (142.49 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-1 19:30 上传
+
+
+*****
+
+####  岸浪白野  
+##### 7801#       发表于 2025-3-1 19:38
+
+奶奶头与绿叔叔的同人
+
+[X 上的 干し丿：“捏造120%まんが。 戦いに呼ばれる男と戦いを呼ぶ男(1/2) [url]https://t.co/cX60K0vqOR](https://x.com/xhoshinox/status/1895683617562771745)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202503/01/193733dnn1tz8l8bhnl22l.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.15 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-1 19:37 上传
+
+<img src="https://img.saraba1st.com/forum/202503/01/193740jsmsrh6skpg6kpp6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.17 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-1 19:37 上传
+
+<img src="https://img.saraba1st.com/forum/202503/01/193745ti7azunepaeuvd7j.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.19 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-1 19:37 上传
+
+<img src="https://img.saraba1st.com/forum/202503/01/193758j9gh9iimcivho9ao.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.08 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-1 19:37 上传
+
+<img src="https://img.saraba1st.com/forum/202503/01/193805am1otejmm1cmkcxt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.19 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-1 19:38 上传
+
