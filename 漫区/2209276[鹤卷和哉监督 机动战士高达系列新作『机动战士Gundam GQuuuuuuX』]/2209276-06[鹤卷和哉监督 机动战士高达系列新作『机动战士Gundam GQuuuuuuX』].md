@@ -4536,3 +4536,23 @@ https://x.com/zoo0420/status/1895454815926501635?s=46
 
 2025-3-1 14:04 上传
 
+
+*****
+
+####  kuriri  
+##### 7762#       发表于 2025-3-1 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67549559&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-3-1 14:04</a>
+
+楼上这是传说中的三眼GM？有点像高达X里的新联邦量产机。</blockquote>
+蛮帅的诶！
+
+*****
+
+####  Gysumitka  
+##### 7763#       发表于 2025-3-1 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67549559&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-3-1 14:04</a>
+楼上这是传说中的三眼GM？有点像高达X里的新联邦量产机。</blockquote>
+吉翁版吉姆
+
