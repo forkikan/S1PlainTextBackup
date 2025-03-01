@@ -112,3 +112,21 @@ Day 1 業務聯絡環節：
 
 → おーばーざぷりずむ
 
+
+*****
+
+####  Alicest  
+##### 6938#       发表于 2025-3-1 19:06
+
+我还是不理解为什么20周年没有moiw
+
+*****
+
+####  wfhtony  
+##### 6939#       发表于 2025-3-1 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67551338&amp;ptid=2130897" target="_blank">Alicest 发表于 2025-3-1 19:06</a>
+
+我还是不理解为什么20周年没有moiw</blockquote>
+今年七月才正式開始20週年，moiw應該要明年了...
+
