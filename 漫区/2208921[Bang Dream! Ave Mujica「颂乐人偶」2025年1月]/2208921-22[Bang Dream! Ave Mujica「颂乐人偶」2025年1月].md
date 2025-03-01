@@ -8919,3 +8919,52 @@ MyGO的后期大概是10-13集的时候，这个时候她应该还是有参与�
 
 如果没这茬，就是单纯的原案里更黑的大祥，不仅利用睦招揽网红也要用她吸流量，更极致的睦祥关系。
 
+
+*****
+
+####  天空塔书记官  
+##### 31871#       发表于 2025-3-1 10:54
+
+ 本帖最后由 天空塔书记官 于 2025-3-1 10:56 编辑 
+
+<img src="https://p.sda1.dev/22/bf96f745dfa662cb4104bcbba09b6fac/image.jpg" referrerpolicy="no-referrer">
+
+相反，祥子现在很想要重组ave，否则不会这么说
+
+双重否定表示肯定<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zhoujin8584  
+##### 31872#       发表于 2025-3-1 10:54
+
+<blockquote>adretyu67. 发表于 2025-3-1 10:43
+第9话祥子连琴都弹不动了。
+
+应该是组不动乐队了。</blockquote>
+我的看法反而是向上的，终于能弹点单音了，第五集碰都不碰的
+
+
+*****
+
+####  号为熊  
+##### 31873#       发表于 2025-3-1 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67548083&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-3-1 10:31</a>
+
+还能这么滑坡 那高尾不喜欢独角兽的脚本喜欢十本现在瞎**改的吗</blockquote>
+滑坡的核心是绫奈后面估计干了大的才能把高尾气成这样
+
+至于柿本改过的剧本是个什么玩意倒在其次
+
+*****
+
+####  非建政专用号  
+##### 31874#       发表于 2025-3-1 11:04
+
+168这个数字虽然扯蛋吧，但祥爹要是发现自己女儿的回旋镖大师身份带着去玩股票，应该早就反向收购丰川家了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
