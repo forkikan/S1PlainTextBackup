@@ -11235,3 +11235,15 @@ All in最新的时间线乱序说<img src="https://static.saraba1st.com/image/sm
 
 这集破防点不是串子太多吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本来祥子就始乱终弃，这边粉毛拱火，那边被木头拿灯和ccc辱，这都不是病不病娇的问题，整整一集她都在被跳脸
 
+
+*****
+
+####  zhoujin8584  
+##### 32072#       发表于 2025-3-1 23:56
+
+<blockquote>杂灰 发表于 2025-3-1 23:45
+这集破防点不是串子太多吗本来祥子就始乱终弃，这边粉毛拱火，那边被木头拿灯和ccc辱，这都不是病不病娇的 ...</blockquote>
+动杀心还是不对的，估计给她迫害位也是为了平衡这一场。
+
+但本可不必如此，或者换个女监督来整点扇巴掌扯头发都比这种演出观感上会好一些。
+
