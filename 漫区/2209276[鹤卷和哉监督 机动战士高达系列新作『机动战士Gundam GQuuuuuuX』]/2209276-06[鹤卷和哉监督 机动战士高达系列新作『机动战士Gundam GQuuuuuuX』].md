@@ -4518,3 +4518,21 @@ https://x.com/zoo0420/status/1895454815926501635?s=46
 
 <img src="https://p.sda1.dev/22/80e8b3f15cb42e40d292932bc599f8f7/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猪突猛进R  
+##### 7761#       发表于 2025-3-1 14:04
+
+<img src="https://p.sda1.dev/22/80e8b3f15cb42e40d292932bc599f8f7/image.jpg" referrerpolicy="no-referrer">
+
+楼上这是传说中的三眼GM？有点像高达X里的新联邦量产机。
+
+<img src="https://img.saraba1st.com/forum/202503/01/140400c5m64ct9k5ygxi69.jpg" referrerpolicy="no-referrer">
+
+<strong>ed6b7c8c9d5585cd22ae0b403d3e9fd6-w1200h1200.jpg</strong> (213.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-1 14:04 上传
+
