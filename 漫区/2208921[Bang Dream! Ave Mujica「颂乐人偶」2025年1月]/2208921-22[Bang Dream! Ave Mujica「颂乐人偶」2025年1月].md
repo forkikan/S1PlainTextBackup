@@ -9657,3 +9657,50 @@ mujica从烂片到让人恶心就是硬拆爱灯导致的，尤其第九集完�
 
 现在直接变大莫传了，睦死了活活了死死了活，就这一套玩到第十集，正常观众都能看出这沟槽的双重人格设定有大问题
 
+
+*****
+
+####  sauron.j  
+##### 31934#       发表于 2025-3-1 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67549748&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-3-1 14:35</a>
+
+与其说c团，不如说双重人格这个一拍脑门的设定
+
+我都想不通了，2-10集的双重人格，把这逼玩意删了换成其他 ...</blockquote>
+大概觉得睦头这个自闭白瘦幼有点和灯重复了，作为续集缺乏爆点
+
+感觉柿本绝壁是罗德里格兹和大卫林奇的片看多了，全是邪典味
+
+
+*****
+
+####  MASKA-1  
+##### 31935#       发表于 2025-3-1 14:42
+
+mortis不是假弹，是逆练吉他。
+别人正常是学指法，学和弦，然后按谱子练，最后实现演奏 。mortis学的时候是全程看睦的录像，copy睦在演奏中的每一个动作，实际上并不理解手上每个动作与吉他发出的每个音之间的联系。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 31936#       发表于 2025-3-1 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67549765&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-3-1 14:39</a>
+大概觉得睦头这个自闭白瘦幼有点和灯重复了，作为续集缺乏爆点
+
+感觉柿本绝壁是罗德里格兹和大卫林奇的片 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">邪典也不够邪典啊，真邪典有本事写墨缇丝夺舍睦，有本事让祥子彻底黑化不当人，初华推睦是真实发生的。
+现在就纯在恶心人，鸡团5个本来该是一丘之貉，主打一个人人都干了，结果被塑造成没人喜欢的5神人，主观能动性是一点都没的，纯粹是编剧的玩具，设定想一出是一出
+
+*****
+
+####  肛之练筋士  
+##### 31937#       发表于 2025-3-1 14:45
+
+<img src="https://p.sda1.dev/22/ba6b715d461feced0f4d69795e3b5c9e/CMP_20250301144436548.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/22/2cb46553f97bb550b16586f6686f1bc0/CMP_20250301144507679.jpg" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">任你购:草了，这生意亏大了
+

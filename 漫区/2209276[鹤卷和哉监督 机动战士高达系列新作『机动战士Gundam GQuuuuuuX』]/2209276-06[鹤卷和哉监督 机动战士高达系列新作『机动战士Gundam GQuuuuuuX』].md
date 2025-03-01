@@ -4572,3 +4572,34 @@ GQuuuuuuX对红高达，GQuuuuuuX率先在殖民地外发现带两个浮游炮�
 
 现在不清楚为什么红高达不使用光束军刀。
 
+
+*****
+
+####  az一串字母  
+##### 7765#       发表于 2025-3-1 14:40
+
+gqx和红高闯进side6后，有一个镜头是给到一个bit，然后那个bit看起来不知道是失灵还是功率减小总之在抖动，反正后来这个bit冲向gqx就被艾格萨贝抓住当锤子扔了，我看的时候对这个镜头印象蛮深的，因为是唯一的一个bit特写镜头，但看repo好像没什么人提
+
+
+*****
+
+####  kuriri  
+##### 7766#       发表于 2025-3-1 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67549734&amp;ptid=2209276" target="_blank">xwr 发表于 2025-3-1 14:33</a>
+
+二刷搞明白了机体武器都是怎么损失的
+
+GQuuuuuuX对红高达，GQuuuuuuX率先在殖民地外发现带两个浮游炮的红高 ...</blockquote>
+红高达里有夏亚灵魂的话，不愿意伤害吉翁的普通士兵也是可能的吧？所以主要的攻击手段都是撞击。
+
+*****
+
+####  xwr  
+##### 7767#       发表于 2025-3-1 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67549770&amp;ptid=2209276" target="_blank">az一串字母 发表于 2025-3-1 14:40</a>
+
+gqx和红高闯进side6后，有一个镜头是给到一个bit，然后那个bit看起来不知道是失灵还是功率减小总之在抖动， ...</blockquote>
+我看的时候以为是因为离地面太近受到重力影响需要多余的控制，就好像UC里刹帝利的浮游炮受重力影响不小心打爆了融合炉。
+
