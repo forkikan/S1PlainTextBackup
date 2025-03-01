@@ -357,3 +357,23 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  森兰丸  
+##### 16438#       发表于 2025-3-2 04:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67549866&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-3-1 14:53</a>
+
+怎么能不要呢  一张护符对于你来说那就是1个5星！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我可不是萌新！
+
+*****
+
+####  森兰丸  
+##### 16439#       发表于 2025-3-2 04:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">觉得这游戏是不是真的要提桶跑人了....都3月份了还来限定替换
+
+狂出一堆卡池那就是最后再捞一波的节奏啊
+
