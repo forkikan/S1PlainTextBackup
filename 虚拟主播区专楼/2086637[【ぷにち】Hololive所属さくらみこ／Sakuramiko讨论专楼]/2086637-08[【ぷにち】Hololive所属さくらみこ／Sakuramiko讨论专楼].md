@@ -1056,3 +1056,30 @@ bn
 
 不如直接单独开一条新生产线单独生产这个机器算了
 
+
+*****
+
+####  karastar  
+##### 10830#       发表于 2025-3-1 12:37
+
+这种卖一波就结束的产品单开一条线就真的亏钱了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  holofan  
+##### 10831#       发表于 2025-3-1 13:11
+
+<img src="https://img.saraba1st.com/forum/202503/01/130915qqiu01c4i0t04li0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (90.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-1 13:09 上传
+
+看看这畅销排名很有意思
+
+加湿器本体下单的人最多
+
+玩偶虽然看着有意思而且便宜但是买的人不多还不如加湿器，还有料理机卖的还不如玩偶，性价比最低了
+

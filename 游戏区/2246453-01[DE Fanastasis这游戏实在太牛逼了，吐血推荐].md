@@ -2946,3 +2946,16 @@ F5确实可以，但是又觉得分辨率有点低...
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  83913536  
+##### 259#       发表于 2025-3-1 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67547284&amp;ptid=2246453" target="_blank">alleriawr9 发表于 2025-3-1 05:46</a>
+
+在伊修特尔村子里解锁，不知道你开没开村子，打完最终boss之后还有几个记忆要拿，拿完才能开
+
+论坛助手,iPh ...</blockquote>
+噢噢 找到地方了 谢谢
+
