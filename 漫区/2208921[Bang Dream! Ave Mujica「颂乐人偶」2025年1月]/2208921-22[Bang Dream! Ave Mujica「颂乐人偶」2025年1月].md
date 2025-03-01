@@ -10918,3 +10918,57 @@ gv一样的运镜
 
 那是初华不知道祥子藏满贴纸的笔记本，还在这唬灯写的词是mygo不是crychic，祥子管你这些吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  梅杜莎  
+##### 32043#       发表于 2025-3-1 22:53
+
+初华看灯递来的本子，真能读懂意思
+
+<img src="https://img.saraba1st.com/forum/202503/01/225229rrswzz6wfxpfzzcr.jpg" referrerpolicy="no-referrer">
+
+<strong>2344234234234523.jpg</strong> (137.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-1 22:52 上传
+
+知道现在灯已经回不去，成不了事，并不构成威胁呗<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  DeltaStriker  
+##### 32044#       发表于 2025-3-1 22:55
+
+害 万一下集告诉你是大结局ccc live写的歌呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+如果真是写给mygo的歌 初华既然能看懂 那为什么要急眼呢
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  老贝  
+##### 32045#       发表于 2025-3-1 22:55
+
+ 本帖最后由 老贝 于 2025-3-1 22:56 编辑 
+
+初华又没去看过MyGO的演出，Crychic也就2首歌，其中一首甚至没公开演出过，她怎么知道两边风格的区别。
+
+能讲出这话感觉更像是被歌词里的感情吓到了，感觉到灯祥二人大概率真的有过神交。
+
+Mujica那边甚至完全没有人在意过她的歌词与祥子作曲之间的关系，于是下意识的出口否认。
+
+*****
+
+####  影伴光生  
+##### 32046#       发表于 2025-3-1 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67553044&amp;ptid=2208921" target="_blank">梅杜莎 发表于 2025-3-1 22:53</a>
+初华看灯递来的本子，真能读懂意思
+
+知道现在灯已经回不去，成不了事，并不构成威胁呗  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也可能是双手各推一个的动作不好调
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
