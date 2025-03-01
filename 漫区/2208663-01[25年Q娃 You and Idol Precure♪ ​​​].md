@@ -3833,3 +3833,24 @@ Stream Attac ...</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  咲良うた  
+##### 625#       发表于 2025-3-1 10:28
+
+【プリキュア プリティストア出張店 in オプシアミスミ】
+
+🎉 3月20日(木・祝)～4月13日(日)期間限定で開催決定！！🎉
+
+鹿児島『オプシアミスミ』にプリキュア プリティストアがやってくる！
+
+プリティストアオリジナルグッズや出張店限定グッズが盛りだくさん♪
+
+オプシアミスミ限定のグッズも発売♫
+
+ぜひ遊びに来てね❣
+<img src="https://files.catbox.moe/oega4y.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/s60a69.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/brf28e.jpg" referrerpolicy="no-referrer">
+
