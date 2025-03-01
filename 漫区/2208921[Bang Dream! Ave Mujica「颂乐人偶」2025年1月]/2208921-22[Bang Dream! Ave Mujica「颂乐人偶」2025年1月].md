@@ -9865,3 +9865,13 @@ bd这个确实没法，核心粉丝肯定不走国内渠道，目前来看路人
 如果按原案，mygo也是能上武道馆的水平了，不就逆练gbc，拿什么碰瓷花田</blockquote>
 我原话可没说按照原设，而是按照鸡团开播前不少人说的，希望看到鸡团薄纱狗团，狗团不配参与鸡团事宜，这样两边粉丝大战也很有意思，我对原设一点兴趣都没有
 
+
+*****
+
+####  DeltaStriker  
+##### 31953#       发表于 2025-3-1 15:35
+
+感觉挺奇妙的 原来想写am 给am整了个ccc和mygo两个垫子 结果am自己的人物和故事没整好 反而两个垫子赢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
