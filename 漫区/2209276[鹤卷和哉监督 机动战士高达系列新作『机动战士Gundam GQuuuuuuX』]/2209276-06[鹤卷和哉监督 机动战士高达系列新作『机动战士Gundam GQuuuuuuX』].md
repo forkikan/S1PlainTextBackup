@@ -5184,3 +5184,17 @@ X 上的 干し丿：“捏造120%まんが。 戦いに呼ばれる男と戦い
 吉翁经济实力不行，就算停战算是占了便宜后续依然是无以为继啊，毕竟战争只是手段，经济才是根本，他们这赢 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">还是内部有矛盾吧，要不然按汤大基（还活着）的性格，不是说屠就屠了，灭side 6如灭side 2。经济不行没啥，邻居屯粮我屯枪，邻居的粮就是我的粮啊。
 
+
+*****
+
+####  岸浪白野  
+##### 7813#       发表于 2025-3-2 02:14
+
+ 本帖最后由 岸浪白野 于 2025-3-2 02:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67553751&amp;ptid=2209276" target="_blank">被子十三 发表于 2025-3-2 00:42</a>
+
+这个同人画得好啊。假如奶奶头能在TV露脸就爽了
+
+— from S1 Next Goose v3.3.96</blockquote>
+鹤卷设成0085年就是为了回避有奶奶头的存在还已经从木星归来搞事破坏设定的平衡，已经被禁赛了
+
