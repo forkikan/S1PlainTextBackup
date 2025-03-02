@@ -71,3 +71,18 @@ Z社新作来了
 另外  ...</blockquote>
 很好，原来zachtornic关过不止一次门<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，道听途说第二次关门似乎也和Möbius Front '83没有成功有很大关系。
 
+
+*****
+
+####  铃森冬  
+##### 253#       发表于 2025-3-2 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67557734&amp;ptid=2017380" target="_blank">BRAVADO 发表于 2025-3-2 17:47</a>
+
+很好，原来zachtornic关过不止一次门，感觉他们每次关门都和离开编程游戏舒适区搞其他游戏脱不开关系，道 ...</blockquote>
+翻了下书 Zachtronics 第一次关门其实是15年发售完 Infinifactory 和 TIS-100 之后，Zach 在书里说当时逐渐觉得自己还是想关掉工作室找个班上，去面了微软和 Valve，然后在V社干了10个月就跑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这回也是终于回归老本行了，我看 Discord 上 Zach 还说新游戏 KAIZEN 的 playtesting 几个月前就完成了，目前已经开始了下一个项目的开发流程
+
+旧招牌 Zachtronics 之前是已经卖给一个叫 Alliance 的母公司不自负盈亏但现在可能用不了了，这回的新招牌 Coincidence 官网上直接自我定性成灵活的商业框架（flexible business framework）搞上合伙制了也是<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

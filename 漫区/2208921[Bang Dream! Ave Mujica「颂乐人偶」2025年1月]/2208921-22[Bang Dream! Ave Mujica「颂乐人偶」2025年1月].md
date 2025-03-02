@@ -13557,3 +13557,42 @@ go好歹是明牌立希认为灯的歌词代言她的感受，碧天伴走为爱
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  zhoujin8584  
+##### 32263#       发表于 2025-3-2 18:04
+
+<img src="https://img.saraba1st.com/forum/202503/02/180448w8ge33bzf8qrs88q.jpg" referrerpolicy="no-referrer">
+
+<strong>3F921D47DFBB8308E497C1ADDD989D3E.jpg</strong> (283.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-2 18:04 上传
+
+*****
+
+####  [皆神孝介]  
+##### 32264#       发表于 2025-3-2 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67557366&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-3-2 16:45</a>
+
+泛八爷擅长情绪流分析，主要来自阅片量和做MAD的情感投入
+
+蒋怪有长年的记笔记mind map习惯，比较喜欢代入 ...</blockquote>
+（代发中字）It s MyGO!!!!!系列构成·绫奈由仁子访谈②
+[https://www.bilibili.com/opus/858550669814005817](https://www.bilibili.com/opus/858550669814005817)
+
+Ctrl+F 搜索 “讨论”
+
+不过Ave Mujica的情况恐怕等不到系列构成的访谈了
+
+
+*****
+
+####  zhoujin8584  
+##### 32265#       发表于 2025-3-2 18:13
+
+素世，神！
+
