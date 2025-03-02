@@ -130,3 +130,48 @@ Day 1 業務聯絡環節：
 我还是不理解为什么20周年没有moiw</blockquote>
 今年七月才正式開始20週年，moiw應該要明年了...
 
+
+*****
+
+####  wfhtony  
+##### 6940#       发表于 2025-3-2 19:00
+
+ 本帖最后由 wfhtony 于 2025-3-2 19:02 编辑 
+
+Day 2 業務聯絡環節：
+
+<img src="https://tc2.wfhtony.space/images/2025/03/02/19291ced7cf514347d7988205d8f9c45.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2025/03/02/72da4669b607c1b5128c0fdd1e467c85.png" referrerpolicy="no-referrer">
+
+<img src="https://tc2.wfhtony.space/images/2025/03/02/390b718533b434b6358a909373c72203.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2025/03/02/ff5f7b7b5a19fb3a5768c7b6d8eec0cf.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2025/03/02/f66911fb302c26e44ca80c1050abd626.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2025/03/02/0c452579cc52a60eb861b0fa145dd881.png" referrerpolicy="no-referrer">
+
+7th巡演前兩場的KV公開，週邊商品將於今晚開始先行預約。
+
+=====
+<img src="https://tc1.wfhtony.space/images/2025/03/02/ff662aae8a69afdfcd3aec54191e7f2b.png" referrerpolicy="no-referrer">
+<img src="https://tc1.wfhtony.space/images/2025/03/02/1be432992ebc66eaa9aeebe1d2de93c9.png" referrerpolicy="no-referrer">
+
+=====
+<img src="https://tc1.wfhtony.space/images/2025/03/02/0c5e71916b0f7bdb721c0d3cdb979f53.png" referrerpolicy="no-referrer">
+<img src="https://tc1.wfhtony.space/images/2025/03/02/a606126f57c823b153b40b001a30a37b.png" referrerpolicy="no-referrer">
+
+<img src="https://tc1.wfhtony.space/images/2025/03/02/df5e03a43eb571c3b575f2b85494a095.png" referrerpolicy="no-referrer">
+<img src="https://tc1.wfhtony.space/images/2025/03/02/3fefc25a19a245e9ce68e74ffdd842e1.png" referrerpolicy="no-referrer">
+<img src="https://tc1.wfhtony.space/images/2025/03/02/9559760d21a1e03eff63dda602c5101f.png" referrerpolicy="no-referrer">
+
+S4P之後會在**上虛擬LIVE（MV連播+《Another Rampage》MV公開（←後述））。
+
+<img src="https://tc1.wfhtony.space/images/2025/03/02/12196916b0bd062b6a612739e5cb2292.png" referrerpolicy="no-referrer">
+<img src="https://tc1.wfhtony.space/images/2025/03/02/6d91faa5294986f4931855177e233453.png" referrerpolicy="no-referrer">
+
+<img src="https://tc1.wfhtony.space/images/2025/03/02/5c7ca352ed13e0bfddd344d7e1c6853e.png" referrerpolicy="no-referrer">
+<img src="https://tc1.wfhtony.space/images/2025/03/02/42b58c5071d056277e920583b3a3ef46.png" referrerpolicy="no-referrer">
+<img src="https://tc1.wfhtony.space/images/2025/03/02/d63079bddfe5dc5fe5ed460e50eec7bf.png" referrerpolicy="no-referrer">
+
+765的大前輩要到S4P登場了。
+
+Day 2 業務聯絡環節結束。
+
