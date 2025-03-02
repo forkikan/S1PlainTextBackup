@@ -4060,3 +4060,18 @@ q娃每年都逃不过pretty holic了吗，比异性恋更令人不适，卖化�
 
 pretty holic可是万代的雄心壮志啊，怎么可能不宣传
 
+
+*****
+
+####  pokemon最爱  
+##### 645#       发表于 2025-3-2 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67558438&amp;ptid=2208663" target="_blank">raimouse 发表于 2025-3-2 19:37</a>
+
+热带的时候我就觉得化妆主题很怪
+
+看Q娃的正经商业受众是10来岁的小妹妹吧,化啥妆 ...</blockquote>
+文化不一样吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而且对于幼女前辈们来说可能化妆是成为大人的象征对此有憧憬？
+

@@ -13937,3 +13937,40 @@ https://tieba.baidu.com/p/9539459678 战吧找到时间乱序的实锤了，第�
 
 除非说解散也是一种炒作方式<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 32296#       发表于 2025-3-2 20:17
+
+ 本帖最后由 aptx8285144 于 2025-3-2 20:18 编辑 
+
+翻啥身，撑死了live开的好看一些，<strong>而这片的文戏和人物塑造还嫌不够灾难性吗</strong><img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 32297#       发表于 2025-3-2 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67558800&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-2 20:15</a>
+
+贴吧那个贴子给出的假设如果是真的，参照数学教学进度，鸡团1.0爆炸时间应该是狗团动画期间的一学期。
+
+这 ...</blockquote>
+先不管别的，爆炸两次，那岂不让这周的海林和初华的表现看起来很小丑吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  adretyu67.  
+##### 32298#       发表于 2025-3-2 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67558858&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-2 20:20</a>
+
+先不管别的，爆炸两次，那岂不让这周的海林和初华的表现看起来很小丑吗 ...</blockquote>
+对啊。我寻思了半天。调整时间只能把鸡团剧中的爆炸时间调整到狗团动画的一学期。
+
+也就是说目前第9话最后ring10人大乱斗也在狗团动画的一学期。
+
+但是鸡团全国巡演和仙台解散的时间定死了在10月初，这个改不了啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
