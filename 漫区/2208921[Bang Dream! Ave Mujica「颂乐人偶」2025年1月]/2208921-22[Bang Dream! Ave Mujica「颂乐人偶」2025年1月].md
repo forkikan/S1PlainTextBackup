@@ -14039,3 +14039,36 @@ https://tieba.baidu.com/p/9539459678 战吧找到时间乱序的实锤了，第�
 坛友这个“数Ⅱ”的考据出处是哪里？</blockquote>
 三角函数在日本高中数学教纲里属于高等学校数学II(简称数II)的内容
 
+
+*****
+
+####  抽搐一下  
+##### 32305#       发表于 2025-3-2 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67321236&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-1-31 16:30</a>
+
+Ave Mujica前五话时间线
+
+（第5话终于给出了明确的日期，可以推出较为可靠的时间线）</blockquote><blockquote>9月5日(六) - 祥子离开破屋；武道馆公演，喵梦摘面具</blockquote>
+ep2，4：13爱灯上学时候说昨天武道馆，应该不是周六
+
+
+*****
+
+####  ape-apple  
+##### 32306#       发表于 2025-3-2 21:42
+
+萌战吧有些人知道自己是精神病，有些不知道，但信萌战吧原创假药的无一例外都是精神病<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">你们正常观众不要拿着一个萌战吧脑洞帖子就当开了天眼一样，到结局了，假药变真屎，人家拍拍屁股走向下一个“扭曲番”做“嗜血长颈鹿”，你留在原地大喊“不，不是这样的！”，有意义吗
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| DeltaStriker| + 1|欢乐多|
+
+查看全部评分
+
