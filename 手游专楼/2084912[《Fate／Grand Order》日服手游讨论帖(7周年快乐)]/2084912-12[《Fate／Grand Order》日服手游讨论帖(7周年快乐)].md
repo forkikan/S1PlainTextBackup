@@ -438,3 +438,16 @@
 鸣         有明
 濑岩泷川   末
 
+
+*****
+
+####  シャル  
+##### 16445#       发表于 2025-3-2 19:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67556826&amp;ptid=2084912" target="_blank">eilot 发表于 2025-3-2 15:09</a>
+
+終於要去考慮如何打所長塔1了
+
+綁了外星人的星盤</blockquote>
+外星人不可能有主线，人理论外
+

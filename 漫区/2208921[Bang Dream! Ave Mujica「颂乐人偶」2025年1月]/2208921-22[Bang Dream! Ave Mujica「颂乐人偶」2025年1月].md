@@ -13679,3 +13679,21 @@ mygo是音乐如此美好如此感人，让我们一起进入幸福的 幻梦中
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">瞄了几眼访谈,按访谈里提到的创作过程,压根就不存在微博传的什么"柿本没参与的独角兽主笔的原剧本"吧
 
+
+*****
+
+####  澜沫  
+##### 32274#       发表于 2025-3-2 19:09
+
+第三集我雷达就响了，5集之后只看截图。
+你这何止是不如go啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2020, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  my707776310  
+##### 32275#       发表于 2025-3-2 19:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在哪儿还是比不比得上go的问题,都快直接把go拖下水了
+

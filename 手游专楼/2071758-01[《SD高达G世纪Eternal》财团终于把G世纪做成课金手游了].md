@@ -1005,3 +1005,26 @@ SD高达G世纪永恒，来讲讲这次的母舰吧_1_ztkong_来自小红书网�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  シャル  
+##### 82#         楼主| 发表于 2025-3-2 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67557565&amp;ptid=2071758" target="_blank">马德兴 发表于 2025-3-2 17:15</a>
+
+我看抽UR机体池子抽到会送UR驾驶员，那么其他非UR驾驶员一般要怎么入手啊？打完关卡直接送吗？
+
+—— 来自  ...</blockquote>
+SR技师不是直接花金币买入吗
+
+*****
+
+####  シャル  
+##### 83#         楼主| 发表于 2025-3-2 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67543851&amp;ptid=2071758" target="_blank">ティグル 发表于 2025-2-28 17:02</a>
+
+没独眼没闪哈，这参战也太敷衍了</blockquote>
+这个当然是以后UR卡池
+
