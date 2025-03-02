@@ -12689,3 +12689,39 @@ mujica ...</blockquote>
 被朴素路人被骂“关系不熟”不回消息。</blockquote>
 “虽然卡面上没写，但这张卡确实有这个效果”是吧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 32190#       发表于 2025-3-2 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67555688&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-3-2 12:03</a>
+
+鸡至今为止就没什么爽点吧。除了剧情一路爆爆爆，live也不好玩。</blockquote>
+我也不太喜欢母鸡卡的live风格，只有阴森而没有爆炸的那种刺激感，目前最好听的还是ed<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蒹葭公子  
+##### 32191#       发表于 2025-3-2 12:25
+
+只要wsd钦定第七话必须C团和解合奏春日影对标大祥的生日和现实烂炒，这剧本就无解，你哪怕是独角兽原本的复仇鬼祥子，第七话要C团和解，要么就是直接对邦碾压狗团结果被嘴炮一转破防和解，要么就是鸡团已经被祥子玩炸了被狗团捡回去破防和解……不管是哪种，祥子的“复仇”基本可以说是完成了或者暂告一段落了，那剩下8集要演什么？哪怕是鸡团炸了重组，顶天多也就3-4话吧？剩下斗四五集的财阀？不敢想象……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 32192#       发表于 2025-3-2 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67555667&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-3-2 12:00</a>
+
+这集除去祥子的部分确实是睦初那段争宠环节最变态，甚至不是在当事人面前争宠，感觉在看什么抖音短剧，而且 ...</blockquote>
+而且大祥的塑造太玛丽苏了，我甚至觉得十本这些神人还不如一开始就塑造一个亚撒西的主角呢，我现在看睦和初华的表演，只会想到“低质量的争宠”这几个字<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 32193#       发表于 2025-3-2 12:27
+
+？
+<img src="https://p.sda1.dev/22/7a7f25e2f9dc37de05cabd7105bf1f8f/image.jpg" referrerpolicy="no-referrer">
+
