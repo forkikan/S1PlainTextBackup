@@ -14629,3 +14629,13 @@ mujica剧本有两个很严重的问题，和mygo镜像对偶和双重人格，�
 
 “铁暗恋”说主要笑点在于它是素厨滑坡滑出来出的，太有节目效果了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蒹葭公子  
+##### 32356#       发表于 2025-3-3 03:34
+
+说起来我在各个社区看到这样一种（应该说很多）人，他们似乎觉得柿本真的拿着大铁棍子把独角兽赶走，然后自己从头编了一套现在的mujica剧本，所以柿本罪大恶极。
+
+看的我脑子嗡嗡的，以前看人说引流引来一堆圈外人还觉得小圈子抱团很好笑，今天突然发现确实这帮人跟什么少女乐队，邦邦，偶像动画的圈子都没关系，是真的连日本动画的监督系构职权是啥都不知道真·圈外人<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
