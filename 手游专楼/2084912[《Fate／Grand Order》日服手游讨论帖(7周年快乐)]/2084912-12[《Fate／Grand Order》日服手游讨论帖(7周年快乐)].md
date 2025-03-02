@@ -397,3 +397,16 @@
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.44)
 
+
+*****
+
+####  芭德薇  
+##### 16442#       发表于 2025-3-2 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67551878&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-3-1 20:13</a>
+
+太强了
+
+【【FGO】我们月姬玩家真是太有操作辣！土之奥尔加玛丽，4队首通思路阵容参考】 https://www.bilibi ...</blockquote>
+然后右边推荐里刷出好几个4t打完的……
+
