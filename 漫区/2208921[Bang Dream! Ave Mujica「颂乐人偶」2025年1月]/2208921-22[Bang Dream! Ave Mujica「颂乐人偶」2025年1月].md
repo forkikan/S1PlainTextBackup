@@ -14525,3 +14525,16 @@ ras曲子破坏世界人额，好吧人算正常，但是上台了是一群狂�
 
 是挺有意思的，我知道你第十集要包饺子，也大概盘出来了你要怎么包饺子，但我就想看看你具体怎么包的然后开庭给你打分<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  小博禹  
+##### 32347#       发表于 2025-3-3 00:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67559931&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-2 22:54</a>
+就是缺一个对等的人物，不过也没办法，鸡团一群神人，不是人类反派就是同样是伪人，“冷静”这个词语在这 ...</blockquote>
+其实有爱音的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+编剧乐意完全可以让爱音出手，不过和灯一起被封印了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
