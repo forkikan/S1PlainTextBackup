@@ -12483,3 +12483,100 @@ mujica动画整部都充斥着这种感觉。先定好了1集就摘面具，4集
 
 所以观众们看着就会觉得角色们全都有非人感，全是人偶的感觉……
 
+
+*****
+
+####  一心而用  
+##### 32174#       发表于 2025-3-2 11:37
+
+笑死了
+
+【【AveMujica】不要带走母鸡卡！！！-哔哩哔哩】 [https://b23.tv/RkMDZhx](https://b23.tv/RkMDZhx)
+<img src="https://p.sda1.dev/22/311d19aedf438ec88f59634405d493cf/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/a5980016e4329f612481ab6703f11c59/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/201415a3d329ccd5eccaa0482d67e45f/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/14258ca2ab5cb9d9e29ec3396ac13228/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/2c54445b8313571260f9d0bc39373da9/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/67e17d618ec8a8cc1db08e08c5b4cd03/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/aa3c253b2619d6f73b05c21dedcf0d3c/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/3a0f859a690da6bdc937a6cd5f9b29eb/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/fb70bb1aa435c7a57e3003a7f49afa55/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/c46d0f6387a8a397efde6875b0dea007/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/39fca9e2c30d6da4984d426868d94bcc/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  z-hunter  
+##### 32175#       发表于 2025-3-2 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67554797&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-2 09:15</a>
+
+作为一个素推，被访谈找补的素爱气晕了。
+
+被朴素路人被骂“关系不熟”不回消息。</blockquote>
+艹，还是场外找补吧，这个访谈对爱素的关系说得挺符合我的理解的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  堆雪若叶  
+##### 32176#       发表于 2025-3-2 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67555478&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-2 11:33</a>
+
+真要說9話最扯的是燈睦為什麼不是上燈家去看星星， 
+
+燈本身就在家觀星接收電波</blockquote>
+倒是也有多云的特写暗示灯在望远镜里看不到星星，不过灯下楼之后对睦第一句是看星星有种被黄瓜妖精魅惑的感觉
+
+*****
+
+####  aptx8285144  
+##### 32177#       发表于 2025-3-2 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67555479&amp;ptid=2208921" target="_blank">z-hunter 发表于 2025-3-2 11:33</a>
+
+这种先设计目标，然后倒推过程，再控制人物去实现这个创作思路是最危险的，非常容易歪容易工具人
+
+mujica ...</blockquote>
+这就是典型的先画靶子再射箭，只要做不到过程严谨或后续发展的平衡，那最后剧情一塌糊涂，人物各个工具人就是必然
+
+*****
+
+####  零壹贰叁  
+##### 32178#       发表于 2025-3-2 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67555478&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-2 11:33</a>
+真要說9話最扯的是燈睦為什麼不是上燈家去看星星， 
+
+燈本身就在家觀星接收電波</blockquote>
+大家都是工具人罢了
+灯睦去天文馆就是为了要让初华炸的
+
+*****
+
+####  南宮凝香  
+##### 32179#       发表于 2025-3-2 11:41
+
+睦又不喜歡看星星
+
+別人來找你說話，
+
+你帶他去天文館看星星
+
+至少也讓她寄放一下吉他吧
+
+我看吉他睦肘輸了純粹是手拿吉他拿麻了
+
+
+*****
+
+####  aptx8285144  
+##### 32180#       发表于 2025-3-2 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67555478&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-2 11:33</a>
+
+真要說9話最扯的是燈睦為什麼不是上燈家去看星星， 
+
+燈本身就在家觀星接收電波</blockquote>
+go团时期去天文馆已经形成主创们的途径依赖了，更深层原因是“为了遇到初华”而上演初华破防后的脑内大战<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
