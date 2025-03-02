@@ -13060,3 +13060,87 @@ Meme 四格：
 
 在不断挖掘创作者眼中所谓的"角色深度"中"迷失"了自我
 
+
+*****
+
+####  wsuFish  
+##### 32225#       发表于 2025-3-2 14:26
+
+突然想到，海玲教mortis弹空气吉他，但内心世界里吉他睦和mortis吵架的时候一点没提假弹的事啊。吉他睦只是指责mortis抢走了她的角色，而不是从音乐性上入手。仿佛对于睦来说，假弹吉他和真弹吉他没有什么区别，都只是演技罢了。
+
+感觉这能解释之前抽象的“吉他唱不出歌所以不开心”，也会是睦mortis最终和解所需要解决的问题。
+
+不过事到如今考虑精神病人的心路历程也没什么意义就是了
+
+*****
+
+####  thisisaspider  
+##### 32226#       发表于 2025-3-2 14:28
+
+挖掘这种细节当然没意义，现在演出都不是为了表现角色。而是为了表达主创自己独特的想法和品味。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  z-hunter  
+##### 32227#       发表于 2025-3-2 14:30
+
+话说现在剧透基本都实锤了吧
+
+后3集是少女大战财阀，初华是私生女or双子说or小姨，其中私生女最锤
+
+看了剧透基本猜是B站的翻译员工透出来的，他们能拿到台本能看到台词，但是不知道台词具体是哪集的
+
+举例就是在7集GO团塌房之后估计由B站大手紧急出来灭火<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说立希和素世拒绝重组C团，灯犹豫=》结果立希和素世拒绝重组C团的台词分别是8和9集的
+
+*****
+
+####  akiomn  
+##### 32228#       发表于 2025-3-2 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67556563&amp;ptid=2208921" target="_blank">wsuFish 发表于 2025-3-2 14:26</a>
+突然想到，海玲教mortis弹空气吉他，但内心世界里吉他睦和mortis吵架的时候一点没提假弹的事啊。吉他睦只是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">分析墨缇丝这个角色的剧情已经没意义了，跟这个角色相关的剧情逻辑全是爆炸的，一集一个新人设，我到现在都想问问墨缇丝到底会不会用手机，第五集还用芭蕾舞鞋结果第八集你会用手机给海铃发消息？
+第十集说墨缇丝真会弹吉他把睦弹活了我都信
+
+
+*****
+
+####  wsuFish  
+##### 32225#       发表于 2025-3-2 14:26
+
+突然想到，海玲教mortis弹空气吉他，但内心世界里吉他睦和mortis吵架的时候一点没提假弹的事啊。吉他睦只是指责mortis抢走了她的角色，而不是从音乐性上入手。仿佛对于睦来说，假弹吉他和真弹吉他没有什么区别，都只是演技罢了。
+
+感觉这能解释之前抽象的“吉他唱不出歌所以不开心”，也会是睦mortis最终和解所需要解决的问题。
+
+不过事到如今考虑精神病人的心路历程也没什么意义就是了
+
+*****
+
+####  thisisaspider  
+##### 32226#       发表于 2025-3-2 14:28
+
+挖掘这种细节当然没意义，现在演出都不是为了表现角色。而是为了表达主创自己独特的想法和品味。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  z-hunter  
+##### 32227#       发表于 2025-3-2 14:30
+
+话说现在剧透基本都实锤了吧
+
+后3集是少女大战财阀，初华是私生女or双子说or小姨，其中私生女最锤
+
+看了剧透基本猜是B站的翻译员工透出来的，他们能拿到台本能看到台词，但是不知道台词具体是哪集的
+
+举例就是在7集GO团塌房之后估计由B站大手紧急出来灭火<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说立希和素世拒绝重组C团，灯犹豫=》结果立希和素世拒绝重组C团的台词分别是8和9集的
+
+*****
+
+####  akiomn  
+##### 32228#       发表于 2025-3-2 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67556563&amp;ptid=2208921" target="_blank">wsuFish 发表于 2025-3-2 14:26</a>
+突然想到，海玲教mortis弹空气吉他，但内心世界里吉他睦和mortis吵架的时候一点没提假弹的事啊。吉他睦只是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">分析墨缇丝这个角色的剧情已经没意义了，跟这个角色相关的剧情逻辑全是爆炸的，一集一个新人设，我到现在都想问问墨缇丝到底会不会用手机，第五集还用芭蕾舞鞋结果第八集你会用手机给海铃发消息？
+第十集说墨缇丝真会弹吉他把睦弹活了我都信
+
