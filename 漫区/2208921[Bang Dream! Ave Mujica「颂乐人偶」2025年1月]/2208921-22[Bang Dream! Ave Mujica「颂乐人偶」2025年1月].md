@@ -12667,3 +12667,25 @@ mujica ...</blockquote>
 
 再说个鸡的反例，toybee小哥从乐队人的角度说了，狗团成员演奏ccc live，破坏了狗团作为摇滚乐队的神圣性，从乐队性来说不该这样展开。编剧但凡多积累点乐队素材，不可能不注意到这点。这里改成祥睦演奏，狗团成员看，一样可以和解。
 
+
+*****
+
+####  syndrome2032  
+##### 32188#       发表于 2025-3-2 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67555667&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-3-2 12:00</a>
+这集除去祥子的部分确实是睦初那段争宠环节最变态，甚至不是在当事人面前争宠，感觉在看什么抖音短剧，而且 ...</blockquote>
+金毛在大祥面前就很难爆出来了。
+
+*****
+
+####  蒹葭公子  
+##### 32189#       发表于 2025-3-2 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67554797&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-2 09:15</a>
+
+作为一个素推，被访谈找补的素爱气晕了。
+
+被朴素路人被骂“关系不熟”不回消息。</blockquote>
+“虽然卡面上没写，但这张卡确实有这个效果”是吧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

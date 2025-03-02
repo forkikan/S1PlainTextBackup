@@ -5327,3 +5327,23 @@ X 上的 干し丿：“捏造120%まんが。 戦いに呼ばれる男と戦い
 你是不是忘记现代级了？锅炉、轮机什么的都不陌生，甚至还能找到原厂做售后服务。还有顺道运回的一大堆图 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">高达世界的传统，抢夺过来就是我的就能用，不信你看高达
 
+
+*****
+
+####  虛無迴廊  
+##### 7824#       发表于 2025-3-2 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67555243&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-3-2 10:52</a>
+マチュとニャアンは綺麗に分裂補色なのに、シュウジだけ赤青紫で二次色つくってる謎 ...</blockquote>
+角色设计时间不同吧，麻球跟喵安是从一开始就作为对照组的人设，修司则可能是确定要把时间定在uc0085后，再作为跟夏亚等人的关系者设计出来的
+
+*****
+
+####  オルガピピック  
+##### 7825#       发表于 2025-3-2 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67554085&amp;ptid=2209276" target="_blank">太极八爪鱼 发表于 2025-3-2 01:49</a>
+
+还是内部有矛盾吧，要不然按汤大基（还活着）的性格，不是说屠就屠了，灭side 6如灭side 2。经济不行没啥 ...</blockquote>
+德金老爹沒死基连是不敢有太大动作的 而且你灭中立side除了让其他side一起倒戈搞死你外有什么用 真以为鸡瘟能混成鸡瘟帝国？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
