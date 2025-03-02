@@ -3680,3 +3680,18 @@ Ave Mujica niconico 前9话 好评率
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">是不是已经可以证实变态剧透是真的了
 
+
+*****
+
+####  sdeplee  
+##### 396#       发表于 2025-3-2 09:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67553642&amp;ptid=2247654" target="_blank">一心而用 发表于 2025-3-2 00:21</a>
+
+Ave Mujica niconico 前9话 好评率
+
+第1话 81.4% 8.7% 4.5% 3.0% 2.5% 约2200人
+
+第2话 79.4% 8.3% 5.8% 4.6% ...</blockquote>
+霓虹金读空气恐怖如斯
+
