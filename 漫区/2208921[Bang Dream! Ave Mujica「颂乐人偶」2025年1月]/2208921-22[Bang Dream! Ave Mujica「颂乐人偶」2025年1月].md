@@ -13857,3 +13857,40 @@ staff在访谈里表示出一副很努力的样子，指剧情全靠双重人格
 
 再說，戲內演的都是不能重新排序的東西
 
+
+*****
+
+####  抽搐一下  
+##### 32289#       发表于 2025-3-2 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67558590&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-2 19:52</a>
+
+時間亂序沒意義
+
+就現有的材料</blockquote>
+[https://forum.gamer.com.tw/C.php?bsn=31877&amp;snA=6745](https://forum.gamer.com.tw/C.php?bsn=31877&amp;snA=6745)
+
+母鸡卡最早的活动就是超大型ARG，里面的谜题是需要社区参与程度的高难度，没准动画最后自己拼拼图才是那个醋。
+
+*****
+
+####  wwwttth  
+##### 32290#       发表于 2025-3-2 19:59
+
+乱序说的核心问题是你得先排出一个正常的故事出来，光抠细节就像寒蝉业的双世界说一样，后面发现全是作画错误和素材复用的结果。
+
+而且其实就是乱序我也不觉得编剧有能力整合好谜底的演出，这只剩4集了，又不是打越那种在avg里玩。
+
+
+*****
+
+####  aptx8285144  
+##### 32291#       发表于 2025-3-2 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67558533&amp;ptid=2208921" target="_blank">liekong 发表于 2025-3-2 19:47</a>
+
+你问我这片烂不烂，我肯定说烂；你问我说制作组菜不菜，我也肯定说菜。
+
+但烂片归烂片，你要是问我看得开不 ...</blockquote>
+第五集初党要是没被杀干净，算它坚强了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

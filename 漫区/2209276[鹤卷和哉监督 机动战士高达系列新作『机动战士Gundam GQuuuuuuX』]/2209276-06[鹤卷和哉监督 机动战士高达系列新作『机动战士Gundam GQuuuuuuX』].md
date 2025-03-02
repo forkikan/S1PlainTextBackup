@@ -5557,3 +5557,32 @@ side6至少不是战败国，和吉翁更像是殖民地和宗主国的关系
 本篇的片段，你知道海外管的没那么严</blockquote>
 有新的正史角色登场吗？
 
+
+*****
+
+####  gamedreamer  
+##### 7845#       发表于 2025-3-2 19:57
+
+<img src="https://p.sda1.dev/22/8bd8a41a6bf33cb6b22c9c4192474763/image.jpg" referrerpolicy="no-referrer">
+群里发的，好像是联邦的魔女的座驾(话说回来，长得好像吉翁的量产高达呀，难不成反向致敬一波0083<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  az一串字母  
+##### 7846#       发表于 2025-3-2 20:01
+
+<blockquote>gamedreamer 发表于 2025-3-2 19:57
+群里发的，好像是联邦的魔女的座驾(话说回来，长得好像吉翁的量产高达呀，难不成反向致敬一波0083)
+
+——  ...</blockquote>
+联邦魔女这是在用光束武器吗，对gqx和红高有点降维打击了吧
+
+*****
+
+####  巴尔干炮  
+##### 7847#       发表于 2025-3-2 20:02
+
+猛一看还以为是暗黑萨姆斯呢。
+
