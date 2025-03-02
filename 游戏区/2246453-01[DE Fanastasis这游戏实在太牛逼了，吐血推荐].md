@@ -3043,3 +3043,13 @@ F5确实可以，但是又觉得分辨率有点低...
 
 玩得太累了，昨天玩了六七个小时今天完全不想打开……
 
+
+*****
+
+####  病少爷  
+##### 268#       发表于 2025-3-2 13:20
+
+好玩是真的好玩，但玩起来压力也是真的大，找不到路不知道怎么推进，还有开存档点的石头没了没法回程。。<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
