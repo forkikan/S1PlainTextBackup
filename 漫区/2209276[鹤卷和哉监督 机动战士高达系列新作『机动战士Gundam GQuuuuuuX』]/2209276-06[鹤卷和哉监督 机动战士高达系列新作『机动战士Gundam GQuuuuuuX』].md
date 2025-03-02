@@ -5435,3 +5435,16 @@ side6至少不是战败国，和吉翁更像是殖民地和宗主国的关系
 
 麻球作为jk相当时尚，发型是内侧挑染（也可能是天生的），日常带耳饰，私服还配复数耳环
 
+
+*****
+
+####  岸浪白野  
+##### 7834#       发表于 2025-3-2 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67554488&amp;ptid=2209276" target="_blank">被子十三 发表于 2025-3-2 07:46</a>
+原来是这样，奶奶头确实是UC为数不多的全才了。有相应的访谈吗？
+
+— from S1 Next Goose v3.3.96 ...</blockquote>
+场刊访谈，这个可以看有人做成视频的
+【【设定全译】剧情/机设/人设内幕大曝光 高达GQuuuuuuX先行剧场版设定集全译-哔哩哔哩】 https://b23.tv/GlLiBvL
+
