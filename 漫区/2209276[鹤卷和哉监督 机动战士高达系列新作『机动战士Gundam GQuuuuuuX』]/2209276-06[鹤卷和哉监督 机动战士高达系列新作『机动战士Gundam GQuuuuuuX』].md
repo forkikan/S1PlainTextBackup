@@ -5878,3 +5878,95 @@ GQX举枪举盾，被浮游炮二连偷袭，首席哥额头过电躲过第一�
 GQX举枪举盾，被浮游炮二连偷袭，首席哥额头过电躲过第一发，第二发击飞光 ...</blockquote>
 军校哥都把gqx的操作系统玩过负荷了，军警也来了就正好溜掉（并没有）了
 
+
+*****
+
+####  kuriri  
+##### 7875#       发表于 2025-3-2 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67559460&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-3-2 21:50</a>
+
+应该不是哈罗启动的，而是哈罗早就知道了玛秋是能开启奥米加的人，一直引诱玛秋去开。
+
+那就是我之前的猜 ...</blockquote>
+解锁的命令是哈罗闪着眼睛发出的
+
+IMG_0163.jpeg
+(180.87 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-2 21:56 上传
+
+<img src="https://img.saraba1st.com/forum/202503/02/215616o4yxsmtxs9s64sm4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  纪寞  
+##### 7876#       发表于 2025-3-2 21:57
+
+夏利尔说了奥米加和阿尔法是相同的力量，又有故意卖gqx给对面的嫌疑，结合之前他其实在红高达的泽克诺瓦的事故中也同样是看过kirakira的人，感觉修司的涂鸦真正想告诉的人是夏利尔。
+
+*****
+
+####  kuriri  
+##### 7877#       发表于 2025-3-2 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67559017&amp;ptid=2209276" target="_blank">bird-lay 发表于 2025-3-2 20:40</a>
+
+说起来红高和gqx撞进side6的时候，pomeranians的不知道是谁说了一句两个都是高达
+
+怎么认出来的 ...</blockquote>
+博美队背景挺深的，哈罗貌似塞克谬启动器
+
+*****
+
+####  刺客ares  
+##### 7878#       发表于 2025-3-2 21:59
+
+而且红高达光束剑只能拔五秒这个设定是不是给忘了
+
+压着GQX打连击那阵怎么都超过五秒了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  纪寞  
+##### 7879#       发表于 2025-3-2 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67559507&amp;ptid=2209276" target="_blank">kuriri 发表于 2025-3-2 21:56</a>
+
+解锁的命令是哈罗闪着眼睛发出的</blockquote>
+这个解锁应该只是个表现，实际不需要这个也能启动。之前泄露的机设图就说了奥米加需要特殊的nt才能启动，肯定是需要人的，不然哈罗没必要这么劝诱玛秋。
+
+*****
+
+####  Toby_dak  
+##### 7880#       发表于 2025-3-2 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67558792&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-3-2 21:14</a>
+
+这种机体都流入民间吗？</blockquote>
+团战目前只看见渣古机枪，没出现过Beam武器。
+
+基本上可以肯定是军用机体。
+
+
+*****
+
+####  kuriri  
+##### 7881#       发表于 2025-3-2 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67559530&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-3-2 21:59</a>
+
+这个解锁应该只是个表现，实际不需要这个也能启动。之前泄露的机设图就说了奥米加需要特殊的nt才能启动， ...</blockquote>
+不矛盾啊，哈罗挑选自己喜欢的人开高达，也就是需要两把钥匙，哈罗和被哈罗认可的人
+
+*****
+
+####  虛無迴廊  
+##### 7882#       发表于 2025-3-2 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67559514&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-3-2 21:57</a>
+夏利尔说了奥米加和阿尔法是相同的力量，又有故意卖gqx给对面的嫌疑，结合之前他其实在红高达的泽克诺瓦的 ...</blockquote>
+确实，如果泽克诺瓦=kirakira，那除了夏亚跟修司全世界感知到过它的就只有夏利亚了，能认出涂鸦意义的也只有夏利亚，麻球的出现则是个意外
+
