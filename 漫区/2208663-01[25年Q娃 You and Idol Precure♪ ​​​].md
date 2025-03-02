@@ -3976,3 +3976,14 @@ q娃每年都逃不过pretty holic了吗，比异性恋更令人不适，卖化�
 
 这田中银兽型态会在那一集登场呢
 
+
+*****
+
+####  modedd  
+##### 637#       发表于 2025-3-2 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67557142&amp;ptid=2208663" target="_blank">sAviOr 发表于 2025-3-2 16:03</a>
+
+q娃每年都逃不过pretty holic了吗，比异性恋更令人不适，卖化妆品给小女孩的大人真恶心。开局的时候还被说 ...</blockquote>
+偶像主题就摆在这儿，拿q娃带货只能说是意料之中的展开吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
