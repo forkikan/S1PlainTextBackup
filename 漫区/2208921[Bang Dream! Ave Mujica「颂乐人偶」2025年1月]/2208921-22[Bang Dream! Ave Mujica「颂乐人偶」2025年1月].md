@@ -13974,3 +13974,22 @@ https://tieba.baidu.com/p/9539459678 战吧找到时间乱序的实锤了，第�
 
 但是鸡团全国巡演和仙台解散的时间定死了在10月初，这个改不了啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  千里快哉风  
+##### 32299#       发表于 2025-3-2 20:49
+
+少女乐队番 已经不需要演奏音乐了 光看乐队成员拉扯关系时长就用完了 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  septer  
+##### 32300#       发表于 2025-3-2 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67558518&amp;ptid=2208921" target="_blank">魔法使夜子 发表于 2025-3-2 19:46</a>
+
+可别时间乱序了，感觉就只是细节一塌糊涂，目前制作组这表现不用怀疑是不是在藏 ...</blockquote>
+鸡的细节比起狗也是糙很多的，大概是打工人也麻了
+
