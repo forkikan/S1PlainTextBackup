@@ -14419,3 +14419,13 @@ ras曲子破坏世界人额，好吧人算正常，但是上台了是一群狂�
 一想到以后成团了，团内的角色厨还会疯狂黑自家团的其他角色就很乐，这烈度可比之前的大多了 ...</blockquote>
 单推盛世啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">日常军训，随机掉落毒唯滑坡糖
 
+
+*****
+
+####  6030sylar  
+##### 32339#       发表于 2025-3-3 00:12
+
+<img src="https://p.sda1.dev/22/3777f6c78844f3e69ea246580ba50b2d/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
