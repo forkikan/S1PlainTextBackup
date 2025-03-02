@@ -12269,3 +12269,31 @@ mujica内部的路线矛盾可以让喵梦和海铃发起，喵梦更在意热�
 一句重话都不敢说是指两个人，灯全场“思考”不反驳大祥或直接说复辟对爱音和猫猫很尴尬，实在太被动了 ...</blockquote>
 灯估计当时都宕机了，心想第七集这饺子都包完了你怎么还是这个鬼样，这问题到底出在哪了。如果这段是祥子找立希估计立希直接化身观众嘴替，倒是大幅提升了观感<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  syndrome2032  
+##### 32156#       发表于 2025-3-2 10:37
+
+灯的准确想法要看歌词吧。
+
+
+*****
+
+####  ArcadiaMartyr  
+##### 32157#       发表于 2025-3-2 10:42
+
+说实话，看着mujica里面的灯，我都想不起来mygo的灯是啥样的了。只记得没有这么像个脑瘫，顶着纯真的大眼神站在旁边<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">说实话有点不舒服，在mujica里
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  cccpprc  
+##### 32158#       发表于 2025-3-2 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67554312&amp;ptid=2208921" target="_blank">老贝 发表于 2025-3-2 03:35</a>
+
+第七集那一整套武士道全社内外，各个项目都配合Crychic再结成与祥子生日的炒作手法，肯定是很久之前就定好 ...</blockquote>
+结果大祥的黑色生日是中国观众替她过的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
