@@ -5479,3 +5479,11 @@ side6至少不是战败国，和吉翁更像是殖民地和宗主国的关系
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  太极八爪鱼  
+##### 7838#       发表于 2025-3-2 17:38
+
+说起来，这边的side 6应该没有巴尼了吧，克里斯应该还在地球？阿尔应该没啥事是个高中生了<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+

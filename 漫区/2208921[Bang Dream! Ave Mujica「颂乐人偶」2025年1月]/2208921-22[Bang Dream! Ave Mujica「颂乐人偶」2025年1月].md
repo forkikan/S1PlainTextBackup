@@ -13503,3 +13503,18 @@ Meme 四格：
 
 这个双重人格确实挺败笔的，弄到睦和祥子的性格前后大变，空洞如人偶
 
+
+*****
+
+####  z-hunter  
+##### 32259#       发表于 2025-3-2 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67557603&amp;ptid=2208921" target="_blank">الطائر 发表于 2025-3-2 17:23</a>
+
+祥子为母鸡卡写的不仅是音乐、也是世界观，还是独立于邦邦的奇幻谜语人世界观。两个世界观的锚点是“人偶” ...</blockquote>
+传说这个mujica的世界观被抛弃了，以后不会再写了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不知道这个设定有什么用。
+
+或者是开头是有用的，后来改剧情改到难以驾驭，只能抛弃了
+
