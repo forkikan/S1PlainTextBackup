@@ -14146,3 +14146,56 @@ ep2，4：13爱灯上学时候说昨天武道馆，应该不是周六
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  与太郎  
+##### 32313#       发表于 2025-3-2 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67559330&amp;ptid=2208921" target="_blank">结衣小比取 发表于 2025-3-2 21:28</a>
+
+坛友这个“数Ⅱ”的考据出处是哪里？</blockquote>
+数Ⅰ里的内容虽然有些地方也叫三角函数，其实学的是三角比（正弦定理面积计算之类的）
+
+数Ⅱ才会学三角函数，祥子的笔记涉及加法定理了，自然是数Ⅱ
+
+*****
+
+####  huxiaopao163  
+##### 32314#       发表于 2025-3-2 22:18
+
+我还是信内鬼+若叶睦双人格表演
+
+其他那些什么时间轮回，一切都是剧本之类，就算是真的感觉也没意思
+
+*****
+
+####  plusSharp  
+##### 32315#       发表于 2025-3-2 22:19
+
+为什么mujica里不能搞个像爱音清算soyo的对应情节，对偶内容都那么多了，对祥子却只有莫喵梦两人做过不痛不痒的输出，其他人都硬舔
+
+
+*****
+
+####  zhoujin8584  
+##### 32316#       发表于 2025-3-2 22:25
+
+<blockquote>DeltaStriker 发表于 2025-3-2 22:15
+不是 除了那些铁入脑的 真有人现在还能看下去ansy的？随便访谈就能找补的话 也别拍什么片 直接访谈谈完就行 ...</blockquote>
+今天真的饭圈风云，或者说二游不可避免的？见识了各种撕番撕高光扯吸血比皇族的，灵活拿访谈对自担骂制作对对家车角色的。
+
+之前毒唯暴打嗑药鸡，wpgcp粉按头舔狗塑都算小巫见大巫了。
+
+爱素本来都要切割一创了，被毒唯滑坡论翻盘还算是小乐趣了。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ape-apple  
+##### 32317#       发表于 2025-3-2 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67559629&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-2 22:12</a>
+
+美帝现在连苏修的铁暗恋王炸都装备上了，无敌于天下了</blockquote>
+破防素推的话直接给最近采访增加了幽默感，泰坦尼克都要沉了，这边还在研究厨房里的龙虾应该怎么做
+

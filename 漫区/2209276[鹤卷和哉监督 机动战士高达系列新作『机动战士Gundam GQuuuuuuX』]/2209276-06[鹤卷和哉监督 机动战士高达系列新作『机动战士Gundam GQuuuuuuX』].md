@@ -6031,3 +6031,45 @@ f5e481cb39dbb6fd66146e004f24ab18972b3703.jpg
 有特殊nt能力才“可能”启动，就是你首先要有能力，其次被哈罗认可，认可的原因可能是气味或者血统或者灵 ...</blockquote>
 目前这个特殊的条件就是重大谜团之一，甚至不知道阿尔法是不是也有这个限制，而鸭子也刚好是属于能启动的范围。
 
+
+*****
+
+####  虛無迴廊  
+##### 7888#       发表于 2025-3-2 22:16
+
+不知道夏利亚本人能不能开得动欧米伽赛克缪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  纪寞  
+##### 7889#       发表于 2025-3-2 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67559666&amp;ptid=2209276" target="_blank">虛無迴廊 发表于 2025-3-2 22:16</a>
+
+不知道夏利亚本人能不能开得动欧米伽赛克缪</blockquote>
+肯定不可以，他真开得动他早自己去开了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+后面奥米加启动时还给他一个意味深长的镜头
+
+*****
+
+####  岸浪白野  
+##### 7890#       发表于 2025-3-2 22:18
+
+ 本帖最后由 岸浪白野 于 2025-3-2 22:22 编辑 
+
+你现在知道哈罗很重要就行了不用猜什么
+
+问就是榎戸说的：ハロは結構大事なこと喋る。
+
+哈罗其实会说出一些很重要的事情
+
+*****
+
+####  纪寞  
+##### 7891#       发表于 2025-3-2 22:20
+
+ 本帖最后由 纪寞 于 2025-3-2 22:21 编辑 
+
+夏利尔故意放出战争时期浓度的米粒，然后红高达还不刻意隐藏自己，对停战信号无动于衷，感觉串通好了啊，冥冥中的默契<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
