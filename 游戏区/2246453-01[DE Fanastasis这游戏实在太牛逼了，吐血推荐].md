@@ -3053,3 +3053,16 @@ F5确实可以，但是又觉得分辨率有点低...
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  jy000129  
+##### 269#       发表于 2025-3-2 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67556214&amp;ptid=2246453" target="_blank">病少爷 发表于 2025-3-2 13:20</a>
+
+好玩是真的好玩，但玩起来压力也是真的大，找不到路不知道怎么推进，还有开存档点的石头没了没法回程。。
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">送掉就行了，反正死了也就掉点钱
+
