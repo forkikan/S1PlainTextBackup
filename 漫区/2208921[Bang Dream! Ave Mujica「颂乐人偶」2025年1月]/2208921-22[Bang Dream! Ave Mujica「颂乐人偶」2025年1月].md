@@ -14290,3 +14290,35 @@ https://forum.gamer.com.tw/C.php?bsn=31877&amp;snA=6745
 母鸡卡第七集之前到是不用清算素世，毕竟以前也有世界名画我是来结束乐队的，你们要干什么，而母鸡卡第七 ...</blockquote>
 动画里祥子消沉的情节并不少，但绝大多数都是别人想帮她还要反被伤害，关心她的人太多了，缺少一个和她关系一般的去冷静的点出问题的人
 
+
+*****
+
+####  aptx8285144  
+##### 32327#       发表于 2025-3-2 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67559882&amp;ptid=2208921" target="_blank">plusSharp 发表于 2025-3-2 22:45</a>
+
+动画里祥子消沉的情节并不少，但绝大多数都是别人想帮她还要反被伤害，关心她的人太多了，缺少一个和她关 ...</blockquote>
+就是缺一个对等的人物，不过也没办法，鸡团一群神人，不是人类反派就是同样是伪人，“冷静”这个词语在这个片场仿佛和cp经常有一种格格不入的讽刺感，你看立希前脚叫大祥不要给go添麻烦，后脚回忆杀启动就被俘虏了
+
+而鸡团能干这事的一般只有睦和金毛两个了，然而这两个人自己的破事都还没解决完呢<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jtht001  
+##### 32328#       发表于 2025-3-2 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67559830&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-2 22:39</a>
+
+恕我直言，战吧还能鸵鸟是因为这个片场“没有男人”（你懂的，不管中登，老登是好人还是坏人，是戏份多还是 ...</blockquote>
+哪部原创啊
+
+*****
+
+####  adretyu67.  
+##### 32329#       发表于 2025-3-2 22:56
+
+冷静的点出问题的人其实是有的，大猫。
+
+但是大猫是鸡团1.0摘面具的人<img src="https://static.saraba1st.com/image/smiley/face2017/226.png" referrerpolicy="no-referrer">
+
