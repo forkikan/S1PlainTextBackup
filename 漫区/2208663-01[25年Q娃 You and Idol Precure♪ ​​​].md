@@ -4083,3 +4083,16 @@ pretty holic可是万代的雄心壮志啊，怎么可能不宣传
 
 化妆品似乎是最近几年才开始猛推？之前无非是祖传串珠机、徽章机之类的东西
 
+
+*****
+
+####  bilibilius  
+##### 647#       发表于 2025-3-2 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67558438&amp;ptid=2208663" target="_blank">raimouse 发表于 2025-3-2 19:37</a>
+
+热带的时候我就觉得化妆主题很怪
+
+看Q娃的正经商业受众是10来岁的小妹妹吧,化啥妆 ...</blockquote>
+想多了，主要受众是3-7岁
+
