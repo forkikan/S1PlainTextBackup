@@ -5252,3 +5252,16 @@ X 上的 干し丿：“捏造120%まんが。 戦いに呼ばれる男と戦い
 
 — from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  太极八爪鱼  
+##### 7818#       发表于 2025-3-2 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67554578&amp;ptid=2209276" target="_blank">gamedreamer 发表于 2025-3-1 16:12</a>
+那原作各地的反联邦势力就要变成反吉翁势力了
+宇宙居民:联邦还在的时候我受人欺负，联邦走了，我还受人欺 ...</blockquote>
+那联邦在的时候他就敢屠了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，联邦不在他老大不是更应该敢动手
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

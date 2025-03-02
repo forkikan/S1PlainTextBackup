@@ -12237,3 +12237,24 @@ mujica内部的路线矛盾可以让喵梦和海铃发起，喵梦更在意热�
 素姐這是真有貨的</blockquote>
 素食这什么灯目前犯<img src="https://static.saraba1st.com/image/smiley/carton2017/470.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 32153#       发表于 2025-3-2 10:23
+
+<blockquote>曼彻斯特联 发表于 2025-3-2 09:57
+有一说一，这里爱音不说话完全交给灯来决定也没啥问题。如果爱音输出一堆正论让这事过去了，那回头想想， ...</blockquote>
+一句重话都不敢说是指两个人，灯全场“思考”不反驳大祥或直接说复辟对爱音和猫猫很尴尬，实在太被动了
+
+*****
+
+####  syndrome2032  
+##### 32154#       发表于 2025-3-2 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67555087&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-2 10:23</a>
+一句重话都不敢说是指两个人，灯全场“思考”不反驳大祥或直接说复辟对爱音和猫猫很尴尬，实在太被动了 ...</blockquote>
+就是回到了有话想说但是说不出来的状态。
+
+一夜倒退回去了。
+

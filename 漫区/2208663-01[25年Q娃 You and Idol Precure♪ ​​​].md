@@ -3923,3 +3923,14 @@ Stream Attac ...</blockquote>
 
 紫雨女士终于说出了本作中的第二句台词
 
+
+*****
+
+####  Parahure  
+##### 631#       发表于 2025-3-2 10:16
+
+ 本帖最后由 Parahure 于 2025-3-2 10:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67554539&amp;ptid=2208663" target="_blank">modedd 发表于 2025-3-2 08:01</a>
+前面那么多人信誓旦旦的说偶像不可能搞bg有点言之过早了吧，我看凯特君这个存在感就算不捅破窗户纸肯定也得 ...</blockquote>
+美妙旋律不就是bg偶像吗，还有变身偶像公主啥的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
