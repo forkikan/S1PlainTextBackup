@@ -5655,3 +5655,24 @@ side6军警队》》吉翁退伍MAV老兵*2》》联邦ace现役NT
 
 魔女之后就得是大家熟悉的那些吉翁ace下场了吧，不知道最终boss是谁
 
+
+*****
+
+####  猪突猛进R  
+##### 7854#       发表于 2025-3-2 20:28
+
+偷高达就算了，偷GM吓唬谁鸭，上面又没核弹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gamedreamer  
+##### 7855#       发表于 2025-3-2 20:29
+
+ 本帖最后由 gamedreamer 于 2025-3-2 20:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67558924&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-3-2 20:28</a>
+偷高达就算了，偷GM吓唬谁鸭，上面又没核弹</blockquote>
+但这个好像就是吉翁的量产高达<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+至于核弹那只能说——万一藏了一些大家不知道的小惊喜呢<img src="https://static.saraba1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
