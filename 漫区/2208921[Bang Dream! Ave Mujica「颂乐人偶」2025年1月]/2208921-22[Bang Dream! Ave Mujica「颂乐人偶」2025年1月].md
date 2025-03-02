@@ -12258,3 +12258,14 @@ mujica内部的路线矛盾可以让喵梦和海铃发起，喵梦更在意热�
 
 一夜倒退回去了。
 
+
+*****
+
+####  曼彻斯特联  
+##### 32155#       发表于 2025-3-2 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67555087&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-2 10:23</a>
+
+一句重话都不敢说是指两个人，灯全场“思考”不反驳大祥或直接说复辟对爱音和猫猫很尴尬，实在太被动了 ...</blockquote>
+灯估计当时都宕机了，心想第七集这饺子都包完了你怎么还是这个鬼样，这问题到底出在哪了。如果这段是祥子找立希估计立希直接化身观众嘴替，倒是大幅提升了观感<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

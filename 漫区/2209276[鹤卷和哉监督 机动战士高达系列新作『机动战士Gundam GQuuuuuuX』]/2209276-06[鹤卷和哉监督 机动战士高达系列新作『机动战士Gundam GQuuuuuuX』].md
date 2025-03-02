@@ -5265,3 +5265,19 @@ X 上的 干し丿：“捏造120%まんが。 戦いに呼ばれる男と戦い
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Toby_dak  
+##### 7819#       发表于 2025-3-2 10:31
+
+ 本帖最后由 Toby_dak 于 2025-3-2 11:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67553699&amp;ptid=2209276" target="_blank">被子十三 发表于 2025-3-2 01:31</a>
+
+辽宁舰…
+
+— from S1 Next Goose v3.3.96</blockquote>
+你是不是忘记现代级了？锅炉、轮机什么的都不陌生，甚至还能找到原厂做售后服务。还有顺道运回的一大堆图纸呢。
+
+俘获的木马你是找贾布罗要售后还是图纸？
+
