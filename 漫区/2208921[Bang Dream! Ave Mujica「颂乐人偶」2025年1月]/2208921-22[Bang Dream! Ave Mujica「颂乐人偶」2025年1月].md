@@ -14409,3 +14409,13 @@ ras曲子破坏世界人额，好吧人算正常，但是上台了是一群狂�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">柿本这个首席战犯绝对没得跑，这货活该被喷死，**的都做到第四集脑门一拍想出个双重人格？
 
+
+*****
+
+####  zhoujin8584  
+##### 32338#       发表于 2025-3-3 00:05
+
+<blockquote>阿兹尔 发表于 2025-3-2 23:01
+一想到以后成团了，团内的角色厨还会疯狂黑自家团的其他角色就很乐，这烈度可比之前的大多了 ...</blockquote>
+单推盛世啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">日常军训，随机掉落毒唯滑坡糖
+
