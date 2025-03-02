@@ -3012,3 +3012,16 @@ F5确实可以，但是又觉得分辨率有点低...
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  DARILBALDE  
+##### 265#       发表于 2025-3-2 10:13
+
+队友build真是非常有趣
+给影法配了幻觉手套和幻觉棒子，一回合平A两轮，疯狂控人，还不耗资源<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+闪避T装备叠闪避到43，开了技能基本无敌，再加上影法的幻觉，仿佛在玩宝可梦变小队<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+哇我怎么这么可恶.jpg
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
