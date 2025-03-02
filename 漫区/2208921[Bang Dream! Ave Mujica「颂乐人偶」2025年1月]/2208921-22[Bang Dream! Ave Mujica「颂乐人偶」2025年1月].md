@@ -14609,3 +14609,15 @@ mujica剧本有两个很严重的问题，和mygo镜像对偶和双重人格，�
 
 看到一个说法，说素食对爱音冷淡是因为暗恋爱音所以特地表现地冷淡
 
+
+*****
+
+####  岬开斗  
+##### 32354#       发表于 2025-3-3 02:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67560691&amp;ptid=2208921" target="_blank">莱茵哈鲁特 发表于 2025-3-3 01:42</a>
+看到一个说法，说素食对爱音冷淡是因为暗恋爱音所以特地表现地冷淡</blockquote>
+这不是没糖硬嗑嘛，那我还说喵梦怼祥子是暗恋祥子呢。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
