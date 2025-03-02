@@ -14005,3 +14005,37 @@ https://tieba.baidu.com/p/9539459678 战吧找到时间乱序的实锤了，第�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  结衣小比取  
+##### 32302#       发表于 2025-3-2 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67558790&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-3-2 20:14</a>
+
+祥子前面学的还是数Ⅱ呢
+
+这个尚不如笔记本编号想象空间大
+
+看了下，这个贴把祥子笔记算成高一内容，然而这 ...</blockquote>
+坛友这个“数Ⅱ”的考据出处是哪里？
+
+*****
+
+####  akiomn  
+##### 32303#       发表于 2025-3-2 21:30
+
+鸡的细节压根不需要看。柿本这逼访谈实锤了做到第四集一拍脑门加了个双重人格设定进去。
+这种设定加进去必定导致整个剧本都要大改，那么细节肯定一塌糊涂的
+
+
+*****
+
+####  秋月孝三  
+##### 32304#       发表于 2025-3-2 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67559330&amp;ptid=2208921" target="_blank">结衣小比取 发表于 2025-3-2 21:28</a>
+
+坛友这个“数Ⅱ”的考据出处是哪里？</blockquote>
+三角函数在日本高中数学教纲里属于高等学校数学II(简称数II)的内容
+
