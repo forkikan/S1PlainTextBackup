@@ -3934,3 +3934,11 @@ Stream Attac ...</blockquote>
 前面那么多人信誓旦旦的说偶像不可能搞bg有点言之过早了吧，我看凯特君这个存在感就算不捅破窗户纸肯定也得 ...</blockquote>
 美妙旋律不就是bg偶像吗，还有变身偶像公主啥的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  上坂莲华  
+##### 632#       发表于 2025-3-2 13:39
+
+男偶像怎么了，想搞BG男设计师都能给你硬拉来配对，此事在祖宗之法中亦有，什么你说王小明已经被开除了，那没事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
