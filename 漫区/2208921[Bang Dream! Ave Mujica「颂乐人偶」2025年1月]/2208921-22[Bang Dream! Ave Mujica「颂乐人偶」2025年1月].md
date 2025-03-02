@@ -12580,3 +12580,52 @@ mujica ...</blockquote>
 燈本身就在家觀星接收電波</blockquote>
 go团时期去天文馆已经形成主创们的途径依赖了，更深层原因是“为了遇到初华”而上演初华破防后的脑内大战<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ninokagami  
+##### 32181#       发表于 2025-3-2 11:46
+
+只能说成品做烂了都合生硬的地方就很难藏住
+你看狗10灯和初华在那么大个天文馆里差点亲嘴，有那么多人大喊这真是太巧了吗，还不是先刷一波华灯初上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  z-hunter  
+##### 32182#       发表于 2025-3-2 11:51
+
+这第9话还把我想象的花咲川组临时乐队唱一首歌的幻想给破了
+
+初华主场吉他，海铃贝斯，立希鼓，再把猫猫吉他拉过来就能组乐队了，谁知原来初海希原来真的不熟，初华只有祥子祥子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+只能说我邦邦惯性思维了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">编剧就是想搞一个不邦邦感觉的人物和乐队呢
+
+
+*****
+
+####  syndrome2032  
+##### 32183#       发表于 2025-3-2 11:54
+
+ 本帖最后由 syndrome2032 于 2025-3-2 11:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67555608&amp;ptid=2208921" target="_blank">z-hunter 发表于 2025-3-2 11:51</a>
+这第9话还把我想象的花咲川组临时乐队唱一首歌的幻想给破了
+
+初华主场吉他，海铃贝斯，立希鼓，再把猫猫吉他 ...</blockquote>
+那是进游戏了跨团再说。
+
+动画里关于校内文化祭的部分全pass了只剩放学后乐队联系。
+
+按照邦邦惯性思维就是7话狗团台上唱歌唱醒台下的人。但是实际7话谁在唱就<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  钦念以忱  
+##### 32184#       发表于 2025-3-2 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67555438&amp;ptid=2208921" target="_blank">xyion 发表于 2025-3-2 11:27</a>
+
+灯这个就是人物行为逻辑上，你写她蜕变了会直接表态也行，写她进两步退三步说不出来也行。
+
+但创作要讲规律 ...</blockquote>
+这段我看就是为了初华害意脑内杀人的爆点搞的，太垃圾了，不如删掉，时间留给睦头人格的死亡，搞点演出。或者拿去给几个传话，多讲两句，形成真正的有效沟通。
+
