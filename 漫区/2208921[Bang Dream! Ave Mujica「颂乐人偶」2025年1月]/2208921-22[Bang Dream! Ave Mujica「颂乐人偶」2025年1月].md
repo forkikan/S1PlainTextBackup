@@ -13237,3 +13237,33 @@ Meme 四格：
 
 也对，这片现在就是混乱，想理清估计自己都会陷入混乱
 
+
+*****
+
+####  影伴光生  
+##### 32238#       发表于 2025-3-2 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67557168&amp;ptid=2208921" target="_blank">liekong 发表于 2025-3-2 16:08</a>
+泛式这次第9集分析挺没水平的，前后忘的东西不少，自己推角色还是黑角色都搞不清楚了，
+
+也对，这片现在就是 ...</blockquote>
+这说明泛式充分融入了制作组做这部的精神状态<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  DARK_HGCG  
+##### 32239#       发表于 2025-3-2 16:20
+
+乐队是姐妹，乐队是家人
+
+<img src="https://img.saraba1st.com/forum/202503/02/162023z025fs0ii6i9o27l.jpg" referrerpolicy="no-referrer">
+
+<strong>-55d2e63eb6832ff3.jpg</strong> (212.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-2 16:20 上传
+
