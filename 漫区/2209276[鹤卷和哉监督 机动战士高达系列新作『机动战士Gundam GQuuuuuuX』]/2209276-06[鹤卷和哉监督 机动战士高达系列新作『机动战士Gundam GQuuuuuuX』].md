@@ -5586,3 +5586,60 @@ side6至少不是战败国，和吉翁更像是殖民地和宗主国的关系
 
 猛一看还以为是暗黑萨姆斯呢。
 
+
+*****
+
+####  纪寞  
+##### 7848#       发表于 2025-3-2 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67558692&amp;ptid=2209276" target="_blank">az一串字母 发表于 2025-3-2 20:01</a>
+
+联邦魔女这是在用光束武器吗，对gqx和红高有点降维打击了吧</blockquote>
+红高其实背包还插着两把光剑的，之前黑拳没用而已，远程光束武器目前是没有
+
+*****
+
+####  gamedreamer  
+##### 7849#       发表于 2025-3-2 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67558692&amp;ptid=2209276" target="_blank">az一串字母 发表于 2025-3-2 20:01</a>
+联邦魔女这是在用光束武器吗，对gqx和红高有点降维打击了吧</blockquote>
+群友推测是轻型化的光束步枪
+殖民卫星:孩子们这不好笑<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  王留美  
+##### 7850#       发表于 2025-3-2 20:12
+
+<img src="https://img.saraba1st.com/forum/202503/02/201222de3zef5dpnahh61c.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>74d67bb1a8fc2b20996f90158c949291.jpeg</strong> (86.91 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-2 20:12 上传
+
+新图，应该是特殊映像里面的。
+
+话说魔女真开吉翁机啊
+
+*****
+
+####  0aleph37  
+##### 7851#       发表于 2025-3-2 20:14
+
+这种机体都流入民间吗？
+
+*****
+
+####  gamedreamer  
+##### 7852#       发表于 2025-3-2 20:15
+
+保不准是魔女偷的，打算给吉翁来个大的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

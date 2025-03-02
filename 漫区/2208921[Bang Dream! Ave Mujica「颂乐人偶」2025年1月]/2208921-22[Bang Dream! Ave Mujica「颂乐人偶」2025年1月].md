@@ -13894,3 +13894,46 @@ staff在访谈里表示出一副很努力的样子，指剧情全靠双重人格
 但烂片归烂片，你要是问我看得开不 ...</blockquote>
 第五集初党要是没被杀干净，算它坚强了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卡密sama  
+##### 32292#       发表于 2025-3-2 20:09
+
+乱序的意思像06凉宫那样？每集都是打乱顺序的？但是目前看起来挺连贯的吧。
+
+*****
+
+####  my707776310  
+##### 32293#       发表于 2025-3-2 20:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然不可能,但我还挺希望这片剩下4集能翻身的,第八集那群人一转画风开始想办法给之前被他们切割出去的独角兽邀功看得笑死了
+
+
+*****
+
+####  与太郎  
+##### 32294#       发表于 2025-3-2 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67558434&amp;ptid=2208921" target="_blank">抽搐一下 发表于 2025-3-2 19:37</a>
+
+https://tieba.baidu.com/p/9539459678 战吧找到时间乱序的实锤了，第八集教作业和碎镜的时间线是上学期。 ...</blockquote>
+祥子前面学的还是数Ⅱ呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+这个尚不如笔记本编号想象空间大
+
+*****
+
+####  adretyu67.  
+##### 32295#       发表于 2025-3-2 20:15
+
+贴吧那个贴子给出的假设如果是真的，参照数学教学进度，鸡团1.0爆炸时间应该是狗团动画期间的一学期。
+
+这样把鸡团的出道时间调整到和狗团动画时间同期，鸡团1.0爆炸的时间也调整到狗团动画同期。
+
+把前后关系调整成同时关系。
+
+但是10月的全国巡演和解散是鸡团动画可以确定的时间点，这个没法叙事性诡计。
+
+除非说解散也是一种炒作方式<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

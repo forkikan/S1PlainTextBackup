@@ -175,3 +175,19 @@ S4P之後會在**上虛擬LIVE（MV連播+《Another Rampage》MV公開（←後
 
 Day 2 業務聯絡環節結束。
 
+
+*****
+
+####  Alicest  
+##### 6941#       发表于 2025-3-2 20:13
+
+我就知道
+
+<img src="https://img.saraba1st.com/forum/202503/02/201300tph44q1jzzjkpjjv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (254.48 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-2 20:13 上传
+
