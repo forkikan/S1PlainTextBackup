@@ -58,3 +58,16 @@ Z社新作来了
 
 另外 Zach 这人喜欢琢磨教育游戏不是第一回了，十多年前 Ironclad Tactics 暴死 Zachtronics 第一次关门之前也干了，此事在 ZACH-LIKE 当中亦有记载<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  BRAVADO  
+##### 252#       发表于 2025-3-2 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67557587&amp;ptid=2017380" target="_blank">铃森冬 发表于 2025-3-2 17:19</a>
+
+开 discord 看了下，Zach 本人说这回的团队是从 Opus Magnum 到 Last Call BBS 这段时期的原班人马
+
+另外  ...</blockquote>
+很好，原来zachtornic关过不止一次门<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，道听途说第二次关门似乎也和Möbius Front '83没有成功有很大关系。
+

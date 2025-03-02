@@ -5487,3 +5487,19 @@ side6至少不是战败国，和吉翁更像是殖民地和宗主国的关系
 
 说起来，这边的side 6应该没有巴尼了吧，克里斯应该还在地球？阿尔应该没啥事是个高中生了<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xwr  
+##### 7839#       发表于 2025-3-2 17:48
+
+看了下IF线一年战争年表，雷比尔和正史一样跑回去发表演说，那他也是应该存活的，扎比家就死了多兹鲁，卡尔玛大概去享受二人世界了，留下基西莉亚和基连勾心斗角，不过0085年德金还不算太老应该还镇得住<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> ，总之0085这个时候双方稳健派大概都建在，不过之后就难说了
+
+<img src="https://img.saraba1st.com/forum/202503/02/172039bwlexyeydeuzlyjl.jpg" referrerpolicy="no-referrer">
+
+<strong>GQBP_24.jpg</strong> (200.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-2 17:20 上传
+
