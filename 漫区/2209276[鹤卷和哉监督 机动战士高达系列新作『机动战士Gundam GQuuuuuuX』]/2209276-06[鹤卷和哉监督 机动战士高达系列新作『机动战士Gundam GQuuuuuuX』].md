@@ -6073,3 +6073,21 @@ f5e481cb39dbb6fd66146e004f24ab18972b3703.jpg
 
 夏利尔故意放出战争时期浓度的米粒，然后红高达还不刻意隐藏自己，对停战信号无动于衷，感觉串通好了啊，冥冥中的默契<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  虛無迴廊  
+##### 7892#       发表于 2025-3-2 22:31
+
+大概因为红高是真的由修司在开，而不是机魂自己动吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+夏利亚一个特点就是看人很准，修司究竟是个什么妖怪，应该等他俩见面就有线索了
+
+*****
+
+####  虛無迴廊  
+##### 7893#       发表于 2025-3-2 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67559691&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-3-2 22:20</a>
+夏利尔故意放出战争时期浓度的米粒，然后红高达还不刻意隐藏自己，对停战信号无动于衷，感觉串通好了啊，冥 ...</blockquote>
+看他的反应来之前心底应该还是有点期待是鸭子的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

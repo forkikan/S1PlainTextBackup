@@ -14199,3 +14199,67 @@ ep2，4：13爱灯上学时候说昨天武道馆，应该不是周六
 美帝现在连苏修的铁暗恋王炸都装备上了，无敌于天下了</blockquote>
 破防素推的话直接给最近采访增加了幽默感，泰坦尼克都要沉了，这边还在研究厨房里的龙虾应该怎么做
 
+
+*****
+
+####  ziqing  
+##### 32318#       发表于 2025-3-2 22:28
+
+不知道为啥首页刷了一堆爱素二创，不得不感叹美帝吃的是真的好，高质量二创太多了
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  aptx8285144  
+##### 32319#       发表于 2025-3-2 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67559687&amp;ptid=2208921" target="_blank">plusSharp 发表于 2025-3-2 22:19</a>
+
+为什么mujica里不能搞个像爱音清算soyo的对应情节，对偶内容都那么多了，对祥子却只有莫喵梦两人做过不痛不 ...</blockquote>
+母鸡卡第七集之前到是不用清算素世，毕竟以前也有世界名画我是来结束乐队的，你们要干什么，而母鸡卡第七话之后，ccc的姨姥们都要被清算，借蚀本几个胆子都不敢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+至于大祥，乐观主义者还可以看大祥继续被精神拷打，悲观主义者已经快进到包饺子了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  钦念以忱  
+##### 32320#       发表于 2025-3-2 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67559687&amp;ptid=2208921" target="_blank">plusSharp 发表于 2025-3-2 22:19</a>
+
+为什么mujica里不能搞个像爱音清算soyo的对应情节，对偶内容都那么多了，对祥子却只有莫喵梦两人做过不痛不 ...</blockquote>
+会有的吧，既然爱音清算soyo搞出了爱素美帝，估计就要落在初华身上，初华清算祥子，小姨（代母）教育侄女。
+
+
+*****
+
+####  DeltaStriker  
+##### 32321#       发表于 2025-3-2 22:36
+
+说到包饺子 我现在就等着看13集有没有ccc live呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 炸都炸了不炸多点真是可惜了哦
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  与太郎  
+##### 32322#       发表于 2025-3-2 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67558651&amp;ptid=2208921" target="_blank">抽搐一下 发表于 2025-3-2 19:57</a>
+
+https://forum.gamer.com.tw/C.php?bsn=31877&amp;snA=6745
+
+母鸡卡最早的活动就是超大型ARG，里面的谜题是需 ...</blockquote>
+这个ARG和正片剧情有多少关联很难说，即使柿本真在里面埋了什么伏笔了，正片里大概也像删减各成员符号的实际意义一样被埋没了
+
+另外这个狂气度程序是制作组外包出去做的，根据独角兽还没“切割”的时期的说法，她不知道这个东西的存在，是到了0 live之后才发现有这个活动，还因为没能参与而感到遗憾
+
+*****
+
+####  阿兹尔  
+##### 32323#       发表于 2025-3-2 22:36
+
+感觉不如最喵海喵发现祥子原来是很久以前陪自己玩过的白月光大小姐，大家一起共用童年回忆，喵海一起把祥子放第一位，省时间又包饺子，解决了祥子管理能力差的问题
+
