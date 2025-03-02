@@ -13736,3 +13736,84 @@ MyGo 有四個人是在做背景板
 
 跟她關係最近的立希有反應嗎？
 
+
+*****
+
+####  adretyu67.  
+##### 32278#       发表于 2025-3-2 19:26
+
+staff在访谈里表示出一副很努力的样子，指剧情全靠双重人格推动吗。
+
+那只能说是是努力错了方向，越努力越错了。
+
+*****
+
+####  sauron.j  
+##### 32279#       发表于 2025-3-2 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67558307&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-2 19:21</a>
+
+這是不如狗的問題嗎？
+
+現在就是大爛片</blockquote>
+项目管理出了大问题
+
+比如大祥求灯重组那里，只要来一段
+
+爱音：“啊要组回来？那我们买狗咋办啊？”
+
+“当然不会给买狗添麻烦的”
+
+“说是这么说啦……”
+
+观感都能提升数倍，互动化学反应也有
+
+加不进去只能解释为把故事写完已经疲于奔命，顾不上打磨细节了
+
+*****
+
+####  看穿一切的鱼  
+##### 32280#       发表于 2025-3-2 19:29
+
+怎么可能不够13话内容，说mygo没什么可拍的，立希和小猫不是路边一条一样的路人戏份。均分一下一人两集都拍出十集了
+
+
+*****
+
+####  Lyzers  
+##### 32281#       发表于 2025-3-2 19:32
+
+想想两三集前大家都还在（你觉得差是因为你不会看）或者（都怪角色厨和懂哥带节奏），现在已经连着两天转（虽然差，但是这也是制作组计划之中，一定还有大的）的锐评了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  septer  
+##### 32282#       发表于 2025-3-2 19:34
+
+真不如项目开源让观众自己编得了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sauron.j  
+##### 32283#       发表于 2025-3-2 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67558410&amp;ptid=2208921" target="_blank">septer 发表于 2025-3-2 19:34</a>
+
+真不如项目开源让观众自己编得了</blockquote>
+我认为熟读卖狗三十遍的核心粉丝是绝对有能力续写mujica的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  抽搐一下  
+##### 32284#       发表于 2025-3-2 19:37
+
+[https://tieba.baidu.com/p/9539459678](https://tieba.baidu.com/p/9539459678) 战吧找到时间乱序的实锤了，第八集教作业和碎镜的时间线是上学期。台词提了一嘴月之森进度比较快但是学的数I，立希之前给海玲的是数A，是下学期的
+
+<img src="https://img.saraba1st.com/forum/202503/02/193550shmmtp8s2h531c0m.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (25.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-2 19:35 上传
+

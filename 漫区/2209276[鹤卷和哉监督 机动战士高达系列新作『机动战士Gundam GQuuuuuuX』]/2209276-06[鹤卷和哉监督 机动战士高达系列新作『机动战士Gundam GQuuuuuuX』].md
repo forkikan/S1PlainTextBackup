@@ -5514,3 +5514,25 @@ side6至少不是战败国，和吉翁更像是殖民地和宗主国的关系
 
 总之拍的太好看了
 
+
+*****
+
+####  kuriri  
+##### 7841#       发表于 2025-3-2 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67558147&amp;ptid=2209276" target="_blank">王留美 发表于 2025-3-2 18:54</a>
+
+看了一点新片段
+
+很多想说的但是不好说</blockquote>
+啊？是之前的特别片段吗，还是其他的啊
+
+*****
+
+####  王留美  
+##### 7842#       发表于 2025-3-2 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67558395&amp;ptid=2209276" target="_blank">kuriri 发表于 2025-3-2 19:33</a>
+ 啊？是之前的特别片段吗，还是其他的啊</blockquote>
+本篇的片段，你知道海外管的没那么严
+
