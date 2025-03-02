@@ -14506,3 +14506,14 @@ ras曲子破坏世界人额，好吧人算正常，但是上台了是一群狂�
 
 [https://tickeforever.jp/I/avemujica/detail?id153220](https://tickeforever.jp/I/avemujica/detail?id153220)
 
+
+*****
+
+####  liekong  
+##### 32345#       发表于 2025-3-3 00:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67558714&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-2 20:04</a>
+
+第五集初党要是没被杀干净，算它坚强了，而且这周乐子也没多少了，感觉像迷家 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">这就是我这种非角色厨的优势了，随便你造角色，我又不厨任何一个人，只要让我觉得有趣就行了
+
