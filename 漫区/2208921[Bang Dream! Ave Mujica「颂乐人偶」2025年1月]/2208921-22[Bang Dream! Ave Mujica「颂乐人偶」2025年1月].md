@@ -14551,3 +14551,43 @@ ras曲子破坏世界人额，好吧人算正常，但是上台了是一群狂�
 </blockquote>
 喵来打破，喵来负责。本来有希望的鸡团复辟大业她狠狠拆穿，莫老师话糙理不糙嘛，她既然要拆台，那也只能她去做这个唤醒祥pro的人。然后看祥pro大C唤醒睦头人live超度莫老师就完了
 
+
+*****
+
+####  thisisaspider  
+##### 32349#       发表于 2025-3-3 01:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67560444&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-3-3 00:25</a>
+
+真正的问题在于关系性，如果以关系性划线，MyGO的中心是灯（见下图）
+
+但是Mujica的中心不是祥子，是睦（ ...</blockquote>
+原本海（可能）和喵都是祥子找来了，想写关系性的话不知道多好写。GO中祥子的关系网还连接到真希上。
+
+mujica要写的东西很多，迷惑的就是怎么什么都不写。不写的原因真和主题有关吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 32350#       发表于 2025-3-3 01:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67560594&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-3 01:07</a>
+喵来打破，喵来负责。本来有希望的鸡团复辟大业她狠狠拆穿，莫老师话糙理不糙嘛，她既然要拆台，那也只能 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最大问题是祥子已经第二次失去睦了，第一次失去睦就颓废了当行尸走肉，第二次绝对要疯了，很难被嘴炮回来，不飞祥就不错了
+不过这逼片也没逻辑了，就随便吧
+
+
+*****
+
+####  akiomn  
+##### 32351#       发表于 2025-3-3 01:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67560652&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-3 01:28</a>
+原本海（可能）和喵都是祥子找来了，想写关系性的话不知道多好写。GO中祥子的关系网还连接到真希上。
+
+mu ...</blockquote>
+mujica剧本有两个很严重的问题，和mygo镜像对偶和双重人格，后者更是柿本一拍脑子想出来的设定
+不是不写，是已经被这两个问题彻底拖垮了，整整到第十集还在讲睦莫，中间还穿插c团和解，再加上柿本没脑子非要一直抽祥子陀螺
+这种状态别说海喵了，作为主唱的初华都只有2集主场了，已经很离谱了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说到底我是觉得，能3-10集全讲睦莫，中间穿插c团，还有一直抽祥子陀螺来看，这帮人是真的没货了，不然mujica这五个人能讲的东西实际很多的
+
