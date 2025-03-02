@@ -14621,3 +14621,11 @@ mujica剧本有两个很严重的问题，和mygo镜像对偶和双重人格，�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  antisamael  
+##### 32355#       发表于 2025-3-3 02:39
+
+“铁暗恋”说主要笑点在于它是素厨滑坡滑出来出的，太有节目效果了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
