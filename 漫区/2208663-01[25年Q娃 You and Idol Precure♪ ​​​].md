@@ -3913,3 +3913,13 @@ Stream Attac ...</blockquote>
 
 前面那么多人信誓旦旦的说偶像不可能搞bg有点言之过早了吧，凯特君这个存在感就算不捅破窗户纸起码肯定也得有点压红线级别的演出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jaewoongh_  
+##### 630#       发表于 2025-3-2 08:04
+
+东映你是人啊，大爷都71了还在一人原画
+
+紫雨女士终于说出了本作中的第二句台词
+

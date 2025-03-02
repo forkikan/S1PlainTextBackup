@@ -2967,3 +2967,13 @@ F5确实可以，但是又觉得分辨率有点低...
 
 海底隧道给我溜麻了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">这么大的结构就别整强制移动了
 
+
+*****
+
+####  远野乙姬  
+##### 261#       发表于 2025-3-2 08:06
+
+请问有没有人知道双刀哥要怎么拿双手剑，我咋按ctrl都没用
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

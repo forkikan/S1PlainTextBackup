@@ -2816,3 +2816,16 @@ KONAMI的世界级ip现在能拿多少出来？
 另外居然没想过把2代两个外传拿来当限 ...</blockquote>
 这么糙，那不就真是模拟器加速了
 
+
+*****
+
+####  Dreammask  
+##### 310#       发表于 2025-3-2 08:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67554354&amp;ptid=2090186" target="_blank">灰狼 发表于 2025-3-2 04:40</a>
+
+这么糙，那不就真是模拟器加速了</blockquote>
+我也这么怀疑，但如果是模拟器的话这ROM的修改幅度不会这么大的......吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+总之贴个原视频：[https://www.bilibili.com/video/BV1xpfRYXEQM/](https://www.bilibili.com/video/BV1xpfRYXEQM/)
+
