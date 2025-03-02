@@ -4114,3 +4114,16 @@ pretty holic可是万代的雄心壮志啊，怎么可能不宣传
 
 小时候电视上播过《我是小甜甜》，通常情况下变身就是开演唱会，现在的观众也是少见多怪了
 
+
+*****
+
+####  raimouse  
+##### 650#       发表于 2025-3-2 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67559021&amp;ptid=2208663" target="_blank">bilibilius 发表于 2025-3-2 20:41</a>
+
+想多了，主要受众是3-7岁</blockquote>
+3-7岁那不是更抽象了
+
+这个年纪化妆只有搞笑一个感觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

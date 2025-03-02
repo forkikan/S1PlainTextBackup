@@ -14082,3 +14082,67 @@ ep2，4：13爱灯上学时候说昨天武道馆，应该不是周六
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  adretyu67.  
+##### 32308#       发表于 2025-3-2 22:07
+
+ 本帖最后由 adretyu67. 于 2025-3-2 22:08 编辑 
+
+蜘蛛说的点对应初华束缚大祥吧
+
+不过初华下线的挺彻底，路边的也很彻底
+
+*****
+
+####  玖羽  
+##### 32309#       发表于 2025-3-2 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67559409&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-3-2 21:42</a>
+
+萌战吧有些人知道自己是精神病，有些不知道，但信萌战吧原创假药的无一例外都是精神病你们正常观众不要拿着 ...</blockquote>
+现在的假药已经不能称为假药了，完全可以视为悬疑向二创，看假药本身就是一种乐趣
+
+
+*****
+
+####  zhoujin8584  
+##### 32310#       发表于 2025-3-2 22:12
+
+美帝现在连苏修的铁暗恋王炸都装备上了，无敌于天下了<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202503/02/221228dffazxuzjjc66ql9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-03-02-22-07-54-64_40deb401b9ffe8e1df2f1cc5ba480b12.jpg</strong> (118.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-2 22:12 上传
+
+<img src="https://img.saraba1st.com/forum/202503/02/221235xae1w8ilw1pcewcp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-03-02-22-07-20-04_40deb401b9ffe8e1df2f1cc5ba480b12.jpg</strong> (102.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-2 22:12 上传
+
+*****
+
+####  DeltaStriker  
+##### 32311#       发表于 2025-3-2 22:15
+
+不是 除了那些铁入脑的 真有人现在还能看下去ansy的？随便访谈就能找补的话 也别拍什么片 直接访谈谈完就行 大家的滤镜一定碎得稀烂吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  DeltaStriker  
+##### 32312#       发表于 2025-3-2 22:16
+
+一定不会*
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
