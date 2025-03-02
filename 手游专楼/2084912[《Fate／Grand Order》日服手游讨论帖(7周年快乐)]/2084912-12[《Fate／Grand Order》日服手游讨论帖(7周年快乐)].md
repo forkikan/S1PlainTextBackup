@@ -385,3 +385,15 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一百连双黄岸波白野，这运气亏了
 
+
+*****
+
+####  希望之花  
+##### 16441#       发表于 2025-3-2 09:25
+
+你油从开服就是赚一波提桶跑路的样子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我梅林实装的时候入坑日服，当时看nga讨论就是出这个超模卡是不是要提桶跑路了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.44)
+
