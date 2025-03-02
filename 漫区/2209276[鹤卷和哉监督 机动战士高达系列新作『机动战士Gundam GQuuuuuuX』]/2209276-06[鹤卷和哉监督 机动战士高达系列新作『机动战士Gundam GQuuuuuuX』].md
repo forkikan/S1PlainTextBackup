@@ -6194,3 +6194,11 @@ f5e481cb39dbb6fd66146e004f24ab18972b3703.jpg
 
 应该是知道这个东西是什么
 
+
+*****
+
+####  Gysumitka  
+##### 7903#       发表于 2025-3-2 23:13
+
+黑衣小哥为什么那么快判断出两台都是高达，gqx秘密机型也能认出<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+

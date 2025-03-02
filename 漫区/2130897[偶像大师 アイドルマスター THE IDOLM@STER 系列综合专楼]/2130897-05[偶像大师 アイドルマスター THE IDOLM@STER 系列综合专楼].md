@@ -231,3 +231,12 @@ Day 2 業務聯絡環節結束。
 
 欢迎阁下视察指导工作<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lunaticfool  
+##### 6945#       发表于 2025-3-2 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67559141&amp;ptid=2130897" target="_blank">RhmBWT_Wu 发表于 2025-3-2 20:56</a></blockquote>
+简直就是鸽子本人
+
