@@ -6212,3 +6212,59 @@ f5e481cb39dbb6fd66146e004f24ab18972b3703.jpg
 黑衣小哥为什么那么快判断出两台都是高达，gqx秘密机型也能认出</blockquote>
 因为红白蓝的机体就只有高达了。夏亚看见78还吐槽了来着“涂成这么显眼的白色，说不定是联邦的陷阱呢”
 
+
+*****
+
+####  RE㐅ia  
+##### 7905#       发表于 2025-3-3 02:17
+
+ 本帖最后由 RE㐅ia 于 2025-3-3 02:23 编辑 
+
+多刷了才发现被之前的repo套进去了，其实三人组根本不是什么欠债永动机。就凭麻球那家境别说手机修理费和饭钱了，大手一挥直接原地包养喵安牢修都并非绝无可能。当时的情况是只有喵安才是进退两难的。她为了保住饭碗就必须让这次交易成功，也就是短时间内先让牢修想办法搞到钱。但麻球这边又不急着修手机，她就是单纯想想通过打拳再次krkr，于是就抓住这次机会对着喵安一顿画饼pua让他把装置提前给牢修，然后牢修又被高达一顿pua要去ttk，这事就这么自然而然地成了。
+
+<img src="https://img.saraba1st.com/forum/202503/03/022127iswwresvrbmaezvh.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>C7762D82-67F3-4C57-B3CC-6CFE4DA199A7.jpeg</strong> (230.72 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-3 02:21 上传
+
+<img src="https://img.saraba1st.com/forum/202503/03/022128mex3wewrouwpo0oc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>C67B11FF-0AE5-4456-B976-F2D9B37ED6AC.jpeg</strong> (205.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-3 02:21 上传
+
+<img src="https://img.saraba1st.com/forum/202503/03/022127yikkakm2zfkx2kpu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>7CF02931-5DB8-4A4F-81C0-6D0670FAACA4.jpeg</strong> (151.53 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-3 02:21 上传
+
+<img src="https://img.saraba1st.com/forum/202503/03/022127fklz393o9lokl9z3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>B66D2162-A25D-4DFF-A10D-FD897910052C.jpeg</strong> (140.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-3 02:21 上传
+
+*****
+
+####  太极八爪鱼  
+##### 7906#       发表于 2025-3-3 02:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67559615&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-3-2 06:11</a>
+
+看到了，红高达wiki上的记录
+
+设计者一栏写的是不明，提姆雷没有留名啊
+
+吉翁独立战争中，本机由“红色彗星” ...</blockquote>
+但是提姆雷在前半段夏亚抢高达的时候露面了
+
