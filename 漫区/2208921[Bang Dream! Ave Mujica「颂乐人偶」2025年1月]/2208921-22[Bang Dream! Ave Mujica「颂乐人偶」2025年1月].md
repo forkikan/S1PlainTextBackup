@@ -14322,3 +14322,28 @@ https://forum.gamer.com.tw/C.php?bsn=31877&amp;snA=6745
 
 但是大猫是鸡团1.0摘面具的人<img src="https://static.saraba1st.com/image/smiley/face2017/226.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 32330#       发表于 2025-3-2 22:59
+
+说是“缺团魂”，然而实际上只要大瞄乖乖听话，海林只要不想和钱过不去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，那两个舔狗在（收拾莫女士），大祥还需要什么管理能力吗，至于我们都知道不彻底解决各自的心理或个人问题，炸不炸团就完全是编辑们说了算，可是现在很多问题的本质就是蚀本神人没办法解决或者找不到令人信服的管理方式，那自然就是凑合过了呗
+
+*****
+
+####  阿兹尔  
+##### 32331#       发表于 2025-3-2 23:01
+
+一想到以后成团了，团内的角色厨还会疯狂黑自家团的其他角色就很乐，这烈度可比之前的大多了
+
+*****
+
+####  aptx8285144  
+##### 32332#       发表于 2025-3-2 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67559949&amp;ptid=2208921" target="_blank">jtht001 发表于 2025-3-2 22:56</a>
+
+哪部原创啊</blockquote>
+智商机的翔“皇”，当年她的个人主吧甚至畅想过白翔这样的cp
+
