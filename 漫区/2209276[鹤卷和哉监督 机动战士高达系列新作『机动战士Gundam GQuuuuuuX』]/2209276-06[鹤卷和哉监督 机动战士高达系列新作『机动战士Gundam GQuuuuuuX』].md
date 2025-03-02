@@ -6091,3 +6091,52 @@ f5e481cb39dbb6fd66146e004f24ab18972b3703.jpg
 夏利尔故意放出战争时期浓度的米粒，然后红高达还不刻意隐藏自己，对停战信号无动于衷，感觉串通好了啊，冥 ...</blockquote>
 看他的反应来之前心底应该还是有点期待是鸭子的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刺客ares  
+##### 7894#       发表于 2025-3-2 22:39
+
+夏利亚在红高掠过舰桥的时候说不是上校
+
+可以认为红高在宙域和殖民地内的所有操作都是牢修手操
+
+他真正第一次见到玛秋的地方不是桥下，而是这里
+
+<img src="https://img.saraba1st.com/forum/202503/02/223849iyasat435aa3dtba.gif" referrerpolicy="no-referrer">
+
+<strong>2025-03-02 200834[00h08m06s]-[00h08m17s].gif</strong> (809.98 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-2 22:38 上传
+
+
+*****
+
+####  az一串字母  
+##### 7895#       发表于 2025-3-2 22:43
+
+以前有过nt感应机子的先例吗，我印象里好像一般都是感应到驾驶员吧。
+
+牢修开红高挺温柔的还愿意近身，0079鸭子开红高几乎就在疯狂玩bit除了最后打鸭妹我印象里基本没什么近战的镜头
+
+*****
+
+####  王留美  
+##### 7896#       发表于 2025-3-2 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67559413&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-3-2 21:42</a>
+ 倒是确认了奥米加之前没启动过 而且我怎么感觉夏利尔有鬼，就像是故意把gqx让给对面一样，好像是卖了艾格萨 ...</blockquote>
+确实有这种感觉
+
+*****
+
+####  纪寞  
+##### 7897#       发表于 2025-3-2 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67559801&amp;ptid=2209276" target="_blank">虛無迴廊 发表于 2025-3-2 22:36</a>
+
+看他的反应来之前心底应该还是有点期待是鸭子的</blockquote>
+夏利尔故意带一群新兵过来真坏啊，因为那些人没经验，他做什么出奇的举动也没人敢怀疑
+
