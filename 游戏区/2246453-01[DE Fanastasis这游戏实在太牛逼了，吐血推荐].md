@@ -2977,3 +2977,15 @@ F5确实可以，但是又觉得分辨率有点低...
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  约翰里德  
+##### 262#       发表于 2025-3-2 08:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67554553&amp;ptid=2246453" target="_blank">远野乙姬 发表于 2025-3-2 08:06</a>
+请问有没有人知道双刀哥要怎么拿双手剑，我咋按ctrl都没用
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+等理智开了买双手剑理智喂他
+
