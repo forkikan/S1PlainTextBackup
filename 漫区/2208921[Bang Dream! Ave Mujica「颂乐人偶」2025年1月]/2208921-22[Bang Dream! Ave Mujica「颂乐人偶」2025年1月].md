@@ -13173,3 +13173,16 @@ Meme 四格：
 
 海猫里这样搞事为了制造密室杀人，mujica里要是真这么搞，就是为了折磨祥子吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  الطائر  
+##### 32232#       发表于 2025-3-2 15:32
+
+这个说法比较合理：
+
+三角定治入赘丰川家改姓，他的侄女初华，就是瑞穗的表妹，祥子的远房小姨。初华和瑞穗有一对双胞胎人偶。
+[https://tieba.baidu.com/p/9538989455](https://tieba.baidu.com/p/9538989455)
+
+这样就不违反婚姻法了 <img src="https://static.saraba1st.com/image/smiley/carton2017/487.png" referrerpolicy="no-referrer">
+
