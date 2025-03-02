@@ -14429,3 +14429,51 @@ ras曲子破坏世界人额，好吧人算正常，但是上台了是一群狂�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  6030sylar  
+##### 32340#       发表于 2025-3-3 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67560227&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-3-2 23:42</a>
+与此同时剧本会议启动，需在确定大框架后分集细化。这种三线并行的创作模式虽导致思维混乱，却能从多视角立 ...</blockquote>
+更改剧本后，需要睦来承担性格变化并带来剧情冲突，柿本这个智障处理不了为什么会产生性格变化，就塞个双重人格，是小时候摔楼梯摔多了吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  玖羽  
+##### 32341#       发表于 2025-3-3 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67560227&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-3-2 23:42</a>
+
+有时在讨论剧本时会突然被指出逻辑矛盾，大脑CPU简直快过载了(笑)！只能现场反复推敲解决方案，但最终结论往往与初始构想大相径庭。比如最初根本没计划让"睦"占据如此重要戏份，更没想过给睦设计"双重人格"设定
+
+柿本这个首席战犯绝对没得跑，这货活该被喷死，**的都做到第四集脑门一拍想出个双重人格？</blockquote>
+真正的问题在于关系性，如果以关系性划线，MyGO的中心是灯（见下图）
+
+但是<strong>Mujica的中心不是祥子，是睦</strong>（我依然认为Mortis不应视为一个独立角色）
+
+海铃、喵梦都是跟睦的单向关系性（而且非常勉强）
+
+初华是跟祥子的单向关系性，祥子和睦是唯一的双向关系性
+
+迄今为止，海铃和喵梦始终没有建立起跟祥子的关系性，虽然名义上是讲祥子的故事，但是Mujica主要是围着睦转的
+
+实际上是初祥睦一组、海喵睦(墨)一组，这样毫不相干的两组，只是因为睦墨是同一个人才有交集
+
+而作为剧情核心的祥睦关系性，至少现在看来，仅仅是一个陈腐的“麦琪的礼物”式的信息差误会（以为对方在Mujica很痛苦）
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer"> 
+
+看看MyGO的关系性多么美丽，和Mujica正好相反
+
+<img src="https://img.saraba1st.com/forum/202503/03/000225ldp6rqtwy1brdtnk.jpg" referrerpolicy="no-referrer">
+
+<strong>KHv.jpg</strong> (72.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-3 00:02 上传
+
