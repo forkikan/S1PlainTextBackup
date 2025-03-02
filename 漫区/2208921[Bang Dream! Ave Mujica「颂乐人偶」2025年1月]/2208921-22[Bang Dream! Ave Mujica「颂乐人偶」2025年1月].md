@@ -13628,3 +13628,29 @@ mygo是音乐如此美好如此感人，让我们一起进入幸福的 幻梦中
 
 这个分析蛮有意思的，也确实够狂。
 
+
+*****
+
+####  hkguty  
+##### 32268#       发表于 2025-3-2 18:56
+
+除非有第二季或者剧场版，不然我觉得目前为止观感可以盖棺不如mygo
+
+*****
+
+####  小博禹  
+##### 32269#       发表于 2025-3-2 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67557603&amp;ptid=2208921" target="_blank">الطائر 发表于 2025-3-2 17:23</a>
+祥子为母鸡卡写的不仅是音乐、也是世界观，还是独立于邦邦的奇幻谜语人世界观。两个世界观的锚点是“人偶” ...</blockquote>
+小祥的编剧水平有待提高<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ape-apple  
+##### 32270#       发表于 2025-3-2 18:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还要到现在拍板不如mygo吗，第四集我就跳车了
+
