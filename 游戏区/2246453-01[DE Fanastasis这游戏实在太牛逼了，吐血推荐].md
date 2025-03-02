@@ -3025,3 +3025,13 @@ F5确实可以，但是又觉得分辨率有点低...
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  ATRO  
+##### 266#       发表于 2025-3-2 10:56
+
+卧槽发现新大陆，安卓跑起来好顺畅<img src="https://p.sda1.dev/22/4af63f0a29345d5b04d2258b3a8f6963/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

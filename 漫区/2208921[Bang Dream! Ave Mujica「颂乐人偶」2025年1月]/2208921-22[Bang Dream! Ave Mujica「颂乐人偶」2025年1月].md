@@ -12297,3 +12297,33 @@ mujica内部的路线矛盾可以让喵梦和海铃发起，喵梦更在意热�
 第七集那一整套武士道全社内外，各个项目都配合Crychic再结成与祥子生日的炒作手法，肯定是很久之前就定好 ...</blockquote>
 结果大祥的黑色生日是中国观众替她过的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  老贝  
+##### 32159#       发表于 2025-3-2 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67555188&amp;ptid=2208921" target="_blank">cccpprc 发表于 2025-3-2 10:43</a>
+
+结果大祥的黑色生日是中国观众替她过的</blockquote>
+
+在武士道和柿本的眼里，可能仅此一次的ccc复活就是给祥子最好的生日礼物。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ninokagami  
+##### 32160#       发表于 2025-3-2 10:56
+
+ep10的灯皇形态给观众的印象太深了，但其实看后三话的灯，尤其是被祥子哈气之后愣在原地需要爱音拉到水族馆治愈的才是常态的灯
+之前哪儿的采访就说过，灯属于那种这次做到了但下次不一定做得到，有时候前进两步后退三步的人
+
+
+*****
+
+####  syndrome2032  
+##### 32161#       发表于 2025-3-2 11:01
+
+狗10的灯是为了把狗拉起来所以拼命了。
+
+正常不需要那么拼命。
+
