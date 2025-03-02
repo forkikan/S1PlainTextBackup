@@ -13213,3 +13213,17 @@ Meme 四格：
 
 现在每集的脚本感觉就像是俄罗斯轮盘赌一样，都不敢彻底解释清楚剧情，还在往里面加东西，最后一般来说都是烂完的
 
+
+*****
+
+####  小博禹  
+##### 32236#       发表于 2025-3-2 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67557003&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-2 15:38</a>
+啊，这么说来，同性婚合法化的外国，同性近亲能结婚么，如果不能理由是什么？
+
+感觉找不出理由啊，同性又生 ...</blockquote>
+邦邦世界观同性可以生孩子吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
