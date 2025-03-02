@@ -5316,3 +5316,14 @@ X 上的 干し丿：“捏造120%まんが。 戦いに呼ばれる男と戦い
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  太极八爪鱼  
+##### 7823#       发表于 2025-3-2 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67555116&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-3-1 18:31</a>
+
+你是不是忘记现代级了？锅炉、轮机什么的都不陌生，甚至还能找到原厂做售后服务。还有顺道运回的一大堆图 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">高达世界的传统，抢夺过来就是我的就能用，不信你看高达
+
