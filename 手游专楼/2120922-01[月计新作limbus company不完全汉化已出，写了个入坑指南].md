@@ -178,3 +178,35 @@
 
 这是第一个出现的东部协会吗？居然是国风我是没想到的…
 
+
+*****
+
+####  Jamaisvu  
+##### 1103#       发表于 2025-3-3 17:43
+
+新人格技能前瞻：
+
+<img src="https://img.saraba1st.com/forum/202503/03/174349vfjdwadjad2hhjef.jpg" referrerpolicy="no-referrer">
+
+<strong>788BAF34A131B4E12F04C710C4ED8A19.jpg</strong> (262.57 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-3-3 17:43 上传
+
+新类型，火之呼吸。
+
+呼吸是个框，啥都往里装。就跟镜牢的呼吸机似的，无论什么体系要突破上限都得叠暴击...
+
+<img src="https://img.saraba1st.com/forum/202503/03/174045amalin90lii696sf.jpg" referrerpolicy="no-referrer">
+
+<strong>40381EF119CA32751DB72C00364CEA36.jpg</strong> (303.26 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-3-3 17:40 上传
+
+被称为炎拳的幸存者，因为一位女士的逝去而对世界充满恨意，需要通过挨打反击积攒燃料提高伤害...就叫你阿格尼高利吧。
+

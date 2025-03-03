@@ -6788,3 +6788,34 @@ f5e481cb39dbb6fd66146e004f24ab18972b3703.jpg
 是联邦的十字盾牌标啊</blockquote>
 看错了，这俩标记糊在一块，细看白高那边确实少了个半圆<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kuriri  
+##### 7950#       发表于 2025-3-3 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67565431&amp;ptid=2209276" target="_blank">xwr 发表于 2025-3-3 17:27</a>
+
+我看有人说追加映像的联邦魔女挺可爱的，有人看过能说说么？</blockquote>
+188页7504楼讲得很清楚了～长得像这个然后去掉眼白，其他参考人物有宝可梦水莲，0079米莱和樱桃小丸子
+<img src="https://img.saraba1st.com/forum/202502/23/220314luw7zz4ayuy58w4x.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kuriri  
+##### 7951#       发表于 2025-3-3 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67565307&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-3-3 17:11</a>
+
+牢修的死旗从正片和场刊访谈出来就没那么重了
+
+说富野的NT变消极了，我们要积极描写NT，结果作品最主要的俩N ...</blockquote>
+老修的声优很受制作方器重和喜欢，上了不少节目，再加上这作主题就是mav，怎么看都不会轻易死掉，最后结局是离别倒是可能的
+
+*****
+
+####  RE㐅ia  
+##### 7952#       发表于 2025-3-3 17:46
+
+各回各家各找各妈
+
