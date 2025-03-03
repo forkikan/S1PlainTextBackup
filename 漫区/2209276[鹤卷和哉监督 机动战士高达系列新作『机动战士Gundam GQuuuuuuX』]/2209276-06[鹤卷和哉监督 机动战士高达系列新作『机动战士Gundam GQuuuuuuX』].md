@@ -7070,3 +7070,25 @@ GQ版大魔(里克大魔），背部有巨型的推进器
 
 2025-3-3 19:46 上传
 
+
+*****
+
+####  UNINSTALL42  
+##### 7975#       发表于 2025-3-3 19:48
+
+大推进器是致敬精神感应大魔吗（虽然那个不是推进器（
+
+
+*****
+
+####  gamedreamer  
+##### 7976#       发表于 2025-3-3 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67566089&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-3-3 19:19</a>
+从完全不知情的吉翁军士兵角度来看，
+
+只能理解为夏亚上校以生命为代价创造了奇迹，挫败联邦军的最后一搏， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
