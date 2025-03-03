@@ -6588,3 +6588,21 @@ f5e481cb39dbb6fd66146e004f24ab18972b3703.jpg
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
 
+
+*****
+
+####  RE㐅ia  
+##### 7932#       发表于 2025-3-3 15:46
+
+突然想起来，喵安里pv那句“正经人才不会打军团战”好像也没出现过
+
+*****
+
+####  岸波白野  
+##### 7933#       发表于 2025-3-3 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67563421&amp;ptid=2209276" target="_blank">check 发表于 2025-3-3 13:20</a>
+
+看完了，节奏太怪了 感觉没有主线。中规中矩</blockquote>
+85部分我看完感觉是TV前几集剪辑的，是有点碎。
+
