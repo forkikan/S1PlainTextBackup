@@ -15768,3 +15768,11 @@ soyo也帮助爱音了，soyo虽然有私心，但她的打算也只是让爱音
 
 まだね暗示还有后续其实还好，但那个为了避免拍到人所以朝上的拍照角度，可以理解为激情一夜事后躺在床上看天花板，实在是有点意想不到。<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  MINKE  
+##### 32447#       发表于 2025-3-3 15:23
+
+老实讲不清算大喵其实也是合理的，演艺公司啥的都听上面TGW老登大手的，老登又是个任祥子胡闹的，祥子宕机了一个多月没想报复，老登自然也无所谓，下面人也就不会自作主张搞什么违约金清算的问题。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
