@@ -793,3 +793,35 @@ sumimi至今为止就一首歌，早在狗团TV期间就可以确定只是个工
 
 海铃还好吧，反正mygo里她除了和立希互动剩下也就是打个酱油。
 
+
+*****
+
+####  aptx8285144  
+##### 32620#       发表于 2025-3-3 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67567354&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-3 23:06</a>
+
+海铃还好吧，反正mygo里她除了和立希互动剩下也就是打个酱油。</blockquote>
+<strong>当雇佣兵时候鼓励过灯</strong>，而这种积极表现到了母鸡卡时期几乎没了，如果睦被海林鼓励一下，也许病情不会那么迅速变成大病，反正母鸡卡就是疯狂加剧人物恶劣的一面<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lyzers  
+##### 32621#       发表于 2025-3-3 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67567354&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-3 23:06</a>
+
+海铃还好吧，反正mygo里她除了和立希互动剩下也就是打个酱油。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">如果是说整个卖狗跟整个母鸡卡里面的表现对比那就不怎么好
+
+
+*****
+
+####  Lyzers  
+##### 32622#       发表于 2025-3-3 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67567349&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-3 23:04</a>
+
+突然意识到海林不是为了立希而是为了“互相信任”，这人设变化得太剧烈了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">想想前面大伙说的鸡团内部那严重得跟个严肃职场政治剧一样，没团魂犹如杀人放火，结果不还是被两三句话就嘴破防了，突然之间就哭唧唧的母鸡卡是我的归宿啊啊啊啊，闹麻了
+
