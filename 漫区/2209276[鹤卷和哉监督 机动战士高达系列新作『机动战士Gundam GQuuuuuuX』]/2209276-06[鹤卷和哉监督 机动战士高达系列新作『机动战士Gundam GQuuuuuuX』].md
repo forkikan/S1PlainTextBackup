@@ -7104,3 +7104,33 @@ GQ版大魔(里克大魔），背部有巨型的推进器
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  CSWQ  
+##### 7978#       发表于 2025-3-3 20:09
+
+看漏油发的枪版，感觉玛秋的个性很适合与捷多做对照，都是偶遇一蓝色系男子感受到了kirakira dokidoki‌觉醒了NT之力，又都是因为某种义愤去抢机体，甚至上机的动作都一样干脆，而且都不会开（
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  gamedreamer  
+##### 7979#       发表于 2025-3-3 20:11
+
+和朱总做对照吗？zz粉丝最开心的一集(指我)<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  Oshino  
+##### 7980#       发表于 2025-3-3 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67566263&amp;ptid=2209276" target="_blank">UNINSTALL42 发表于 2025-3-3 19:46</a>
+
+比较热血向的感觉的话，他排球少年里感觉配的挺好的</blockquote>
+排球少年白鸟泽篇，已经没印象叻。白鸟泽篇我现在唯一有点记忆的只有月の輪
+
