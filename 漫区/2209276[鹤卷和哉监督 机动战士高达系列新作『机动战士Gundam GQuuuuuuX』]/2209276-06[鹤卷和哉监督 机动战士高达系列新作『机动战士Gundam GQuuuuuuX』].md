@@ -7134,3 +7134,13 @@ GQ版大魔(里克大魔），背部有巨型的推进器
 比较热血向的感觉的话，他排球少年里感觉配的挺好的</blockquote>
 排球少年白鸟泽篇，已经没印象叻。白鸟泽篇我现在唯一有点记忆的只有月の輪
 
+
+*****
+
+####  gamedreamer  
+##### 7981#       发表于 2025-3-3 20:32
+
+话说回来，有没有在霓虹看过的人说一下追加画面那个联邦的魔女的精神状态是什么样的<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

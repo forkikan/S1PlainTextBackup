@@ -16714,3 +16714,116 @@ image.png
 
 一个想法，母鸡卡被带手压着可能单纯是因为老头觉得大象不想玩母鸡卡，说不定哪天大象和老头来一句“爷爷，我想玩母鸡卡”直接原地重建了
 
+
+*****
+
+####  Lyzers  
+##### 32528#       发表于 2025-3-3 20:29
+
+期待在母鸡卡听到孙女呛爷爷“你连下面都管不住还想管我”类似这样的台词<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  金钱与民主  
+##### 32529#       发表于 2025-3-3 20:29
+
+付了违约金的老登在祥子面前就是立于不败之地的，私生女这事要拿出来炸老登，祥子也不配去拿，反倒是初华自己配。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  蒹葭公子  
+##### 32530#       发表于 2025-3-3 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67566397&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-3 20:07</a>
+
+找網紅抹黑他呀
+
+大財閥一定最怕這個</blockquote>
+那大喵老师无敌了……
+
+现在大祥老师找到摄影师的兴趣爱好了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  阿兹尔  
+##### 32531#       发表于 2025-3-3 20:33
+
+拿祥子去打动老登，不如乐奈的奶奶年轻时和老登组过乐队，乐奈奶奶去劝说祥爷合理
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| DeltaStriker| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  aptx8285144  
+##### 32532#       发表于 2025-3-3 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67566566&amp;ptid=2208921" target="_blank">蒹葭公子 发表于 2025-3-3 20:31</a>
+
+那大喵老师无敌了……
+
+现在大祥老师找到摄影师的兴趣爱好了吗？
+
+哦对了，那在直升机上接住大祥老师的炒面 ...</blockquote>
+“反派”对决“反派”，大瞄老师排上用场了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ntrntr1  
+##### 32533#       发表于 2025-3-3 20:37
+
+其实公司不计较很正常，公司肯定不想藏睦子米初华这种颜值背景双牛逼自带话题的人物啊，这两个已经出名了的大美女公司有啥非要藏着的理由吗，根据就是祥子的音乐性强了再爆能更爆？这完全不符合娱乐圈打牌逻辑，就是祥子为了证明所谓音乐性的一厢情愿和照顾小姐妹木兹米舞台恐惧的私心罢了，公司肯定是更想炒作的，别说这世界上有的是带面具的乐队，他们长得不好看啊，娱乐圈脸能打谁不想靠脸卖
+
+但喵梦被追责也很正常，毕竟她这个没和任何人串通，完全一头发热，万一没人接得住就真事故了，我倒觉得热爱炒作不是啥大毛病主要这唐突摘面具很蠢，外加这个项目本来就是给领导女儿做的，按现实喵梦这种进去硬蹭的一句违约金你赔得起吗就够她闭嘴了
+
+不过这剧嘛，就突出一个编剧的大手，喵梦就是典型的编剧代表，她怎么双标我都不奇怪，但一想到后面还要真情实感卖喵祥就觉得怪好笑的，坐等喵梦真情表白
+
+*****
+
+####  aptx8285144  
+##### 32534#       发表于 2025-3-3 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67566552&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-3-3 20:29</a>
+
+期待在母鸡卡听到孙女呛爷爷“你连下面都管不住还想管我”类似这样的台词 ...</blockquote>
+什么时候管你了，你被素世绑架去睦家都没管，你想组乐队就去呗，疑，为什么要我出钱？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小博禹  
+##### 32535#       发表于 2025-3-3 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67566566&amp;ptid=2208921" target="_blank">蒹葭公子 发表于 2025-3-3 20:31</a>
+那大喵老师无敌了……
+
+现在大祥老师找到摄影师的兴趣爱好了吗？
+
+哦对了，那在直升机上接住大祥老师的炒面 ...</blockquote>
+那当然是半身小睦了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  蒹葭公子  
+##### 32536#       发表于 2025-3-3 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67566576&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-3 20:34</a>
+
+“反派”对决“反派”，大瞄老师排上用场了</blockquote>
+你别说，你还真别说……
+
+根据设定大喵老师是大祥老师的soulmate，大祥老师没资格对决老登，大喵老师说不定就“不管不顾”了，至于说大喵老师也吃了丰川大手炒作的热度，一来她现在流量没了成底边了；二来炒面王子也收了10e还敢反对四宫家，我觉得大喵为了大祥打**炮干丰川家还真有可能……
+
