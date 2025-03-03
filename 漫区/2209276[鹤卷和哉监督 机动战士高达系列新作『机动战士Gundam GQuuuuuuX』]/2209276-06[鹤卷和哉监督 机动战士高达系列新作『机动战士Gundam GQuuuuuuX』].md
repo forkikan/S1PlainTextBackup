@@ -6518,3 +6518,45 @@ f5e481cb39dbb6fd66146e004f24ab18972b3703.jpg
 
 之前看泄露场刊的时候觉得索顿舰长的形象似乎是强硬女军官，结果正片里是特别逗XD
 
+
+*****
+
+####  积木23ki  
+##### 7927#       发表于 2025-3-3 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67563230&amp;ptid=2209276" target="_blank">Veronica0096 发表于 2025-3-3 12:52</a>
+香港和澳门哪些电影院有上映？楼友可以指指路吗？
+
+—— 来自 Xiaomi 2211133C, Android 15上的 S1Next-鹅 ...</blockquote>
+英皇，还有其他影院的，要去官网看。往前翻翻有楼友发
+
+
+*****
+
+####  gnihton314  
+##### 7928#       发表于 2025-3-3 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67563230&amp;ptid=2209276" target="_blank">Veronica0096 发表于 2025-3-3 12:52</a>
+
+香港和澳门哪些电影院有上映？楼友可以指指路吗？
+
+—— 来自 Xiaomi 2211133C, Android 15上的 S1Next-鹅 ...</blockquote>
+[https://hkmovie6.com/](https://hkmovie6.com/)
+
+这个网站可以查，但是排片更新不如各家影院自己的网站即时。我是在英皇看的[https://www.emperorcinemas.com/zh/](https://www.emperorcinemas.com/zh/)
+
+*****
+
+####  xwr  
+##### 7929#       发表于 2025-3-3 13:54
+
+ 本帖最后由 xwr 于 2025-3-3 13:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67563387&amp;ptid=2209276" target="_blank">王留美 发表于 2025-3-3 13:13</a>
+
+一旦觉得夏利安有问题了再看索顿的舰桥组就觉得……夏利安该不会是特意挑的木马吧？
+
+整个舰桥给我的感觉是 ...</blockquote>
+我觉得完全有可能，中校女舰长反对战后吉翁扎古民用，其他几个人看起来都挺年轻的，说不定都是些对吉翁有些想法的，再配上两个军校毕业毛都不懂的少尉，说不定很方便，本来像这样的功勋舰在所罗门之后根本没必要更换全体舰员，德伦指挥木马突入所罗门肯定功名显赫，去找红高达，夏利亚可以继续找德伦嘛，岂不是更靠谱，
+
+除非木马战后除役过一次，然后又再次服役夏利亚找了一批人接手，这也可以一定程度上解释为什么卡姆兰惊讶木马还在，可能在他的脑海里木马应该已经退役了。
+
