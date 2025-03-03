@@ -7020,3 +7020,53 @@ f5e481cb39dbb6fd66146e004f24ab18972b3703.jpg
 <img src="https://p.sda1.dev/22/c4bcbf4159528b3fb56746bd00d49c4e/20250303_192601.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/22/4f51ddb1c9f9bd463ee8fc9aea4ebbfd/20250303_192028.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 7972#       发表于 2025-3-3 19:37
+
+要不是扎比家真正的救星泽克诺瓦现象，基连和紫婆这两个早就之前一样领盒饭了，能捡了条命夏亚那气的够冤
+
+
+*****
+
+####  UNINSTALL42  
+##### 7973#       发表于 2025-3-3 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67565808&amp;ptid=2209276" target="_blank">Oshino 发表于 2025-3-3 18:31</a>
+
+但是他的演技在这个剧场版还是够用的，主要是现阶段修司没什么感情波动。按照传统套路，后面tv应该会安排 ...</blockquote>
+比较热血向的感觉的话，他排球少年里感觉配的挺好的
+
+*****
+
+####  王留美  
+##### 7974#       发表于 2025-3-3 19:46
+
+GQ版大魔(里克大魔），背部有巨型的推进器 
+
+<img src="https://img.saraba1st.com/forum/202503/03/194601x7nz800lf8r7nlz4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (144.57 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-3 19:46 上传
+
+<img src="https://img.saraba1st.com/forum/202503/03/194612cccqtc8chqq8ucec.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (136.79 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-3 19:46 上传
+
+<img src="https://img.saraba1st.com/forum/202503/03/194619fsicliijmb9t65ai.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (113.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-3 19:46 上传
+
