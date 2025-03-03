@@ -7210,3 +7210,17 @@ GQ版大魔(里克大魔），背部有巨型的推进器
 
 就是说紫色老太婆支持大扎姆量产工程，而大猩猩支持逆向量产敢达，两者合作在吉翁领导层里形成多数派来影响资源分配
 
+
+*****
+
+####  UnrealApartheid  
+##### 7988#       发表于 2025-3-3 22:38
+
+<img src="https://p.sda1.dev/22/ef0ba0c00ffb7fbe9dcfe2cb5ca0a0d3/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/0c941e94538e234e76d98edfd79c52bb/image.jpg" referrerpolicy="no-referrer">
+台湾的影评，原出处在脸书。
+水星魔女有更好的开头？水母第一话碎片一样的叙事比GCuuuuuuX更好？
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

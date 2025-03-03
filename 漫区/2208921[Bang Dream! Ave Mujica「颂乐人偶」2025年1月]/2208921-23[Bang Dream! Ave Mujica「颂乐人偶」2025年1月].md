@@ -703,3 +703,40 @@ sumimi至今为止就一首歌，早在狗团TV期间就可以确定只是个工
 
 粟米米一出场就here the world，也确实是不准备继续搞了，我觉得真不如让真奈独立出来再找个d5j声优拉个新的二人组合，反田叶月这么好底子也该火一把
 
+
+*****
+
+####  z-hunter  
+##### 32612#       发表于 2025-3-3 22:38
+
+话说初华在GO动画里给灯提建议，推了灯一把让她组了MYGO是不是已经实锤有私心了？就为了C团死得彻底
+
+原来狗的13集初华对灯说的那句“传达到了吗？”那个分镜是有意为之的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+可惜mujica团里我最粉初华，现在只剩歌声了，连最伟大的脸都被故意颜艺了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  huxiaopao163  
+##### 32613#       发表于 2025-3-3 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67567184&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-3-3 22:31</a>
+
+我寻思这不是早就说过了吗，在岛民初华眼中一年来岛上一次的财阀大小姐就如天人一般，长久下来就形成了自 ...</blockquote>
+呃，我本来写了穷人对有钱人的自卑感，然后还是编辑掉了。。。
+
+真要写这个吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 32614#       发表于 2025-3-3 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67567228&amp;ptid=2208921" target="_blank">z-hunter 发表于 2025-3-3 22:38</a>
+
+话说初华在GO动画里给灯提建议，推了灯一把让她组了MYGO是不是已经实锤有私心了？就为了C团死得彻底
+
+原来狗 ...</blockquote>
+其实仔细推敲就会发现，初华的人设跌得最厉害，当年神秘逼格的女人，完全变成了方寸大乱的颜艺女人，恩，和大祥其实有着异曲同工之处<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
