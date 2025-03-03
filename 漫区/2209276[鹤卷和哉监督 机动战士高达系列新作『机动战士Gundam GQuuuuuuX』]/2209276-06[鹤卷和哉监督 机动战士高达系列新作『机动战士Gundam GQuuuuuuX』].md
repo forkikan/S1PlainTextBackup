@@ -6739,3 +6739,34 @@ f5e481cb39dbb6fd66146e004f24ab18972b3703.jpg
 
 2025-3-3 17:13 上传
 
+
+*****
+
+####  刺客ares  
+##### 7945#       发表于 2025-3-3 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67565327&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-3-3 17:13</a>
+
+新闻稿大图</blockquote>
+怎么白高达那边的胸口标也是按吉翁印的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  王留美  
+##### 7946#       发表于 2025-3-3 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67565113&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-3-3 16:44</a>
+ 假定"那一边"为正史，而阿尔法和奥米加目前跟精神感应框架的功能很吻合，gqx很多地方都cue独角兽。 如果真 ...</blockquote>
+我认为暂时以GQ把看成是一个独立企划比较合适
+除了期望值影响于实际作品落差导致观感的问题之外，基于创作层面而言，和主世界有过多的牵扯不仅对于GQ自身的制作会有影响牵扯，也会导致GQ世界观最后会收束回到主世界，浪费了一个很有后续开发潜力的平行世界
+
+*****
+
+####  王留美  
+##### 7947#       发表于 2025-3-3 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67565351&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-3-3 17:16</a>
+ 怎么白高达那边的胸口标也是按吉翁印的</blockquote>
+是联邦的十字盾牌标啊
+
