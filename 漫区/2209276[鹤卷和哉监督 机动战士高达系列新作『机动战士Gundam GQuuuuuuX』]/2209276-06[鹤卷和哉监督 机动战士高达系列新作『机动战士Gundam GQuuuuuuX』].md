@@ -7312,3 +7312,15 @@ GQ版大魔(里克大魔），背部有巨型的推进器
 
 OVA已经是过时20年的商法了，现在的商法是剧场版
 
+
+*****
+
+####  UnrealApartheid  
+##### 7999#       发表于 2025-3-4 00:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67567700&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-3-4 00:23</a>
+OVA已经是过时20年的商法了，现在的商法是剧场版</blockquote>
+非番剧附属的单独OVA已经越来越少了，最近属于这个范畴的我就记得《外之国的少女》了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
