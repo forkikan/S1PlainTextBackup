@@ -471,3 +471,44 @@
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.44)
 
+
+*****
+
+####  シャル  
+##### 16448#       发表于 2025-3-2 19:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67556826&amp;ptid=2084912" target="_blank">eilot 发表于 2025-3-2 15:09</a>
+
+終於要去考慮如何打所長塔1了
+
+綁了外星人的星盤</blockquote>
+外星人不可能有主线，人理论外
+
+*****
+
+####  DARKGRAY  
+##### 16449#       发表于 2025-3-3 01:29
+
+打完第一个就累了，后面的还怎么打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之花  
+##### 16450#       发表于 2025-3-3 01:52
+
+打得过第二个，第三个还得改配队
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">没有学姐和公主的话难度应该不小吧
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  xiongxingyu  
+##### 16451#       发表于 2025-3-3 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67560653&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2025-3-3 01:29</a>
+
+打完第一个就累了，后面的还怎么打</blockquote>
+其实差别没有一般的本那么大，二星本每管血就比普通多了50-80不等，三星比起二星也就是第一管多了100来万，最后一管多了300万不到，数字看着大，不过配上这关的buff，实际上可以减个0，打得过普通的基本上应该都能过。攻击方面基本上没差别，因为从第二管血开始基本上就是秒人了，没有防御对策红字必死，蓝字吃个暴击也难活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

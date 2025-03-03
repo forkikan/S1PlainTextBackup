@@ -14902,3 +14902,62 @@ Soyo： 沒
 
 哎，对自己好一点吧。能把最后初祥关系性诠释好就行了。
 
+
+*****
+
+####  aptx8285144  
+##### 32376#       发表于 2025-3-3 09:50
+
+ 本帖最后由 aptx8285144 于 2025-3-3 09:51 编辑 
+
+如果撇开莫女士或多重人格不谈，CP观感很差的原因之一就是对于睦和初华而言，黑祥和白祥“没什么大的区别”，舔还是要舔的，这对不是铁血百合党而言都很难磕得下去<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 32377#       发表于 2025-3-3 09:51
+
+<blockquote>syndrome2032 发表于 2025-3-3 09:26
+狗第五话立希就是冲着劝退奶龙去的。</blockquote>
+那時點她勸退奶龍她有 50% 把握留得下燈嗎……
+
+*****
+
+####  595505568  
+##### 32378#       发表于 2025-3-3 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67561539&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-3-3 09:26</a>
+狗第五话立希就是冲着劝退奶龙去的。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  syndrome2032  
+##### 32379#       发表于 2025-3-3 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67561739&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-3 09:51</a>
+那時點她勸退奶龍她有 50% 把握留得下燈嗎……</blockquote>
+主观上她是只要有灯就行，没考虑过劝退奶龙引发的后续问题。
+
+*****
+
+####  盗号找不回  
+##### 32380#       发表于 2025-3-3 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67561247&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-3 08:45</a>
+
+愛音 對 素世 是一個脫魅的過程
+
+初期</blockquote>
+立希：哈？。jpg
+
+*****
+
+####  syndrome2032  
+##### 32381#       发表于 2025-3-3 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67561754&amp;ptid=2208921" target="_blank">595505568 发表于 2025-3-3 09:52</a>
+说实话我看到第五话的时候也想劝退了，毕竟老姐你基本功都没有怎么Live啊 ...</blockquote>
+一早我也是这么想的。但是后来我看了一个一闪一闪小星星合集。
+
