@@ -15065,3 +15065,22 @@ X：jennyiq2008
 <img src="https://p.sda1.dev/22/97875a20d9c599930219dd3284a08175/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/22/304d7ab904d448cb882be869852e096d/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  与太郎  
+##### 32392#       发表于 2025-3-3 11:24
+
+话说Georgette Me, Georgette You里面有一句「痛みは光ね」，高尾说歌曲和剧情关系密切，还说过「Ave Mujicaは光だな」，所以Ave Mujica=痛み，最后会结局是5神人背负痛苦前行吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  z-hunter  
+##### 32393#       发表于 2025-3-3 11:27
+
+立希在GO第5话确实是想劝退爱音，不如说她知道爱音想和灯组乐队就一直在反对
+
+不过当爱灯水族馆一眼万年拖手仔之后，立希知道劝退了爱音，灯就会跑，本来她就是在利用素世的计划而想和灯组乐队
+
+不过立希就是个直性子的好孩子，她之后都没有要拆团的心思。第7话live爱音失败的时候，立希也在鼓励爱音。
+
