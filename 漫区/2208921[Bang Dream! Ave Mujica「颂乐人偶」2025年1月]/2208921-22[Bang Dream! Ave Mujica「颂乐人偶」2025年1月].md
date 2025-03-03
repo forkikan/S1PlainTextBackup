@@ -15849,3 +15849,61 @@ soyo也帮助爱音了，soyo虽然有私心，但她的打算也只是让爱音
 你告诉我炸团的原因是有人不会弹吉他导致演出无法继续进行 ...</blockquote>
 是的，第四话除了演出很僵硬外，烂的原因也有这个，按照某个UP主评论就是基地下面的一堆火药点燃了，然而却是飞来了一枚巡航导弹把基地炸了
 
+
+*****
+
+####  6030sylar  
+##### 32454#       发表于 2025-3-3 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67564081&amp;ptid=2208921" target="_blank">Renes 发表于 2025-3-3 14:53</a>
+
+当我们说为了剧情推进所以给睦强行加双重人格设定的时候，不如想想，为什么剧情无法推进，比如难道祥子不能 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">牢墨其实就是柿本想加一个小孩角色吧
+
+*****
+
+####  aptx8285144  
+##### 32455#       发表于 2025-3-3 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67564081&amp;ptid=2208921" target="_blank">Renes 发表于 2025-3-3 14:53</a>
+
+当我们说为了剧情推进所以给睦强行加双重人格设定的时候，不如想想，为什么剧情无法推进，比如难道祥子不能 ...</blockquote>
+一想到这样“躺平”到极点的的大祥还有两个舔狗，甚至还有GO团众人过来主动被垫，我就只会想哈哈大笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 32456#       发表于 2025-3-3 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67564490&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-3-3 15:35</a>
+
+牢墨其实就是柿本想加一个小孩角色吧</blockquote>
+而多重人格到一些让人毛骨悚然的发言就不知道为啥了，直接导致木头人党的破防，以前都是假的，都是演的吗，说开心也是假的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lyzers  
+##### 32457#       发表于 2025-3-3 15:42
+
+怎么突然又一转财团暗政保大喵老师<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+感觉别人说卖狗是二次元小时代是嘲找阴阳怪气，但真有人冲着小时代富姐花大钱扯头发来看的
+
+*****
+
+####  MuramasaSP  
+##### 32458#       发表于 2025-3-3 15:43
+
+我觉得祥睦关系只要一句话就能救。
+
+那就是睦表明自己是祥的“姐姐”（不管有无血缘）。睦的一切舔狗行为就可以变为迁就妹妹，“顺从”转化为“包容”。
+
+不过睦头在我这里最难绷的是对初华说“初华你闭嘴”，明明在mygo时期对利用自己的素世都那么温柔。八九两话连着播，真的是没法把睦看成和之前的同一个人了。甚至第八话的“祥会为我组crychic”和第九话的“组crychic能让祥幸福”都不是同一个人能说出来的，这两句话但凡能去掉一句都好。
+
+*****
+
+####  滑稽Captain  
+##### 32459#       发表于 2025-3-3 15:43
+
+祥子前期不能行动很有可能确实是剧本的底层逻辑，因为他们所计划达到的目标即祥子的成长，就是要把现在这个只相信自己、做事大包大揽、自顾自背负一切的自负祥子，通过不断的打击去摧毁她，打断祥子的脊梁，打碎祥子的膝盖，让祥子认识到自己性格的缺陷从而开始能够相信他人、主动理解他人、学会向他人低头。在这种框架之下，必定要在一大段时间里被不断摧毁的祥子确实也担当不起推动剧情发展的角色。
+
