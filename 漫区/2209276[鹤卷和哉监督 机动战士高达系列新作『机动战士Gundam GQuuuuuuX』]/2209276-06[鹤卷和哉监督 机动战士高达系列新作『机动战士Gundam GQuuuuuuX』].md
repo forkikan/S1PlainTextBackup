@@ -6865,3 +6865,13 @@ f5e481cb39dbb6fd66146e004f24ab18972b3703.jpg
 修司的声优受器重是因为他姐是土屋太凤，本人是一个19岁才进向日葵的神人 ...</blockquote>
 所以钉宫说他声音像清凉饮料不是在夸而是在说缺乏演技像白开水是吗。。。
 
+
+*****
+
+####  Oshino  
+##### 7958#       发表于 2025-3-3 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67565748&amp;ptid=2209276" target="_blank">kuriri 发表于 2025-3-3 18:17</a>
+所以钉宫说他声音像清凉饮料不是在夸而是在说缺乏演技像白开水是吗。。。 ...</blockquote>
+但是他的演技在这个剧场版还是够用的，主要是现阶段修司没什么感情波动。按照传统套路，后面tv应该会安排他吼起来吧，我印象中他还没出演过这样的大役，不知道会怎么样。向日葵以前推去高达片场的人宫野真守、内山昂辉、木村良平之类的，声质都好得离谱。他跟前辈比起来有点普通，虽然他现在也跟向日葵没什么关系了<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+

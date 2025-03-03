@@ -16337,3 +16337,45 @@ image.png
 能清算喵梦的只有团内的其他成员，赔偿金之类的，不说和摘面具有没有法律上的因果关系，要追究也是祥子这个 ...</blockquote>
 对的对的，睦祥的毒点还得记一道这个，太多了记不过来了<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  聋与唬  
+##### 32497#       发表于 2025-3-3 18:26
+
+所以丰川家的大手都把初华和母鸡卡摁死了，接下来要怎么演？真就祥子和小姨一起斗财阀吗？
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  zhzij111  
+##### 32498#       发表于 2025-3-3 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67565790&amp;ptid=2208921" target="_blank">聋与唬 发表于 2025-3-3 18:26</a>
+所以丰川家的大手都把初华和母鸡卡摁死了，接下来要怎么演？真就祥子和小姨一起斗财阀吗？
+
+—— 来自 vivo ...</blockquote>
+这破乐队被大手摁似纯属活该啊，要不还是飞祥吧，飞完了要是没死可以跟爷爷说我要组乐队完成复辟
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  zhoujin8584  
+##### 32499#       发表于 2025-3-3 18:32
+
+如果制作组真狠到底的话，甜甜圈拿着手机曝光初华不会就是“主唱太拼命了”吧<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  zhoujin8584  
+##### 32500#       发表于 2025-3-3 18:34
+
+<blockquote>聋与唬 发表于 2025-3-3 18:26
+所以丰川家的大手都把初华和母鸡卡摁死了，接下来要怎么演？真就祥子和小姨一起斗财阀吗？
+
+—— 来自 vivo ...</blockquote>
+祥子的话语权还是很高的，最后AM还得有丰川家的赞助，倒不如说初华这个私生子没资格跟老登讨价还价
+
