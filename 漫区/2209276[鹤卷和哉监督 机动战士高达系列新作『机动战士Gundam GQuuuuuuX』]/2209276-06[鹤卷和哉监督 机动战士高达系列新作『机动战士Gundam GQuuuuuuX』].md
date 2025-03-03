@@ -7144,3 +7144,13 @@ GQ版大魔(里克大魔），背部有巨型的推进器
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  王留美  
+##### 7982#       发表于 2025-3-3 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67566569&amp;ptid=2209276" target="_blank">gamedreamer 发表于 2025-3-3 20:32</a>
+ 话说回来，有没有在霓虹看过的人说一下追加画面那个联邦的魔女的精神状态是什么样的  —— 来自 鹅球 v3.3. ...</blockquote>
+卡多（
+

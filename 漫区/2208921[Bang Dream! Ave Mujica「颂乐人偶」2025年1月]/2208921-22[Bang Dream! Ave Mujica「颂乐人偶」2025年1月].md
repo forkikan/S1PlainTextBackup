@@ -16827,3 +16827,157 @@ image.png
 
 根据设定大喵老师是大祥老师的soulmate，大祥老师没资格对决老登，大喵老师说不定就“不管不顾”了，至于说大喵老师也吃了丰川大手炒作的热度，一来她现在流量没了成底边了；二来炒面王子也收了10e还敢反对四宫家，我觉得大喵为了大祥打**炮干丰川家还真有可能……
 
+
+*****
+
+####  小博禹  
+##### 32537#       发表于 2025-3-3 20:39
+
+大猫怎么就🐘soulmate了？喵祥铁暗恋不是百综发癫玩的吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  阿兹尔  
+##### 32538#       发表于 2025-3-3 20:39
+
+祥爷眼前一黑:都啥啊，这下下一代也没救了，赶紧领养一个
+
+*****
+
+####  zhzij111  
+##### 32539#       发表于 2025-3-3 20:39
+
+少女乐队第一大窝囊基本预定是大祥老师了，跟老登闹了1年多最后还要求老登给钱重组乐队，想想都窝囊，确实适配这个变态自尊心人设<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  蒹葭公子  
+##### 32540#       发表于 2025-3-3 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67566592&amp;ptid=2208921" target="_blank">小博禹 发表于 2025-3-3 20:39</a>
+
+大猫怎么就🐘soulmate了？喵祥铁暗恋不是百综发癫玩的吗
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+啥？前面不是说柿本访谈说这是底层设定吗？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+是我看错了还是记混了……
+
+*****
+
+####  Lyzers  
+##### 32541#       发表于 2025-3-3 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67566586&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-3 20:37</a>
+什么时候管你了，你被素世绑架去睦家都没管，你想组乐队就去呗，疑，为什么要我出钱？ ...</blockquote>
+我也不到啊，可能是大祥意识到前面捧杀母鸡卡的大手了吧大概<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 32542#       发表于 2025-3-3 20:41
+
+猫眼金精
+<img src="https://p.sda1.dev/22/bf101cf70d8df081b8f570db8dad692e/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/9caba8e554e3880c985a1fa4eff9695e/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/52ac76ac1930cf987aa8eeb0039ce6e9/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 32543#       发表于 2025-3-3 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67566589&amp;ptid=2208921" target="_blank">蒹葭公子 发表于 2025-3-3 20:37</a>
+
+你别说，你还真别说……
+
+根据设定大喵老师是大祥老师的soulmate，大祥老师没资格对决老登，但根据日本人奇 ...</blockquote>
+根本没法细想，大瞄上周还和世界著名品牌联名，睦家都做不到的事情，这周就要被路人演员嘲讽演技不行，仿佛很落魄，大瞄都还躲着海林不肯组什么母鸡卡，她回来的动力其实弱
+
+*****
+
+####  蒹葭公子  
+##### 32544#       发表于 2025-3-3 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67566608&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-3 20:42</a>
+
+根本没法细想，大瞄上周还和世界著名品牌联名，睦家都做不到的事情，这周就要被路人演员嘲讽演技不行，仿 ...</blockquote>
+没事，只要写她铁暗恋大祥，之前对大祥哈气是爱而不得就行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小博禹  
+##### 32545#       发表于 2025-3-3 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67566593&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-3-3 20:39</a>
+祥爷眼前一黑:都啥啊，这下下一代也没救了，赶紧领养一个</blockquote>
+不敢想象木箱的孩子会有多抽象<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+木箱的孩子：n重人格，每个人格都有黑白灰人偶多重形态，想做的事都会失败、一说话就会坏事<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 32546#       发表于 2025-3-3 20:44
+
+这群神人，除了海林缺钱外（可是没人逼她退那么多乐队），其他人组母鸡卡的动力完全就像编辑的大手逼的，根本没法细想<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cccpprc  
+##### 32547#       发表于 2025-3-3 20:44
+
+ 本帖最后由 cccpprc 于 2025-3-3 20:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67566594&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-3-3 20:39</a>
+
+少女乐队第一大窝囊基本预定是大祥老师了，跟老登闹了1年多最后还要求老登给钱重组乐队，想想都窝囊，确实 ...</blockquote>
+大祥这都已经要和某二字二次元手游头号恶人并列了
+
+窝囊在哪了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  haohaoh4  
+##### 32548#       发表于 2025-3-3 20:45
+
+ 本帖最后由 haohaoh4 于 2025-3-3 20:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67566595&amp;ptid=2208921" target="_blank">蒹葭公子 发表于 2025-3-3 20:39</a>
+
+啥？前面不是说柿本访谈说这是底层设定吗？
+
+是我看错了还是记混了……</blockquote>
+我记得柿本访谈大猫底层设定的作用好像是反驳祥子来着<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蒹葭公子  
+##### 32549#       发表于 2025-3-3 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67566617&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-3 20:44</a>
+
+这群神人，除了海林缺钱外（可是没人逼她退那么多乐队），其他人组母鸡卡的动力完全就像编辑的大手逼的，根 ...</blockquote>
+编剧的大手——大祥老师的蓝冰太纯了
+
+只要跟她组过乐队就算吸了，海铃搞钱本质以贩养吸
+
+*****
+
+####  YF31  
+##### 32550#       发表于 2025-3-3 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67566520&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-3 20:24</a>
+
+初祥的关系性更可能是镜像双子。
+
+祥子垂手可得的一切，都是初华做梦都不敢妄想的。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">你是说这个老登连自称是自己女儿的人当众被摁倒拖走都不管不问，还要用大手摁她不许组乐队，宁可丢了几个亿赔偿金去抽她也不让事务所管管，突然一集过去又大脑升级成了孙女奴了烧钱给孙女玩乐队？
+
+真的挺闹麻的说实话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
