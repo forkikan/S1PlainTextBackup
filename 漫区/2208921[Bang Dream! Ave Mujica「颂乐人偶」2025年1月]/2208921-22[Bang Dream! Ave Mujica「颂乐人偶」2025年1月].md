@@ -14683,3 +14683,13 @@ mujica剧本有两个很严重的问题，和mygo镜像对偶和双重人格，�
 
 鸡这一地烂泥里为数不多回收的爽姐对灯歌词的想法变化过程伏笔被说成笑的像母狗是有多恨<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ziqing  
+##### 32359#       发表于 2025-3-3 07:59
+
+可以再回顾一遍素世的暖色系飞鸟山之战
+
+—— 来自 Xiaomi 24129PN74C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
