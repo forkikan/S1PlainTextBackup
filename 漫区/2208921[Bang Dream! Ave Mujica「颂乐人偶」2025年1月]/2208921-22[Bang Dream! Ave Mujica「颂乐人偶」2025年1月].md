@@ -14774,3 +14774,45 @@ Soyo： 沒
 
 下一年她應該要負責團隊康樂 （泳裝回）
 
+
+*****
+
+####  aptx8285144  
+##### 32365#       发表于 2025-3-3 08:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67561163&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-3 08:21</a>
+
+難道不是嗎？</blockquote>
+救命，让我看到大喵和大祥的CP感，不如去磕大喵和猫猫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，起码猫猫如果觉得大喵这个坏女人真有趣的话
+
+
+*****
+
+####  南宮凝香  
+##### 32366#       发表于 2025-3-3 08:45
+
+愛音 對 素世 是一個脫魅的過程
+
+初期
+
+燈： 要照顧的小動物
+
+立希 ： 很吵的猴子
+
+🐱 ： 技術很好的🐱
+
+素世： 月之森的學姐， 從家世到音樂都高一階級， 人又溫柔
+
+這時期是帶著憧憬的
+
+到9 話發現Soyo 原來跟自己一樣都是有缺點的人
+
+那才是把大家擺在同一層面的開始
+
+*****
+
+####  aptx8285144  
+##### 32367#       发表于 2025-3-3 08:45
+
+大喵要是暗恋大祥，可以理性讨论，柿本独角兽这些人是不是叫鸡团，是因为鸡不择食<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

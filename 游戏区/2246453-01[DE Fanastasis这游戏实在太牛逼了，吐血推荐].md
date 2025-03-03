@@ -3096,3 +3096,17 @@ F5确实可以，但是又觉得分辨率有点低...
 
 我丢我怎么就在开魂之宴前把攒的灵魂块全用了……拍断大腿
 
+
+*****
+
+####  jy000129  
+##### 273#       发表于 2025-3-3 08:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67555272&amp;ptid=2246453" target="_blank">ATRO 发表于 2025-3-2 10:56</a>
+卧槽发现新大陆，安卓跑起来好顺畅
+
+—— 来自 鹅球 v3.3.96</blockquote>
+你这猎人在哪抓的，我等级比你高不少，还没找到这人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
