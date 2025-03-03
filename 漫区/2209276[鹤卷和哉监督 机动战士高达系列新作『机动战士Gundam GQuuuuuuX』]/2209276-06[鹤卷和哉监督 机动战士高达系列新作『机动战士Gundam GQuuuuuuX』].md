@@ -6875,3 +6875,38 @@ f5e481cb39dbb6fd66146e004f24ab18972b3703.jpg
 所以钉宫说他声音像清凉饮料不是在夸而是在说缺乏演技像白开水是吗。。。 ...</blockquote>
 但是他的演技在这个剧场版还是够用的，主要是现阶段修司没什么感情波动。按照传统套路，后面tv应该会安排他吼起来吧，我印象中他还没出演过这样的大役，不知道会怎么样。向日葵以前推去高达片场的人宫野真守、内山昂辉、木村良平之类的，声质都好得离谱。他跟前辈比起来有点普通，虽然他现在也跟向日葵没什么关系了<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  太极八爪鱼  
+##### 7959#       发表于 2025-3-3 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67563546&amp;ptid=2209276" target="_blank">王留美 发表于 2025-3-2 21:38</a>
+
+吉翁制简易量产敢达的又一张图，能看清楚更多的细节了 ​​​</blockquote>
+这是新画面么？北美我不记得有这个镜头……
+
+
+*****
+
+####  岸浪白野  
+##### 7960#       发表于 2025-3-3 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67565847&amp;ptid=2209276" target="_blank">太极八爪鱼 发表于 2025-3-3 18:40</a>
+
+这是新画面么？北美我不记得有这个镜头……</blockquote>
+当然不是啊，这就是0079部分的，这画面就1秒时间，现在有枪版录了那部分可以再看一遍
+
+
+*****
+
+####  太极八爪鱼  
+##### 7961#       发表于 2025-3-3 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67565718&amp;ptid=2209276" target="_blank">赤黑的假面 发表于 2025-3-3 02:11</a>
+
+看了下枪版的基西莉亚CUT，咋感觉她真把夏亚当成吉翁公国的大忠臣了</blockquote>
+认出来了吧，都直接叫卡斯巴尔了。而且在她看来夏亚不顾自己的安慰把卫星推了，那可不就是**的忠臣么<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+领导只看结果！
+
