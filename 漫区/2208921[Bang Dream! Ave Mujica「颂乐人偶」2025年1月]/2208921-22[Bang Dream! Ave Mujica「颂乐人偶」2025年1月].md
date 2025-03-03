@@ -15509,3 +15509,52 @@ Soyo是有二心的內閣
 
 之前大概就是，单纯没决定要叫什么
 
+
+*****
+
+####  梅杜莎  
+##### 32428#       发表于 2025-3-3 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67563475&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-3 13:29</a>
+
+也没这么夸张，第5话她想劝退奶龙，第8话她又想劝退素世么，立希就是这种滑坡人，会把小矛盾变大矛盾，大 ...</blockquote>
+第八话她是想等Soyo自己想通，或者自己来提退出
+
+结果到了第九话发现对灯造成了直接伤害，才硬着头皮找过去
+
+*****
+
+####  老贝  
+##### 32429#       发表于 2025-3-3 13:39
+
+这个说的不是鸡狗动画最后没写成bangdream第四第五季的事吗，能往mygo season2想也是挺厉害的。
+
+*****
+
+####  K·os  
+##### 32430#       发表于 2025-3-3 13:43
+
+唱小星星的人是ksm，所以她是ksm，别人不行的呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  钦念以忱  
+##### 32431#       发表于 2025-3-3 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67562572&amp;ptid=2208921" target="_blank">z-hunter 发表于 2025-3-3 11:27</a>
+
+立希在GO第5话确实是想劝退爱音，不如说她知道爱音想和灯组乐队就一直在反对
+
+不过当爱灯水族馆一眼万年拖手 ...</blockquote>
+soyo也帮助爱音了，soyo虽然有私心，但她的打算也只是让爱音自然而然地退队离开，甚至不离开其实也没事，谁说不能组7人乐队呢（
+
+
+*****
+
+####  akiomn  
+##### 32432#       发表于 2025-3-3 13:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">bangdream Avemujica？bangdream mortis！
+不如说究竟有多废物才能把剧情写成这样，整整3-10集都在写双重人格，主唱只有11和12两集还被ban掉了678三集，核心主角祥子全程被抽陀螺。整部片里没多少音乐性，女女关系性也没有，5个角色全部塑造崩盘，剧情逻辑一塌糊涂。甚至作为3d动画还被挑出了不少作画错误
+这已经不是一般的灾难了，没点水平很难做到这地步，观感不管是路人还是粉丝都是像在赤石
+
