@@ -15345,3 +15345,21 @@ Soyo是有二心的內閣
 
 初华心理分析（脑补）文
 
+
+*****
+
+####  DeltaStriker  
+##### 32413#       发表于 2025-3-3 12:12
+
+？离谱<img src="https://p.sda1.dev/22/3a4aef115f63f194a9567c7932bf0792/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  syndrome2032  
+##### 32414#       发表于 2025-3-3 12:15
+
+9话天文馆外那场戏就是演出初华的暗面。
+只不过真的不能出事所以用脑内预演替代。
+
