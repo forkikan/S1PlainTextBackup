@@ -825,3 +825,14 @@ sumimi至今为止就一首歌，早在狗团TV期间就可以确定只是个工
 突然意识到海林不是为了立希而是为了“互相信任”，这人设变化得太剧烈了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">想想前面大伙说的鸡团内部那严重得跟个严肃职场政治剧一样，没团魂犹如杀人放火，结果不还是被两三句话就嘴破防了，突然之间就哭唧唧的母鸡卡是我的归宿啊啊啊啊，闹麻了
 
+
+*****
+
+####  6030sylar  
+##### 32623#       发表于 2025-3-3 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67567189&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-3-3 22:32</a>
+
+粟米米一出场就here the world，也确实是不准备继续搞了，我觉得真不如让真奈独立出来再找个d5j声优拉个新 ...</blockquote>
+其实现在最适合DJ回流邦的时候了
+
