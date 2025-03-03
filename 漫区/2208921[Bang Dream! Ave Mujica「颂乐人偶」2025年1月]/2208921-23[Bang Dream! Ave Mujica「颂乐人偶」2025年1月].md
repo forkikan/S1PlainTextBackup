@@ -564,3 +564,58 @@ soyo起初对于睦的加入Ave Mujica一事感到愤怒，但她很快察觉到
 
 担任MyGO!!!!!的吉他手。乐奈具有独特的感性，她一眼就看穿睦的意识中存在“两个不同的人”。而她的吉他旋律，在无意间唤醒了沉睡中的睦，即使莫提斯不断呼唤，睦依旧沉浸在沉睡之中，直到这次觉醒。
 
+
+*****
+
+####  结衣小比取  
+##### 32601#       发表于 2025-3-3 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67566852&amp;ptid=2208921" target="_blank">小博禹 发表于 2025-3-3 21:20</a>
+
+—— 来自 鹅球 v3.3.96</blockquote>
+发张旧图<img src="https://static.saraba1st.com/image/smiley/face2017/259.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202503/03/214754ttlnfbdffrabjzfp.jpg" referrerpolicy="no-referrer">
+
+<strong>怎么，在想我的事情？.jpg</strong> (138.18 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-3 21:47 上传
+
+“怎么，在想我的事情？”
+
+*****
+
+####  zhoujin8584  
+##### 32602#       发表于 2025-3-3 21:49
+
+<blockquote>aptx8285144 发表于 2025-3-3 21:46
+大祥连被绑架到睦家都没人管，初华“这联系不上”是啥鬼设定，初华自己一个偶像明星（反正sumimi的活动对 ...</blockquote>
+答案是私生子的劣等感，或许还有偷来的青梅身份，让她不敢主动联系，只能被动接受宠幸
+
+*****
+
+####  结衣小比取  
+##### 32603#       发表于 2025-3-3 21:49
+
+今天看第九话时，发现19:59-20:09海玲说话期间，祥子的右腿好像在……抖动？
+
+论坛附件大小限制，分了两个GIF，如果看不到图可以去原片的时段看看
+
+<img src="https://img.saraba1st.com/forum/202503/03/213006qh6vh4q5hb3pad6b.gif" referrerpolicy="no-referrer">
+
+<strong>ep 9 01.gif</strong> (3.65 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-3 21:30 上传
+
+<img src="https://img.saraba1st.com/forum/202503/03/213003n95skj6kaa0266zt.gif" referrerpolicy="no-referrer">
+
+<strong>ep 9 02.gif</strong> (2.33 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-3 21:30 上传
+
