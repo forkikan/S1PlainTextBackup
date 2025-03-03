@@ -15137,3 +15137,79 @@ X：jennyiq2008
 
 在赛百味外面那段是爱音不想开，立希讽刺爱音只会逃跑，于是爱音逃跑了<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  adretyu67.  
+##### 32399#       发表于 2025-3-3 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67562547&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-3-3 11:24</a>
+
+话说Georgette Me, Georgette You里面有一句「痛みは光ね」，高尾说歌曲和剧情关系密切，还说过「Ave Mujic ...</blockquote>
+5个看上去正常的人在舞台上发泄阴暗的自己吧。
+
+想来想去鸡团要包饺子也只能这么包。
+
+*****
+
+####  玖羽  
+##### 32400#       发表于 2025-3-3 11:40
+
+ 本帖最后由 玖羽 于 2025-3-3 11:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67562622&amp;ptid=2208921" target="_blank">老贝 发表于 2025-3-3 11:33</a>
+
+劝退爱音这事是立希素世都想干的，只不过俩人没想到这事之后灯和爱音就开始连体了。 ...</blockquote>
+你搞错了，立希和Soyo是正好相反的
+
+立希一开始对爱音的态度很差不想跟她组队，但是正式组队之后立希真把爱音当队友，第五话只不过是觉得现在的水平不够不想现在开
+
+Soyo则是对爱音很好，但是一开始就想把爱音踢出去，所以第五话在天台撺掇立希开，她觉得Live肯定搞砸，可以顺理成章地让爱音退队
+
+立希知道自己被Soyo撺掇了，不知道Soyo想踢爱音，由于对立希来说跟灯一起开Live是第一位的，所以她装作不知道
+
+
+*****
+
+####  z-hunter  
+##### 32401#       发表于 2025-3-3 11:40
+
+至于素世和爱音，建议回顾狗10话在素世家的文戏，爱音就是硬把她们俩放在一个地位上重新开始，素世本性就温柔，为了灯最后也接受了。
+
+所以她俩是属于互相知道各自的缺点，有时会斗嘴有时会温柔相待的损友关系。你说她俩关系有多好，也没有，要看未来的发展。要二创入脑到什么”暗恋“，也大可不必<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+素世在GO团不要太写意，啥事都不用管躺平就行，甚至被立希说你要帮忙管一下这3个问题儿童啦。
+
+她本来就只是需要一个”家“，想复活C团也是只想要”家“，想被”需要“，有灯的那句”不会放开你的手“，她就满足得不得了。
+
+所以滑坡她不喜欢GO只想回C团嘲笑一下就行（毕竟mujica动画的演出确实会令观众这样觉得<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，别真滑坡到清算她
+
+不如还是想象一下当动画完结之后，mujica团里的关系性是如何的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">武士道现在这样写黑暗乐队，这队内关系性还真不能邦邦思维限定
+
+*****
+
+####  ape-apple  
+##### 32402#       发表于 2025-3-3 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67561227&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-3 08:40</a>
+救命，让我看到大喵和大祥的CP感，不如去磕大喵和猫猫，起码猫猫如果觉得大喵这个坏女人真有趣的话 ...</blockquote>
+都直球soulmate了，在女女关系性实则贫瘠的鸡狗动画里完全是CP嘛
+
+
+*****
+
+####  adretyu67.  
+##### 32403#       发表于 2025-3-3 11:42
+
+关键还是立希嘴爱音那句“拿灯当挡箭牌”，但是实际上碧天立希自己改曲也是一天一改突出一个究极折磨。
+
+*****
+
+####  天空塔书记官  
+##### 32404#       发表于 2025-3-3 11:46
+
+要是爱音会吉他就没这么多事了，不说到猫猫的水平，至少不用照顾她这个新手
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
