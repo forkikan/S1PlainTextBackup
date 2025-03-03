@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 147403,
+    "totalreply": 147404,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1741029366,
+    "lastedit": 1741030326,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -15084,10 +15084,10 @@
     "update": false
   },
   "2247355": {
-    "totalreply": 129,
+    "totalreply": 130,
     "title": "[小明剑魔是MVP]",
     "newtitle": "[小明剑魔是MVP]",
-    "lastedit": 1741024208,
+    "lastedit": 1741030447,
     "category": "外野",
     "active": true,
     "update": false
@@ -17402,6 +17402,15 @@
     "newtitle": "[RPG游戏光与影：33号远征队发布，2025／4／24发售，xs／ps5／pc，首发xgp]",
     "lastedit": 1741021932,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2141657": {
+    "totalreply": 208,
+    "title": "[中国钍基熔盐堆正式运行，将改变能源格局]",
+    "newtitle": "[中国钍基熔盐堆正式运行，将改变能源格局]",
+    "lastedit": 1741030455,
+    "category": "外野",
     "active": true,
     "update": false
   }
