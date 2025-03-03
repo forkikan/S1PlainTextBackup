@@ -6691,3 +6691,51 @@ f5e481cb39dbb6fd66146e004f24ab18972b3703.jpg
 
 2025-3-3 17:00 上传
 
+
+*****
+
+####  Gysumitka  
+##### 7941#       发表于 2025-3-3 17:09
+
+8+2号机<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  刺客ares  
+##### 7942#       发表于 2025-3-3 17:11
+
+牢修的死旗从正片和场刊访谈出来就没那么重了
+
+说富野的NT变消极了，我们要积极描写NT，结果作品最主要的俩NT里上来先死一个？那真幽默了
+
+最差也就是个生离结局，还得最后一集演，道中搞生离那最后铁包饺子HE
+
+*****
+
+####  岸浪白野  
+##### 7943#       发表于 2025-3-3 17:12
+
+<img src="https://img.saraba1st.com/forum/202503/03/171234osw5sqirpubp5m3k.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.13 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-3 17:12 上传
+
+*****
+
+####  岸浪白野  
+##### 7944#       发表于 2025-3-3 17:13
+
+新闻稿大图
+
+<img src="https://img.saraba1st.com/forum/202503/03/171357brqc55gi5f0q4ykc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.94 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-3 17:13 上传
+
