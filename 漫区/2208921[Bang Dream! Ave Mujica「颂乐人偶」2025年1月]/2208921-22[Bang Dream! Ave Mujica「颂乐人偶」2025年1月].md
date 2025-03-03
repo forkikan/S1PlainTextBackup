@@ -15026,3 +15026,42 @@ Soyo： 沒
 
 就算是顶级演出和live，能塞得下这么多内容么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  syndrome2032  
+##### 32388#       发表于 2025-3-3 10:55
+
+斗财阀看上去很大，实际上可能在剧中也就是几句聊天就交代了。
+
+至于顶级演出和live我就不敢太指望了。不如多研究下鸡团小剧场对应啥。
+
+*****
+
+####  GBLMikuHatsune  
+##### 32389#       发表于 2025-3-3 10:59
+
+这么一说，mygo放送前还有些当年被称作“ooc世界线”的小动画，著名的soyo催眠app就是从那来的。
+
+鸡是不是压根就没做这玩意？就做了几个神秘的世界观小视频来的
+
+
+*****
+
+####  一心而用  
+##### 32390#       发表于 2025-3-3 11:01
+
+X：jennyiq2008
+<img src="https://p.sda1.dev/22/a6196b6fe4c225c508ce8e085003fb01/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 32391#       发表于 2025-3-3 11:03
+
+<img src="https://p.sda1.dev/22/1b8e5bfff4062cde6a24f57f6204e33d/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/6e78d00251330fc057758a51d0a2c8c7/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/9e5433b3d4ed12c251a498b7934ef181/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/97875a20d9c599930219dd3284a08175/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/304d7ab904d448cb882be869852e096d/image.jpg" referrerpolicy="no-referrer">
+
