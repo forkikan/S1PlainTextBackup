@@ -6622,3 +6622,28 @@ f5e481cb39dbb6fd66146e004f24ab18972b3703.jpg
 
 背包和腿部加装四门大推进器》》为了能追上某个目标，因此要确保最高的飞行速度
 
+
+*****
+
+####  kuriri  
+##### 7935#       发表于 2025-3-3 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67564732&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-3-3 15:58</a>
+
+匿名版假药，GQX这台机不是为了战斗，而是为了追逐某个目标才设计出来的
+
+搭载欧米茄塞可缪》》为了能引发泽 ...</blockquote>
+有点合理的，然后绿叔叔想找夏亚、麻球想去地球寻找刺激和自由、修司想跟着红高去另一边，喵安想找到安身之处（也可能被组织安排），大家的目标明确了，一起下地球。
+
+*****
+
+####  Steel.Haze  
+##### 7936#       发表于 2025-3-3 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67564732&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-3-3 15:58</a>
+
+匿名版假药，GQX这台机不是为了战斗，而是为了追逐某个目标才设计出来的
+
+搭载欧米茄塞可缪》》为了能引发泽 ...</blockquote>
+确有可能，而且其NT操作系统过于诡异。好像那种人类获取了外星人的飞船，在原来使用逻辑奇特操作系统旁边按照了人类习惯的操作杆，然后这样的双系统并存的感觉。
+
