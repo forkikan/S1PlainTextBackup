@@ -6316,3 +6316,21 @@ f5e481cb39dbb6fd66146e004f24ab18972b3703.jpg
 
 2025-3-3 05:15 上传
 
+
+*****
+
+####  shokuji  
+##### 7909#       发表于 2025-3-3 11:28
+
+香港也有胶片了，不知道内地如果能顺利上映的话有没有这些特典
+
+<img src="https://img.saraba1st.com/forum/202503/03/112808lwgfhil3hagwiht3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250303_112701_rednote.jpg</strong> (461.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-3 11:28 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

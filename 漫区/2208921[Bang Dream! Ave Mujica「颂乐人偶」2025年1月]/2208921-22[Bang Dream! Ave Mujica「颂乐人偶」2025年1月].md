@@ -15084,3 +15084,56 @@ X：jennyiq2008
 
 不过立希就是个直性子的好孩子，她之后都没有要拆团的心思。第7话live爱音失败的时候，立希也在鼓励爱音。
 
+
+*****
+
+####  你妈的为什么  
+##### 32394#       发表于 2025-3-3 11:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">为什么大家都默认包饺子
+
+为什么不能是最后坏掉的大象老师如人偶一般上台演出呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。台上4个精神病，一个认命猫
+
+然后下一季确定<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  老贝  
+##### 32395#       发表于 2025-3-3 11:33
+
+劝退爱音这事是立希素世都想干的，只不过俩人没想到这事之后灯和爱音就开始连体了。
+
+*****
+
+####  玖羽  
+##### 32396#       发表于 2025-3-3 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67562207&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-3 10:45</a>
+
+明顯是立希硬上的問題</blockquote>
+是立希硬上的问题吗，灯发话要上，立希只有支持，还有Soyo在一边撺掇
+
+*****
+
+####  595505568  
+##### 32397#       发表于 2025-3-3 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67562622&amp;ptid=2208921" target="_blank">老贝 发表于 2025-3-3 11:33</a>
+劝退爱音这事是立希素世都想干的，只不过俩人没想到这事之后灯和爱音就开始连体了。 ...</blockquote>
+所有一个投降了一个战略失败退出了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，完全不搞正面对抗的
+
+*****
+
+####  玖羽  
+##### 32398#       发表于 2025-3-3 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67562572&amp;ptid=2208921" target="_blank">z-hunter 发表于 2025-3-3 11:27</a>
+
+立希在GO第5话确实是想劝退爱音，不如说她知道爱音想和灯组乐队就一直在反对
+
+不过当爱灯水族馆一眼万年拖手 ...</blockquote>
+这集的逻辑是这样的，立希知道现在的水平没法开，但是Soyo想搞砸Live，在天台撺掇立希继续开
+
+在赛百味外面那段是爱音不想开，立希讽刺爱音只会逃跑，于是爱音逃跑了<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer"> 
+
