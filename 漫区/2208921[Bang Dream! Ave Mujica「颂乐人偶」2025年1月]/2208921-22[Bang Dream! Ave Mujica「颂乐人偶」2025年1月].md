@@ -14894,3 +14894,11 @@ Soyo： 沒
 
 我一想到木箱担心了这么久会垫给初祥，结果是垫给喵祥，逐渐共情到小猫的心态了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  syndrome2032  
+##### 32375#       发表于 2025-3-3 09:38
+
+哎，对自己好一点吧。能把最后初祥关系性诠释好就行了。
+
