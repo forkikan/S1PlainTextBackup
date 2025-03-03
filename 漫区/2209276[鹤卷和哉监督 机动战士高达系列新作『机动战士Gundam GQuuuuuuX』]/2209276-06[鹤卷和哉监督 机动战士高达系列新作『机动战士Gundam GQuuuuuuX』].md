@@ -7092,3 +7092,15 @@ GQ版大魔(里克大魔），背部有巨型的推进器
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  gamedreamer  
+##### 7977#       发表于 2025-3-3 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67565939&amp;ptid=2209276" target="_blank">zzf111 发表于 2025-3-3 18:55</a>
+2ch讨论帖里的复现图</blockquote>
+我已经迫不及待的看这张脸摆出特林顿综合症了<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

@@ -16487,3 +16487,62 @@ image.png
 
 祥子其实是丰川老爷给自己的亲女儿初华准备的童养媳<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adretyu67.  
+##### 32511#       发表于 2025-3-3 20:03
+
+我至今为止没想明白。
+
+哪怕私生子说成立
+
+初华一个私生子凭什么威胁老登或者TGW，甚至大祥的继承人地位。
+
+就靠文春新闻老登不伦吗
+
+*****
+
+####  非建政专用号  
+##### 32512#       发表于 2025-3-3 20:04
+
+真是童养媳的话有点不守妇道了
+
+*****
+
+####  南宮凝香  
+##### 32513#       发表于 2025-3-3 20:07
+
+找網紅抹黑他呀
+
+大財閥一定最怕這個
+
+*****
+
+####  zhoujin8584  
+##### 32514#       发表于 2025-3-3 20:07
+
+<img src="https://img.saraba1st.com/forum/202503/03/200701b35xpxl3352jj3pk.jpg" referrerpolicy="no-referrer">
+
+<strong>image-17.jpg</strong> (103.69 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-3 20:07 上传
+
+<img src="https://img.saraba1st.com/forum/202503/03/200713wcu84cfjlllqllll.jpg" referrerpolicy="no-referrer">
+
+<strong>image-18.jpg</strong> (133.94 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-3 20:07 上传
+
+<img src="https://img.saraba1st.com/forum/202503/03/200721y0jmm53zis3i5bts.jpg" referrerpolicy="no-referrer">
+
+<strong>image-19.jpg</strong> (58.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-3 20:07 上传
+
