@@ -14961,3 +14961,11 @@ Soyo： 沒
 说实话我看到第五话的时候也想劝退了，毕竟老姐你基本功都没有怎么Live啊 ...</blockquote>
 一早我也是这么想的。但是后来我看了一个一闪一闪小星星合集。
 
+
+*****
+
+####  waaaagh  
+##### 32382#       发表于 2025-3-3 10:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">技术菜可以去敲三角铁，live的时候就不用重开3遍了
+
