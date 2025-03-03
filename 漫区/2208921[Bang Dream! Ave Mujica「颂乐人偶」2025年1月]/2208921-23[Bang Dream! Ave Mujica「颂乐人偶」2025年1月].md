@@ -846,3 +846,22 @@ mygo里算是有塑造过【不粘锅】海铃，那个场面反过来看就是�
 
 第二个点【走极端的大话精】算是拿海睦垫了，以为mujica对海铃会有什么不同，动辄一辈子的事，现在是被定性为雇佣兵的大话了。感觉算是后期补充的新设。
 
+
+*****
+
+####  firestorm5  
+##### 32625#       发表于 2025-3-4 00:29
+
+我突然有个想法，在祥子当反派而且没有mortis的旧版本剧情，睦压力大那段是不是其实是被祥子搞到昏迷了一个月啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小博禹  
+##### 32626#       发表于 2025-3-4 00:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67567717&amp;ptid=2208921" target="_blank">firestorm5 发表于 2025-3-4 00:29</a>
+我突然有个想法，在祥子当反派而且没有mortis的旧版本剧情，睦压力大那段是不是其实是被祥子搞到昏迷了一个 ...</blockquote>
+展开讲讲<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">是不是该去隔壁楼
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
