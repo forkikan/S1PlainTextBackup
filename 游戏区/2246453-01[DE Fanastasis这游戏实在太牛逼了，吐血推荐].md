@@ -3123,3 +3123,15 @@ F5确实可以，但是又觉得分辨率有点低...
 —— 来自 鹅球 v3.3.96 ...</blockquote>
 我记得是异种老家那边，好像有一堆机关
 
+
+*****
+
+####  jy000129  
+##### 275#       发表于 2025-3-3 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67561418&amp;ptid=2246453" target="_blank">盒饭鬼魅清蒸鱼 发表于 2025-3-3 09:10</a>
+我记得是异种老家那边，好像有一堆机关</blockquote>
+谢谢，那边一开始摸过去感觉难度高就没探索了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

@@ -14969,3 +14969,60 @@ Soyo： 沒
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">技术菜可以去敲三角铁，live的时候就不用重开3遍了
 
+
+*****
+
+####  595505568  
+##### 32383#       发表于 2025-3-3 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67562042&amp;ptid=2208921" target="_blank">waaaagh 发表于 2025-3-3 10:27</a>
+技术菜可以去敲三角铁，live的时候就不用重开3遍了</blockquote>
+不是先买个国产Ai吉他用program混过去吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 32384#       发表于 2025-3-3 10:45
+
+有一說一
+
+無名樂隊從組成到第一次Live 只有兩星期多一點
+
+碧天從開始作曲到Live 只有一星期不到
+
+明顯是立希硬上的問題
+
+一個新手， 兩星期能上台已經算是天生神力了
+
+*****
+
+####  595505568  
+##### 32385#       发表于 2025-3-3 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67562207&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-3 10:45</a>
+有一說一
+
+無名樂隊從組成到第一次Live 只有兩星期多一點</blockquote>
+没事，剩下迷星叫和另一首她们只花了一上午练习就能Live了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  syndrome2032  
+##### 32386#       发表于 2025-3-3 10:51
+
+天生神力的事没那么重要。
+
+头天想到曲子第二天紧急加练过关都是常态。
+
+*****
+
+####  GBLMikuHatsune  
+##### 32387#       发表于 2025-3-3 10:51
+
+还剩四集，现在鸡团几个人感觉还是啥都没解决。
+
+全按舅舅和死海文书的剧情来讲，突然也觉得这根本没法好好说完啊。
+
+就算是顶级演出和live，能塞得下这么多内容么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
