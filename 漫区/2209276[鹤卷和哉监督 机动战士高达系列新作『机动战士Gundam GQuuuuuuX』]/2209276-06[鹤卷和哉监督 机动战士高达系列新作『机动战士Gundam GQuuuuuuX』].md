@@ -7324,3 +7324,14 @@ OVA已经是过时20年的商法了，现在的商法是剧场版</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  半分宅  
+##### 8000#       发表于 2025-3-4 02:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67566121&amp;ptid=2209276" target="_blank">az一串字母 发表于 2025-3-3 07:25</a>
+
+那肯定不能少了卡尔玛泪洒国葬现场，再把两人以前军校生活一扒，这下国民男男cp也有了 ...</blockquote>
+笑死，不过这条世界线里卡尔玛早就私奔了吧。
+
