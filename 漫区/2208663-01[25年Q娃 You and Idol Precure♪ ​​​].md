@@ -4182,3 +4182,16 @@ wiki上说是60年生人，应该是正常退休吧
 
 2025-3-3 21:13 上传
 
+
+*****
+
+####  bilibilius  
+##### 656#       发表于 2025-3-3 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67566762&amp;ptid=2208663" target="_blank">粉儿alice 发表于 2025-3-3 21:06</a>
+
+梅泽P毕业了 不知道是退休还是离职 毕竟比他大的青山还在干活呢
+
+当然坏消息是水果到傻笑很难出新的续作了 ...</blockquote>
+对续作不影响的，只是换人写剧本而已。成Q和法Q2的对比就可以看到，就算用回原剧本，也不能保证质量的。最后还是要看做事的人有没上心。
+
