@@ -3771,3 +3771,11 @@ nico现在根本没有什么参考
 
 <img src="https://img.saraba1st.com/forum/202503/03/114753wtzj2zmoznofqu3u.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  MINKE  
+##### 401#       发表于 2025-3-3 14:18
+
+mujica确实是经典悬疑剧的叙事结构，每集都要有悬念结尾，多线叙事，信息量控制，新谜团线索，轻松桥段调剂，象征性元素，角色危机，误导呈现，预期打破来维持每集间的戏剧张力。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
