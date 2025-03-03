@@ -7345,3 +7345,16 @@ OVA已经是过时20年的商法了，现在的商法是剧场版</blockquote>
 
 在电视上看到报道夏亚·阿兹纳布尔上校在战斗中英勇牺牲将举行国葬的卡尔玛
 
+
+*****
+
+####  太极八爪鱼  
+##### 8002#       发表于 2025-3-4 03:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67567230&amp;ptid=2209276" target="_blank">UnrealApartheid 发表于 2025-3-3 06:38</a>
+
+台湾的影评，原出处在脸书。
+
+水星魔女有更好的开头？水母第一话碎片一样的叙事比GCuuuuuuX更好？</blockquote>
+水魔你别说，靠一个第零集直接立住了。第一集则是一个标准的装逼打脸桥段。你就说好不好看吧
+
