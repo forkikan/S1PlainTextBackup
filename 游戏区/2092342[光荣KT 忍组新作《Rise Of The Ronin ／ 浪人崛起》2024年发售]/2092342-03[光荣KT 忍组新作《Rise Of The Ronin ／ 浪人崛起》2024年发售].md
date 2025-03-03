@@ -40,3 +40,11 @@ PC版发售前咨询下，本作没有DLC又是开放世界，那游戏的终局
 
 要问买不买，反正我觉得如果卧龙和浪人都不值得买，世界上99.999%的游戏都不值得买了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ef6270  
+##### 3396#       发表于 2025-3-4 01:05
+
+DLC完全没希望了吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
