@@ -15454,3 +15454,13 @@ Soyo是有二心的內閣
 </blockquote>
 说起来，当年旧CCC大祥第一次发表讲话时，只有立希是一副漫不经心半睁着眼睛的样子，这时候灯的歌词应该还没征服立希，这真是不得了，还没心有所属时就能挡得住大祥的蛊惑，这真是天才!
 
+
+*****
+
+####  航母掉头  
+##### 32423#       发表于 2025-3-3 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67562751&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-3 11:48</a>
+爱音会吉他那猫猫就得换设计思路了。</blockquote>
+吉他手一定要会吉他
+
