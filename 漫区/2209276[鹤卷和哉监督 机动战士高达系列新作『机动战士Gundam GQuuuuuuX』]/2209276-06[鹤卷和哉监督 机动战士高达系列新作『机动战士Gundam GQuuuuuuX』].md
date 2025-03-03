@@ -6819,3 +6819,11 @@ f5e481cb39dbb6fd66146e004f24ab18972b3703.jpg
 
 各回各家各找各妈
 
+
+*****
+
+####  Oshino  
+##### 7953#       发表于 2025-3-3 17:58
+
+修司的声优受器重是因为他姐是土屋太凤，本人是一个19岁才进向日葵的神人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
