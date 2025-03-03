@@ -7265,3 +7265,24 @@ GQ版大魔(里克大魔），背部有巨型的推进器
 
 痞子这0079if估计捏在手里盘了几十年了，好想看看90分钟剧本拍出来的样子，现在节奏确实被压得很快<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  积木23ki  
+##### 7994#       发表于 2025-3-3 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67567230&amp;ptid=2209276" target="_blank">UnrealApartheid 发表于 2025-3-3 22:38</a>
+台湾的影评，原出处在脸书。
+水星魔女有更好的开头？水母第一话碎片一样的叙事比GCuuuuuuX更好？</blockquote>
+楼友搬屎可以交猫猫税或者模型税吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AraTurambar  
+##### 7995#       发表于 2025-3-3 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67567393&amp;ptid=2209276" target="_blank">AvenueIII 发表于 2025-3-3 23:12</a>
+
+痞子这0079if估计捏在手里盘了几十年了，好想看看90分钟剧本拍出来的样子，现在节奏确实被压得很快 ...</blockquote>
+商业成绩好的话单出一部OVA也不是没可能？
+
