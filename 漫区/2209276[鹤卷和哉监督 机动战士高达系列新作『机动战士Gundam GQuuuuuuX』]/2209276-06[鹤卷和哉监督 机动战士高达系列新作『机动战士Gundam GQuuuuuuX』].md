@@ -6334,3 +6334,30 @@ f5e481cb39dbb6fd66146e004f24ab18972b3703.jpg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  YU_JI  
+##### 7910#       发表于 2025-3-3 11:52
+
+看爽了，尤其是khara的3d机战，赶快快进到四月吧，等不了了
+
+*****
+
+####  YU_JI  
+##### 7911#       发表于 2025-3-3 11:52
+
+<blockquote>RE㐅ia 发表于 2025-3-3 02:17
+多刷了才发现被之前的repo套进去了，其实三人组根本不是什么欠债永动机。就凭麻球那家境别说手机修理费和饭 ...</blockquote>
+欠债永动机不是玩笑话吗（）
+
+*****
+
+####  RE㐅ia  
+##### 7912#       发表于 2025-3-3 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67562779&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-3-3 11:52</a>
+
+欠债永动机不是玩笑话吗（）</blockquote>
+主要就是想所关系不对等，这边只有喵安是有点火烧眉毛了。麻球一点不急，牢修纯顺路
+

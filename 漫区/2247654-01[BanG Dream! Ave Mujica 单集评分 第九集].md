@@ -3731,3 +3731,43 @@ Ave Mujica niconico 前9话 好评率
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  hitori酱  
+##### 400#       发表于 2025-3-3 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67556319&amp;ptid=2247654" target="_blank">pp1349 发表于 2025-3-2 13:41</a>
+
+太君无敌了，这集居然能好评率最高
+
+—— 来自 鹅球 v3.3.96</blockquote>
+nico现在根本没有什么参考
+
+第九集现在在日本的风评也不好了，animanch不少评判声音，连老邦邦厨最多的5ch也反应过来了<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202503/03/114753d1i8m13rtaasijll.png" referrerpolicy="no-referrer">
+
+<strong>截屏2025-03-03 11.45.56 (1).png</strong> (86.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-3 11:47 上传
+
+<img src="https://img.saraba1st.com/forum/202503/03/114754f15qvn0kkpuxiurn.png" referrerpolicy="no-referrer">
+
+<strong>截屏2025-03-03 11.37.25 (1).png</strong> (36.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-3 11:47 上传
+
+截屏2025-03-03 11.37.32 (1).png
+(54 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-3 11:47 上传
+
+<img src="https://img.saraba1st.com/forum/202503/03/114753wtzj2zmoznofqu3u.png" referrerpolicy="no-referrer">
+
