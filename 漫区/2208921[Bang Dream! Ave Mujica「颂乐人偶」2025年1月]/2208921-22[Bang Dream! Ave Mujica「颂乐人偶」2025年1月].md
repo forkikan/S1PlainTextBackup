@@ -15464,3 +15464,15 @@ Soyo是有二心的內閣
 爱音会吉他那猫猫就得换设计思路了。</blockquote>
 吉他手一定要会吉他
 
+
+*****
+
+####  小妻水亚美  
+##### 32424#       发表于 2025-3-3 12:58
+
+<img src="https://p.sda1.dev/22/0d84cd178b5ab8ad7177b32e1880019c/IMG_CMP_135359176.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/b0e376a52f148128977f2559e3b7c606/IMG_CMP_154011340.jpeg" referrerpolicy="no-referrer">
+你们tmd都是谁啊
+
+—— 来自 OPPO PGFM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
