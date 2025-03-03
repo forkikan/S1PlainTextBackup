@@ -7224,3 +7224,20 @@ GQ版大魔(里克大魔），背部有巨型的推进器
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  AvenueIII  
+##### 7989#       发表于 2025-3-3 22:54
+
+ 本帖最后由 AvenueIII 于 2025-3-3 22:56 编辑 
+
+实在馋就把《FLCL: Progressive》看了，虽然少了点灵性但意外的是不错的续篇欸，真好真好<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Gaybird  
+##### 7990#       发表于 2025-3-3 22:56
+
+我们看的真的是同一个水魔？第一集放完那会网上不是都在刷少女革命梗图吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至少要到4爷死的时间点才有大量假药出现了。
+

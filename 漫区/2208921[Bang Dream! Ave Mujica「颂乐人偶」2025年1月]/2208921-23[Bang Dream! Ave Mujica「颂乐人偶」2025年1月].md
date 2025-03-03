@@ -740,3 +740,15 @@ sumimi至今为止就一首歌，早在狗团TV期间就可以确定只是个工
 原来狗 ...</blockquote>
 其实仔细推敲就会发现，初华的人设跌得最厉害，当年神秘逼格的女人，完全变成了方寸大乱的颜艺女人，恩，和大祥其实有着异曲同工之处<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Lyzers  
+##### 32615#       发表于 2025-3-3 22:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当年来去如风的超级雇佣兵变成了速成班老师和不组队就掉小珍珠的小娇妻，
+
+不会说谎，说话超过三个字就能出真伤的睦头人变成了天生演员在大街左右脑互搏
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">谁都别笑谁好吧
+
