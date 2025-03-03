@@ -16981,3 +16981,101 @@ image.png
 
 真的挺闹麻的说实话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  堆雪若叶  
+##### 32551#       发表于 2025-3-3 20:48
+
+别斗老登了，最近的尽孝作品除了老登其实是爱你的还有别的结局吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小博禹  
+##### 32552#       发表于 2025-3-3 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67566632&amp;ptid=2208921" target="_blank">YF31 发表于 2025-3-3 20:46</a>
+你是说这个老登连自称是自己女儿的人当众被摁倒拖走都不管不问，还要用大手摁她不许组乐队，宁可丢了几个 ...</blockquote>
+大小姐过家家呢<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+小祥初三到高一这一年流落在外，按剧里的表现，身体没出问题也是个奇迹了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+可能丰川家族其实是战斗力特化家族，身体好才是真的好
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 32553#       发表于 2025-3-3 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67566614&amp;ptid=2208921" target="_blank">蒹葭公子 发表于 2025-3-3 20:43</a>
+
+没事，只要写她铁暗恋大祥，之前对大祥哈气是爱而不得就行了</blockquote>
+我一想这个白痴一样的设定，就想笑，整个二次元社区哪怕到炸团那话为止，谁说大瞄暗恋大祥，大概会被当深井冰看待吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蒹葭公子  
+##### 32554#       发表于 2025-3-3 20:50
+
+以我这么多年对日本创作者脑回路的总结，其实老登的很多操作都可以用“他其实爱着大祥但不会表达”来洗，或者说这部动画里绝大多数人对大祥的态度都能洗成“她们扭曲的爱着大祥”，所以最后只要让大祥明白她被众人所爱就能包饺子了
+
+*****
+
+####  小博禹  
+##### 32555#       发表于 2025-3-3 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67566651&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-3 20:49</a>
+我一想这个白痴一样的设定，就想笑，整个二次元社区哪怕到炸团那话为止，谁说大瞄暗恋大祥，大概会被当深 ...</blockquote>
+百综一个多月前就提出了喵祥铁暗恋的先进思想<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  阿兹尔  
+##### 32556#       发表于 2025-3-3 20:51
+
+大家都爱着大祥，但是有小有大是吧，最后祥子发现原来人生这么多舔狗，这下一帆风顺了
+
+*****
+
+####  蒹葭公子  
+##### 32557#       发表于 2025-3-3 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67566651&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-3 20:49</a>
+
+我一想这个白痴一样的设定，就想笑，整个二次元社区哪怕到炸团那话为止，谁说大瞄暗恋大祥，大概会被当深 ...</blockquote>
+我在想，可能这部动画的底层逻辑就是“登场的人物不是丰川祥子厨就是扭曲的丰川祥子厨”吧？哦甚至可能三次元的制作组都是……
+
+*****
+
+####  zhoujin8584  
+##### 32558#       发表于 2025-3-3 20:51
+
+面具这个编剧真的冤枉了，是真社长的大手，不然按照原设祥子一开始就是要杀死软弱的自己狠狠利用小睦压根没面具这回事的，不然招网红干嘛，就是来炒热度的。现在是把这一点柔化+分锅了。但这回是真资本的大手，只能中性化处理
+
+<img src="https://img.saraba1st.com/forum/202503/03/205131cez4iijteo4ppttt.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-03-03-20-00-59-19_2b95b5a1545d19ca955bcf1044f94582.jpg</strong> (212.48 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-3 20:51 上传
+
+
+*****
+
+####  阿兹尔  
+##### 32559#       发表于 2025-3-3 20:53
+
+按照大家都是祥子厨的设定，进手游了能不能模仿初睦楼梯大战那段，扩写一下，鸡狗混活9人舔狗大战
+
+*****
+
+####  whzfjd  
+##### 32560#       发表于 2025-3-3 20:53
+
+为什么是立希的遭遇，立希那些段落祥子有开摄像头吗
+
