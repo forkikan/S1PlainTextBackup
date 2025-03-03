@@ -15727,3 +15727,44 @@ soyo也帮助爱音了，soyo虽然有私心，但她的打算也只是让爱音
 
 主要还是原本的反派团，确实不需要有人来做事，现在企划改了人设也不调整，可能是工期太紧，也可能是独角兽产能低下，原来的脚本她就自称写了一年，柿本的点子成色如何大家也都看到了。
 
+
+*****
+
+####  梅杜莎  
+##### 32444#       发表于 2025-3-3 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67564040&amp;ptid=2208921" target="_blank">真爱与热情 发表于 2025-3-3 14:49</a>
+
+讲道理，素食发的那个まだね。只要不是现场看过live的都会误解的
+
+谁能想到这团都散了一年了，还有第二个人 ...</blockquote>
+对外面的网站不熟，CRYCHIC和MyGO的网页是Ins吗？<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Renes  
+##### 32445#       发表于 2025-3-3 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67564130&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-3 14:58</a>
+
+木箱的人设做死了，睦是一说话就会坏事，祥是一行动就会坏事，太CP太对偶了
+
+主要还是原本的反派团，确实 ...</blockquote>
+所以这就是企划里木箱人设异味的地方，角色只有这种设定，按死这种设定，一旦故事深入写了就根本不像人类。
+
+就好比正常人谁都知道，A团不快乐C团快乐其实是人的问题，不是团的问题，角色成长一下把人的问题处理好，A团一样是快乐的。
+
+但现在就像是复读C团快乐A团不快乐的设定一样，复读睦是一说话就会坏事，祥是一行动就会坏事，但明眼人都知道坏事是因为不会说话和不会做事，而不是说话和做事。
+
+基础设定是用来规划发展方向的，不是来给角色定型画地为牢的。
+
+大家的预期是看你从坏到好醒悟突破自我有一个成长，结果演出来就是俩机器人在复读自己设定，然后周围一圈人和木偶一样把事情都办了反正最后包饺子了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  老贝  
+##### 32446#       发表于 2025-3-3 15:11
+
+まだね暗示还有后续其实还好，但那个为了避免拍到人所以朝上的拍照角度，可以理解为激情一夜事后躺在床上看天花板，实在是有点意想不到。<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
