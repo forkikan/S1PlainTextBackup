@@ -3719,3 +3719,15 @@ Ave Mujica niconico 前9话 好评率
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Schwarzess  
+##### 399#       发表于 2025-3-3 08:54
+
+奇怪的笑点：
+1.莫老师说自己练会三首歌了，确实对于不玩手游不看线下live的普通人来说，母鸡卡确实只有opedam三首歌。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+2.umr掏手机看着是从沟里掏的。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

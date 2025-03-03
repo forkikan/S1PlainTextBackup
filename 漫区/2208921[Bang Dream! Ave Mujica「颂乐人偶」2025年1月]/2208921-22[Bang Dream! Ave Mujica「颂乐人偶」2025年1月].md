@@ -14816,3 +14816,16 @@ Soyo： 沒
 
 大喵要是暗恋大祥，可以理性讨论，柿本独角兽这些人是不是叫鸡团，是因为鸡不择食<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 32368#       发表于 2025-3-3 08:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67561247&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-3 08:45</a>
+
+愛音 對 素世 是一個脫魅的過程
+
+初期</blockquote>
+有立希这样提意见的“猴子”很好了，起码比鸡团一群舔狗要强多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
