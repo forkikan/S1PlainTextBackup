@@ -15776,3 +15776,76 @@ soyo也帮助爱音了，soyo虽然有私心，但她的打算也只是让爱音
 
 老实讲不清算大喵其实也是合理的，演艺公司啥的都听上面TGW老登大手的，老登又是个任祥子胡闹的，祥子宕机了一个多月没想报复，老登自然也无所谓，下面人也就不会自作主张搞什么违约金清算的问题。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  盗号找不回  
+##### 32448#       发表于 2025-3-3 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67564193&amp;ptid=2208921" target="_blank">Renes 发表于 2025-3-3 15:05</a>
+
+所以这就是企划里木箱人设异味的地方，角色只有这种设定，按死这种设定，一旦故事深入写了就根本不像人类 ...</blockquote>
+太对了，我当时看的时候就在想祥子你没想过是因为人的问题不是因为团的问题吗，真以为回到过去就能好了？
+
+*****
+
+####  南宮凝香  
+##### 32449#       发表于 2025-3-3 15:25
+
+本來不拍人就很刻意
+
+一年前3C 已經有帶正臉的團體照在推特上
+
+現在有不拍人的理由嗎？
+
+這三角形的燈照 本來就是制作組在Cue 三角初華小姐
+
+
+*****
+
+####  老贝  
+##### 32450#       发表于 2025-3-3 15:30
+
+本来就是占用的MyGO排练时间，乐奈都等不及跑上来了，素世要是还能拉着五个人拍合照，睦估计直接当场给你提重组的事。
+觉得这里是被大手摁头不拍人，是有多喜欢Crychic。<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  真爱与热情  
+##### 32451#       发表于 2025-3-3 15:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67564184&amp;ptid=2208921" target="_blank">梅杜莎 发表于 2025-3-3 15:04</a>
+
+对外面的网站不熟，CRYCHIC和MyGO的网页是Ins吗？</blockquote>
+这我就不懂了，反正我是随便叫的吗，又不影响结果，你要不研究下这个世界观下该怎么叫嘛
+
+*****
+
+####  adretyu67.  
+##### 32452#       发表于 2025-3-3 15:32
+
+摘面具没被算账这个事有2个因素
+
+现场蒙混过关了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+祥子事后没追究大猫<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+前者影响是鸡团里关于是演奏音乐还是剧场表演的冲突实际上是大猫站上风了，也就是说大祥实际上失去了鸡团1.0的领导权。
+
+导致了睦头抗不住分裂出墨提斯最终导致了鸡团1.0爆炸是外话。
+
+后者那就是我也不知道为什么了，可能真就找不到支援鼓手吧。
+
+大猫是打开了潘多拉之盒的人，但是潘多拉之盒里面的恶是一直存在的。
+
+*****
+
+####  aptx8285144  
+##### 32453#       发表于 2025-3-3 15:32
+
+<blockquote>adretyu67. 发表于 2025-3-3 14:56
+当祥子和大猫关于方向吵得不可开交的时候。
+
+你告诉我炸团的原因是有人不会弹吉他导致演出无法继续进行 ...</blockquote>
+是的，第四话除了演出很僵硬外，烂的原因也有这个，按照某个UP主评论就是基地下面的一堆火药点燃了，然而却是飞来了一枚巡航导弹把基地炸了
+
