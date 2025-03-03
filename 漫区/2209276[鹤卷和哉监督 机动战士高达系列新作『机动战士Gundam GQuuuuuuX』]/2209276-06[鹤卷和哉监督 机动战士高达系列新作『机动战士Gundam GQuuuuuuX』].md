@@ -6854,3 +6854,14 @@ f5e481cb39dbb6fd66146e004f24ab18972b3703.jpg
 确实 就和内田雄马 泽城千春这几位差不多 都是姐姐名气带的
 演技还是挺期待的就是了
 
+
+*****
+
+####  kuriri  
+##### 7957#       发表于 2025-3-3 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67565644&amp;ptid=2209276" target="_blank">Oshino 发表于 2025-3-3 17:58</a>
+
+修司的声优受器重是因为他姐是土屋太凤，本人是一个19岁才进向日葵的神人 ...</blockquote>
+所以钉宫说他声音像清凉饮料不是在夸而是在说缺乏演技像白开水是吗。。。
+
