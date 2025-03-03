@@ -3842,3 +3842,16 @@ nico现在根本没有什么参考
 
 然后本身内容也值得 -2
 
+
+*****
+
+####  上杉打老虎  
+##### 407#       发表于 2025-3-4 01:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67565174&amp;ptid=2247654" target="_blank">plazum 发表于 2025-3-3 16:53</a>
+
+是时候宣布入关了：老钟的动画鉴赏水平就是世界第一的呀前几天在贴吧也看到人这样说了 ...</blockquote>
+早在18年少歌那阵子就应该这么宣布了
+
+⏰这边，不管是一般观众的动画鉴赏水平，还是河豚磕CP的品味，都优于脚盆<img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">
+
