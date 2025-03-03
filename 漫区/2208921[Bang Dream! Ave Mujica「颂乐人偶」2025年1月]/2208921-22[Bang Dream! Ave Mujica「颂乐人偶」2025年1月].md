@@ -16257,3 +16257,38 @@ image.png
 
 繼承本作的仰卧起坐傳統？
 
+
+*****
+
+####  钦念以忱  
+##### 32489#       发表于 2025-3-3 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67564876&amp;ptid=2208921" target="_blank">595505568 发表于 2025-3-3 16:14</a>
+
+这个翻译是不是翻译错了，是睦不是素世吧</blockquote>
+对，刚复制的时候忘改了。
+
+*****
+
+####  一心而用  
+##### 32490#       发表于 2025-3-3 17:30
+
+<img src="https://p.sda1.dev/22/88e229869399a31ed725a4ea385e2cfc/image.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/22/c1b0dc1755dccab3e368636fafa83365/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  钦念以忱  
+##### 32491#       发表于 2025-3-3 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67565063&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-3-3 16:37</a>
+
+这个版本的翻译有问题，看另一个版本的吧
+
+就是到现在还是没人放出完整的访谈原图，所以我也不知道这个翻 ...</blockquote>
+在剧本会议上，我们基于“祥子最大的敌人是什么”这一想法，并由此描绘了从这里到结尾部分的故事
+
+祥子最大的敌人看来就是丰川家了，难怪最后要拍丰川家事和初华小姨了。
+

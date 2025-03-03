@@ -6770,3 +6770,21 @@ f5e481cb39dbb6fd66146e004f24ab18972b3703.jpg
  怎么白高达那边的胸口标也是按吉翁印的</blockquote>
 是联邦的十字盾牌标啊
 
+
+*****
+
+####  xwr  
+##### 7948#       发表于 2025-3-3 17:27
+
+我看有人说追加映像的联邦魔女挺可爱的，有人看过能说说么？
+
+*****
+
+####  刺客ares  
+##### 7949#       发表于 2025-3-3 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67565397&amp;ptid=2209276" target="_blank">王留美 发表于 2025-3-3 17:23</a>
+
+是联邦的十字盾牌标啊</blockquote>
+看错了，这俩标记糊在一块，细看白高那边确实少了个半圆<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
