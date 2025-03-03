@@ -663,3 +663,21 @@ soyo起初对于睦的加入Ave Mujica一事感到愤怒，但她很快察觉到
 
 除非说祥子有钱，初华感觉在祥子面前自己太穷了，所以有劣等感，那可以。但是这也太俗了吧
 
+
+*****
+
+####  aptx8285144  
+##### 32608#       发表于 2025-3-3 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67567103&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-3-3 22:15</a>
+
+劣等感，还是需要有优劣的比较才会产生的吧。比如立希有非常厉害的姐姐，自己作曲的能力也不如祥子，所以劣 ...</blockquote>
+话说sumimi对于初华而言是不是就是一份<strong>可有可无</strong>的工作？除非告诉我甜甜圈是老登安插在初华身边的卧底，否则感觉真奈好惨<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 32609#       发表于 2025-3-3 22:26
+
+sumimi至今为止就一首歌，早在狗团TV期间就可以确定只是个工具了吧。
+
