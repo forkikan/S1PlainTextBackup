@@ -3779,3 +3779,39 @@ nico现在根本没有什么参考
 
 mujica确实是经典悬疑剧的叙事结构，每集都要有悬念结尾，多线叙事，信息量控制，新谜团线索，轻松桥段调剂，象征性元素，角色危机，误导呈现，预期打破来维持每集间的戏剧张力。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  plazum  
+##### 402#       发表于 2025-3-3 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67546290&amp;ptid=2247654" target="_blank">aptx8285144 发表于 2025-2-28 22:53</a>
+
+二次元多重人格或双重人格大部分都是出去大杀四方的，像用在少女乐队里面自家撕逼，还一路从第四集撕到第 ...</blockquote>
+原来初华是为了给Mortis演示双重人格的正确表演方式<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  plazum  
+##### 403#       发表于 2025-3-3 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67547458&amp;ptid=2247654" target="_blank">FanKiE 发表于 2025-3-1 08:00</a>
+
+怎么乐不起来，墨提斯在RiNG汗流浃背的样子可好玩了，吉他睦已经挂了这种事根本说不出来
+
+—— 来自 S1Fu ...</blockquote>
+事到如今，吉他睦挂了这件事已经说不出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  plazum  
+##### 404#       发表于 2025-3-3 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67562748&amp;ptid=2247654" target="_blank">hitori酱 发表于 2025-3-3 11:48</a>
+
+nico现在根本没有什么参考
+
+第九集现在在日本的风评也不好了，animanch不少评判声音，连老邦邦厨最多的5ch ...</blockquote>
+是时候宣布入关了：老钟的动画鉴赏水平就是世界第一的呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前几天在贴吧也看到人这样说了
+

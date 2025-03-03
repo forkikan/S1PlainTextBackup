@@ -16187,3 +16187,16 @@ image.png
 
 <img src="https://img.saraba1st.com/forum/202503/03/164039amovlnozocmccavq.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  号为熊  
+##### 32483#       发表于 2025-3-3 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67553173&amp;ptid=2208921" target="_blank">灼眼的夏娜酱 发表于 2025-3-1 23:09</a>
+
+现在初华小姨和双子的说法哪个是真的还是一真一假</blockquote>
+可靠信源的说法是 1.丰川家的黑暗是初华是私生子 2. 丰川家非独女 
+
+提出伟大的小姨双子的构想的聊天记录目前看会为了车祥篡改细节，另外有不可靠信源表示 1. 初华身世的展开会比较搞笑 2. 真假初华的情节是转述过程中虚空加的，初华是私生子以及祥子会被送出国相对可信一些
+
