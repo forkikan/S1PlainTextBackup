@@ -15488,3 +15488,24 @@ Soyo是有二心的內閣
 
 哇靠她还真是不负责任啊，大猫老师是对的
 
+
+*****
+
+####  钦念以忱  
+##### 32426#       发表于 2025-3-3 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67561539&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-3-3 09:26</a>
+
+狗第五话立希就是冲着劝退奶龙去的。</blockquote>
+也没这么夸张，第5话她想劝退奶龙，第8话她又想劝退素世么，立希就是这种滑坡人，会把小矛盾变大矛盾，大矛盾变根本矛盾。
+
+
+*****
+
+####  K·os  
+##### 32427#       发表于 2025-3-3 13:35
+
+冷静的说，mygo的动画标题其实也不是bangdream mygo
+
+之前大概就是，单纯没决定要叫什么
+
