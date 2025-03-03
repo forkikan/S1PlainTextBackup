@@ -619,3 +619,33 @@ soyo起初对于睦的加入Ave Mujica一事感到愤怒，但她很快察觉到
 
 2025-3-3 21:30 上传
 
+
+*****
+
+####  aptx8285144  
+##### 32604#       发表于 2025-3-3 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67566990&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-3 21:49</a>
+
+答案是私生子的劣等感，或许还有偷来的青梅身份，让她不敢主动联系，只能被动接受宠幸 ...</blockquote>
+独角兽和十本可能觉得很带感，但我光看你这样写都感觉充斥着玛丽苏文的傲慢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  huxiaopao163  
+##### 32605#       发表于 2025-3-3 21:58
+
+话说这些杂志的分析，到底是基于杂志编辑自己的理解，还是真的看过后面的剧情啊
+
+好多还说不准的事情，她居然说的如此斩钉截铁
+
+
+*****
+
+####  南宮凝香  
+##### 32606#       发表于 2025-3-3 22:02
+
+又劣等感
+
+這破片是只有優劣兩種關係的嗎？
+
