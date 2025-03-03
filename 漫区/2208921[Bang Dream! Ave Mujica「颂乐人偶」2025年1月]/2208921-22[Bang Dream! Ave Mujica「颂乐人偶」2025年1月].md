@@ -16149,3 +16149,41 @@ skk要是真摆明车马我就是祥P，或者说AM就是丰川集团赞助的�
 
 耍小聪明干不过人，正论也干不过人，结论大象老师也还是纯杂鱼啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  与太郎  
+##### 32481#       发表于 2025-3-3 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67564866&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-3 16:12</a>
+
+还在重生啊
+
+虽然因素世的愿望促成了CRYCHIC重组，但祥子对音乐的热情已荡然无存。此时Mortis却宣告"睦已死 ...</blockquote>
+这个版本的翻译有问题，看另一个版本的吧 <blockquote>――换言之，在第9话的时候，作为乐队一员的祥子已经死了，接下来会重生是吗？
+
+        是因为睦说想重组CRYCHIC祥子才采取了行动，祥子心中对音乐的冲动已经消失殆尽。在这样的情况下，Mortis说睦已经“死去”。也就是说祥子又一次振作失败了。在剧本会议上，我们基于“祥子最大的敌人是什么”这一想法，并由此描绘了从这里到结尾部分的故事，但这样一来，“这真的是有关重生的故事吗？”的违和感也随之浮现而出。前作中MyGO成功重生，但反过来想，Ave Mujica或许不该简单地重生。详细展开说的话就会涉及到第10话之后的结局了。</blockquote>
+就是到现在还是没人放出完整的访谈原图，所以我也不知道这个翻译是不是100%准确
+
+
+*****
+
+####  滑稽Captain  
+##### 32482#       发表于 2025-3-3 16:40
+
+ 本帖最后由 滑稽Captain 于 2025-3-3 16:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67565063&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-3-3 16:37</a>
+
+这个版本的翻译有问题，看另一个版本的吧
+
+就是到现在还是没人放出完整的访谈原图，所以我也不知道这个翻 ...</blockquote>就是这一段
+
+image.png
+(657.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-3 16:40 上传
+
+<img src="https://img.saraba1st.com/forum/202503/03/164039amovlnozocmccavq.png" referrerpolicy="no-referrer">
+

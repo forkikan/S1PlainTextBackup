@@ -6665,3 +6665,15 @@ f5e481cb39dbb6fd66146e004f24ab18972b3703.jpg
 魔女的mav 死亡
 麻球的mav 可能会走失而复得路线？
 
+
+*****
+
+####  纪寞  
+##### 7939#       发表于 2025-3-3 16:44
+
+假定"那一边"为正史，而阿尔法和奥米加目前跟精神感应框架的功能很吻合，gqx很多地方都cue独角兽。
+
+如果真要在正史给gqx插一个对应的时间点，我突然想到了一个很合适的点——传闻中的UC2。
+
+万一阿尔法和奥米加流到gqx世界线是处于NT~UC2之间呢<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
