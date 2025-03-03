@@ -873,3 +873,14 @@ mygo里算是有塑造过【不粘锅】海铃，那个场面反过来看就是�
 
 快进到祥子对着昏迷的睦说我真差劲<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 32628#       发表于 2025-3-4 02:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67567337&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-3-3 23:01</a>
+大祥的自私不是一直是底色从未改变么，从mygo的仅仅为了自己的自尊就啥也不说就拆团，为了自己的自尊利用 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">理解能力堪忧，第八集不是都够直白了吗？祥子真的如第七集说的那样什么都愿意做，变成了睦偶，满脑子都是睦，一切都是以睦优先。而第八集ktv部分祥子也是感激墨缇丝骂醒了她，但是这里祥子又陷入了二选一的处境，是选择睦还是墨缇丝？作为睦偶的祥子肯定优先选择睦。如果这是个单选题只有墨缇丝这个选项，祥子也是会毫不犹豫的帮助墨缇丝重建母鸡卡
+如果第八集的祥子真的是自私的满脑子只有自己，她根本不用放弃自尊去听睦的话重建c团
+
