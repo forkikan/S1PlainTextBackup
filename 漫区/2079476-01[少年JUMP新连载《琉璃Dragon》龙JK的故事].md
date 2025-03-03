@@ -96,3 +96,11 @@
 
 最新话终于是决定不当人了（
 
+
+*****
+
+####  你妈的为什么  
+##### 161#       发表于 2025-3-4 00:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">能看出作者的确没啥阅历，高中生活描写起来就是舒适区了
+
