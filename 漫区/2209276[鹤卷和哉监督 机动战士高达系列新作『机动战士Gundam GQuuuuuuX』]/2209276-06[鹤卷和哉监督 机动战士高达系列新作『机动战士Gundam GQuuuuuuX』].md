@@ -6827,3 +6827,30 @@ f5e481cb39dbb6fd66146e004f24ab18972b3703.jpg
 
 修司的声优受器重是因为他姐是土屋太凤，本人是一个19岁才进向日葵的神人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  psycho_Gadfly  
+##### 7954#       发表于 2025-3-3 18:08
+
+<blockquote>Oshino 发表于 2025-3-3 17:58
+修司的声优受器重是因为他姐是土屋太凤，本人是一个19岁才进向日葵的神人 ...</blockquote>
+顺便一提，他本人憧憬的前辈还是高达（划掉）mamo
+
+*****
+
+####  赤黑的假面  
+##### 7955#       发表于 2025-3-3 18:11
+
+看了下枪版的基西莉亚CUT，咋感觉她真把夏亚当成吉翁公国的大忠臣了
+
+*****
+
+####  积木23ki  
+##### 7956#       发表于 2025-3-3 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67565644&amp;ptid=2209276" target="_blank">Oshino 发表于 2025-3-3 17:58</a>
+修司的声优受器重是因为他姐是土屋太凤，本人是一个19岁才进向日葵的神人 ...</blockquote>
+确实 就和内田雄马 泽城千春这几位差不多 都是姐姐名气带的
+演技还是挺期待的就是了
+
