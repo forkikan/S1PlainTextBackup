@@ -3815,3 +3815,14 @@ nico现在根本没有什么参考
 第九集现在在日本的风评也不好了，animanch不少评判声音，连老邦邦厨最多的5ch ...</blockquote>
 是时候宣布入关了：老钟的动画鉴赏水平就是世界第一的呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前几天在贴吧也看到人这样说了
 
+
+*****
+
+####  稀勢のささ  
+##### 405#       发表于 2025-3-3 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67565174&amp;ptid=2247654" target="_blank">plazum 发表于 2025-3-3 16:53</a>
+
+是时候宣布入关了：老钟的动画鉴赏水平就是世界第一的呀前几天在贴吧也看到人这样说了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪儿用前几天，1月份我在尼哥谭就看到有人让大伙儿别太谦虚了
+
