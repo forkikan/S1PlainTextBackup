@@ -15971,3 +15971,86 @@ TV这边13话搞完就完事了，融合也好，献祭也好，共存也好。
 祥子前期不能行动很有可能确实是剧本的底层逻辑，因为他们所计划达到的目标即祥子的成长，就是要把现在这个 ...</blockquote>
 “理解”或“低头”也就罢了，“相信"鸡团其他人大可不必，其他人神人程度比大祥可能只高不低<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  YF31  
+##### 32466#       发表于 2025-3-3 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67564344&amp;ptid=2208921" target="_blank">MINKE 发表于 2025-3-3 15:23</a>
+老实讲不清算大喵其实也是合理的，演艺公司啥的都听上面TGW老登大手的，老登又是个任祥子胡闹的，祥子宕机 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">事务所还电话轰炸自家大小姐呢，也没见对自家大小姐有什么好脸色，自适应现实大手不过是用来抽牢祥鞭子的罢了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  595505568  
+##### 32467#       发表于 2025-3-3 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67564184&amp;ptid=2208921" target="_blank">梅杜莎 发表于 2025-3-3 15:04</a>
+对外面的网站不熟，CRYCHIC和MyGO的网页是Ins吗？</blockquote>
+SNS说是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  虚无缥缈的分身  
+##### 32468#       发表于 2025-3-3 15:57
+
+说起来之前那位因为发表了素睦地下室监禁言论被扣了几十鹅的楼u还在吗？能说下看完鸡动画的素睦同居三天三夜部分后是不是爽到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202503/03/155730xz6la99wj2l922dq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (110.57 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-3 15:57 上传
+
+*****
+
+####  Lyzers  
+##### 32469#       发表于 2025-3-3 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67564456&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-3 15:32</a>
+摘面具没被算账这个事有2个因素
+
+现场蒙混过关了</blockquote>
+其实还是追究了一下的，但是在场除了大祥没有一个人care，另外那次争论作为队伍主创人大祥竟然在正论打脸上嘴不过大喵老师，显得大祥特别five
+
+但偏偏表现上最废材的大祥在故事里是舔狗最多也担责最多的，又显得其他角色都像是被家暴的娇妻一样莫名其妙，完全没有合理的行为动机<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YF31  
+##### 32470#       发表于 2025-3-3 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67564566&amp;ptid=2208921" target="_blank">滑稽Captain 发表于 2025-3-3 15:43</a>
+祥子前期不能行动很有可能确实是剧本的底层逻辑，因为他们所计划达到的目标即祥子的成长，就是要把现在这个 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">低头了不是继续抽？对睦低头了结果还能继续拿牢C抽，底层逻辑是这人做什么怎么做都是错的，做了也必定要按杂鱼反派的方式做被抽。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  adretyu67.  
+##### 32471#       发表于 2025-3-3 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67564731&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-3-3 15:58</a>
+
+其实还是追究了一下的，但是在场除了大祥没有一个人care，另外那次争论作为队伍主创人大祥竟然在正论打脸 ...</blockquote>
+使用炒作方式做到人气快速登顶的计划是大祥老师自己说的（狗13还是狗几话）<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+所以大祥老师打不过大猫太正常了
+
+*****
+
+####  滑稽Captain  
+##### 32472#       发表于 2025-3-3 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67564752&amp;ptid=2208921" target="_blank">YF31 发表于 2025-3-3 15:59</a>
+
+低头了不是继续抽？对睦低头了结果还能继续拿牢C抽，底层逻辑是这人做什么怎么做都是错的，做了也必定要 ...</blockquote>
+对睦低头的时候按目前动画给出来的剧情来看，不就是依然没意识到是自己这个人的问题而不是该选哪个团的问题，那就是还没抽到位，所以让吉他睦又“死”了
+
