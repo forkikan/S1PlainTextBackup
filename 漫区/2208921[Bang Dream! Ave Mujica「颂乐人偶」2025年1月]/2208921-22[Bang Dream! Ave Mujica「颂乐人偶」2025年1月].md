@@ -16054,3 +16054,98 @@ SNS说是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" r
 低头了不是继续抽？对睦低头了结果还能继续拿牢C抽，底层逻辑是这人做什么怎么做都是错的，做了也必定要 ...</blockquote>
 对睦低头的时候按目前动画给出来的剧情来看，不就是依然没意识到是自己这个人的问题而不是该选哪个团的问题，那就是还没抽到位，所以让吉他睦又“死”了
 
+
+*****
+
+####  aptx8285144  
+##### 32473#       发表于 2025-3-3 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67564731&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-3-3 15:58</a>
+
+其实还是追究了一下的，但是在场除了大祥没有一个人care，另外那次争论作为队伍主创人大祥竟然在正论打脸 ...</blockquote>
+而且在睦(不算莫女士)和初华眼里，黑祥和白祥也是没什么本质区别的，舔狗还是舔狗，导致大祥的亚撒西都看起来充满了“食之无味，弃之可惜”的感觉，这还不如有些后宫GAL的男主呢<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  老贝  
+##### 32474#       发表于 2025-3-3 16:06
+
+祥子和睦还在互相误会对方想组ccc，就说明主创人员觉得还没给你抽到位。祥子还没有能够重生为女主角，还得给你再碎两下。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LeonsCat  
+##### 32475#       发表于 2025-3-3 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67564765&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-3 16:01</a>
+
+使用炒作方式做到人气快速登顶的计划是大祥老师自己说的（狗13还是狗几话）
+
+所以大祥老师打不过大猫太正 ...</blockquote>
+AM从一开始就是偶像运营，那用音乐性来嘴人怎么可能嘴得过。
+
+你要是学隔壁R组从地下开始往上打，或者干脆chu平方老娘出钱养着，那当然可以说啥是啥。
+
+skk要是真摆明车马我就是祥P，或者说AM就是丰川集团赞助的，大猫马上哑火。
+
+*****
+
+####  adretyu67.  
+##### 32476#       发表于 2025-3-3 16:09
+
+想了下，鸡团爆炸前暗流涌动。爆炸后就进入了睦头反复横跳和ccc仰卧起坐的神奇状态。
+
+确实没没什么人在乎avemujica
+
+
+*****
+
+####  YF31  
+##### 32477#       发表于 2025-3-3 16:11
+
+ 本帖最后由 YF31 于 2025-3-3 16:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67564782&amp;ptid=2208921" target="_blank">滑稽Captain 发表于 2025-3-3 16:03</a>
+对睦低头的时候按目前动画给出来的剧情来看，不就是依然没意识到是自己这个人的问题而不是该选哪个团的问 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无敌了，都直骂自己不是人了，扭头做睦全肯定BOT还没抽够，那怎么抽算到位？难道下一集睦头死了突然想通了哦原来我是万恶之源跳楼赔命算抽到位了？
+
+你搞清楚是睦头人自己说让她组C的，不是这人自己在折腾两团哪个幸福哪个不幸福，难道跟牢莫一样，睦头人的话要听但不能全听？
+
+睦头人明确要她组C，丰川祥子说不，其实你不想组C，是因为我让你痛苦了我滚蛋？有点太搞笑了说实话。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  钦念以忱  
+##### 32478#       发表于 2025-3-3 16:12
+
+还在重生啊
+
+虽然因素世的愿望促成了CRYCHIC重组，但祥子对音乐的热情已荡然无存。此时Mortis却宣告"睦已死"，祥子的再次振作宣告失败。在剧本会议上，我们特别探讨了"祥子最大的敌人是什么"，由此产生"这真是重生故事吗"的疑问。前作《MyGO!!!!!》讲述的是重生，那么《Ave Mujica》是否不能简单重复这个主题？这部分详细解说会涉及第10话后的关键转折。
+
+*****
+
+####  595505568  
+##### 32479#       发表于 2025-3-3 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67564866&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-3 16:12</a>
+还在重生啊
+
+虽然因素世的愿望促成了CRYCHIC重组，但祥子对音乐的热情已荡然无存。此时Mortis却宣告"睦已死 ...</blockquote>
+这个翻译是不是翻译错了，是睦不是素世吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lyzers  
+##### 32480#       发表于 2025-3-3 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67564765&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-3 16:01</a>
+使用炒作方式做到人气快速登顶的计划是大祥老师自己说的（狗13还是狗几话）
+
+所以大祥老师打不过大猫太正 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我已经没兴趣再去考据细节了，我们就先假设这个说法是对的
+
+那么就是说，大祥能想出靠炒作速通武道馆这种事，却嘴不过一个抖机灵的大喵老师，那不还是耍小聪明也耍不过人的five吗？你要说大喵老师段位特高，经验压制那也就算了，但问题是当时那段对话就是纯打哈哈蒙混过关，根本连吵起来都不算
+
+耍小聪明干不过人，正论也干不过人，结论大象老师也还是纯杂鱼啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
