@@ -6369,3 +6369,31 @@ f5e481cb39dbb6fd66146e004f24ab18972b3703.jpg
 
 话说麻球邀请修司的时候知道他是红高驾驶员吗，桥下之前的片段没看到修司露脸啊，麻球是怎么知道修司能开ms的，就因为也看过nt聊天室吗？
 
+
+*****
+
+####  刺客ares  
+##### 7914#       发表于 2025-3-3 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67562867&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-3-3 12:03</a>
+
+话说麻球邀请修司的时候知道他是红高驾驶员吗，桥下之前的片段没看到修司露脸啊，麻球是怎么知道修司能开ms ...</blockquote>
+牢修闻过头发后，在涂鸦里加上了代表GQX的白色记号
+
+玛秋看到红白两个记号，确认了涂鸦就是昨天她看到的共感空间
+
+这个时候就差不多能推测出修司和红高达有关系了
+
+她看着修司的背影，心理活动就是想确认他是不是红高达驾驶员，结果话说一半被喵安骑着自行车打断了
+
+*****
+
+####  Gysumitka  
+##### 7915#       发表于 2025-3-3 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67562867&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-3-3 12:03</a>
+话说麻球邀请修司的时候知道他是红高驾驶员吗，桥下之前的片段没看到修司露脸啊，麻球是怎么知道修司能开ms ...</blockquote>
+初次进入krkr已经把涂鸦和红高联系起来了，还在学校搜了资料
+<img src="https://p.sda1.dev/22/02f1247a82a0ef6e8b4bc7a470fb2df6/image.jpg" referrerpolicy="no-referrer">
+看到修司在红高旁添加了gqx，直接就确认了吧
+
