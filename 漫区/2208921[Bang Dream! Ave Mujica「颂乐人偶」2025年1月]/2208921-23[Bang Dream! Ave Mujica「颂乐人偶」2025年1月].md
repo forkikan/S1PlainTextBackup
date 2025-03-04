@@ -2563,3 +2563,79 @@ R`Q]MK957VTAYZC5HO48OVH.jpg
 
 2025-3-4 15:44 上传
 
+
+*****
+
+####  天空塔书记官  
+##### 32769#       发表于 2025-3-4 15:49
+
+在女铜的世界谈论异性恋问题不是纯搞笑吗
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zhoujin8584  
+##### 32770#       发表于 2025-3-4 15:49
+
+<blockquote>z-hunter 发表于 2025-3-4 15:28
+我单指“祥子会再次重组C团，素希拒绝，灯犹豫”这个剧透是在7话之后出现，当时的背景就是狗团塌房了，狗 ...</blockquote>
+双子那里可能还是人设样板戏，海岛追真青梅突出一个二选一全错<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说不定会喜剧化处理。
+
+抛弃一切同居就是初华TE，因为老登看不上私生子不会承认，那就只能祥子出走。但是出走表面上是放弃了初华求不得的东西来对等，可惜TGW还是该赞助赞助，成就一场真实的幻梦。
+
+*****
+
+####  号为熊  
+##### 32771#       发表于 2025-3-4 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67572188&amp;ptid=2208921" target="_blank">UNISONIA 发表于 2025-3-4 15:30</a>
+
+另外一方面，綾奈有些MyGO的集数也是看到成片或者demo以后才发现没有完全按照自己的意思来的，比如soyo前 ...</blockquote>
+这种应该只会涉及一些细节的处理吧
+
+很难想象柿本广大擅自对脚本做了大改以后会不在脚本那里署自己的名字
+
+
+*****
+
+####  zhoujin8584  
+##### 32772#       发表于 2025-3-4 15:52
+
+首先，初华是老登的烂裤裆。
+
+那句回应丰川大手，“也就是说，我的……”
+
+就是说她连称呼自己的父亲都不配
+
+*****
+
+####  钦念以忱  
+##### 32773#       发表于 2025-3-4 15:52
+
+我完全懂了，就跟柿本为了减轻初华摔睦头那段的观感先在第六集安排了睦头滚下楼梯的情节一样，柿本在第七集放暖色调飞鸟山，就是为了在ji团诗超绊的时候放暖色调酒店大战和车站大战啊哎呦我，柿本的伏笔大家就学去吧
+
+*****
+
+####  6030sylar  
+##### 32774#       发表于 2025-3-4 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67572241&amp;ptid=2208921" target="_blank">HereLink 发表于 2025-3-4 15:37</a></blockquote>
+又幻想了
+
+*****
+
+####  UNISONIA  
+##### 32775#       发表于 2025-3-4 15:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67572337&amp;ptid=2208921" target="_blank">号为熊 发表于 2025-3-4 15:49</a>
+
+这种应该只会涉及一些细节的处理吧
+
+很难想象柿本广大擅自对脚本做了大改以后会不在脚本那里署自己的名字 ...</blockquote>
+是，所以MyGO时期并没有影响到想要表达的东西，而且最终出来的效果还不错
+
+现在越来越信作品的最终质量有一些运气成分在了
+
