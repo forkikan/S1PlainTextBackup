@@ -2364,3 +2364,54 @@ R`Q]MK957VTAYZC5HO48OVH.jpg
 
 可能动画都做完了就差配音了，结果上面的大人物要求从剧本开始推翻重做，所以独角兽才气得逃跑了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 32757#       发表于 2025-3-4 15:17
+
+ 本帖最后由 6030sylar 于 2025-3-4 15:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67572065&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-3-4 15:15</a>
+
+可能动画都做完了就差配音了，结果上面的大人物要求从剧本开始推翻重做，所以独角兽才气得逃跑了吧 ...</blockquote>
+这你就太看得起武士道了，这真的硬生生拖了一年才放，为了对轴，邦3也干过
+
+推翻重做武士道也没那个钱
+
+*****
+
+####  UNISONIA  
+##### 32758#       发表于 2025-3-4 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67572034&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-3-4 15:11</a>
+
+不是，邦这3D动画不都是做得快完成才配音的，大家不都是知道的吗</blockquote>
+那这个还挺奇怪的
+
+先不说木谷老登提到的社内有成片的时间已经是24年Q2了。很明显MyGO、猫剧场版的新规部分、Mujica三部分制作的细节都有细微的差异，手绘部分用在什么地方的逻辑也各不相同
+
+*****
+
+####  钦念以忱  
+##### 32759#       发表于 2025-3-4 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67572033&amp;ptid=2208921" target="_blank">曼彻斯特联 发表于 2025-3-4 15:11</a>
+
+有crychic的内容明显是wsd的硬性要求，谁来写脚本这点都不会改变。</blockquote>
+那7话的炒作也炒完了，8、9这两集完全可以不写CCC了的
+
+*****
+
+####  adretyu67.  
+##### 32760#       发表于 2025-3-4 15:20
+
+放弃幻想，接受现实吧。
+
+我是不太信鸡10话鸡团复活live的实际效果。
+
+狗10话唱完就是两面素姐交枪表示忠诚了。
+
+鸡10话就算解决了莫睦兼容问题，大猫海铃自动投降，初华也是要跑的。
+
+鸡动画就是这样了，就算最后包芥末味寿司也只能忍着了。
+
