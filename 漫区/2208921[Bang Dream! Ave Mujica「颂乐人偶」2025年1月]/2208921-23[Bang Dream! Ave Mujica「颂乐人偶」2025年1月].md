@@ -2086,3 +2086,23 @@ OP初华是最后看祥子倒下的，ED初华遥望高塔公主祥子，用脚�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  玖羽  
+##### 32732#       发表于 2025-3-4 13:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67571073&amp;ptid=2208921" target="_blank">Perfectfullmoon 发表于 2025-3-4 12:53</a>
+
+论坛助手,iPhone</blockquote>
+这招在少女革命里早就用过了，乌蒂娜和安希就是德米安和辛克莱的关系
+
+少女革命里也直接引用了鸟要破壳那句话
+
+*****
+
+####  帕林马哲理  
+##### 32733#       发表于 2025-3-4 14:01
+
+其他不说，黑塞的《荒原狼》是那种非常有感觉的癫狂，这Ave Mujica的剧本只能说是对大作家太过拙劣的模仿了。
+
