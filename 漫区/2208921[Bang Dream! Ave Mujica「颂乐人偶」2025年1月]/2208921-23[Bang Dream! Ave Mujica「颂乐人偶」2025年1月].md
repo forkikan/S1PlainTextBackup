@@ -4598,3 +4598,23 @@ ave是有很多吸引人的爆点，但显然制作方没想好怎么把爆点�
 感觉就算13集故事普普通 ...</blockquote>
 没事，访谈会打他们脸<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DeltaStriker  
+##### 32952#       发表于 2025-3-5 01:25
+
+说到llx就想起来一个观点 就是剧本整体走向是制作人竹田青滋把控的 没这位大河内的剧本…… emmmm
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  烂片雷达  
+##### 32953#       发表于 2025-3-5 01:33
+
+看似凌乱破碎的故事、人物捉摸不定的行动其实是武士道布下的谜题，只有看懂这个谜题的人才能领悟到少女乐队二十年来的终极答案
+
+没有爱就只能看到烂片，有了爱才能真正看清这其中蕴含了多么伟大的精神内核<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
