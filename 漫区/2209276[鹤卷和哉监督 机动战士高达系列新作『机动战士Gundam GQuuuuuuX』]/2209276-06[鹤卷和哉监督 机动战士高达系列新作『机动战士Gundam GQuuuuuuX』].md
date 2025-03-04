@@ -7454,3 +7454,29 @@ OVA已经是过时20年的商法了，现在的商法是剧场版</blockquote>
 
 好急好急<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kuriri  
+##### 8010#       发表于 2025-3-4 19:14
+
+重看0079，发现喵安骑车对暗号的部分也是致敬原作的，不知道是不是构成对人物命运的暗示
+
+IMG_0167.jpeg
+(194.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-4 19:14 上传
+
+<img src="https://img.saraba1st.com/forum/202503/04/191436m2v7qzc9y8rvzthq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+IMG_0165.jpeg
+(249.21 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-4 19:14 上传
+
+<img src="https://img.saraba1st.com/forum/202503/04/191436dtetrk2wwvkp2yss.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
