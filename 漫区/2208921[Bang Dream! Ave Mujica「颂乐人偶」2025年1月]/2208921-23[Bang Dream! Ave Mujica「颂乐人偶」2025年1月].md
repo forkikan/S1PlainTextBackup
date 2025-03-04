@@ -2076,3 +2076,13 @@ OP初华是最后看祥子倒下的，ED初华遥望高塔公主祥子，用脚�
 
 如果只按照这俩线索来推应该是“初华的愿望不会实现，祥子不会完全地回应她的感情”这种猜测的
 
+
+*****
+
+####  天空塔书记官  
+##### 32731#       发表于 2025-3-4 13:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
