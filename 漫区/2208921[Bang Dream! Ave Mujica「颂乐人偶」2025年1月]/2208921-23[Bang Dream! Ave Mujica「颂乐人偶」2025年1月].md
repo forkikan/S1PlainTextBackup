@@ -2146,3 +2146,40 @@ Mujica独角兽是跟到最后一集的，因为剧情过于复杂所以一直�
 
 内鬼说和对偶说还活着吗<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adretyu67.  
+##### 32738#       发表于 2025-3-4 14:28
+
+对偶不一直活着吗。各种既视感
+
+*****
+
+####  楠城旧篱  
+##### 32739#       发表于 2025-3-4 14:31
+
+<blockquote>Delicatus545 发表于 2025-3-4 14:24
+内鬼说和对偶说还活着吗</blockquote>
+放下假药吧，我什么都会做的
+
+
+*****
+
+####  aptx8285144  
+##### 32740#       发表于 2025-3-4 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67571689&amp;ptid=2208921" target="_blank">Delicatus545 发表于 2025-3-4 14:24</a>
+
+内鬼说和对偶说还活着吗</blockquote>
+内鬼说已经死的只剩下一个初华了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  久井路路  
+##### 32741#       发表于 2025-3-4 14:33
+
+内鬼说是为了圆剧情而存在的，现在圆不上了所以似了。
+
+宁愿搞崩剧情也要七话春日影十话劣化go10，对偶说分明变得更牢靠了（
+
