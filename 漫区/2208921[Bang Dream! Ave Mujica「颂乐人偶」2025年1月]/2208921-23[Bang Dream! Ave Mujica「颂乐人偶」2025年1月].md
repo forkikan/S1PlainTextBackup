@@ -2639,3 +2639,123 @@ R`Q]MK957VTAYZC5HO48OVH.jpg
 
 现在越来越信作品的最终质量有一些运气成分在了
 
+
+*****
+
+####  号为熊  
+##### 32776#       发表于 2025-3-4 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67572364&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-4 15:52</a>
+
+首先，初华是老登的烂裤裆。
+
+那句回应丰川大手，“也就是说，我的……”
+
+就是说她连称呼自己的父亲都不配 ...</blockquote>
+原文是“それじゃあ 私の……”
+
+文法有点忘了，看有人说这个それじゃあ (それでは) 描述的是结果而非原因
+
+不过现在还有一个疑点是初华是什么时候知道自己的身世的
+
+*****
+
+####  与太郎  
+##### 32777#       发表于 2025-3-4 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67572271&amp;ptid=2208921" target="_blank">结衣小比取 发表于 2025-3-4 15:42</a>
+
+顺手给坛友翻一下旧内容
+
+Ave Mujica在2024年春季就做完了</blockquote>
+有没有更明确的时间点
+
+柿本23年11月表示正在制作
+
+声优24年4月表示已录音完成（没说什么时候录完的）
+
+三次元这边的“24年春”并没有缩短范围
+
+*****
+
+####  Raven314  
+##### 32778#       发表于 2025-3-4 15:58
+
+然而看星星的时候初华换了一身小裙子了
+并不是一直穿裤子
+<img src="https://p.sda1.dev/22/349e7cf2680078ba4da839f2bf587d74/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  UNISONIA  
+##### 32779#       发表于 2025-3-4 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67572364&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-4 15:52</a>
+
+首先，初华是老登的烂裤裆。
+
+那句回应丰川大手，“也就是说，我的……”
+
+就是说她连称呼自己的父亲都不配 ...</blockquote>
+小姨这个有个地狱笑话，ED标题刚出（日本提前播前三集）的时候我跟朋友开玩笑过ED标题《Georgette Me, Georgette You》可以翻译成“让治我让治你”（海猫里让治的名字念成George，纱音实际上是让治的小姨）
+
+当时完全想不到动画正片会有真的伦理向内容
+
+*****
+
+####  6030sylar  
+##### 32780#       发表于 2025-3-4 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67572398&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-3-4 15:56</a>
+
+有没有更明确的时间点
+
+柿本23年11月表示正在制作
+
+声优24年4月表示已录音完成（没说什么时候录完的）</blockquote>
+好像记得哪里说23年8月开始配音
+
+*****
+
+####  K·os  
+##### 32781#       发表于 2025-3-4 16:00
+
+柿本做的一直都是监督的工作的，负责确定整部作品的方向，在原案时期他能做的就是和独角兽和武士道等等协调，决定了还是不要反派祥子
+
+而在ave动画制作时期，独角兽的大纲已经完成，他能做的事情是具体确定ave里到底该展开些什么东西，然后脚本团进行呈现，反复调整之后变成了我们现在看到的样子，总得来说其实没什么特别的
+
+*****
+
+####  z-hunter  
+##### 32782#       发表于 2025-3-4 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67572297&amp;ptid=2208921" target="_blank">号为熊 发表于 2025-3-4 15:45</a>
+
+其实这方面剧透6集前的时候就有了，不过当时主流社区没当回事也就在一些小圈子里流传，7集以后才大规模扩 ...</blockquote>
+哎我没说关于初华方面的剧透是7话之后才出现的啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">是我表达不清吗。。。
+
+初华那些剧透我当然知道一早就有了，不过这对于邦邦世界过于奇幻，所以没什么人信而已
+
+现在剧透中了那么多，片也烂了，很多人反而当乐子看相信这个剧透是真的了
+
+个人觉得老登私生女（小姨说，还是过于变态，至少是姐妹吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">中登的就算了吧
+
+*****
+
+####  zhoujin8584  
+##### 32783#       发表于 2025-3-4 16:01
+
+<blockquote>号为熊 发表于 2025-3-4 15:56
+原文是“それじゃあ 私の……”
+
+文法有点忘了，看有人说这个それじゃあ (それでは) 描述的是结果而非原因 ...</blockquote>
+有可能是比较雷的丰川家一年上岛一次能见老登
+
+
+*****
+
+####  非建政专用号  
+##### 32784#       发表于 2025-3-4 16:02
+
+合理，大初老师确实像个帮多利男性，没人观测就不会刷新出来的npc，也就奶龙和甜甜圈会去观测了
+
