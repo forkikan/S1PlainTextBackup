@@ -4650,3 +4650,14 @@ ave是有很多吸引人的爆点，但显然制作方没想好怎么把爆点�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  huxiaopao163  
+##### 32958#       发表于 2025-3-5 04:48
+
+有个介绍mujica在23年的解密活动的帖子，看完后感觉，难道动画里真有什么奇怪的东西在<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+
+Ave Mujica arg游戏全流程及解析 ［转载］
+[https://tieba.baidu.com/p/9545311154?pn=1](https://tieba.baidu.com/p/9545311154?pn=1)
+
