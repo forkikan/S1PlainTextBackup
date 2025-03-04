@@ -170,3 +170,13 @@
 
 顺便巫女生日给的那个礼物饰品试了下怎么动作就只是挥挥手，好朴素（
 
+
+*****
+
+####  冰风血羽  
+##### 1398#       发表于 2025-3-5 03:19
+
+就是一个抛飞吻的动作<img src="https://static.saraba1st.com/image/smiley/carton2017/430.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
