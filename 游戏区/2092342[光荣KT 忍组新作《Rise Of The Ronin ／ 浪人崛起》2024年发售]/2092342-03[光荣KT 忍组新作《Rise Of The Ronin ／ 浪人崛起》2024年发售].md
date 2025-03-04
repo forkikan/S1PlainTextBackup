@@ -79,3 +79,13 @@ PC版发售前咨询下，本作没有DLC又是开放世界，那游戏的终局
 二周目多了几个连战任务，多了几个新套装，大地图上的据点首领随机生成历史人物boss ...</blockquote>
 据点首领新增的历史人物boss全是固定分布的，除了没有aibo其他人都有安排，可以反复重置治安刷特定人的装备。
 
+
+*****
+
+####  寂长无星夜  
+##### 3400#       发表于 2025-3-4 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67567829&amp;ptid=2092342" target="_blank">ef6270 发表于 2025-3-4 01:05</a>
+DLC完全没希望了吗</blockquote>
+发售没带季票说明没有dlc计划吧
+
