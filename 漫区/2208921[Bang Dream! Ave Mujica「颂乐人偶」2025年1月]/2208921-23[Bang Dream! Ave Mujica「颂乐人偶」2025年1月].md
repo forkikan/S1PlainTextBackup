@@ -3558,3 +3558,42 @@ No！！！
 
 不如姥爷当大善人，让初华继承丰川家家业，条件是祥子要和初华在一起。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  钦念以忱  
+##### 32856#       发表于 2025-3-4 20:01
+
+祥子才是私生女感觉很好啊，快点就这样搬上来吧
+
+—— 来自 HUAWEI HLK-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  钦念以忱  
+##### 32857#       发表于 2025-3-4 20:03
+
+失去睦之后，原来祥子真的还有可以失去的，其实祥子根本不是丰川家血脉
+怎么办，我已经觉得这个就是真正的剧情了
+
+—— 来自 HUAWEI HLK-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  与太郎  
+##### 32858#       发表于 2025-3-4 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67574111&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-3-4 19:27</a>
+
+【【中字】三次元里某位女性剪辑师的配音片段-哔哩哔哩】 https://b23.tv/FbxVoG1
+
+这个流程看这里，做口 ...</blockquote>
+谢谢，不过这个讲座本身似乎没有涉及三次元当前正式配音形式有没有变化？（「アフレコ」和「プレスコ」的比例）
+
+*****
+
+####  堆雪若叶  
+##### 32859#       发表于 2025-3-4 20:05
+
+小鸟球是吧，快进到初华祥子是异父异母的亲姐妹
+
