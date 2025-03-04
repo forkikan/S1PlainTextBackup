@@ -2900,3 +2900,14 @@ KONAMI的世界级ip现在能拿多少出来？
 
 算了，编辑了
 
+
+*****
+
+####  火红之眼  
+##### 318#       发表于 2025-3-4 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67573205&amp;ptid=2090186" target="_blank">woaimiyabi 发表于 2025-3-4 17:22</a>
+
+这个设置好啊，值得别的想复刻老游戏的厂商学习。</blockquote>
+看了下预载后的1.02版本更新信息，他这个时限停止甚至是做好后才加的......
+
