@@ -3535,3 +3535,18 @@ No！！！
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  Nungesser  
+##### 32853#       发表于 2025-3-4 19:41
+
+我觉得祥子接受（按照剧透）家里的安排去国外就挺合适的。<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wwwttth  
+##### 32854#       发表于 2025-3-4 19:44
+
+按照对偶说，最后一集说不定真有人去国外呗，现在来看最适合于包饺子的话就是真奈（）
+
