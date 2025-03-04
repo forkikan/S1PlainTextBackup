@@ -3644,3 +3644,24 @@ No！！！
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  الطائر  
+##### 32865#       发表于 2025-3-4 21:26
+
+ 本帖最后由 الطائر 于 2025-3-4 21:29 编辑 
+
+按瞳色算的话，祥妈的遗物金发人偶眼睛是红色的，初华是紫色。而ED画面玻璃罩里两朵花正好是一红一紫，海铃在玻璃罩里保护的是红色的那朵。
+
+所以，有没有可能丰川家的正统继承人是在丰川家孤儿院长大的……佑天寺若麦<img src="https://static.saraba1st.com/image/smiley/carton2017/489.png" referrerpolicy="no-referrer"> 
+
+初华其实是喵梦的影武者，此事在CODE GEASS 中亦有记载 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  龙恐小  
+##### 32866#       发表于 2025-3-4 21:31
+
+假药越来越离谱了
+
