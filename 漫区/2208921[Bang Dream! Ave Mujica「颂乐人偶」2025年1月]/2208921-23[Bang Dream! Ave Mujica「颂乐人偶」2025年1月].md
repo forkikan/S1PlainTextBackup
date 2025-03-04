@@ -4569,3 +4569,32 @@ ave是有很多吸引人的爆点，但显然制作方没想好怎么把爆点�
 —— 来 ...</blockquote>
 虽然访谈好像已经暴露了制作组实力不足，但我还是打算等完结了再评价。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  huxiaopao163  
+##### 32950#       发表于 2025-3-5 01:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67576154&amp;ptid=2208921" target="_blank">ArcadiaMartyr 发表于 2025-3-5 01:08</a>
+
+还信个毛，信mujica会峰回路转成为正常作品，不如信我是秦始皇
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+我觉得我还算好的了，你看看官号最新动态下面的评论，已经陷入某种癫狂的状态了
+
+感觉就算13集故事普普通通演完了，也能被大家套入某种神秘主义的设定，构建一套完整的逻辑出来
+
+所以mujica这个故事最大的问题其实是什么东西都说得太直白了，你要是像祥子一样把故事说得神神叨叨一点，大伙儿都更好帮你说话哈哈
+
+*****
+
+####  thisisaspider  
+##### 32951#       发表于 2025-3-5 01:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67576169&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-3-5 01:14</a>
+
+我觉得我还算好的了，你看看官号最新动态下面的评论，已经陷入某种癫狂的状态了
+
+感觉就算13集故事普普通 ...</blockquote>
+没事，访谈会打他们脸<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
