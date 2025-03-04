@@ -3095,3 +3095,62 @@ Ave Mujica在2024年春季就做完了</blockquote>
 灯外冷内热，平时只会企鹅咕哝但内心包含 ...</blockquote>
 这题我会，是对偶！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 32813#       发表于 2025-3-4 17:38
+
+ 本帖最后由 aptx8285144 于 2025-3-4 17:41 编辑 
+<blockquote>金钱与民主 发表于 2025-3-4 17:00
+这种堆砌过于恶心人了……这可是CV表第一名啊，他们怎么敢的。
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+连续两话没有任何台词，紧接着那一话(第八话)也是台词少得可怜的CV表第一人也应该是邦邦历史首次吧<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  K·os  
+##### 32814#       发表于 2025-3-4 17:41
+
+ksm就算整集剧情和她一点没关系，她也在cv表首位的
+本质是一种番位
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  adretyu67.  
+##### 32815#       发表于 2025-3-4 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67573350&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-4 17:38</a>
+
+连续两话没有任何台词，紧接着那一话(上周)也是台词少得可怜的CV表第一人也应该是邦邦历史首次吧，放在整 ...</blockquote>
+bang2季的时候经常别的团主场ppp蹭场但是结局CV表还是ppp第一。
+
+但是鸡团主唱是路边过头了。
+
+
+*****
+
+####  影伴光生  
+##### 32816#       发表于 2025-3-4 17:43
+
+初华这角色作为少女乐队动画里主唱的塑造已经是前无古人的程度了吧，就算是影子主角，好歹得像mygo里祥子那样存在感爆棚的感觉才对
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  6030sylar  
+##### 32817#       发表于 2025-3-4 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67572865&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-3-4 16:48</a>
+有信源吗，之前也看到有个23年9月采访提了一些配音中的趣事，后来我发现没说是MyGO还是mujica的事，最后 ...</blockquote>
+记得是24年武士道大会后公布了25年1月才播后，全网一片呜呼，都觉得武士道是不是才新建文件夹，然后哪期bangtv，梦以还是茜姨说大概8，9月就开始配音了，来稳定人心
+再后来三次元那边出了个做3D动画的访谈，举了邦动画做例子，他们动画是先做得差不多了才进配音，大家才知道鸡动画早就做完了，硬拖一年
+
+具体哪期我再找找
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
