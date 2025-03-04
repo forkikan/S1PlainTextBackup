@@ -4084,3 +4084,83 @@ ave原始阵容的强度难道不主要就是拼爹吗，祥子就不说了，�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  ddy2811  
+##### 32905#       发表于 2025-3-4 23:34
+
+当祥子被证明是真的稀里糊涂地在外面浪了一年以后，她就不配和老登对打了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  影伴光生  
+##### 32906#       发表于 2025-3-4 23:34
+
+事已至此，希望ep10情绪流和live能做好点，总不能让人再看得难受吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  6030sylar  
+##### 32907#       发表于 2025-3-4 23:35
+
+<img src="https://img.saraba1st.com/forum/202503/04/233421bfrtothtz8laflx8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (182.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-4 23:34 上传
+
+<img src="https://img.saraba1st.com/forum/202503/04/233432deeaeclsaosx7zcy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (161.56 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-4 23:34 上传
+
+*****
+
+####  adretyu67.  
+##### 32908#       发表于 2025-3-4 23:36
+
+蓝冰晚期患者
+
+
+*****
+
+####  K·os  
+##### 32909#       发表于 2025-3-4 23:43
+
+祥子再怎么数值怪她也没法和老登对打啊
+
+你要说物理对打那祥子肯定打十次赢十次就是了
+
+*****
+
+####  南宮凝香  
+##### 32910#       发表于 2025-3-4 23:43
+
+雞超胖的問題是連負責領歌的人也沒有
+
+總不能讓海子來吧
+
+*****
+
+####  thisisaspider  
+##### 32911#       发表于 2025-3-4 23:45
+
+看楼友既觉得编剧写的烂又引用编剧的话。感觉已经被编剧套进去了。
+
+是只看自己想看的东西，还是多首的怪物呢。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 32912#       发表于 2025-3-4 23:45
+
+硬要说只有初华，不过路边成那样很没有说服力就是了
+
