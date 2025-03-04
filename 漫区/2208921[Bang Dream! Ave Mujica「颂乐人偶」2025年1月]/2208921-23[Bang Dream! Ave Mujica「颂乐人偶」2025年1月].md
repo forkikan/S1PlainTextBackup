@@ -3522,3 +3522,16 @@ No！！！
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  6030sylar  
+##### 32852#       发表于 2025-3-4 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67573976&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-3-4 19:05</a>
+我搜了下，三次元的流程是「プレスコ」(pre-scoring)为主，也就是先配音再做动画，说是因为3D动画有了音轨 ...</blockquote>
+【【中字】三次元里某位女性剪辑师的配音片段-哔哩哔哩】 https://b23.tv/FbxVoG1
+这个流程看这里
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
