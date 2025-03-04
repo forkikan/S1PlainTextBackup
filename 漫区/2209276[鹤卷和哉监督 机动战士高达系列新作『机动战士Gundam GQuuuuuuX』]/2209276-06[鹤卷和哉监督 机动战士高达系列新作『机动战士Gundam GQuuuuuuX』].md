@@ -7698,3 +7698,11 @@ NT频道名额永远只有两个人的鸭子
 
 这样看开泽克诺瓦条件应该跟nt能力强弱无关吧
 
+
+*****
+
+####  猪突猛进R  
+##### 8027#       发表于 2025-3-5 00:16
+
+所罗门冲击是沙仑玫瑰发动的啊，鸭子是被害者<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
