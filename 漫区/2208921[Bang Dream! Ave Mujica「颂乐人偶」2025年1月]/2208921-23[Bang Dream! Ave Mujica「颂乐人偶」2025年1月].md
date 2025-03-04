@@ -1081,3 +1081,50 @@ mujica解散后失去归属的祥子，于消沉之中断绝了和伙伴及事�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">捏个双重人格没多大问题，问题是你捏完得塞回去啊，不然白成长了
 
+
+*****
+
+####  595505568  
+##### 32645#       发表于 2025-3-4 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67569572&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-3-4 10:03</a>
+柿本明确说了他自己想出双重人格这个设定的</blockquote>
+监督想出来了以后，就是编剧 系构 监督都要想办法了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  GBLMikuHatsune  
+##### 32646#       发表于 2025-3-4 10:39
+
+其实我一直觉得双重人格并不需要真的拉出来讲，完全作为睦的内心剧场中的角色可能就够了。虽然因为这样无法让牢莫接管身体并且和其他角色产生互动，但是也不会挤占睦本身的塑造空间。
+
+现在这样，牢莫要怎么收尾呢？包个自我感动然后甘心融合人格的烂饺子，那这么多牢莫的篇幅不就一点意义都没有了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+还不如让“内心人格和想法丰富”作为睦的特色之一保持下去，放到游戏里以后还能造梗
+
+
+*****
+
+####  syndrome2032  
+##### 32647#       发表于 2025-3-4 10:43
+
+我倒是觉得莫大概是以后只能活在鸡团舞台上的精灵，正常状态还是睦。
+
+正常和解的话，莫这种对外的设计在人际方面很难不完全代替睦的形象。
+
+*****
+
+####  huxiaopao163  
+##### 32648#       发表于 2025-3-4 10:43
+
+就让mortis怀着愧疚表演一辈子睦吧，这样也算是一种融合<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lyzers  
+##### 32649#       发表于 2025-3-4 10:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只是要代睦头抽祥子让其他人做不也行吗，真的有在乐队动画里塞多重人格这种设定的必要吗
+
+实际上现在就算小莫出来了，到最后真的解决睦祥问题的也还是C团几个人拉一起唱大戏而已
+
