@@ -3154,3 +3154,69 @@ bang2季的时候经常别的团主场ppp蹭场但是结局CV表还是ppp第一�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  huxiaopao163  
+##### 32818#       发表于 2025-3-4 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67573007&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-4 17:02</a>
+
+话说第8集把去KTV部分改成，睦头拉着祥子一起去钢琴房，祥子弹钢琴，睦头弹吉他，结果祥子完全弹不出钢琴（ ...</blockquote>
+但复活这件事谁具体来做呢，还是祥子去联系灯和爱音吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 32819#       发表于 2025-3-4 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67573398&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-3-4 17:46</a>
+
+但复活这件事谁具体来做呢，还是祥子去联系灯和爱音吗</blockquote>
+就是把KTV剧情改了吧。后面照旧
+
+*****
+
+####  hitori酱  
+##### 32820#       发表于 2025-3-4 17:49
+
+X上一个暴言吐槽mujica的太君（怀疑也不是太君但是他说自己不是中国人）
+[https://x.com/suisei1002](https://x.com/suisei1002)
+
+如果真的是日本人，我第一次觉得日本宅男也有正常人<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202503/04/174702qtza9c8wulu0lrlz.png" referrerpolicy="no-referrer">
+
+<strong>截屏2025-03-04 17.46.22.png</strong> (119.11 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-4 17:47 上传
+
+<img src="https://img.saraba1st.com/forum/202503/04/174858s6sfssj63isjr0so.png" referrerpolicy="no-referrer">
+
+<strong>截屏2025-03-04 17.48.47.png</strong> (118.64 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-4 17:48 上传
+
+*****
+
+####  南宮凝香  
+##### 32821#       发表于 2025-3-4 17:51
+
+說不定豐川家的黑暗是指中登喜當爹
+
+祥媽跟三角爸才是爛褲檔
+
+
+*****
+
+####  adretyu67.  
+##### 32822#       发表于 2025-3-4 17:54
+
+祥子应该是少数发色对不上父母的角色吧。
+
+你说大祥老师才是中登喜当爹产物比较可能
+
