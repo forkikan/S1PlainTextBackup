@@ -68,3 +68,14 @@ PC版发售前咨询下，本作没有DLC又是开放世界，那游戏的终局
 忍者组的游戏在终局只玩过仁 ...</blockquote>
 终局内容很少，比起卧龙都差很多，浪人就是一周目制作更精良内容更丰富但二周目更寡淡rpg很薄弱的卧龙
 
+
+*****
+
+####  千里孤坟  
+##### 3399#       发表于 2025-3-4 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67566076&amp;ptid=2092342" target="_blank">Gigax 发表于 2025-3-3 19:17</a>
+
+二周目多了几个连战任务，多了几个新套装，大地图上的据点首领随机生成历史人物boss ...</blockquote>
+据点首领新增的历史人物boss全是固定分布的，除了没有aibo其他人都有安排，可以反复重置治安刷特定人的装备。
+
