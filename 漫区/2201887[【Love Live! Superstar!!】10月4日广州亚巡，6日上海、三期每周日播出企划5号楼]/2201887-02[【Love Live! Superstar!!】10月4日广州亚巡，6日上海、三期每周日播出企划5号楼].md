@@ -57,3 +57,15 @@
 
 鱼会用千早爱音表情包回怼（
 
+
+*****
+
+####  csolfans  
+##### 1524#       发表于 2025-3-4 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67571212&amp;ptid=2201887" target="_blank">ads147147 发表于 2025-3-4 13:12</a>
+鱼会用千早爱音表情包回怼（</blockquote>
+啥？真假？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
