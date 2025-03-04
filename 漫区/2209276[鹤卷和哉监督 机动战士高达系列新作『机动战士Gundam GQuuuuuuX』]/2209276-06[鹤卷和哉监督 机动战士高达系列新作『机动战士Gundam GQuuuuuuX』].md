@@ -7672,3 +7672,13 @@ https://bbs.saraba1st.com/2b/for ... 209276&amp;pid=67336847
 
 <img src="https://img.saraba1st.com/forum/202503/04/220053wjpr78607rhv687j.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  az一串字母  
+##### 8024#       发表于 2025-3-4 22:13
+
+<blockquote>纪寞 发表于 2025-3-4 22:01
+这里红高达擦过木马，之前就觉得奇怪，为什么藏匿地就在同一个殖民卫星的红高达要专门过来木马这边，来木马 ...</blockquote>
+鸭子的nt能力这么弱，还是先把自己的频道多加几个人吧，GQ世界线的鸭子怀疑频道里从只有拉拉和阿姆罗变成只有夏利亚和牢修
+
