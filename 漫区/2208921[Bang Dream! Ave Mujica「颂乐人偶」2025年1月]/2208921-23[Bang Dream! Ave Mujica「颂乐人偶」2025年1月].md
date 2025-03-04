@@ -2485,3 +2485,81 @@ R`Q]MK957VTAYZC5HO48OVH.jpg
 
 你看逻辑上是说得通的呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  HereLink  
+##### 32765#       发表于 2025-3-4 15:37
+
+<img src="https://img.saraba1st.com/forum/202503/04/153707kecdxqxcdffcinrr.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20250304_152953.jpg</strong> (324.72 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-4 15:37 上传
+
+
+*****
+
+####  结衣小比取  
+##### 32766#       发表于 2025-3-4 15:42
+
+顺手给坛友翻一下旧内容
+
+<strong>Ave Mujica在2024年春季就做完了</strong>
+[https://realsound.jp/movie/2024/10/post-1814313_2.html](https://realsound.jp/movie/2024/10/post-1814313_2.html) <blockquote>――『劇場版MyGO!!!!!』の後、2025年1月にはTVアニメ『BanG Dream! Ave Mujica』（以下、『Ave Mujic』）が放送予定です。
+<strong>——剧场版「BanG Dream! It's MyGO!!!!!」上映后，2025年1月还将播出TV动画『BanG Dream! Ave Mujica』（以下简称『Ave Mujica』）。</strong>
+
+松浦：2024年の春にはもう完成しています。『MyGO!!!!!』から続けて制作していました。視聴者に物足りないと思われないような内容になっています。僕はもう3回くらい観ましたけど、すごくいいです。中毒になります。
+<strong>松浦：2024年春天就已经完成了。是从『MyGO!!!!!』开始就一直在制作的。内容不会让观众感到不满足。我已经看了三遍，非常精彩，令人上瘾。</strong>
+――『Ave Mujica』の放送は『バンドリ！』10年目にあたるのですが、それに恥じない内容であると。
+<strong>——『Ave Mujica』的播出正值『BanG Dream!』十周年，你认为它能够与这个里程碑相匹配吗？</strong>
+
+松浦：もちろん、面白さはいつでも更新していきたいと思っていますから。
+<strong>松浦：当然了，我们一直希望不断提升作品的趣味性。</strong></blockquote>
+
+<img src="https://img.saraba1st.com/forum/202503/04/154207guahaet2j5k52hhk.jpg" referrerpolicy="no-referrer">
+
+<strong>CsPckbi.jpg</strong> (228.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-4 15:42 上传
+
+<img src="https://img.saraba1st.com/forum/202503/04/154208ef5qlj5o4qssv6cz.png" referrerpolicy="no-referrer">
+
+<strong>7d591d56f249e4424f1cb1715f0e7280215239900.png</strong> (456.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-4 15:42 上传
+
+*****
+
+####  号为熊  
+##### 32767#       发表于 2025-3-4 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67572170&amp;ptid=2208921" target="_blank">z-hunter 发表于 2025-3-4 15:28</a>
+
+我单指“祥子会再次重组C团，素希拒绝，灯犹豫”这个剧透是在7话之后出现，当时的背景就是狗团塌房了，狗 ...</blockquote>
+其实这方面剧透6集前的时候就有了，不过当时主流社区没当回事也就在一些小圈子里流传，7集以后才大规模扩散
+
+初华私生女说白了就是邦邦里面从来没出现过这种家庭环境的角色。就我个人和接触到的纯良观众而言，这个设定真正让人破防的地方就是她是老登的女儿，第十集喵梦要带着初华开盒祥子可能会给一些相关暗示
+
+*****
+
+####  结衣小比取  
+##### 32768#       发表于 2025-3-4 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67572241&amp;ptid=2208921" target="_blank">HereLink 发表于 2025-3-4 15:37</a></blockquote>
+只有右边在脸红，祥子应该没说过那种话
+
+<img src="https://img.saraba1st.com/forum/202503/04/154410k18npir5zfb8ojzm.jpg" referrerpolicy="no-referrer">
+
+<strong>右边脸红.jpg</strong> (127.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-4 15:44 上传
+
