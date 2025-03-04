@@ -1739,3 +1739,51 @@ AM全员能去丰川家的府邸集合，这财阀还斗不斗了？</blockquote
 
 德米安是主人公辛克莱小时候被霸凌之后幻想出来的理想自己，是相当于主人公好友和导师的第二人格
 
+
+*****
+
+####  与太郎  
+##### 32700#       发表于 2025-3-4 12:09
+
+<img src="https://img.saraba1st.com/forum/202503/04/120743cmh2obym6hd3etby.jpg" referrerpolicy="no-referrer">
+
+<strong>XUALJkgt_400x400.jpg</strong> (18.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-4 12:07 上传
+
+<img src="https://img.saraba1st.com/forum/202503/04/120743bz4nnwawavawavub.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20250304120554.jpg</strong> (37.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-4 12:07 上传
+
+人は亀のように自分自身の中に完全にもぐりこまなければならぬ
+
+独角兽，你还是德米安啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 32701#       发表于 2025-3-4 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67570556&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-4 11:54</a>
+从镜像双子的角度去理解，哪怕祥子搞砸了一切成为了中登一样的逃避烂人，也会有老登大手给她兜底，也会有 ...</blockquote>
+这解说得建立在初华有足够戏份的基础上，才能与祥子产生对应对比
+现在初华戏份少到“你哪位啊”的程度观众只能表示“哎呀，好可怜啊”稍微同情一下
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  zhoujin8584  
+##### 32702#       发表于 2025-3-4 12:13
+
+<blockquote>ntrntr1 发表于 2025-3-4 12:01
+然后神人编剧表现：看起来只是被星宇蒙蔽了双眼</blockquote>
+如果初华永远得不到这些，那就让祥子放弃这一切选择初华，目前来看是这样的解法
+
