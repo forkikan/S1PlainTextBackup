@@ -1859,3 +1859,55 @@ NGA死海古卷说初华只想要祥子来着
 
 我不明白，花了最多篇幅的内容，为什么要设计成这样。
 
+
+*****
+
+####  ape-apple  
+##### 32709#       发表于 2025-3-4 12:41
+
+OP初华是最后看祥子倒下的，ED初华遥望高塔公主祥子，用脚后跟想也知道这一季CP本就应该是初祥主流，但成片真就出了奇迹
+
+*****
+
+####  zhoujin8584  
+##### 32710#       发表于 2025-3-4 12:42
+
+<blockquote>号为熊 发表于 2025-3-4 12:33
+NGA死海古卷说初华只想要祥子来着
+
+另外只看一张图感觉也不好说初华在这里抱臂的原因是什么吧？印象中她一 ...</blockquote>
+所以初祥不只有镜像双子这一层。
+
+初华天降青梅的身份也是偷来的——劣等感。
+
+加上她本来又渴望祥子。套三层
+
+*****
+
+####  Skymoon  
+##### 32711#       发表于 2025-3-4 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67570881&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-4 12:33</a>
+木箱CP真的是完蛋了，成了一个没有起因，只有过程，没有结尾的CP。
+
+大家畅享的童年回忆，访谈钦定没什么 ...</blockquote>
+起因在访谈里，结束也在访谈里，睦祥就是访谈战神<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zhoujin8584  
+##### 32712#       发表于 2025-3-4 12:44
+
+唯一不牢靠的是，他这样堆砌人设花3集讲完……
+
+*****
+
+####  龙恐小  
+##### 32713#       发表于 2025-3-4 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67570381&amp;ptid=2208921" target="_blank">z-hunter 发表于 2025-3-4 11:33</a>
+
+初华私生女基本是确定的了，这也和后面有Mujica斗丰川财阀和祥子追妻的剧情（虽然这些都是剧透，但逻辑上 ...</blockquote>
+第四集播出后相关剧透就有了
+
