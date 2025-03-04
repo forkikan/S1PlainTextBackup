@@ -69,3 +69,18 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  ads147147  
+##### 1525#       发表于 2025-3-4 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67571632&amp;ptid=2201887" target="_blank">csolfans 发表于 2025-3-4 14:16</a>
+
+啥？真假？
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+打趣的说法。
+
+不过不好说鱼这个混b站的不会用这个梗。。
+
