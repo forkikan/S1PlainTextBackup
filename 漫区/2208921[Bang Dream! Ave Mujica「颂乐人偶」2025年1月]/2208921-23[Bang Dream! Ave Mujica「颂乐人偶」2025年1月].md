@@ -3313,3 +3313,24 @@ X上一个暴言吐槽mujica的太君（怀疑也不是太君但是他说自己�
 狗10话唱完就是两面素姐交枪表示忠诚了 ...</blockquote>
 狗10是铺垫得很好的，鸡10前面是一地鸡毛，做得再好也不会有那个效果了
 
+
+*****
+
+####  小博禹  
+##### 32832#       发表于 2025-3-4 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67573658&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-3-4 18:23</a>
+这不是高光这是圣人了，没能力的入赘的fw劈腿都可以原谅也太变态了，而且这完全丧失了移除大手的能力，祥 ...</blockquote>
+隔壁百综说的挺有道理的，祥子可以当个反派<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+反正已经垫了这么多人，再垫给老登也没啥吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wwwttth  
+##### 32833#       发表于 2025-3-4 18:33
+
+祥子是私生子的话意思是祥妈出轨还是祥妈和老登乱伦？无论哪个方向都太变态了
+
