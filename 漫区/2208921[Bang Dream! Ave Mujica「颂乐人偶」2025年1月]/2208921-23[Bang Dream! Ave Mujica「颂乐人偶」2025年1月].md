@@ -2759,3 +2759,20 @@ Ave Mujica在2024年春季就做完了</blockquote>
 
 合理，大初老师确实像个帮多利男性，没人观测就不会刷新出来的npc，也就奶龙和甜甜圈会去观测了
 
+
+*****
+
+####  一心而用  
+##### 32785#       发表于 2025-3-4 16:08
+
+目前已回收的OP画面
+<img src="https://p.sda1.dev/22/531367da1371bd020816fdbfb39b7b78/006ffQwAgy1hz4zdo8hbyj30om1jkju0.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/aa90b57060ba687fbe5f712e369f0c62/006ffQwAgy1hz4zdsa8z5j30pi1jkgnu.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 32786#       发表于 2025-3-4 16:10
+
+漏油越说初华越卑微了，就差模型不是路人了
+
