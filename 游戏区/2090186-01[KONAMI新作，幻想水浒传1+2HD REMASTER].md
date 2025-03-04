@@ -2881,3 +2881,14 @@ KONAMI的世界级ip现在能拿多少出来？
 
 之前不是说科乐美出IP，游戏是紫龙制作，不过后面谈崩了，原来是科乐美自己下场了啊
 
+
+*****
+
+####  woaimiyabi  
+##### 316#       发表于 2025-3-4 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67571056&amp;ptid=2090186" target="_blank">火红之眼 发表于 2025-3-4 12:51</a>
+
+『幻想水滸伝I＆II』リマスター版に“イベントタイマーの停止機能”追加。クライブイベントが見やすくなり ...</blockquote>
+这个设置好啊，值得别的想复刻老游戏的厂商学习。
+
