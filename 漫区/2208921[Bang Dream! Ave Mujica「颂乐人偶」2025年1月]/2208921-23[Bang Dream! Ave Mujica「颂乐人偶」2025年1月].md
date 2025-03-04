@@ -1828,3 +1828,34 @@ AM全员能去丰川家的府邸集合，这财阀还斗不斗了？</blockquote
 
 —— 来自 Xiaomi 24129PN74C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  号为熊  
+##### 32707#       发表于 2025-3-4 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67570556&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-4 11:54</a>
+
+从镜像双子的角度去理解，哪怕祥子搞砸了一切成为了中登一样的逃避烂人，也会有老登大手给她兜底，也会有 ...</blockquote>
+NGA死海古卷说初华只想要祥子来着
+
+另外只看一张图感觉也不好说初华在这里抱臂的原因是什么吧？印象中她一直是不太敢主动去接近祥子的那种类型
+
+也不知道她什么时候知道自己的身世的
+
+*****
+
+####  钦念以忱  
+##### 32708#       发表于 2025-3-4 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67570428&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-4 11:37</a>
+
+很多演出上刻意的拆线，比如说祥子永远不可能在睦家过夜。
+
+连和好之后帮睦做病情复健也要塞台词镜头说明 ...</blockquote>
+木箱CP真的是完蛋了，成了一个没有起因，只有过程，没有结尾的CP。
+
+大家畅享的童年回忆，访谈钦定没什么特殊内容；现在木箱平时连合奏都没有，那睦头的吉他也和祥子关系不大了；而下一话看起来就要收尾，去讲初华小姨了。
+
+我不明白，花了最多篇幅的内容，为什么要设计成这样。
+
