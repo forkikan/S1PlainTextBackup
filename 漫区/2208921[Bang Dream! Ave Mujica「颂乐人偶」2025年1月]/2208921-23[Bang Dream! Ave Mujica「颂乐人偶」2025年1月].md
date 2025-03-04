@@ -4661,3 +4661,186 @@ ave是有很多吸引人的爆点，但显然制作方没想好怎么把爆点�
 Ave Mujica arg游戏全流程及解析 ［转载］
 [https://tieba.baidu.com/p/9545311154?pn=1](https://tieba.baidu.com/p/9545311154?pn=1)
 
+
+*****
+
+####  zhoujin8584  
+##### 32959#       发表于 2025-3-5 00:48
+
+三角初华，她处处是下位的劣等替代品，也处处成为虚假物。奄美渡口初相遇，一见祥子误终身。想要靠近，却只能假借青梅的身份得到几句寒暄。人造的华灯初上的偶遇与点拨，不过是让祥子再回不到旧人处，自己方能做祥子的人偶词作。乐队的聚散总是匆匆，祥子对一只猫的告白都比对自己深情，却也只能以工作为借口同居，也被工作隔绝了心灵。唯一一次贴近，依旧是戴上了祥子的社交款青梅的伪面，明明成功了，却好像更远了。而又再度孤身一人的自己紧抱着那些残存的回忆的样子，被所有人视而不见，明明已经被巨大的不配得感笼罩，最后还要被祥子的半身宣判只是有几分像纯元。重组Ave Mujica的请求反被提醒自己不过是个上不了台面的私生子，靠着给sumimi作曲才有这几分薄幸，怎敢妄想与曜日同辉。
+
+爱恨交织。祥子唾手可得的一切，都是自己连做梦都不敢想象的妄念。能够生活在丰川大宅里，能够堂堂正正的称呼和修正自己的父亲，甚至自己的亲生父亲也天天念叨着让她做女儿。祥子从不需要创造什么价值，哪怕闯了祸，也被无条件地爱着。
+
+而这万般苦中一点甜，是祥子也不想要这些东西。我无法向前一步，而你甘愿放弃一切跨越山海向我走来。过去卑劣的一切，将在无限延伸的未来里得到圆满，就像恒星的光芒会在宇宙中穿梭数亿万光年，在永夜中长存。
+
+*****
+
+####  zhzij111  
+##### 32960#       发表于 2025-3-5 00:51
+
+ 本帖最后由 zhzij111 于 2025-3-5 00:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67575928&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-5 00:20</a>
+一边不认同编剧的叙事逻辑，一边沿着编剧的故事在讲老登的故事。而且讨论的东西非常边角料。
+
+类似刚开播一 ...</blockquote>
+搞得跟母鸡卡有什么东西是值得讨论的一样，精神病搞笑番所有剧情图个乐罢了，老登也是乐的一环<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  天空塔书记官  
+##### 32961#       发表于 2025-3-5 00:52
+
+ave是有很多吸引人的爆点，但显然制作方没想好怎么把爆点整合进演出叙事，各个元素缺乏内在的逻辑联系，基本只能算为爆而爆，空有炒作噱头，但没有足够强烈的故事内核，实在难当“最狂”之名
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  山ノ内花音  
+##### 32962#       发表于 2025-3-5 00:54
+
+在10本和wsd看来 老登肯定是好人 主角肯定是坏人
+一开始屁股就是歪的
+让他们写llx 就变成了蛋卷肯定是大好人 只是烂个裤裆 而llx是畜生<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  huxiaopao163  
+##### 32963#       发表于 2025-3-5 01:01
+
+ 本帖最后由 huxiaopao163 于 2025-3-5 01:20 编辑 
+
+我还是相信着故事的最后会通过揭示谜底的形式把前面故事的逻辑串联起来
+
+就类似命运石之门通过揭示时空穿越的世界观设定，以及sern的大手，将前面古怪但细节满满的剧情串联起来。
+
+这次也有mujica的世界观设定，和丰川的大手哈哈
+
+只是似乎没有时间写揭示谜底之后的剧情了，这样真的好吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArcadiaMartyr  
+##### 32964#       发表于 2025-3-5 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67576124&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-3-5 01:01</a>
+我还是相信着故事的最后会通过揭示谜底的形式把前面故事的逻辑串联起来
+
+就类似命运石之门通过揭示时空穿越 ...</blockquote>
+还信个毛，信mujica会峰回路转成为正常作品，不如信我是秦始皇
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  thisisaspider  
+##### 32965#       发表于 2025-3-5 01:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67576073&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-3-5 00:51</a>
+
+搞得跟母鸡卡有什么东西是值得讨论的一样，精神病搞笑番所有剧情图个乐罢了，老登也是乐的一环
+
+—— 来 ...</blockquote>
+虽然访谈好像已经暴露了制作组实力不足，但我还是打算等完结了再评价。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  huxiaopao163  
+##### 32966#       发表于 2025-3-5 01:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67576154&amp;ptid=2208921" target="_blank">ArcadiaMartyr 发表于 2025-3-5 01:08</a>
+
+还信个毛，信mujica会峰回路转成为正常作品，不如信我是秦始皇
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+我觉得我还算好的了，你看看官号最新动态下面的评论，已经陷入某种癫狂的状态了
+
+感觉就算13集故事普普通通演完了，也能被大家套入某种神秘主义的设定，构建一套完整的逻辑出来
+
+所以mujica这个故事最大的问题其实是什么东西都说得太直白了，你要是像祥子一样把故事说得神神叨叨一点，大伙儿都更好帮你说话哈哈
+
+*****
+
+####  thisisaspider  
+##### 32967#       发表于 2025-3-5 01:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67576169&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-3-5 01:14</a>
+
+我觉得我还算好的了，你看看官号最新动态下面的评论，已经陷入某种癫狂的状态了
+
+感觉就算13集故事普普通 ...</blockquote>
+没事，访谈会打他们脸<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DeltaStriker  
+##### 32968#       发表于 2025-3-5 01:25
+
+说到llx就想起来一个观点 就是剧本整体走向是制作人竹田青滋把控的 没这位大河内的剧本…… emmmm
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  烂片雷达  
+##### 32969#       发表于 2025-3-5 01:33
+
+看似凌乱破碎的故事、人物捉摸不定的行动其实是武士道布下的谜题，只有看懂这个谜题的人才能领悟到少女乐队二十年来的终极答案
+
+没有爱就只能看到烂片，有了爱才能真正看清这其中蕴含了多么伟大的精神内核<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wwwttth  
+##### 32970#       发表于 2025-3-5 02:25
+
+没有爱就看不见是吧，海猫还在追我
+
+*****
+
+####  huxiaopao163  
+##### 32971#       发表于 2025-3-5 02:34
+
+说到海猫的话，女主既是多重人格，又是小姨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wwwttth  
+##### 32972#       发表于 2025-3-5 02:48
+
+说实话剧本的最大问题还是不够狂，我一直以为描写丰满的恶人＞描写丰满的好人＞足够疯狂的恶人＞普通描写的角色＞路边一条狗＞毫无逻辑的神人。你就是没能力在叙事上狂一点你人物写癫一点也更好啊，比如睦头拿自杀胁迫祥子重组ccc，祥子当众下跪求灯复刻飞鸟山，初华真的把睦推下台阶，真奈在背后露出一副幕后黑手的表情啥的。
+
+*****
+
+####  ntrntr1  
+##### 32973#       发表于 2025-3-5 04:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  huxiaopao163  
+##### 32974#       发表于 2025-3-5 04:48
+
+有个介绍mujica在23年的解密活动的帖子，看完后感觉，难道动画里真有什么奇怪的东西在<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+
+Ave Mujica arg游戏全流程及解析 ［转载］
+[https://tieba.baidu.com/p/9545311154?pn=1](https://tieba.baidu.com/p/9545311154?pn=1)
+
+*****
+
+####  玖羽  
+##### 32975#       发表于 2025-3-5 06:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67575792&amp;ptid=2208921" target="_blank">K·os 发表于 2025-3-4 23:56</a>
+
+这就带来了第二个问题，ave的定位基本上不允许出现“不精致”的live，和学生乐队一样一群人乐器一拿随地开 ...</blockquote>
+你忘了一个设定，那个面具能篡改观众的认知<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 
+
+到时候只要戴面具就没人知道谁是谁了，还能呼应戴面具<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 
+
