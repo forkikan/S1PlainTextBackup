@@ -3837,3 +3837,34 @@ ave1.0的最大隐患就是睦不能见光，莫来不来顶号，反正睦的�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  aptx8285144  
+##### 32881#       发表于 2025-3-4 22:58
+
+ 本帖最后由 aptx8285144 于 2025-3-4 22:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67575433&amp;ptid=2208921" target="_blank">K·os 发表于 2025-3-4 22:52</a>
+
+ave1.0的最大隐患就是睦不能见光，莫来不来顶号，反正睦的状态是每况愈下，到达一定程度的时候就会引发大矛 ...</blockquote>
+更为重要的是，母鸡卡内部没有一个能缝合关系的调节者，没有人符合条件，因此就算退一步而言，强行把寿司包起来了，以后不用编辑的大手强行按住，再炸一次依然是不小的概率，一群神人组团想长久（哪怕只是一年）并不容易，而且说到底这并不是宇宙求生或者外部有强大敌人的环境，指望五个里面有三个非富即贵的有强烈危机意识也挺难的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  K·os  
+##### 32882#       发表于 2025-3-4 23:02
+
+我们关系不好的乐队是这样的，随时会爆炸，我们2.5企划才有的写对吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  DeltaStriker  
+##### 32883#       发表于 2025-3-4 23:03
+
+这个问题把初华换mana就能解决 但是换不了.jpg
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
