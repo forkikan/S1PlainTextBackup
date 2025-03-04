@@ -56,3 +56,15 @@ DLC完全没希望了吗<img src="https://static.saraba1st.com/image/smiley/face
 
 卧龙现在的体验，一周目去左慈那里买一把带跳劈的长剑，然后一路用到拿当仁，当战技发射器就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  桥洞底下盖小被  
+##### 3398#       发表于 2025-3-4 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67566004&amp;ptid=2092342" target="_blank">匿名用户 发表于 2025-3-3 19:05</a>
+PC版发售前咨询下，本作没有DLC又是开放世界，那游戏的终局内容是什么样的？
+
+忍者组的游戏在终局只玩过仁 ...</blockquote>
+终局内容很少，比起卧龙都差很多，浪人就是一周目制作更精良内容更丰富但二周目更寡淡rpg很薄弱的卧龙
+
