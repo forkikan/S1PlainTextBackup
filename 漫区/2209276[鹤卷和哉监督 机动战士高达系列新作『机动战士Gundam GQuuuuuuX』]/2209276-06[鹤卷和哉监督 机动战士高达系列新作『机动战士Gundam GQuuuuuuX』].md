@@ -7559,3 +7559,59 @@ IMG_0165.jpeg
 
 不知道什么时候下映，23号的anime japan应该是给tv做宣传？
 
+
+*****
+
+####  燃烧的石头  
+##### 8018#       发表于 2025-3-4 20:56
+
+米哈尔死了之后，凯爷在加布罗出击那一段帅死了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  岸浪白野  
+##### 8019#       发表于 2025-3-4 20:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67574464&amp;ptid=2209276" target="_blank">kuriri 发表于 2025-3-4 20:24</a>
+
+哇我还以为有关内容我都看过了，这个访谈哪里有啊</blockquote>
+[https://bbs.saraba1st.com/2b/for ... 76&amp;pid=67336847](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=2209276&amp;pid=67336847)
+
+从这里开始爬楼，我这个是第2场的
+
+2月2号有2场舞台访谈，本来2场都是只能看repo，就第1场的内容最近月刊Gundam Ace上有发出来
+
+<img src="https://img.saraba1st.com/forum/202503/04/205655cqqaq9ez5z0mkh79.jpg" referrerpolicy="no-referrer">
+
+<strong>006SCGqIgy1hyx8v43486j319k1tk1kz.jpg</strong> (704 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-4 20:56 上传
+
+<img src="https://img.saraba1st.com/forum/202503/04/205702icgzvavch7h5cc1z.jpg" referrerpolicy="no-referrer">
+
+<strong>006SCGqIgy1hyx8v6np9gj319k1tke83.jpg</strong> (711.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-4 20:57 上传
+
+<img src="https://img.saraba1st.com/forum/202503/04/205707fut5rht52kdhkx6k.jpg" referrerpolicy="no-referrer">
+
+<strong>006SCGqIgy1hyx8v9d5k8j319k1tkx6r.jpg</strong> (828.17 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-4 20:57 上传
+
+<img src="https://img.saraba1st.com/forum/202503/04/205710v6x5x1n5tua5oni5.jpg" referrerpolicy="no-referrer">
+
+<strong>006SCGqIgy1hyx8vcrluej319k1tknpf.jpg</strong> (784.31 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-4 20:57 上传
+

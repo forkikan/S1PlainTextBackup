@@ -3622,3 +3622,15 @@ No！！！
 路人看不出来是cos
 <img src="https://p.sda1.dev/22/2247ae80026cdd8d34e0e82613dfd682/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Victorino  
+##### 32863#       发表于 2025-3-4 20:55
+
+<blockquote>adretyu67. 发表于 2025-3-4 17:54
+祥子应该是少数发色对不上父母的角色吧。
+
+你说大祥老师才是中登喜当爹产物比较可能 ...</blockquote>
+邦邦哪来的遗传学，宇田川姐妹的发色天差地别
+
