@@ -964,3 +964,34 @@ mygo里算是有塑造过【不粘锅】海铃，那个场面反过来看就是�
 
 访谈中柿本说双重人格不是他提出的，是剧本说不弄的话很多伏笔填不上？
 
+
+*****
+
+####  wwwttth  
+##### 32635#       发表于 2025-3-4 09:32
+
+<blockquote>akiomn 发表于 2025-3-4 02:58
+理解能力堪忧，第八集不是都够直白了吗？祥子真的如第七集说的那样什么都愿意做，变成了睦偶，满脑子都是 ...</blockquote>
+你理解才堪忧吧，我的意思是不管编剧想呈现的祥子是怎样的，实际上祥子在观众眼里的表现就是自私，她大量的行为都是建立在自说自话不顾及他人的行为和想法的。
+
+而编剧默认了她怎么做没问题，也就是编剧并没有觉得这是自私或者编剧没有考虑到这一行为会让角色的动机变得自私，那么编剧后面继续让祥子做出这种类型的行为自然也不奇怪
+
+*****
+
+####  滑稽Captain  
+##### 32636#       发表于 2025-3-4 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67569225&amp;ptid=2208921" target="_blank">动力装甲 发表于 2025-3-4 09:14</a>
+
+访谈中柿本说双重人格不是他提出的，是剧本说不弄的话很多伏笔填不上？</blockquote>
+没有明确提到是他本人还是其他脚本家提出的方案，只是说是在剧本创作过程中自然且必然诞生了mortis这一角色
+
+*****
+
+####  一心而用  
+##### 32637#       发表于 2025-3-4 09:36
+
+【此刻 仅是梦境】 [https://www.bilibili.com/video/B ... a72830f4665c1ebd3cf](https://www.bilibili.com/video/BV1wr9jYbEpF/?share_source=copy_web&amp;vd_source=e3fc4172c6f57a72830f4665c1ebd3cf)
+<img src="https://p.sda1.dev/22/381c61ae68333d10e6ba80a90e019fe0/1.webp" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/54958e7f931398eea5546c945e068106/2.webp" referrerpolicy="no-referrer">
+
