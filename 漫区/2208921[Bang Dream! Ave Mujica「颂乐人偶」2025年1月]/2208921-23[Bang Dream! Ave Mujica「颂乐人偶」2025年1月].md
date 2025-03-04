@@ -1685,3 +1685,57 @@ AM全员能去丰川家的府邸集合，这财阀还斗不斗了？<img src="ht
 
 反正如果最后丰川家的黑暗单纯只是老登烂裤裆造的孽，初华篇又会给人观感闹麻了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ntrntr1  
+##### 32694#       发表于 2025-3-4 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67570398&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2025-3-4 11:34</a>
+
+AM全员能去丰川家的府邸集合，这财阀还斗不斗了？</blockquote>
+去财阀家~欢乐斗地主~
+
+*****
+
+####  刑部姬真可爱  
+##### 32695#       发表于 2025-3-4 12:01
+
+剧情闹没闹麻不好说，wsd吹的牛皮倒是已经闹麻了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ntrntr1  
+##### 32696#       发表于 2025-3-4 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67570556&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-4 11:54</a>
+
+从镜像双子的角度去理解，哪怕祥子搞砸了一切成为了中登一样的逃避烂人，也会有老登大手给她兜底，也会有 ...</blockquote>
+然后神人编剧表现：看起来只是被星宇蒙蔽了双眼 
+
+
+*****
+
+####  shinoverse  
+##### 32697#       发表于 2025-3-4 12:05
+
+与其让丰川祥子看小本本
+
+不如把OP占用的时间抠出来给她单独做第一人称心理描写
+
+*****
+
+####  厉飞雨  
+##### 32698#       发表于 2025-3-4 12:06
+
+贝斯手又陪睡了
+
+*****
+
+####  玖羽  
+##### 32699#       发表于 2025-3-4 12:07
+
+草，祥子在读德米安<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+德米安是主人公辛克莱小时候被霸凌之后幻想出来的理想自己，是相当于主人公好友和导师的第二人格
+
