@@ -1096,3 +1096,16 @@ DNF ...</blockquote>
 [https://x.com/kks_biochem/status/1716661587824738504](https://x.com/kks_biochem/status/1716661587824738504)
 [https://idolmaster-official.jp/news/01_9996](https://idolmaster-official.jp/news/01_9996)
 
+
+*****
+
+####  ztkong  
+##### 88#       发表于 2025-3-4 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67572182&amp;ptid=2071758" target="_blank">キラ様 发表于 2025-3-4 15:29</a>
+
+我的根据是同样万代南梦宫的手游シャニソン
+
+当时开商店预约的时候是2023/10/24，apple商店里显示上线日期 ...</blockquote>
+能提前就太好了。。。玩不到永恒我要死了。-=-
+

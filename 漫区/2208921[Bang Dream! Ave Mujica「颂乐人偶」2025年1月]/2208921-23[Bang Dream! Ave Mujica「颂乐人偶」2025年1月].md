@@ -3220,3 +3220,25 @@ X上一个暴言吐槽mujica的太君（怀疑也不是太君但是他说自己�
 
 你说大祥老师才是中登喜当爹产物比较可能
 
+
+*****
+
+####  小博禹  
+##### 32823#       发表于 2025-3-4 18:06
+
+小祥其实是祥妈睦妈的乱伦产物？？<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  刑部姬真可爱  
+##### 32824#       发表于 2025-3-4 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67573541&amp;ptid=2208921" target="_blank">小博禹 发表于 2025-3-4 18:06</a>
+
+小祥其实是祥妈睦妈的乱伦产物？？
+
+—— 来自 鹅球 v3.3.96</blockquote>
+成为丰（yue）川（han）祥（maerke）子（weiqi）
+
