@@ -2806,3 +2806,63 @@ Ave Mujica在2024年春季就做完了</blockquote>
 
 我怀疑这是独角兽最大的xp释放，一次性把所有劣人设堆砌完了。
 
+
+*****
+
+####  sauron.j  
+##### 32790#       发表于 2025-3-4 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67572517&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-3-4 16:10</a>
+
+漏油越说初华越卑微了，就差模型不是路人了</blockquote>
+以前的访谈说过鸡团作为镜像，两位主唱也是完全反相去设计的的
+
+灯外冷内热，平时只会企鹅咕哝但内心包含宇宙、一旦坚定信念就行动力极强、畏畏缩缩不起眼但人形魅魔自动吸引关注
+
+初华营业外表下内心空洞、被自卑劣等感包裹、被动无自主性、外表光鲜却在团内无人关心
+
+*****
+
+####  zhoujin8584  
+##### 32791#       发表于 2025-3-4 16:35
+
+看一些假药，虽然结论太过发散不可取用，论据倒是可以得出实用的结论。
+
+比如说小莫第八话自述以前是作为艺人家的女儿应对社交的角色顶号的，也作为小睦人格外唯一的角色存活下来。对应时间论假药的论据
+
+<img src="https://img.saraba1st.com/forum/202503/04/162650zz5prnbyj3rcjjdd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-03-04-16-10-31-89_149003a2d400f6adb210d7e357a3a646.jpg</strong> (125.87 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-4 16:26 上传
+
+<img src="https://img.saraba1st.com/forum/202503/04/162705musekk6ak3u3uuar.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-03-04-16-11-15-69_149003a2d400f6adb210d7e357a3a646.jpg</strong> (125.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-4 16:27 上传
+
+睦在无尽的商务活动断片后，趴在床边醒来，这两话一致的背景和镜头其实可以得出很实用性的结论，以前莫还只是无名角色的时候，确实是顶过采访的，她俩也是这么切号的。
+
+<img src="https://img.saraba1st.com/forum/202503/04/163348kpnqeqtje2jvtx9m.png" referrerpolicy="no-referrer">
+
+<strong>113192517410771352.png</strong> (46.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-4 16:33 上传
+
+<img src="https://img.saraba1st.com/forum/202503/04/163402g060g1x01srjhff0.png" referrerpolicy="no-referrer">
+
+<strong>81683017410771732.png</strong> (118.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-4 16:34 上传
+
+怎么说呢，舞鞋电话真有用？<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
