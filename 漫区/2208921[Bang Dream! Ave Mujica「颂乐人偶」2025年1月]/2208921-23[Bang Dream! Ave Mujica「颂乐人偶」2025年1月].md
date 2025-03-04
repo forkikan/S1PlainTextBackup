@@ -3242,3 +3242,74 @@ X上一个暴言吐槽mujica的太君（怀疑也不是太君但是他说自己�
 —— 来自 鹅球 v3.3.96</blockquote>
 成为丰（yue）川（han）祥（maerke）子（weiqi）
 
+
+*****
+
+####  甲鱼  
+##### 32825#       发表于 2025-3-4 18:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">为什么粪动画周边都被抢空了，想买大祥的卡套都买不到
+
+*****
+
+####  ddy2811  
+##### 32826#       发表于 2025-3-4 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67572602&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-4 16:22</a>
+
+每一样都感觉是全方位的下位设定，真太子和外室女，作词不能呐喊自我，作曲是用商业价值换一点如有的亲情 ...</blockquote>
+“编织谎言”就仅此而已了吗<img src="https://static.saraba1st.com/image/smiley/carton2017/487.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Raven314  
+##### 32827#       发表于 2025-3-4 18:22
+
+母鸡卡的遗传学，只有瞳色遗传更符合一点
+不然爱音爸就是一头粉毛了
+但是祥睦都是金色瞳孔，但是没有血缘关系
+
+*****
+
+####  小博禹  
+##### 32828#       发表于 2025-3-4 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67573639&amp;ptid=2208921" target="_blank">Raven314 发表于 2025-3-4 18:22</a>
+母鸡卡的遗传学，只有瞳色遗传更符合一点
+不然爱音爸就是一头粉毛了
+但是祥睦都是金色瞳孔，但是没有血缘关 ...</blockquote>
+并非没有<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wwwttth  
+##### 32829#       发表于 2025-3-4 18:23
+
+<blockquote>z-hunter 发表于 2025-3-4 15:33
+所以不是传说老登这个人物很高光么劈腿也原谅了中登。中登为了赎罪为了祥子，也为了在祥妈死后，有这个黑 ...</blockquote>
+这不是高光这是圣人了，没能力的入赘的fw劈腿都可以原谅也太变态了，而且这完全丧失了移除大手的能力，祥子要和这种圣人一样的老登对峙得多么变态我想象不到。
+
+*****
+
+####  哈曼的YY  
+##### 32830#       发表于 2025-3-4 18:24
+
+如果祥老师才是私生子 那就是倒错再倒错 本该得到一切的三角女士和本该一无所有的祥老师 叠设定呢
+
+*****
+
+####  ddy2811  
+##### 32831#       发表于 2025-3-4 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67572108&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-4 15:20</a>
+
+放弃幻想，接受现实吧。
+
+我是不太信鸡10话鸡团复活live的实际效果。
+
+狗10话唱完就是两面素姐交枪表示忠诚了 ...</blockquote>
+狗10是铺垫得很好的，鸡10前面是一地鸡毛，做得再好也不会有那个效果了
+

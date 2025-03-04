@@ -7430,3 +7430,19 @@ OVA已经是过时20年的商法了，现在的商法是剧场版</blockquote>
 
 一船人于是踏上了去往地球（联邦）的逃亡旅程。
 
+
+*****
+
+####  xwr  
+##### 8008#       发表于 2025-3-4 18:23
+
+据传gquuuuuux剧场版已送审
+
+<img src="https://img.saraba1st.com/forum/202503/04/182303ue63f9qf90q1k049.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ2v-l2gcZeT3cSk0-z4.jpg</strong> (147 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-4 18:23 上传
+
