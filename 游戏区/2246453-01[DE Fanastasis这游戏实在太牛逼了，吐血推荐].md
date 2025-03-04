@@ -3160,3 +3160,16 @@ F5确实可以，但是又觉得分辨率有点低...
 —— 来自 鹅球 v3.3.96</blockquote>
 你这咋好清晰啊
 
+
+*****
+
+####  五块  
+##### 278#       发表于 2025-3-4 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67518852&amp;ptid=2246453" target="_blank">魂淡放我出去 发表于 2025-2-26 02:44</a>
+
+玩了三个小时，感觉玩不来这种大部分探图都没有提示、回城还不方便的游戏，get不到点
+
+个人认为隐藏门最多 ...</blockquote>
+我目前打到地下墓地，碰到的应该所有剧情隐藏门都有提示，有的非剧情也有。
+
