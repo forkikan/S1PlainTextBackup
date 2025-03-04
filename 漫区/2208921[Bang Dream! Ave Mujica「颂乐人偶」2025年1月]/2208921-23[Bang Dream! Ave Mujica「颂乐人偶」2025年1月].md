@@ -3772,3 +3772,68 @@ ave1.0解散这件事，你从老登的角度来说，就是非常单纯的孙�
 惊了，还真有猜中《德米安》的啊<img src="https://static.saraba1st.com/image/smiley/face2017/226.png" referrerpolicy="no-referrer"> 
 [祥子辛克莱论](https://tieba.baidu.com/p/9489488915)<strong>发布于2025-02-13</strong>
 
+
+*****
+
+####  aptx8285144  
+##### 32876#       发表于 2025-3-4 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67574919&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-4 21:40</a>
+
+仔细想想，柿本对鸡团五众还是很温柔的。
+
+对大祥，总是让她屡战屡败，屡败屡战，尽管在揭露她自我中心的弥 ...</blockquote>
+虽然但是，大祥在母鸡卡里面”屡战“的含金量很低<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  K·os  
+##### 32877#       发表于 2025-3-4 22:44
+
+战吧现在是一个巨大的猴子打字机
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  6030sylar  
+##### 32878#       发表于 2025-3-4 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67572865&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-3-4 16:48</a>
+
+有信源吗，之前也看到有个23年9月采访提了一些配音中的趣事，后来我发现没说是MyGO还是mujica的事，最后 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202503/04/224038efppq2ew8re2peif.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (59.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-4 22:40 上传
+
+[Ave Mujica リスアニ初次采访 - 哔哩哔哩](https://www.bilibili.com/opus/841998952216657940?from=search&amp;spm_id_from=333.337.0.0)就是23年9月号的采访说是在收录中
+
+*****
+
+####  zhoujin8584  
+##### 32879#       发表于 2025-3-4 22:49
+
+<blockquote>aptx8285144 发表于 2025-3-4 22:44
+虽然但是，大祥在母鸡卡里面”屡战“的含金量很低，反正前五话早就分析烂了的，鸡团内部关系问题加上炸团 ...</blockquote>
+其实莫老师不顶号，第三集节目后就会因为路线之争散伙，我是这个结论。
+
+然后大喵的心魔，海铃的嫉妒，初华最想杀人的时刻，都是小睦凭实力的无自觉迫害。
+
+而莫老师这颗导弹本身也是所有人喂养出来的。
+
+
+*****
+
+####  K·os  
+##### 32880#       发表于 2025-3-4 22:52
+
+ave1.0的最大隐患就是睦不能见光，莫来不来顶号，反正睦的状态是每况愈下，到达一定程度的时候就会引发大矛盾
+而且祥子作为领导人，在ave时期已经完全看不到队友，队友也迟早会不满到一定程度的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
