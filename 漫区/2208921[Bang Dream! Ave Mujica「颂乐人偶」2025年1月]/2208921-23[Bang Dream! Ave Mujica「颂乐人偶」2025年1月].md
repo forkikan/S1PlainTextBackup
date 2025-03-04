@@ -3728,3 +3728,16 @@ No！！！
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  钦念以忱  
+##### 32872#       发表于 2025-3-4 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67574335&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-4 20:03</a>
+
+失去睦之后，原来祥子真的还有可以失去的，其实祥子根本不是丰川家血脉
+
+怎么办，我已经觉得这个就是真正的 ...</blockquote>
+1~4话失去avemujica，5话失去孝顺父亲对抗祥爷的立场，6、7话失去crythic，8~10话失去睦，11、12话失去丰川，齐活了
+
