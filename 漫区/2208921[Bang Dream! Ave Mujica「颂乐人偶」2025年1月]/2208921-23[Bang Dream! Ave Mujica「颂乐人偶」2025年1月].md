@@ -2207,3 +2207,69 @@ Mujica独角兽是跟到最后一集的，因为剧情过于复杂所以一直�
 
 这个时间点按照柿本现在的说法，mujica的前三话都没完全敲定要怎么做
 
+
+*****
+
+####  6030sylar  
+##### 32744#       发表于 2025-3-4 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67571793&amp;ptid=2208921" target="_blank">UNISONIA 发表于 2025-3-4 14:40</a>
+綾奈删光自己推上所有MyGO相关设定、讨论是在MyGO#13话播出（2023年9月14日）前
+
+这个时间点按照柿本现在的 ...</blockquote>
+你理解错了吧，狗13播出这时候都快做完要进配音了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  Nealyun  
+##### 32745#       发表于 2025-3-4 14:47
+
+没有任何攻击角色的想法，但这下真是祥姆斯了
+
+R`Q]MK957VTAYZC5HO48OVH.jpg
+(63.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-4 14:46 上传
+
+<img src="https://img.saraba1st.com/forum/202503/04/144634znwq8hm8mmgz7978.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  与太郎  
+##### 32746#       发表于 2025-3-4 14:48
+
+对偶说的最大提倡者不就是柿本老师自己吗，而且不是简单对偶，我昨天也说了是“反转再反转”的对偶： <blockquote>『It's MyGO!!!!!』は、本性をさらしたくないのに全部が見えてしまう、本音でしか生きられない子たちの話にすると決めていたので、<strong>それとの対偶にしよう</strong>という気持ちはありました。
+
+……
+
+ただ「Ave Mujica」は「It's MyGO!!!!!」をそのまま反対にして出すわけではなく、<strong>ひっくり返してさらに鏡写し</strong>にするような作りをしています。正反対って結局は似てしまうので、ひっくり返したその先をどう編んでいくのかを「Ave Mujica」の本読みでは常に考えていました。
+
+……
+
+前作で、MyGO!!!!!は再起しましたが、その<strong>逆の裏</strong>で考えると、Ave Mujicaは単純に再起ではいけないのではないかと。</blockquote>
+
+*****
+
+####  金钱与民主  
+##### 32747#       发表于 2025-3-4 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67571587&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-4 14:10</a>
+最狂指的是最疯狂。如果初华真摇身一变开启大逃杀可能还算对的上吧</blockquote>
+史上最狂？
+史上最烂！
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  哈曼的YY  
+##### 32748#       发表于 2025-3-4 14:55
+
+独角兽还说她没看过母鸡卡成片呢 到底面目全非到什么地步才会看都不想看
+
