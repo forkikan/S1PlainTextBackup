@@ -2952,3 +2952,37 @@ Ave Mujica在2024年春季就做完了</blockquote>
 每一样都感觉是全方位的下位设定，真太子和外室女，作词不能呐喊自我，作曲是用商业价值换一点如有的亲情 ...</blockquote>
 虚假的青梅竹马，不就是娅娅卡，身份是假的，但是感情是真的
 
+
+*****
+
+####  与太郎  
+##### 32798#       发表于 2025-3-4 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67572797&amp;ptid=2208921" target="_blank">结衣小比取 发表于 2025-3-4 16:41</a>
+
+这个问题其实找一直以来关注Ave Mujica乐队的坛友来回答比较好，比如御幸一也
+
+与佐佐木李子和高尾奏音一 ...</blockquote>
+啊，“声优24年4月表示已录音完成”说的就是这个采访，我翻一翻当时的讨论吧
+
+不过这位楼友现在不是转入不活跃状态了么，连杂志图都不贴了，获取一手资料都变麻烦了
+
+*****
+
+####  金钱与民主  
+##### 32799#       发表于 2025-3-4 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67572602&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-4 16:22</a>
+每一样都感觉是全方位的下位设定，真太子和外室女，作词不能呐喊自我，作曲是用商业价值换一点如有的亲情 ...</blockquote>
+这种堆砌过于恶心人了……<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">这可是CV表第一名啊，他们怎么敢的。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  钦念以忱  
+##### 32800#       发表于 2025-3-4 17:02
+
+话说第8集把去KTV部分改成，睦头拉着祥子一起去钢琴房，祥子弹钢琴，睦头弹吉他，结果祥子完全弹不出钢琴（还哭了），这时候睦头再提出要复活CCC，这个剧情展开就要合理多了吧，也能吻合访谈里说了但动画没拍出来的祥子在7话之后依然还是活死人状态，这样也能消除迈巴赫养人的说法。
+
