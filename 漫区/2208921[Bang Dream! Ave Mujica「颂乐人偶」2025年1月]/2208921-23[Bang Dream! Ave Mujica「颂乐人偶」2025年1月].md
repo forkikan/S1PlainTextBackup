@@ -4543,3 +4543,29 @@ ave是有很多吸引人的爆点，但显然制作方没想好怎么把爆点�
 
 只是似乎没有时间写揭示谜底之后的剧情了，这样真的好吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ArcadiaMartyr  
+##### 32948#       发表于 2025-3-5 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67576124&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-3-5 01:01</a>
+我还是相信着故事的最后会通过揭示谜底的形式把前面故事的逻辑串联起来
+
+就类似命运石之门通过揭示时空穿越 ...</blockquote>
+还信个毛，信mujica会峰回路转成为正常作品，不如信我是秦始皇
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  thisisaspider  
+##### 32949#       发表于 2025-3-5 01:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67576073&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-3-5 00:51</a>
+
+搞得跟母鸡卡有什么东西是值得讨论的一样，精神病搞笑番所有剧情图个乐罢了，老登也是乐的一环
+
+—— 来 ...</blockquote>
+虽然访谈好像已经暴露了制作组实力不足，但我还是打算等完结了再评价。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
