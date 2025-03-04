@@ -84,3 +84,17 @@
 
 不过不好说鱼这个混b站的不会用这个梗。。
 
+
+*****
+
+####  csolfans  
+##### 1526#       发表于 2025-3-4 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67571828&amp;ptid=2201887" target="_blank">ads147147 发表于 2025-3-4 14:45</a>
+打趣的说法。
+
+不过不好说鱼这个混b站的不会用这个梗。。</blockquote>
+她好像说自己没看mygo来着
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

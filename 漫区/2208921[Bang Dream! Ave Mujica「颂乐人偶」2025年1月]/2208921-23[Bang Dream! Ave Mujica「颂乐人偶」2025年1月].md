@@ -2311,3 +2311,56 @@ R`Q]MK957VTAYZC5HO48OVH.jpg
 
 相比之下还是内鬼说还靠谱点
 
+
+*****
+
+####  曼彻斯特联  
+##### 32752#       发表于 2025-3-4 15:11
+
+有crychic的内容明显是wsd的硬性要求，谁来写脚本这点都不会改变。
+
+*****
+
+####  6030sylar  
+##### 32753#       发表于 2025-3-4 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67571972&amp;ptid=2208921" target="_blank">UNISONIA 发表于 2025-3-4 15:04</a>
+
+快要进配音和已经收音完是两码事
+
+如果配音是相对动画部分最先完成的一步的话，已经录完的素材在剧本调整 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不是，邦这3D动画不都是做得快完成才配音的，大家不都是知道的吗
+
+*****
+
+####  号为熊  
+##### 32754#       发表于 2025-3-4 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67571972&amp;ptid=2208921" target="_blank">UNISONIA 发表于 2025-3-4 15:04</a>
+
+快要进配音和已经收音完是两码事
+
+如果配音是相对动画部分最先完成的一步的话，已经录完的素材在剧本调整 ...</blockquote>
+从MyGO的情况来看配音环节还蛮靠后的
+
+加上这片子有一股赶24年1月播出对祥子生日轴的感觉在
+
+*****
+
+####  滑稽Captain  
+##### 32755#       发表于 2025-3-4 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67571972&amp;ptid=2208921" target="_blank">UNISONIA 发表于 2025-3-4 15:04</a>
+
+快要进配音和已经收音完是两码事
+
+如果配音是相对动画部分最先完成的一步的话，已经录完的素材在剧本调整 ...</blockquote>
+三次元的动画制作方式是特别的，配音是动画大部分都完成后的最后一步
+
+*****
+
+####  huxiaopao163  
+##### 32756#       发表于 2025-3-4 15:15
+
+可能动画都做完了就差配音了，结果上面的大人物要求从剧本开始推翻重做，所以独角兽才气得逃跑了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
