@@ -2911,3 +2911,14 @@ KONAMI的世界级ip现在能拿多少出来？
 这个设置好啊，值得别的想复刻老游戏的厂商学习。</blockquote>
 看了下预载后的1.02版本更新信息，他这个时限停止甚至是做好后才加的......
 
+
+*****
+
+####  Piano-Forest  
+##### 319#       发表于 2025-3-5 00:38
+
+名作RPG復活の狼煙！ 『幻想水滸伝 I＆II HDリマスター』はIP復活へのファーストステップ。熱が高まれば続編や完全新作のナンバリングも!? 開発陣にインタビュー！
+[https://www.famitsu.com/article/202503/35433](https://www.famitsu.com/article/202503/35433)
+
+<img src="https://p.sda1.dev/22/c5424dffb9b099fe685c49bf07073048/20250304_082910.jpg" referrerpolicy="no-referrer">
+
