@@ -4293,3 +4293,81 @@ ave原始阵容的强度难道不主要就是拼爹吗，祥子就不说了，�
 
 鸡团1.0实力也好，大手也好，流量也好定在了一个很尴尬的位置上。
 
+
+*****
+
+####  K·os  
+##### 32927#       发表于 2025-3-5 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67575841&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-5 00:04</a>
+
+那他不反对祥子和老爸在一起，为什么要去接回来呢</blockquote>
+答案是祥子假如还有逃跑的心力，她还会继续跑，但是她意识到自己闯了大祸，老登给她兜了，她就没有离开的立场了
+
+老登虽然不反对祥子出去，但他也是更希望祥子能在家的啊
+
+*****
+
+####  K·os  
+##### 32928#       发表于 2025-3-5 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67575846&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-5 00:05</a>
+
+但是鸡1.0最后已经没啥能做的。武道馆去了，全国巡演也有了。再搞下去就得全球巡演了。
+
+鸡团1.0实力也好 ...</blockquote>
+睦初不好说，但是喵海是明确要通过ave干事业的，祥子要负责的，至少要维持住规模让海喵能达成自己的目的
+
+*****
+
+####  thisisaspider  
+##### 32929#       发表于 2025-3-5 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67575851&amp;ptid=2208921" target="_blank">K·os 发表于 2025-3-5 00:06</a>
+
+答案是祥子假如还有逃跑的心力，她还会继续跑，但是她意识到自己闯了大祸，老登给她兜了，她就没有离开的 ...</blockquote>
+"他也是更希望祥子能在家的" 换种说法不就是反对她出去
+
+
+*****
+
+####  K·os  
+##### 32930#       发表于 2025-3-5 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67575870&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-5 00:09</a>
+
+"他也是更希望祥子能在家的" 换种说法不就是反对她出去</blockquote>
+这真差的有点远吧，希望你怎么样，但是你不这样我也不反对，这不是很正常吗
+
+*****
+
+####  Lyzers  
+##### 32931#       发表于 2025-3-5 00:12
+
+反正我是从第四集左右开始就觉得烂了，在那之后再没看过访谈内容<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大家都在把什么财团大手当官方设定讨论了，那就在这个设定上讨论罢了
+
+如果说老登不是需要斗的，那就是说老登不管怎样，多多少少还是支持大祥的，那始终还是回到几个神人JK在大人兜底的情况下使劲闹这一点上，结论依旧不变<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thisisaspider  
+##### 32932#       发表于 2025-3-5 00:13
+
+祥子无论是离家还是回家，事实上她根本没有第二个选择。两个都来源于她无能为力。
+
+1. 她作为未成年无法肩负起老爸的过错，也无法离开家人。
+
+2. 被强制还清赔偿金后，她也没办法不回家。
+
+这里主动性都在老登上。而老登明显就是编剧的大手。如果后面不展开写这个人物的话。
+
+*****
+
+####  thisisaspider  
+##### 32933#       发表于 2025-3-5 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67575886&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-3-5 00:12</a>
+
+反正我是从第四集左右开始就觉得烂了，在那之后再没看过访谈内容大家都在把什么财团大手当官方设定讨论了， ...</blockquote>
+是啊，所以我感觉楼友讨论这个非常好笑。有种被编剧设定入脑，看不清角色作用。
+
