@@ -39,3 +39,20 @@
 
 —— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
 
+
+*****
+
+####  另一个小智  
+##### 1657#       发表于 2025-3-4 23:48
+
+请问怎么复制文本呀？
+
+*****
+
+####  pgain2004  
+##### 1658#       发表于 2025-3-4 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67575750&amp;ptid=1220112" target="_blank">另一个小智 发表于 2025-3-4 23:48</a>
+请问怎么复制文本呀？</blockquote>
+先进任意帖子，再点开右上角的菜单就能看到
+
