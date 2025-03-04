@@ -1074,3 +1074,25 @@ DNF就是6/30提早到4月，无限暖暖从12/31提早到12/5。
 
 4.16这日期完全不像是占位用，提前的可能性无限接近0
 
+
+*****
+
+####  キラ様  
+##### 87#       发表于 2025-3-4 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67570875&amp;ptid=2071758" target="_blank">HEERO.W 发表于 2025-3-4 12:32</a>
+
+不，根据过往经验是4.16上。
+
+苹果商店的日期如果作为占位符只会是季度的最后一天，比如6/30,12/31。
+
+DNF ...</blockquote>
+我的根据是同样万代南梦宫的手游シャニソン
+
+当时开商店预约的时候是2023/10/24，apple商店里显示上线日期是2024/1/9
+
+结果2023/11/14就上线了，比商店里当初设置的日期早了近两个月
+
+[https://x.com/kks_biochem/status/1716661587824738504](https://x.com/kks_biochem/status/1716661587824738504)
+[https://idolmaster-official.jp/news/01_9996](https://idolmaster-official.jp/news/01_9996)
+

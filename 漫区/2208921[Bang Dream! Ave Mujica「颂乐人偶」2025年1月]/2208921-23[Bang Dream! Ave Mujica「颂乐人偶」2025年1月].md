@@ -2415,3 +2415,73 @@ R`Q]MK957VTAYZC5HO48OVH.jpg
 
 鸡动画就是这样了，就算最后包芥末味寿司也只能忍着了。
 
+
+*****
+
+####  号为熊  
+##### 32761#       发表于 2025-3-4 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67572105&amp;ptid=2208921" target="_blank">UNISONIA 发表于 2025-3-4 15:20</a>
+
+那这个还挺奇怪的
+
+先不说木谷老登提到的社内有成片的时间已经是24年Q2了。很明显MyGO、猫剧场版的新规部 ...</blockquote>
+三次元那边的说法是24年4月基本做完
+
+感觉绫奈在跑路以前可能就进入摆烂状态了，所以才显得这一季脚本连贯性问题很大
+
+*****
+
+####  z-hunter  
+##### 32762#       发表于 2025-3-4 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67570752&amp;ptid=2208921" target="_blank">号为熊 发表于 2025-3-4 12:18</a>
+
+剧透流出的时间是在2月初，大概第六集还没有播出的时候
+
+大规模引发注意是6-7两集全中，8因为歪了所以质疑 ...</blockquote>
+我单指“祥子会再次重组C团，素希拒绝，灯犹豫”这个剧透是在7话之后出现，当时的背景就是狗团塌房了，狗厨群情汹涌，在B站上高播放的视频+集体打低分让B站评分2天降2分。
+
+这剧透流出的时间那么刚好，能明显看出剧透有B站大手在后面，想平息众怒降一降温。
+
+但这个剧透虽然中了，但又分别分布在8和9话，可以推理剧透可能只有翻译台本，而没有成片（这也是很正常的，估计是播出当天，日本才会给B站成片再打轴和家特效
+
+所以剧透中有真的也有假的。
+
+回到初华的剧透，也可以从逻辑上推导一下合理性。
+
+初华的心结=》对祥子的痴迷和“劣等感”=》后3话是说JK斗财阀=》初华要跑，祥子要追妻=》初祥卖得非常厉害=》祥子抛弃了很多选择了初华
+
+那么初华私生女这个剧透就真的感觉很真了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至于双子和小姨，我觉得不会那么变态（当然有可能低估了编剧的变态程度哈哈
+
+*****
+
+####  UNISONIA  
+##### 32763#       发表于 2025-3-4 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67572159&amp;ptid=2208921" target="_blank">号为熊 发表于 2025-3-4 15:26</a>
+
+三次元那边的说法是24年4月基本做完
+
+感觉绫奈在跑路以前可能就进入摆烂状态了，所以才显得这一季脚本连贯 ...</blockquote>
+另外一方面，綾奈有些MyGO的集数也是看到成片或者demo以后才发现没有完全按照自己的意思来的，比如soyo前期的处理什么的
+
+当时还在等她推特在#13后更新把关系图里Mujica的蛾眉月连起来（对应MyGO连起来的五角星），然后突然就连前面的内容都一下子删光了
+
+
+*****
+
+####  z-hunter  
+##### 32764#       发表于 2025-3-4 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67570767&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-3-4 12:20</a>
+
+如果是中登私生子前面问题说过了，那中登这个人也太变态了，老登根本不用168亿这种理由p腿的早赶出去了。
+
+ ...</blockquote>
+所以不是传说老登这个人物很高光么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">劈腿也原谅了中登。中登为了赎罪为了祥子，也为了在祥妈死后，有这个黑点也能在丰川家站稳，努力工作，结果被骗了168亿，嗷的一声再起不能颓至烂泥。
+
+老登也不再维护中登了，自生自灭吧。也叫祥子当没有这个父亲，直接当我的女儿。
+
+你看逻辑上是说得通的呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
