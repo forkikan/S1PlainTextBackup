@@ -3439,3 +3439,55 @@ No！！！
 
 队里成员早被开盒了怎么当地下乐队，光是睦和初华自带流量就只会挤爆live豪斯，更别说喵梦现在也是事务所的在编艺人，法律上绕过事务所组乐队演出都是要吃官司的
 
+
+*****
+
+####  与太郎  
+##### 32844#       发表于 2025-3-4 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67573392&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-3-4 17:45</a>
+
+记得是24年武士道大会后公布了25年1月才播后，全网一片呜呼，都觉得武士道是不是才新建文件夹，然后哪期b ...</blockquote>
+我搜了下，三次元的流程是「プレスコ」(pre-scoring)为主，也就是先配音再做动画，说是因为3D动画有了音轨再做便于匹配嘴型
+[https://bang-dream.com/news/857](https://bang-dream.com/news/857)
+
+*****
+
+####  K·os  
+##### 32845#       发表于 2025-3-4 19:06
+
+说起来有点发泥，其实ave是自由的，因为如果最后祥子挟持老登成功（拿到十吨黄金×），祥子就可以让ave以任何她想的形式存在，所以理论上，ave最后怎么样都有可能
+
+*****
+
+####  ryuusu  
+##### 32846#       发表于 2025-3-4 19:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67573740&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-3-4 18:33</a>
+
+祥子是私生子的话意思是祥妈出轨还是祥妈和老登乱伦？无论哪个方向都太变态了 ...</blockquote>
+让祥和祥妈同辈就行，瑞穗体弱把妹妹接来当亲女儿养
+
+
+*****
+
+####  zhoujin8584  
+##### 32847#       发表于 2025-3-4 19:13
+
+是的结合最后还是武道馆+TGW物产来看，下一话说不定要演初华当面看到祥子是怎样几句话就顶着违约金化解丰川大手的。
+
+这也是初祥TE的一个方向。
+
+初华求而不得的东西，是祥子自然拥有却厌弃之物。
+
+所以两边妥协的TE就是祥子也放弃这些，跟初华同居。但是这只是表象，她终归名正言顺的姓着丰川，但这场幻梦已经足够让初华觉得幸福，所以是TE。
+
+*****
+
+####  DeltaStriker  
+##### 32848#       发表于 2025-3-4 19:14
+
+梦结局也是te吗（<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
