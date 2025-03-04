@@ -1128,3 +1128,61 @@ mujica解散后失去归属的祥子，于消沉之中断绝了和伙伴及事�
 
 实际上现在就算小莫出来了，到最后真的解决睦祥问题的也还是C团几个人拉一起唱大戏而已
 
+
+*****
+
+####  老贝  
+##### 32650#       发表于 2025-3-4 10:46
+
+ 本帖最后由 老贝 于 2025-3-4 10:47 编辑 
+
+只有在舞台上是莫提斯这个设计，对睦推和Mujica团粉的割裂是真的毁灭性打击了。
+
+“你真的是Mujica的一员吗？”。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sauron.j  
+##### 32651#       发表于 2025-3-4 10:49
+
+所以26话的双乐队非邦邦企划能不能复活做一个，想看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 32652#       发表于 2025-3-4 10:51
+
+实际上睦头形象就是祥子bot。
+
+这个角色从祥子bot走出来开始对外交流最终就是莫的样子。
+
+
+*****
+
+####  plusSharp  
+##### 32653#       发表于 2025-3-4 10:54
+
+那莫如果真没了以后关于祥子的黑泥往哪倒，再分出一个人格还是睦自己接
+
+*****
+
+####  syndrome2032  
+##### 32654#       发表于 2025-3-4 10:55
+
+成长的角度肯定是要自己接。
+
+睦头选择将痛苦切割的行为本来就是不对的。
+
+*****
+
+####  老贝  
+##### 32655#       发表于 2025-3-4 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67569912&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-3-4 10:45</a>
+只是要代睦头抽祥子让其他人做不也行吗，真的有在乐队动画里塞多重人格这种设定的必要吗
+
+实际上现在就算小 ...</blockquote>
+让其他人代睦抽祥子，比如素世，那结果就是变成现在的爱灯祥了，cp粉哪边都嫌弃剩下那个人碍事。<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+莫这个角色目前看下来最大的好处，就是它把矛盾收在了睦祥两个人内部，关系没有向外延伸，至少对于睦祥的cp粉来说能够聊以慰藉。
+
