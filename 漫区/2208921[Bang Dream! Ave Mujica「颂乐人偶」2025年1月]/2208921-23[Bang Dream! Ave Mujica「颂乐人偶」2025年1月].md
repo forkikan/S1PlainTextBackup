@@ -2273,3 +2273,41 @@ R`Q]MK957VTAYZC5HO48OVH.jpg
 
 独角兽还说她没看过母鸡卡成片呢 到底面目全非到什么地步才会看都不想看
 
+
+*****
+
+####  UNISONIA  
+##### 32749#       发表于 2025-3-4 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67571834&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-3-4 14:45</a>
+
+你理解错了吧，狗13播出这时候都快做完要进配音了
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+快要进配音和已经收音完是两码事
+
+如果配音是相对动画部分最先完成的一步的话，已经录完的素材在剧本调整后也可以进行重复部分的复用，甚至近几年就有个重制AVG在第一波配音录完以后才决定要大改原版剧本的例子，后面部分内容都重录过了
+
+*****
+
+####  号为熊  
+##### 32750#       发表于 2025-3-4 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67571834&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-3-4 14:45</a>
+
+你理解错了吧，狗13播出这时候都快做完要进配音了
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+估计是想表达柿本隐瞒了部分真相？
+
+我记得绫奈有期访谈说过Mujica动画里面会有很多MyGO和CRYCHIC相关内容的事情
+
+*****
+
+####  huxiaopao163  
+##### 32751#       发表于 2025-3-4 15:04
+
+战吧现在的假药过于神秘，已经到了完全看不懂的地步了。
+
+相比之下还是内鬼说还靠谱点
+
