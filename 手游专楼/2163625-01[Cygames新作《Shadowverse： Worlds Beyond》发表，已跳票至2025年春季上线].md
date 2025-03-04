@@ -723,3 +723,18 @@ Shadowverse营运团队 敬上
 
 要出了没有？
 
+
+*****
+
+####  Anatoly  
+##### 64#       发表于 2025-3-4 09:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67566897&amp;ptid=2163625" target="_blank">格雷殿下 发表于 2025-3-3 21:28</a>
+
+要出了没有？</blockquote>
+传说是5-6月
+
+但按照舅舅说法不是那么乐观
+
+虽然如果只是小游戏填不上坑所以把小游戏全删了这种那反而可能是利好（
+

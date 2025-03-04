@@ -3135,3 +3135,15 @@ F5确实可以，但是又觉得分辨率有点低...
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  远野乙姬  
+##### 276#       发表于 2025-3-4 09:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67554641&amp;ptid=2246453" target="_blank">约翰里德 发表于 2025-3-2 08:30</a>
+等理智开了买双手剑理智喂他</blockquote>
+懂了，感谢！
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
