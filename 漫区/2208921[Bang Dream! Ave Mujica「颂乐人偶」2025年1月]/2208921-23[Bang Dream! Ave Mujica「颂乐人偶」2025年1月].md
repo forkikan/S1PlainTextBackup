@@ -4529,3 +4529,17 @@ ave是有很多吸引人的爆点，但显然制作方没想好怎么把爆点�
 一开始屁股就是歪的
 让他们写llx 就变成了蛋卷肯定是大好人 只是烂个裤裆 而llx是畜生<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  huxiaopao163  
+##### 32947#       发表于 2025-3-5 01:01
+
+我还是相信着故事的最后会通过揭示谜底的形式把前面故事的逻辑串联起来
+
+就类似命运石之门通过揭示时空穿越的世界观设定，以及sern的大手，将前面古怪但细节慢慢的剧情串联起来。
+
+这次也有mujica的世界观设定，和丰川的大手哈哈
+
+只是似乎没有时间写揭示谜底之后的剧情了，这样真的好吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

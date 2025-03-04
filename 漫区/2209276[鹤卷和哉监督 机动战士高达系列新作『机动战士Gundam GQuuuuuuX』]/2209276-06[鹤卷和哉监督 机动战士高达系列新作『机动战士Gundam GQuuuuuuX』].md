@@ -7706,3 +7706,14 @@ NT频道名额永远只有两个人的鸭子
 
 所罗门冲击是沙仑玫瑰发动的啊，鸭子是被害者<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kuriri  
+##### 8028#       发表于 2025-3-5 00:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67575903&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-3-5 00:16</a>
+
+所罗门冲击是沙仑玫瑰发动的啊，鸭子是被害者</blockquote>
+万一玫瑰也是一架机体呢？和红高共鸣发动，然后一起消失了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">符合MAV的主题～
+
