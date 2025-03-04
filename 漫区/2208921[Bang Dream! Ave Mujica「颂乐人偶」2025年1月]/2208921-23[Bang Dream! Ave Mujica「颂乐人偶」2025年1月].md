@@ -3868,3 +3868,77 @@ ave1.0的最大隐患就是睦不能见光，莫来不来顶号，反正睦的�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  aptx8285144  
+##### 32884#       发表于 2025-3-4 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67575498&amp;ptid=2208921" target="_blank">DeltaStriker 发表于 2025-3-4 23:03</a>
+
+这个问题把初华换mana就能解决 但是换不了.jpg
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+其实go团时期，初华究竟是个什么样的形象自由空间是很大的，当年要是能预测到金毛是今天这样颜艺和扭曲感类型的角色，这样的观众可以去买彩票了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 32885#       发表于 2025-3-4 23:07
+
+母雞卡的團魂就是肉體
+
+大祥用肉體鎖死初華
+
+睦用肉體鎖死大喵
+
+莫用肉體鎖死海子
+
+綁定了
+
+
+*****
+
+####  Lyzers  
+##### 32886#       发表于 2025-3-4 23:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">到现在还没意识到就算把所有不合理的情节和角色问题都推到财团那边，这个故事也依旧好不到哪去吗？
+
+那就意思是老登其实根本不care你大祥要苟巴干嘛，前面随便你跑去卖报纸住烂屋，随手又把你捧到武道馆和全国巡演，你团炸了又随手给你把违约金全付了，给你大车大豪斯伺候着，财力已经到这种地步的财阀，突然之间你就拿什么私生女就能去要挟老登，跟老登有了同台谈判的资本了？
+
+更重要的是，谁看少女乐队是冲着一手遮半个天的财团当最终黑手，但是哇哇乱叫的主角团又哭又闹闹了3/4的篇幅甚至都没直面过这个最终黑手的故事来的？
+
+*****
+
+####  aptx8285144  
+##### 32887#       发表于 2025-3-4 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67575533&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-3-4 23:10</a>
+
+到现在还没意识到就算把所有不合理的情节和角色问题都推到财团那边，这个故事也依旧好不到哪去吗？
+
+那就意 ...</blockquote>
+赤板明：我相信当年有些观众是冲着这个看辉夜的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  K·os  
+##### 32888#       发表于 2025-3-4 23:12
+
+但是牢初虽然这么病娇，却不会真的行动这点你还真不能说是新设定
+她在mygo的时候就已经抱着祥子一年前的短信天天看，有祥子的联系方式却从来没有自己主动去找过祥子了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 32889#       发表于 2025-3-4 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67575523&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-4 23:07</a>
+
+母雞卡的團魂就是肉體
+
+大祥用肉體鎖死初華</blockquote>
+立希：我说过海子你不值得信任，看果然说对了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
