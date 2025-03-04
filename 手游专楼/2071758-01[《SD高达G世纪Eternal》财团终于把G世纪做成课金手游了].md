@@ -1028,3 +1028,18 @@ SR技师不是直接花金币买入吗
 没独眼没闪哈，这参战也太敷衍了</blockquote>
 这个当然是以后UR卡池
 
+
+*****
+
+####  ztkong  
+##### 84#       发表于 2025-3-4 08:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67557565&amp;ptid=2071758" target="_blank">马德兴 发表于 2025-3-2 17:15</a>
+
+我看抽UR机体池子抽到会送UR驾驶员，那么其他非UR驾驶员一般要怎么入手啊？打完关卡直接送吗？
+
+—— 来自  ...</blockquote>
+SR驾驶员过主线后开放雇佣。
+
+SSR及UR驾驶员要抽机体送
+
