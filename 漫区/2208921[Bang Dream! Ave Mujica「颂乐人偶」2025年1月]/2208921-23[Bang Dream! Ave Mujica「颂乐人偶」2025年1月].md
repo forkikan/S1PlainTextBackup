@@ -2106,3 +2106,35 @@ OP初华是最后看祥子倒下的，ED初华遥望高塔公主祥子，用脚�
 
 其他不说，黑塞的《荒原狼》是那种非常有感觉的癫狂，这Ave Mujica的剧本只能说是对大作家太过拙劣的模仿了。
 
+
+*****
+
+####  天空塔书记官  
+##### 32734#       发表于 2025-3-4 14:06
+
+无论怎么看ave的都没有最狂的感觉，这才是最大的炒作吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  adretyu67.  
+##### 32735#       发表于 2025-3-4 14:10
+
+最狂指的是最疯狂。如果初华真摇身一变开启大逃杀可能还算对的上吧
+
+*****
+
+####  岬开斗  
+##### 32736#       发表于 2025-3-4 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67571219&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-3-4 13:13</a>
+没了独角兽十本也只能拙劣模仿了 大纲是什么 我不知道
+
+Q: 执导本作的最大挑战是什么？</blockquote>
+你从哪看出没有独角兽的？
+Mujica独角兽是跟到最后一集的，因为剧情过于复杂所以一直做系构工作没时间做单集脚本。
+你不会真信了网上的“旧原案是独角兽写的，现在这版跟独角兽没关系”吧。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
