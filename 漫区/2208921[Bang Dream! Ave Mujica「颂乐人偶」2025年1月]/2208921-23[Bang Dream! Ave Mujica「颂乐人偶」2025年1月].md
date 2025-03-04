@@ -2776,3 +2776,33 @@ Ave Mujica在2024年春季就做完了</blockquote>
 
 漏油越说初华越卑微了，就差模型不是路人了
 
+
+*****
+
+####  z-hunter  
+##### 32787#       发表于 2025-3-4 16:17
+
+谁叫我们的主唱+作词被抛弃了这么多话一点戏份都没有，9话出来了还所有人都无视她<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这种安排和演出实在太糟糕了。主唱+作词在一支乐队肯定是核心的（类似兰，就算不是核心也是重要人物
+
+而且她的唯一箭头祥子还只会复读“睦，睦”。估计在睦莫融合解决进入初华线之后，祥子就会复读“初华，初华”了吧。谁知道祥子（编剧）为什么只会单线程思考，那就只能卑微了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 32788#       发表于 2025-3-4 16:18
+
+正常，初华的地位就和avemujica的世界观的重要性差不多吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhoujin8584  
+##### 32789#       发表于 2025-3-4 16:22
+
+<blockquote>6030sylar 发表于 2025-3-4 16:10
+漏油越说初华越卑微了，就差模型不是路人了</blockquote>
+每一样都感觉是全方位的下位设定，真太子和外室女，作词不能呐喊自我，作曲是用商业价值换一点如有的亲情，团还是代餐，青梅身份还是借来的假身份。
+
+我怀疑这是独角兽最大的xp释放，一次性把所有劣人设堆砌完了。
+
