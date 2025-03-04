@@ -1361,3 +1361,56 @@ A: 过去的《BanG Dream!》故事强调乐队成员间的信任与羁绊，而
 
 柿本广大2.28海外媒体专访
 
+
+*****
+
+####  6030sylar  
+##### 32665#       发表于 2025-3-4 11:09
+
+真敢这季不组起来，依然四分五裂，我敬你是条汉子
+
+*****
+
+####  Lyzers  
+##### 32666#       发表于 2025-3-4 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67570008&amp;ptid=2208921" target="_blank">老贝 发表于 2025-3-4 10:55</a>
+
+让其他人代睦抽祥子，比如素世，那结果就是变成现在的爱灯祥了，cp粉哪边都嫌弃剩下那个人碍事。
+
+莫这个 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也认同祥睦问题需要祥睦内解决，但道理是这么个道理，现在写出来的莫没做到这个设定应有的作用，更多就是个让C团（爽姐）介入的动机
+
+就像上面有人说的，你写成睦头压力过大不得不卧床休息好几天，刀子嘴豆腐心的soyo还是忍不住过来探望一样能接上现在的剧情，甚至更直接粗暴点，睦头累倒在舞台上，把大祥吓坏了瞬间软糯也可以
+
+*****
+
+####  595505568  
+##### 32667#       发表于 2025-3-4 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67570073&amp;ptid=2208921" target="_blank">GBLMikuHatsune 发表于 2025-3-4 11:03</a>
+杂志这类的访谈一般很久之前（至少1个月向上起步）就定好档期了，因为涉及到原稿校正、排版、印刷等等， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Raven314  
+##### 32668#       发表于 2025-3-4 11:12
+
+看这个预告，全员都汇聚到祥子大豪斯了是吧
+
+*****
+
+####  adretyu67.  
+##### 32669#       发表于 2025-3-4 11:15
+
+基本上就是鸡团重组了吧
+
+*****
+
+####  UNISONIA  
+##### 32670#       发表于 2025-3-4 11:16
+
+祥子的反省原来是通过看别人反省的书来实现的
+
