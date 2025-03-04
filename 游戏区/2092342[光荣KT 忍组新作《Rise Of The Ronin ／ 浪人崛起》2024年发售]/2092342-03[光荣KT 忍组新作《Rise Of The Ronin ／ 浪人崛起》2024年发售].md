@@ -48,3 +48,11 @@ PC版发售前咨询下，本作没有DLC又是开放世界，那游戏的终局
 
 DLC完全没希望了吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Yugao  
+##### 3397#       发表于 2025-3-4 11:39
+
+卧龙现在的体验，一周目去左慈那里买一把带跳劈的长剑，然后一路用到拿当仁，当战技发射器就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
