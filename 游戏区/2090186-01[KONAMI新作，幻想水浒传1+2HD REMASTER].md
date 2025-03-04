@@ -2829,3 +2829,17 @@ KONAMI的世界级ip现在能拿多少出来？
 
 总之贴个原视频：[https://www.bilibili.com/video/BV1xpfRYXEQM/](https://www.bilibili.com/video/BV1xpfRYXEQM/)
 
+
+*****
+
+####  センコウ  
+##### 311#         楼主| 发表于 2025-3-4 10:02
+
+<img src="https://img.saraba1st.com/forum/202503/04/100247hwzvyzxktk69ykzg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (84.43 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-4 10:02 上传
+
