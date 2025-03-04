@@ -1911,3 +1911,70 @@ NGA死海古卷说初华只想要祥子来着
 初华私生女基本是确定的了，这也和后面有Mujica斗丰川财阀和祥子追妻的剧情（虽然这些都是剧透，但逻辑上 ...</blockquote>
 第四集播出后相关剧透就有了
 
+
+*****
+
+####  号为熊  
+##### 32714#       发表于 2025-3-4 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67570969&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-4 12:42</a>
+
+所以初祥不只有镜像双子这一层。
+
+初华天降青梅的身份也是偷来的——劣等感。</blockquote>
+原来是双子小姨一起上了<img src="https://static.saraba1st.com/image/smiley/carton2017/481.png" referrerpolicy="no-referrer">
+
+不过我看nga那边一些信源不太支持双子设定
+
+希望等武士道真把这东西端上来的时候我能磕得动吧，感觉在BanGDream里面放这么变态的伦理关系还是有点过分了，似乎也不太能支持死海古卷对老登的高评价
+
+*****
+
+####  Mika-S  
+##### 32715#       发表于 2025-3-4 12:49
+
+大祥严选书单又更新了吗，不赖。
+要是祥子能持续更新书单，让我入赘丰川家我也愿意啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  钦念以忱  
+##### 32716#       发表于 2025-3-4 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67570975&amp;ptid=2208921" target="_blank">Skymoon 发表于 2025-3-4 12:43</a>
+
+起因在访谈里，结束也在访谈里，睦祥就是访谈战神</blockquote>
+动画没做，访谈告诉你没啥特别的，所以没做，真无语了，实在不做访谈也可以搞成开放式内容啊。
+
+*****
+
+####  Perfectfullmoon  
+##### 32717#       发表于 2025-3-4 12:53
+
+<img src="https://img.saraba1st.com/forum/202503/04/125221s7wz57myf1gyy1mm.png" referrerpolicy="no-referrer">
+
+<strong>img_0958.png</strong> (677.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-4 12:52 上传
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  号为熊  
+##### 32718#       发表于 2025-3-4 12:54
+
+NGA最新预警：对MyGO#10拙劣的模仿
+
+
+*****
+
+####  楠城旧篱  
+##### 32719#       发表于 2025-3-4 12:57
+
+<blockquote>号为熊 发表于 2025-3-4 12:54
+NGA最新预警：对MyGO#10拙劣的模仿</blockquote>
+哈哈哈哈哈哈
+
