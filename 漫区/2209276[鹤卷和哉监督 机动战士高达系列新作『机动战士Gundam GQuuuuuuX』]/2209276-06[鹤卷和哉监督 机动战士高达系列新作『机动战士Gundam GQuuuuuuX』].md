@@ -7615,3 +7615,14 @@ IMG_0165.jpeg
 
 2025-3-4 20:57 上传
 
+
+*****
+
+####  AraTurambar  
+##### 8020#       发表于 2025-3-4 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67572136&amp;ptid=2209276" target="_blank">kuriri 发表于 2025-3-4 15:24</a>
+
+鹤卷反复说了，故事的核心概念是mav，所以我们或许可以推断，正确引发杰库诺瓦的方式是两台赛科谬系统共鸣 ...</blockquote>
+按这个角度看的话吉翁战后状况是极端困难的，安琪大概率是不顾一切裁军裁到大动脉。
+
