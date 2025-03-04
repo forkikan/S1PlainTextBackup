@@ -2866,3 +2866,60 @@ Ave Mujica在2024年春季就做完了</blockquote>
 
 怎么说呢，舞鞋电话真有用？<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  GBLMikuHatsune  
+##### 32792#       发表于 2025-3-4 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67572572&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-4 16:18</a>
+
+正常，初华的地位就和avemujica的世界观的重要性差不多吧
+
+不能当团魂，不能带队，那作词作曲承担的avemujic ...</blockquote>
+至少祥子还表示过“孩子们，不要再破坏Ave mujica的世界观了”
+
+你看她有表示过“孩子们，请不要再说我不关心我的青梅竹马初华了”么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  非建政专用号  
+##### 32793#       发表于 2025-3-4 16:39
+
+大象老师之前说她不认识睦，没说不认识初华，赢！
+
+*****
+
+####  结衣小比取  
+##### 32794#       发表于 2025-3-4 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67572398&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-3-4 15:56</a>
+
+有没有更明确的时间点
+
+柿本23年11月表示正在制作
+
+声优24年4月表示已录音完成（没说什么时候录完的）</blockquote>
+这个问题其实找一直以来关注Ave Mujica乐队的坛友来回答比较好，比如[御幸一也](https://bbs.saraba1st.com/2b/thread-2159415-1-1.html)
+
+[与佐佐木李子和高尾奏音一起揭秘Ave Mujica所编织出来的音乐世界【后编】](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2159415&amp;page=382#pid64512716)(译文)
+
+原文：[https://www.animatetimes.com/news/details.php?id=1711342991](https://www.animatetimes.com/news/details.php?id=1711342991)
+
+<img src="https://img.saraba1st.com/forum/202503/04/163953wbtzi8gzud852t16.jpg" referrerpolicy="no-referrer">
+
+<strong>f73d6f690a7a3e98c643101d0ef8d3ee6601da60ee49d6_55121513_8c31590fb694bac5d536ef0a.jpg</strong> (153.27 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-4 16:39 上传
+
+上栋楼当时讨论好像说从访谈中配的CV照片服装来看，是前面什么活动的时候接受的采访
+
+*****
+
+####  K·os  
+##### 32795#       发表于 2025-3-4 16:41
+
+初华是乡下人，小时候看到的星星比较清楚，所以获得的超能力比较强，你看灯在这方面就不是很行，玩到第十话还靠初华点拨才学会怎么作为邦多利主唱去战斗
+
