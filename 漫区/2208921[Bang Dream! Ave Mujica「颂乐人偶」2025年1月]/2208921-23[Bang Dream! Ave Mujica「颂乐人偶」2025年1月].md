@@ -1475,3 +1475,115 @@ A: 过去的《BanG Dream!》故事强调乐队成员间的信任与羁绊，而
 
 而且睦妈的演技说，说全是演技，也加剧了观众的不信任感，“这个角色之前的全是假的”
 
+
+*****
+
+####  595505568  
+##### 32677#       发表于 2025-3-4 11:28
+
+话说海睦Scene，海在抬头看谁…这个房间好像是睦家里吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，素姐你又来了？
+
+*****
+
+####  哈曼的YY  
+##### 32678#       发表于 2025-3-4 11:29
+
+十本是觉得祥老师的心理描写全部都放本书让观众意会很牛批是吧
+
+*****
+
+####  shqingda_  
+##### 32679#       发表于 2025-3-4 11:29
+
+大祥看的是啥书
+
+*****
+
+####  Raven314  
+##### 32680#       发表于 2025-3-4 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67570270&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-4 11:22</a>
+那我奶的初祥镜像双子关系性不会奶中了吧
+
+“你天然拥有的、讨厌的一切是我永远不敢有的妄念”</blockquote>
+可能二人的处境上确实如此，比如初华本质上是祥子的替身人偶什么的
+但是nga的著名打字机风漏友关于初华的剧透是
+初华有深度但是没有野心，初华只要祥子
+<img src="https://p.sda1.dev/22/384cb1b1877adbdffd83128670811d4d/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  z-hunter  
+##### 32681#       发表于 2025-3-4 11:33
+
+ 本帖最后由 z-hunter 于 2025-3-4 11:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67570243&amp;ptid=2208921" target="_blank">Raven314 发表于 2025-3-4 11:20</a>
+
+如果这真是丰川老宅，大喵又是乡下人进城的表情倒是没什么
+
+初华的单手抱臂是一个经典的防御姿态，说明人物 ...</blockquote>
+初华私生女基本是确定的了，这也和后面有Mujica斗丰川财阀和祥子追妻的剧情（虽然这些都是剧透，但逻辑上是对得上的
+
+剧透的估计是B站的翻译人员，只能接触到对话台本，类似声优对剧情的推测，由B站大手在后面推出来炒作一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+在第7话GO团口碑爆炸之后，马上有剧透出来“祥子后面还要重组C团，立希和素世拒绝，灯犹豫”来平息众怒，这点尤为明显。只不过立希和素世的“C团已经结束了”的台词竟然在两话的两个不同场景，暴露了只能看到台本<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+现在区别只是初华是老登的还是中登的私生女。如果是老登的就是祥子的小姨了，也符合剧透推测。
+
+个人倾向于中登的，也可以解释一下中登为什么失败了就这么颓废
+
+*****
+
+####  钦念以忱  
+##### 32682#       发表于 2025-3-4 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67566986&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-3 21:48</a>
+
+若叶睦(Mortis)
+
+担任吉他手。睦因艺能界的压力而身心俱疲，但她仍以CRYCHIC的回忆为支撑，努力振作。然而 ...</blockquote>
+她深信，如果要继续和祥子一起演奏音乐，那么除了CRYCHIC，别无选择。
+
+啊，木箱CP又被拆线了，按这个说法，平时祥子和睦头，是几乎完全不会进行钢琴与吉他的合奏的，睦头才会觉得想和祥子合奏，必须复活CCC。
+
+*****
+
+####  金钱与民主  
+##### 32683#       发表于 2025-3-4 11:34
+
+AM全员能去丰川家的府邸集合，这财阀还斗不斗了？<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  z-hunter  
+##### 32684#       发表于 2025-3-4 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67570335&amp;ptid=2208921" target="_blank">595505568 发表于 2025-3-4 11:28</a>
+
+话说海睦Scene，海在抬头看谁…这个房间好像是睦家里吧，素姐你又来了？</blockquote>
+和祥子读书可能在同一个场景？都在睦的房间里？
+
+*****
+
+####  老贝  
+##### 32685#       发表于 2025-3-4 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67570243&amp;ptid=2208921" target="_blank">Raven314 发表于 2025-3-4 11:20</a>
+如果这真是丰川老宅，大喵又是乡下人进城的表情倒是没什么
+初华的单手抱臂是一个经典的防御姿态，说明人物 ...</blockquote>
+进丰川家防御什么，初华也要复刻祥子那套来个“父亲什么的，我不认识”吗。<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhoujin8584  
+##### 32686#       发表于 2025-3-4 11:37
+
+<blockquote>钦念以忱 发表于 2025-3-4 11:33
+她深信，如果要继续和祥子一起演奏音乐，那么除了CRYCHIC，别无选择。
+
+啊，木箱CP又被拆线了，按这个说法 ...</blockquote>
+很多演出上刻意的拆线，比如说祥子永远不可能在睦家过夜。
+
+连和好之后帮睦做病情复健也要塞台词镜头说明是每天早上过来傍晚回去。
+
