@@ -746,3 +746,11 @@ Shadowverse营运团队 敬上
 
 本来还想重新入坑的，这下拜拜了，什么乱七八糟的玩意，打个牌整那么多多余的东西，真是可惜了这个女主，我还挺喜欢的
 
+
+*****
+
+####  宵神乐  
+##### 66#       发表于 2025-3-4 23:14
+
+坐等KMR辞职谢罪<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
