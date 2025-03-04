@@ -3191,3 +3191,13 @@ F5确实可以，但是又觉得分辨率有点低...
 
 —— 来自 motorola XT2201-2, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  DARILBALDE  
+##### 281#       发表于 2025-3-5 07:40
+
+不得不说剧情挺好，我在到达共同实验所的某场景之前完全没有心理准备，给我惊得下巴都掉了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
