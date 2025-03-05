@@ -8089,3 +8089,17 @@ side7的可能性还真大<img src="https://static.saraba1st.com/image/smiley/fa
 有一个恐怖的想法，说不定只有6集呢（</blockquote>
 还有两集就大结局了是吧，耻辱柱上又多了一员大将<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  某某某人  
+##### 8062#       发表于 2025-3-5 21:44
+
+剛看完4DX，不錯
+
+平日人也不多
+
+就是前半和後半段差別比較大
+
+剛剛跟我一起看的朋友的感覺：這是拗彎我們這些高達老人的陰謀(
+
