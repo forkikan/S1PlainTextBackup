@@ -7016,3 +7016,20 @@ gi团五众已经堕怠于练习，无心于互动，背弃了live的闪耀宣�
 
 我看番少，但像母鸡卡这种让我每集都想看的烂片还是挺新鲜的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  beta10  
+##### 33156#       发表于 2025-3-6 00:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67583932&amp;ptid=2208921" target="_blank">lolisk 发表于 2025-3-6 00:38</a>
+
+我看番少，但像母鸡卡这种让我每集都想看的烂片还是挺新鲜的</blockquote>
++1
+
+现在就想看它的乐子
+
+感觉过去的烂片还没整这种活的
+
+算是开辟了新赛道？
+
