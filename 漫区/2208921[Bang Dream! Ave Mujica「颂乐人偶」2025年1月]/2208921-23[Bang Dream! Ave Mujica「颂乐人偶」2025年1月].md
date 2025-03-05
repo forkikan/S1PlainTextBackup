@@ -6393,3 +6393,17 @@ mujica开播预告里的「秘密を抱えた、彼女の話」以及最新预�
 
 2025-3-5 16:23 上传
 
+
+*****
+
+####  YF31  
+##### 33102#       发表于 2025-3-5 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67580630&amp;ptid=2208921" target="_blank">聋与唬 发表于 2025-3-5 16:22</a>
+想了想，初华为什么对祥子这么病娇是最难合理解释的。
+如果要结合小姨说，丰川家的黑暗面，初华的病娇，祥 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么说吧，木谷高明作为这个企划里的纯种昭和老登，他把第十三集看了五遍大呼神作，那么这个烂馅饺子绝对包定了，成为全网最尊重老登的少女乐队动画。
+什么家族雷雨，情场毒杀的，老登作为纯种昭和劳保看不了这个。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
