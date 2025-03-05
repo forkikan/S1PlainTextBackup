@@ -797,3 +797,11 @@
 
 我还以为更新奏4了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 16472#       发表于 2025-3-6 01:18
+
+土所长本2，3难度今天才打，前几天自己吓自己有点不想打，其实打够角的buff然后关底学姐感觉并不难<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
