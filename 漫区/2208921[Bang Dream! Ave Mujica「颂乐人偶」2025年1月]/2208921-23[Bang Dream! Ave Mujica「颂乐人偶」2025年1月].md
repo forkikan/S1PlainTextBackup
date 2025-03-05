@@ -6850,3 +6850,20 @@ gi团五众已经堕怠于练习，无心于互动，背弃了live的闪耀宣�
 
 现在想想，底下那群京观鼓掌，场内设计上大概确实是大仇得报<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">配合场外两极分化的讨论
 
+
+*****
+
+####  cccpprc  
+##### 33140#       发表于 2025-3-5 21:11
+
+哪有两极分化的讨论啊
+
+现在不都是一边倒
+
+*****
+
+####  595505568  
+##### 33141#       发表于 2025-3-5 21:13
+
+事已至此<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">Hell or Hell/Sing Alive/音一会/kizuna music/循环启动
+
