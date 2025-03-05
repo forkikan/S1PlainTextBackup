@@ -5428,3 +5428,107 @@ ysl运动服。。。也就长运动服那样的啊，虽然喵梦那个像小�
 
 我就好奇怎么到底才能从少女乐队扯到家庭伦理去的...现在的矛盾不就一个小女孩摇摆下两个乐队吗，为什么能如此自由
 
+
+*****
+
+####  Lyzers  
+##### 33023#       发表于 2025-3-5 12:18
+
+答案是自适应论心不论迹
+
+*****
+
+####  thisisaspider  
+##### 33024#       发表于 2025-3-5 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67577976&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-5 11:07</a>
+外公的恩情比海深～
+
+可是他爛褲檔，</blockquote>
+毕竟旧C团成员的“不专一”也被网民狠狠斗了。这点上还真的顺着编剧思路跑了XD
+
+*****
+
+####  6030sylar  
+##### 33025#       发表于 2025-3-5 12:19
+
+哇真有老登噶！
+丰川家的戏份比以往的都多太多，都拍歪了，二偶片大家都是来看美少女的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  thisisaspider  
+##### 33026#       发表于 2025-3-5 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67578058&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-5 11:15</a>
+海铃买的东西按现实世界那些牌子的价格一次买了接近两百万人民币，都快够爱音在英国读完高中了，按照日本娱 ...</blockquote>
+祥子觉得在老宅没有自由又是哪里的结论。
+
+*****
+
+####  看穿一切的鱼  
+##### 33027#       发表于 2025-3-5 12:21
+
+求你们不要再研究你鸡的现实元素了，全都是拿py想的要素，拿脚趾头填的数值<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  金钱与民主  
+##### 33028#       发表于 2025-3-5 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67578657&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-5 12:17</a>
+
+母鸡卡的人设是自由的，所以老登后面一转神人出轨控制狂也不奇怪...
+
+我就好奇怎么到底才能从少女乐队扯到 ...</blockquote>
+给祥子安排这种家庭背景的不就是剧组么？至于矛盾，祥子的矛盾的起点还真就是家庭。
+
+*****
+
+####  ntrntr1  
+##### 33029#       发表于 2025-3-5 12:23
+
+<blockquote>thisisaspider 发表于 2025-3-5 12:21
+祥子觉得在老宅没有自由又是哪里的结论。</blockquote>
+不知道啊，楼友说的。
+
+但青春期少女觉得家里没有自由其实挺普遍的。
+
+
+*****
+
+####  ntrntr1  
+##### 33030#       发表于 2025-3-5 12:24
+
+<blockquote>金钱与民主 发表于 2025-3-5 12:22
+给祥子安排这种家庭背景的不就是剧组么？至于矛盾，祥子的矛盾的起点还真就是家庭。 ...</blockquote>
+
+但矛盾点本来只是家庭变故
+
+突然变成你（三集没上线的）主唱是你亲戚这种也是很自由
+
+就好奇到底怎么演才能一转这个展开
+
+*****
+
+####  山ノ内花音  
+##### 33031#       发表于 2025-3-5 12:25
+
+这个傻逼剧本究竟是怎么通过的 实在是个未解之谜
+
+*****
+
+####  金钱与民主  
+##### 33032#       发表于 2025-3-5 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67578730&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-5 12:24</a>
+
+但矛盾点本来只是家庭变故
+
+突然变成你（三集没上线的）主唱是你亲戚这种也是很自由 ...</blockquote>
+要我说从祥子这种家庭背景故事来看，你就很容易理解为啥过去的邦邦人均爹妈正常了，顶多老妈生病需要照顾。
+
