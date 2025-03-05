@@ -7795,3 +7795,16 @@ https://x.com/minatonosoko/status/1897028734366220626
 应该不对，当初鸭子泽克诺瓦事故时也用了:"不是我，塞克缪是和谁发生了反应"的说法，而且用"object"来形容 ...</blockquote>
 嗯有道理哦
 
+
+*****
+
+####  xwr  
+##### 8036#       发表于 2025-3-5 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67577164&amp;ptid=2209276" target="_blank">异界送 发表于 2025-3-5 09:33</a>
+
+年头的剧场版啥时候出BD，不看对TV有影响么？</blockquote>
+可能不会有BD，本质TV剪辑的剧场版。一年战争IF可能上流媒体吧
+
+不看其实也没什么，对UC有一点概念就好，比如吉翁，地球联邦，一年战争，米诺夫斯基粒子之类基础设定。
+

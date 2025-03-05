@@ -5813,3 +5813,72 @@ ysl运动服。。。也就长运动服那样的啊，虽然喵梦那个像小�
 这就是现在木箱厨最大的分歧，睦作为姐姐，明面上所作所为都是为了大祥，实际上却一直在拖小祥后腿，所以 ...</blockquote>
 所以搞了个双重人格来洗，“不是角色故意的，是有病”，不然睦就太茶了
 
+
+*****
+
+####  钦念以忱  
+##### 33058#       发表于 2025-3-5 13:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67578828&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-5 12:38</a>
+
+所以他真要写家庭伦理剧，铺垫都有了。但问题是在少女乐队番中写这个想表达什么。甚至这是MYGO开始就有的 ...</blockquote>
+让大祥失去一切，现在拍到第9第10集，大祥即将失去睦头，基本上是板上钉钉了，之后睦头和Mortis哪怕融合也不再是和之前的睦头一样的角色了。
+
+那第11集12集的家庭伦理剧，让大祥发现自己其实是私生子，失去丰川血脉，从叙事逻辑是通顺的，所以我昨天看到漏油有人提出之后，立刻觉得这个猜想很真很好。
+
+只能说，这可能又是企划被并入邦邦之前的遗留问题，来不及改也改不动了。
+
+*****
+
+####  山ノ内花音  
+##### 33059#       发表于 2025-3-5 13:06
+
+你们居然还在分析剧情吗
+还看不出来前几集的弱智操作都是因为10本把做什么都会错 和说什么都会错作为祥子和睦的底层逻辑了吗
+10本会在杂志访谈里自己承认这一点也是无敌了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 33060#       发表于 2025-3-5 13:08
+
+<blockquote>z-hunter 发表于 2025-3-5 12:35
+其实在MYGO动画里也有很多不听人言不做人事不沟通，总是我觉得是就是，根本不考虑嘴里说的是什么废话
+
+不过 ...</blockquote>
+主要分別是MyGo 裡負責這兩樣的是素希
+
+她們不是主角
+
+愛燈是有溝通的
+
+到了母雞卡是當主角的兩個人不作人事
+
+*****
+
+####  thisisaspider  
+##### 33061#       发表于 2025-3-5 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67579036&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-5 13:04</a>
+让大祥失去一切，现在拍到第9第10集，大祥即将失去睦头，基本上是板上钉钉了，之后睦头和Mortis哪怕融合 ...</blockquote>
+如果编剧真的讲不明白，我还是倾向于编剧菜。问题都是他们自己埋下的。给自己难度最后说解不出来。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  thisisaspider  
+##### 33062#       发表于 2025-3-5 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67579052&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-3-5 13:06</a>
+你们居然还在分析剧情吗
+还看不出来前几集的弱智操作都是因为10本把做什么都会错 和说什么都会错作为祥子和 ...</blockquote>
+少女乐队也有自己的底层逻辑。想表达kirakira。高优先级的覆盖低优先级的不就行了。按现在这样写完垫的就是邦多利的世界观了。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 33063#       发表于 2025-3-5 13:15
+
+鸡动画比狗动画作画错误的镜头还多，盯帧分析也是想多了
+就第9集就有偷摸零笔记本前后代码混乱，连名字都变平假名这种一眼就能看出来的错误
+
