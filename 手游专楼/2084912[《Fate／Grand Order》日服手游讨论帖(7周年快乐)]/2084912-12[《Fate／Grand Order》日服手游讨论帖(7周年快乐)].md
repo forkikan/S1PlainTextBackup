@@ -805,3 +805,40 @@
 
 土所长本2，3难度今天才打，前几天自己吓自己有点不想打，其实打够角的buff然后关底学姐感觉并不难<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  quanlix  
+##### 16473#       发表于 2025-3-5 22:55
+
+没乱缝，不锁卡面，强度在线，战斗演出不错，感觉好久没有过这样的角色了，就是宝具演出有点问题，非要分两次给面部特写，应该把3破的ex攻击加工下给做成第二套宝具演出
+
+*****
+
+####  里村紅葉  
+##### 16474#       发表于 2025-3-5 23:19
+
+我还以为更新奏4了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 16475#       发表于 2025-3-6 01:18
+
+土所长本2，3难度今天才打，前几天自己吓自己有点不想打，其实打够角的buff然后关底学姐感觉并不难<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  v22325  
+##### 16476#       发表于 2025-3-6 06:16
+
+<img src="https://img.saraba1st.com/forum/202503/06/061559lu6muojvvdharvxd.jpg" referrerpolicy="no-referrer">
+
+<strong>1000020810.jpg</strong> (310.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 06:15 上传
+
+今天维护石头又抽到个丑御前……
+

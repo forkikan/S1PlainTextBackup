@@ -8206,3 +8206,34 @@ side7的可能性还真大<img src="https://static.saraba1st.com/image/smiley/fa
 
 这个世界线里鸭子的追悼会应该真的是紫色老太婆主持的吧，感觉有点讽刺
 
+
+*****
+
+####  gamedreamer  
+##### 8070#       发表于 2025-3-6 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67583502&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-3-5 22:58</a>
+联邦打的这么艰难，身边不少战友都阵亡了吧
+
+原作里阿姆罗受的压力也都要背在身上，战争形势也越来越差。 ...</blockquote>
+感觉鸭妹的精神状态大概介于疯和崩溃之间吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  xwz  
+##### 8071#       发表于 2025-3-6 03:49
+
+这个世界线里鸭子的追悼会应该真的是紫色老太婆主持的吧，感觉有点讽刺
+
+*****
+
+####  太极八爪鱼  
+##### 8072#       发表于 2025-3-6 06:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67584183&amp;ptid=2209276" target="_blank">xwz 发表于 2025-3-5 11:49</a>
+
+这个世界线里鸭子的追悼会应该真的是紫色老太婆主持的吧，感觉有点讽刺</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">紫婆和夏亚本来也有cp吧，不过因为鸭子萝莉控的的关系是单箭头
+
