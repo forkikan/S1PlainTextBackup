@@ -6493,3 +6493,12 @@ mortis专属bgm目前用到的几次只会让人想笑，明明讲的设定很�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  一心而用  
+##### 33110#       发表于 2025-3-5 16:57
+
+“我的人生，想全部都给小祥…”<img src="https://p.sda1.dev/22/c77b36ec6912425cb5575fc13fdccbb6/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/38ee916949759ecf983bd490c738a3d9/image.jpg" referrerpolicy="no-referrer">
+

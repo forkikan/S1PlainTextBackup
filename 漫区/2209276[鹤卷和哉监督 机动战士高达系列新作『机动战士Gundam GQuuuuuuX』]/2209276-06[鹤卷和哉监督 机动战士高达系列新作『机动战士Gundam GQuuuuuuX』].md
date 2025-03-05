@@ -7953,3 +7953,15 @@ side7的可能性还真大<img src="https://static.saraba1st.com/image/smiley/fa
 
 主角一行偷偷潜入地球，被发现，一路杀回宇宙，联邦高呼吉翁违法停战协定，进攻月神2号，GQuuuuuuX第二季堂堂展开<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gamedreamer  
+##### 8049#       发表于 2025-3-5 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67580484&amp;ptid=2209276" target="_blank">xwr 发表于 2025-3-5 16:07</a>
+主角一行偷偷潜入地球，被发现，一路杀回宇宙，联邦高呼吉翁违法停战协定，进攻月神2号，GQuuuuuuX第二季堂 ...</blockquote>
+这次是炸阿巴瓦空还是side3呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
