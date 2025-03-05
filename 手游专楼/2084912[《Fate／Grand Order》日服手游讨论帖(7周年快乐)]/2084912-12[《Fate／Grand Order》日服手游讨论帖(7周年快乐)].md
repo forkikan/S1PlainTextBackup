@@ -512,3 +512,59 @@
 打完第一个就累了，后面的还怎么打</blockquote>
 其实差别没有一般的本那么大，二星本每管血就比普通多了50-80不等，三星比起二星也就是第一管多了100来万，最后一管多了300万不到，数字看着大，不过配上这关的buff，实际上可以减个0，打得过普通的基本上应该都能过。攻击方面基本上没差别，因为从第二管血开始基本上就是秒人了，没有防御对策红字必死，蓝字吃个暴击也难活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  格林卡罗尔  
+##### 16452#       发表于 2025-3-3 11:33
+
+这次娄希没注意到时间，保底凑了一半人就跑了<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  v22325  
+##### 16453#       发表于 2025-3-4 20:10
+
+卧槽,三十连三个池连出三个五星仇,我这是捅了人理死线了？今年第一次出五星好吓人啊……我明天要死了？
+
+1000020736.jpg
+(295.12 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-4 20:07 上传
+
+<img src="https://img.saraba1st.com/forum/202503/04/200720q0ddtivtya0e7i1z.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 16454#       发表于 2025-3-4 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67574381&amp;ptid=2084912" target="_blank">v22325 发表于 2025-3-4 20:10</a>
+
+卧槽,三十连三个池连出三个五星仇,我这是捅了人理死线了？今年第一次出五星好吓人啊……我明天要死了？
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">现在是你比较欧 今年就我最非了
+
+*****
+
+####  khxooo  
+##### 16455#       发表于 2025-3-5 11:39
+
+但丁要实装了？也是奏章4预热了。
+
+*****
+
+####  khxooo  
+##### 16456#       发表于 2025-3-5 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67574381&amp;ptid=2084912" target="_blank">v22325 发表于 2025-3-4 20:10</a>
+卧槽,三十连三个池连出三个五星仇,我这是捅了人理死线了？今年第一次出五星好吓人啊……我明天要死了？
+
+ ...</blockquote>
+卧槽，欧羡慕<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

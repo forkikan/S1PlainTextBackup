@@ -2930,3 +2930,16 @@ KONAMI的世界级ip现在能拿多少出来？
 
 出了吗？
 
+
+*****
+
+####  棺材叔叔  
+##### 321#       发表于 2025-3-5 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67573971&amp;ptid=2090186" target="_blank">山口達也 发表于 2025-3-4 19:04</a>
+
+konami的手游运营大部分都还不错，除了卡牌王自走棋那种先天不足，光速褒姒的... ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">天国里的LP。。
+
+不过也有可能是初期运营经验不足，不知道还能不能重新搬出来做续作
+

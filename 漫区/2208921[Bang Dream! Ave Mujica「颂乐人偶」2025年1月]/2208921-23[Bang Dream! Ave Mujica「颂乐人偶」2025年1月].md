@@ -5250,3 +5250,62 @@ ysl的运动服一套也万把块钱
 
 主要动画给的买法真的很夸张....
 
+
+*****
+
+####  rollingusagi  
+##### 33009#       发表于 2025-3-5 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67578264&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-5 11:34</a>
+
+第一家是华伦天奴，她是整个柜子都全包买法，这就估计六位数了。。。
+
+ysl的运动服一套也万把块钱</blockquote>
+华伦天奴一个服装品牌哪来的专门卖首饰的店，你真要拿现实较真那我还可以说这就一山寨店呢
+
+*****
+
+####  与太郎  
+##### 33010#       发表于 2025-3-5 11:42
+
+海王什么的都是玩笑话，但是我上面那句“被mortis吐槽”然后才退30个队是事实
+
+复读一下之前的内容：
+<img src="https://img.saraba1st.com/forum/202502/28/182054pv717vwyzw101v6a.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/202502/28/182055xytko0cvt4zofc7c.jpg" referrerpolicy="no-referrer"> <blockquote>1、这里的mortis说「本気でやってんのに」不是说她真在学吉他，这里一定是在练习假弹，这句话对应的是海铃的上一句，也就是说海铃表示我还有其他乐队，mortis因此埋怨道“我为了复活mujica而努力，你却这么三心二意”，恐怕海铃也是在这个节点之后才退了其他30（10）个乐队；</blockquote>杂志解说词里是这么写的：
+
+<img src="https://img.saraba1st.com/forum/202503/05/111205zj36qj00mic04mjq.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20250305110914.jpg</strong> (69.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-5 11:12 上传
+
+这里其实就涉及一个问题，海铃的处女乐队出道战失败的本质原因是什么？真的是她“爹味”太重管太多吗？
+
+恐怕“缺乏沟通”才是关键吧，你说海铃管太宽，却连队员想什么都不关注，不就和mujica的ob一串字母一样了吗？
+
+如果说海铃30个乐队雇佣兵算不专一，初华sumimi和mujica一半一半的投入又算什么呢
+
+所以这里海铃对mortis孩子气的抱怨，实际上存在着一定程度的过度解读
+
+mujica这个团队存在着一种颇为刻意的缺乏沟通的气氛，甚至于MyGO里海铃对睦的关心的刻画都比本季里大部分时候祥子对睦的关心要强
+
+即使在7话c团和解之后，祥子和睦仍然是沟通错位的状态
+
+如果不考虑世界之外的力量，mujica最后写成一种虽然重组了，但大家仍然没有互相理解的情况，倒更符合本作一贯的调性
+
+考虑到柿本说本作是心理恐怖片，沟通和心理描写的缺位是刻意，现在这种观看体验某种程度上也是他有意为之吧（虽然更多是因为水平菜<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">）
+
+*****
+
+####  K·os  
+##### 33011#       发表于 2025-3-5 11:43
+
+有些数值问题小小的自适应一下也无伤大雅，反正就是照着画个logo，也不是说真的就是现实中的那个牌子了对吧（
+
+你想初华5w粉喵姆32w粉这种事情就，不好解释
+
+其实喵姆32w粉几千播放这事在**属于很正常，不好解释的主要就是初华
+
