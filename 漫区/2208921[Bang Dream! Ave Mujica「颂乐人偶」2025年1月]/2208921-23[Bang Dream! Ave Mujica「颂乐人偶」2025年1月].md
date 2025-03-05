@@ -6149,3 +6149,34 @@ cp厨和嗑cp还是不一样的...
 
 ——莫不走心，台词也错了。
 
+
+*****
+
+####  ape-apple  
+##### 33085#       发表于 2025-3-5 15:09
+
+下一集会有暖色滤镜车站互骂，暖色滤镜祥子逼睦站队，暖色揭面具，暖色初华推人，暖色吉他睦坠楼吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 33086#       发表于 2025-3-5 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67579878&amp;ptid=2208921" target="_blank">YF31 发表于 2025-3-5 14:54</a>
+那倒不是，RAS就开始倒反天罡了，往上萝也是有一堆神人操作，还有著名的花道领域大神。
+但是鸡能用光看就 ...</blockquote>
+何止是倒反天罡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，皮下和角色可以说几乎毫不相干，那我问你.JPG
+立希和鼓子相似吗 羊和灯相似吗 蜜柑这个儿邦梦准职业贝斯怎么捞了个素世 lsl对得起投在爱音上的人设高光和人气吗 青木…青木倒是太忙了不评价和猫猫的相符
+母鸡卡更是5个E人动画里成了5个神人…
+akane 弄弄 节约宝 李子 梦以，你倒是告诉我祥子和弄弄除了大小姐人设外有什么相似性吗（挠头）
+我以为你会安定的逆输入<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，这才好卖卡的同时人皮合一（比如蜜柑女士成为声优进入邦多利的故事就很王道）
+
+*****
+
+####  天空塔书记官  
+##### 33087#       发表于 2025-3-5 15:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

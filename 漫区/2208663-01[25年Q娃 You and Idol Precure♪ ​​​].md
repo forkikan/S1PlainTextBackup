@@ -4271,3 +4271,11 @@ ps 梅泽主p的q娃们是没有设定生日过 网络传的都是假的
 
 变身系偶像乃至魔法少女因为变身掉链子，导致本体有被开盒的危机，已经属于老的不能再老的固定桥段了，少说十几种作业可以抄的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 665#       发表于 2025-3-5 15:13
+
+虽然但是吧你偶Q整体上还是一部典中典的Q娃作品的，而典中典的Q娃并不存在被打吃瘪以及被嘴炮到道心破碎以外的非正常解除变身方式吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
