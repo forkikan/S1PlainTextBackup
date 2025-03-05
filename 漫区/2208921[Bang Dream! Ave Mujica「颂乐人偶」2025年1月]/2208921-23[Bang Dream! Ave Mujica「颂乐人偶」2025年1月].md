@@ -6794,3 +6794,34 @@ gi团五众已经堕怠于练习，无心于互动，背弃了live的闪耀宣�
 
 进了手游可以把后面的无尽老登地狱删一删吗<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ntrntr1  
+##### 33135#       发表于 2025-3-5 20:50
+
+ 本帖最后由 ntrntr1 于 2025-3-5 20:52 编辑 
+
+虽然这动画表现得稀烂
+
+但祥睦莫理论上还是挺好嗑的。。。。
+
+开始一脸厌恶祥子的小莫，每次祥睦对望的时候就突然出现，开始只是试图分开祥睦，结果后面自己也沦陷了，开始和小睦争风吃醋
+
+最开始的祥子看到小莫就害怕捂头，到后面发现小莫是个爱用天真无邪诱惑的小鬼，两个魅魔进行对决 
+
+表面顺从其实是DOM位的小睦
+
+谁把本子端上来啊，球球你了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+哦当然加个在旁边爱而不得的大笨狗初华也是极好的，每次都傻傻相信小莫和自己是同盟结果小莫自己偷偷上位什么的 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhoujin8584  
+##### 33136#       发表于 2025-3-5 20:52
+
+<blockquote>adretyu67. 发表于 2025-3-5 20:32
+莫头和睦头共用血条吗</blockquote>
+共用的吧，第二话莫已经开始顶采访了甚至因为顶的多了开始有了社交外的性格给自己的房间放上了各种玩偶才倒在床边切小睦，小睦白天基本没个清醒的时候，就用晚上熬夜抱吉他找回自己，结果就是整个机体因失去睡眠倒在台上。
+
