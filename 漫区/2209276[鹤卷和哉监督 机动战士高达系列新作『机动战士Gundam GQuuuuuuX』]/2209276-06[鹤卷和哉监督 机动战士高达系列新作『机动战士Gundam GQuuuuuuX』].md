@@ -8078,3 +8078,14 @@ side7的可能性还真大<img src="https://static.saraba1st.com/image/smiley/fa
 
 有一个恐怖的想法，说不定只有6集呢（
 
+
+*****
+
+####  RE㐅ia  
+##### 8061#       发表于 2025-3-5 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67582680&amp;ptid=2209276" target="_blank">AvenueIII 发表于 2025-3-5 21:01</a>
+
+有一个恐怖的想法，说不定只有6集呢（</blockquote>
+还有两集就大结局了是吧，耻辱柱上又多了一员大将<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

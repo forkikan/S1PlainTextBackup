@@ -6867,3 +6867,17 @@ gi团五众已经堕怠于练习，无心于互动，背弃了live的闪耀宣�
 
 事已至此<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">Hell or Hell/Sing Alive/音一会/kizuna music/循环启动
 
+
+*****
+
+####  小博禹  
+##### 33142#       发表于 2025-3-5 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67582455&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-5 20:23</a>
+老师我们小莫中途能参加吗
+
+如果参加了算几人捏</blockquote>
+我是纯爱党，不接受小莫<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
