@@ -6502,3 +6502,23 @@ mortis专属bgm目前用到的几次只会让人想笑，明明讲的设定很�
 “我的人生，想全部都给小祥…”<img src="https://p.sda1.dev/22/c77b36ec6912425cb5575fc13fdccbb6/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/22/38ee916949759ecf983bd490c738a3d9/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  与太郎  
+##### 33111#       发表于 2025-3-5 17:18
+
+或许可以跳出对错判断
+
+既然MyGO10可以不让soyo赎罪
+
+既然没有让喵梦为摘面具而受到责难
+
+既然mujica7可以在让c团其他人反过来道歉的情况下达成和解
+
+那么mujica结尾也未必要分出个谁对谁错吧
+
+倒是祥子的纯度需要提高一下，找到真正属于自己的玩乐队的理由
+
+又或者柿本就是要写一个翻转的情况，手段成为了目的，为了Ave Mujica而Ave Mujica
+

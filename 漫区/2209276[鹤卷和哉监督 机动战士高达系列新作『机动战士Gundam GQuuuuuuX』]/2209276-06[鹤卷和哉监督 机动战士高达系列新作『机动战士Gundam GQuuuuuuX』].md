@@ -7965,3 +7965,32 @@ side7的可能性还真大<img src="https://static.saraba1st.com/image/smiley/fa
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  葛雷新  
+##### 8050#       发表于 2025-3-5 17:18
+
+看了《雷霆宙域》200多话的剧情，最终是卡拉教授向SIDE3复仇，怎么看也比Gundam GQuuuuuuX这种IF剧情的立意要高。
+
+
+*****
+
+####  Steel.Haze  
+##### 8051#       发表于 2025-3-5 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67580990&amp;ptid=2209276" target="_blank">gamedreamer 发表于 2025-3-5 17:04</a>
+
+这次是炸阿巴瓦空还是side3呢
+
+—— 来自 鹅球 v3.3.96</blockquote>
+当然是Side3.摧毁半数人类的罪魁们却不承担任何责任。你的眼泪为谁而流？这雷霆新的一画的立意堪比“赛亚人也不是什么好东西”“对，所以他们灭绝了”。如果剧情要走大事件，围绕摧毁S3的报复计划是个主题（最后估计是S3保下来，扎比家余党完蛋）【玩梗的说一下：女主这台GUQ其实布局挺像GP01FB的，联邦魔女如果要当宿敌，那么也要抢夺一部"高达"，高达西格玛，吉翁秘密制造的对地球再次降下的对查布罗专用核打击MS，然后被魔女抢夺后，在所罗门的吉翁阅舰活动上...."金米岛噢，我回来了！"】
+
+<img src="https://img.saraba1st.com/forum/202503/05/171658wov0g297br4xvrgo.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (470.82 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-5 17:16 上传
+
