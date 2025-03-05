@@ -7008,3 +7008,11 @@ gi团五众已经堕怠于练习，无心于互动，背弃了live的闪耀宣�
 
 问题是这也太烂了啊，二偶/乐队番能烂到这个地步的有几个？得说星团2真比Mujica要好点，起码live真不缺。
 
+
+*****
+
+####  lolisk  
+##### 33155#       发表于 2025-3-6 00:38
+
+我看番少，但像母鸡卡这种让我每集都想看的烂片还是挺新鲜的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
