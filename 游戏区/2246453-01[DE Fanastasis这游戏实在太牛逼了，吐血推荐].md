@@ -3284,3 +3284,32 @@ F5确实可以，但是又觉得分辨率有点低...
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">前期有啥厉害点的套路，地下墓地推图压力也有点大了……
 
+
+*****
+
+####  blackll7  
+##### 291#       发表于 2025-3-5 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67581640&amp;ptid=2246453" target="_blank">大暗月 发表于 2025-3-5 18:34</a>
+
+前期有啥厉害点的套路，地下墓地推图压力也有点大了……</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">不需要这种东西，所有敌人都能绕，不如仔细观察地图
+
+*****
+
+####  塔奇克马  
+##### 292#       发表于 2025-3-5 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67581640&amp;ptid=2246453" target="_blank">大暗月 发表于 2025-3-5 18:34</a>
+
+前期有啥厉害点的套路，地下墓地推图压力也有点大了……</blockquote>
+增加逃跑概率 直接跑跑跑就完事了 也就后期有点战斗
+
+
+*****
+
+####  zwqcm  
+##### 293#       发表于 2025-3-5 18:54
+
+对于我这种喜欢一条道走到底再探另一条道的属实有点别扭，一路从异种地下一层打到地下六层，然后又是一张超大地图，整个人都有点不好了。。。一路打回地面都还没一个正牌t当队友
+

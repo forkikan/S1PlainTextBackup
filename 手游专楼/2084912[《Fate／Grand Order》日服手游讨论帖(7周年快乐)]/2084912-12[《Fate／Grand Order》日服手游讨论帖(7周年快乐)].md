@@ -681,3 +681,14 @@
 
 有一说一挺合我胃口的，阴郁美男子，气质莫名像雨宫莲...
 
+
+*****
+
+####  khxooo  
+##### 16463#       发表于 2025-3-5 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67581420&amp;ptid=2084912" target="_blank">大十字紅朔 发表于 2025-3-5 18:05</a>
+
+这个好大</blockquote>
+所以不明白为什么会猜这个是龙娘<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
