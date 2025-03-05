@@ -7061,3 +7061,13 @@ gi团五众已经堕怠于练习，无心于互动，背弃了live的闪耀宣�
 
 大祥老师的严选书单有点意思，这《德米安》比《心》更抽象了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 33160#       发表于 2025-3-6 03:35
+
+ 本帖最后由 akiomn 于 2025-3-6 03:36 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁舅舅能集体说第十集只有live还行，再算上透露的去掉op和ed的2首新歌，最后还得把初华当作爆点。但是前面剧情捅的窟窿太大了，第十集剧情时间还特别紧，注定了第十集的剧情部分要烂完了，看看能烂到什么地步
+
