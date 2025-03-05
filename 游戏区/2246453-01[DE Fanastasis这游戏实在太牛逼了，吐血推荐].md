@@ -3227,3 +3227,13 @@ F5确实可以，但是又觉得分辨率有点低...
 
 确实 好玩 比一些现在日厂的RPG都要好玩，点名 去年的暗喻，不如这游戏一根，如果 能有DQ3 HD2D引擎做 感觉会很爽<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">（有点痴人说梦了）
 
+
+*****
+
+####  reoch  
+##### 285#       发表于 2025-3-5 12:05
+
+<blockquote>shinnfin 发表于 2025-3-5 09:38
+在某个走来走去一直堵着路的boss身上</blockquote>
+可是我到不了那个boss那里，那个boss是在第二层对吧，我隔着门可以看见他，但是自警团的门我一个也打不开
+
