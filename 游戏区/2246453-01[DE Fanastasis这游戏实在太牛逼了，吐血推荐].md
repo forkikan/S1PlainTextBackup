@@ -3344,3 +3344,24 @@ F5确实可以，但是又觉得分辨率有点低...
 
 —— 来自 HUAWEI DCO-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  水边井  
+##### 297#       发表于 2025-3-6 01:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67583873&amp;ptid=2246453" target="_blank">InfiniteGyre 发表于 2025-3-6 00:19</a>
+
+卡农之间第三层岩浆地带除了套两层防陷阱魔法还有别的对策吗？临时buff总让人觉得不踏实（而且如果有人到这 ...</blockquote>
+可以全程按shift慢慢走，没有让你必须要踩岩浆的地方
+
+
+*****
+
+####  PigMourne  
+##### 298#       发表于 2025-3-6 01:52
+
+从地下墓地一路跑到王都门口，森林和下水道都舔了，只找到一个二动影战士。
+
+看召唤列表空了3个人，怕不是全漏了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
