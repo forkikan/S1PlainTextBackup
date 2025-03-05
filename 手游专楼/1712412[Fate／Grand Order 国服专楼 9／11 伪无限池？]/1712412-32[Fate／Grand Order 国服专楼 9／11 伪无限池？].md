@@ -35,3 +35,11 @@
 话说妖兰的ml是怎么来的，太热烈了吧</blockquote>
 毕竟叫兰斯洛特，偷情是本色<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  待宵  
+##### 47037#       发表于 2025-3-5 09:55
+
+妖兰要是不ml，那她爱着的另一个人渣……不对，妖渣可能会影响流水吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
