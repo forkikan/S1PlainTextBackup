@@ -4913,3 +4913,47 @@ Ave Mujica arg游戏全流程及解析 ［转载］
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  南宮凝香  
+##### 32982#       发表于 2025-3-5 10:10
+
+髮小瘋球了
+
+覺得這是自己做的，不敢去看她
+
+逃避 táobì
+
+躲開不願意或不敢接觸的事物
+
+就是逃避呀
+
+*****
+
+####  aptx8285144  
+##### 32983#       发表于 2025-3-5 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67577342&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-3-5 09:55</a>
+
+灯只敢写歌词是什么新式笑话 太恨了</blockquote>
+本质上就是抱怨灯在鸡团动画时候已经很被动了，对白月光无限滤镜，大祥开口就要么顺着对方要么宕机
+
+*****
+
+####  哈曼的YY  
+##### 32984#       发表于 2025-3-5 10:14
+
+觉得自己接近会再伤害=不敢去看和逃避？
+
+*****
+
+####  金钱与民主  
+##### 32985#       发表于 2025-3-5 10:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67576678&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-5 08:23</a>
+海玲纯粹是独角兽和柿本的神人逻辑逼的，这么多经济利益，不想着怎么好好努力让每个团队像乐奈家人那样称 ...</blockquote>
+一口气退十几个乐队，这海铃怕不是要在圈子里声名狼藉了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
