@@ -8198,3 +8198,11 @@ side7的可能性还真大<img src="https://static.saraba1st.com/image/smiley/fa
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  xwz  
+##### 8069#       发表于 2025-3-6 03:49
+
+这个世界线里鸭子的追悼会应该真的是紫色老太婆主持的吧，感觉有点讽刺
+
