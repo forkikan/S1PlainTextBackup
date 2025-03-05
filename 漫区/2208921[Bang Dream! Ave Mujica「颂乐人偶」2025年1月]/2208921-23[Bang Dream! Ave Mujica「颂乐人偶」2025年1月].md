@@ -6952,3 +6952,41 @@ gi团五众已经堕怠于练习，无心于互动，背弃了live的闪耀宣�
 其实吧，在今天舅舅证实后才板上钉钉</blockquote>
 战吧还有些在做梦说对比go时期如何如何，当年灯和爱音两个给的视角最多的人，最后阶段前风评哪有大祥和睦这么烂呀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  小博禹  
+##### 33150#       发表于 2025-3-5 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67583461&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-5 22:52</a>
+战吧还有些在做梦说对比go时期如何如何，当年灯和爱音两个给的视角最多的人，最后阶段前风评哪有大祥和睦 ...</blockquote>
+十本就觉得祥子是的烂人，觉得睦应该有双重人格<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+都怪大众跟不上他思路<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  小博禹  
+##### 33151#       发表于 2025-3-5 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67583373&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-5 22:40</a>
+访谈居然实锤了海铃教睦弹空气吉他...
+
+神人辈出啊</blockquote>
+女同也没呀<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  小博禹  
+##### 33152#       发表于 2025-3-5 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67583099&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-3-5 21:59</a>
+其实从铃子操作也能看出来，邦邦世界里对一人多组乐队的态度还是挺微妙的，本来mujica启航的时候，铃子就一 ...</blockquote>
+尊重一下母鸡卡世界观，是海子不是铃子<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+

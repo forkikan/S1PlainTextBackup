@@ -1478,3 +1478,40 @@ geekjack卖得比官方商店快
 
 反过来今天发的MV画质才只有1080P
 
+
+*****
+
+####  holofan  
+##### 10862#       发表于 2025-3-5 23:07
+
+<img src="https://img.saraba1st.com/forum/202503/05/230508twdwkza37a3m1wbo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (5.91 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-5 23:05 上传
+
+今天还说想把这场live作为3天后fes的热身结果一下子热过头了我觉得fes再怎么样怕是超不过这场的质量了
+
+不过说回来fes很可能不唱自己的曲子了，今天都唱完了……
+
+*****
+
+####  holofan  
+##### 10863#       发表于 2025-3-5 23:13
+
+<img src="https://img.saraba1st.com/forum/202503/05/231017i1hpz348l9tpqa1m.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (29.74 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-5 23:10 上传
+
+自己对这次准备的周边很有信心
+
+但是其实说的话，led发光艺术板，说白了这玩意也没什么技术含量啊
+
+剩下的玩偶什么的其他就不说了，也就是量产化难度高低而问题
+
