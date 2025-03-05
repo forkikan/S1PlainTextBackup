@@ -8049,3 +8049,14 @@ side7的可能性还真大<img src="https://static.saraba1st.com/image/smiley/fa
 
 只希望别搞出什么超越结晶兽强度的终极怪物来，机战水平绷住，别搞meta要素，这样就行了
 
+
+*****
+
+####  gamedreamer  
+##### 8058#       发表于 2025-3-5 20:27
+
+如果走大事件的话，那感觉魔女铁能活到结尾了
+不过这倒也不算是完全假药毕竟他开的可是吉翁的机子，如果不是抢的话，那吉翁的军备估计已经松弛到一个程度了(哪怕在mav战中看见大扎姆都不奇怪的那种)<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
