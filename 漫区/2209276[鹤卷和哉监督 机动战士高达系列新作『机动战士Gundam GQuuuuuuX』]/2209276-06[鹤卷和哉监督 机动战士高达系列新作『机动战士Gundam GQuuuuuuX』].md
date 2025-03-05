@@ -7900,3 +7900,21 @@ https://x.com/minatonosoko/status/1897028734366220626
 
 尤其是红高达这个对联邦来说简直是战败的耻辱象征的东西，会有无数联邦老兵或家属上门寻仇的。牢修红高驾驶员的身份一暴露怕不是要在地球大街上被人在背后打黑枪
 
+
+*****
+
+####  gamedreamer  
+##### 8044#       发表于 2025-3-5 14:48
+
+黑枪是指希望之花吗(不是)
+话说回来联邦有没有可能把一部分宇宙军切割留在了宇宙中，然后联邦的魔女就隶属于这样的部队<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  猪突猛进R  
+##### 8045#       发表于 2025-3-5 14:51
+
+问题是藏哪呢？月神2号应该在吉翁手里，一年战争使SIDE1、2、4、5都受到很大打击，SIDE6中立，总不会又是SIDE7吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

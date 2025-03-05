@@ -6072,3 +6072,54 @@ cp厨和嗑cp还是不一样的...
 素世：那我问你.JPG
 鸡狗10人拉拉冷战黑点都能抓一点就很神秘了，现在更是，你要几把干嘛
 
+
+*****
+
+####  一心而用  
+##### 33080#       发表于 2025-3-5 14:46
+
+<img src="https://p.sda1.dev/22/3049f43fbac231d2c84c8d1c127d1087/008hLSOSgy1hz5js8sv08j31901o0npe.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  K·os  
+##### 33081#       发表于 2025-3-5 14:49
+
+武士道倒转了2.5动画的逻辑，正常的2.5动画都是，我是要卖角色的，所以我要注意有123不能写的东西
+而武士道现在已经是，既然有多媒体兜底，那动画岂不是可以随便拍
+无论是之前的少歌再到mygo再到现在彻底疯狂的ave，都是一样的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  哈曼的YY  
+##### 33082#       发表于 2025-3-5 14:51
+
+<blockquote>钦念以忱 发表于 2025-3-5 12:53
+其实我觉得这集的睦祥，并不是什么麦琪的礼物，首先睦头确实真的喜欢CCC，也需要CCC重组，第7集里她就是唯 ...</blockquote>
+那就是这个感觉咯
+
+<img src="https://img.saraba1st.com/forum/202503/05/145135jmmk2kzzugm9mv79.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_331006458571113.jpg</strong> (338.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-5 14:51 上传
+
+
+*****
+
+####  YF31  
+##### 33083#       发表于 2025-3-5 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67579836&amp;ptid=2208921" target="_blank">K·os 发表于 2025-3-5 14:49</a>
+武士道倒转了2.5动画的逻辑，正常的2.5动画都是，我是要卖角色的，所以我要注意有123不能写的东西
+而武士道 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那倒不是，RAS就开始倒反天罡了，往上萝也是有一堆神人操作，还有著名的花道领域大神。
+但是鸡能用光看就很有趣的人设端出来五个神人加一个双重人格拍观众脸上，也算是武士道傻逼操作的新高度了，首席战犯是柿本广大，次席战犯就是根本雄贵。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
