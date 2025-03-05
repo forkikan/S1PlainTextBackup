@@ -8060,3 +8060,13 @@ side7的可能性还真大<img src="https://static.saraba1st.com/image/smiley/fa
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  纪寞  
+##### 8059#       发表于 2025-3-5 20:45
+
+惊讶展开我猜是要关联正史，阿尔法和奥米加的真正来历<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+高达正剧里第一次搞平行宇宙穿越
+
