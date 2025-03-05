@@ -7843,3 +7843,11 @@ https://x.com/minatonosoko/status/1897028734366220626
 
 话说既然gqux是if的0087那么会有类似达喀尔演讲的片段吗？比如宇宙居民在吉翁宣传下认为side2毒气是联邦所为从而出现类似tts宇宙组织，然后主角团揭露真相让宇宙居民反吉翁
 
+
+*****
+
+####  猪突猛进R  
+##### 8040#       发表于 2025-3-5 14:18
+
+12集能从0085演到0087么？<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+

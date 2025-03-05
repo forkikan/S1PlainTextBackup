@@ -568,3 +568,16 @@
  ...</blockquote>
 卧槽，欧羡慕<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 16457#       发表于 2025-3-5 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67574381&amp;ptid=2084912" target="_blank">v22325 发表于 2025-3-4 20:10</a>
+
+卧槽,三十连三个池连出三个五星仇,我这是捅了人理死线了？今年第一次出五星好吓人啊……我明天要死了？
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">太欧了 萌新什么时候也能想你一样欧
+
