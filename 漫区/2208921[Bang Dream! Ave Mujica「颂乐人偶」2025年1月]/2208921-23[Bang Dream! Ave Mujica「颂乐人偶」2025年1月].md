@@ -7053,3 +7053,11 @@ gi团五众已经堕怠于练习，无心于互动，背弃了live的闪耀宣�
 
 类似把最优质的丝绸拿来当抹布擦桌子的感觉，导致丝绸变得脏兮兮的，所以会觉得恶心。
 
+
+*****
+
+####  Mika-S  
+##### 33159#       发表于 2025-3-6 02:30
+
+大祥老师的严选书单有点意思，这《德米安》比《心》更抽象了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
