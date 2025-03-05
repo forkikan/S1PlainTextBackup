@@ -8152,3 +8152,19 @@ side7的可能性还真大<img src="https://static.saraba1st.com/image/smiley/fa
 
 好像明白为啥绿叔叔人气突然涨那么高了，79部分夏亚全程把脸蒙住，唯一露脸女性角色是紫婆，绿叔叔成颜值担当了<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gamedreamer  
+##### 8066#       发表于 2025-3-5 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67583131&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-3-5 22:04</a>
+看到了一些0079偷跑片段。
+
+真是人人都在提基连，提了好几次却没给基连一个镜头，痞子好像挺讨厌这哥们的。
+
+ ...</blockquote>
+不敢想象这个世界鸭妹的精神状态<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

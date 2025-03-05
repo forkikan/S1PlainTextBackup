@@ -6941,3 +6941,14 @@ gi团五众已经堕怠于练习，无心于互动，背弃了live的闪耀宣�
 都看到这了，除了战吧魔怔的谁不知道这是烂片，还用警告吗</blockquote>
 其实吧，在今天舅舅证实后才板上钉钉
 
+
+*****
+
+####  aptx8285144  
+##### 33149#       发表于 2025-3-5 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67583374&amp;ptid=2208921" target="_blank">airline114514 发表于 2025-3-5 22:40</a>
+
+其实吧，在今天舅舅证实后才板上钉钉</blockquote>
+战吧还有些在做梦说对比go时期如何如何，当年灯和爱音两个给的视角最多的人，最后阶段前风评哪有大祥和睦这么烂呀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
