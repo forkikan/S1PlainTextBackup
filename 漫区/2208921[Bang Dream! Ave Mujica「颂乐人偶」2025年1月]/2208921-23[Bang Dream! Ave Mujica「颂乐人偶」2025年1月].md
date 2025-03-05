@@ -6582,3 +6582,54 @@ mortis专属bgm目前用到的几次只会让人想笑，明明讲的设定很�
 我觉得祥子做什么都是错的并不会导致剧情讨论 ...</blockquote>
 说不定你把配乐放到正确的地方就知道隐藏台词是什么了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">当然是开玩笑的
 
+
+*****
+
+####  聋与唬  
+##### 33117#       发表于 2025-3-5 18:07
+
+其实有个问题我就没搞懂，就是乐队一定是5个人吗？为啥不能mygo和ccc合并？
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  YF31  
+##### 33118#       发表于 2025-3-5 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67580829&amp;ptid=2208921" target="_blank">K·os 发表于 2025-3-5 16:44</a>
+但是这片的配乐很多地方真的和dj放歌没什么区别，真有设计吗
+
+我觉得祥子做什么都是错的并不会导致剧情讨论 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">因为要360度无死角抽牢祥鞭子，抽鞭子的人也会变成360度无死角的千手古神，让剧情根本没办法讨论下去。
+比如柿畜在访谈里狠狠抽鞭子，说这人是隐瞒了离开家的事实，拿丰川大小姐身份诈骗拉的赞助，那一群事务所人机非但不管对大小姐蹬鼻子上脸的喵圣，还在大小姐炸团不玩了以后去电话轰炸大小姐，不是找死吗？
+
+迈巴赫和挂机保镖与当众肘倒和睦门立雪也是狠抽鞭子抽得自相错乱的典型，只有老登把丰川祥子当个麻烦宠物养才能解释这种撒手不管的逻辑，你女儿被人肘了拖走你问都不问一下，成天让她坐那普尔曼不是搞笑吗？
+
+而没活硬整的CCC复活更是抽鞭子抽到把鞭子都抽折的地步，因为要拷打丰川祥子，所以要让睦变成没头脑BOT朝牢祥要CCC，好吧哪怕你要就要了，结果又及其二笔地安排睦被弄死下线，换莫上号到十个人面前抽脸牢祥自我感动。这下这俩半身都变成弱智人机和自说自话神人了。
+
+哪怕丰川祥子说吃屎是不好的，柿畜也一定会先把丰川祥子用狗屎剧情肘倒，然后安排一个角色吃屎吃出成功吃出圆满，得意洋洋地来狠抽丰川祥子，都是你说吃屎不对才这样的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  zhoujin8584  
+##### 33119#       发表于 2025-3-5 18:13
+
+说不定祥子的觉悟就是错了也要一往无前呢，一个人对偶迷茫之子
+
+*****
+
+####  天空塔书记官  
+##### 33120#       发表于 2025-3-5 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67581432&amp;ptid=2208921" target="_blank">聋与唬 发表于 2025-3-5 18:07</a>
+其实有个问题我就没搞懂，就是乐队一定是5个人吗？为啥不能mygo和ccc合并？
+
+—— 来自 vivo V2361GA, Andr ...</blockquote>
+那建议wsd先出个七人乐队手游再说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
