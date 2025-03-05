@@ -8144,3 +8144,11 @@ side7的可能性还真大<img src="https://static.saraba1st.com/image/smiley/fa
 
 她第一下攻击没有瞄准夏亚，第二回合拔光剑才是奔着夏亚去的。
 
+
+*****
+
+####  虛無迴廊  
+##### 8065#       发表于 2025-3-5 22:33
+
+好像明白为啥绿叔叔人气突然涨那么高了，79部分夏亚全程把脸蒙住，唯一露脸女性角色是紫婆，绿叔叔成颜值担当了<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
