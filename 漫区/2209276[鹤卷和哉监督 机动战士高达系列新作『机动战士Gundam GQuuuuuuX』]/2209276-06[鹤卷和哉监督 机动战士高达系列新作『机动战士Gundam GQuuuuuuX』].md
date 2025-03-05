@@ -7945,3 +7945,11 @@ side7的可能性还真大<img src="https://static.saraba1st.com/image/smiley/fa
 
 以剧中联邦在大反攻失去所罗门和月神2的情况来看，必然有几只分散舰队来不及回撤地球圈就被停战和吉翁封锁线困在不同地区中了，大概率成了游击队（好了，真是联邦残党了）。
 
+
+*****
+
+####  xwr  
+##### 8048#       发表于 2025-3-5 16:07
+
+主角一行偷偷潜入地球，被发现，一路杀回宇宙，联邦高呼吉翁违法停战协定，进攻月神2号，GQuuuuuuX第二季堂堂展开<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
