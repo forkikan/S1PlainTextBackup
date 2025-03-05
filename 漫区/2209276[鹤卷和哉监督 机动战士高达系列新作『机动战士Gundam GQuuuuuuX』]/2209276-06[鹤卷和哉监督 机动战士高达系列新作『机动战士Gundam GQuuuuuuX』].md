@@ -8184,3 +8184,17 @@ side7的可能性还真大<img src="https://static.saraba1st.com/image/smiley/fa
 
 单机守在所罗门里可能也是有自毁倾向的表现吧
 
+
+*****
+
+####  gamedreamer  
+##### 8068#       发表于 2025-3-6 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67583502&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-3-5 22:58</a>
+联邦打的这么艰难，身边不少战友都阵亡了吧
+
+原作里阿姆罗受的压力也都要背在身上，战争形势也越来越差。 ...</blockquote>
+感觉鸭妹的精神状态大概介于疯和崩溃之间吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
