@@ -8021,3 +8021,11 @@ side7的可能性还真大<img src="https://static.saraba1st.com/image/smiley/fa
 考虑到跨阵营恋爱的传统艺能，可能还会有个联邦的可爱男孩子和喵安…… ...</blockquote>
 那我只能提前祝有情人终成兄妹了（
 
+
+*****
+
+####  虛無迴廊  
+##### 8055#       发表于 2025-3-5 19:25
+
+最后两集换回gto画风，让大家看看主角团如果在正史世界线该长怎么样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

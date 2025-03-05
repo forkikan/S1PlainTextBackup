@@ -6676,3 +6676,42 @@ mortis专属bgm目前用到的几次只会让人想笑，明明讲的设定很�
 
 但这时，大祥的音乐还死着，于是睦头还要继续行动，按邦邦逻辑，那就是搞乐队，睦头就是CCC路线，大莫就是avemujica路线，因为CCC路线没戏了，所以9话的吉他睦直接暴毙。
 
+
+*****
+
+####  595505568  
+##### 33124#       发表于 2025-3-5 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67581641&amp;ptid=2208921" target="_blank">厉飞雨 发表于 2025-3-5 18:34</a>
+为什么不直接双开呢
+狗鸡苦共存
+参考传奇佣兵无米0</blockquote>
+只能说别最后鸡狗C三个重叠后变成三校新学生会时代影子议会了（
+
+*****
+
+####  thisisaspider  
+##### 33125#       发表于 2025-3-5 19:18
+
+又在幻想了，幻想原作剧本是大学生贵乱伦理剧。组乐队就真是开银趴。
+爱灯祥睦素都do过了，初华才这么愤怒。最后祥子和初华do了。
+
+
+*****
+
+####  小博禹  
+##### 33126#       发表于 2025-3-5 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67581956&amp;ptid=2208921" target="_blank">595505568 发表于 2025-3-5 19:18</a>
+只能说别最后鸡狗C三个重叠后变成三校新学生会时代影子议会了（</blockquote>
+看成双飞了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  ape-apple  
+##### 33127#       发表于 2025-3-5 19:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">快跑吧，黄大叔已经发出烂片宣言了，我觉得能掉到2.8
+
