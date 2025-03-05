@@ -6214,3 +6214,34 @@ akane 弄弄 节约宝 李子 梦以，你倒是告诉我祥子和弄弄除了�
 战吧太强了，还在大造各种叙事轨迹的假药，现在这些最新版的假药我都已经看不懂了。 ...</blockquote>
 他们现在好像陷入到了一种假药造的越多，片就不会烂的幻觉里面去<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  聋与唬  
+##### 33091#       发表于 2025-3-5 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67576960&amp;ptid=2208921" target="_blank">MuramasaSP 发表于 2025-3-5 09:07</a>
+第一档：祥子一个月不看睦。这个是我心目中最大的，也是别人骂祥子时完全无法反驳的点。
+
+--------------- ...</blockquote>
+我的观点:
+1.祥子就是任性，自我意识过强，喜欢逞强但又软糯。知道伤害了睦，但又被睦性情大变双重人格吓到了，不敢去找睦，只能精神内耗。
+2.吉他假弹和真弹只差一个拨片吧？可能假弹是某种逆练速成法
+3.晾着爱音那确实是因为大祥和爱音不熟，没把爱音往心里去
+4.摘面具，喵梦瞎搞，但是大祥当时一时间被突发状况搞蒙了，就先顺从了喵梦。
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+*****
+
+####  aptx8285144  
+##### 33092#       发表于 2025-3-5 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67580203&amp;ptid=2208921" target="_blank">聋与唬 发表于 2025-3-5 15:35</a>
+
+我的观点:
+
+1.祥子就是任性，自我意识过强，喜欢逞强但又软糯。知道伤害了睦，但又被睦性情大变双重人格吓 ...</blockquote>
+第七话大祥对待爱音都算好的了，有人考证过经常对她微笑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
