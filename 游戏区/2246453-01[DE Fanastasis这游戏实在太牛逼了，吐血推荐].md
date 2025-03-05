@@ -3219,3 +3219,11 @@ F5确实可以，但是又觉得分辨率有点低...
 求助，在自警团那里卡关了，没找到能开自警团的门的钥匙，把我能逛的地方都逛了一遍也没找着钥匙 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">在某个走来走去一直堵着路的boss身上 
 
+
+*****
+
+####  忘却旋律  
+##### 284#       发表于 2025-3-5 09:54
+
+确实 好玩 比一些现在日厂的RPG都要好玩，点名 去年的暗喻，不如这游戏一根，如果 能有DQ3 HD2D引擎做 感觉会很爽<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">（有点痴人说梦了）
+

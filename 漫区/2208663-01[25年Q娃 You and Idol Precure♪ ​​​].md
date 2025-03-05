@@ -4238,3 +4238,18 @@ ps 梅泽主p的q娃们是没有设定生日过 网络传的都是假的
 
 虽然我觉得脚本应该不会设计这种内容就是了。
 
+
+*****
+
+####  modedd  
+##### 662#       发表于 2025-3-5 09:49
+
+ 本帖最后由 modedd 于 2025-3-5 09:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67577219&amp;ptid=2208663" target="_blank">天风绯炎 发表于 2025-3-5 09:39</a>
+万一某次活动，变身能力没有维持住，这几个该怎么办啊，变成当场自爆了。
+
+虽然我觉得脚本应该不会设计这种 ...</blockquote>
+暴露危机这种桥段应该是搭上狗仔队相关的展开吧，还能让田中或者凯特君出来英雄救美一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+

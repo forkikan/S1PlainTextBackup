@@ -4844,3 +4844,23 @@ Ave Mujica arg游戏全流程及解析 ［转载］
 
 到时候只要戴面具就没人知道谁是谁了，还能呼应戴面具<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  aptx8285144  
+##### 32976#       发表于 2025-3-5 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67576960&amp;ptid=2208921" target="_blank">MuramasaSP 发表于 2025-3-5 09:07</a>
+
+第一档：祥子一个月不看睦。这个是我心目中最大的，也是别人骂祥子时完全无法反驳的点。
+
+--------------- ...</blockquote>
+大祥何止一个月不看睦，已经逃避到宣称自己不认识她了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 32977#       发表于 2025-3-5 09:55
+
+灯只敢写歌词是什么新式笑话 太恨了
+
