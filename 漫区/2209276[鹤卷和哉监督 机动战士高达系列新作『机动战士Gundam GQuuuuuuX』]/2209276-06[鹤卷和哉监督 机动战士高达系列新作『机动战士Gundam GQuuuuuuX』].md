@@ -8002,3 +8002,22 @@ side7的可能性还真大<img src="https://static.saraba1st.com/image/smiley/fa
 
 真的只有12集吗？依旧让人觉得脱力
 
+
+*****
+
+####  lickey  
+##### 8053#       发表于 2025-3-5 19:07
+
+看访谈说终章的氛围会很不一样，不知道鹤卷能否找到30年前做Air的那个自己呢<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+另外看访谈还说要是在tv放松过程中能给粉丝更多讨论解读的空间就好了，这算是官方鼓励造假药吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RE㐅ia  
+##### 8054#       发表于 2025-3-5 19:08
+
+<blockquote>kuriri 发表于 2025-3-5 14:31
+考虑到跨阵营恋爱的传统艺能，可能还会有个联邦的可爱男孩子和喵安…… ...</blockquote>
+那我只能提前祝有情人终成兄妹了（
+
