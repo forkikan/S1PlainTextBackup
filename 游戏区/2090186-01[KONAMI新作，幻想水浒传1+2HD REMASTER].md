@@ -2953,3 +2953,25 @@ SB KONAMI又锁区了？之前打折时候买了进库，能进商店页面。�
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
 
+
+*****
+
+####  nanonya2  
+##### 323#       发表于 2025-3-5 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67578842&amp;ptid=2090186" target="_blank">Toby_dak 发表于 2025-3-5 12:40</a>
+SB KONAMI又锁区了？之前打折时候买了进库，能进商店页面。这两天从库里进不了商店，钱包换成日元计算后就 ...</blockquote>
+没锁，可能是网络问题？
+我这里国区能进商店页面，也有价格显示
+
+*****
+
+####  黑暗之眼  
+##### 324#       发表于 2025-3-5 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67578842&amp;ptid=2090186" target="_blank">Toby_dak 发表于 2025-3-5 12:40</a>
+SB KONAMI又锁区了？之前打折时候买了进库，能进商店页面。这两天从库里进不了商店，钱包换成日元计算后就 ...</blockquote>
+刚刚才从库里进商店找有没预载呢，可以啊
+
+—— 来自 HUAWEI NOH-AN00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
