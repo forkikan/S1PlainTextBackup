@@ -2987,3 +2987,14 @@ SB KONAMI又锁区了？之前打折时候买了进库，能进商店页面。�
 我这里国区能进商店页面，也有价格显示</blockquote>
 人在日本，用手机的steam app。刚才又试过，症状依然。
 
+
+*****
+
+####  ds2324ds2  
+##### 326#       发表于 2025-3-5 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67573205&amp;ptid=2090186" target="_blank">woaimiyabi 发表于 2025-3-4 17:22</a>
+
+这个设置好啊，值得别的想复刻老游戏的厂商学习。</blockquote>
+百英雄传你学学啊。
+
