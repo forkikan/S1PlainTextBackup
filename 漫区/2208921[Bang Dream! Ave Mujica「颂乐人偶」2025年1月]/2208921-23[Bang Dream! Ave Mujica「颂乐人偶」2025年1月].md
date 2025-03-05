@@ -5986,3 +5986,37 @@ ave的有些画面错误属于那种，我都不知道这里是怎么出错的�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  小博禹  
+##### 33073#       发表于 2025-3-5 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67579185&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-5 13:25</a>
+确实，按照现代理论，性格缺陷也好、精神疾病也好，都要去原生家庭、去童年（和青少年）创伤记忆里找，那 ...</blockquote>
+讲了童年回忆那是不是要绕回小时候的睦到底是哪个睦了？<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+十本这一拍脑袋想的设定，估计自己都圆不回来，所以故意搁置了
+
+—— 来自 HUAWEI LNA-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  小博禹  
+##### 33074#       发表于 2025-3-5 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67579011&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-5 13:02</a>
+你又不是第一天认识CP厨。你真能和他们共振吗。</blockquote>
+这种动画不磕cp还看什么。。。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  天空塔书记官  
+##### 33075#       发表于 2025-3-5 14:00
+
+看乐子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
