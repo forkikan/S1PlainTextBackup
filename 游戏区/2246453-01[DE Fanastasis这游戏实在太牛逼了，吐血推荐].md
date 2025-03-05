@@ -3321,3 +3321,14 @@ F5确实可以，但是又觉得分辨率有点低...
 
 走了一趟de的海底隧道感觉还好（虽然一部分原因是我知道滑冰可以斜走），比免费版大了一大圈是真的，全程跑酷走了一个小时才走完<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shinnfin  
+##### 295#       发表于 2025-3-5 22:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">花了一晚上把恶魔镇舔干净了
+感觉快瞎了
+真是个寸土寸金的鸟地方
+作者给我一种上海二房东的感觉
+
