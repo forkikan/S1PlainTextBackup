@@ -4319,3 +4319,14 @@ ps 梅泽主p的q娃们是没有设定生日过 网络传的都是假的
 你要说开盒的话，干部当久了看到q娃人间体啥的已经很常见了吧。这一部还强调了一下不能暴露身份，但我不觉 ...</blockquote>
 其实也挺好笑的，女王强调了半天Q娃身份要隐瞒结果俩Q娃一个妖精三位没一个把这事放在心上的，对着反派干部当面变身，对着一般人直接中之人实名找工作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（虽然动画里没具体解释但看上去这集接工作类似于管人那种性质，就对外还套着Q娃皮但对于内部相关Staff是直接实名中之人出场的）
 
+
+*****
+
+####  lydia5989  
+##### 670#       发表于 2025-3-5 19:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67581577&amp;ptid=2208663" target="_blank">pokemon最爱 发表于 2025-3-5 18:25</a>
+
+其实也挺好笑的，女王强调了半天Q娃身份要隐瞒结果俩Q娃一个妖精三位没一个把这事放在心上的，对着反派干 ...</blockquote>
+背景调查的公司：他们公司就四个人，一经纪人三个实习经纪人，然后出现场变成了一个经纪人三个q娃，好难猜啊，那三个小女生肯定不是q娃吧
+

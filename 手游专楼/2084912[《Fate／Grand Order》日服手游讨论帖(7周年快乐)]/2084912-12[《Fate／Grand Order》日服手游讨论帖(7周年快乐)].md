@@ -692,3 +692,42 @@
 这个好大</blockquote>
 所以不明白为什么会猜这个是龙娘<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DARKGRAY  
+##### 16464#       发表于 2025-3-5 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67581758&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-3-5 18:53</a>
+
+所以不明白为什么会猜这个是龙娘</blockquote>
+大龙娘也大啊，成长到中间态不就差不多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 16465#       发表于 2025-3-5 19:03
+
+ 本帖最后由 Jamaisvu 于 2025-3-5 19:04 编辑 
+
+<img src="https://img.saraba1st.com/forum/202503/05/190450wiufy5wy50cy2g4w.png" referrerpolicy="no-referrer">
+
+<strong>IMG_20250305_190404.png</strong> (393.3 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-3-5 19:04 上传
+
+<img src="https://img.saraba1st.com/forum/202503/05/190450cd7pexpusy3imbm3.png" referrerpolicy="no-referrer">
+
+<strong>IMG_20250305_190431.png</strong> (194.09 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-3-5 19:04 上传
+
+但丁的解包数据，通过切换天国或地狱的场地给予宝具天或地特攻，感觉就业面还可以？
+
