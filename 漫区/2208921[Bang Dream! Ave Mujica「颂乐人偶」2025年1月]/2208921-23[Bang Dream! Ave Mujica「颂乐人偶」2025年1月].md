@@ -6180,3 +6180,37 @@ akane 弄弄 节约宝 李子 梦以，你倒是告诉我祥子和弄弄除了�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  钦念以忱  
+##### 33088#       发表于 2025-3-5 15:21
+
+战吧太强了，还在大造各种叙事轨迹的假药，现在这些最新版的假药我都已经看不懂了。
+
+*****
+
+####  一心而用  
+##### 33089#       发表于 2025-3-5 15:25
+
+皆杀的初华
+<img src="https://p.sda1.dev/22/ff86bb4606b0c19b1a4ce4c405f3116a/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/ecd5423f697025605f7c9a47d6622742/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/a93c80c9a498cf74eb7a107ffaa39f8b/image.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/22/063d9a14d327f3126c955174f1595c0c/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/58436189e1edd4953659348d05571ab7/image.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/22/9f60ec686c9f83a3944e05ab7fe6eb7d/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/5ebe52f86af9f68108afe8bef14f9905/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 33090#       发表于 2025-3-5 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67580086&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-5 15:21</a>
+
+战吧太强了，还在大造各种叙事轨迹的假药，现在这些最新版的假药我都已经看不懂了。 ...</blockquote>
+他们现在好像陷入到了一种假药造的越多，片就不会烂的幻觉里面去<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
