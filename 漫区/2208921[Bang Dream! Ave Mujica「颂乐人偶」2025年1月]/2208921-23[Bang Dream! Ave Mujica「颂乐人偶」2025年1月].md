@@ -6561,3 +6561,24 @@ mortis专属bgm目前用到的几次只会让人想笑，明明讲的设定很�
 
 现在知道海猫的厉害了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  厉飞雨  
+##### 33115#       发表于 2025-3-5 17:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">睦头跟ccc分手的决心是在退黄瓜之后
+加入母鸡卡是觉得大象老师快要坏掉
+现在大象老师好了没几天又快被玩坏
+
+*****
+
+####  thisisaspider  
+##### 33116#       发表于 2025-3-5 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67580829&amp;ptid=2208921" target="_blank">K·os 发表于 2025-3-5 16:44</a>
+但是这片的配乐很多地方真的和dj放歌没什么区别，真有设计吗
+
+我觉得祥子做什么都是错的并不会导致剧情讨论 ...</blockquote>
+说不定你把配乐放到正确的地方就知道隐藏台词是什么了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">当然是开玩笑的
+
