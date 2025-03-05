@@ -1119,3 +1119,22 @@ DNF ...</blockquote>
 
 —— 来自 Xiaomi 23049RAD8C, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
 
+
+*****
+
+####  ztkong  
+##### 90#       发表于 2025-3-5 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67577531&amp;ptid=2071758" target="_blank">马德兴 发表于 2025-3-5 10:20</a>
+
+呃……那比如说哈曼这种没开UR卡碧尼池子的驾驶员，就算通过开发有了ssr的卡碧尼，驾驶员还是只能雇佣SR的 ...</blockquote>
+是的，而且雇佣的SR驾驶员能力不强，主要作用就是为了打Z高达的主线，必须上一队人的时候补位。
+
+<img src="https://img.saraba1st.com/forum/202503/05/124821nlw8nhh8tnttwr7t.jpg" referrerpolicy="no-referrer">
+
+<strong>817417895.jpg</strong> (350.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-5 12:48 上传
+
