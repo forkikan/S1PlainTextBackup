@@ -1515,3 +1515,34 @@ geekjack卖得比官方商店快
 
 剩下的玩偶什么的其他就不说了，也就是量产化难度高低而问题
 
+
+*****
+
+####  holofan  
+##### 10864#       发表于 2025-3-5 23:18
+
+<img src="https://img.saraba1st.com/forum/202503/05/231735u64ph4c47om77pgd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (4.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-5 23:17 上传
+
+说到今天加的5年会员徽章，我的草帽
+
+*****
+
+####  holofan  
+##### 10865#       发表于 2025-3-5 23:21
+
+<img src="https://img.saraba1st.com/forum/202503/05/232035irjr5cfrx99xrx39.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (46.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-5 23:20 上传
+
+这位累计给频道送了几千个会员的大佬的素质也太好了吧
+
