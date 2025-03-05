@@ -7918,3 +7918,15 @@ https://x.com/minatonosoko/status/1897028734366220626
 
 问题是藏哪呢？月神2号应该在吉翁手里，一年战争使SIDE1、2、4、5都受到很大打击，SIDE6中立，总不会又是SIDE7吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gamedreamer  
+##### 8046#       发表于 2025-3-5 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67579853&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-3-5 14:51</a>
+问题是藏哪呢？月神2号应该在吉翁手里，一年战争使SIDE1、2、4、5都受到很大打击，SIDE6中立，总不会又是SI ...</blockquote>
+side7的可能性还真大<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
