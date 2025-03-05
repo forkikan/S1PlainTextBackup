@@ -5620,3 +5620,64 @@ ysl运动服。。。也就长运动服那样的啊，虽然喵梦那个像小�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  z-hunter  
+##### 33041#       发表于 2025-3-5 12:35
+
+其实在MYGO动画里也有很多不听人言不做人事不沟通，总是我觉得是就是，根本不考虑嘴里说的是什么废话
+
+不过还好没有mujica里这么严重。祥睦现在做的事很难不怀疑她们的智商就像人偶一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 33042#       发表于 2025-3-5 12:37
+
+还是那个问题，大祥既然知道鸡团就是自己的一切，为什么不好好关心睦，好好调解队内气氛，特别是有两个舔狗都是站在她那边(至少明面如此)情况下，大祥自己都快被柿本独角兽这些人当成反面角色写了，中登，老登又能好到哪里去，说白了美少女动画不可能厨这两个家长罢了，大家洗白大祥的动力起码比这些家人侠高，就这样都惊奇发现大祥“拉不开”和丰川家族拟人的距离，你说独角兽和柿本都多恨大祥<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thisisaspider  
+##### 33043#       发表于 2025-3-5 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67578715&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2025-3-5 12:22</a>
+给祥子安排这种家庭背景的不就是剧组么？至于矛盾，祥子的矛盾的起点还真就是家庭。 ...</blockquote>
+所以他真要写家庭伦理剧，铺垫都有了。但问题是在少女乐队番中写这个想表达什么。甚至这是MYGO开始就有的写法。现在搬上台面来就不知道写什么了。
+甚至怀疑如果企划不进入邦邦。估计就是都市情感加家庭伦理剧了。
+
+*****
+
+####  ziqing  
+##### 33044#       发表于 2025-3-5 12:39
+
+打倒老登只能靠老登自己对🐘的道德愧疚，其他什么的都是虚的
+
+—— 来自 Xiaomi 24129PN74C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  天空塔书记官  
+##### 33045#       发表于 2025-3-5 12:41
+
+所以祥子组心之怪盗团比组乐队靠谱
+
+“你悔改罢”
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  thisisaspider  
+##### 33046#       发表于 2025-3-5 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67578838&amp;ptid=2208921" target="_blank">ziqing 发表于 2025-3-5 12:39</a>
+打倒老登只能靠老登自己对🐘的道德愧疚，其他什么的都是虚的
+
+—— 来自 Xiaomi 24129PN74C, Android 15上 ...</blockquote>
+怎么不说对初华的。老爷还不一定知道初华身份呢。可能初华妈否认过初华是老爷的孩子。
+
