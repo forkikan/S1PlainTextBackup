@@ -3209,3 +3209,13 @@ F5确实可以，但是又觉得分辨率有点低...
 
 插个眼<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shinnfin  
+##### 283#       发表于 2025-3-5 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67576220&amp;ptid=2246453" target="_blank">reoch 发表于 2025-3-5 01:37</a>
+求助，在自警团那里卡关了，没找到能开自警团的门的钥匙，把我能逛的地方都逛了一遍也没找着钥匙 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">在某个走来走去一直堵着路的boss身上 
+

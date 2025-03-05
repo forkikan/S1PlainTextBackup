@@ -4228,3 +4228,13 @@ ps 梅泽主p的q娃们是没有设定生日过 网络传的都是假的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">因为要变身出行商业活动，这代q娃会不会成为变身时长占比最多的一代
 
+
+*****
+
+####  天风绯炎  
+##### 661#       发表于 2025-3-5 09:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">万一某次活动，变身能力没有维持住，这几个该怎么办啊，变成当场自爆了。
+
+虽然我觉得脚本应该不会设计这种内容就是了。
+
