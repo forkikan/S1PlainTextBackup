@@ -4299,3 +4299,23 @@ ps 梅泽主p的q娃们是没有设定生日过 网络传的都是假的
 
 今年三号位因为停播一周而拖到月底才能加入，这种情况让我想起某位黄色故人。
 
+
+*****
+
+####  jaewoongh_  
+##### 668#       发表于 2025-3-5 18:22
+
+<blockquote>Blackson 发表于 2025-3-5 18:06
+今年三号位因为停播一周而拖到月底才能加入，这种情况让我想起某位黄色故人。 ...</blockquote>
+兰兰更惨一点还是，多吃了一个月的怪味饭
+
+*****
+
+####  pokemon最爱  
+##### 669#       发表于 2025-3-5 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67581323&amp;ptid=2208663" target="_blank">天邪鬼 发表于 2025-3-5 17:53</a>
+
+你要说开盒的话，干部当久了看到q娃人间体啥的已经很常见了吧。这一部还强调了一下不能暴露身份，但我不觉 ...</blockquote>
+其实也挺好笑的，女王强调了半天Q娃身份要隐瞒结果俩Q娃一个妖精三位没一个把这事放在心上的，对着反派干部当面变身，对着一般人直接中之人实名找工作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（虽然动画里没具体解释但看上去这集接工作类似于管人那种性质，就对外还套着Q娃皮但对于内部相关Staff是直接实名中之人出场的）
+
