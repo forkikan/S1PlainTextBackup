@@ -7930,3 +7930,18 @@ side7的可能性还真大<img src="https://static.saraba1st.com/image/smiley/fa
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Steel.Haze  
+##### 8047#       发表于 2025-3-5 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67579829&amp;ptid=2209276" target="_blank">gamedreamer 发表于 2025-3-5 14:48</a>
+
+黑枪是指希望之花吗(不是)
+
+话说回来联邦有没有可能把一部分宇宙军切割留在了宇宙中，然后联邦的魔女就隶属 ...</blockquote>
+即便在原始TV的设定中（其实主要是到Z高补充的），在79年太空沦陷期间，被摧毁殖民地宙域和亲联邦地区，都有反吉翁游击队存在，包括被打散的联邦的殖民卫星守备队（也没法和大部队会合了）小股殖民地自发部队等。蕾柯娅·尼歌就是反吉翁游击队出身。
+
+以剧中联邦在大反攻失去所罗门和月神2的情况来看，必然有几只分散舰队来不及回撤地球圈就被停战和吉翁封锁线困在不同地区中了，大概率成了游击队（好了，真是联邦残党了）。
+
