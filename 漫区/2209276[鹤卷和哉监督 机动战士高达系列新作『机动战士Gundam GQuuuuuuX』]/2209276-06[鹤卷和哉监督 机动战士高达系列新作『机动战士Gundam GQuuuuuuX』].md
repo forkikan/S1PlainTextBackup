@@ -7851,3 +7851,34 @@ https://x.com/minatonosoko/status/1897028734366220626
 
 12集能从0085演到0087么？<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  纪寞  
+##### 8041#       发表于 2025-3-5 14:26
+
+如果真要去地球，不会变成这样的剧情吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">：
+
+主角方：我要去你们的地盘找个东西。
+
+联邦：滚啊，臭KongBuFenZi。
+
+主角方：不给只能动用武力了。
+
+先不提打不打得过联邦的大部队，上次看到这样的剧情是在火纹if暗夜线吗<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kuriri  
+##### 8042#       发表于 2025-3-5 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67579635&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-3-5 14:26</a>
+
+如果真要去地球，不会变成这样的剧情吧：
+
+主角方：我要去你们的地盘找个东西。
+
+联邦：滚啊，臭KongBuFenZi ...</blockquote>
+考虑到跨阵营恋爱的传统艺能，可能还会有个联邦的可爱男孩子和喵安……
+
