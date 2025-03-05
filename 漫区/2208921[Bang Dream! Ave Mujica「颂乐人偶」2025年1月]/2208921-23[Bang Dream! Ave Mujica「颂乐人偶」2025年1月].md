@@ -6919,3 +6919,25 @@ gi团五众已经堕怠于练习，无心于互动，背弃了live的闪耀宣�
 
 都看到这了，除了战吧魔怔的谁不知道这是烂片，还用警告吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ntrntr1  
+##### 33147#       发表于 2025-3-5 22:40
+
+访谈居然实锤了海铃教睦弹空气吉他...
+
+神人辈出啊
+
+你们玩乐队就是为了搞女铜一点不想玩音乐的是吧
+
+*****
+
+####  airline114514  
+##### 33148#       发表于 2025-3-5 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67583223&amp;ptid=2208921" target="_blank">pliee 发表于 2025-3-5 22:16</a>
+
+都看到这了，除了战吧魔怔的谁不知道这是烂片，还用警告吗</blockquote>
+其实吧，在今天舅舅证实后才板上钉钉
+
