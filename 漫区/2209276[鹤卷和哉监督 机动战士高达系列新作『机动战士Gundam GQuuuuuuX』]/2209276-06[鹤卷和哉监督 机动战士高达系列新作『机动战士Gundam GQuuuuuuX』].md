@@ -8029,3 +8029,23 @@ side7的可能性还真大<img src="https://static.saraba1st.com/image/smiley/fa
 
 最后两集换回gto画风，让大家看看主角团如果在正史世界线该长怎么样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 8056#       发表于 2025-3-5 20:00
+
+首先是接近终章会有令人惊讶的剧情展开
+
+
+*****
+
+####  刺客ares  
+##### 8057#       发表于 2025-3-5 20:05
+
+鹤卷是那种开局自行车结局歼星舰的，
+
+所以后面出现什么离谱展开都有可能。
+
+只希望别搞出什么超越结晶兽强度的终极怪物来，机战水平绷住，别搞meta要素，这样就行了
+
