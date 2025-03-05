@@ -5737,3 +5737,79 @@ ysl运动服。。。也就长运动服那样的啊，虽然喵梦那个像小�
 
 睦头其实真心喜欢CCC，真心想要复活CCC，这是比较明显的，而祥子其实也依然真心喜欢着CCC，暗暗地想着CCC要能复活就好了。而两人都以帮助对方为理由，进行复活CCC的活动，结果却伤害了狗团鸡团的其他人，这样的CP才更对称，更半身，也颇为符合2人一直以来的性格特点。
 
+
+*****
+
+####  小博禹  
+##### 33051#       发表于 2025-3-5 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67577935&amp;ptid=2208921" target="_blank">聋与唬 发表于 2025-3-5 11:03</a>
+我来试着解释一下大祥和老登之间的问题:
+大祥要跟着爹离家出走，老登为何不管？
+老登觉得，孙女脾气倔， ...</blockquote>
+所以老登和🐘也是麦琪的礼物？连这个都偷，我们木箱又输了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LNA-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  thisisaspider  
+##### 33052#       发表于 2025-3-5 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67578901&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-3-5 12:47</a>
+从经济人和初华的对话来看，应该是知道的，毕竟直接说了“上面”，说明经济公司知道初华和“上面”有特殊关 ...</blockquote>
+这样解释有点绕。不如伦理剧的套路，来个认亲反转顺滑。
+
+*****
+
+####  小博禹  
+##### 33053#       发表于 2025-3-5 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67578954&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-5 12:53</a>
+莫上线时就已经被剧本定性成死局了。剧本都不惜引入双重人格了。你觉得会给A团操作的机会吗。 ...</blockquote>
+这就是现在木箱厨最大的分歧，睦作为姐姐，明面上所作所为都是为了大祥，实际上却一直在拖小祥后腿，所以现在很多木箱厨也吃不下了
+<img src="https://p.sda1.dev/22/ed25fe324e33ecf6fc83751440afa818/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LNA-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  钦念以忱  
+##### 33054#       发表于 2025-3-5 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67578819&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-5 12:37</a>
+
+还是那个问题，大祥既然知道鸡团就是自己的一切，为什么不好好关心睦，好好调解队内气氛，特别是有两个舔狗 ...</blockquote>
+我觉得大祥把睦头看成了真正的自己人，而自己人自然是需要无限抗压的，大祥自己也是这么做的。喵梦摘面具之后，大祥怒斥喵梦给大家造成的麻烦，说出了一个初华会受影响，但大祥自己也会受影响，大祥却不会说，她就是这样的人。而睦头既然是自己人，自然也是不可能由大祥来说的，睦头又体谅大祥不肯开口，就只能如此了。
+
+*****
+
+####  天空塔书记官  
+##### 33055#       发表于 2025-3-5 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67578971&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-5 12:56</a>
+这样解释有点绕。不如伦理剧的套路，来个认亲反转顺滑。</blockquote>
+可以反转，以下只是假设，如果老登不知道，但经济公司知道，那说明事务所可能有初华母亲这边的关系，嘛，不过这个展开也需要篇幅，可能性不大就是了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  thisisaspider  
+##### 33056#       发表于 2025-3-5 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67578985&amp;ptid=2208921" target="_blank">小博禹 发表于 2025-3-5 12:58</a>
+这就是现在木箱厨最大的分歧，睦作为姐姐，明面上所作所为都是为了大祥，实际上却一直在拖小祥后腿，所以 ...</blockquote>
+你又不是第一天认识CP厨。你真能和他们共振吗。
+
+*****
+
+####  6030sylar  
+##### 33057#       发表于 2025-3-5 13:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67578985&amp;ptid=2208921" target="_blank">小博禹 发表于 2025-3-5 12:58</a>
+
+这就是现在木箱厨最大的分歧，睦作为姐姐，明面上所作所为都是为了大祥，实际上却一直在拖小祥后腿，所以 ...</blockquote>
+所以搞了个双重人格来洗，“不是角色故意的，是有病”，不然睦就太茶了
+
