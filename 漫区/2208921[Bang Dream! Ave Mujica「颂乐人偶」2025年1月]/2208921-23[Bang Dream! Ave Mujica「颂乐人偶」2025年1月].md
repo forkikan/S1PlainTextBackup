@@ -6825,3 +6825,28 @@ gi团五众已经堕怠于练习，无心于互动，背弃了live的闪耀宣�
 莫头和睦头共用血条吗</blockquote>
 共用的吧，第二话莫已经开始顶采访了甚至因为顶的多了开始有了社交外的性格给自己的房间放上了各种玩偶才倒在床边切小睦，小睦白天基本没个清醒的时候，就用晚上熬夜抱吉他找回自己，结果就是整个机体因失去睡眠倒在台上。
 
+
+*****
+
+####  一心而用  
+##### 33137#       发表于 2025-3-5 21:00
+
+<img src="https://p.sda1.dev/22/4ba04bdd75784e2247717de86bb95873/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/33c11c561bce996d22a767240871a67c/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 33138#       发表于 2025-3-5 21:01
+
+第九话
+<img src="https://p.sda1.dev/22/675a2941732113319c3bc7c79b297157/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/db22fa82d79eb08c12d87fe42c4e6ee6/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  zhoujin8584  
+##### 33139#       发表于 2025-3-5 21:02
+
+现在想想，底下那群京观鼓掌，场内设计上大概确实是大仇得报<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">配合场外两极分化的讨论
+
