@@ -6245,3 +6245,45 @@ akane 弄弄 节约宝 李子 梦以，你倒是告诉我祥子和弄弄除了�
 1.祥子就是任性，自我意识过强，喜欢逞强但又软糯。知道伤害了睦，但又被睦性情大变双重人格吓 ...</blockquote>
 第七话大祥对待爱音都算好的了，有人考证过经常对她微笑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  哈曼的YY  
+##### 33093#       发表于 2025-3-5 15:46
+
+此事稀松平常
+
+【被已读不回之后狂发表情包的爱音-哔哩哔哩】 https://b23.tv/CfZRT6Y
+
+*****
+
+####  YF31  
+##### 33094#       发表于 2025-3-5 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67580203&amp;ptid=2208921" target="_blank">聋与唬 发表于 2025-3-5 15:35</a>
+我的观点:
+1.祥子就是任性，自我意识过强，喜欢逞强但又软糯。知道伤害了睦，但又被睦性情大变双重人格吓 ...</blockquote>
+光看录像连怎么按弦都搞不明白，左手手型对了还有护弦技术等着呢，护弦不过关弹出来全是杂音。护弦关过了还有一堆技术等着学。
+而且就算基本功硬整过关了也顶不住鸡歌那个强度，光killkiss那个200bpm的快速下拨还不呲就不是简单能搞明白的。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  南宮凝香  
+##### 33095#       发表于 2025-3-5 15:50
+
+<img src="https://img.saraba1st.com/forum/202503/05/154925ptoefcpq7tjvz8wo.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5686.jpeg</strong> (76.51 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-5 15:49 上传
+
+這是底層邏輯
+
+唉，粉毛
+
+唉，（力量型）高松燈
+
