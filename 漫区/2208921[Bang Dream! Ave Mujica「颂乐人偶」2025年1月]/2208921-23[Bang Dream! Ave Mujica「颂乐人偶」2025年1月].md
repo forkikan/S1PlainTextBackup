@@ -5532,3 +5532,91 @@ ysl运动服。。。也就长运动服那样的啊，虽然喵梦那个像小�
 突然变成你（三集没上线的）主唱是你亲戚这种也是很自由 ...</blockquote>
 要我说从祥子这种家庭背景故事来看，你就很容易理解为啥过去的邦邦人均爹妈正常了，顶多老妈生病需要照顾。
 
+
+*****
+
+####  YF31  
+##### 33033#       发表于 2025-3-5 12:28
+
+我说难听点吧，一定要去现实里找对应，老登这种做法就很像现实里一些富裕的神人养狗，狗咬人了闯祸了赔，狗咬狗了不管，狗粮狗窝给够，高兴了撸一把不高兴了丢十天半个月不管，总之正常的教导和关心是万万不可能的。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  z-hunter  
+##### 33034#       发表于 2025-3-5 12:29
+
+其实是中登烂裤裆了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">如果不是当年祥妈死保他，他早被老登赶走了。
+
+现在亏了168亿，老登能顺利成章地赶走中登了，然后祥子“成为我的女儿吧”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 33035#       发表于 2025-3-5 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67578707&amp;ptid=2208921" target="_blank">看穿一切的鱼 发表于 2025-3-5 12:21</a>
+
+求你们不要再研究你鸡的现实元素了，全都是拿py想的要素，拿脚趾头填的数值 ...</blockquote>
+问题是安排老登和中登两大现实元素出场，一个醉酒进警局168亿，一个给钱给房放养自由度极高，这些现实元素都是独角兽和柿本安排的，还有就是中登GO时期最终话就出现了，独角兽切割不了了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  my707776310  
+##### 33036#       发表于 2025-3-5 12:29
+
+看楼上说联动想起来，不管牌子大小，喵都能出联名了还像路边一样被路人抓着嘴两句…
+
+*****
+
+####  天空塔书记官  
+##### 33037#       发表于 2025-3-5 12:30
+
+ 本帖最后由 天空塔书记官 于 2025-3-5 12:33 编辑 
+
+我很早之前就说过，老登的黑在于他“不懂爱的大家长”的定位，是二次元常见的“反面角色”人设，他黑的程度取决于是作为动画“boss”还是作为手游长线剧情的常驻“boss”
+
+这个人设不改老登就一直会是个“恶人”
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zhzij111  
+##### 33038#       发表于 2025-3-5 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67577381&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-3-5 10:00</a>
+又想起那个笑话了
+
+接近祥老师就会不幸
+
+祥老师:那我远离</blockquote>
+睦祥这对神人cp的逻辑都是刻板静止的，祥子为什么不看望睦，因为表面上看她靠近谁谁倒霉；睦为什么要重组ccc，因为祥在ccc看着挺乐的；祥为什么要帮睦重组ccc，因为睦想要ccc。
+
+两神人全都只会刻舟求剑从来不思考根本原因，活得像个ai。这智商说祥子能靠奖学金付学费我是真不信<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  huxiaopao163  
+##### 33039#       发表于 2025-3-5 12:33
+
+我们丰川老登和中登本来都是好人，是柿本擅自改了独角兽的剧本，按着他们的头说怪话做坏事，才变成现在这样的。说到底是柿本对丰川老登和中登理解不够，导致人物ooc了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  YF31  
+##### 33040#       发表于 2025-3-5 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67578791&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-3-5 12:32</a>
+睦祥这对神人cp的逻辑都是刻板静止的，祥子为什么不看望睦，因为表面上看她靠近谁谁倒霉；睦为什么要重组 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">具体过程你别问，你就说这人靠近睦以后睦是不是死了吧。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
