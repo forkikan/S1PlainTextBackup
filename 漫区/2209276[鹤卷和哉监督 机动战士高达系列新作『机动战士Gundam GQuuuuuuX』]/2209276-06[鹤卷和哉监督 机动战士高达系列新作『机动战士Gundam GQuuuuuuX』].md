@@ -7754,3 +7754,34 @@ https://x.com/minatonosoko/status/1897028734366220626
 
 2025-3-5 07:00 上传
 
+
+*****
+
+####  七七見奈波  
+##### 8032#       发表于 2025-3-5 07:56
+
+玫瑰是ms的话先想起来的果然还是玫瑰祖鲁，懂了这是马沙和正面全x的记忆同步（大雾）
+
+*****
+
+####  虛無迴廊  
+##### 8033#       发表于 2025-3-5 08:40
+
+阿姆罗太可怕了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+因为没有骡才能活过一年战争的家伙
+<img src="https://p.sda1.dev/22/dbc7719e4b67fb40d7ea60cbc1f98c8d/CMP_20250305083937421.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/ccb7c99ab9df2cadaad68cde2539cce1/CMP_20250305083937512.jpg" referrerpolicy="no-referrer">
+@v1t7t
+
+*****
+
+####  纪寞  
+##### 8034#       发表于 2025-3-5 09:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67576093&amp;ptid=2209276" target="_blank">kuriri 发表于 2025-3-5 00:56</a>
+
+万一玫瑰也是一架机体呢？和红高共鸣发动，然后一起消失了符合MAV的主题～ ...</blockquote>
+应该不对，当初鸭子泽克诺瓦事故时也用了:"不是我，塞克缪是和谁发生了反应"的说法，而且用"object"来形容的东西应该体积并不大，那么综合来看应该是个人，人能和塞克缪共鸣才对。
+
+不过我也觉得，应该是会有一台原型高达才对，这台高达既是这个故事的起源(阿尔法)，也是这个故事的终结(奥米加)。
+
