@@ -5091,3 +5091,49 @@ test
 立希:那我算什么?</blockquote>
 答案是长期py，随叫随到随时开一局
 
+
+*****
+
+####  天空塔书记官  
+##### 32996#       发表于 2025-3-5 10:56
+
+ 本帖最后由 天空塔书记官 于 2025-3-5 10:58 编辑 
+
+兼职转专业又不是什么稀奇事情，外包以后又不是不能接了，退队要的就是表现诚意，毕竟海铃确实不太能获得他人的信任
+
+四处接单的同人大手子被二游公司收编不就和这是一样的情况
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  6030sylar  
+##### 32997#       发表于 2025-3-5 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67577731&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-5 10:42</a>
+立希:那我算什么?</blockquote>
+主人，重组mujica也是主人的任务
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  聋与唬  
+##### 32998#       发表于 2025-3-5 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67566632&amp;ptid=2208921" target="_blank">YF31 发表于 2025-3-3 20:46</a>
+你是说这个老登连自称是自己女儿的人当众被摁倒拖走都不管不问，还要用大手摁她不许组乐队，宁可丢了几个 ...</blockquote>
+我来试着解释一下大祥和老登之间的问题:
+大祥要跟着爹离家出走，老登为何不管？
+老登觉得，孙女脾气倔，硬的不行，就同意了，暗中保护。工作方面打好招呼，不要让大祥去找乱七八糟的工作，而是在老登监控下的客服公司工作。
+大祥被人拖走，为何不管？
+老登早就查好了人际关系，知道素的底细，保镖一直在学校附近观察。但老登还是说要尽可能给大祥自由的人际关系，非必需不要介入。
+老登为什么用大手阻止大祥组乐队？
+可能是一种误会，大祥组乐队，不开心，要解散了乐队。经纪公司给老登汇报，老登很不开心，认为经济公司没把大祥哄好。经济公司被吓坏了，耗尽把整个母鸡卡项目废弃，不要再让大祥有不好的回忆。
+也就是说其实只要大祥开口说想组母鸡卡，一切大手都会再次拥立大祥重组母鸡卡
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
