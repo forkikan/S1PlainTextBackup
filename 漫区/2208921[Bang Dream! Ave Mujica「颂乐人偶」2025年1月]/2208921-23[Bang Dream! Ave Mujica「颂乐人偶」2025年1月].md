@@ -6058,3 +6058,17 @@ cp厨和嗑cp还是不一样的...
 
 追偶像的有誰不追求純潔？
 
+
+*****
+
+####  595505568  
+##### 33079#       发表于 2025-3-5 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67579694&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-5 14:34</a>
+你在2偶企劃要求觀眾不當獨角獸？
+
+追偶像的有誰不追求純潔？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那确实是，所以二偶里真的要卖卡的角色绝对绝对不能当坏人
+素世：那我问你.JPG
+鸡狗10人拉拉冷战黑点都能抓一点就很神秘了，现在更是，你要几把干嘛
+
