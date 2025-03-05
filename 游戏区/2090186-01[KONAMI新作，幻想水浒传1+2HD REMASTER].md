@@ -2975,3 +2975,15 @@ SB KONAMI又锁区了？之前打折时候买了进库，能进商店页面。�
 
 —— 来自 HUAWEI NOH-AN00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  Toby_dak  
+##### 325#       发表于 2025-3-5 13:31
+
+<blockquote>nanonya2 发表于 2025-3-5 14:20
+没锁，可能是网络问题？
+
+我这里国区能进商店页面，也有价格显示</blockquote>
+人在日本，用手机的steam app。刚才又试过，症状依然。
+

@@ -5928,3 +5928,51 @@ ysl运动服。。。也就长运动服那样的啊，虽然喵梦那个像小�
 
 mujica最大的问题就是在此，睦祥两大神人，讲了那么多集，就是不肯给她们的童年回忆。
 
+
+*****
+
+####  天空塔书记官  
+##### 33068#       发表于 2025-3-5 13:27
+
+然后就被柿本一句“没什么特别的”给否了
+
+这才是真正的烂完<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  山ノ内花音  
+##### 33069#       发表于 2025-3-5 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67579185&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-5 13:25</a>
+确实，按照现代理论，性格缺陷也好、精神疾病也好，都要去原生家庭、去童年（和青少年）创伤记忆里找，那 ...</blockquote>
+因为给了童年回忆 就不利于拷打角色了
+mujica成员不能有任何高光是底层逻辑 除了大墨老师<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 33070#       发表于 2025-3-5 13:31
+
+問題是睦頭之前說她在三思吉他也是唱不出歌
+
+在3C 不高興也不是完全說謊
+
+睦在母雞就是一話一設定
+
+推敲不了的
+
+*****
+
+####  钦念以忱  
+##### 33071#       发表于 2025-3-5 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67579227&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-5 13:31</a>
+
+問題是睦頭之前說她在三思吉他也是唱不出歌
+
+在3C 不高興也不是完全說謊</blockquote>
+第7话的时候还是很高兴的，大祥老师也觉得很喜欢7话的这次演奏，应该可以互相共情的吧。
+
