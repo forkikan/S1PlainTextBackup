@@ -15307,3 +15307,95 @@ LAYER
 
 改到最后面目全非了一气之下跑路切割了呗 她连动画成片都没去看
 
+
+*****
+
+####  K·os  
+##### 33937#       发表于 2025-3-7 01:54
+
+pico和手游又什么不好写的，pico就不提了，这么变态的本篇能给pico带来的可能性不可估量，手游都是稳妥的刻板印象写法，没啥好管的
+
+*****
+
+####  小博禹  
+##### 33938#       发表于 2025-3-7 01:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593968&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-7 01:40</a>
+只有我还关心着。。。睦最近要考试了  
+
+你们课也不补了咧</blockquote>
+没事，小祥最爱学习了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  akiomn  
+##### 33939#       发表于 2025-3-7 01:56
+
+ 本帖最后由 akiomn 于 2025-3-7 01:59 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不对，这逼暖色调回忆是什么情况？我看了眼怎么大部分是痛苦回忆啊？
+
+开头狗团部分也不对，祥子和第九集的人设对不上。狗团也是，素能在校门口强迫带走祥去找睦/莫说个清楚，现在明显对不上账她又不管了摆烂了只安慰莫送莫回家，睦摔下去了这种话你们狗团听了都毫无波动？真就对应第六集莫睦打架摔楼梯也没一个人担心受伤出血只是紧张地跑过去看？
+
+灯能在第第五六说小祥你幸福吗，第九集还在纠结c团的事情，搁着第十集开头也跟着一块跑路？
+
+还有爱音也是，老好人人设呢？起码打个圆场再走啊。
+
+沟槽的真是一集一个人设啊，我是服了，全都赶着下班
+
+*****
+
+####  PascalLefèvre  
+##### 33940#       发表于 2025-3-7 01:57
+
+独角兽毒唯太多了
+
+*****
+
+####  thisisaspider  
+##### 33941#       发表于 2025-3-7 01:57
+
+现在还在纠结改没改的有什么意义吗。帮别人切割分锅又不能真的影响什么。就算被职场80了也要当事人自己站出来。跳过否认阶段直接接受好吧。
+
+不如想点好的，大家都不认可这个一创。后面自己只要看自己想要的AVEMUJICA不就好了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oyss  
+##### 33942#       发表于 2025-3-7 01:59
+
+去丰川家大宅按门铃女仆是见到初华的脸才给开门的吧.
+
+*****
+
+####  lzhjr  
+##### 33943#       发表于 2025-3-7 01:59
+
+消失几周的失眠症找回来了，即使看完剧透做预防也没能挡住的破防<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sauron.j  
+##### 33944#       发表于 2025-3-7 02:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67594014&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-3-7 01:56</a>
+
+不对，这逼暖色调回忆是什么情况？我看了眼怎么大部分是痛苦回忆啊？
+
+开头狗团部分也不对，祥子和第九集的 ...</blockquote>
+联系上一集灯还在“要一起看星星吗”，然后察觉睦出问题，开头那里是担心了一起跟过去
+
+爱音离开就不用说了，连体人
+
+*****
+
+####  北条早苗  
+##### 33945#       发表于 2025-3-7 02:02
+
+就算让六神装偷摸零来打这局也得跑啊
+一个变态重女初音，一个牢莫腐乳大喵，还有一个“哦睦头死了啊”纯人机大祥，留在那里拼尽全力也无法战胜
+大祥作为人的欲望是不是只剩下想抠企鹅了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
