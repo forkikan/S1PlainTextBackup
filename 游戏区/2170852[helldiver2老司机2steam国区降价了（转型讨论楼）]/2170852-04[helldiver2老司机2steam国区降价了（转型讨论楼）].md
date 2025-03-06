@@ -37,3 +37,11 @@
 问就是没打中，泰坦和强袭距离稍微远一点就很容易手抖</blockquote>
 那泰坦嘴巴上贴了两个铝热炸完变烟花，屁事没有接着追我也是手抖吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 5835#       发表于 2025-3-6 21:40
+
+说起来不知道是bug还是怎么回事，前几天打了一把虫族n10，被掀飞出去判定成叛徒了，但是一直在炸我二三十米外，我带着炮击把巨巢炸平了才打光子弹被虫子啃死<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

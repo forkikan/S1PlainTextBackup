@@ -9417,3 +9417,47 @@ mujica时期独角兽跑了，之前也有传柿本不让独角兽看分镜，�
 
 有种紧急赶工小玩具的美
 
+
+*****
+
+####  6030sylar  
+##### 33366#       发表于 2025-3-6 21:34
+
+<img src="https://img.saraba1st.com/forum/202503/06/213434a5kehe5n5mjenkkh.png" referrerpolicy="no-referrer">
+
+<strong>SDBLQSC2LV%CO8%UL(FNP]2.png</strong> (55.19 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 21:34 上传
+
+这图上电视了
+
+*****
+
+####  huxiaopao163  
+##### 33367#       发表于 2025-3-6 21:35
+
+也许mygo时期真正的监督是独角兽，类似冈妈也是从编剧变监督的，柿本只是挂名的
+
+*****
+
+####  十万年魂环  
+##### 33368#       发表于 2025-3-6 21:36
+
+早该点歌时间煮雨了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qratosones1337  
+##### 33369#       发表于 2025-3-6 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67590102&amp;ptid=2208921" target="_blank">风道北来 发表于 2025-3-6 20:16</a>
+绷不住了，合着大祥老师在组赌上人生的母鸡卡时真是随手从网上捡了个好看的主播啊
+
+果然母鸡卡1.0就是大祥老 ...</blockquote>
+草，这还不如说是因为大喵长得像灯呢
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

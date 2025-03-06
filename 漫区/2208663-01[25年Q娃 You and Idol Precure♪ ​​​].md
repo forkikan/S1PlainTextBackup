@@ -4481,3 +4481,30 @@ ps 梅泽主p的q娃们是没有设定生日过 网络传的都是假的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没人关心下第七集吗，紫色小女孩被激烈的偶像活动吓跑了，搭配上田华子的演出，啧啧，不敢想
 
+
+*****
+
+####  jaewoongh_  
+##### 684#       发表于 2025-3-6 21:38
+
+详细剧透
+
+07（加藤阳一/上田华子）机缘巧合之下，阿心拿到了变身器。然而被Idol和Wink战斗姿态吓到，觉得自己办不到，竟然逃跑了。大家很担心阿心的状态，但田中说“相信她的光芒吧”。阿心回家后把家里装饰的Cure Idol谷子都收了起来。第二天大家来到阿心的家，发现没回来，原来是试图通过练习舞蹈来忘记Cure Idol。大家从阿心奶奶那里得知了练舞场所。阿心看到大家过来后，还是觉得“自己忘不了大家”。在大家的鼓励下，阿心重拾笑容。重新摆出了谷子。 
+08（绫奈由仁子/鬼头和矢）一天午休，阿心来找两人，表示想更了解偶像Q娃，于是大家在小歌家合宿。晚上在小歌房间变身，阿心和噗哩伦拍了许多照片，为了给她们二人的手作吉祥物设计衣服。当发现Kyunkyun还没有手作吉祥物时，于是让阿心也变身一起拍照。晚上，噗哩伦感到有点寂寞，只有她没有衣服。等她睡着后，阿心向两人提了个建议
+
+<img src="https://img.saraba1st.com/forum/202503/06/213812acrl6b191vb508v0.jpg" referrerpolicy="no-referrer">
+
+<strong>e7cbae74gy1hz7hle3jdhj219a1e6qv5.jpg</strong> (682.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 21:38 上传
+
+<img src="https://img.saraba1st.com/forum/202503/06/213811k88o2zi0hkl37rk7.jpg" referrerpolicy="no-referrer">
+
+<strong>e7cbae74gy1hz7hlev59hj21b21cahdt.jpg</strong> (590.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 21:38 上传
+
