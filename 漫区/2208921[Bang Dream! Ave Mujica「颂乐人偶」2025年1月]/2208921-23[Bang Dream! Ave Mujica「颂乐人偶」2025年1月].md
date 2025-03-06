@@ -7950,3 +7950,44 @@ mujica真的故作深沉了吗。
 
 从业者里近期的例子，花田写难度低一档的gbc靠一些回避技巧拿了还行的分，黑田写小鸟球就没认真。这些内容创作难度是有的。
 
+
+*****
+
+####  z-hunter  
+##### 33238#       发表于 2025-3-6 16:40
+
+MYGO的故事倒说不上绝世神作，只不过是高中生组乐队闹翻了人际关系的小事，一辈子也只是灯的电波，没有宏大叙事。
+
+但故事讲得很好吸引人，女女关系，情绪调动，氛围代入，live很出色，文戏细节拉满。可惜这些优点mujica里都丢了。
+
+我同意“MYGO”这个乐队的故事，在MYGO动画里是说完了的，是完整故事，还有后续都应该在手游剧情里。虽然狗10的诗超绊很震撼人心，但11、12话，甚至13话前半的MYGO剧情同样出色，没有这些剧情，那10话只是单纯的情绪发泄而已。
+
+祥睦在GO动画有如此重的戏份，她们又组了mujica，灯素希在后半和她们有关联故事肯定是无可避免的，前半的的坑肯定要填完，不能因为后半做烂了就一定要把它和前半切割<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但现在9话了，再结合剧透来看，轻重分配和剧情方向确实。。。好听点说只能说很奇妙哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">演出优点还全扔了。就看编剧的这个选择最终效果如何体验了。至少mujica的live做好一点吧
+
+
+*****
+
+####  钦念以忱  
+##### 33239#       发表于 2025-3-6 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67587957&amp;ptid=2208921" target="_blank">HereLink 发表于 2025-3-6 16:01</a>
+
+mygo建立起来的故事倒是可以称得上完成度高，但是其中的角色明显还有跟祥子有关的塑造没有完成，不能说现在 ...</blockquote>
+理论上灯素和祥的对手戏，主要就影响祥，不应该再让祥大幅影响mygo播完以后的灯素了，而avemujica成了独立的动画之后，灯素也不能影响祥了，影响祥得让鸡团内部人员来进行，最后就变成了现在这样，不痛不痒三两句快速收篇的展开。
+
+*****
+
+####  与太郎  
+##### 33240#       发表于 2025-3-6 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67588044&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-6 16:10</a>
+
+mujica真的故作深沉了吗。
+
+鸡团解散后就一路栽进睦头双重人格和C团诈尸反复横跳的剧情了。</blockquote>
+指的是制作团队故作深沉
+
+终究还是c团爆炸这个地基支撑不了太过复杂的故事
+

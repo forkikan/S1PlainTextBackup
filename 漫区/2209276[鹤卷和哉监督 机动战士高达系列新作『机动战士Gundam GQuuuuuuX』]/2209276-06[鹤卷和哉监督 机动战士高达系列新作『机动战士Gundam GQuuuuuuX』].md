@@ -8380,3 +8380,17 @@ GQX的大口径光束步枪一枪没开就被打飞了
 参考79骡就知道其实是很绝望的那种感觉，越杀人越觉得麻木，不知道为了什么战斗，最后才发现原来自己其实一 ...</blockquote>
 如果没泽克诺瓦，当时直接和鸭子相认或许是最好的办法<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刺客ares  
+##### 8086#       发表于 2025-3-6 16:39
+
+<img src="https://img.saraba1st.com/forum/202503/06/163928h5y50y02f2oubxux.png" referrerpolicy="no-referrer">
+
+<strong>1741249320571.png</strong> (61.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 16:39 上传
+
