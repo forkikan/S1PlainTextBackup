@@ -7322,3 +7322,13 @@ AM重组真论功，其实还是小睦。
 
 但是烂与烂的方式还是有很大差别，都像上上周那样乐子拉满的烂，笑呵呵也就罢了，上周这种毛骨悚然的感觉就像在看迷家
 
+
+*****
+
+####  影伴光生  
+##### 33179#       发表于 2025-3-6 10:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">13集里烂了9集半，但是大家还追着看的热门新番近些年就这么一部吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

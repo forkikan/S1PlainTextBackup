@@ -8237,3 +8237,21 @@ side7的可能性还真大<img src="https://static.saraba1st.com/image/smiley/fa
 这个世界线里鸭子的追悼会应该真的是紫色老太婆主持的吧，感觉有点讽刺</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">紫婆和夏亚本来也有cp吧，不过因为鸭子萝莉控的的关系是单箭头
 
+
+*****
+
+####  az一串字母  
+##### 8073#       发表于 2025-3-6 10:39
+
+GQ世界线吉翁的大家应该都不知道鸭子是萝莉控
+
+*****
+
+####  纪寞  
+##### 8074#       发表于 2025-3-6 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67585440&amp;ptid=2209276" target="_blank">az一串字母 发表于 2025-3-6 10:39</a>
+
+GQ世界线吉翁的大家应该都不知道鸭子是萝莉控</blockquote>
+但鸭子真的不是萝莉控啊，可以说他母控，萝莉控纯是新人类研究所那些人造谣的啊
+
