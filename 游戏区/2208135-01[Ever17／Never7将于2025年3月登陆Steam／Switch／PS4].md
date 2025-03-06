@@ -20,3 +20,11 @@ never7 81rmb
 
 有个没玩过e17的脑子的话，玩原版还是这个重制
 
+
+*****
+
+####  妄想中毒  
+##### 113#       发表于 2025-3-6 17:51
+
+说起来我原版玩了一半，青年那边全通了少年没玩，不上不下的卡在那里肥肠尴尬<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
