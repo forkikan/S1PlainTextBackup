@@ -7652,3 +7652,46 @@ https://x.com/yuko11420/status/1897321114579427816?s=19
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  adretyu67.  
+##### 33210#       发表于 2025-3-6 14:46
+
+ 本帖最后由 adretyu67. 于 2025-3-6 14:48 编辑 
+
+鸡团应该是年龄最对不上的团了。
+
+5个人里有3个人是知名偶像、带货网红、职业雇佣兵结果都只有高一，只能说女高乐队是底层逻辑。
+
+
+*****
+
+####  z-hunter  
+##### 33211#       发表于 2025-3-6 14:54
+
+如果狗鸡26集连播，我倒是没看过一部动画前半这么好看后半会烂得那么彻底的
+
+不知道S1婆罗门见多识广，有没有见过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 33212#       发表于 2025-3-6 14:55
+
+知名演员白鹭千圣、职业鼓手大和麻弥、超级网红桐谷透子点了个赞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  最终兵器狂战  
+##### 33213#       发表于 2025-3-6 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67587352&amp;ptid=2208921" target="_blank">z-hunter 发表于 2025-3-6 14:54</a>
+
+如果狗鸡26集连播，我倒是没看过一部动画前半这么好看后半会烂得那么彻底的
+
+不知道S1婆罗门见多识广，有没 ...</blockquote>
+君不见国家队大叉叉之事也？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
