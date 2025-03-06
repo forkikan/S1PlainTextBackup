@@ -14964,3 +14964,138 @@ MYGO也是经常唐突追逐战中断对话，编剧写不下然后中断剧情�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  堆雪若叶  
+##### 33909#       发表于 2025-3-7 01:24
+
+初华发癫某种意义上也是母鸡卡的缩影，对祥子病态的追求就是影射其余人都在追求母鸡卡而发疯。莫老师上升到自己的存在意义，喵梦入障疯狂追求睦，海铃也不分现状复读信任，在睦床边不知所措而祥子一说要重组就仿佛抓住救命稻草。把初华写得这么疯魔大概是想说明母鸡卡是多么克系的存在<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 33910#       发表于 2025-3-7 01:25
+
+ 本帖最后由 akiomn 于 2025-3-7 01:27 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第十集毫无逻辑以至于懒得磕cp了，没一对能磕的。都什么玩意啊，全都急着赶剧情马上下班是吧。真就是突出个莫名其妙，比第九集还要糟糕
+
+*****
+
+####  钦念以忱  
+##### 33911#       发表于 2025-3-7 01:27
+
+我好像记得某个访谈说初华一开始才是故事的主角，是不是独角兽本来写了一整季的家庭伦理剧初华双子小姨戏，柿本和武士道觉得太变态了，就把独角兽踢了，剧情压缩成了2集，然后剩下的部分不知道写啥了，随便柿本胡乱发挥，就编了个睦头双重人格，到点了直接融合结束。
+
+*****
+
+####  是谁的书画  
+##### 33912#       发表于 2025-3-7 01:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593845&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-3-7 01:20</a>
+兄弟们，我宣布个事，我看第十集看红温了
+
+指体温38.4℃</blockquote>
+我的天，你这个有点变态了。注意休息<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  北条早苗  
+##### 33913#       发表于 2025-3-7 01:28
+
+睦祥已经跟路边一条一样死了，以后就只有素睦喵睦了
+偷摸零还想着和大祥搞柏拉图，没想到你们母鸡卡是女女性关系片场，也被吓跑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  maritimus  
+##### 33914#       发表于 2025-3-7 01:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593891&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-7 01:27</a>
+
+我好像记得某个访谈说初华一开始才是故事的主角，是不是独角兽本来写了一整季的家庭伦理剧初华双子小姨戏， ...</blockquote>
+很合理，现在初华作为主唱，戏份实在太少了。如果真这么拍说不定还好点
+
+
+*****
+
+####  未来起航  
+##### 33915#       发表于 2025-3-7 01:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593609&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-3-7 00:43</a>
+总结一下就是“没有爱就看不见”
+
+有了爱才能从家具/人偶变成人类，这下真是给海猫的情书了</blockquote>
+快tm拉倒吧。海猫你甭管他故事写得再怎么着，他在乎的还是“爱与勇气”这种老派的骑士病。英雄救美的经典戏码少不了。骑士可以蠢但精神永远错不到哪里去。
+mujica这几个人爱怜和关怀一点没有，硬蹭、捆绑和毁坏倒是无比擅长。如果这能叫爱那能把爱写得这么恶心透顶的是这个👍
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  adretyu67.  
+##### 33916#       发表于 2025-3-7 01:30
+
+这话其实倒是给出了初华留在mujica的理由，她总算可以自己作词让大祥配合作曲了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  非建政专用号  
+##### 33917#       发表于 2025-3-7 01:30
+
+理性讨论八幡海玲被拉出门的时候要说的是不是
+如果不继续待在那里，我的信用（卡），结果没说完就被立希打断了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  mono  
+##### 33918#       发表于 2025-3-7 01:31
+
+ave mujica完全不像有系列构成的样子
+
+杮本又跳出来接了这么多锅
+
+我觉得可以解释独角兽跑路的时间和理由了 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 33919#       发表于 2025-3-7 01:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593899&amp;ptid=2208921" target="_blank">北条早苗 发表于 2025-3-7 01:28</a>
+睦祥已经跟路边一条一样死了，以后就只有素睦喵睦了
+偷摸零还想着和大祥搞柏拉图，没想到你们母鸡卡是女女 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别搁着喵睦了，cp的前提是人设得行，喵梦这人设已经炸完了
+不如说鸡团内部cp现在是全都完蛋的状态
+
+*****
+
+####  huxiaopao163  
+##### 33920#       发表于 2025-3-7 01:33
+
+蒋怪喵睦磕疯了，并宣布这集神回<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  岬开斗  
+##### 33921#       发表于 2025-3-7 01:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593918&amp;ptid=2208921" target="_blank">mono 发表于 2025-3-7 01:31</a>
+ave mujica完全不像有系列构成的样子
+
+杮本又跳出来接了这么多锅
+
+我觉得可以解释独角兽跑路的时间和理由了  ...</blockquote>
+还切呢。
+<img src="https://p.sda1.dev/22/f8c8a06258ba6adf3aee40704581f4a3/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
