@@ -110,3 +110,21 @@ never7 81rmb
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么雷，不会又是后现代那套避雷指导吧
 
+
+*****
+
+####  whzfjd  
+##### 122#       发表于 2025-3-6 20:18
+
+我在想 ever17 既然日常无聊被诟病，而核心诡计又完全解耦，那么是不是可以重制日常和演出为理由做个重制版？
+
+*****
+
+####  whzfjd  
+##### 123#       发表于 2025-3-6 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67589509&amp;ptid=2208135" target="_blank">Hinanya 发表于 2025-3-6 19:11</a>
+
+听说是原xbox版的游戏，看商店评论有雷而且挺厉害的，有懂的能细说一下吗。 ...</blockquote>
+xbox 版的雷不是意义不明的 3d 吗？
+

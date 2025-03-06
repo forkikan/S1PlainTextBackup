@@ -955,3 +955,11 @@ R1蒸馏QWEN 32B是做不到这一步的，感觉纯靠蒸馏只能形式上实�
 
 目测刚搞了一波部署方案的那些活现在又可以搞个“升级”再搂一笔了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  orecheng  
+##### 62#       发表于 2025-3-6 20:17
+
+干，pdd上的24g显存的tesla p40价格飞了，就因为各种32b模型
+
