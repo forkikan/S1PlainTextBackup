@@ -8357,3 +8357,26 @@ GQX的大口径光束步枪一枪没开就被打飞了
 
 能在场面上压制GQX真是纯靠驾驶员能力<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  纪寞  
+##### 8084#       发表于 2025-3-6 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67587927&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-3-6 15:57</a>
+
+GQX的大口径光束步枪一枪没开就被打飞了
+
+飞走的时候是完好的，后续索冬方也没有回收，目前应该还在小行星 ...</blockquote>
+这光束涂层连枪都打不爆真的是震撼到我了，这拿头打啊<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  纪寞  
+##### 8085#       发表于 2025-3-6 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67587844&amp;ptid=2209276" target="_blank">gamedreamer 发表于 2025-3-6 15:46</a>
+
+参考79骡就知道其实是很绝望的那种感觉，越杀人越觉得麻木，不知道为了什么战斗，最后才发现原来自己其实一 ...</blockquote>
+如果没泽克诺瓦，当时直接和鸭子相认或许是最好的办法<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
