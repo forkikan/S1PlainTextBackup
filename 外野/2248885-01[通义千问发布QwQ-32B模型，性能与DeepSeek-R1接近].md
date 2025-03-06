@@ -492,3 +492,26 @@ https://huggingface.co/Qwen/QwQ-32B
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  泰坦失足  
+##### 48#       发表于 2025-3-6 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67586402&amp;ptid=2248885" target="_blank">Namoe 发表于 2025-3-6 12:37</a>
+
+huggingface有啊
+
+https://huggingface.co/Qwen/QwQ-32B</blockquote>
+多谢, 上面的 Collections没更新, 还真没往下翻
+
+*****
+
+####  fat  
+##### 49#       发表于 2025-3-6 12:52
+
+问过弱智问题，ollama能不能pull下来以后，把模型文件直接复制到别的电脑的？
+公司服务器想跑，但是没有联网。我想从家里下载完模型再复制到公司电脑…
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
