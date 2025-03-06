@@ -12157,3 +12157,320 @@ motis（死亡）：睦，融合。
 
 什么叫十五年未有之大女主啊，靠哈气和软糯撑起一部戏的传奇女主角就是十五年未有之大女主
 
+
+*****
+
+####  newtroll  
+##### 33650#       发表于 2025-3-6 23:16
+
+这mujica真的是和新三国一毛一样啊，不说别的，这一惊一乍的bgm和新三国那私人bgm关羽之歌一个样
+
+*****
+
+####  ykyin09  
+##### 33651#       发表于 2025-3-6 23:17
+
+我刚发现老登的瞳色跟初华（音）一样是紫色，原来伏笔早已埋下，太变态了柿本
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  思绪云骞  
+##### 33652#       发表于 2025-3-6 23:18
+
+<img src="https://img.saraba1st.com/forum/202503/06/231801n73kp09zod93kbw8.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1741273193712.jpg</strong> (116.11 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 23:18 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  木板春香  
+##### 33653#       发表于 2025-3-6 23:18
+
+<img src="https://img.saraba1st.com/forum/202503/06/231825slyb5l6nooke4apy.jpg" referrerpolicy="no-referrer">
+
+<strong>O}_76U_5CX0@S5BX1I$O2_tmb.jpg</strong> (98.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 23:18 上传
+
+幻觉来咯
+
+*****
+
+####  g救世主高达  
+##### 33654#       发表于 2025-3-6 23:18
+
+初华真是祥子爷爷生的阿？这老头生了个跟自己孙女一样大的女儿？有钱人这么会玩的吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rollingusagi  
+##### 33655#       发表于 2025-3-6 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592397&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-6 23:01</a>
+
+如果是指剧情逻辑，那玩意早就没戏了，现在就算把老登设计成大反派也没用，因为母鸡卡那五个人本来就是比 ...</blockquote>
+剧情逻辑救不了人物逻辑能救啊，现在最大问题不就是初华为啥对祥子感情那么重，还有祥睦为啥死死绑定吗？当初mygo讲soyo过去前观众不也搞不懂她为啥这么对ccc执念这么重，下跪那里全是当小丑看，结果下集开局三分钟回忆直接让一堆人共情，母鸡卡不也一个道理
+
+不过海玲和喵梦估计是没救了，这俩工具人属性太明显了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  苍蓝之枪  
+##### 33656#       发表于 2025-3-6 23:18
+
+这不妥妥的又是大手预定第十话要包饺子，然后前半段不管三七二十一全部捏一块吗，根本没有逻辑了
+
+想搞复杂关系又没能力做长篇动画，mygo说到底其实只有soyo老师一个有大问题，这五个全员神人还妄想13集内解决问题还要顺带擦mygo屁股
+
+只有不断压缩故事，人物被编剧提着线走，铺垫和转折都生硬无比
+
+*****
+
+####  ape-apple  
+##### 33657#       发表于 2025-3-6 23:19
+
+<img src="https://img.saraba1st.com/forum/202503/06/231800brf959drm0kdv1x4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (28.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 23:18 上传
+
+我觉得这一集是十本对懂王的情书，这是我第一次看到这么明确的厌恶表情，在一个主角身上，少年漫主角看最终boss倒也没这么嫌弃
+
+*****
+
+####  小博禹  
+##### 33658#       发表于 2025-3-6 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592633&amp;ptid=2208921" target="_blank">modkingr 发表于 2025-3-6 23:14</a>
+不需要和解
+
+这集已经讲得很明白了 母鸡卡的团魂就是五个烂人互相折磨 也就喵梦所谓soulmate强制爱 ...</blockquote>
+为什么🐘老师要和这几个烂人互相折磨呀<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  ntrntr1  
+##### 33659#       发表于 2025-3-6 23:19
+
+这个故事告诉我们女同不能爱上侄女<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  木板春香  
+##### 33660#       发表于 2025-3-6 23:19
+
+<img src="https://img.saraba1st.com/forum/202503/06/231946go9fhy0zy8tx82fe.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (622.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 23:19 上传
+
+*****
+
+####  戏谑二次元  
+##### 33661#       发表于 2025-3-6 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592708&amp;ptid=2208921" target="_blank">g救世主高达 发表于 2025-3-6 23:18</a>
+初华真是祥子爷爷生的阿？这老头生了个跟自己孙女一样大的女儿？有钱人这么会玩的吗 ...</blockquote>
+如果丰川家的岛真叫八轩岛的话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉丰川姥爷还不够疯
+
+*****
+
+####  aptx8285144  
+##### 33662#       发表于 2025-3-6 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592624&amp;ptid=2208921" target="_blank">戏谑二次元 发表于 2025-3-6 23:14</a>
+
+但是，初华一直没出场，这里是初音</blockquote>
+蚀本和独角兽这群神人真不怕被vo系列的粉丝们痛骂，初音这个名字好出戏呀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿卵真是牛逼  
+##### 33663#       发表于 2025-3-6 23:20
+
+ave mujica高能回，三角初音献给丰川祥子的情书！
+
+
+*****
+
+####  是谁的书画  
+##### 33664#       发表于 2025-3-6 23:20
+
+把演出服放旁边一起睡觉颇有一种阴婚的感觉，我看二偶怎么多年从未受到如此震撼，真给我整大脑升级了
+
+*****
+
+####  aptx8285144  
+##### 33665#       发表于 2025-3-6 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592710&amp;ptid=2208921" target="_blank">rollingusagi 发表于 2025-3-6 23:18</a>
+
+剧情逻辑救不了人物逻辑能救啊，现在最大问题不就是初华为啥对祥子感情那么重，还有祥睦为啥死死绑定吗？ ...</blockquote>
+大祥自己也基本没救了，虽然也没几个观众在乎她的角色形象了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 33666#       发表于 2025-3-6 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592576&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-6 23:11</a>
+前半部分音乐还比较对我胃口，初华说母鸡卡开始后这风格让我还是不由得皱起眉头 ...</blockquote>
+后一首感觉更funk一点可能会更好，现在这首有点放不开的感觉，有种大家要放开来嗨但是其实又表现得很拘谨，不如op狂热。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  modkingr  
+##### 33667#       发表于 2025-3-6 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592721&amp;ptid=2208921" target="_blank">小博禹 发表于 2025-3-6 23:19</a>
+
+为什么🐘老师要和这几个烂人互相折磨呀
+
+—— 来自 鹅球 v3.4.98</blockquote>
+因为祥跟她们显然一个level的，五个人 郎才女貌门当户对了
+
+*****
+
+####  adretyu67.  
+##### 33668#       发表于 2025-3-6 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592741&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-6 23:20</a>
+
+把演出服放旁边一起睡觉颇有一种阴婚的感觉，我看二偶怎么多年从未受到如此震撼，真给我整大脑升级了 ...</blockquote>
+鸡团的衣服说不准都是三角女士从事务所仓库里偷拿出来的。
+
+*****
+
+####  草化木  
+##### 33669#       发表于 2025-3-6 23:22
+
+我的小墨就这么无声无息地没了？！
+
+把我的小墨还给我<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  聊nsy专用号  
+##### 33670#       发表于 2025-3-6 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592633&amp;ptid=2208921" target="_blank">modkingr 发表于 2025-3-6 23:14</a>
+
+不需要和解
+
+这集已经讲得很明白了 母鸡卡的团魂就是五个烂人互相折磨 也就喵梦所谓soulmate强制爱 ...</blockquote>
+这么小众的xp除了中年性压抑女同独角兽很难有人能欣赏了
+
+*****
+
+####  天空塔书记官  
+##### 33671#       发表于 2025-3-6 23:23
+
+ 本帖最后由 天空塔书记官 于 2025-3-6 23:24 编辑 
+
+大家如果对女同本子起星宇了，建议反复观看这一集，感觉比戒色吧管用
+
+<strong>十五年未有之大女主(✘)
+
+十五年未有之⭐压抑(✔)</strong>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  thisisaspider  
+##### 33672#       发表于 2025-3-6 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592566&amp;ptid=2208921" target="_blank">Libartas 发表于 2025-3-6 23:10</a>
+
+无人在意的角落里，甜甜圈女士已经是能和实力派女丨优森みなみ共演的帝剧女丨优了，sumimi谁carry谁还真不 ...</blockquote>
+只是生在睦头没有进军演艺界的凡人罢了<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+*****
+
+####  木板春香  
+##### 33673#       发表于 2025-3-6 23:24
+
+ 一开始大家就开开玩笑，10本现在真定性鸡团就是一群烂人强制锁在一起别出去害人的时候，还是有点难过的，虽然LIVE好听 虽然LIVE好听  虽然LIVE好听  但这剧情好尼玛变态啊
+
+*****
+
+####  operatbig  
+##### 33674#       发表于 2025-3-6 23:24
+
+ 本帖最后由 operatbig 于 2025-3-6 23:25 编辑 
+
+讲真柿本想讲的东西很有意思，但tm的在水平不行的情况下，还要塞进半集里实在挺难绷的……前4集是真该压缩一下，而且后3集的事真值得扯3集吗？我真的觉得这集想写的东西值得花2集的时间。
+
+绝对自私故乡伤害苦苦挣扎的一群共犯，多美妙啊。
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 33675#       发表于 2025-3-6 23:24
+
+有一说一，柿炒拌比春日影好听。
+
+*****
+
+####  蓮華  
+##### 33676#       发表于 2025-3-6 23:24
+
+我寻思这个三角初音是不是在那段同居日子里已经姦过大祥了，所以大祥才这么对她深恶痛绝，初音时时刻刻担心大祥报警心中忐忑不已，特别是联系不上的那段时间，所以现在才如此卑微<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ntrntr1  
+##### 33677#       发表于 2025-3-6 23:24
+
+说起来，母鸡卡一个商业乐队，祥子作为半个负责人签合同的时候应该看得到名字的。。。
+
+初音还用的初华的证件，全职高手是吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 33678#       发表于 2025-3-6 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592619&amp;ptid=2208921" target="_blank">KokutouMikiya 发表于 2025-3-6 23:13</a>
+
+独角兽之前还说写出了能带进坟里的脚本（大概率指鸡），不可能连这点自觉都没有吧 ...</blockquote>
+遗臭万年也是一种带进坟墓的办法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 33679#       发表于 2025-3-6 23:25
+
+大祥老师脸色不好很正常，毕竟是被大猫初华海铃架着来搞鸡团2.0的。
+
+*****
+
+####  航母掉头  
+##### 33680#       发表于 2025-3-6 23:26
+
+Ob一串字母女士一发力，比三角女士鞠十万次躬都有效
+
+太强了，财阀的大手
+
