@@ -930,3 +930,152 @@ A part真是我这辈子看过的最难看的半集动画，我求求你不要�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  幻想风靡_  
+##### 105#       发表于 2025-3-6 22:46
+
+-2，但是live+2
+
+*****
+
+####  黄昏现白骨  
+##### 106#       发表于 2025-3-6 22:46
+
+写的什么玩意儿
+
+*****
+
+####  暴走的包子  
+##### 107#       发表于 2025-3-6 22:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">可以让人在-2到+2的打分机制里打出-1000000分的一集
+
+—— 來自 samsung SM-F9460, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  usodakedo  
+##### 108#       发表于 2025-3-6 22:47
+
+太变态了，给我向全世界真正的soulmate道歉啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  MKLL  
+##### 109#       发表于 2025-3-6 22:47
+
+连乐子都没了，莫名其妙的一集，而且这运镜真是印度运镜，烂完了我草
+
+*****
+
+####  木板春香  
+##### 110#       发表于 2025-3-6 22:49
+
+  太变态了，我端着炸鸡听完2首歌，然后告诉我主唱是初音，大家要去斗财阀了？ +2+2+2+2+2+2+2
+
+<img src="https://img.saraba1st.com/forum/202503/06/224922utrntz5wvzwj9hzt.jpg" referrerpolicy="no-referrer">
+
+<strong>@8I86ZAPW}IK6YDQ6V9PKCQ_tmb.jpg</strong> (19.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 22:49 上传
+
+*****
+
+####  a85982313  
+##### 111#       发表于 2025-3-6 22:49
+
+太变态了，乐子都没有了
+
+
+*****
+
+####  何でやねん  
+##### 112#       发表于 2025-3-6 22:50
+
+只有mujica的歌我是真的喜欢，其他都是依托，这种感觉好怪啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rhantolk  
+##### 113#       发表于 2025-3-6 22:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">受不了了，啥玩意，一直没打分终于忍不住了来打个-2
+
+*****
+
+####  aliya  
+##### 114#       发表于 2025-3-6 22:51
+
+live好听，但是除了live都没看懂
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  小处不可随便  
+##### 115#       发表于 2025-3-6 22:52
+
+我看完两季闪彩锻炼出来的耐受性，居然马上就用上了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  z2150966  
+##### 116#       发表于 2025-3-6 22:53
+
++2，歌好听，少女乐队番这点就行了，所以第七集！！！！
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  萌二  
+##### 117#       发表于 2025-3-6 22:53
+
+我**的  太变态了太恶心了  该包饺子的时候不包 突然一级就包好了 祥子的回忆更是哈气合集
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  湖静欲成冰  
+##### 118#       发表于 2025-3-6 22:54
+
++2，这种东西还真给柿本拍出来了啊。
+
+*****
+
+####  stygian  
+##### 119#       发表于 2025-3-6 22:54
+
+太变态了，太无敌了，+2不够，至少也得是个+2222222222222222222222222222222222222222222222222222
+
+*****
+
+####  hjysimo  
+##### 120#       发表于 2025-3-6 22:54
+
++2前有古人后不乏来着<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  rp1993  
+##### 121#       发表于 2025-3-6 22:55
+
+原来一切都是台长的剧本<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  swessia  
+##### 122#       发表于 2025-3-6 22:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">从头到尾的平庸-0，但烂炒九集就端上来这坨，毫不犹豫的-2
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

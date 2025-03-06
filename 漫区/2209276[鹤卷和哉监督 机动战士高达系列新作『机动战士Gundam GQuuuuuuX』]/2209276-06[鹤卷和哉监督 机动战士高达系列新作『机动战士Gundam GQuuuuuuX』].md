@@ -8592,3 +8592,14 @@ gqx本身还是宇宙专用机，推力机动力特化的配置
 
 这样还能有追不上的机动差距，那只能是驾驶员gap了
 
+
+*****
+
+####  AraTurambar  
+##### 8103#       发表于 2025-3-6 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67589341&amp;ptid=2209276" target="_blank">xwr 发表于 2025-3-6 18:43</a>
+
+没有，不过按年表来看，吉翁还是从敖德萨和北美撤退了，空降加布罗然后也撤退了，第一次所罗门会战多兹鲁 ...</blockquote>
+两个newtype无双所罗门那段实在是……看了两遍还是想象不出。
+

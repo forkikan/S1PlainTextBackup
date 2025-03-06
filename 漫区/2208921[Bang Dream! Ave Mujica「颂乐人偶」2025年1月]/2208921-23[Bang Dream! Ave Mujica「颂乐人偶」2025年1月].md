@@ -10875,3 +10875,481 @@ ring表演严格来说。。。你不收门票钱就不算商演咯
 那个详细聊天记录里面，大金毛是小姨的姐妹，和祥子好像没血缘关系。。。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">答案是致敬传奇东方本竹丿花，初华听了自己姐妹和祥子的童年旧事后代替姐妹去爱祥（
 
+
+*****
+
+####  南宮凝香  
+##### 33530#       发表于 2025-3-6 22:46
+
+<blockquote>紫苑寺美琴 发表于 2025-3-6 22:43
+幽默企鹅人这就直接下线了？
+
+🐧：孩子们，祥子说复活CCC的事我还没回复</blockquote>
+燈： CCC？ （無感）
+
+MyGo 眾都把祥子當路邊一條的退場了
+
+3C 跟屁比也沒重多少了
+
+*****
+
+####  小博禹  
+##### 33531#       发表于 2025-3-6 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592035&amp;ptid=2208921" target="_blank">紫苑寺美琴 发表于 2025-3-6 22:43</a>
+幽默企鹅人这就直接下线了？
+
+🐧：孩子们，祥子说复活CCC的事我还没回复</blockquote>
+以后偷情的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这叫留白
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  DeltaStriker  
+##### 33532#       发表于 2025-3-6 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592068&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-3-6 22:45</a>
+ring表演严格来说。。。你不收门票钱就不算商演咯
+
+—— 来自 鹅球 v3.3.96</blockquote>
+不是收了2000一张吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  qratosones1337  
+##### 33533#       发表于 2025-3-6 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592089&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-3-6 22:46</a>
+
+答案是致敬传奇东方本竹丿花，初华听了自己姐妹和祥子的童年旧事后代替姐妹去爱祥（ ...</blockquote>
+所以真初华是无了？为啥不自己出来
+
+*****
+
+####  天空塔书记官  
+##### 33534#       发表于 2025-3-6 22:47
+
+ 本帖最后由 天空塔书记官 于 2025-3-6 22:49 编辑 
+
+捏嘛的，该给自己发回旋镖了，我现在抱着亿万分悔意万万分坚定千万分支持迷子和ave切割
+
+快跑，这里不是Bang Dream，这里只有五个强碱犯 <strong>! ! ! ! !</strong>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/237.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  cayon  
+##### 33535#       发表于 2025-3-6 22:47
+
+没想到鸡团最正常的居然是海玲<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  huxiaopao163  
+##### 33536#       发表于 2025-3-6 22:47
+
+战吧在开香槟，完全胜利了，真的有邀请函<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ntrntr1  
+##### 33537#       发表于 2025-3-6 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592107&amp;ptid=2208921" target="_blank">DeltaStriker 发表于 2025-3-6 22:46</a>
+
+不是收了2000一张吗
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+祥子：姥爷会替我交罚款的，这事不打紧。
+
+*****
+
+####  大户爱  
+##### 33538#       发表于 2025-3-6 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67591853&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-3-6 22:35</a>
+这不是明示爱上睦了吗，别管是哪个人格，解散的时候还没发现自己的病情和爱情这么重呗 ...</blockquote>
+那还是两个
+一个，早干嘛去了，之前不理不睬，现在睦都死了，突然觉醒了是吧。
+
+二个，和这集大喵说的话有什么关系。这一集，就算你大喵一眼爱上睦，怎么就啪啪啪一堆正论输出，按着祥子组母鸡卡呢。有任何逻辑嘛？你真爱上了，不如先陪soyo看看睦。
+
+算了，这个剧里的角色就不能谈逻辑，都是一群神人。喵梦睦堕确实是编剧的铺垫，但加上这点，还是没有任何正常的逻辑。
+
+*****
+
+####  my707776310  
+##### 33539#       发表于 2025-3-6 22:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不是啊,所以海铃上集结尾发癫真就没个人搭理一下啊,立希拉海铃走那块有种"别搁外边丢人"的幽默感
+
+*****
+
+####  曼彻斯特联  
+##### 33540#       发表于 2025-3-6 22:48
+
+这集是真没活了，即使是建立了"前面九集想传达的信息多数没有在作品中表达出来"的先验，喵梦祥子这段对话也过于抽象了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  十九号大侠  
+##### 33541#       发表于 2025-3-6 22:49
+
+没死的嘛，只是陷入永远的沉睡了，后面叫醒，在超融合
+
+*****
+
+####  盐盐盐盐盐  
+##### 33542#       发表于 2025-3-6 22:49
+
+其实我还挺接受am这个重组的就是没有一丝团魂纯纯的把五个人绑回去的设定，虽然初华这个卑微舔狗形象是真的看的有点不适了，但是祥子在台上看初音（）一脸嫌弃一点都不开心还蛮有意思的，就是cp意义上卖的太难吃了，还有睦莫这个处理不太能接受，我甚至觉得莫是因为她觉得喵梦注视的是睦大家需要的都是睦而不是自己所以圣了一把把睦捞回来了………看看12集~13集收尾会怎么解释吧
+
+喵梦我觉得没啥问题和我想的差不多为了直面恐惧回队，有勇者风范，她说那个我只有am了只是故意给祥子打回旋镖吧大概
+
+
+*****
+
+####  Ferrari  
+##### 33543#       发表于 2025-3-6 22:50
+
+这次复活看起来就像在一个小的live house搞的，那之前的排场去哪了？要说是因为没钱搞的又怎么弄出来的大型宣传海报？
+
+尼玛的一点逻辑都看不懂
+
+*****
+
+####  ntrntr1  
+##### 33544#       发表于 2025-3-6 22:50
+
+大喵对睦的箭头倒是挺明显一直
+
+感觉就是想写那种带着扭曲嫉妒的爱恨交织时髦同性恨CP，但由于本动画所有节奏都很随便，0人想嗑。
+
+*****
+
+####  wangh  
+##### 33545#       发表于 2025-3-6 22:50
+
+这也没复刻超诗绊啊，后半当MV看还可以
+
+*****
+
+####  qratosones1337  
+##### 33546#       发表于 2025-3-6 22:50
+
+所以这么抽象的玩意，立本人一点都没觉得有问题么
+
+*****
+
+####  聋与唬  
+##### 33547#       发表于 2025-3-6 22:50
+
+这母鸡卡已经是对海猫的直球情书了，黄金蝶，白梦之茧，音子辈，小姨，双子，大家族乱伦都冒出来了，就差一个十吨黄金和大杀器了。
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  Litccc  
+##### 33548#       发表于 2025-3-6 22:50
+
+live的时候莫名其妙的转圈特写真有阿三歌舞的感觉了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  الطائر  
+##### 33549#       发表于 2025-3-6 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67501525&amp;ptid=2208921" target="_blank">الطائر 发表于 2025-2-24 00:37</a>
+
+六根琴弦，有音孔、防刮板，是民谣吉他（木吉他）。初华在 SUMIMI 和 Ave Mujica弹的是同一把电吉他。电 ...</blockquote>
+果然是伏笔吗？
+
+*****
+
+####  aptx8285144  
+##### 33550#       发表于 2025-3-6 22:51
+
+初华这个舔狗形象不会真得要大战财阀吧，难以想象呀<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莱茵哈鲁特  
+##### 33551#       发表于 2025-3-6 22:51
+
+这一话从剧情层面上来看各种诡异。
+
+这一集喵梦突然变女同让我惊掉下巴。
+
+这集祥子的态度转折太怪了。前一秒还不愿意，后一秒又主动去组mujica。复活怎么可以这么简单啊，太怪了，祥子的精神斗争呢？居然直接就莫名相通了。
+
+我难以想象有什么人看了这集还能磕的下初华和祥子的cp，祥子对初华的态度已经不是单纯的差了，堪称家暴男级别的了。说别人是舔狗只是夸张的讽刺，说初华是舔狗则是毫无恶意的精准形容了。
+
+唯一的好消息是，音乐番终于有音乐了。简直像是把之前没有的live全补上一样，后半段全是live。但这歌曲能传递什么感情吗，暂时还没法理解。
+
+墨提斯和睦居然真融合了。这融合是好还是坏，真是不好说……
+
+*****
+
+####  烂片雷达  
+##### 33552#       发表于 2025-3-6 22:52
+
+只有我觉得很好看吗，强制soulmate太爽了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 33553#       发表于 2025-3-6 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592107&amp;ptid=2208921" target="_blank">DeltaStriker 发表于 2025-3-6 22:46</a>
+不是收了2000一张吗
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+才发现还真收了，太搞了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  6030sylar  
+##### 33554#       发表于 2025-3-6 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592107&amp;ptid=2208921" target="_blank">DeltaStriker 发表于 2025-3-6 22:46</a>
+
+不是收了2000一张吗
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我给钱进ring看jk的不是看什么avemujica的
+
+*****
+
+####  大户爱  
+##### 33555#       发表于 2025-3-6 22:52
+
+还有这集，大家都平静的接受了，睦在和大莫的搏斗中摔死了。
+
+就和当初接受睦的双重人格。震惊一下，就理所应当的接受了。这邦邦是什么世界观啊。
+
+大鼻子叔叔还畅想大家为了一起复活睦，才重组母鸡卡呢。比编剧想得多。
+
+*****
+
+####  是谁的书画  
+##### 33556#       发表于 2025-3-6 22:52
+
+这天狗舔的我都想笑啊，没道理的，怎么可以怎么舔？
+
+上辈子给初音挡核弹了？
+
+*****
+
+####  nt2013  
+##### 33557#       发表于 2025-3-6 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592068&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-3-6 22:45</a>
+
+ring表演严格来说。。。你不收门票钱就不算商演咯
+
+—— 来自 鹅球 v3.3.96</blockquote>
+你好 本场是收费live 打在Ring幕墙上的海报写了2000日元一位（含税）
+
+*****
+
+####  thisisaspider  
+##### 33558#       发表于 2025-3-6 22:52
+
+鸡团的剧本的意思已经很明显了，鸡团的问题没法靠羁绊，友情解决。只能自行消解。
+
+本质是剧本不相信少女乐队的力量。这下邦多利也垫了。<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  KokutouMikiya  
+##### 33559#       发表于 2025-3-6 22:53
+
+独角兽到这种程度都没放弃署名，是我肯定全部切割干净，创作出这种东西简直是人生的污点<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+*****
+
+####  الطائر  
+##### 33560#       发表于 2025-3-6 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67492452&amp;ptid=2208921" target="_blank">الطائر 发表于 2025-2-22 13:57</a>
+
+Mortis看向祥子 轻轻的笑了 她的话语无法被听到 却又能清晰地听见 “我说过祥子 我是死亡的化身 才不会去赎 ...</blockquote>
+还真是……
+
+Ob一串字母女士 -&gt; Mortis X
+
+Mortis -&gt; 睦 O
+
+
+*****
+
+####  qratosones1337  
+##### 33561#       发表于 2025-3-6 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592165&amp;ptid=2208921" target="_blank">盐盐盐盐盐 发表于 2025-3-6 22:49</a>
+
+其实我还挺接受am这个重组的就是没有一丝团魂纯纯的把五个人绑回去的设定，虽然初华这个卑微舔狗形象是真的 ...</blockquote>
+重新看了一遍第三集，好像大祥说那句话的时候没见到大喵在场，估计又是市畜脑抽了搞出bug了吧
+
+*****
+
+####  暴走的包子  
+##### 33562#       发表于 2025-3-6 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67591774&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-3-6 22:33</a>
+虽然说后日谈有手游，但是属于先上车再补票是吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">手游到底要怎么补啊，玛德这鬼样子母鸡卡进卡池真的有人想抽吗
+
+—— 來自 samsung SM-F9460, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  mono  
+##### 33563#       发表于 2025-3-6 22:54
+
+日本livehouse设备真好 那种整墙LED好贵的 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mika-S  
+##### 33564#       发表于 2025-3-6 22:54
+
+第一首歌还是挺体现李神机能的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 33565#       发表于 2025-3-6 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592221&amp;ptid=2208921" target="_blank">nt2013 发表于 2025-3-6 22:52</a>
+你好 本场是收费live 打在Ring幕墙上的海报写了2000日元一位（含税）</blockquote>
+我还想说只是ring收钱，祥子不收不就行了。
+
+但是想想还是算了，大小姐怎么玩都是可以，十本开心就好。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  FanFun  
+##### 33566#       发表于 2025-3-6 22:54
+
+这是把祥子的人偶设定当个性，难道要演到结束吗
+
+*****
+
+####  李黑羊  
+##### 33567#       发表于 2025-3-6 22:54
+
+一到十话看下来，文戏含金量基本为零，监督对演出真是太有信心了
+
+*****
+
+####  aptx8285144  
+##### 33568#       发表于 2025-3-6 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592217&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-3-6 22:52</a>
+
+还有这集，大家都平静的接受了，睦在和大莫的搏斗中摔死了。
+
+就和当初接受睦的双重人格。震惊一下，就理所 ...</blockquote>
+蚀本最后会搞个复活吧，当然角色们这么冷漠就当脑控吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厄神之息  
+##### 33569#       发表于 2025-3-6 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67591982&amp;ptid=2208921" target="_blank">DARK_HGCG 发表于 2025-3-6 22:40</a>
+
+这集90%的实质戏份都是喵梦的</blockquote>
+90%戏份都写她，还写成这逼样，那还是少写写吧，真就编剧刻画谁，谁就要遭殃。
+
+她那句“我可是若麦！意思是年轻的麦子”一出来。我脑内立刻幻听了一个红色西装男的浑厚中音“欧蕾哇，铁卡弹弹囧！欧陆噶伊兹卡大佐！”了我草
+
+*****
+
+####  qratosones1337  
+##### 33570#       发表于 2025-3-6 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592230&amp;ptid=2208921" target="_blank">KokutouMikiya 发表于 2025-3-6 22:53</a>
+
+独角兽到这种程度都没放弃署名，是我肯定全部切割干净，创作出这种东西简直是人生的污点 ...</blockquote>
+没准小姨这种活就是独角兽想出来的呢，毕竟符合中年厕妹XP
+
+*****
+
+####  天空塔书记官  
+##### 33571#       发表于 2025-3-6 22:55
+
+初华这已经不是一般的舔狗了，而是究极⭐压抑病娇舔狗，她真的写了一整首歌来表达自己想要艹祥子的感情，我真的哭死
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  takerest  
+##### 33572#       发表于 2025-3-6 22:55
+
+真叫人难忘啊，史上最史少女乐队动画<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhigui  
+##### 33573#       发表于 2025-3-6 22:55
+
+<img src="https://img.saraba1st.com/forum/202503/06/225518gg4hqhcglngedg78.jpg" referrerpolicy="no-referrer">
+
+<strong>O0}Z`XAPEA{MIRD@~ES9JT0_tmb.jpg</strong> (18.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 22:55 上传
+
+*****
+
+####  gaayas  
+##### 33574#       发表于 2025-3-6 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592230&amp;ptid=2208921" target="_blank">KokutouMikiya 发表于 2025-3-6 22:53</a>
+独角兽到这种程度都没放弃署名，是我肯定全部切割干净，创作出这种东西简直是人生的污点 ...</blockquote>
+这小姨和舔狗初华，独角兽肯定写爽了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  聋与唬  
+##### 33575#       发表于 2025-3-6 22:55
+
+什么，初华家的私家无人岛叫八轩岛？
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  thisisaspider  
+##### 33576#       发表于 2025-3-6 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592230&amp;ptid=2208921" target="_blank">KokutouMikiya 发表于 2025-3-6 22:53</a>
+
+独角兽到这种程度都没放弃署名，是我肯定全部切割干净，创作出这种东西简直是人生的污点 ...</blockquote>
+也可以说独角兽写一半，发现自己写不下去跑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
