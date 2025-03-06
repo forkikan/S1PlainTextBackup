@@ -59,3 +59,13 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">神了，透现在播mc工作日能上两万同接？警犬小姐一个企划把这堆新人虹女全抬起来了吗。
 
+
+*****
+
+####  Harunoharu  
+##### 1033#       发表于 2025-3-6 17:33
+
+说明虹的男性观众层还有救<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

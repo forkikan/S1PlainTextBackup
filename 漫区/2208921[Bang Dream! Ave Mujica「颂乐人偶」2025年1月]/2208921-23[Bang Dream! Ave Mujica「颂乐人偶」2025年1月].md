@@ -8120,3 +8120,55 @@ mujica真的故作深沉了吗。
 
 反正鸡动画里话是说不出来的，甚至不如企鹅状态
 
+
+*****
+
+####  哈曼的YY  
+##### 33251#       发表于 2025-3-6 17:28
+
+主要还是没机会把祥老师抓上台念诗 舞台下灯是说不出长难句的
+
+*****
+
+####  小博禹  
+##### 33252#       发表于 2025-3-6 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67587244&amp;ptid=2208921" target="_blank">plusSharp 发表于 2025-3-6 14:40</a>
+初华动手睦直接摔死了算不上最狂，一死了之太简单了。莫在意识里杀了睦，又因为失去了被保留的意义也随睦消 ...</blockquote>
+应该还会有新的人格吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+或者悲剧走向，以半身为锚点，成为半身的一部分，不再有自己的独立思想，成为祥子的人偶<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  小博禹  
+##### 33253#       发表于 2025-3-6 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67588718&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-6 17:23</a>
+其实祥子的灯条子笔记写的挺明白的。
+
+想和祥子一起前进，但是回不到过去</blockquote>
+不是想回到过去，而是想和祥子一起走向未来<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+这不就是求婚吗，难怪5.6.7要派爱音锁死企鹅防止出轨<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/22/49eab4ca2da1ee522eeae8d36bcabef4/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  玖羽  
+##### 33254#       发表于 2025-3-6 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67588553&amp;ptid=2208921" target="_blank">HereLink 发表于 2025-3-6 17:04</a>
+
+不敢苟同，素灯对祥子的态度在mygo里本来就是悬而未决的状态，在mujica里完整讲述二人的态度和之后的转变 ...</blockquote>
+我不同意，我认为MyGO做得最对的地方之一就是，它不是“解决”问题，而是“我们一起迷路”
+
+也就是<strong>不把精神内耗在纠结谁对谁错这个问题上</strong>，直接把问题揭过去，我们都有错，我们一起迷路
+
+这里的关键是，现代年轻人的精神内耗，至少99%都像片中的小女生一样，实际上(在第三者看来)完全是一些无所谓的问题
+
+为什么非要谁对谁道歉呢，难道没有这个道歉，你的人生就卡住了，结果就是你的人生完全取决于另一个人的一个道歉，这究竟值得吗
+
+在我看来，灯说出“我们一起迷路”的时候已经把这个问题回答完了，Mujica完全是倒退
+
