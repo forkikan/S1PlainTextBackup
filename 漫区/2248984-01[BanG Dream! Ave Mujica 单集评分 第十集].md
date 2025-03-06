@@ -2024,3 +2024,29 @@ live衔接还可以，属于是我在现场看会爽的，其他不评价，初�
 
 vocal，什么构式<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leommoo  
+##### 232#       发表于 2025-3-7 00:48
+
+看在歌的份上，个p啊，什么东西，这集里面的人说话做事有动脑吗，全是神经病，太变态了，睦莫融合的演出也恶心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  Chenlh  
+##### 233#       发表于 2025-3-7 00:52
+
+歌不错，但是live镜头不行，mygo的关键live里面（3、7、10、13）都有很多令人印象深刻的镜头，这次和第一集一样，镜头太正常了，所以live并没有让我原谅前面的剧情
+
+*****
+
+####  狗剩大魔王  
+##### 234#       发表于 2025-3-7 00:53
+
++2，看懂了，只要接受这个乐队病态的本质，就能理解剧情走向了
+
+—— 来自 Xiaomi 23049RAD8C, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+

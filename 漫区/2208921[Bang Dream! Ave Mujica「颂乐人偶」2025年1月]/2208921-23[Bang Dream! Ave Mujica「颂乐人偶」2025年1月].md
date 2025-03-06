@@ -14480,3 +14480,170 @@ you know you know you know … so , you know I want you to know how much I need 
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  adretyu67.  
+##### 33866#       发表于 2025-3-7 00:48
+
+下面就差不多让大祥老师意识到自己内心深处对金毛也是有星欲的了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  非建政专用号  
+##### 33867#       发表于 2025-3-7 00:49
+
+感觉已经神人到编不出来段子了，从哪个角度切入进去都是神人就是这样的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  pzk  
+##### 33868#       发表于 2025-3-7 00:49
+
+大概能理解am是要组一个所有成员即使讨厌但也都不得不组的团，但这几集的演出实在太灾难了
+
+*****
+
+####  akiomn  
+##### 33869#       发表于 2025-3-7 00:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都懒得提cp了，第十集全员人机，都急着推剧情赶紧下班是吧，上集一个人设下集又一个人设，这集我看起来比第九集还折磨，要不是有live真是直接关了
+
+*****
+
+####  天空塔书记官  
+##### 33870#       发表于 2025-3-7 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593626&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-7 00:45</a>
+祥子和灯是柏拉图式恋爱，初中小女生纯洁美好</blockquote>
+这太tm纯爱了，什么哥布林洞窟里的纯洁姬骑士，我牛头人都不敢看的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">(
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Chenlh  
+##### 33871#       发表于 2025-3-7 00:50
+
+这集文戏看得我歪头歪到显示屏在我面前是竖屏模式了
+
+*****
+
+####  ntrntr1  
+##### 33872#       发表于 2025-3-7 00:50
+
+ 本帖最后由 ntrntr1 于 2025-3-7 00:51 编辑 
+<blockquote>adretyu67. 发表于 2025-3-7 00:48
+下面就差不多让大祥老师意识到自己内心深处对金毛也是有星欲的了</blockquote>
+
+大祥老师最后为何又是同居又是铁人三项的
+
+家庭斗争让孩子迅速（性）成熟。
+
+每天不情愿的去她一堆神人队友的母鸡卡负责完迫不及待打车回家对真正的青梅竹马泄欲。
+
+*****
+
+####  厉飞雨  
+##### 33873#       发表于 2025-3-7 00:50
+
+所以这个团最后靠性欲维系嘛
+
+那海玲岂不是很尬
+
+*****
+
+####  pzk  
+##### 33874#       发表于 2025-3-7 00:51
+
+我曾经最喜欢的动画就是独角兽写的。最后两集突然爆出来说女二一直在装嫩，实际上是女主的阿姨，她从小就想草女主了，等女主妈死了终于找到机会了……
+
+看来独角兽的性癖就是百合乱伦
+
+*****
+
+####  zhzij111  
+##### 33875#       发表于 2025-3-7 00:51
+
+ 本帖最后由 zhzij111 于 2025-3-7 00:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593630&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-7 00:46</a>
+祥子才15岁啊
+
+就算国内上了大学突然爹妈打电话能二胎了给你生了个弟弟妹妹的也不少吧，俺以前有个室友上着 ...</blockquote>
+老登妥妥的慈父吧，主打一个尊重子女意愿。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这集牢祥又回去组她那个逼乐队他都没意见的，跟初音说回来吧明显是之前想把初音带回家养但是初音不愿意回丰川家只想当小偶像
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  adretyu67.  
+##### 33876#       发表于 2025-3-7 00:51
+
+也没多讨厌吧。
+
+金毛能倾泄自己对大祥的爱，很开心。
+
+海铃能释放自己的管人欲，很开心。
+
+大猫继续挑战古神演技，人的成长就是战胜过去不成熟的自己
+
+睦莫融合效果看下话。
+
+就只剩大祥一张司马脸了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ntrntr1  
+##### 33877#       发表于 2025-3-7 00:52
+
+<blockquote>zhzij111 发表于 2025-3-7 00:51
+老登妥妥的慈父吧。
+
+这集牢祥又回去组她那个逼乐队他都没意见的，跟初音说回来吧明显是之前邀请过了但是 ...</blockquote>
+
+但这个剧人设一集一变
+
+就算下一集突然开始找了10个保镖把祥子关起来一转辉夜大小姐我也不奇怪
+
+*****
+
+####  YF31  
+##### 33878#       发表于 2025-3-7 00:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593613&amp;ptid=2208921" target="_blank">wolf1997 发表于 2025-3-7 00:44</a>
+
+Imprisoned XII
+
+作词: Diggy-MO’
+
+作曲: Diggy-MO’ / 松坂康司</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">写出这种性压抑歌最后居然还能把牢祥吃到嘴，我只能说这张伟大的脸确实有用，但凡这脸没那么伟大一点，我就要开始捏鼻子了。
+
+*****
+
+####  my707776310  
+##### 33879#       发表于 2025-3-7 00:53
+
+对哦特么上集不还说丰川家大手不让重组，怎么这集又行了
+
+*****
+
+####  南宮凝香  
+##### 33880#       发表于 2025-3-7 00:53
+
+大祥的CP 都爛光了
+
+木箱，睦子美死了？ （無感）
+
+燈箱， 把大祥當做路邊一條的撤退
+
+初箱， 變態舔狗跟擺脫不了舔狗的惡桐
+
+還是乖乖去吃喵祥吧， 至少也是Soulmate
+
