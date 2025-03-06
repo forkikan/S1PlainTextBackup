@@ -9249,3 +9249,68 @@ md，屎本这访谈给我看吐了，不愧是最大的战犯<img src="https://
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  zhoujin8584  
+##### 33352#       发表于 2025-3-6 21:04
+
+那海铃那边确实是路过的八幡神社就是她家的家业了，总觉得……好无语的信息披露方式。
+
+包括炸团后给了sumimi和喵梦打招呼的事务所翅膀logo，暗示TGW旗下，他不如去拍小时代惹
+
+*****
+
+####  HereLink  
+##### 33353#       发表于 2025-3-6 21:06
+
+<blockquote>zhoujin8584 发表于 2025-3-6 21:04
+那海铃那边确实是路过的八幡神社就是她家的家业了，总觉得……好无语的信息披露方式。
+
+包括炸团后给了sumim ...</blockquote>
+我懂了，海铃的妈妈是节约宝，爸爸是高木美佳🤔
+
+*****
+
+####  595505568  
+##### 33354#       发表于 2025-3-6 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67590542&amp;ptid=2208921" target="_blank">NaAgfykp 发表于 2025-3-6 20:58</a>
+说起来现在评价最好的几个角色是不是都是wsd自己人在配音？
+另外按照访谈，柿本广大在mygo时期是在摆烂？mu ...</blockquote>
+我也说了这个话，NGA觉得我在开玩笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，揣着最大的恶意揣测wsd总没错的
+
+*****
+
+####  ads147147  
+##### 33355#       发表于 2025-3-6 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67590608&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-6 21:04</a>
+
+那海铃那边确实是路过的八幡神社就是她家的家业了，总觉得……好无语的信息披露方式。
+
+包括炸团后给了sumim ...</blockquote>
+所以说海玲搬出去了，但是就离家。。五分钟步行远？
+
+这老妈还不天天溜达过去把饭做了。。
+
+
+*****
+
+####  my707776310  
+##### 33356#       发表于 2025-3-6 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67590542&amp;ptid=2208921" target="_blank">NaAgfykp 发表于 2025-3-6 20:58</a>
+
+说起来现在评价最好的几个角色是不是都是wsd自己人在配音？
+
+另外按照访谈，柿本广大在mygo时期是在摆烂？mu ...</blockquote>
+柿本go时期还有做分镜的,怎么可能摆烂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  my707776310  
+##### 33357#       发表于 2025-3-6 21:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说实话,让现在mujica这个团队做动画版小时代估计他们真做不来,里萧的部分估计都做不过电影版
+
