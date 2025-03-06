@@ -13080,3 +13080,234 @@ Ring 也墜落了
 
 交待的是大祥和初华，睦头和莫头。大猫和海铃已经是路人定位了，没啥办法。
 
+
+*****
+
+####  天空塔书记官  
+##### 33743#       发表于 2025-3-6 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592997&amp;ptid=2208921" target="_blank">lovcavil 发表于 2025-3-6 23:40</a>
+太变态了要是真是cue场外李子的妹妹，
+宁可小姨伦理剧也不要变态逆输入初华姐妹好吧，这能感动也太变态了</blockquote>
+如果真把双子一个写死，那说明这企划已经没救了，真拿声优不当人啊，逆输入节约和梦以已经触犯底线了，再拿李子炒作，那wsd真nm该死了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ntrntr1  
+##### 33744#       发表于 2025-3-6 23:47
+
+ 本帖最后由 ntrntr1 于 2025-3-6 23:50 编辑 
+<blockquote>盐盐盐盐盐 发表于 2025-3-6 23:45
+随便找个会吉他的录（让初音小姐另录一轨都可以）不就行了，am这个复活演出不是狗团那场赶工到临时上的， ...</blockquote>
+
+那这种中途睦又能弹了，同时又放录音不是很容易露馅...毕竟神人突然上线谁能料到，就算工作人员内应及时停掉假音轨也要反应时间吧
+
+算了这是神人的世界
+
+*****
+
+####  秦南心  
+##### 33745#       发表于 2025-3-6 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593006&amp;ptid=2208921" target="_blank">雪菜碧池 发表于 2025-3-6 23:41</a>
+
+问题是这逼片处处对照，你说有这个心思做点什么不好</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202503/06/234752k3dlk3h973o3llxu.jpg" referrerpolicy="no-referrer">
+
+<strong>6AF9843C168604C975D23F96259CE595.jpg</strong> (75.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 23:47 上传
+
+wsd命令剧情要加入这样那样的爆点→编剧和导演一个头两个大打出技法牌→wsd看得连连叫好→杀青
+
+*****
+
+####  modkingr  
+##### 33746#       发表于 2025-3-6 23:48
+
+三角初音写中文歌belike:
+
+<img src="https://img.saraba1st.com/forum/202503/06/234801ady11g0k1sf6ydg0.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (124.79 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 23:48 上传
+
+*****
+
+####  ape-apple  
+##### 33747#       发表于 2025-3-6 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593072&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-3-6 23:46</a>
+如果真把双子一个写死，那说明这企划已经没救了，真拿声优不当人啊，逆输入节约和梦以已经触犯底线了，再 ...</blockquote>
+因为wsd就是这么个玩意 本质上是一家靠着烂俗摔角和卖卡片游戏起家，跟博彩千丝万缕联系的小公司，说mggm是老登，他真是老流氓，但日本人都不在意这个，别人扎小人也没用
+
+*****
+
+####  thisisaspider  
+##### 33748#       发表于 2025-3-6 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593072&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-3-6 23:46</a>
+
+如果真把双子一个写死，那说明这企划已经没救了，真拿声优不当人啊，逆输入节约和梦以已经触犯底线了，再 ...</blockquote>
+初华是艺名，粉丝拿到的亲签不是角色本名。编剧抱着这样独断想法展开企划。你觉得wsd真没干吗。
+
+*****
+
+####  刑部姬真可爱  
+##### 33749#       发表于 2025-3-6 23:50
+
+mggm和丰川老登soulmate了吧<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  月灵银羽  
+##### 33750#       发表于 2025-3-6 23:50
+
+<img src="https://img.saraba1st.com/forum/202503/06/235014cuzzg0gaa06uhr90.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250306235004.png</strong> (451 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 23:50 上传
+
+这集我熟，我才在崩鬼吧看过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ntrntr1  
+##### 33751#       发表于 2025-3-6 23:51
+
+<blockquote>月灵银羽 发表于 2025-3-6 23:50
+这集我熟，我才在崩鬼吧看过</blockquote>
+我去，规则怪谈。
+
+*****
+
+####  雪霜  
+##### 33752#       发表于 2025-3-6 23:51
+
+所以祥子知不知道眼前的这人不是自己发小？
+
+*****
+
+####  ape-apple  
+##### 33753#       发表于 2025-3-6 23:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">战吧➗还挺觉得自己有功的，他们也就配在其堆烂泥里淹死了
+
+*****
+
+####  adretyu67.  
+##### 33754#       发表于 2025-3-6 23:51
+
+有一说一，这场的小剧场应该是动画里鸡团几个小剧场最好的那个了。
+
+*****
+
+####  usodakedo  
+##### 33755#       发表于 2025-3-6 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593114&amp;ptid=2208921" target="_blank">月灵银羽 发表于 2025-3-6 23:50</a>
+
+这集我熟，我才在崩鬼吧看过</blockquote>
+我去，场外对偶。
+
+*****
+
+####  thisisaspider  
+##### 33756#       发表于 2025-3-6 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593114&amp;ptid=2208921" target="_blank">月灵银羽 发表于 2025-3-6 23:50</a>
+
+这集我熟，我才在崩鬼吧看过</blockquote>
+我觉得还行吧，毕竟为了一部商业动画发脾气真不值得。防止极端共振不挺好的。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  plok201  
+##### 33757#       发表于 2025-3-6 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67591609&amp;ptid=2208921" target="_blank">空虚澄璃色 发表于 2025-3-6 22:26</a>
+
+不是喵睦这cp哪里埋的线？我他妈看了什么？</blockquote>
+喵睦？前四集全在写吧，最重要地下室那段虽然写的一般，但是挺容易get到的
+
+其实mygo也有，现在复盘喵梦就是看到睦的照片星宇来了才参加的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  默默摸鱼  
+##### 33758#       发表于 2025-3-6 23:52
+
+“最后连强制灵魂伴侣计划都大成功了”，一直看不懂这句话，太变态了
+
+*****
+
+####  adretyu67.  
+##### 33759#       发表于 2025-3-6 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593119&amp;ptid=2208921" target="_blank">雪霜 发表于 2025-3-6 23:51</a>
+
+所以祥子知不知道眼前的这人不是自己发小？</blockquote>
+不知道，没给表情。
+
+*****
+
+####  秦南心  
+##### 33760#       发表于 2025-3-6 23:52
+
+描写初华这个角色是为了告诉大家，卑微女酮就是阴湿低能儿，没救了
+
+
+*****
+
+####  usodakedo  
+##### 33761#       发表于 2025-3-6 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593114&amp;ptid=2208921" target="_blank">月灵银羽 发表于 2025-3-6 23:50</a>
+
+这集我熟，我才在崩鬼吧看过</blockquote>
+“音乐仍为底层逻辑”
+
+*****
+
+####  盐盐盐盐盐  
+##### 33762#       发表于 2025-3-6 23:54
+
+<blockquote>ntrntr1 发表于 2025-3-6 23:47
+那这种中途睦又能弹了，同时又放录音不是很容易露馅...毕竟神人突然上线谁能料到，就算工作人员内应及时 ...</blockquote>
+就当livehouse现场很吵偷偷把吉他音量打开背景音轨关掉没什么人发现算了（虽然我不知道后台控制能不能这么搞就是单独把吉他音轨分出来调音量）
+
+实际上现场拾音和放音轨应该会有很明显的差异……像歌手假唱和半开和全开现场视频听起来就很明显
+
+*****
+
+####  kenqqex  
+##### 33763#       发表于 2025-3-6 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592906&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-3-6 23:33</a>
+
+原来和go的方向相反是这么个意思吗？go是五个好人即使迷茫也互相搀扶走下去；鸡是五个神人即使互相憎恶也 ...</blockquote>
+你把前2天的访谈和今天刚出的都看了
+
+十本明明白白写出来了都
+
+*****
+
+####  KokutouMikiya  
+##### 33764#       发表于 2025-3-6 23:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593072&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-3-6 23:46</a>
+如果真把双子一个写死，那说明这企划已经没救了，真拿声优不当人啊，逆输入节约和梦以已经触犯底线了，再 ...</blockquote>
+逆输入节约和梦以啥了？
+

@@ -1020,3 +1020,32 @@ win ollama+i5-13600kf+4080+内存24*2</blockquote>
 倒也不是很差，如果和文生视频一起出来足够火上几个月，但既然跳票了几个月现 ...</blockquote>
 只能说由奢入简难，现在开源多了，反而挑剔起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  龙骑士尹志平  
+##### 68#       发表于 2025-3-6 23:48
+
+万象和混元能本地跑吗？要求什么配置？
+
+*****
+
+####  绕指流光  
+##### 69#       发表于 2025-3-6 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67590226&amp;ptid=2248885" target="_blank">Tomorrow_D 发表于 2025-3-6 20:28</a>
+不懂就问，大家觉得和D指导相比，Q指导的实力如何？</blockquote>
+测了一晚上，感觉就是小镇理科做题家<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，我不限制输出token和思考长度的话它能一直干到输出上万，最后就不知道跑哪里去了。
+让写个网页动画结果半道上思考到一个几何题，转头研究解法去了，结果给我干了个解题步骤和答案<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">，我温度设的0.6
+总体感觉有R1满血版8成功力，比R1蒸馏的QWEN32B强太多了，主要本地部署速度爽歪歪
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  卡嘎米  
+##### 70#       发表于 2025-3-6 23:55
+
+用了一下，写文狗屎一坨
+

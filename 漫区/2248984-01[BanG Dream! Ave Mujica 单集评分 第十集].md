@@ -1704,3 +1704,77 @@ live不错吗，这一整集用live开局 倒叙组队还差不多，放在变�
 
 — from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  浅井惠  
+##### 195#       发表于 2025-3-6 23:46
+
+我已经彻底放弃理解剧情了 不过live有几个镜头不错+1分，给-1吧
+
+*****
+
+####  whzfjd  
+##### 196#       发表于 2025-3-6 23:48
+
+这集脉络不负责任是真，但大家为什么要讨厌小姨文学呢？
+
+*****
+
+####  稀勢のささ  
+##### 197#       发表于 2025-3-6 23:50
+
+比上一集还要变态
+
+*****
+
+####  一色いろは  
+##### 198#       发表于 2025-3-6 23:51
+
+这必须+2啊，上哪找这种没一个行为有逻辑的神回
+
+
+*****
+
+####  shinoverse  
+##### 199#       发表于 2025-3-6 23:52
+
++2
+
+太变态了， 我果然是贱，为什么要每周守着看这玩意
+
+*****
+
+####  saglork  
+##### 200#       发表于 2025-3-6 23:52
+
+live+2，剧情-4
+所以还是-2<img src="https://static.saraba1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">
+前半部分这已经不是逻辑不逻辑的问题了，初华这干脆就是个发情的死变态，这要性转一下，现在捧臭脚发情的河豚们怕不是把报警电话都摁出火星子了吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+喵梦终于也彻底不是人了，你这脸皮到底是啥玩意焊接的，演技行不行放一边，至少无耻程度确实够混演艺圈了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+大祥一如既往地出生表演已经耐受了，反而感觉没那么膈应了，所以还是衬托产生美<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+真就是咬着牙撑到了live，前半只有生理不适<img src="https://static.saraba1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  哩子ayil  
+##### 201#       发表于 2025-3-6 23:54
+
++2
+
+太变态了
+
+变态到欣赏尖叫抓挠都觉得厨子们尖叫抓挠得很无力，像被编剧襁褓得苟延残喘
+
+太变态了
+
+*****
+
+####  seki_m  
+##### 202#       发表于 2025-3-6 23:56
+
++2 我觉得很好啊  为什么大家都觉得不好
+
+然后点了 -2
+
