@@ -14883,3 +14883,84 @@ MYGO也是经常唐突追逐战中断对话，编剧写不下然后中断剧情�
 喵睦倒是充满了 ...</blockquote>
 还回收吗，不如贯彻不被爱的主题更好
 
+
+*****
+
+####  cxj649  
+##### 33902#       发表于 2025-3-7 01:16
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/487.png" referrerpolicy="no-referrer">不过这位CV1号，人设实在太太那啥了，很不讨喜了233
+
+后面3集人设会翻转没233
+
+*****
+
+####  ntrntr1  
+##### 33903#       发表于 2025-3-7 01:16
+
+草，回过头去看剧透还有个很绷不住的地方
+
+现在这个初华妈 是仰慕外公的老婆 然后和外公生下的初音的
+不是，仰慕外公的老婆。。。所以和外公。。。也生一个。。。这是什么女同设定。。。
+
+*****
+
+####  adretyu67.  
+##### 33904#       发表于 2025-3-7 01:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593819&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-3-7 01:16</a>
+
+不过这位CV1号，人设实在太太那啥了，很不讨喜了233
+
+后面3集人设会翻转没233 ...</blockquote>
+主唱确实是星星，鸡团已经歪成这样了，主唱确实多少得有点病<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天空塔书记官  
+##### 33905#       发表于 2025-3-7 01:20
+
+兄弟们，我宣布个事，我看第十集看红温了
+
+指体温38.4℃<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+注意及时添减衣物和注意个人防护啊，现在可是流感高峰期<img src="https://static.saraba1st.com/image/smiley/face2017/249.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  木板春香  
+##### 33906#       发表于 2025-3-7 01:21
+
+<img src="https://img.saraba1st.com/forum/202503/07/012105lirug2fgvgifn2gv.jpg" referrerpolicy="no-referrer">
+
+<strong>WMMR6$VT@T532){R9QGG898_tmb.jpg</strong> (74.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 01:21 上传
+
+最终错过的2个人
+
+*****
+
+####  北条早苗  
+##### 33907#       发表于 2025-3-7 01:22
+
+难绷鸡超绊，果然5个神人组队
+最后3集战老登太难绷了
+
+*****
+
+####  非建政专用号  
+##### 33908#       发表于 2025-3-7 01:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593685&amp;ptid=2208921" target="_blank">my707776310 发表于 2025-3-7 00:53</a>
+对哦特么上集不还说丰川家大手不让重组，怎么这集又行了</blockquote>
+之前老头看到孙女不想玩母鸡卡，那带手就来了
+现在老头看到孙女又想玩母鸡卡，那带手就走了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
