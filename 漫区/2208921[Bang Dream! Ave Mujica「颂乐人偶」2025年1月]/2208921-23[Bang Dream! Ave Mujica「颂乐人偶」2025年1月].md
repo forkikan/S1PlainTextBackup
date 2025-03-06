@@ -7222,3 +7222,95 @@ AM重组真论功，其实还是小睦。
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  segen  
+##### 33174#       发表于 2025-3-6 09:49
+
+要我说制作组要真“最狂”就该直接把睦头写死，但可惜这是个要卖卡的kirakira世界观，到头来连莫小姐都不敢写死
+
+<img src="https://img.saraba1st.com/forum/202503/06/094848ghzh6kd2hdzzeqwf.png" referrerpolicy="no-referrer">
+
+<strong>dcb2dad28daa044bedf25d296108732bd35e0771a1cfa52f3aca289a1f1f3577.0.PNG</strong> (345 Bytes, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-3-6 09:48 上传
+
+*****
+
+####  与太郎  
+##### 33175#       发表于 2025-3-6 09:50
+
+这两天睿站给我推送了好几个给mujica渲染找茬的视频，海铃第9话那一帧被反复鞭尸
+
+<img src="https://img.saraba1st.com/forum/202503/06/094528ry5swxi1xi95nhun.jpg" referrerpolicy="no-referrer">
+
+<strong>Honeyview_1.jpg</strong> (184.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 09:45 上传
+
+<img src="https://img.saraba1st.com/forum/202503/06/094528ltdqd1qobuz1zscq.jpg" referrerpolicy="no-referrer">
+
+<strong>Honeyview_2.jpg</strong> (182.11 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 09:45 上传
+
+实际上MyGO时期就有不少光影比较可疑的画面，这主要还是和三次元的工作流有关吧
+
+它不是GBC那样PBR为主的模式，所以很多物理不正确的情况，以及上面这种工作疏忽导致的贴图材质问题
+
+我记忆比较深刻的就是MyGO10这一处睦的脸部阴影
+
+<img src="https://img.saraba1st.com/forum/202503/06/094818hkwywffx0bfoi2fw.png" referrerpolicy="no-referrer">
+
+<strong>5.png</strong> (842.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 09:48 上传
+
+<img src="https://img.saraba1st.com/forum/202503/06/094819t64x29862vi6e39m.png" referrerpolicy="no-referrer">
+
+<strong>6.png</strong> (908.18 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 09:48 上传
+
+远景下的阴影
+
+<img src="https://img.saraba1st.com/forum/202503/06/094846ei8i98xdknpfijtf.png" referrerpolicy="no-referrer">
+
+<strong>4.png</strong> (46.17 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 09:48 上传
+
+
+*****
+
+####  金钱与民主  
+##### 33176#       发表于 2025-3-6 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67584694&amp;ptid=2208921" target="_blank">山ノ内花音 发表于 2025-3-6 09:05</a>
+其他的烂作基本上都是后期烂
+泥鸡从第四集就开始烂 也算是热门作品里的前无古人了 甚至连一集回光返照都没 ...</blockquote>
+回头看甚至第一话这飞得起来的叙事节奏就开始烂了，只不过有Mygo珠玉在前，大家有很好的预期，所以误以为第一话还不错。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  十九号大侠  
+##### 33177#       发表于 2025-3-6 09:57
+
+今天的剧透出了吗
+

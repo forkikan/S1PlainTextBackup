@@ -3373,3 +3373,18 @@ F5确实可以，但是又觉得分辨率有点低...
 
 找放魔之塔上楼隐藏门找了十几分钟，有目的地的情况卡关卡起来是真的烦躁
 
+
+*****
+
+####  Sannapolis  
+##### 300#       发表于 2025-3-6 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67584076&amp;ptid=2246453" target="_blank">PigMourne 发表于 2025-3-6 01:52</a>
+
+从地下墓地一路跑到王都门口，森林和下水道都舔了，只找到一个二动影战士。
+
+看召唤列表空了3个人，怕不是全 ...</blockquote>
+看看是不是漏了这三个
+
+地下墓地拦路狗boss北面有双刀哥，传送点“下水道前”附近有矿工哥，下水道里流红色水的房间里有电法
+
