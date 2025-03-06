@@ -9610,3 +9610,119 @@ soyo妈妈<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" 
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  无音命题  
+##### 33385#       发表于 2025-3-6 22:04
+
+节奏太对了，就是这种让大脑宕机的节奏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pliee  
+##### 33386#       发表于 2025-3-6 22:05
+
+复读机笑了
+
+*****
+
+####  南宮凝香  
+##### 33387#       发表于 2025-3-6 22:05
+
+祥蓄你是人嗎？
+
+*****
+
+####  m99999  
+##### 33388#       发表于 2025-3-6 22:05
+
+比上一集还搞笑，笑死我了，+2预订
+
+*****
+
+####  秋月孝三  
+##### 33389#       发表于 2025-3-6 22:06
+
+7分钟不到就进广告了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  gammatau  
+##### 33390#       发表于 2025-3-6 22:07
+
+这么切part也太过分了
+
+*****
+
+####  卡卡布鲁根  
+##### 33391#       发表于 2025-3-6 22:08
+
+海玲“感动”
+
+我个人评为mujica开播以来最好笑的一卡
+
+
+*****
+
+####  厄神之息  
+##### 33392#       发表于 2025-3-6 22:12
+
+不行了，我已经完全看不懂这个逼喵梦在说什么勾八了，就这还把其他人说动了我也是真服气<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无音命题  
+##### 33393#       发表于 2025-3-6 22:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卡卡布鲁根  
+##### 33394#       发表于 2025-3-6 22:13
+
+大喵就是纯纯工具人啊
+编剧需要他说什么就说什么呗
+
+—— 来自 vivo V2307A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  aptx8285144  
+##### 33395#       发表于 2025-3-6 22:13
+
+初华这舔狗形象实在没救了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gammatau  
+##### 33396#       发表于 2025-3-6 22:13
+
+这剧本怎么tmd能从一开始堕落到现在这种一切靠念白的程度的
+
+*****
+
+####  AP0rt_  
+##### 33397#       发表于 2025-3-6 22:13
+
+看来所有人都万策尽了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大户爱  
+##### 33398#       发表于 2025-3-6 22:13
+
+说了喵梦纯工具人，无情的编剧发声筒，她说的这些话对的起她前面几集的所作所为嘛？
+
+*****
+
+####  影伴光生  
+##### 33399#       发表于 2025-3-6 22:13
+
+有一种跑COC团马上全团撕卡的美
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
