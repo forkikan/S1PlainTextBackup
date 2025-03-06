@@ -138,3 +138,13 @@ xbox 版的雷不是意义不明的 3d 吗？
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ArcadiaMartyr  
+##### 125#       发表于 2025-3-6 20:37
+
+久仰大名本来想买来玩玩，怎么steam全是差评，这个重置有啥问题吗？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
