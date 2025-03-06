@@ -515,3 +515,46 @@ https://huggingface.co/Qwen/QwQ-32B</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  霖曦  
+##### 50#       发表于 2025-3-6 12:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67586487&amp;ptid=2248885" target="_blank">fat 发表于 2025-3-6 12:52</a>
+
+问过弱智问题，ollama能不能pull下来以后，把模型文件直接复制到别的电脑的？
+
+公司服务器想跑，但是没有联 ...</blockquote>
+可以，随便谷歌一下，大体上来说就是把模型文件复制过去然后编辑个模型配置文件然后类似
+
+ollama create qwen1.5-32b -f qwen1.5-32b.mf
+
+这样一下，就行了
+
+*****
+
+####  卖哥  
+##### 51#       发表于 2025-3-6 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67586487&amp;ptid=2248885" target="_blank">fat 发表于 2025-3-6 12:52</a>
+
+问过弱智问题，ollama能不能pull下来以后，把模型文件直接复制到别的电脑的？
+
+公司服务器想跑，但是没有联 ...</blockquote>
+手动复制，然后用ollama load命令加载。
+
+*****
+
+####  琉璃苑軒風  
+##### 52#       发表于 2025-3-6 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67586487&amp;ptid=2248885" target="_blank">fat 发表于 2025-3-6 12:52</a>
+
+问过弱智问题，ollama能不能pull下来以后，把模型文件直接复制到别的电脑的？
+
+公司服务器想跑，但是没有联 ...</blockquote>
+[https://bbs.saraba1st.com/2b/thread-2245374-1-1.html](https://bbs.saraba1st.com/2b/thread-2245374-1-1.html)
+
+你要用ollama下载我分流版本挪到指定位置就行
+
