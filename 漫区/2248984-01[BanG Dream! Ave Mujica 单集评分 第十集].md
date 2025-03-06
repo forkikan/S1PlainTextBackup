@@ -1948,3 +1948,64 @@ live衔接还可以，属于是我在现场看会爽的，其他不评价，初�
 
 这个不想和初音多说一句话，对上一次眼的祥子塑造得太好了，我都感受到了她的厌恶之情，太无敌了这动画。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  灵椿  
+##### 223#       发表于 2025-3-7 00:20
+
+看的时候我一直暂停和移开视线揉额头<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  可爱的撒四大  
+##### 224#       发表于 2025-3-7 00:21
+
+这剧情确实像AI<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  拱猪  
+##### 225#       发表于 2025-3-7 00:22
+
+太变态了，前面10集都是mujica的人在演舞台剧是吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Eiyuu  
+##### 226#       发表于 2025-3-7 00:22
+
+虽然我是大小姐，但是我有一个去世的妈和破产的爹，还好我还有一个有钱的爷，能把没苦硬吃的自己带回去
+
+我组过团，拆过团，笑过哭过，黑化过，但是我还是大家的白莲花，组不组团都是我一口下令，四个团的命运都在我手里。
+
+因为我答应过大家我们是命运共同体
+
+虽然我不知道为什么甜甜圈女士要对我的一切负责，但是谁管呢？
+
+他都是甜甜圈了，一共漏过的脸不如我一集多
+
+
+*****
+
+####  Perfectfullmoon  
+##### 227#       发表于 2025-3-7 00:25
+
+我竟然产生一种“这动画怎么还有三集”的漫长之感<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  leghorn00  
+##### 228#       发表于 2025-3-7 00:25
+
++2，从第四集就不知道在演什么，但是就觉得很神，看得也很开心
+
+*****
+
+####  maritimus  
+##### 229#       发表于 2025-3-7 00:26
+
+-2，饺子里的猪还在跑，白菜刚发芽。最关键的问题是不够乐，再爆一点我也许还能看个乐子，结果就这
+

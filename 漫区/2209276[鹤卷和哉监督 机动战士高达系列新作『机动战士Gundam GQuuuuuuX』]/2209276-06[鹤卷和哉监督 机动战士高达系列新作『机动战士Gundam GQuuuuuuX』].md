@@ -8739,3 +8739,18 @@ gqx本身还是宇宙专用机，推力机动力特化的配置
 
 我有个假药是修斯是鸭子灵魂在zeknova时分裂出的一部分。算计的那一半留在了红高上，纯真的一半幻化成了人形也就是修斯。不过也是没啥根据就是了，单纯觉得这样很cool，就像维吉尔和v那样
 
+
+*****
+
+####  纪寞  
+##### 8115#       发表于 2025-3-7 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593351&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-3-7 00:12</a>
+
+我有个假药是修斯是鸭子灵魂在zeknova时分裂出的一部分。算计的那一半留在了红高上，纯真的一半幻化成了 ...</blockquote>
+主要是无法解释鸭子肉体的问题，所以我才想出了灵魂交换论，然后从现在修司的精神状态想到鸭子灵魂在阿尔法上，新修司占原本修司的肉体，原来的修司占鸭子的肉体，这样肉体的问题就解决了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+都怪菲尼克斯没说明莉塔的肉体去哪了<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+而伪鸭是明确灵魂被带走，肉体留下了
+

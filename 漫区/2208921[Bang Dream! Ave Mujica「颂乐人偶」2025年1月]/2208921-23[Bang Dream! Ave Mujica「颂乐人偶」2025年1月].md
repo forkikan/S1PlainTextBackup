@@ -13749,3 +13749,201 @@ mujica的油画到确实有点贝阿朵的味
 看了分析才知道，一开始都是莫在假弹，弹了一半睦打赢复活赛了才改真弹的。睦：我差点人无了你们没人关心的 ...</blockquote>
 大象已经不在意了，真被她搞到4个能永远绑在一起的病友搞命运共同体，简直乐坏了。木子迷？让莫永远装下去就好了。
 
+
+*****
+
+####  天空塔书记官  
+##### 33808#       发表于 2025-3-7 00:19
+
+所以独角兽咋说，单纯想看个乐子
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  cxj649  
+##### 33809#       发表于 2025-3-7 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593392&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-3-7 00:17</a>
+
+不行这集真是全员人设崩塌了，包括狗团
+
+开头全员知道睦没了。然后呢？除了祥子有反应外没人关心下，素世安 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那时候睦其实还在啊，继续往下掉而已啊
+
+后半段不是大莫主动去跳下去融合么
+
+*****
+
+####  akiomn  
+##### 33810#       发表于 2025-3-7 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593412&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-3-7 00:19</a>
+那时候睦其实还在啊，继续往下掉而已啊
+
+后半段不是大莫主动去跳下去融合么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">墨缇丝这个点是我最疑惑的，卧槽听个歌你想通了主动跳下去了？早干嘛去了啊
+算了我唯一的念想只有看看最后形态的睦是怎样的了
+
+*****
+
+####  icoywt  
+##### 33811#       发表于 2025-3-7 00:21
+
+缓不过来了，看完这集以后感觉对百合阳痿了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 33812#       发表于 2025-3-7 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593428&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-3-7 00:21</a>
+
+墨缇丝这个点是我最疑惑的，卧槽听个歌你想通了主动跳下去了？早干嘛去了啊
+
+算了我唯一的念想只有看看最 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个还得等手游了
+
+*****
+
+####  YF31  
+##### 33813#       发表于 2025-3-7 00:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我产生了生理性的反胃，我要求武士道赔偿我观看第十集的费用。
+
+我还想问问佐佐木串子小姐，是怎么被柿畜要求配出性压抑片段以后还能串得起来的，职业素养是不是太高了。
+
+*****
+
+####  清江望月  
+##### 33814#       发表于 2025-3-7 00:22
+
+我从第4集开始失望，但我一直忍住没去看剧透，今天这最后那点剧情搞得我彻底破防了，我忍不住去看了下隔壁那个剧透，写的不会是真的吧，我其实很不愿意相信，但第10集又已经完全对上了，但这真的是人能写出来的剧情吗，国内最垃圾的偶像剧都不敢这么写啊。
+
+*****
+
+####  木板春香  
+##### 33815#       发表于 2025-3-7 00:22
+
+  最终形态的睦就是能不畏惧社交还能弹吉他还继续当祥子舔狗 
+
+*****
+
+####  ntrntr1  
+##### 33816#       发表于 2025-3-7 00:23
+
+<blockquote>akiomn 发表于 2025-3-7 00:21
+墨缇丝这个点是我最疑惑的，卧槽听个歌你想通了主动跳下去了？早干嘛去了啊
+
+算了我唯一的念想只有看看最 ...</blockquote>
+回去被素世妈妈科普了下女铜
+
+发现喵梦想扣她
+
+有演技这种事情太可怕了。小睦你还是出来弹吉他吧。
+
+*****
+
+####  厉飞雨  
+##### 33817#       发表于 2025-3-7 00:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">莫睦融合这个仿佛前面5集都是个笑话
+
+你开个音趴就融合了，那之前干嘛去
+
+*****
+
+####  cxj649  
+##### 33818#       发表于 2025-3-7 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593441&amp;ptid=2208921" target="_blank">清江望月 发表于 2025-3-7 00:22</a>
+
+我从第4集开始失望，但我一直忍住没去看剧透，今天这最后那点剧情搞得我彻底破防了，我忍不住去看了下隔壁 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只能你还是看少国内短剧了
+
+
+*****
+
+####  adretyu67.  
+##### 33819#       发表于 2025-3-7 00:25
+
+素世早说了，要不要来弹吉他有效治疗。
+
+但是奈何前面全在折腾ccc仰卧起坐，能治得好就有鬼了。
+
+*****
+
+####  huxiaopao163  
+##### 33820#       发表于 2025-3-7 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593392&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-3-7 00:17</a>
+
+不行这集真是全员人设崩塌了，包括狗团
+
+开头全员知道睦没了。然后呢？除了祥子有反应外没人关心下，素世安 ...</blockquote>
+mygo除了猫猫，其他人应该是一起去小睦家了吧，当然海玲也一起去了
+
+不过就mortis在那边哭哭两句，旁边的人能懂发生了什么吗？感觉已经陷入某种超自然的状态了
+
+*****
+
+####  loveconankid  
+##### 33821#       发表于 2025-3-7 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593132&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-6 23:52</a>
+不知道，没给表情。</blockquote>
+初华家阁楼谈人偶的时候应该就穿帮了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2120, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  blackeryuri2  
+##### 33822#       发表于 2025-3-7 00:25
+
+武士道就是个畜生
+
+*****
+
+####  沙坪坝沙耶香  
+##### 33823#       发表于 2025-3-7 00:26
+
+这太变态了，下周四再看一集
+
+*****
+
+####  cxj649  
+##### 33824#       发表于 2025-3-7 00:27
+
+其实大祥的白月光还是灯，灯还是了解大祥的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202503/07/002705snkkkb4r7rbyyona.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (174.79 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 00:27 上传
+
+*****
+
+####  blackeryuri2  
+##### 33825#       发表于 2025-3-7 00:27
+
+这种剧情就是在报复观众吧
+
+*****
+
+####  modkingr  
+##### 33826#       发表于 2025-3-7 00:27
+
+这集肯定不是饺子啊，只是给母鸡卡这个团定性了，到底是个什么情况
+
+祥子虽然很不想组鸡团，但是碍于自己画了那么多大饼、说了这么多空话、捅了这么多篓子之后最终决定还是要负起这个责任。对于祥子成长的描写这集就是不爱鸡团但仍重组了鸡团吧
+
+在形式上完成的是母鸡卡的重建，一口气结束了海铃和喵梦和睦的事件而已。
+
+很多人想看那种五个人互相理解类似mygo那种包饺子，我感觉对于这个乐队是不会有了。柿本已经像前面借喵梦口给海铃定性抖M一样给鸡团定性就是互相折磨了
+
