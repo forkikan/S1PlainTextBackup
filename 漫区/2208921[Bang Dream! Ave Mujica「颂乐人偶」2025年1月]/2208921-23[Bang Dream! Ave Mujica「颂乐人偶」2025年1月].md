@@ -7437,3 +7437,16 @@ mujica看起来比较特殊，是因为ta本质上是mygo第二季。
 —— 来自 鹅球 v3.3.9 ...</blockquote>
 篇幅差不多，母鸡卡和GO的关系太紧密了，GO最后两话就开始真正推母鸡卡的剧情了(这也意味着GO切割母鸡卡是很难的)，蝈蝈24话，母鸡卡和GO加起来26话，算第17话开始烂的话(即母鸡卡第四话)，如果算上反噬GO的睦人设塑造问题，CCC姨姥们的烂活(第七话)，大祥的逼格一路暴跌等问题，和蝈蝈确实像，总篇幅比蝈蝈还多两话(烂的空间就更大)
 
+
+*****
+
+####  aptx8285144  
+##### 33189#       发表于 2025-3-6 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67585585&amp;ptid=2208921" target="_blank">小博禹 发表于 2025-3-6 10:57</a>
+
+🐶鸡要看作26集+海量二创的番
+
+有前13集和二创兜底</blockquote>
+这不就和蝈蝈很像了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
