@@ -9980,3 +9980,582 @@ y1s1 喵梦你演技确实是很差
 
 live还是可以的，live以外的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卡卡布鲁根  
+##### 33432#       发表于 2025-3-6 22:24
+
+别管那么多了，起码live+2
+
+—— 来自 vivo V2307A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  akiomn  
+##### 33433#       发表于 2025-3-6 22:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妈耶睦祥海睦素睦喵睦睦莫这种都无所谓了，到底在演什么啊，这剧情什么东西啊，只记得最后歌不错了
+
+*****
+
+####  ntrntr1  
+##### 33434#       发表于 2025-3-6 22:24
+
+小姨成真的话，现在这个大金毛也太惨了吧，小姨也不是她，最后真一无所有
+
+而且我实在搞不懂祥子对金毛哈啥气，就要点自尊心层面对别人礼貌点吧。。。
+
+*****
+
+####  无音命题  
+##### 33435#       发表于 2025-3-6 22:24
+
+这就是你的答案吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+太变态了
+
+*****
+
+####  thisisaspider  
+##### 33436#       发表于 2025-3-6 22:24
+
+除了女同和LIVE外不知道演什么。
+
++0吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  thisisaspider  
+##### 33437#       发表于 2025-3-6 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67591549&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-3-6 22:22</a>
+
+大喵海玲是两个完全的工具人。
+
+行为逻辑谜一样，海玲起码有立希这个转变的点，虽然也是完全立不住脚。</blockquote>
+这下大祥也是工具人了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  无音命题  
+##### 33438#       发表于 2025-3-6 22:25
+
+我草 后面这个广告我给+2
+
+*****
+
+####  空虚澄璃色  
+##### 33439#       发表于 2025-3-6 22:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">不是喵睦这cp哪里埋的线？我他妈看了什么？
+
+*****
+
+####  戏谑二次元  
+##### 33440#       发表于 2025-3-6 22:26
+
+真初音啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  玖羽  
+##### 33441#       发表于 2025-3-6 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67591549&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-3-6 22:22</a>
+
+大喵海玲是两个完全的工具人。
+
+行为逻辑谜一样，海玲起码有立希这个转变的点，虽然也是完全立不住脚。</blockquote>
+我觉得正好相反，喵梦的PTSD重到已经完全不能表演了（这次连小剧场都很勉强），虽然有点扯但是逻辑上不是说不通，海铃才是站不住脚
+
+*****
+
+####  thistimeforlife  
+##### 33442#       发表于 2025-3-6 22:26
+
+很明显 这部动画只需要live部分就行了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 33443#       发表于 2025-3-6 22:26
+
+大瞄还在说这是你的演技？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Onelooker  
+##### 33444#       发表于 2025-3-6 22:26
+
+好漫长的24分钟，我第一次觉得一集动画有这么长
+
+*****
+
+####  最弱败者  
+##### 33445#       发表于 2025-3-6 22:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">为什么祥子对初音就挎着个脸
+
+*****
+
+####  乙津夢  
+##### 33446#       发表于 2025-3-6 22:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这文戏到底在演啥？反正都放LIVE了也别管文戏了是吧
+
+*****
+
+####  xpisces  
+##### 33447#       发表于 2025-3-6 22:27
+
+除了开迈巴赫的都是纯纯工具人
+
+*****
+
+####  airline114514  
+##### 33448#       发表于 2025-3-6 22:28
+
+最速饺子传说
+
+*****
+
+####  FACS  
+##### 33449#       发表于 2025-3-6 22:28
+
+太变态了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ashero  
+##### 33450#       发表于 2025-3-6 22:28
+
+live还可以  剧情太变态了
+
+*****
+
+####  盐盐盐盐盐  
+##### 33451#       发表于 2025-3-6 22:28
+
+看完了，好平淡的一集，感觉演出没什么张力歌听着快睡着了，歌也无趣
+
+睦和莫纯纯和稀泥结束，我对祥子别的都没意见你发小人格没了甚至不见震惊一下……
+
+喵梦一直都是好猫啊，好啊，我看am队长就该喵梦来做，对应立希，咱们鼓手才是最懂人心的
+
+*****
+
+####  是谁的书画  
+##### 33452#       发表于 2025-3-6 22:28
+
+太变态了，真的soulmate，变态啊变态，卧槽啊，初音真的变态中的变态啊。
+
+live真不错
+
+但这剧烂完了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 33453#       发表于 2025-3-6 22:28
+
+我也不知道怎么去爱了啊
+
+*****
+
+####  6030sylar  
+##### 33454#       发表于 2025-3-6 22:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这live不就挺好，第七集什么战犯级别罪该万死，又伤我羊姐嗓子
+
+*****
+
+####  tuatha  
+##### 33455#       发表于 2025-3-6 22:28
+
+保持了一贯的低水平，戏烂了live再好也是一坨
+
+*****
+
+####  琉璃苑軒風  
+##### 33456#       发表于 2025-3-6 22:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我已经从看剧情到了有新歌就行了。。
+
+*****
+
+####  nt2013  
+##### 33457#       发表于 2025-3-6 22:28
+
+就是为了live 半集就能摒弃前嫌重组好了乐队啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 33458#       发表于 2025-3-6 22:28
+
+<img src="https://img.saraba1st.com/forum/202503/06/222834bvi4lthumnr2eirz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (292.17 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 22:28 上传
+
+又幻想了，幻想我是我外甥女的青梅竹马三角初华
+
+*****
+
+####  violetmerlin  
+##### 33459#       发表于 2025-3-6 22:29
+
+这就是史
+
+*****
+
+####  theti  
+##### 33460#       发表于 2025-3-6 22:29
+
+这种狗屎做还有人追啊
+
+*****
+
+####  DARK_HGCG  
+##### 33461#       发表于 2025-3-6 22:29
+
+饺子包好了
+
+最后一起打个影月大结局对吧
+
+*****
+
+####  schneehertz  
+##### 33462#       发表于 2025-3-6 22:29
+
+太神秘了，我都看了什么，刚看完就回忆不起来了
+
+*****
+
+####  tjshibc21  
+##### 33463#       发表于 2025-3-6 22:29
+
+前9集我都没怨言
+
+这集真的太变态了 全员人机 没有一点感情
+
+加上那贯穿始终的变态bgm真的好漫长的24分钟
+
+*****
+
+####  壳壳牛  
+##### 33464#       发表于 2025-3-6 22:29
+
+妈的，mujica就是躺赢狗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  盐盐盐盐盐  
+##### 33465#       发表于 2025-3-6 22:29
+
+初华真名真叫初音说明这个剧透啊越假的越真（
+
+*****
+
+####  翼宿一  
+##### 33466#       发表于 2025-3-6 22:29
+
+这团战打得可真快，狗团就这么悄无声息退场了 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 33467#       发表于 2025-3-6 22:30
+
+反正现在都组回来了，剩下三集就随便演了
+
+
+*****
+
+####  人又如何  
+##### 33468#       发表于 2025-3-6 22:30
+
+这集的剧本真的是人类写得出来的吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  operatbig  
+##### 33469#       发表于 2025-3-6 22:30
+
+ 本帖最后由 operatbig 于 2025-3-6 22:31 编辑 
+
+节奏和对白都烂得反胃，不过想写的东西还是挺有意思的，这集其实倒不是包饺子，是每个人把自己自私发挥倒极致，尤其大祥，听完大猫说的话立马会过味来，发现自己的命运共同体某程度上计划通了，睦也不理了扔一边强行让莫假装就完事，真的太畜了。
+
+*****
+
+####  Lyzers  
+##### 33470#       发表于 2025-3-6 22:30
+
+有一说一这live也不行吧，运镜要么纯匀速要么莫名其妙地快甩一下，跟go10和go13差了不止一个级别
+
+*****
+
+####  cxj649  
+##### 33471#       发表于 2025-3-6 22:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">剧情不如第七集
+
+*****
+
+####  gammatau  
+##### 33472#       发表于 2025-3-6 22:31
+
+敢把这种东西端上来 确实是十五年最狂
+
+*****
+
+####  cybernetics31  
+##### 33473#       发表于 2025-3-6 22:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">完咯
+
+*****
+
+####  废马尔  
+##### 33474#       发表于 2025-3-6 22:31
+
+真不包寿司啊
+
+*****
+
+####  tuatha  
+##### 33475#       发表于 2025-3-6 22:32
+
+听着歌想要回忆起这10集都讲了什么，发现做不到
+
+
+*****
+
+####  是谁的书画  
+##### 33476#       发表于 2025-3-6 22:32
+
+谁再寄吧说邦邦的“真实感live”比GBC的强我真的就想笑了
+
+歌很好听，但是这制作确实是被吊打
+
+*****
+
+####  ykyin09  
+##### 33477#       发表于 2025-3-6 22:32
+
+纳尼，情报是真的？
+
+*****
+
+####  大撒嘛撒嘛  
+##### 33478#       发表于 2025-3-6 22:32
+
+太变态了+1
+
+*****
+
+####  cxj649  
+##### 33479#       发表于 2025-3-6 22:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然说后日谈有手游，但是属于先上车再补票是吧
+
+*****
+
+####  大户爱  
+##### 33480#       发表于 2025-3-6 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67591616&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-3-6 22:26</a>
+我觉得正好相反，喵梦的PTSD重到已经完全不能表演了（这次连小剧场都很勉强），虽然有点扯但是逻辑上不是 ...</blockquote>
+这傻逼ptsd就算当作前提，和大喵这集说的话，和按着头去组母鸡卡任何逻辑联系嘛？
+
+这集大喵对着祥子一口一个人生，强制灵魂伴侣都出来了。那大喵回想一下第四集你第一个跳出来闹解散，说这话不觉得脸红嘛。
+你现在这么母鸡卡强制爱，这么多集，在海玲找上来之前，早干嘛去。
+
+唯一合理点的解释就是，大喵真的又蠢又坏，脸皮又厚，演艺道路走不下去了，随便诓个自己不信大道理，逼祥子组母鸡卡好继续当明星。
+
+那大喵还是当个工具人吧。
+
+
+*****
+
+####  TAQ  
+##### 33481#       发表于 2025-3-6 22:33
+
+这动画就是给三次元乐队拖后腿的
+
+*****
+
+####  ntrntr1  
+##### 33482#       发表于 2025-3-6 22:33
+
+但这话极低的降低了我对后面的预期
+
+我要真正的狗血啊朋友，不能按照革命机的标准做这些匪夷所思的情节吗
+
+感觉后面**戏估计也是唐突开始铁人三项追妻火葬场。。。
+
+*****
+
+####  xuziang111  
+##### 33483#       发表于 2025-3-6 22:33
+
+别做动画了，做MV就行了
+
+*****
+
+####  adw667  
+##### 33484#       发表于 2025-3-6 22:33
+
+现在轮到我骂恶心了<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DARK_HGCG  
+##### 33485#       发表于 2025-3-6 22:34
+
+原以为最狂的狂的疯狂的狂
+
+结果是不知道几斤几两的狂妄的狂
+
+*****
+
+####  半年  
+##### 33486#       发表于 2025-3-6 22:34
+
+<img src="https://img.saraba1st.com/forum/202503/06/223407vzsd1981b7ddz4vq.jpg" referrerpolicy="no-referrer">
+
+<strong>GlXMAs2bEAEHEuE.jpg</strong> (170.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 22:34 上传
+
+[https://x.com/bushiroad_works/status/1897647133970645117/photo/1](https://x.com/bushiroad_works/status/1897647133970645117/photo/1)
+
+*****
+
+####  肛之练筋士  
+##### 33487#       发表于 2025-3-6 22:34
+
+<img src="https://img.saraba1st.com/forum/202503/06/223346tibl19w2praxxuyu.png" referrerpolicy="no-referrer">
+
+<strong>BD5C9EA0823761FC2DBD96E84CF74FBB.png</strong> (21.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 22:33 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">我在挑战看这集母鸡卡不笑的战斗中惨败了，你们也来试试吧
+
+*****
+
+####  厄神之息  
+##### 33488#       发表于 2025-3-6 22:34
+
+硬推半集剧情唱半集歌，鉴定为纯烂。还想复刻诗抄半呢，诗抄半那过去一点一滴的闪回让人觉得感动，这**ave母鸡卡的那些抽象剧情片段你搁那一顿闪回，你是觉得能让人感动哭吗？我保证我不笑出来好吗。
+
+顺带，喵梦真是烂完了，从头胡言乱语到尾也不用付代价，就靠团里四个都是笨比，被她铁嘴一张嘴烂了。大祥要是是个正常人，看这么个逼养的还敢回来找自己胡言乱语早骑她身上一顿伏猫霸王拳了我草。现在这神人形象还能进游戏卖卡吗？萌点在哪？前无古人的现实职场大件货属性吗？
+
+*****
+
+####  路人庚  
+##### 33489#       发表于 2025-3-6 22:34
+
+小姨文学看来是真的了，这片子只能评价为遗憾了
+
+*****
+
+####  cybernetics31  
+##### 33490#       发表于 2025-3-6 22:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">完咯
+
+*****
+
+####  qratosones1337  
+##### 33491#       发表于 2025-3-6 22:34
+
+太抽象了233333
+
+*****
+
+####  怀沙汨罗  
+##### 33492#       发表于 2025-3-6 22:34
+
+最工具人的一集，每个人的台词都充斥着上班打卡的敷衍感，大金毛你不如直接把大祥舔狗的标签印脑门上吧。
+
+*****
+
+####  是谁的书画  
+##### 33493#       发表于 2025-3-6 22:34
+
+想做个mujica五人投票了，mujica五个人谁最变态
+
+*****
+
+####  6030sylar  
+##### 33494#       发表于 2025-3-6 22:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">虽然但是贝斯鼓手在剧里确实不算人的工具人
+
+*****
+
+####  asion617  
+##### 33495#       发表于 2025-3-6 22:35
+
+这集当乐子看都不及格, 属于烂得很烂的那种烂
+
+*****
+
+####  ntrntr1  
+##### 33496#       发表于 2025-3-6 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67591799&amp;ptid=2208921" target="_blank">肛之练筋士 发表于 2025-3-6 22:34</a>
+
+我在挑战看这集母鸡卡不笑的战斗中惨败了，你们也来试试吧</blockquote>
+你不是，朋友，你是路边的一条。
+
+小姨还在岛上<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  盐盐盐盐盐  
+##### 33497#       发表于 2025-3-6 22:35
+
+我感觉这集的mygo五人突出一个am五个神金的事她们已经懒得管也管不了了放着让她们自己解决算了的态度（）
+
+*****
+
+####  acg_gyanc  
+##### 33498#       发表于 2025-3-6 22:35
+
+有没有大佬说一下之前是怎么奶初华身世的？
+
+*****
+
+####  玖羽  
+##### 33499#       发表于 2025-3-6 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67591776&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-3-6 22:33</a>
+
+这傻逼ptsd就算当作前提，和大喵这集说的话，和按着头去组母鸡卡任何逻辑联系嘛？
+
+这集大喵对着祥子一口 ...</blockquote>
+这不是明示爱上睦了吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  liy30dlys  
+##### 33500#       发表于 2025-3-6 22:36
+
+其实还是暗藏了个大喵演艺事业挤不进圈子的背景没怎么展开说吧，所以还是老老实实live吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
