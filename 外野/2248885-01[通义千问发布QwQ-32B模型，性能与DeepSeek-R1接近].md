@@ -592,3 +592,19 @@ ollama create qwen1.5-32b -f qwen1.5-32b.mf
 联网搜索现在问题都有点大，我用cherry 那个部署的联网api，搜学术相关的，给我搜了个魔兽相关的源头，搞 ...</blockquote>
 cherry那个联网搜索实现得很烂，后面肯定要大改的。它现在就是把用户问AI的问题一点优化不作，原封不动的直接扔给tavily去搜，搜索结果突出一个随缘。你要是问AI的问题比较长，甚至可能直接就超字数报错。哪有这样用搜索引擎的。
 
+
+*****
+
+####  moekyo  
+##### 56#       发表于 2025-3-6 16:47
+
+可以参考
+
+<img src="https://img.saraba1st.com/forum/202503/06/164738cdd6jvgvyyp2hooy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0245.jpeg</strong> (302.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 16:47 上传
+
