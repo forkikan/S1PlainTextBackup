@@ -9461,3 +9461,68 @@ mujica时期独角兽跑了，之前也有传柿本不让独角兽看分镜，�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  小博禹  
+##### 33370#       发表于 2025-3-6 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67590970&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-3-6 21:42</a>
+草，这还不如说是因为大喵长得像灯呢
+
+—— 来自 鹅球 v3.3.96</blockquote>
+小祥喜欢大雷倒是真的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  天空塔书记官  
+##### 33371#       发表于 2025-3-6 21:46
+
+樂，只能说意料之外，情理之中
+
+该给独角兽招魂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  6030sylar  
+##### 33372#       发表于 2025-3-6 21:50
+
+<img src="https://img.saraba1st.com/forum/202503/06/215004ch3kzz9i4uhi33ks.png" referrerpolicy="no-referrer">
+
+<strong>0B)GD[`)7JO%Z}RCG2}~W}4.png</strong> (91.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 21:50 上传
+
+<img src="https://img.saraba1st.com/forum/202503/06/215009ug2eqpdaeiip8l0i.png" referrerpolicy="no-referrer">
+
+<strong>V~PD6GXS`4SEZ3@JYX{LHFK.png</strong> (67.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 21:50 上传
+
+*****
+
+####  秋月孝三  
+##### 33373#       发表于 2025-3-6 21:51
+
+ 本帖最后由 秋月孝三 于 2025-3-6 21:52 编辑 
+
+我超，菌子。今晚要上演学姐拷打学妹戏了吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  钦念以忱  
+##### 33374#       发表于 2025-3-6 21:52
+
+柿本广大怎么这么卖力，每次的访谈不是同一套车轱辘话来回说，还每次都是新内容的啊。
+
