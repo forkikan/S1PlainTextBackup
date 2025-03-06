@@ -7607,3 +7607,15 @@ https://x.com/yuko11420/status/1897321114579427816?s=19
 
 只是大概率不会火出圈了，成为某些直播间特供的小众时尚单品
 
+
+*****
+
+####  天空塔书记官  
+##### 33205#       发表于 2025-3-6 14:31
+
+没记错的话，wsd上一部纯原创的动画企划是《扰乱》，走舞台剧路线，已经糊没了，动画本身还不如OPED有名，两首歌都是RAS唱的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
