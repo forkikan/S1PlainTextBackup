@@ -9352,3 +9352,68 @@ md，屎本这访谈给我看吐了，不愧是最大的战犯<img src="https://
 
 不然海铃的购物和YSL联名的节奏一发酵，怕是真要被批不如小时代了，以后上B站全是小时代+🐔🐶剪辑就难顶了。
 
+
+*****
+
+####  秋月孝三  
+##### 33362#       发表于 2025-3-6 21:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">劲霸女装都能做成周边了，梅香介绍的时候都没绷住
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  akiomn  
+##### 33363#       发表于 2025-3-6 21:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">柿本在go时期也没摆烂，他要做分镜的
+不过go时期有独角兽，每个分镜独角兽都会看的，飞鸟山惊世一跪这段更是独角兽亲自做示范。
+mujica时期独角兽跑了，之前也有传柿本不让独角兽看分镜，现在看恐怕柿本都敢乱改独角兽的大纲了
+
+*****
+
+####  Aeons  
+##### 33364#       发表于 2025-3-6 21:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有几句话让我想到cbm了
+
+*****
+
+####  6030sylar  
+##### 33365#       发表于 2025-3-6 21:29
+
+<img src="https://img.saraba1st.com/forum/202503/06/212848gan5lpu2o3lplkuu.png" referrerpolicy="no-referrer">
+
+<strong>KY_(3WSFM4DG9~@OLYQ@7~N.png</strong> (38.3 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 21:28 上传
+
+<img src="https://img.saraba1st.com/forum/202503/06/212853b7qhzhhaawrupp0h.png" referrerpolicy="no-referrer">
+
+<strong>Q_KC)MMG0C07[KD23$V_K4J.png</strong> (29.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 21:28 上传
+
+<img src="https://img.saraba1st.com/forum/202503/06/212857zqkoazxwk8wm3sq6.png" referrerpolicy="no-referrer">
+
+<strong></strong> (53.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 21:28 上传
+
+<img src="https://img.saraba1st.com/forum/202503/06/212902hpp7plq0s8lvhrrm.png" referrerpolicy="no-referrer">
+
+<strong>Z6S3BW$CBM~**LVIB4D])W.png</strong> (69.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 21:29 上传
+
+有种紧急赶工小玩具的美
+

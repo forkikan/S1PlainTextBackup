@@ -3406,3 +3406,15 @@ F5确实可以，但是又觉得分辨率有点低...
 
 停尸间里的红色怪物怎么消啊，恶魔和绿色怪物都消掉了
 
+
+*****
+
+####  alleriawr9  
+##### 303#       发表于 2025-3-6 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67590686&amp;ptid=2246453" target="_blank">reoch 发表于 2025-3-6 21:13</a>
+停尸间里的红色怪物怎么消啊，恶魔和绿色怪物都消掉了</blockquote>
+处刑村右上火法的家
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
