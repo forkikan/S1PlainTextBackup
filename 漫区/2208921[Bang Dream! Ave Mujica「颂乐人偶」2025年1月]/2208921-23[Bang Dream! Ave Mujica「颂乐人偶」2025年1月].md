@@ -8230,3 +8230,32 @@ Soyo的坎过不去又不在这个问题上，由于Soyo缺乏家庭关爱，对
 
 在诗超绊之后Soyo已经重新找到了家庭的替代品和四个家人，这个问题已经解决了，对她来说只剩下一个遗留问题：“一定是我们当初得罪了祥子Crychic才解散的，但我不知道是在哪里得罪了祥子”，这个问题在她发现祥子的真相之后就自然消除了（反正是一定要发现真相的），在我看来甚至连解释都多余
 
+
+*****
+
+####  刑部姬真可爱  
+##### 33259#       发表于 2025-3-6 18:01
+
+现在对于祥子的评价，哪怕她后面剧情真的行动力“大女主”起来了，也会被说“早干嘛去了”，wsd现在对她的塑造连当年的chuchu都不如<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 33260#       发表于 2025-3-6 18:01
+
+关键不在于道不道歉，而是目前为止祥子根本就没有成长，更别说前进了<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  thisisaspider  
+##### 33261#       发表于 2025-3-6 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67588794&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-3-6 17:34</a>
+我不同意，我认为MyGO做得最对的地方之一就是，它不是“解决”问题，而是“我们一起迷路”
+
+也就是不把精 ...</blockquote>
+场外观众也接受这个主题的话就没这么多祥黑了。这么想你觉得是观众问题还是编剧问题<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

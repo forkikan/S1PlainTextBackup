@@ -28,3 +28,13 @@ never7 81rmb
 
 说起来我原版玩了一半，青年那边全通了少年没玩，不上不下的卡在那里肥肠尴尬<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  高妹控  
+##### 114#       发表于 2025-3-6 17:58
+
+没见到PS4版实体，NS版多多300多点
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
