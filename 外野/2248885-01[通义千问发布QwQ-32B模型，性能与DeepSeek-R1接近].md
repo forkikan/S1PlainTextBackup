@@ -629,3 +629,19 @@ cherry那个联网搜索实现得很烂，后面肯定要大改的。它现在�
 什么环境？我也是同样配置，win+ollama最多也就2tokens</blockquote>
 win ollama+i5-13600kf+4080+内存24*2
 
+
+*****
+
+####  moekyo  
+##### 59#       发表于 2025-3-6 18:43
+
+混元
+
+<img src="https://img.saraba1st.com/forum/202503/06/184306ik7ac7cqffsqn17s.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0246.jpeg</strong> (269.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 18:43 上传
+

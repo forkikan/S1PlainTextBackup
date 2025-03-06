@@ -8421,3 +8421,26 @@ Soyo的坎过不去又不在这个问题上，由于Soyo缺乏家庭关爱，对
 
 不然想出风头和借尸还魂哪里是能配平的事<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  钦念以忱  
+##### 33274#       发表于 2025-3-6 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67589297&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-6 18:37</a>
+
+异议，这一段要结合上下文。
+
+灯开始行动起来抓爱音之前，是得到了睦的电波。“soyo不知道该怎么办了”</blockquote>
+灯得到睦的电波之前就已经开始上台表演了，也拉过爱音了，是爱音不肯去
+
+
+*****
+
+####  huxiaopao163  
+##### 33275#       发表于 2025-3-6 18:47
+
+反正现在观众也不相信导演编剧了，想要看素世道歉的人，就说素世本来是想道歉的，但是被柿本独角兽按着她的头不让她道歉的
+
+一切都陷入虚无主义了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
