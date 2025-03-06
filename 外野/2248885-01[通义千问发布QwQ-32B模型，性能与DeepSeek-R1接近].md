@@ -558,3 +558,16 @@ ollama create qwen1.5-32b -f qwen1.5-32b.mf
 
 你要用ollama下载我分流版本挪到指定位置就行
 
+
+*****
+
+####  yorktown  
+##### 53#       发表于 2025-3-6 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67586487&amp;ptid=2248885" target="_blank">fat 发表于 2025-3-6 12:52</a>
+
+问过弱智问题，ollama能不能pull下来以后，把模型文件直接复制到别的电脑的？
+
+公司服务器想跑，但是没有联 ...</blockquote>
+直接下GGUF格式的也行
+
