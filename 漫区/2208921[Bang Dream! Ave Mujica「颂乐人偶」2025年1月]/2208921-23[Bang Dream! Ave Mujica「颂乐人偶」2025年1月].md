@@ -15499,3 +15499,100 @@ pico和手游又什么不好写的，pico就不提了，这么变态的本篇能
 
 就别分析了，说着APart看不懂，还在分析人物动机和关系。真能分析对吗。如果有人说他看懂了，倒是可以多分享一下。
 
+
+*****
+
+####  大丈夫萌大乃  
+##### 33958#       发表于 2025-3-7 02:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593953&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-3-7 01:37</a>
+
+1.偷看别人手机内容
+
+2.抢走别人手机
+
+3.在对方不愿意的情况下强制发送消息</blockquote>
+没当场锤死大猫只能说初音小姐脾气真的太好了,人长得好看唱歌又好听,可惜吸冰把脑子吸坏了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 33959#       发表于 2025-3-7 02:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67594078&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-7 02:12</a>
+就别分析了，说着APart看不懂，还在分析人物动机和关系。真能分析对吗。如果有人说他看懂了，倒是可以多分 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">何止，到live唱歌前的逻辑都是崩盘的。我看喵梦初华那段真的是火大了，初华没怎么招惹喵梦吧？直接抢手机，强拉着初华进豪宅。到了睦的部分，还在劣还在劣，沟槽的是不是只有劣啊？
+整个mujica重组的过程比之前预想的还要糟糕
+
+*****
+
+####  北条早苗  
+##### 33960#       发表于 2025-3-7 02:16
+
+这片不是越分析越变态<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+睦头死了一个月，大祥坐了一个月迈巴赫也没去看过（ep5、6）→爽姐月之森擒拿技，睦门立雪铁窗泪（ep7）→大祥教培唱k（ep8）→大祥：“哦，睦头你怎么又死了啊”（ep9、10）
+
+
+*****
+
+####  adretyu67.  
+##### 33961#       发表于 2025-3-7 02:17
+
+ 本帖最后由 adretyu67. 于 2025-3-7 02:19 编辑 
+
+RING十人团随着莫头被戳穿不欢而散。
+
+大猫带着初华冲丰川家强行正论大祥老师就是想要掌握他人人生。
+
+晚上大祥看灯的便条”我不知道是否是对的“，所以决心顶着做啥错啥的压力也要重组鸡团了。
+
+下面就是拿莫头当睦使，
+
+去ring约场地，在睦家地下室排练。
+
+鸡团重组live
+
+演完被老登叫住。
+
+*****
+
+####  adretyu67.  
+##### 33962#       发表于 2025-3-7 02:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67594094&amp;ptid=2208921" target="_blank">北条早苗 发表于 2025-3-7 02:16</a>
+
+这片不是越分析越变态
+
+睦头死了一个月，大祥坐了一个月迈巴赫也没去看过（ep5、6）→爽姐月之森擒拿技，睦 ...</blockquote>
+ep10开场大祥还是震惊了一下睦头下线的。
+
+等会重组就把莫当睦头使了。
+
+*****
+
+####  非建政专用号  
+##### 33963#       发表于 2025-3-7 02:19
+
+已经彻底理解老登了，女儿死了，女婿废物都算了
+现在剩下个孙女还要被个精神不正常的女儿盯着扣
+支持老登阻止这种女同乱伦的人间惨剧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  akiomn  
+##### 33964#       发表于 2025-3-7 02:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妈的初华的脾气真的太好了，抢手机能忍，强拉到豪宅里还能忍啊
+
+*****
+
+####  adretyu67.  
+##### 33965#       发表于 2025-3-7 02:25
+
+这活其实本来该她干的，但是太卑微了自己不想冲。
+
+只能苦一苦大猫了。
+
