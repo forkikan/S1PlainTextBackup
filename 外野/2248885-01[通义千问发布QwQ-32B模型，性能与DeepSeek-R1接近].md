@@ -1007,3 +1007,16 @@ win ollama+i5-13600kf+4080+内存24*2</blockquote>
 
 倒也不是很差，如果和文生视频一起出来足够火上几个月，但既然跳票了几个月现在才拿出来就免不了大家拿去和万象比了
 
+
+*****
+
+####  moekyo  
+##### 67#       发表于 2025-3-6 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592898&amp;ptid=2248885" target="_blank">处男老司机 发表于 2025-3-6 23:32</a>
+
+已经被痛批为路边一条🐕了
+
+倒也不是很差，如果和文生视频一起出来足够火上几个月，但既然跳票了几个月现 ...</blockquote>
+只能说由奢入简难，现在开源多了，反而挑剔起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

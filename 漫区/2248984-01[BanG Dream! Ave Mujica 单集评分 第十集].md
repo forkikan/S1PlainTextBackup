@@ -1623,3 +1623,84 @@ live再好也拯救不了这一坨大粪剧情<img src="https://static.saraba1st
 
 -2 已经结束力！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  icoywt  
+##### 186#       发表于 2025-3-6 23:37
+
+-2，STAFF怎么可以这么变态
+
+*****
+
+####  霜落  
+##### 187#       发表于 2025-3-6 23:37
+
+梅姨阁诗人<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  人造小鸡鸡  
+##### 188#       发表于 2025-3-6 23:38
+
+-2滚粗，一旦失去了乐子，试图去讲逻辑的时候，这片就一点不好看了。
+
+第一首歌莫名其妙，完全脱离了乐队本身的风格，就好像让狼头去唱胡子男的歌，完全不能理解。
+
+*****
+
+####  13431941181  
+##### 189#       发表于 2025-3-6 23:38
+
+-1
+
+-2，但是歌我喜欢+1<img src="https://static.saraba1st.com/image/smiley/carton2017/485.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  千千千千鸟  
+##### 190#       发表于 2025-3-6 23:40
+
+live不错吗，这一整集用live开局 倒叙组队还差不多，放在变态文戏后面我真的看不进去一点，-2
+
+*****
+
+####  Natsunagi  
+##### 191#       发表于 2025-3-6 23:41
+
+这集虽然烂的无聊 但是live让我回想起我看的是少女乐队 这才是我的初心
+
+和解！+2！
+
+*****
+
+####  homesickness  
+##### 192#       发表于 2025-3-6 23:43
+
++1
+
+转一圈回来的剧情，新歌好听
+
+*****
+
+####  Lucy_Diamonds  
+##### 193#       发表于 2025-3-6 23:43
+
+节奏依托-2
+歌好听live演出豪堪甚至还有两首+2
+有重女+2
+外公是真的能背负祥子人生 及时出手了 仔细想想 和这种地雷呆在一起一辈子 感觉祥子这辈子都没了
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  tokimon  
+##### 194#       发表于 2025-3-6 23:45
+
+<img src="https://p.sda1.dev/22/424d000018ccdf9372a6cafa20913781/image.jpg" referrerpolicy="no-referrer">
+跳过剧情可以+2，细品剧情不如短剧
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

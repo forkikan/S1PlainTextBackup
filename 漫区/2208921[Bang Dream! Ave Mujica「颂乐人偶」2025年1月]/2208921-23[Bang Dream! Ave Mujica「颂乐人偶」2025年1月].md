@@ -12739,3 +12739,344 @@ Ob一串字母女士一发力，比三角女士鞠十万次躬都有效
 写烂人或者说写点负面的东西没关系，但问题不是这群人变态，而是变态的豪无魅力，只剩下阴湿女同的性幻想， ...</blockquote>
 感觉五个大瞄进行推动剧情，也比这五个人好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhoujin8584  
+##### 33708#       发表于 2025-3-6 23:36
+
+<blockquote>航母掉头 发表于 2025-3-6 23:26
+Ob一串字母女士一发力，比三角女士鞠十万次躬都有效
+
+太强了，财阀的大手 ...</blockquote>
+虽然事情就是这么个事情，没直白的演出来也算温柔了
+
+*****
+
+####  秦南心  
+##### 33709#       发表于 2025-3-6 23:37
+
+初华确实性压抑了
+
+*****
+
+####  ntrntr1  
+##### 33710#       发表于 2025-3-6 23:37
+
+<blockquote>盐盐盐盐盐 发表于 2025-3-6 23:34
+莫是假弹，开始真弹后给了一个后台把她吉他音量推上去的特写
+
+莫在那光明正大假弹原来你们livehouse也不管 ...</blockquote>
+不过我好奇这假弹也要有个音吧，大祥现写的曲子谁第一个弹的
+
+*****
+
+####  南宮凝香  
+##### 33711#       发表于 2025-3-6 23:37
+
+Ring 也墜落了
+
+錢給夠就能給人假彈
+
+柿本到底有多恨邦邦
+
+*****
+
+####  是谁的书画  
+##### 33712#       发表于 2025-3-6 23:37
+
+大喵也挺变态的，多少感觉要监禁不再被需要的睦到笼子里天天看表演了。
+
+属于睦越挣扎大喵越兴奋，好变态的女同<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhzij111  
+##### 33713#       发表于 2025-3-6 23:38
+
+不过从这集看牢祥真是大小姐吧，以前的白祥都是演的，看不上的人怎么对她好她都要哈气的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  thisisaspider  
+##### 33714#       发表于 2025-3-6 23:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592911&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-6 23:33</a>
+
+这集倒是真情实感的嗑了口素墨/睦
+
+素妈妈带一个傻小鬼一个自闭症还蛮萌的</blockquote>
+素睦/墨是怎么磕的。素在GO中一直没正视睦。睦在AVEMUJICA中一直没正视素。磕这种对偶吗。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  影伴光生  
+##### 33715#       发表于 2025-3-6 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592741&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-6 23:20</a>
+把演出服放旁边一起睡觉颇有一种阴婚的感觉，我看二偶怎么多年从未受到如此震撼，真给我整大脑升级了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那我理解🐘为啥一脸嫌弃地看△女士了，估计整上了也没洗就让穿着演出，味大无需多言
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  废马尔  
+##### 33716#       发表于 2025-3-6 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592906&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-3-6 23:33</a>
+
+原来和go的方向相反是这么个意思吗？go是五个好人即使迷茫也互相搀扶走下去；鸡是五个神人即使互相憎恶也 ...</blockquote>
+还真是，不然你看母鸡卡头号预制饺子制造者偷摸零为啥在宣传图跟祥子像分道扬镳了
+
+*****
+
+####  莱茵哈鲁特  
+##### 33717#       发表于 2025-3-6 23:39
+
+有点伤感，这集是真没活啊。
+
+*****
+
+####  天空塔书记官  
+##### 33718#       发表于 2025-3-6 23:39
+
+柿本现在已经和细谷申之坐一桌了，等一波官方通告<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  helloo23  
+##### 33719#       发表于 2025-3-6 23:39
+
+有点不忍心看了 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thisisaspider  
+##### 33720#       发表于 2025-3-6 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592931&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-6 23:35</a>
+
+感觉五个大瞄进行推动剧情，也比这几个神人好，比烂大赛感觉大瞄要赢了，什么？你说大瞄这话好像也很工具 ...</blockquote>
+你不如说五个祥子，各搞各的也能推进剧情。都能抗压。都不关心队友。都不需要队友关心。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ntrntr1  
+##### 33721#       发表于 2025-3-6 23:40
+
+<blockquote>是谁的书画 发表于 2025-3-6 23:37
+大喵也挺变态的，多少感觉要监禁不再被需要的睦到笼子里天天看表演了。
+
+属于睦越挣扎大喵越兴奋，好变态的 ...</blockquote>
+没事她租不起地下室。
+
+什么森美奈美同意了，那没事了。
+
+*****
+
+####  卡密sama  
+##### 33722#       发表于 2025-3-6 23:40
+
+卑微初华<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  lovcavil  
+##### 33723#       发表于 2025-3-6 23:40
+
+太变态了要是真是cue场外李子的妹妹，
+宁可小姨伦理剧也不要变态逆输入初华姐妹好吧，这能感动也太变态了
+
+*****
+
+####  Deepsnowy  
+##### 33724#       发表于 2025-3-6 23:41
+
+这结尾基本上实锤情报是真的了吧……
+
+一想到后续的剧情能更变态，我就忍不住想笑<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  木板春香  
+##### 33725#       发表于 2025-3-6 23:41
+
+ 我脑子里一开始还以为大喵是羡慕喜欢木头的演技，结果你告诉我她也女同了？ 哇好变态，你们能不能正常点啊？
+
+*****
+
+####  雪菜碧池  
+##### 33726#       发表于 2025-3-6 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592713&amp;ptid=2208921" target="_blank">苍蓝之枪 发表于 2025-3-6 23:18</a>
+
+这不妥妥的又是大手预定第十话要包饺子，然后前半段不管三七二十一全部捏一块吗，根本没有逻辑了
+
+想搞复杂 ...</blockquote>
+问题是这逼片处处对照，你说有这个心思做点什么不好
+
+*****
+
+####  夜歌行  
+##### 33727#       发表于 2025-3-6 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592741&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-6 23:20</a>
+把演出服放旁边一起睡觉颇有一种阴婚的感觉，我看二偶怎么多年从未受到如此震撼，真给我整大脑升级了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">那真的是她自己的演出服吗？（
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  天空塔书记官  
+##### 33728#       发表于 2025-3-6 23:42
+
+虽然很对不起声优，我看A团live也别搞了直接开卖R18音声吧，这样对大家都好
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  usodakedo  
+##### 33729#       发表于 2025-3-6 23:42
+
+别的片说某某角色是舔狗或者性压抑，大概率大家只是开玩笑，但对这片来说，我觉得是非常温和的说法了。
+
+所以，真拍片吧，何必遮遮掩掩
+
+*****
+
+####  ntrntr1  
+##### 33730#       发表于 2025-3-6 23:42
+
+<blockquote>木板春香 发表于 2025-3-6 23:41
+我脑子里一开始还以为大喵是羡慕喜欢木头的演技，结果你告诉我她也女同了？ 哇好变态，你们能不能正常点啊 ...</blockquote>
+狛枝凪斗：这是对才能的爱，爱的是希望。
+
+*****
+
+####  雪菜碧池  
+##### 33731#       发表于 2025-3-6 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592708&amp;ptid=2208921" target="_blank">g救世主高达 发表于 2025-3-6 23:18</a>
+
+初华真是祥子爷爷生的阿？这老头生了个跟自己孙女一样大的女儿？有钱人这么会玩的吗 ...</blockquote>
+就算老登65岁，祥子15？25+25+15
+
+49岁中登有个情人生个私生女也不算什么大事吧
+
+*****
+
+####  thisisaspider  
+##### 33732#       发表于 2025-3-6 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592944&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-6 23:37</a>
+
+Ring 也墜落了
+
+錢給夠就能給人假彈</blockquote>
+一直都说这部剧把握不住真把邦多利的世界观给垫了。
+
+前面一直说财团大手，大小姐过家家，坐实了就是把邦多利这个音乐至上的世界观给垫了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  icoywt  
+##### 33733#       发表于 2025-3-6 23:42
+
+2024年的我怎么也不会想到，每周追mujica带来的只有苦与痛<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adw667  
+##### 33734#       发表于 2025-3-6 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593001&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-3-6 23:41</a>
+
+我脑子里一开始还以为大喵是羡慕喜欢木头的演技，结果你告诉我她也女同了？ 哇好变态，你们能不能正常点啊 ...</blockquote>
+她那甚至不叫羡慕喜欢，纯纯的反派破防，然后WSD告诉我们这叫恐同即深柜
+
+*****
+
+####  oneoutsider  
+##### 33735#       发表于 2025-3-6 23:44
+
+就……真的不装了，事到如此，总而言之先强行组（bao）乐（jiao）队（zi）吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  MASKA-1  
+##### 33736#       发表于 2025-3-6 23:44
+
+想看看融合睦变什么性格了，还有点期待下集<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ntrntr1  
+##### 33737#       发表于 2025-3-6 23:44
+
+<blockquote>thisisaspider 发表于 2025-3-6 23:38
+素睦/墨是怎么磕的。素在GO中一直没正视睦。睦在AVEMUJICA中一直没正视素。磕这种对偶吗。 ...</blockquote>
+
+老早就有这种扭曲嗑法了吧。。。
+
+就是加入了墨以后这种本来不算对付的人竟然生出了感情这种特意感呗
+
+当然睦确实纯纯祥子的玩偶，但嗑又不是只能嗑双箭头（）
+
+我又不是cp厨，我们杂食这样看到啥都能淡淡的打个99
+
+*****
+
+####  影伴光生  
+##### 33738#       发表于 2025-3-6 23:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我感觉我明白大莫老师为啥要跳下去了——看这架势要被大喵狠狠爱了，随便换个人格受罪去吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ape-apple  
+##### 33739#       发表于 2025-3-6 23:45
+
+想看这一集日本人的评价，其实我也能翻出去看，但是我怕看到一堆好评犯心脏病
+
+*****
+
+####  thisisaspider  
+##### 33740#       发表于 2025-3-6 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593020&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-3-6 23:42</a>
+
+虽然很对不起声优，我看A团live也别搞了直接开卖R18音声吧，这样对大家都好</blockquote>
+不行！live还挺好的，出来就和解了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  盐盐盐盐盐  
+##### 33741#       发表于 2025-3-6 23:45
+
+<blockquote>ntrntr1 发表于 2025-3-6 23:37
+不过我好奇这假弹也要有个音吧，大祥现写的曲子谁第一个弹的</blockquote>
+随便找个会吉他的录（让初音小姐另录一轨都可以）不就行了，am这个复活演出不是狗团那场赶工到临时上的，很明显海铃她们安排演出舞台还用了一些时间谈布置，这中间写好歌练习录音轨完全够用，莫假弹新歌也得练动作
+
+*****
+
+####  adretyu67.  
+##### 33742#       发表于 2025-3-6 23:46
+
+说实话，我还是挺喜欢live第一首的。
+
+交待的是大祥和初华，睦头和莫头。大猫和海铃已经是路人定位了，没啥办法。
+
