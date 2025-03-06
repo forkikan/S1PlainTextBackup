@@ -8754,3 +8754,41 @@ gqx本身还是宇宙专用机，推力机动力特化的配置
 
 而伪鸭是明确灵魂被带走，肉体留下了
 
+
+*****
+
+####  刺客ares  
+##### 8116#       发表于 2025-3-7 00:32
+
+ 本帖最后由 刺客ares 于 2025-3-7 00:33 编辑 
+
+另外霓虹考据到设定集里康奇的部分显示有修司的另一个名字“柊二”
+
+这个名字的读音和修司一样，但具体含义不同，不排除是鹤卷gg打字打错了
+
+“柊”在日语里是冬青树的意思，而冬青的花语是：<strong>警惕、保护你、先见之明、欢迎</strong>
+
+日本冬青叶子带刺，从平安时代起就常被人用作<strong>辟邪</strong>的护身符，
+
+它的花朵呈<strong>纯白色</strong>，非常香，而在夏季会结出<strong>蓝色带紫</strong>的浆果。
+
+还有一种含义是柊魚，分布在日本海，能<strong>在黑暗中发光</strong>的<strong>白色</strong>小鱼
+
+1.PNG
+(296.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 23:57 上传
+
+<img src="https://img.saraba1st.com/forum/202503/06/235721taoleraetxhx0mh0.png" referrerpolicy="no-referrer">
+
+image.png
+(108.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 23:59 上传
+
+<img src="https://img.saraba1st.com/forum/202503/06/235924brll8u0rtsbb4r89.png" referrerpolicy="no-referrer">
+
