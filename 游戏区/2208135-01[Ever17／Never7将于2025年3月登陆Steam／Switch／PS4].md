@@ -64,3 +64,33 @@ never7 81rmb
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打越老师还是很诚实
 
+
+*****
+
+####  Hinanya  
+##### 117#       发表于 2025-3-6 19:11
+
+听说是原xbox版的游戏，看商店评论<strong>有雷而且挺厉害的</strong>，有懂的能细说一下吗。
+
+
+*****
+
+####  yury  
+##### 118#       发表于 2025-3-6 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67588658&amp;ptid=2208135" target="_blank">丧失神殿 发表于 2025-3-6 17:16</a>
+有个没玩过e17的脑子的话，玩原版还是这个重制</blockquote>
+原版。支持正版可以在方块游戏上花9块钱买官方中文的 https://store.cubejoy.com/html/en/store/goodsdetail/detail180.html
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  cfeng123  
+##### 119#       发表于 2025-3-6 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67589509&amp;ptid=2208135" target="_blank">Hinanya 发表于 2025-3-6 19:11</a>
+
+听说是原xbox版的游戏，看商店评论有雷而且挺厉害的，有懂的能细说一下吗。 ...</blockquote>
+我玩过原版，之前360版也玩过，感觉故事讲的更好了，只要不是原教旨主义者，都能感受到文本的进步
+
