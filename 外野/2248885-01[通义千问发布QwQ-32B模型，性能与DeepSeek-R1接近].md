@@ -571,3 +571,13 @@ ollama create qwen1.5-32b -f qwen1.5-32b.mf
 公司服务器想跑，但是没有联 ...</blockquote>
 直接下GGUF格式的也行
 
+
+*****
+
+####  fat  
+##### 54#       发表于 2025-3-6 14:01
+
+感谢各位大佬！
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
