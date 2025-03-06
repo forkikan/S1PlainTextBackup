@@ -608,3 +608,13 @@ cherry那个联网搜索实现得很烂，后面肯定要大改的。它现在�
 
 2025-3-6 16:47 上传
 
+
+*****
+
+####  c月光咖啡  
+##### 57#       发表于 2025-3-6 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67585800&amp;ptid=2248885" target="_blank">脸宽 发表于 2025-3-6 11:21</a>
+我部署的r1的32b，4080 16g，8-9toekns/s</blockquote>
+什么环境？我也是同样配置，win+ollama最多也就2tokens
+
