@@ -1546,3 +1546,40 @@ geekjack卖得比官方商店快
 
 这位累计给频道送了几千个会员的大佬的素质也太好了吧
 
+
+*****
+
+####  holofan  
+##### 10866#       发表于 2025-3-6 04:25
+
+ 本帖最后由 holofan 于 2025-3-6 04:27 编辑 
+
+みこの生誕グッズ、初期在庫3400個(公式ショップ)+98個(Geek Jack)が1分で完売したらしい
+
+<img src="https://img.saraba1st.com/forum/202503/06/042657av30w13wg3fswvw7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (558.52 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 04:26 上传
+
+<img src="https://img.saraba1st.com/forum/202503/06/042650tu7a86ln6an7687n.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (538.94 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 04:26 上传
+
+输得彻底
+
+*****
+
+####  holofan  
+##### 10867#       发表于 2025-3-6 10:59
+
+昨晚会限的时候沉浸在2K画质里完全忘了开NS看会限同接的事，刚好网上有人拍了照，有1.6W
+
+这数字看上去也没太大问题，平时高一点有1W出头，加上前天昨天两天的各种新增会员加起来6K多合起来差不多
+
