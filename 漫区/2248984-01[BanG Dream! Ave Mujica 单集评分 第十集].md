@@ -2232,3 +2232,28 @@ live做得越好看完越气
 
 我跟人说这初华真是十五年未见之大卑女，他跟我说心跳才刚12年，我觉得卑度未免不能和菱川六花一战啊
 
+
+*****
+
+####  Delicatus545  
+##### 256#       发表于 2025-3-7 06:13
+
+抛开难绷的人物塑造只看live，我大金毛主唱的b格还是有的吧<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">+1了
+
+*****
+
+####  Seeley  
+##### 257#       发表于 2025-3-7 06:14
+
+-1吧，至少live不错<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+原本以为大喵是鸡行为逻辑一致的那个，这集莫名其妙也成女同了，嫉妒爱慕再到爱情是吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  朔洵千夜  
+##### 258#       发表于 2025-3-7 06:15
+
+看见满地的初音，我就知道这片没有未来了<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
