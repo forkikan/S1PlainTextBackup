@@ -7391,3 +7391,37 @@ mujica看起来比较特殊，是因为ta本质上是mygo第二季。
 
 说了把mygo-mujica当作切割放送的半年番，整个企划就烂得平平常常了。
 
+
+*****
+
+####  影伴光生  
+##### 33185#       发表于 2025-3-6 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67585568&amp;ptid=2208921" target="_blank">K·os 发表于 2025-3-6 10:54</a>
+泥潭当年看国家队不就是这味，国家队还更长呢
+
+—— 来自 鹅球 v3.3.96</blockquote>
+国家队已经是7年前的作品了，而且只是烂了一半——按比例来算mujica烂了四分之三
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  厉飞雨  
+##### 33186#       发表于 2025-3-6 11:14
+
+还是看看利息的盛世美颜吧
+<img src="https://p.sda1.dev/22/09de9721aa586f4056a13ac92e1be8fb/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/d0ae54010ca5faa4e5ef7bda84d7c307/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一心而用  
+##### 33187#       发表于 2025-3-6 11:17
+
+第十话放送 应援绘
+
+八幡海铃 绘：船桥花
+<img src="https://p.sda1.dev/22/9ae6f1e2202a98d7c066d8b5d7592ff1/73c3d039gy1hz72lhn2qdj214o1kwwoz.jpg" referrerpolicy="no-referrer">
+
