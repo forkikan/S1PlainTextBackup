@@ -8172,3 +8172,16 @@ mujica真的故作深沉了吗。
 
 在我看来，灯说出“我们一起迷路”的时候已经把这个问题回答完了，Mujica完全是倒退
 
+
+*****
+
+####  zhoujin8584  
+##### 33255#       发表于 2025-3-6 17:42
+
+<blockquote>小博禹 发表于 2025-3-6 17:33
+不是想回到过去，而是想和祥子一起走向未来
+
+这不就是求婚吗，难怪5.6.7要派爱音锁死企鹅防止出轨
+</blockquote>
+其实是灯如果没有爱音小祥全拿的把握，就会丧失行动力<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
