@@ -8560,3 +8560,35 @@ repo不是说新增影片里有牢修说“高达说活下去吗”，说不定�
 
 紫婆原本猜是不是夏亚导致的泽克诺瓦，听到玫瑰消失后立刻改口是玫瑰
 
+
+*****
+
+####  纪寞  
+##### 8100#       发表于 2025-3-6 22:37
+
+分析了一下红高达和gqx的对打后，难以想象那个特别映像的玛秋那句："太快了，修司别丢下我"是怎么说得出口的<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+红高达：大姐不应该你罩我吗？我感觉就算我全武装，你靠打拳都能手撕我了
+
+
+*****
+
+####  虛無迴廊  
+##### 8101#       发表于 2025-3-6 22:41
+
+刚摸了两天车不敢上高速是这样的
+
+*****
+
+####  刺客ares  
+##### 8102#       发表于 2025-3-6 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67591900&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-3-6 22:37</a>
+
+分析了一下红高达和gqx的对打后，难以想象那个特别映像的玛秋那句："太快了，修司别丢下我"是怎么说得出口 ...</blockquote>
+玛秋的gqx还是开塞克缪的，怎么都比首席哥那版强<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+gqx本身还是宇宙专用机，推力机动力特化的配置
+
+这样还能有追不上的机动差距，那只能是驾驶员gap了
+

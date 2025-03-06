@@ -10559,3 +10559,319 @@ live真不错
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  真爱与热情  
+##### 33501#       发表于 2025-3-6 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67553944&amp;ptid=2208921" target="_blank">真爱与热情 发表于 2025-3-2 01:21</a>
+
+大祥老师的饺子也不是不能包，当初她组起哭团真正的原因是被灯的歌词感动。所以大祥玩乐队的初心就是所谓的 ...</blockquote>
+我说什么来着，虽然跟我最后一句不一样。没想到真就包了这个预想的饺子啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 33502#       发表于 2025-3-6 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67591846&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-6 22:35</a>
+你不是，朋友，你是路边的一条。
+
+小姨还在岛上</blockquote>
+双胞胎的话，不是一样的小姨吗？还是说只是长得像。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ads147147  
+##### 33503#       发表于 2025-3-6 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67591851&amp;ptid=2208921" target="_blank">acg_gyanc 发表于 2025-3-6 22:35</a>
+有没有大佬说一下之前是怎么奶初华身世的？</blockquote>
+死海文书剧透。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  FanFun  
+##### 33504#       发表于 2025-3-6 22:37
+
+台下也弄的跟舞台剧似的<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+后半歌还不错，咱就别演台下的故事了吧
+
+*****
+
+####  于干  
+##### 33505#       发表于 2025-3-6 22:37
+
+是什么脑子才能写出这种b剧情
+
+*****
+
+####  qiyu1234  
+##### 33506#       发表于 2025-3-6 22:37
+
+我觉得这集强行捏合回mujica演的也算合理
+
+团员特别是祥子并没有真正进入交心有团魂的阶段，只是回到了从前而已
+
+只是我真的没法接受用双子说去触动祥子这种手段
+
+本来就没剩几集了，篇幅不够+剧情赶火车的情况下，这种双子设定很容易写崩，一旦写崩对初华姐妹和祥子的塑造都是毁灭性的（虽然感觉已经救不回来了）
+
+*****
+
+####  超极巨鲨鲨  
+##### 33507#       发表于 2025-3-6 22:37
+
+前面还只觉得烂，这集看完已经有一种为什么要折磨自己看这种东西的想法了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ntrntr1  
+##### 33508#       发表于 2025-3-6 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67591870&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-3-6 22:36</a>
+
+双胞胎的话，不是一样的小姨吗？还是说只是长得像。。。
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+那个详细聊天记录里面，大金毛是小姨的姐妹，和祥子好像没血缘关系。。。
+
+也不知道怎么凹的一下爱上了，可能这就是金毛的本能吧。
+
+*****
+
+####  堆雪若叶  
+##### 33509#       发表于 2025-3-6 22:37
+
+ 本帖最后由 堆雪若叶 于 2025-3-6 22:38 编辑 
+
+狗团一开始光速散场是真要和这帮神人切割吧，已经没法搭戏的程度了，海铃发癫立希拽都拽不走真给我笑麻了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 33510#       发表于 2025-3-6 22:37
+
+看过前九集的我已经死了，现在是看过第十集的我，感情wsd真以为少女乐队就是搞女铜啊，满屏幕都是“我想草你”，这么想搞怎么不去D5J搞呢，那边是真能上床的，哦，已经被切割那没事了，我悟了，原来一直在迷子和ave上空挥之不去的幽灵不是CCC而是wsd的R18之魂了，真是令人畏惧
+
+我愿称这集为后现代抽象派女同圣经，建议各大监督编剧认真学习，好做出属于自己独一无二的那份soulmate
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  cxj649  
+##### 33511#       发表于 2025-3-6 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67591848&amp;ptid=2208921" target="_blank">盐盐盐盐盐 发表于 2025-3-6 22:35</a>
+
+我感觉这集的mygo五人突出一个am五个神金的事她们已经懒得管也管不了了放着让她们自己解决算了的态度（） ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">除了百万圣人厨，至少我个人一直觉得狗团都是正常人啊
+
+*****
+
+####  影伴光生  
+##### 33512#       发表于 2025-3-6 22:39
+
+弹丸3的动画，观众不喜欢的角色大概率也活不到结局，ave mujica的观众可就有眼福啦
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  聊nsy专用号  
+##### 33513#       发表于 2025-3-6 22:39
+
+sb女同性恋写的sb女同性恋剧本
+
+初华belike 女神你给我一次吧 女神你给我一次吧 女神你给我一次吧
+
+*****
+
+####  aptx8285144  
+##### 33514#       发表于 2025-3-6 22:39
+
+？你们就这么顺利公演了？外部不允许的大手呢？<strong>前面的音乐还不错，挺喜欢的，但是我不要后面这母鸡卡的音乐</strong><img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  俾斯麥  
+##### 33515#       发表于 2025-3-6 22:40
+
+这一下把我干到六轩岛还是雏见泽了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ntrntr1  
+##### 33516#       发表于 2025-3-6 22:40
+
+看了不少画的很可爱的真把大金毛画成金毛的二创，没有代入星宇，只觉得小动物被狠心女人抛弃了好可怜<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DARK_HGCG  
+##### 33517#       发表于 2025-3-6 22:40
+
+这集90%的实质戏份都是喵梦的
+
+*****
+
+####  盐盐盐盐盐  
+##### 33518#       发表于 2025-3-6 22:41
+
+<blockquote>cxj649 发表于 2025-3-6 22:38
+除了百万圣人厨，至少我个人一直觉得狗团都是正常人啊</blockquote>
+我也觉得她们很正常啊就是感觉她们五个无表情的送睦回家然后拉走海铃后面还让海铃不用管了有一种……超现实的好笑（）
+
+就是那种在网上看到一个全员神金的故事连载帖后评论区没人真情实感去辩论而是全员看戏玩梗的风景（
+
+*****
+
+####  adw667  
+##### 33519#       发表于 2025-3-6 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67591846&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-6 22:35</a>
+
+你不是，朋友，你是路边的一条。
+
+小姨还在岛上</blockquote>
+初音岛啊嗯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 33520#       发表于 2025-3-6 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67591908&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-6 22:37</a>
+那个详细聊天记录里面，大金毛是小姨的姐妹，和祥子好像没血缘关系。。。</blockquote>
+反正也写不出爱是不需要理由的这种浪漫文学了。。。
+
+嗯，还是禅心武神说的对，母鸡卡已经失去了构建角色间浪漫性的能力，只剩下生硬的贴标签关系，这就是十本和独角兽的差距吧。。。大概差了十个花田十辉，人家再不济糖精也是甜的。
+
+这集真有一种哇，当年有人挖出来死海文书，然后真的就这样一个个把使徒宰了的荒诞感，难怪最后祥子是真嗣表情包。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  南宮凝香  
+##### 33521#       发表于 2025-3-6 22:42
+
+《睦頭肯定是能奪祥的》
+
+《初華也是實至名歸〉
+
+〈高松燈也不是不行〉
+
+〈卧槽喵夢是誰〉
+
+祥子： 一開場就直稱為祥畜！！ 到底要是什麼樣的垃圾才能看著青梅倒地大哭還站原地無動於中？ 又是什麼的弱障才會把剛吃過的回旋鏢再扔一次出去？  別再浪費空氣， 去飛祥吧
+
+初華： 消滅女姛， 刻不容緩
+
+大喵 ： 嘴替1號
+
+海鈴： 嘴替2號
+
+莫： 連3 號也混不上的可憐人
+
+Soyo： 素姐我錯了
+
+立希： 嘗試撈兄弟一把， 奈何兄弟被心控
+
+燈 ： 溜了溜了，我想成為人類，但眼前的根本不是人
+
+愛音： 溜了溜了
+
+樂奈： 溜了溜了， 溜了就不用付芭菲錢
+
+十人大會戰， 結果愛燈貓加起來竟然只有貓的一句嘴替……..
+
+*****
+
+####  cxj649  
+##### 33522#       发表于 2025-3-6 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67591985&amp;ptid=2208921" target="_blank">盐盐盐盐盐 发表于 2025-3-6 22:41</a>
+
+我也觉得她们很正常啊就是感觉她们五个无表情的送睦回家然后拉走海铃后面还让海铃不用管了有一种……超现 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/carton2017/490.png" referrerpolicy="no-referrer">附议
+
+*****
+
+####  紫苑寺美琴  
+##### 33523#       发表于 2025-3-6 22:43
+
+幽默企鹅人这就直接下线了？
+
+🐧：孩子们，祥子说复活CCC的事我还没回复<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ntrntr1  
+##### 33524#       发表于 2025-3-6 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67591952&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-6 22:39</a>
+
+？你们就这么顺利公演了？外部不允许的大手呢？前面的音乐还不错，挺喜欢的，但是我不要后面这母鸡卡的音乐 ...</blockquote>
+大祥作为人中龙凤大小姐，已经深通商战之法，知道一般商标归经纪公司，在签合同前进行过一番话术，自行拥有了阿五母鸡卡的商标，这就是财阀之女的手段，高明，太高明了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  聊nsy专用号  
+##### 33525#       发表于 2025-3-6 22:44
+
+武士道还要在鸡狗live卖c团复活的if线 不会在动画里给ccc结局的
+
+*****
+
+####  ads147147  
+##### 33526#       发表于 2025-3-6 22:45
+
+ring表演严格来说。。。你不收门票钱就不算商演咯
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  6030sylar  
+##### 33527#       发表于 2025-3-6 22:45
+
+现在已经组起来了
+
+就等13集最后再一次live
+
+11、12垃圾时间
+
+*****
+
+####  ntrntr1  
+##### 33528#       发表于 2025-3-6 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592035&amp;ptid=2208921" target="_blank">紫苑寺美琴 发表于 2025-3-6 22:43</a>
+
+幽默企鹅人这就直接下线了？
+
+🐧：孩子们，祥子说复活CCC的事我还没回复</blockquote>
+说不定已经听过电波接收到大金毛的歌词战书，即可回家写词13话LIVE决战小祥最爱之巅
+
+*****
+
+####  厄神之息  
+##### 33529#       发表于 2025-3-6 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67591908&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-6 22:37</a>
+
+那个详细聊天记录里面，大金毛是小姨的姐妹，和祥子好像没血缘关系。。。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">答案是致敬传奇东方本竹丿花，初华听了自己姐妹和祥子的童年旧事后代替姐妹去爱祥（
+
