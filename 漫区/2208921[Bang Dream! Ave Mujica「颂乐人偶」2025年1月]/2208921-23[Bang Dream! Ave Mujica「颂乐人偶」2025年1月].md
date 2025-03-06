@@ -14647,3 +14647,157 @@ Imprisoned XII
 
 還是乖乖去吃喵祥吧， 至少也是Soulmate
 
+
+*****
+
+####  是谁的书画  
+##### 33881#       发表于 2025-3-7 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593621&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-3-7 00:45</a>
+去陪大莫了</blockquote>
+解释不了的，本来大莫突然发病变成复读机就很突兀了。但是大莫不发病就没办法发展后续初华回大豪斯的剧情，要不然事情当场在ring解决的七七八八了。
+只能理解说为了后续的剧情大莫必须当场发这个病让所有人不欢而散。但这处理实质上就是粗糙的。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  kenqqex  
+##### 33882#       发表于 2025-3-7 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593685&amp;ptid=2208921" target="_blank">my707776310 发表于 2025-3-7 00:53</a>
+
+对哦特么上集不还说丰川家大手不让重组，怎么这集又行了</blockquote>
+这集也是去ring而已啊 也没租武道馆
+
+*****
+
+####  岬开斗  
+##### 33883#       发表于 2025-3-7 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593685&amp;ptid=2208921" target="_blank">my707776310 发表于 2025-3-7 00:53</a>
+对哦特么上集不还说丰川家大手不让重组，怎么这集又行了</blockquote>
+她们自己在ring开的场，没经过公司。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  lolisk  
+##### 33884#       发表于 2025-3-7 00:54
+
+<blockquote>my707776310 发表于 2025-3-7 00:53
+对哦特么上集不还说丰川家大手不让重组，怎么这集又行了</blockquote>
+它们根本还没重组啊，重组是武士道上live，但这只是live house
+
+*****
+
+####  ntrntr1  
+##### 33885#       发表于 2025-3-7 00:55
+
+<blockquote>南宮凝香 发表于 2025-3-7 00:53
+大祥的CP 都爛光了
+
+木箱，睦子美死了？ （無感）
+</blockquote>
+大喵：已出轨。追求睦小姐中。勿念。
+
+*****
+
+####  木板春香  
+##### 33886#       发表于 2025-3-7 00:55
+
+<img src="https://img.saraba1st.com/forum/202503/07/005542mvvtihgjlvdkafej.jpg" referrerpolicy="no-referrer">
+
+<strong>TM9HGD)JUZCJRQ{X7@RVO4G_tmb.jpg</strong> (134.32 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 00:55 上传
+
+<img src="https://img.saraba1st.com/forum/202503/07/005548jtszt95zsszeh9ms.jpg" referrerpolicy="no-referrer">
+
+<strong>(61{G_0LOFO7)DD[R42BP}J_tmb.jpg</strong> (6.68 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 00:55 上传
+
+*****
+
+####  xyion  
+##### 33887#       发表于 2025-3-7 00:57
+
+祥子这一整话的臭脸，是不是她的视角里是初华海玲带着莫来装睦骗她组鸡团啊。
+
+但柿本能不能解释下睦没了这件事在场的另外9个人谁信谁不信啊，是不是又是不需要对观众展示。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  modkingr  
+##### 33888#       发表于 2025-3-7 00:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593681&amp;ptid=2208921" target="_blank">YF31 发表于 2025-3-7 00:52</a>
+
+写出这种性压抑歌最后居然还能把牢祥吃到嘴，我只能说这张伟大的脸确实有用，但凡这脸没那么伟大一点，我 ...</blockquote>
+还没吃到嘴呢，最后三集就看吃不吃得到了
+
+*****
+
+####  thisisaspider  
+##### 33889#       发表于 2025-3-7 00:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593550&amp;ptid=2208921" target="_blank">厉飞雨 发表于 2025-3-7 00:35</a>
+
+开头ring那段，狗团仿佛就是一群串子
+
+除了爽姐去带莫老师走
+
+上两集还在激烈音趴，最后连个招呼都没打看完戏 ...</blockquote>
+MYGO也是经常唐突追逐战中断对话，编剧写不下然后中断剧情这点只能说一脉相承了。不过MYGO确实表现的比较好。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  leghorn00  
+##### 33890#       发表于 2025-3-7 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592691&amp;ptid=2208921" target="_blank">ykyin09 发表于 2025-3-6 23:17</a>
+
+我刚发现老登的瞳色跟初华（音）一样是紫色，原来伏笔早已埋下，太变态了柿本
+
+论坛助手,iPhone ...</blockquote>
+如果瞳色真是伏笔的话，回第一集看了一下，祥妈的瞳色跟大祥和睦以及睦妈一样是金色，就是说祥妈其实不是老登亲生女儿，而是从睦家过继来的养女，祥跟睦是表姐妹，所以睦会在祥妈的追悼会上坐亲戚席，另外第一集祥妈死后老登让大祥成为自己女儿的突兀发言也就能说通了，而且也能解释为什么祥出走老登一副无所谓的样子，因为大祥跟他本来就没有血缘关系，而且他一直有个亲生的备胎，这次选择回收初华就是下决心要放弃祥了。
+
+*****
+
+####  DeltaStriker  
+##### 33891#       发表于 2025-3-7 00:59
+
+无人在意的角落 ring staff人设也一起报废了<img src="https://p.sda1.dev/22/ed70a7971a15ab9fd87d60600547b05b/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  wolf1997  
+##### 33892#       发表于 2025-3-7 01:01
+
+这首《Imprisoned XII》在各种方面，尤其是在唱法上十分有致敬《I Will Always Love You》的感觉，有没有人有类似的感觉？（刚好《The Bodyguard》在当年也是被认为除了这首歌一无是处）
+
+*****
+
+####  草化木  
+##### 33893#       发表于 2025-3-7 01:02
+
+对一次次遗弃自己、总是去摸别的小狗狗的主人，还是忍住自己的嫉妒、不停上前讨好，哪怕只是站在主人脚边就能开心起来。
+
+可怜的金毛大狗狗。
+
+*****
+
+####  plusSharp  
+##### 33894#       发表于 2025-3-7 01:03
+
+对初音的那句“你回去”怎么能理解成去丰川家？不是要赶回岛上吗
+
