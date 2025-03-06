@@ -11760,3 +11760,400 @@ soulmate强制爱这个关键词提炼得也太好了吧</blockquote>
 
 这就是折磨睦10集的目的吗，真的司马了啊<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天空塔书记官  
+##### 33616#       发表于 2025-3-6 23:07
+
+Ave Mujica「Imprisoned XII」MV封面图 ​​​
+
+<img src="https://p.sda1.dev/22/dab5b5209342b16bcef65bee31d80a36/image.jpg" referrerpolicy="no-referrer">
+
+[http://m.weibo.cn/status/5141335368796538?](http://m.weibo.cn/status/5141335368796538?)
+
+《雨后小故事》
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  qiyu1234  
+##### 33617#       发表于 2025-3-6 23:07
+
+哪有团魂啊，也就海喵莫算有那么一点，初华就一祥推也没啥主动性
+
+祥更不用说了，感觉只是被回旋镖打痛了觉得自己再不承担责任就是个纯出生了，没办法只能接锅，还是那个板脸哈气祥
+
+这集强行捏起来倒也不算包寿司
+
+但接下来可能编剧想要依靠解决双子事件塑造队内团魂（显然故事不会只让祥子一个人面对这个问题，我都能想象一些桥段了），这才是包寿司
+
+*****
+
+####  aisakahammer  
+##### 33618#       发表于 2025-3-6 23:07
+
+太变态了，脑子都要放弃思考了
+
+*****
+
+####  Bob293  
+##### 33619#       发表于 2025-3-6 23:07
+
+13集开完live能不能来个其实是做梦的狗屎叙诡啊，毕竟已经有双子和精神病这俩要素了，最后的解密快端上来梦吧，难绷。
+
+*****
+
+####  ads147147  
+##### 33620#       发表于 2025-3-6 23:08
+
+有一说一，wsd这个供曲还是有水平的，星2崩的时候歌也跟着崩没几个好听。。。星3的anisong更是记忆点都没有了，这点比代便好太多
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  戏谑二次元  
+##### 33621#       发表于 2025-3-6 23:08
+
+祥子哈气初音不是很正常吗，就那个歌词写的，这已经想监禁祥子了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ntrntr1  
+##### 33622#       发表于 2025-3-6 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592441&amp;ptid=2208921" target="_blank">怀沙汨罗 发表于 2025-3-6 23:04</a>
+
+不是怎么还有漏油对后面的剧情抱有期待啊以现在的水平怎么可能还会有正常人类能理解的文戏，写谁谁死好吧。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">我就期待能搞出点超出人类范畴古神级别的。。。
+
+这集虽然超出人类范畴，但是是人机级别的所以不行，但真古神级别，我还是很乐意看的，毕竟这么有想象力的发展假药都不敢写
+
+*****
+
+####  qratosones1337  
+##### 33623#       发表于 2025-3-6 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592396&amp;ptid=2208921" target="_blank">Суслов 发表于 2025-3-6 23:01</a>
+
+卧槽，初音未来卧槽，soulmate还在追我
+
+这集前半部分我已经不知道在演什么了大喵老师和海玲纯纯工具人，之 ...</blockquote>
+楼上说了，初华天天想草大祥，大祥之前一直生活在被雷普的阴影中，所以解散之后就光速润了
+
+*****
+
+####  Qing_Qi_2.0  
+##### 33624#       发表于 2025-3-6 23:09
+
+初华跟着祥子那段，感觉随时会跪下来いかないで
+
+初华是不是真有点性压抑了
+
+*****
+
+####  南宮凝香  
+##### 33625#       发表于 2025-3-6 23:09
+
+我覺得我接受不了跟祥/ 和解
+
+這集的行為根本不是人
+
+至少也要三個箱活才能補起的洞
+
+*****
+
+####  ntrntr1  
+##### 33626#       发表于 2025-3-6 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592498&amp;ptid=2208921" target="_blank">戏谑二次元 发表于 2025-3-6 23:08</a>
+
+祥子哈气初音不是很正常吗，就那个歌词写的，这已经想监禁祥子了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">但还是老老实实把曲子写出来了
+
+其实是深柜崆峒
+
+
+*****
+
+####  萌二  
+##### 33627#       发表于 2025-3-6 23:10
+
+卑微女同真的
+
+*****
+
+####  الطائر  
+##### 33628#       发表于 2025-3-6 23:10
+
+ 本帖最后由 الطائر 于 2025-3-6 23:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592187&amp;ptid=2208921" target="_blank">الطائر 发表于 2025-3-6 22:50</a>
+
+果然是伏笔吗？</blockquote>
+成功把第二支吉他驳上，三角初华初音的霸气立即暴增，狂增，劲增！杀杀杀杀杀！她此刻的气势比她任何时候也更强大五十倍；无比霸念，无比狂态，如此的可恶魔神...，天下间还有什么可以抵挡？他妈的，天下间还有什么可以抵挡了？
+
+Imprisoned VII
+
+Crucifix X
+
+*****
+
+####  厄神之息  
+##### 33629#       发表于 2025-3-6 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592271&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-3-6 22:55</a>
+
+初华这已经不是一般的舔狗了，而是究极⭐压抑病娇舔狗，她真的写了一整首歌来表达自己想要艹祥子的感情，我 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">别着急还有救！说不定下集告诉你她深爱的是她姐姐，她姐姐写和祥子生活的回忆录亖了，死前告诉她让她代替自己去爱祥，然后她把爱祥当唯一生存动力了呢！
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 天空塔书记官| + 1|我要杀wsd的🐴|
+
+查看全部评分
+
+*****
+
+####  Bieaeml  
+##### 33630#       发表于 2025-3-6 23:10
+
+ 本帖最后由 Bieaeml 于 2025-3-6 23:14 编辑 
+
+丰川老登真的惨，大女儿寄了，大孙女脾气和大女儿一样要倔，小女儿不但是女同舔狗，对象还尼玛是大孙女<img src="https://static.saraba1st.com/image/smiley/carton2017/481.png" referrerpolicy="no-referrer">
+
+哦，这集歌还是行的（
+
+*****
+
+####  Libartas  
+##### 33631#       发表于 2025-3-6 23:10
+
+ 本帖最后由 Libartas 于 2025-3-6 23:12 编辑 
+
+无人在意的角落里，甜甜圈女士已经是能和实力派女丨优森みなみ共演的帝剧女丨优了，sumimi谁carry谁还真不好说
+
+*****
+
+####  不定学研  
+##### 33632#       发表于 2025-3-6 23:11
+
+喵梦（爱情）：其实我爱你睦子
+
+祥子（忘却）：啊我醒悟了我好畜生我要组mujica
+
+初华（悲伤）：理理我好吗？
+
+motis（死亡）：睦，融合。
+
+海玲（恐惧）：大家别走，相信我啊！啊？又可以了？
+
+*****
+
+####  adretyu67.  
+##### 33633#       发表于 2025-3-6 23:11
+
+往好里想，初华女士的词终于被大祥老师重视了一回。
+
+就算是死也值回票价了。
+
+*****
+
+####  aptx8285144  
+##### 33634#       发表于 2025-3-6 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592497&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-3-6 23:08</a>
+
+有一说一，wsd这个供曲还是有水平的，星2崩的时候歌也跟着崩没几个好听。。。星3的anisong更是记忆点都没有 ...</blockquote>
+前半部分音乐还比较对我胃口，初华说母鸡卡开始后这风格让我还是不由得皱起眉头<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  terminator1990  
+##### 33635#       发表于 2025-3-6 23:11
+
+路人观众表示没看懂，是说金毛其实有两个？一个叫初华一个叫初音是吗？然后初华和阿祥关系好但是现在被初音替了所以阿祥对她一直摆臭脸，是这个意思吗？？
+
+听说狗很好然后被狗结尾的鸡live骗进来追鸡追到现在，有种高位进场一只涨了好久的牛股结果一买入就遇到A杀被套在山尖尖站岗的感觉...
+
+*****
+
+####  半年  
+##### 33636#       发表于 2025-3-6 23:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">歌挺好听，剧情真恶心
+
+*****
+
+####  ntrntr1  
+##### 33637#       发表于 2025-3-6 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592566&amp;ptid=2208921" target="_blank">Libartas 发表于 2025-3-6 23:10</a>
+
+无人在意的角落里，甜甜圈女士已经是能和实力派**森みなみ共演的帝剧**了，sumimi谁carry谁还真不好说 ...</blockquote>
+甜甜圈好像本来就是苏咪咪的主推
+
+*****
+
+####  qratosones1337  
+##### 33638#       发表于 2025-3-6 23:11
+
+所以初华跟野兽先辈就差一杯昏睡红茶了是吧
+
+*****
+
+####  小博禹  
+##### 33639#       发表于 2025-3-6 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592569&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-6 23:11</a>
+往好里想，初华女士的词终于被大祥老师重视了一回。
+
+就算是死也值回票价了。 ...</blockquote>
+是初音<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  厄神之息  
+##### 33640#       发表于 2025-3-6 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592352&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-3-6 22:59</a>
+
+所以好多人疑惑祥子为什么对着初华哈气。
+
+这么明显，还用解释嘛。初华都不带演的，完全不掩饰自己对祥子的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那阿伟受伤害的第一时间想到的不是联系彬彬而是给杰哥打电话让杰哥给自己忘掉一切也是够变态的了。
+
+
+*****
+
+####  KokutouMikiya  
+##### 33641#       发表于 2025-3-6 23:13
+
+独角兽之前还说写出了能带进坟里的脚本（大概率指鸡），不可能连这点自觉都没有吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Cortana  
+##### 33642#       发表于 2025-3-6 23:14
+
+唉，从未如此痛恨过mujica是个二偶企划，如果本集能彻底挥洒酒神精神，来首金属或者舞台上整点狠活，一定能超越第七集，现在还是略输一筹。
+
+*****
+
+####  戏谑二次元  
+##### 33643#       发表于 2025-3-6 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592569&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-6 23:11</a>
+往好里想，初华女士的词终于被大祥老师重视了一回。
+
+就算是死也值回票价了。 ...</blockquote>
+但是，初华一直没出场，这里是初音<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  modkingr  
+##### 33644#       发表于 2025-3-6 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592541&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-6 23:09</a>
+
+我覺得我接受不了跟祥/ 和解
+
+這集的行為根本不是人</blockquote>
+不需要和解
+
+这集已经讲得很明白了 母鸡卡的团魂就是五个烂人互相折磨 也就喵梦所谓soulmate强制爱
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 伊迪潘宫森| + 1|你是有见解的|
+
+查看全部评分
+
+*****
+
+####  盐盐盐盐盐  
+##### 33645#       发表于 2025-3-6 23:14
+
+第二首歌几个人在台上拜年的动作太僵了看起来没什么感染力很好笑……
+
+*****
+
+####  ntrntr1  
+##### 33646#       发表于 2025-3-6 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592590&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-3-6 23:11</a>
+
+所以初华跟野兽先辈就差一杯昏睡红茶了是吧</blockquote>
+结合祥子在初...初音家睡得曲子都没来得及写完给了老莫浑水摸鱼的可乘之机
+
+没准大金毛看似纯良已经昏睡红茶过了
+
+祥子解散的真正原因是已得了女同PTSD觉得这团女同太多了，还是我们CCC只会写点小纸条比较纯洁
+
+*****
+
+####  月灵银羽  
+##### 33647#       发表于 2025-3-6 23:15
+
+怎么说呢，这集看live看歌我差不多就类似于这样的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202503/06/231459kzfuwwswh2kwgmaa.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250306231452.png</strong> (738.21 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 23:14 上传
+
+*****
+
+####  EverNight  
+##### 33648#       发表于 2025-3-6 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592564&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-3-6 23:10</a>
+别着急还有救！说不定下集告诉你她深爱的是她姐姐，她姐姐写和祥子生活的回忆录亖了，死前告诉她让她代替 ...</blockquote>
+你这个……也不是不行
+毕竟已经加设定加到现在了。我特么今天才知道大喵爱木头，WTF？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  风道北来  
+##### 33649#       发表于 2025-3-6 23:15
+
+还不够明显吗，这片就是某个大权在握的傻逼一意孤行的结果（至于这个傻逼到底是不是柿本我暂且不下定论）
+
+母鸡卡1.0——S1E13和S2E1
+
+炸团——S2E2到E4
+
+再组团——E5到E10
+
+最搞笑的地方在哪里？大海大喵大舔三个神人中，大舔再组团的理由被放到E11、12，而大海大喵再组团的理由加起来不到一集！
+
+换句话说再组团阶段几乎全是蓝毛哈气出生和绿毛双重人格这两个精神病姐妹的表演！
+
+再考虑到炸团阶段大舔和大海也没多少戏份，精神病姐妹几乎占了整个母鸡卡百分之七十的戏份！而她俩靠什么撑起这百分之七十？哈气和双重人格！
+
+而如果不是要给大舔老师搞点三流琼瑶剧背景，整个母鸡卡到这集其实就可以视作结束了！
+
+什么叫十五年未有之大女主啊，靠哈气和软糯撑起一部戏的传奇女主角就是十五年未有之大女主
+
