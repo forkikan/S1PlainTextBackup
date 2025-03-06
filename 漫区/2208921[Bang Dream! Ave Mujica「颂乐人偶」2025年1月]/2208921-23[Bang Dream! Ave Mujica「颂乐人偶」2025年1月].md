@@ -9526,3 +9526,87 @@ mujica时期独角兽跑了，之前也有传柿本不让独角兽看分镜，�
 
 柿本广大怎么这么卖力，每次的访谈不是同一套车轱辘话来回说，还每次都是新内容的啊。
 
+
+*****
+
+####  6030sylar  
+##### 33375#       发表于 2025-3-6 21:54
+
+准备一套稿给各杂志吧
+
+*****
+
+####  swessia  
+##### 33376#       发表于 2025-3-6 21:56
+
+不得不说莫小姐这艺术照真好看啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  木板春香  
+##### 33377#       发表于 2025-3-6 21:58
+
+我们说好不分离！~！~
+
+*****
+
+####  kenqqex  
+##### 33378#       发表于 2025-3-6 21:59
+
+来了!<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  有钱多买小人  
+##### 33379#       发表于 2025-3-6 22:01
+
+大好き<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无音命题  
+##### 33380#       发表于 2025-3-6 22:01
+
+大喵老师<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 33381#       发表于 2025-3-6 22:01
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/487.png" referrerpolicy="no-referrer">小姨（？）确定了
+
+*****
+
+####  AveMujica  
+##### 33382#         楼主| 发表于 2025-3-6 22:02
+
+这集多十秒
+
+<img src="https://img.saraba1st.com/forum/202503/06/220203yzfdb4vbt8pdfv36.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (110.68 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 22:02 上传
+
+*****
+
+####  有钱多买小人  
+##### 33383#       发表于 2025-3-6 22:03
+
+soyo妈妈<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  影伴光生  
+##### 33384#       发表于 2025-3-6 22:03
+
+9集结尾的10人同台，3分钟就散了哇
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
