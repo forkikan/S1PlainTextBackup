@@ -7492,3 +7492,39 @@ mujica看起来比较特殊，是因为ta本质上是mygo第二季。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  烂片雷达  
+##### 33193#       发表于 2025-3-6 12:34
+
+我觉得还挺好看的，按照邦邦惯例，是不是得有第三季<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thisisaspider  
+##### 33194#       发表于 2025-3-6 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67585040&amp;ptid=2208921" target="_blank">segen 发表于 2025-3-6 09:49</a>
+要我说制作组要真“最狂”就该直接把睦头写死，但可惜这是个要卖卡的kirakira世界观，到头来连莫小姐都不敢 ...</blockquote>
+不够狂 把go也炸了 直奔兽娘2<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  6030sylar  
+##### 33195#       发表于 2025-3-6 12:43
+
+武士道哪有钱做第三季，考虑下给独角兽朋友费先把人找回来吧
+
+*****
+
+####  小博禹  
+##### 33196#       发表于 2025-3-6 12:45
+
+出第三季ccc真要复活了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+不过高尾都说母鸡卡结局看出走马灯，应该不会有后续了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
