@@ -7578,3 +7578,32 @@ https://x.com/yuko11420/status/1897321114579427816?s=19
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  adretyu67.  
+##### 33202#       发表于 2025-3-6 14:10
+
+13话鸡狗对邦就是冲着完结去了。怎么可能有第三季
+
+*****
+
+####  qratosones1337  
+##### 33203#       发表于 2025-3-6 14:12
+
+就这玩意还做第三季？就算以找乐子为目的，赤石一次也就足够了，不需要第二次
+
+*****
+
+####  sauron.j  
+##### 33204#       发表于 2025-3-6 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67586718&amp;ptid=2208921" target="_blank">mono 发表于 2025-3-6 13:27</a>
+
+这个剧情做无限制原创动画可能效果还好点
+
+何必要放到bangdream</blockquote>
+按当初26集非邦邦的原案去做，整体质量应该会好很多
+
+只是大概率不会火出圈了，成为某些直播间特供的小众时尚单品
+
