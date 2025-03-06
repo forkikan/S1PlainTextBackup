@@ -981,3 +981,16 @@ R1蒸馏QWEN 32B是做不到这一步的，感觉纯靠蒸馏只能形式上实�
 win ollama+i5-13600kf+4080+内存24*2</blockquote>
 我是5600+ 4*16+4080s 咋那么慢呢
 
+
+*****
+
+####  fat  
+##### 65#       发表于 2025-3-6 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67586763&amp;ptid=2248885" target="_blank">yorktown 发表于 2025-3-6 13:35</a>
+
+直接下GGUF格式的也行</blockquote>
+对了请教一下，我之前试过导入gguf（ds蒸馏的qwen-32b），但是跑起来感觉和ollama直接pull下来的不一样，感觉是少了什么模板配置。
+
+导入gguf究竟要不要手动配置模板什么的？
+

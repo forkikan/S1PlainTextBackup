@@ -1079,3 +1079,205 @@ live好听，但是除了live都没看懂
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  一心而用  
+##### 123#       发表于 2025-3-6 22:56
+
+<img src="https://p.sda1.dev/22/8c6527a3fbbadc53392894eccf7618c6/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  cao1rui2  
+##### 124#       发表于 2025-3-6 22:56
+
+他妈的看得爆笑，哈哈哈哈，台长伟大，无需多言<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  一心而用  
+##### 125#       发表于 2025-3-6 22:56
+
+<img src="https://p.sda1.dev/22/843d6b062cadfb4bdc31faa118000f98/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  ArcadiaMartyr  
+##### 126#       发表于 2025-3-6 22:56
+
+没一个诗人
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  单脚着地  
+##### 127#       发表于 2025-3-6 22:57
+
+我们A队能凑齐这么五个变态也真是了不起呢
+
+*****
+
+####  死宅真恶心  
+##### 128#       发表于 2025-3-6 22:58
+
+莫名其妙的剧情-2 live+1 总分-1
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  盐盐盐盐盐  
+##### 129#       发表于 2025-3-6 22:58
+
+live太拉了，寡淡无趣，歌听完了都没有在脑子里留下任何印象
+
+*****
+
+####  kykawaiii  
+##### 130#       发表于 2025-3-6 22:58
+
+0，给这集的live吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  EverNight  
+##### 131#       发表于 2025-3-6 22:58
+
+冲着歌给1分，冲着睦墨和好给一分，情报是真的扣一分<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  圣血天使  
+##### 132#       发表于 2025-3-6 22:59
+
+0，就。。还好？歌不错，最后还有舅舅党的初华剧情？
+
+*****
+
+####  哌啶  
+##### 133#       发表于 2025-3-6 22:59
+
+如坐针毡
+
+—— 来自 nubia NX733J, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  烟花缭乱  
+##### 134#       发表于 2025-3-6 22:59
+
+理性-2，李神干拉五分钟嗯唱+2，soulmate+1，初音+1，结论+2
+
+开唱前9集半内容当新单首发特典里的整蛊小视频挺不错，柿本和独角兽真正的才华可能在短剧而非长片
+
+*****
+
+####  只会双持开拓者  
+##### 135#       发表于 2025-3-6 22:59
+
+这歌也就凑合能听吧，－2
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  lijiuli  
+##### 136#       发表于 2025-3-6 23:00
+
+永远烂不完的作品
+
+*****
+
+####  天风绯炎  
+##### 137#       发表于 2025-3-6 23:00
+
+-2，看完无喜无悲，何等反复无常的大祥，李子唱歌尽力了，歌确实不错，但我也看得很煎熬，只想这荒诞的闹剧快些结束。
+
+就到第10集为止，“大人的大手”这个设定的一个推动作用，是不是从动画层面把母鸡卡从高贵的大舞台演出，推回到livehouse里面去啊。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  零壹贰叁  
+##### 138#       发表于 2025-3-6 23:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">给live听，给+2
+
+*****
+
+####  斯大林的拖拉机  
+##### 139#       发表于 2025-3-6 23:01
+
+歌不错？真的吗？
+
+第一曲同样是民谣风格还不如gbc里泽城美雪的那首吧
+
+但是+2
+
+*****
+
+####  Nanachi  
+##### 140#       发表于 2025-3-6 23:01
+
+ 本帖最后由 Nanachi 于 2025-3-6 23:05 编辑 
+
+我曾经最喜欢的动画就是独角兽写的。最后两集突然爆出来说女二一直在装嫩，实际上是女主的阿姨，她从小就想草女主他妈了，等女主妈死了终于找到机会拿女主当代餐了……了解独角兽的早就见怪不怪了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sloudy  
+##### 141#       发表于 2025-3-6 23:02
+
++0。这集二创素材还不少，而且起码看着能乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">live是终于有了，但歌真不大行吧，听着走神了都
+
+*****
+
+####  novem  
+##### 142#       发表于 2025-3-6 23:03
+
+-2
+
+讨论剧情已经没意义了
+
+*****
+
+####  思绪云骞  
+##### 143#       发表于 2025-3-6 23:03
+
+黄子华说得对
+
+<img src="https://img.saraba1st.com/forum/202503/06/230409ox3drswwg6t0g1nm.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1741273193712.jpg</strong> (116.11 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 23:04 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  kaildo  
+##### 144#       发表于 2025-3-6 23:03
+
++2
+可以，要的就是祥子成为暴君而不是像青春剧一样的和解
+另外wsd必须给我一个初音为什么这么迷恋祥子的理由，只要能把这个讲好我就和解了
+
+*****
+
+####  RStocking  
+##### 145#       发表于 2025-3-6 23:05
+
+有唱歌，有女女关系性，还有老登和他的车，这不是完美剧情编排么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+但是-2
+
