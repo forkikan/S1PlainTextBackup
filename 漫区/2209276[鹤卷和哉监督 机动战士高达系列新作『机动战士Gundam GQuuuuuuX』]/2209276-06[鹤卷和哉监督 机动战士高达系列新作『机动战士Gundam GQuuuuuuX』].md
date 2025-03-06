@@ -8841,3 +8841,60 @@ image.png
 
 总体来说还是超出预期的好，能看出来鹤卷和榎户明确对于这个框架和世界观有清晰的计划和高度的掌控力，同时也有能力把故事推向一个下限有保障的未来，这个香槟可以开，期待四月正片的发展
 
+
+*****
+
+####  AkaiSuisei  
+##### 8119#       发表于 2025-3-7 02:05
+
+好像bbcode发出来的格式出bug了，没实名认证不让编辑，就这样吧
+
+*****
+
+####  Steel.Haze  
+##### 8120#       发表于 2025-3-7 02:07
+
+ 本帖最后由 Steel.Haze 于 2025-3-7 02:08 编辑 
+
+<img src="https://img.saraba1st.com/forum/202503/07/020138hdf8e46dlwyyl986.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (89.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 02:01 上传
+
+<img src="https://img.saraba1st.com/forum/202503/07/020157eq4wl2q3qqgq3jej.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (85.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 02:01 上传
+
+<img src="https://img.saraba1st.com/forum/202503/07/020226u7a06xtt6twxzdss.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (104.98 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 02:02 上传
+
+<img src="https://img.saraba1st.com/forum/202503/07/020307thz28zu0ue9zjt9d.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (99.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 02:03 上传
+
+<img src="https://img.saraba1st.com/forum/202503/07/020348czlndr0ljllhxllc.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (72.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 02:03 上传
+
+另外红高达的阿尔法赛克缪系统似乎就是艾美号上面的系统，原计划是开发艾美号给夏亚用，夏亚要求下终止了MA计划（吉翁又省了资源），把子系统塞入高达中，而Bit外挂。这套系统看上去还是体积庞大的，除了靠大量工程人员参与改装和见缝插针之外，貌似还大幅度改装核心战机的部分模块，所以红高达是否能进行核心战机脱出存疑（或核心战机要毁伤性脱离-其分离会破坏安装的系统）。
+
