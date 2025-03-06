@@ -8444,3 +8444,40 @@ Soyo的坎过不去又不在这个问题上，由于Soyo缺乏家庭关爱，对
 
 一切都陷入虚无主义了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhoujin8584  
+##### 33276#       发表于 2025-3-6 19:03
+
+<blockquote>钦念以忱 发表于 2025-3-6 18:39
+灯得到睦的电波之前就已经开始上台表演了，也拉过爱音了，是爱音不肯去 ...</blockquote>
+
+拉过，但是不是能追到楼顶的行动力，被一句“不是说不需要我”就怼回去了，不是这种话哪有什么杀伤力啊，还是小企鹅对已经答应一辈子的素世犯难了。
+
+正是因为有了全都要的把握，才能往上追好几层楼，鸡还特意做了对偶，第五集也是穿着室内鞋追祥子，就往下跑两级楼梯还能摔倒。毕竟此时mygo和ccc真没看到共存的路<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+被祥子一句话怼回去跟第一次拉爱音失败一个情况。
+
+联想起来就是睦在鸡9真下狠手让小灯说一句答应应该是没问题的，灯面对二选一也是有一句话的战斗力的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  [皆神孝介]  
+##### 33277#       发表于 2025-3-6 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67587716&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-3-6 15:32</a>
+
+MyGO的故事其实只有10+2话，这也是制作组边做边改结果故事收尾比预期快了，才有机会把后1话用来讲mujica结 ...</blockquote>
+我原本以为Ave Mujica动画的时间会往回拨，讲成团前到成团之间的故事，最终话收束至2020年7月25日初次Live
+
+当然现在也不错，但还是希望将来有机会说说拉人组队的故事<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Raven314  
+##### 33278#       发表于 2025-3-6 19:07
+
+新剧透没讨论么<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+初华又在阁楼吸枕头了这次还有舞台服了
+

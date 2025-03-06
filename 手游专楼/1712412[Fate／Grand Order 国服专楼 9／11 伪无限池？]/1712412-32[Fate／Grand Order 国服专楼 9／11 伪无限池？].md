@@ -75,3 +75,11 @@
 
 火速将但丁列入明年抽卡计划，理查和小野一点兴趣都没有，感觉明年妥妥的
 
+
+*****
+
+####  khxooo  
+##### 47042#       发表于 2025-3-6 19:01
+
+草，大号每天付费单抽出了查理曼了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
