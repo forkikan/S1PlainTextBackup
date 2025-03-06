@@ -83,3 +83,11 @@
 
 草，大号每天付费单抽出了查理曼了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苍蓝之枪  
+##### 47043#       发表于 2025-3-6 19:28
+
+最后差一个血泪没搬掉，狗粮芙芙棋子放弃，没办法，根本找不到满破卡池礼装的
+

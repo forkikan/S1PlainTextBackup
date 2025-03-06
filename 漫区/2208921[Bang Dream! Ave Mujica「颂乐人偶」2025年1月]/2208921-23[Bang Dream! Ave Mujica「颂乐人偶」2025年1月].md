@@ -8538,3 +8538,50 @@ soyo对祥子道过歉也想要ccc回来，就想要家的感觉和道不道歉�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新访谈，柿本对角色的理解堪称悲剧
 
+
+*****
+
+####  刑部姬真可爱  
+##### 33283#       发表于 2025-3-6 19:30
+
+屎本是不是mygo火了就飘成这样了啊，它自我感觉还能再好一点吗<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+*****
+
+####  龙恐小  
+##### 33284#       发表于 2025-3-6 19:31
+
+看红温了给我，大柿老师这个角色理解能力简直不可理喻
+
+*****
+
+####  是谁的书画  
+##### 33285#       发表于 2025-3-6 19:31
+
+简单来说，柿本设想了一个自认为很牛逼很爆炸的剧情框架，框架下这个阶段的事就要凑这么一个人推动，然后人物往里面填也不管塑造的合不合理，
+
+天才啊
+
+*****
+
+####  6030sylar  
+##### 33286#       发表于 2025-3-6 19:33
+
+<img src="https://img.saraba1st.com/forum/202503/06/193316lw1e1irrerrr51ii.png" referrerpolicy="no-referrer">
+
+<strong>V7706ZGUYXW7SELV~E1BT)E.png</strong> (128.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 19:33 上传
+
+<img src="https://img.saraba1st.com/forum/202503/06/193328uaarlmozwwam2o35.jpg" referrerpolicy="no-referrer">
+
+<strong>~(0}Y(9$`~NSD$%`E(P7)ET.jpg</strong> (1.91 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 19:33 上传
+
+睦：我tm谢谢你
+
