@@ -971,3 +971,13 @@ R1蒸馏QWEN 32B是做不到这一步的，感觉纯靠蒸馏只能形式上实�
 
 不懂就问，大家觉得和D指导相比，Q指导的实力如何？
 
+
+*****
+
+####  c月光咖啡  
+##### 64#       发表于 2025-3-6 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67589259&amp;ptid=2248885" target="_blank">脸宽 发表于 2025-3-6 18:32</a>
+win ollama+i5-13600kf+4080+内存24*2</blockquote>
+我是5600+ 4*16+4080s 咋那么慢呢
+

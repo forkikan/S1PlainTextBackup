@@ -9726,3 +9726,257 @@ soyo妈妈<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" 
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  大户爱  
+##### 33400#       发表于 2025-3-6 22:14
+
+不过初音这个名字还真是搞
+
+
+*****
+
+####  RuanJ  
+##### 33401#       发表于 2025-3-6 22:14
+
+*初音未来，未来已来*
+
+*****
+
+####  KASUKASU111  
+##### 33402#       发表于 2025-3-6 22:15
+
+半看半跳10分钟关了
+
+*****
+
+####  最弱败者  
+##### 33403#       发表于 2025-3-6 22:15
+
+不是 这祥子到底在装什么<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 33404#       发表于 2025-3-6 22:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">尼玛，初音是真的
+卧槽不会真是双子＋小姨吧？好家伙初祥睦祥比谁下毒更狠是吧
+
+*****
+
+####  pliee  
+##### 33405#       发表于 2025-3-6 22:16
+
+独角兽写爽了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  风道北来  
+##### 33406#       发表于 2025-3-6 22:16
+
+初生又哈气了真恶心啊
+
+*****
+
+####  pokemon最爱  
+##### 33407#       发表于 2025-3-6 22:16
+
+所以到底发生了什么导致大祥老师发生了如此突然的变化<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+以及初音可还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ccared  
+##### 33408#       发表于 2025-3-6 22:16
+
+这周的石怎么品不出巧克力味儿啊
+
+*****
+
+####  kenqqex  
+##### 33409#       发表于 2025-3-6 22:16
+
+太变态了
+
+*****
+
+####  影伴光生  
+##### 33410#       发表于 2025-3-6 22:17
+
+这寿司的包法，是把观众头按到芥末缸里去了吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  凉良  
+##### 33411#       发表于 2025-3-6 22:18
+
+太**了            
+
+*****
+
+####  Lyzers  
+##### 33412#       发表于 2025-3-6 22:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">梅姨阁诗人
+
+*****
+
+####  大户爱  
+##### 33413#       发表于 2025-3-6 22:18
+
+一开始只要看了那个聊天记录，就知道那个剧透很真，而且后面几集情节早就对上了。
+
+就等着盖棺小姨，和铁人三项了。
+
+*****
+
+####  聋与唬  
+##### 33414#       发表于 2025-3-6 22:19
+
+祥子这是用的什么催眠app啊？
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  aptx8285144  
+##### 33415#       发表于 2025-3-6 22:20
+
+大瞄一番正论结束时那句除了母鸡卡外我一无所有真是笑死人<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 33416#       发表于 2025-3-6 22:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑祥唐突回归
+牛魔这到底在演什么啊，没有一个是人
+
+
+*****
+
+####  gammatau  
+##### 33417#       发表于 2025-3-6 22:20
+
+y1s1 喵梦你演技确实是很差
+
+*****
+
+####  有钱多买小人  
+##### 33418#       发表于 2025-3-6 22:20
+
+终于想起来自己是乐队动画了
+
+*****
+
+####  DeltaStriker  
+##### 33419#       发表于 2025-3-6 22:21
+
+纯念白推剧情纯整蛊 重组过程堪比坐火箭但是因为毫无情感铺垫一点也没感觉 大象你这不是能担当吗 早干嘛了 最后小姨成真毫无悬念
+
+*****
+
+####  Victorino  
+##### 33420#       发表于 2025-3-6 22:22
+
+这是在？这是在？这是在？
+
+卧槽初音未来
+
+*****
+
+####  黑酒杯  
+##### 33421#       发表于 2025-3-6 22:22
+
+怎么能难看成这样子<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我还是接着刷黑丝吧
+
+*****
+
+####  聋与唬  
+##### 33422#       发表于 2025-3-6 22:22
+
+为什么，为什么初华变成这种舔狗了
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  影伴光生  
+##### 33423#       发表于 2025-3-6 22:22
+
+按商法需要，其实前面不爆也是这集live，那还不如演10集喝茶日常（顺便补个泳装回）
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 33424#       发表于 2025-3-6 22:22
+
+老登的镜头，大战财阀要来了吗？？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大户爱  
+##### 33425#       发表于 2025-3-6 22:22
+
+大喵海玲是两个完全的工具人。
+
+行为逻辑谜一样，海玲起码有立希这个转变的点，虽然也是完全立不住脚。
+
+大喵就这点铺垫都不想给，纯纯编剧人偶，强行按着她去重组。
+
+*****
+
+####  ntrntr1  
+##### 33426#       发表于 2025-3-6 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67591427&amp;ptid=2208921" target="_blank">pokemon最爱 发表于 2025-3-6 22:16</a>
+
+所以到底发生了什么导致大祥老师发生了如此突然的变化
+
+以及初音可还行</blockquote>
+大猫：编剧给我剧透了，对这种自尊心强的孩子就要用激将法，嗨三分钟上当<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小博禹  
+##### 33427#       发表于 2025-3-6 22:22
+
+不要骂小祥，她只是人格有点多<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  Lyzers  
+##### 33428#       发表于 2025-3-6 22:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这集已经到了每一句话都不知道是怎么蹦出来的地步了
+
+*****
+
+####  猫兔同笼  
+##### 33429#       发表于 2025-3-6 22:23
+
+不想在吃伦理剧情了，最后两集该不会跟当年轻拍一样久弥直树给独角兽接烂摊子吧？<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哩子ayil  
+##### 33430#       发表于 2025-3-6 22:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太变态了
+
+*****
+
+####  刑部姬真可爱  
+##### 33431#       发表于 2025-3-6 22:24
+
+live还是可以的，live以外的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
