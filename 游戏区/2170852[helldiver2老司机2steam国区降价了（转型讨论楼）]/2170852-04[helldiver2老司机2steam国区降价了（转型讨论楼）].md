@@ -26,3 +26,14 @@
 今天凌晨想上去混点勋章在睡就遇到连进4个房无论开不开加速器延迟都高的爆炸，最后进了个单人房还是个大哥 ...</blockquote>
 开跨平台，直连鬼佬都不卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 5834#       发表于 2025-3-6 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67588719&amp;ptid=2170852" target="_blank">FLZB 发表于 2025-3-6 17:23</a>
+
+问就是没打中，泰坦和强袭距离稍微远一点就很容易手抖</blockquote>
+那泰坦嘴巴上贴了两个铝热炸完变烟花，屁事没有接着追我也是手抖吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

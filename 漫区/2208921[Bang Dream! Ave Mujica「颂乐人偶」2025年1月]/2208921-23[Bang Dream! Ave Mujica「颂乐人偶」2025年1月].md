@@ -8515,3 +8515,26 @@ MyGO的故事其实只有10+2话，这也是制作组边做边改结果故事收
 
 soyo对祥子道过歉也想要ccc回来，就想要家的感觉和道不道歉不是一码事，确实是缺一次道歉的。
 
+
+*****
+
+####  6030sylar  
+##### 33281#       发表于 2025-3-6 19:21
+
+<img src="https://img.saraba1st.com/forum/202503/06/192059ox8sni3fdxijj2d3.jpg" referrerpolicy="no-referrer">
+
+<strong>_DB{HJKV`TQ%K0KBYW6SOA0.jpg</strong> (80.43 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 19:20 上传
+
+*****
+
+####  akiomn  
+##### 33282#       发表于 2025-3-6 19:22
+
+[https://www.animatetimes.com/news/details.php?id=1741242390](https://www.animatetimes.com/news/details.php?id=1741242390)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新访谈，柿本对角色的理解堪称悲剧
+

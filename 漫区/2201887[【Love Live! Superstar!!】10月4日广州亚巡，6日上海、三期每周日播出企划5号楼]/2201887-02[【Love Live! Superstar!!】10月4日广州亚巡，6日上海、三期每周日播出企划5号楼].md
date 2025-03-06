@@ -132,3 +132,14 @@
 
 这次六巡总不能还有歌服是当“等等党”的吧<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 1531#       发表于 2025-3-6 19:23
+
+【【中字·全熟】Naomi Payton ペイトン尚未 2nd LIVE 「泡沫」-哔哩哔哩】 https://b23.tv/FlkalZz
+这次也做了字幕
+
+—— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
