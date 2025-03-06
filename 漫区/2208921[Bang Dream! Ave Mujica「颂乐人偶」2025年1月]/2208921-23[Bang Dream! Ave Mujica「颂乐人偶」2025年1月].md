@@ -7619,3 +7619,36 @@ https://x.com/yuko11420/status/1897321114579427816?s=19
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  NEWROMANCER  
+##### 33206#       发表于 2025-3-6 14:37
+
+回头复习go十三集发现喵梦还说过这种台词，现在回头再看觉得无比微妙
+<img src="https://p.sda1.dev/22/6b1f157372d810d7de568e3e2c472be6/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  plusSharp  
+##### 33207#       发表于 2025-3-6 14:40
+
+初华动手睦直接摔死了算不上最狂，一死了之太简单了。莫在意识里杀了睦，又因为失去了被保留的意义也随睦消失，留下一个纯“人偶”“复读机”若叶睦才能发挥更大价值。
+
+
+*****
+
+####  adretyu67.  
+##### 33208#       发表于 2025-3-6 14:43
+
+狗13话出道live说的是舞台布置啥的全是剧场staff做的。
+
+*****
+
+####  天空塔书记官  
+##### 33209#       发表于 2025-3-6 14:44
+
+资本的大手，好汉<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
