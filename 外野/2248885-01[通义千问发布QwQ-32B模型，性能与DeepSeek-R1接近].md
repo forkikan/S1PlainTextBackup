@@ -469,3 +469,13 @@ Deepseek好像不太喜欢刷，他们估计想 ...</blockquote>
 虽然身体什么的没问题动作也不是说不能色起来 但就是老是手脚突然变成触手。。 ...</blockquote>
 是不是生成步数太少了？想要效果过得去至少20起步，而且采样器最好选dpm++
 
+
+*****
+
+####  泰坦失足  
+##### 46#       发表于 2025-3-6 12:20
+
+ 本帖最后由 泰坦失足 于 2025-3-6 12:22 编辑 
+
+只有ollama上有,huggingface一天了还没上线.啥独家合作伙伴吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
