@@ -1892,3 +1892,59 @@ live衔接还可以，属于是我在现场看会爽的，其他不评价，初�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  YF31  
+##### 216#       发表于 2025-3-7 00:07
+
+-2，武士道应该支付我观看这集的费用。
+
+*****
+
+####  shokuji  
+##### 217#       发表于 2025-3-7 00:08
+
+全片-2 soulmate+0.5 live+0.5
+
+开头被断头的是mana女士？
+
+*****
+
+####  Renes  
+##### 218#       发表于 2025-3-7 00:09
+
+强制馊了霉的饺子馅儿
+
+
+*****
+
+####  墓地里的鱼  
+##### 219#       发表于 2025-3-7 00:14
+
++++++2  神中神<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  你妈的为什么  
+##### 220#       发表于 2025-3-7 00:15
+
+下一集才是母鸡卡要整的最大的活，整死整活就看下一话定乾坤<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  plok201  
+##### 221#       发表于 2025-3-7 00:16
+
+就好像5个星宇很强的人，管不了那么多了，全CG存档覆盖完毕，直接开冲<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  老贝  
+##### 222#       发表于 2025-3-7 00:17
+
++2
+
+这个不想和初音多说一句话，对上一次眼的祥子塑造得太好了，我都感受到了她的厌恶之情，太无敌了这动画。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

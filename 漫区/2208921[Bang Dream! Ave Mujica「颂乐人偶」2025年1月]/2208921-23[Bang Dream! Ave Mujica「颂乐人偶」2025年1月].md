@@ -13485,3 +13485,267 @@ mggm和丰川老登soulmate了吧<img src="https://static.saraba1st.com/image/sm
 
 看了分析才知道，一开始都是莫在假弹，弹了一半睦打赢复活赛了才改真弹的。睦：我差点人无了你们没人关心的吗？
 
+
+*****
+
+####  dqtql  
+##### 33783#       发表于 2025-3-7 00:06
+
+之前一直坚持躲剧透，看了第十集真绷不住了，这预防针不打不行啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  plusSharp  
+##### 33784#       发表于 2025-3-7 00:06
+
+莫：要和这些神人一起过还不如直接跳了，比坐牢还难受
+
+*****
+
+####  adretyu67.  
+##### 33785#       发表于 2025-3-7 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593236&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-3-7 00:02</a>
+
+你要说是包饺子吧，祥子重组乐队前也不是为了睦，睦墨融合后，祥子也一点反应都没有
+
+这也能叫包饺子吗？已 ...</blockquote>
+第10话大祥组鸡团的动机就是为了下面4个啊，或者说满足飞鸟山的“承担他人人生”，但是感觉叫支配更合适点。
+
+睦莫融合属于是意外收获了。
+
+*****
+
+####  戏谑二次元  
+##### 33786#       发表于 2025-3-7 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593254&amp;ptid=2208921" target="_blank">Aeons 发表于 2025-3-7 00:03</a>
+提到战吧的话有人知道战吧那个高楼是在聊什么吗，什么邀请函什么密码什么mygo因战吧起最后也只有战吧理解mu ...</blockquote>
+大概就是指伪书吧
+意思是就像海猫鸣泣之时一样，这是写出来的人偶故事，而不是现实的mujica
+但是，就剩三集了吧，来得及吗？？？
+
+*****
+
+####  天空塔书记官  
+##### 33787#       发表于 2025-3-7 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593194&amp;ptid=2208921" target="_blank">KokutouMikiya 发表于 2025-3-6 23:58</a>
+不是，我是不太清楚节约和梦以有啥被写在海睦上了，吃蛋白粉吗？</blockquote><blockquote>其实硬要说的话，对外展示自己好身材和大胃口以及不胖体质来塑造反差萌，但私下要靠严格的代餐和饮食控制，甚至上科技，用医美手术来维持形体外貌也算是岛国艺能界的常态了，现在wsd却用海铃这一角色摆明了潜规则，这一发AOE下去就不只是梦以，而是整个偶像圈</blockquote>
+还有第八集海铃妈的通话界面就是照着节约的一张照片做的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Aeons  
+##### 33788#       发表于 2025-3-7 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593297&amp;ptid=2208921" target="_blank">戏谑二次元 发表于 2025-3-7 00:07</a>
+大概就是指伪书吧
+意思是就像海猫鸣泣之时一样，这是写出来的人偶故事，而不是现实的mujica
+但是，就剩三 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">难道这样写就很有意思吗
+
+*****
+
+####  gammatau  
+##### 33789#       发表于 2025-3-7 00:08
+
+ 本帖最后由 gammatau 于 2025-3-7 00:11 编辑 
+
+仔细想了一想，（只看这一集）🐘的行动反而合理起来了
+
+一开始由于赌气找了几个人组了个乐队，都怪自己太中二一定要在乐队里搞什么哥特世界观还说要把人生交给自己
+
+没想到4个队友都当真了，在自己中二+孩子气的操作下乐队解散，可4个队友不仅不放弃反而心理越来越变态，两个幼驯染一个双重人格发作，一个变成了台下卑微我一切都给你台上唱我要强暴你的女同，大猫变成了炼铜女同，海铃变成了我退了所有乐队只要和你在一起的膏药
+
+🐘看着这四个重女，就比10亿个哈气立希夹子素食更可怕呀，JK🐘如何能抵挡了，感觉再拒绝一次重组母鸡卡就要被她们轮建了，只好从了
+
+*****
+
+####  爱莉希雅  
+##### 33790#       发表于 2025-3-7 00:08
+
+妈咪我家牢莫是似了吗
+
+—— 来自 Xiaomi 2304FPN6DC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  是谁的书画  
+##### 33791#       发表于 2025-3-7 00:09
+
+复活在哪了，俩人都消解了，只剩下个弹琴的人偶。
+
+睦的存在无论mujica还是crychic还有什么意义吗？
+
+既不为自己的生存而活也不为了白月光活，连变态女同都不是了，10集结束彻底成为一个舞台设施。
+
+*****
+
+####  cherryjia12  
+##### 33792#       发表于 2025-3-7 00:10
+
+看了眼5ch，差评最多的点似乎是歌不好听
+和国内踩柿本不同日本邦批似乎更喜欢骂独角兽，是因为前三季吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  usodakedo  
+##### 33793#       发表于 2025-3-7 00:10
+
+别说，你说别的片论剑我觉得只是开玩笑，但这个片如果未来这几个女同论剑大象，我是一点也不觉得意外
+
+—— 来自 OnePlus PJF110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  105gun  
+##### 33794#       发表于 2025-3-7 00:10
+
+我好像还真没在动画里看过如此油腻的性压抑桥段。
+
+小姨简直就是那种主播群里的抽象中专哥，满脑子都是凿祥子大比。落实到语言和行动上只叫人忍俊不禁。
+
+这和真嗣对asuka犯错还不是一个性质的。能写出初华这种狠活的人是纯纯的没有自知，大约自以为是在写什么绝美爱情吧。
+
+*****
+
+####  lolisk  
+##### 33795#       发表于 2025-3-7 00:11
+
+这集还行，没啥乐子，但live部分没啥不满的，至于前半部分的文戏…维持一贯水准<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但第一首感觉太过抒情+小清新，导致主唱太拼命了，和其他人的义务live感形成鲜明对比，初华的重力在这群孤狼里显得有些突兀
+
+第二首回归鸡团风格，没啥好说的。舅把这拿诗超绊做对比，完全是两回事啊，几乎没刻意煽情也没哭哭，虽然也可以说是前面铺垫太烂毫无感情基础，但编剧知道煽情不管用也算是进步了吧<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  三尖酸努努  
+##### 33796#       发表于 2025-3-7 00:12
+
+live不错，也就剩个这了。现在情报全对上了，后面是一点戏没有了
+
+
+*****
+
+####  thisisaspider  
+##### 33797#       发表于 2025-3-7 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593332&amp;ptid=2208921" target="_blank">105gun 发表于 2025-3-7 00:10</a>
+我好像还真没在动画里看过如此油腻的性压抑桥段。
+
+小姨简直就是那种主播群里的抽象中专哥，满脑子都是凿祥 ...</blockquote>
+初音线还没完，等播完再喷有理有据XD
+
+*****
+
+####  sauron.j  
+##### 33798#       发表于 2025-3-7 00:12
+
+这集是不是饺子取决于你觉得诗超绊算不算饺子。我觉得go的饺子是迷星叫<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厉飞雨  
+##### 33799#       发表于 2025-3-7 00:13
+
+虽然歌词有点难绷，但我觉得第一首还行
+
+*****
+
+####  adw667  
+##### 33800#       发表于 2025-3-7 00:14
+
+问题来了，祥子当初怎么敢的，后来发生了什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202503/07/001403rj2b9w26n2hhuuql.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250307001321.png</strong> (16.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 00:14 上传
+
+
+*****
+
+####  厄神之息  
+##### 33801#       发表于 2025-3-7 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593275&amp;ptid=2208921" target="_blank">雪霜 发表于 2025-3-7 00:05</a>
+
+看了分析才知道，一开始都是莫在假弹，弹了一半睦打赢复活赛了才改真弹的。睦：我差点人无了你们没人关心的 ...</blockquote>
+祥子：人死都死了，事已至此，先组母鸡卡吧。
+
+*****
+
+####  dqtql  
+##### 33802#       发表于 2025-3-7 00:14
+
+这帮staff居然能搞出个mygo来，真是匪夷所思的奇迹……
+
+*****
+
+####  戏谑二次元  
+##### 33803#       发表于 2025-3-7 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593309&amp;ptid=2208921" target="_blank">Aeons 发表于 2025-3-7 00:08</a>
+难道这样写就很有意思吗</blockquote>
+大概是柿本写给龙骑士07的一封情书吧
+mujica的油画到确实有点贝阿朵的味
+
+*****
+
+####  ntrntr1  
+##### 33804#       发表于 2025-3-7 00:16
+
+<blockquote>adw667 发表于 2025-3-7 00:14
+问题来了，祥子当初怎么敢的，后来发生了什么</blockquote>
+其实当晚就扣了爽
+
+第二天ob一串字母小姐就ob一串字母了。
+
+
+*****
+
+####  DARK_HGCG  
+##### 33805#       发表于 2025-3-7 00:17
+
+共用账号"音華"？
+
+<img src="https://img.saraba1st.com/forum/202503/07/001701jckzey15kr5r1afr.jpg" referrerpolicy="no-referrer">
+
+<strong>20250307_011632.jpg</strong> (29.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 00:17 上传
+
+*****
+
+####  akiomn  
+##### 33806#       发表于 2025-3-7 00:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不行这集真是全员人设崩塌了，包括狗团
+开头全员知道睦没了。然后呢？除了祥子有反应外没人关心下，素世安慰下墨缇丝让带回家，然后呢？没了
+喵梦还tm在劣那逼演技，无敌了你，正论输出机
+祥子上集还在想办法为了睦好去重建c团，被喵梦嘴炮一顿突然想通了，化身黑祥了是吧？这集也不管了是吧？直接对着墨缇丝喊睦了。要不柿本直接跟我说祥子跟着睦殉情去了吧，现在是ob在上号代打
+海铃……哈哈也无关心，路边一条了
+初华懒得说了，真成变态了。哦不对，现在是初音
+墨缇丝，上集还杀睦，访谈更是实锤了，这集突然听初华唱个歌突然想通了要融合了？那你早干嘛去了？
+这剧情太恶心了，完全没有逻辑，就像是中间缺了两三集一样
+最后也不说融合睦是啥样的，搁着其他三个都急着下班是吧，初华和祥子赶着去下个片场
+
+*****
+
+####  operatbig  
+##### 33807#       发表于 2025-3-7 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593275&amp;ptid=2208921" target="_blank">雪霜 发表于 2025-3-7 00:05</a>
+
+看了分析才知道，一开始都是莫在假弹，弹了一半睦打赢复活赛了才改真弹的。睦：我差点人无了你们没人关心的 ...</blockquote>
+大象已经不在意了，真被她搞到4个能永远绑在一起的病友搞命运共同体，简直乐坏了。木子迷？让莫永远装下去就好了。
+
