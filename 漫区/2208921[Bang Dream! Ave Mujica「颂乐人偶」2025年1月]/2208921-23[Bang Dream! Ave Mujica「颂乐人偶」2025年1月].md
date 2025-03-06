@@ -8669,3 +8669,68 @@ md，屎本这访谈给我看吐了，不愧是最大的战犯<img src="https://
 
  工作人员自愿加入分镜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhoujin8584  
+##### 33296#       发表于 2025-3-6 19:48
+
+算是一个好消息，确实第七集是最后的解散音乐会。
+
+<img src="https://img.saraba1st.com/forum/202503/06/194825heft2v6tvxbcfmcz.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20250306_193727.jpg</strong> (301.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 19:48 上传
+
+*****
+
+####  akiomn  
+##### 33297#       发表于 2025-3-6 19:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太牛了，最纯种的喵黑都不敢说喵梦没才能，柿本居然敢说出来
+
+*****
+
+####  6030sylar  
+##### 33298#       发表于 2025-3-6 19:49
+
+<img src="https://img.saraba1st.com/forum/202503/06/194928vphf0xtptpot7hfk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (19.05 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 19:49 上传
+
+柿本这人是不是精神有问题，说话都没逻辑了
+
+*****
+
+####  南宮凝香  
+##### 33299#       发表于 2025-3-6 19:50
+
+還是老話
+
+你信柿本懂MyGo，
+
+不如信我是秦始皇
+
+*****
+
+####  堆雪若叶  
+##### 33300#       发表于 2025-3-6 19:50
+
+其实只是说喵梦不比母鸡卡其他人拥有着什么而必须要努力，顺便补充了海铃其实家里也有钱
+
+*****
+
+####  ads147147  
+##### 33301#       发表于 2025-3-6 19:52
+
+茜有才能和喵梦有什么关系，就算喵梦打那些bpm高的吓死人的鼓不代表你有才能呀
+
+我觉得京畿同志得向十本学习，fanbooks的采访都比十本对外采访都怂，怎么找也得骄傲的宣布恋的设计我超喜欢呀。
+
