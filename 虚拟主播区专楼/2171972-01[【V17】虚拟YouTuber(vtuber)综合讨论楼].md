@@ -69,3 +69,11 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  aritaatsu  
+##### 1034#       发表于 2025-3-6 20:04
+
+plave的音源是六代男团第一，不跟vtuber玩的
+

@@ -8734,3 +8734,133 @@ md，屎本这访谈给我看吐了，不愧是最大的战犯<img src="https://
 
 我觉得京畿同志得向十本学习，fanbooks的采访都比十本对外采访都怂，怎么找也得骄傲的宣布恋的设计我超喜欢呀。
 
+
+*****
+
+####  kenqqex  
+##### 33302#       发表于 2025-3-6 19:58
+
+実はメンバーの中で一番、その言葉ままの意味で『バンドリ！』しているとも言えます
+
+鸡里面最炸梦的女人 喵梦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wwwttth  
+##### 33303#       发表于 2025-3-6 19:59
+
+<blockquote>akiomn 发表于 2025-3-6 19:48
+太牛了，最纯种的喵黑都不敢说喵梦没才能，柿本居然敢说出来</blockquote>
+不，真喵黑是真的会说喵梦没才能的，拿的论据是地铁吵架那段大祥的“你才是需要练习的那个”，而且就在这楼里。
+
+*****
+
+####  HereLink  
+##### 33304#       发表于 2025-3-6 19:59
+
+🍅发言实在太吸引火力了😂😂😂
+
+有的小地方还是看得出一些思考的，但是放在一起就显得很幽默了，还是叙事能力拉了😥
+
+*****
+
+####  thisisaspider  
+##### 33305#       发表于 2025-3-6 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67589912&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-3-6 19:59</a>
+不，真喵黑是真的会说喵梦没才能的，拿的论据是地铁吵架那段大祥的“你才是需要练习的那个”，而且就在这 ...</blockquote>
+这下被石锤了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 33306#       发表于 2025-3-6 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67589865&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-3-6 19:52</a>
+茜有才能和喵梦有什么关系，就算喵梦打那些bpm高的吓死人的鼓不代表你有才能呀
+
+我觉得京畿同志得向十本学 ...</blockquote>
+看看喵梦上的学校就知道了，她可不单是上京土妹，还是小镇卷王<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zhoujin8584  
+##### 33307#       发表于 2025-3-6 20:01
+
+其实也就是说动画给啥认啥。
+
+喵梦出于兴趣或者整活买了一套鼓开始初学。但是短暂的初学已经有了相当的技巧，并且是符合网红需要的惹眼的技巧。这与她本身是初学者不矛盾，在短时间内纯靠努力的才能打上了pbm236的鼓，这算是她演技梦断之后唯一因为有所成就的事，在不想重组AM的心境下，反而成了一件坚持音乐梦想般的事。
+
+以及祥子招喵梦确实是食得咸鱼抵得渴。
+
+喵梦想跟着祥子一起出人头地。
+
+<img src="https://img.saraba1st.com/forum/202503/06/195712sxbgeeebggat6ttg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-03-06-19-55-28-71_40deb401b9ffe8e1df2f1cc5ba480b12.jpg</strong> (341.44 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 19:57 上传
+
+<img src="https://img.saraba1st.com/forum/202503/06/195742wcxbmbgcgxmmkvcz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-03-06-19-56-46-35_40deb401b9ffe8e1df2f1cc5ba480b12.jpg</strong> (231.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 19:57 上传
+
+*****
+
+####  HereLink  
+##### 33308#       发表于 2025-3-6 20:03
+
+真要考据学校吗，那YSL的联名怎么说呢😂😂
+
+🍅是怎么做到写勤奋上进又说才能，又参加吃辣挑战又联名国际品牌的😓
+
+*****
+
+####  KLHgg  
+##### 33309#       发表于 2025-3-6 20:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这访谈，10本和ylg哪个不懂mygo，现在不好说了
+
+
+*****
+
+####  river瑞文  
+##### 33310#       发表于 2025-3-6 20:05
+
+邦邦的天还会亮吗。。。
+
+*****
+
+####  zhoujin8584  
+##### 33311#       发表于 2025-3-6 20:05
+
+<blockquote>wwwttth 发表于 2025-3-6 19:59
+不，真喵黑是真的会说喵梦没才能的，拿的论据是地铁吵架那段大祥的“你才是需要练习的那个”，而且就在这 ...</blockquote>
+别忘了地铁判官说了啥，结合起来看就是喵梦一开始是初学者，但是现在至少能打226bpm的鼓了，如此短的时间如此的进步并不是所谓的还需要多练习，祥子你才是没有关注乐队成员吧
+
+*****
+
+####  新HGCG  
+##### 33312#       发表于 2025-3-6 20:05
+
+独角兽去Q娃棚了
+
+*****
+
+####  kenqqex  
+##### 33313#       发表于 2025-3-6 20:07
+
+──海鈴が奔走している横で、初華は少し蚊帳の外状態になってしまっていますね。
+
+柿本：実は初華だけは「こういう人いるよね」という人物像を想定して作っていないんです。他のキャラクターは実際にいる人を観察したり、行動や反応の思考実験をしてみたり、本や資料を読んだり、プロファイリングしてみたりしながらキャラクターを作っているところがあるんですが……。
+
+草 就是说其他4个人都有现实原型的，除了初华<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
