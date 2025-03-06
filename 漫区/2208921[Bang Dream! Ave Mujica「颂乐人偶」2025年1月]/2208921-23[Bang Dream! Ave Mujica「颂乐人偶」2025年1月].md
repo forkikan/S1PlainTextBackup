@@ -15254,3 +15254,56 @@ LAYER
 
 若宫伊芙</strong>
 
+
+*****
+
+####  北条早苗  
+##### 33932#       发表于 2025-3-7 01:46
+
+最后一集来个大祥和真初华乘坐被初音动了手脚的小艇离开小岛落水吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岬开斗  
+##### 33933#       发表于 2025-3-7 01:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593962&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-3-7 01:39</a>
+是 独角兽把大纲写到了最后一集
+
+然后十本想一出是一出根本不拿大纲当回事瞎比改 这些他都承认的 独角兽的大 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+你知不知道系构是干啥的。
+你们骂监督瞎比改这没问题，但怎么就意淫出系构没参与了，是不是以为系构写一本大纲给监督就啥也不管了？
+当监督瞎比改的时候，系构负责把瞎比改的内容落实到剧本。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  北条早苗  
+##### 33934#       发表于 2025-3-7 01:49
+
+只要系构还写着绫奈的名字，她就摆脱不了关系，真要切割就直接不让wsd给自己署名了
+而且这种私生女小姨想要抠自己侄女这种变态剧情我是不信柿本能独走改出来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mono  
+##### 33935#       发表于 2025-3-7 01:50
+
+我现在只想看pico和手游怎么写这些神人
+
+
+*****
+
+####  哈曼的YY  
+##### 33936#       发表于 2025-3-7 01:52
+
+<blockquote>岬开斗 发表于 2025-3-7 01:46
+你知不知道系构是干啥的。
+
+你们骂监督瞎比改这没问题，但怎么就意淫出系构没参与了，是不是以为系构写一 ...</blockquote>
+所以十本指挥独角兽瞎比改 
+
+改到最后面目全非了一气之下跑路切割了呗 她连动画成片都没去看
+
