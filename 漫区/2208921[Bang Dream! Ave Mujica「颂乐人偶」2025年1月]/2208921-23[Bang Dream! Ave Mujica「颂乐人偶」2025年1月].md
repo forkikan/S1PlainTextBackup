@@ -15695,3 +15695,37 @@ ep10开场大祥还是震惊了一下睦头下线的。
 
 毒液化是迟早的事，还是搞鸡团有利身心健康
 
+
+*****
+
+####  小博禹  
+##### 33977#       发表于 2025-3-7 02:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67594094&amp;ptid=2208921" target="_blank">北条早苗 发表于 2025-3-7 02:16</a>
+这片不是越分析越变态
+睦头死了一个月，大祥坐了一个月迈巴赫也没去看过（ep5、6）→爽姐月之森擒拿技，睦 ...</blockquote>
+小祥还是有反应的，“睦都死了还组什么乐队”<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  非建政专用号  
+##### 33978#       发表于 2025-3-7 02:39
+
+旁边有个性骚扰歌手，刚才又有个上来直球性骚扰的大喵，赶紧切号让木头人上来，太变态了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  YF31  
+##### 33979#       发表于 2025-3-7 02:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">一想到女同也能写出变态性压抑，忍不住笑嘻了睡不着。
+真的没见过这样的，这就是武士道的8+企划啊，真是88又++啊。
+李子太敬业了，这种东西能串动还能营业，太牛逼了姐，有这份毅力什么声优路走不下来。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
