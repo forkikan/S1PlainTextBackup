@@ -7788,3 +7788,25 @@ mygo基本是一个关于go团的完整故事了，祥子到底怎么了就算�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  与太郎  
+##### 33224#       发表于 2025-3-6 15:32
+
+MyGO的故事其实只有10+1话，这也是制作组边做边改结果故事收尾比预期快了，才有机会把后2话用来讲mujica结成
+
+如果没有这2话的空间，本季mujica至少还得再被压缩1话的空间，那才是真的巧妇难为无米之炊呢
+
+*****
+
+####  一心而用  
+##### 33225#       发表于 2025-3-6 15:35
+
+吉伊卡哇×Ave Mujica 作者：侠睡
+<img src="https://p.sda1.dev/22/6e13dcd63c258ab98d518f8f6e566030/88885f8cgy1hz6ac3vjd8j20vb0u5gpe.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/ab0fa0e7e8a2f6ff03c3bcefec5356a0/88885f8cgy1hz6ac4g2m6j20vb0vsq6c.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/0f971266114f096338edb3d59383f50b/88885f8cgy1hz6ac4u0wqj20vb0tagop.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/0eaf5339fe6725bc40db28d93196a107/88885f8cgy1hz72nijnysj20vb0sjdj3.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/2b82ccb9e0255d413d61f373e0cba85c/88885f8cgy1hz72nix4d0j20vb0u4n0x.jpg" referrerpolicy="no-referrer">
+
