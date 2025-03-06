@@ -13311,3 +13311,177 @@ mggm和丰川老登soulmate了吧<img src="https://static.saraba1st.com/image/sm
 如果真把双子一个写死，那说明这企划已经没救了，真拿声优不当人啊，逆输入节约和梦以已经触犯底线了，再 ...</blockquote>
 逆输入节约和梦以啥了？
 
+
+*****
+
+####  天空塔书记官  
+##### 33765#       发表于 2025-3-6 23:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593170&amp;ptid=2208921" target="_blank">KokutouMikiya 发表于 2025-3-6 23:56</a>
+逆输入节约和梦以啥了？</blockquote>
+第八集
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  龙恐小  
+##### 33766#       发表于 2025-3-6 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593170&amp;ptid=2208921" target="_blank">KokutouMikiya 发表于 2025-3-6 23:56</a>
+
+逆输入节约和梦以啥了？</blockquote>
+第八集那个海铃妈妈
+
+*****
+
+####  木板春香  
+##### 33767#       发表于 2025-3-6 23:57
+
+<img src="https://img.saraba1st.com/forum/202503/06/235744zk9i4eygpfvbeeei.jpg" referrerpolicy="no-referrer">
+
+<strong>@$K@38VUIP0U_M@62}7F{CR_tmb.jpg</strong> (174.44 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 23:57 上传
+
+*****
+
+####  kenqqex  
+##### 33768#       发表于 2025-3-6 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592985&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-3-6 23:39</a>
+
+柿本现在已经和细谷申之坐一桌了，等一波官方通告
+
+—— 来自 鹅球 v3.3.96</blockquote>
+如果你把之前其他团的live也看过的话，你就知道mggm和十本都是坐在vip看live的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KokutouMikiya  
+##### 33769#       发表于 2025-3-6 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593179&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-3-6 23:56</a>
+第八集
+
+—— 来自 鹅球 v3.3.96</blockquote>
+不是，我是不太清楚节约和梦以有啥被写在海睦上了，吃蛋白粉吗？
+
+*****
+
+####  盐盐盐盐盐  
+##### 33770#       发表于 2025-3-7 00:00
+
+祥子放弃纠结睦和莫的问题对着莫说睦你要练习完美演假弹这点祥子是真的有点疯魔了，很好的体现了五个全疯了的精神状态（
+
+喵梦对着莫也是上一句说我不会被你演技骗下一句又在倾诉她对睦羡慕嫉妒爱恨交加的看法
+
+（莫怕不是被这几个神金已经不管她是哪个，真的通通当一个若叶睦看待才决心选择融合？）
+
+*****
+
+####  KokutouMikiya  
+##### 33771#       发表于 2025-3-7 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593186&amp;ptid=2208921" target="_blank">龙恐小 发表于 2025-3-6 23:57</a>
+第八集那个海铃妈妈</blockquote>
+这…其实也不能说海铃妈就是参照的节约吧，没法判断制作组的主观意图<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  清江望月  
+##### 33772#       发表于 2025-3-7 00:01
+
+我到底在TMD看什么狗东西，我无比希望有个舅舅来告诉我后半集全部是初华的一个梦，能不能行啊？
+
+*****
+
+####  thisisaspider  
+##### 33773#       发表于 2025-3-7 00:01
+
+只能说WSD看着青春活力的二偶市场陷入饱和。在开辟什么小众市场了。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刑部姬真可爱  
+##### 33774#       发表于 2025-3-7 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593194&amp;ptid=2208921" target="_blank">KokutouMikiya 发表于 2025-3-6 23:58</a>
+
+不是，我是不太清楚节约和梦以有啥被写在海睦上了，吃蛋白粉吗？</blockquote>
+第八集出现了海铃的妈妈，很像睦的声优节约，海铃回忆里的一个乐队成员，则是很像梦以
+
+*****
+
+####  DeltaStriker  
+##### 33775#       发表于 2025-3-7 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593202&amp;ptid=2208921" target="_blank">盐盐盐盐盐 发表于 2025-3-7 00:00</a>
+祥子放弃纠结睦和莫的问题对着莫说睦你要练习完美演假弹这点祥子是真的有点疯魔了，很好的体现了五个全疯了 ...</blockquote>
+“这张卡在规则上当作【若叶睦】使用”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  huxiaopao163  
+##### 33776#       发表于 2025-3-7 00:02
+
+你要说是包饺子吧，祥子重组乐队前也不是为了睦，睦墨融合后，祥子也一点反应也没有
+
+这也能叫包饺子吗？已经不是速冻水饺了，已经是火都忘了开的程度了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cxj649  
+##### 33777#       发表于 2025-3-7 00:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我反正看得很乐的
+
+*****
+
+####  Aeons  
+##### 33778#       发表于 2025-3-7 00:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">提到战吧的话有人知道战吧那个高楼是在聊什么吗，什么邀请函什么密码什么mygo因战吧起最后也只有战吧理解mujica
+
+*****
+
+####  钦念以忱  
+##### 33779#       发表于 2025-3-7 00:03
+
+总不会这集日本人和美国人还好评吧
+
+*****
+
+####  ntrntr1  
+##### 33780#       发表于 2025-3-7 00:04
+
+<blockquote>huxiaopao163 发表于 2025-3-7 00:02
+你要说是包饺子吧，祥子重组乐队前也不是为了睦，睦墨融合后，祥子也一点反应也没有
+
+这也能叫包饺子吗？已 ...</blockquote>
+这叫分子料理。fine dining。母鸡卡是献给观众的omakase，是史上最狂少女乐队米其林。
+
+*****
+
+####  钦念以忱  
+##### 33781#       发表于 2025-3-7 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593236&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-3-7 00:02</a>
+
+你要说是包饺子吧，祥子重组乐队前也不是为了睦，睦墨融合后，祥子也一点反应都没有
+
+这也能叫包饺子吗？已 ...</blockquote>
+现在谁还包饺子，都是直接买现成的吃
+
+*****
+
+####  雪霜  
+##### 33782#       发表于 2025-3-7 00:05
+
+看了分析才知道，一开始都是莫在假弹，弹了一半睦打赢复活赛了才改真弹的。睦：我差点人无了你们没人关心的吗？
+

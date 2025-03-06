@@ -1778,3 +1778,117 @@ live+2，剧情-4
 
 然后点了 -2
 
+
+*****
+
+####  六道明  
+##### 203#       发表于 2025-3-6 23:56
+
+放弃理智，全体欣赏音乐，+2
+
+*****
+
+####  腥棚  
+##### 204#       发表于 2025-3-6 23:58
+
+纯纯的精神变态啊
+
+*****
+
+####  aimujie  
+##### 205#       发表于 2025-3-7 00:00
+
+太变态了，我看了什么，这集莫名其妙的搞笑所以+2<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Anley  
+##### 206#       发表于 2025-3-7 00:00
+
+有live有2首好听的新歌+2但是初音-1综合+1
+
+真就献给台长和mikufans的情书啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  最强惠酱  
+##### 207#       发表于 2025-3-7 00:00
+
+少数看动画live看走神单纯听歌的意义不明神经动画，总之就是大团圆！比上集无聊所以-2
+
+*****
+
+####  渡鸦骑士  
+##### 208#       发表于 2025-3-7 00:00
+
+完全没救了，完全的脱节<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  weems  
+##### 209#       发表于 2025-3-7 00:00
+
+0
+
+前半段一直在笑，感觉逻辑稍微正常了一点点，可能我是真的没什么期待了吧<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+后半段，第七集LIVE这么演出不就对了吗？多来几场演出，风评还能救一救。
+
+2首新歌很好听，特别是Imprisoned XII，音乐软件放出来了，开始循环。
+
+*****
+
+####  Keiji  
+##### 210#       发表于 2025-3-7 00:01
+
++2
+
+live衔接还可以，属于是我在现场看会爽的，其他不评价，初华这么舔的吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  太太  
+##### 211#       发表于 2025-3-7 00:02
+
+-2，我虽然是个乐子人，但是现在属实是没活硬整了
+
+*****
+
+####  scorbian  
+##### 212#       发表于 2025-3-7 00:02
+
+这饺子能包这么快的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  今晓天愁  
+##### 213#       发表于 2025-3-7 00:03
+
+还是那句话，说不上哪里特别差，但是前面几集剧情放在这里了，想快点回到mujica可以理解，然而总体就非常生硬，总是让观众反复问自己：如果这样就和解了，当初你们在干嘛
+
+0，这集前面一部分大猫输出还行，其他的也实在没法单集评价，问就是前面一坨摆在那了后面脱不了干系
+
+另外这是搞笑番吗，大猫中间来一句阿姨洗铁路我真的笑出来了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  四月一日辻迁  
+##### 214#       发表于 2025-3-7 00:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">+2 现在只想笑
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wuhhhh  
+##### 215#       发表于 2025-3-7 00:06
+
+太爽了，一想到那个曾经拿命运共同体当安全词的祥子，现在胯起个p脸被迫要演奏一首全是给她写的性 骚  扰歌词，主唱还是你的小姨子。真是ss又mmate啊。
+你问我代入的是谁？一想到我连2000日元都没花，就能看这种场子的观众，也是忍不住轻哼起来。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
