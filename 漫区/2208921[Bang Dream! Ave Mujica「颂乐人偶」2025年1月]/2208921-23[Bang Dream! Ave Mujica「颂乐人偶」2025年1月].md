@@ -8585,3 +8585,87 @@ soyo对祥子道过歉也想要ccc回来，就想要家的感觉和道不道歉�
 
 睦：我tm谢谢你
 
+
+*****
+
+####  akiomn  
+##### 33287#       发表于 2025-3-6 19:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">tmd看得我拳头硬了，感觉除了声优访谈外其他都可以作废了，柿本这什么逼理解了，对角色的理解还不如声优
+
+*****
+
+####  Skymoon  
+##### 33288#       发表于 2025-3-6 19:42
+
+md，屎本这访谈给我看吐了，不愧是最大的战犯<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lyzers  
+##### 33289#       发表于 2025-3-6 19:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">邦多利世界观不是十个人里有九个音乐天才，说你没才能就没才能，蒸馍你不服气？
+
+*****
+
+####  金钱与民主  
+##### 33290#       发表于 2025-3-6 19:42
+
+柿本仿佛像个没看过Mygo的业余人士。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  哈曼的YY  
+##### 33291#       发表于 2025-3-6 19:43
+
+十本没了独角兽还要瞎**改剧本是这样的
+
+
+*****
+
+####  beta10  
+##### 33292#       发表于 2025-3-6 19:44
+
+牛逼牛逼，这文还发出来了，这人真看过mygo？
+
+*****
+
+####  堆雪若叶  
+##### 33293#       发表于 2025-3-6 19:45
+
+<blockquote>はい。彼女たちは、自分たちがもう以前の自分たちと同じではないことに気付いてしまった。燈も自分の中でCRYCHICをやる違和感のようなものを実感したんだと思います。</blockquote>
+再没有什么最正确的五个人了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhoujin8584  
+##### 33294#       发表于 2025-3-6 19:46
+
+<blockquote>南宮凝香 发表于 2025-3-6 19:08
+不是全都要，
+
+燈是典型死線戰士
+
+</blockquote>
+讨论的时候还是尊重一下鸡狗的底层逻辑吧，灯的全都要满级战力和二选一一句话战力。
+
+以及祥的幽默二选一。
+
+*****
+
+####  kenqqex  
+##### 33295#       发表于 2025-3-6 19:46
+
+<img src="https://img.saraba1st.com/forum/202503/06/194605sne5m4neh2ce9n2m.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (227.43 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 19:46 上传
+
+ 工作人员自愿加入分镜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
