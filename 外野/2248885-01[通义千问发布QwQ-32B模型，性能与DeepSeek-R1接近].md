@@ -943,3 +943,15 @@ Yes, 正确的拼写是：B-E-R-R-Y，因此在 "strawberry" 中共有三个 R�
 
 \boxed{3}
 
+
+*****
+
+####  流缨  
+##### 61#       发表于 2025-3-6 20:10
+
+R1蒸馏QWEN 32B是做不到这一步的，感觉纯靠蒸馏只能形式上实现推理结构，如果不从头训练还是会受限于参数没办法突破词元分析的桎梏
+
+4090跑这个和R1 32B消耗基本一致，速度飞快。等会儿让他给我用react写个小球多边形内部滚动看看啥样<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+目测刚搞了一波部署方案的那些活现在又可以搞个“升级”再搂一笔了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

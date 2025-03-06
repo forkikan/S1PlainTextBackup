@@ -8864,3 +8864,95 @@ md，屎本这访谈给我看吐了，不愧是最大的战犯<img src="https://
 
 草 就是说其他4个人都有现实原型的，除了初华<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Lyzers  
+##### 33314#       发表于 2025-3-6 20:09
+
+看了下更上面的木兹米情绪总是变化无常，这不是也很爆笑嘛
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是这样的，你不能只在柿本打你脸的时候才说他不懂mygo不懂mujica
+
+*****
+
+####  zhoujin8584  
+##### 33315#       发表于 2025-3-6 20:09
+
+海铃这边也锤了让场外认定海铃莫名其妙就是想表达的观感
+
+<img src="https://img.saraba1st.com/forum/202503/06/200913uqvws1kmrmlw19yr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-03-06-19-42-03-15_40deb401b9ffe8e1df2f1cc5ba480b12.jpg</strong> (258.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 20:09 上传
+
+*****
+
+####  十九号大侠  
+##### 33316#       发表于 2025-3-6 20:09
+
+好好好<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhoujin8584  
+##### 33317#       发表于 2025-3-6 20:10
+
+<blockquote>kenqqex 发表于 2025-3-6 20:07
+──海鈴が奔走している横で、初華は少し蚊帳の外状態になってしまっていますね。
+
+柿本：実は初華だけは「 ...</blockquote>
+初华这种极致堆砌劣等替代品人设确实很纸片人
+
+*****
+
+####  HereLink  
+##### 33318#       发表于 2025-3-6 20:11
+
+不是，祥子找喵梦真的是因为影响力和乐队视觉要素？？？
+
+我怎么感觉有点离谱呢，大伙是要往上面走的，我还以为这里肯定藏了什么呢，结果是真的为了这些？
+
+那为什么不从事务所捞人呢？而且你凭什么认为喵梦能练起来啊，双利手就可以为所欲为？
+
+那这不是啥也没藏吗。。。
+
+
+*****
+
+####  zhoujin8584  
+##### 33319#       发表于 2025-3-6 20:15
+
+海铃的自顾自与不粘锅
+
+<img src="https://img.saraba1st.com/forum/202503/06/201447it49n9dxiu3xzlrd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-03-06-20-13-11-78_40deb401b9ffe8e1df2f1cc5ba480b12.jpg</strong> (326.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-6 20:14 上传
+
+*****
+
+####  风道北来  
+##### 33320#       发表于 2025-3-6 20:16
+
+绷不住了，合着大祥老师在组赌上人生的母鸡卡时真是随手从网上捡了个好看的主播啊
+
+果然母鸡卡1.0就是大祥老师赌气弄出来的玩具，大小姐过家家这个评价一点没错
+
+
+*****
+
+####  zhoujin8584  
+##### 33321#       发表于 2025-3-6 20:17
+
+<blockquote>HereLink 发表于 2025-3-6 20:11
+不是，祥子找喵梦真的是因为影响力和乐队视觉要素？？？
+
+我怎么感觉有点离谱呢，大伙是要往上面走的，我还 ...</blockquote>
+破案了，爱祥是真的，天天追更喵姆亲，从百元内化妆品推荐到主播初学一天鼓这是她的变化
+
