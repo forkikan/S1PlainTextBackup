@@ -7695,3 +7695,11 @@ https://x.com/yuko11420/status/1897321114579427816?s=19
 不知道S1婆罗门见多识广，有没 ...</blockquote>
 君不见国家队大叉叉之事也？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ape-apple  
+##### 33214#       发表于 2025-3-6 15:01
+
+前半也不是什么绝世神作，大多数没展开的作品勾引人进屋的时候都这样，柿本也好🦄也好肯定有这个本事，话说回来柿本都准备大手伸向老团了，别是习惯了拆团路线，见一个爆一个吧
+
