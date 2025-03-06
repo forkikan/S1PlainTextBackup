@@ -1057,3 +1057,14 @@ win ollama+i5-13600kf+4080+内存24*2</blockquote>
 
 7900xtx输出大概是每秒25token左右，而且感觉比蒸馏模型好用多了
 
+
+*****
+
+####  名居守  
+##### 72#       发表于 2025-3-7 00:38
+
+用的硅基，同样的不带敏感词的破限，q貌似比d难多了
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">速度快是真的快…便宜也是真的便宜
+写文……我翻了一圈我手头的，没个正经题材的
+还得多测试
+

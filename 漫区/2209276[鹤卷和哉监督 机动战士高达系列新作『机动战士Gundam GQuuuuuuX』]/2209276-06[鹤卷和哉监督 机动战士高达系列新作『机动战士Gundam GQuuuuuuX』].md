@@ -8792,3 +8792,14 @@ image.png
 
 <img src="https://img.saraba1st.com/forum/202503/06/235924brll8u0rtsbb4r89.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Steel.Haze  
+##### 8117#       发表于 2025-3-7 00:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593311&amp;ptid=2209276" target="_blank">阿尔巴尼亚 发表于 2025-3-7 00:08</a>
+
+那这就好说了，本来我想着如果是北美贾布罗敖德萨不列颠这些if点联邦全败了，凭什么战后还能存在，原来是 ...</blockquote>
+其实重塑部分围绕了“新人类对战局的影响力”这个暗线。那么其实明显影响战役的节点就是原作的-所罗门幽灵这部分，也是新人类系统化投入战斗的阶段（吉翁搞出成熟新人类武器和Bit，夏利尔回归，阿姆罗能力进一步觉醒，夏亚开始为自己NT感度不够感到焦躁....）原作的NT时代揭开序幕，和本作的核心人物关系确立也是这一时期。
+

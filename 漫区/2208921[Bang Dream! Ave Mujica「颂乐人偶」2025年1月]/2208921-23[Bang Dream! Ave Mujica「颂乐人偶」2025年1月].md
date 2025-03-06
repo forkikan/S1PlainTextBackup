@@ -14165,3 +14165,318 @@ mygo除了猫猫，其他人应该是一起去小睦家了吧，当然海玲也�
 
 喵睦倒是充满了潜力，喵梦的「爱」在后面剧情肯定要回收的。以后鸡团正式出道这两人能边演戏边演奏live，可以绑定一起成为演艺组负责接节目工单
 
+
+*****
+
+####  岬开斗  
+##### 33848#       发表于 2025-3-7 00:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593525&amp;ptid=2208921" target="_blank">试制甲炮 发表于 2025-3-7 00:32</a>
+转一个知乎的回答，我觉得还是挺有道理的：
+
+作者：magia1</blockquote>
+MyGO：女女关系性。
+Mujica：女女性关系。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 天空塔书记官| + 1|樂|
+
+查看全部评分
+
+*****
+
+####  Lyzers  
+##### 33849#       发表于 2025-3-7 00:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然也不太想再给这坨玩意辩解了，但最现实也最大可能性确实是更上层的大手摁着塞了各种各样的要求，临时改了一堆东西
+
+不然实在太难想象狗当时虽然矫情但确实情理之中意料之外，以小见大的叙事逻辑，会唐突变成鸡现在这种从头到尾充满逻辑断层和说明书式生硬的台词的样子；更重要的是演出，尤其是最近三四集的演出也是肉眼可见的降级到了大学生结课作业水平
+
+*****
+
+####  是谁的书画  
+##### 33850#       发表于 2025-3-7 00:39
+
+连🐧这种人设的也撒丫子跑路，只能说是完全收不回来只能把人都赶走了
+
+不过这片子全员都ooc了，所以其实已经不重要了。
+
+也或许不是全员ooc，反过来应该是观众ooc了，带入了不该带入的前作人设，不对是带入了3分钟前的人设
+
+*****
+
+####  kooler2002  
+##### 33851#       发表于 2025-3-7 00:40
+
+<blockquote>g救世主高达 发表于 2025-3-6 23:18
+初华真是祥子爷爷生的阿？这老头生了个跟自己孙女一样大的女儿？有钱人这么会玩的吗 ...</blockquote>
+我本来不信老头能生孩子，但是一想到ykw我就觉得没什么不可能的。
+
+*****
+
+####  天空塔书记官  
+##### 33852#       发表于 2025-3-7 00:40
+
+老登献给床破的一首情诗是吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+这太maga了，该给老登金卡
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  adretyu67.  
+##### 33853#       发表于 2025-3-7 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593570&amp;ptid=2208921" target="_blank">lolisk 发表于 2025-3-7 00:38</a>
+
+我觉得不会当祥子舔狗，因为你看这集白祥又突变黑祥了，黑祥是用来凑给初华让你嗑初祥的
+
+喵睦倒是充满了 ...</blockquote>
+也不是突变吧。是认清本性了。
+
+无可奈何又被绑回来脆不装了。
+
+你看大祥老师嘴上说着不组，结果还是提前给初华的词作曲了。
+
+*****
+
+####  非建政专用号  
+##### 33854#       发表于 2025-3-7 00:42
+
+wsd这手喂屎够学一辈子的，mygo打窝，1-3装模装样一下，456开始俯冲，留下一定幻想余地，789连续快速突进，第十集直击大便高潮，后面还有三集平淡烂屎
+制作组一套人有兴趣去东映参加假面骑士企划吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  borrowface  
+##### 33855#       发表于 2025-3-7 00:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593552&amp;ptid=2208921" target="_blank">my707776310 发表于 2025-3-7 00:36</a>
+
+小祥这个表情真有人看了能不笑的么</blockquote>
+脑子里不知道想些什么，这种表情我都觉得她其实现在很恶心初华
+
+*****
+
+####  novalli  
+##### 33856#       发表于 2025-3-7 00:43
+
+只有三集，这是不打算解决问题？还是认为问题已经解决了？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  huxiaopao163  
+##### 33857#       发表于 2025-3-7 00:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593525&amp;ptid=2208921" target="_blank">试制甲炮 发表于 2025-3-7 00:32</a>
+
+转一个知乎的回答，我觉得还是挺有道理的：
+
+作者：magia1</blockquote>
+总结一下就是“没有爱就看不见”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+有了爱才能从家具/人偶变成人类，这下真是给海猫的情书了
+
+317f0f4c510fd9f969be3c42632dd42a2934a4fc.jpg
+(371.17 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 00:42 上传
+
+<img src="https://img.saraba1st.com/forum/202503/07/004204afd82ipi83dqgqao.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  wolf1997  
+##### 33858#       发表于 2025-3-7 00:44
+
+Imprisoned XII
+
+作词: Diggy-MO’
+
+作曲: Diggy-MO’ / 松坂康司
+
+ねじれた空を描いて思うの
+
+描绘扭曲的天空，我不禁去遐想
+
+羽根のない君堕ちればいい
+
+愿无羽翼的你，堕临至我身旁
+
+触れてしまった神聖なもの
+
+我无意间触碰了，神圣高洁之物
+
+今夜私の神話になって
+
+只求你在今夜，成为我的神话
+
+ほら逃げられないわ
+
+看吧，你已无路可逃
+
+弱っていく君閉じ込めて
+
+将逐渐虚弱的你，紧紧关住
+
+you know I want ... I want ... I want .… I want you so , I want .
+
+你知道的，我想……我想……我多么想要你……
+
+いなければよかったのに なぜ
+
+若不存在该多好，为何……
+
+you know … you know . you know .… you know I want you to know how much I need you so ,
+
+你知道……你知道……你知道……你知道我多么想要让你知道我有多需要你吗……
+
+いま 狂おしいほど
+
+此刻我如痴如狂
+
+わかってるのでも
+
+我清楚地知晓
+
+いまは密やかに
+
+但现在就悄悄
+
+奇妙な時間をただ君と
+
+只与你共度过这奇妙的时光
+
+冷たいこの手で愛すべきもの
+
+我理葬我所爱，用冰冷的双手
+
+葬る私を受け入れて
+
+只求你能接纳，如此不堪的我
+
+危きこころの壁に
+
+心灵之壁摇摇欲坠
+
+忍ぶは理不尽な夢
+
+残酷梦境暗藏其中
+
+I say , you ' re mine ... you ' re mine ...
+
+我说，你是我的……你是我的……
+
+ほらすぐそこにいるのに
+
+看吧，分明近在咫尺
+
+叶わないそれでも
+
+无法实现，纵使如此
+
+I want .. I want . I want you so , I want
+
+我想……我想……我多么想要你……
+
+想い出なんていらない だから
+
+我不需要回忆，所以
+
+you know you know you know … so , you know I want you to know how much I need you so ,
+
+你知道……你知道……你知道……你知道我多么想要让你知道我有多需要你吗……
+
+いま狂おしいほど
+
+此刻我如痴如狂
+
+
+*****
+
+####  akiomn  
+##### 33859#       发表于 2025-3-7 00:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最操蛋的是根据声优剧透，让祥子成长的是初华，后两集是变态家族线
+现在的黑祥大概率最后也要消失，最后恐怕是圣杯祥了，队友想要什么就给什么
+
+*****
+
+####  cxj649  
+##### 33860#       发表于 2025-3-7 00:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593582&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-7 00:39</a>
+
+连🐧这种人设的也撒丫子跑路，只能说是完全收不回来只能把人都赶走了
+
+不过这片子全员都ooc了，所以其实已经 ...</blockquote>
+去陪大莫了
+
+*****
+
+####  thisisaspider  
+##### 33861#       发表于 2025-3-7 00:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593498&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-3-7 00:28</a>
+
+所以结论是祥子想艹偷摸零
+
+—— 来自 鹅球 v3.3.96</blockquote>
+祥子和灯是柏拉图式恋爱，初中小女生纯洁美好<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ntrntr1  
+##### 33862#       发表于 2025-3-7 00:46
+
+祥子才15岁啊
+
+就算国内上了大学突然爹妈打电话能二胎了给你生了个弟弟妹妹的也不少吧
+
+外加外婆多半和祥妈一样是早早病逝的，老登说不定都不是出轨，虽然对初音的语气多半也对三角母女挺不负责的就是了
+
+*****
+
+####  DeltaStriker  
+##### 33863#       发表于 2025-3-7 00:46
+
+<img src="https://p.sda1.dev/22/65124ee89d20c44396f1a12ccfcc6590/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  wwwttth  
+##### 33864#       发表于 2025-3-7 00:47
+
+<blockquote>聋与唬 发表于 2025-3-6 22:50
+这母鸡卡已经是对海猫的直球情书了，黄金蝶，白梦之茧，音子辈，小姨，双子，大家族乱伦都冒出来了，就差一 ...</blockquote>
+还包括动画烂完
+
+*****
+
+####  小博禹  
+##### 33865#       发表于 2025-3-7 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593626&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-7 00:45</a>
+祥子和灯是柏拉图式恋爱，初中小女生纯洁美好</blockquote>
+虽然我一个木箱厨不想承认，但灯的确是祥子忘不了且随时可能死灰复燃的初恋<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
