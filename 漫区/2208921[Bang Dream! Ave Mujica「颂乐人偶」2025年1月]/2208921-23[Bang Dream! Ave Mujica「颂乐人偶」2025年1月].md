@@ -12474,3 +12474,268 @@ Ob一串字母女士一发力，比三角女士鞠十万次躬都有效
 
 太强了，财阀的大手
 
+
+*****
+
+####  borrowface  
+##### 33681#       发表于 2025-3-6 23:26
+
+求求初华真的囚禁小祥吧，我一定会买avemujica专辑，评分楼+2的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  usodakedo  
+##### 33682#       发表于 2025-3-6 23:26
+
+写烂人或者说写点负面的东西没关系，但问题不是这群人变态，而是变态的豪无魅力，只剩下阴湿女同的性幻想，不如直接拍片
+
+*****
+
+####  聊nsy专用号  
+##### 33683#       发表于 2025-3-6 23:27
+
+初华刚在群里发性压抑小作文里面全是女神我要你，祥子嫌弃她不是太正常了
+
+*****
+
+####  盐盐盐盐盐  
+##### 33684#       发表于 2025-3-6 23:27
+
+又看了一下改正一下我的看法，喵梦说只有am了应该是巧合，不过她的意思是现在她的ptsd只有回am直面睦才能解决，这一下又阴差阳错狠狠捅了祥子一记
+
+莫大概是真的挺喜欢睦的吧，归根结底还是一个人的内心分裂了，不会真的什么a替代b，外界都需要睦的时候她的任务也结束了，哎，水仙
+
+*****
+
+####  sauron.j  
+##### 33685#       发表于 2025-3-6 23:27
+
+这集的文戏把一半摘出去提前用一整集铺垫，观感会上升几倍
+
+那么时间怎么不够了呢？都是大莫的错<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厉飞雨  
+##### 33686#       发表于 2025-3-6 23:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">从企划预期的生命周期来看，我甚至没法理解这剧本怎么被通过的
+
+*****
+
+####  my707776310  
+##### 33687#       发表于 2025-3-6 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592738&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-6 23:20</a>
+
+蚀本和独角兽这群神人真不怕被vo系列的粉丝们痛骂，初音这个名字好出戏呀 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">邦邦会到今天都是日本原神害得,初音?拿来吧你
+
+*****
+
+####  qiyu1234  
+##### 33688#       发表于 2025-3-6 23:29
+
+真想遗臭万年可以尝试结局不包寿司，最终LIVE回 五人也是貌合神离，祥子下了班直接头也不回去找真小姨
+
+当然我觉得剧作者是没有这个胆子的
+
+这么看包寿司大概还不是最坏的发展，不包寿司结局后评价大概率直冲兽娘2
+
+*****
+
+####  my707776310  
+##### 33689#       发表于 2025-3-6 23:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看微博有人说mujica是飞轮海,哈哈哈哈哈哈哈哈哈
+
+*****
+
+####  sauron.j  
+##### 33690#       发表于 2025-3-6 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592576&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-6 23:11</a>
+
+前半部分音乐还比较对我胃口，初华说母鸡卡开始后这风格让我还是不由得皱起眉头 ...</blockquote>
+饺子没包完情绪上比较克制，你看五个人都眉头紧锁的还没放开姿态
+
+
+*****
+
+####  戏谑二次元  
+##### 33691#       发表于 2025-3-6 23:30
+
+讲道理，想到祥子要对着一整篇写着祥子我要艹尼歌词作曲，是在太敬业，太难绷了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DeltaStriker  
+##### 33692#       发表于 2025-3-6 23:30
+
+<img src="https://p.sda1.dev/22/92183160cc216dd5e0521b0d717c2c73/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 天空塔书记官| + 1|好图🇰🇷了|
+
+查看全部评分
+
+*****
+
+####  YF31  
+##### 33693#       发表于 2025-3-6 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592541&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-6 23:09</a>
+
+我覺得我接受不了跟祥/ 和解
+
+這集的行為根本不是人</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别怕，有柿出在，包有弹药的，不想和解可以再刷一遍访谈。
+
+*****
+
+####  航母掉头  
+##### 33694#       发表于 2025-3-6 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592840&amp;ptid=2208921" target="_blank">盐盐盐盐盐 发表于 2025-3-6 23:27</a>
+
+又看了一下改正一下我的看法，喵梦说只有am了应该是巧合，不过她的意思是现在她的ptsd只有回am直面睦才能解 ...</blockquote>
+就睦头人最后祥卫兵那样子，不如大莫老师可爱远甚
+
+*****
+
+####  6030sylar  
+##### 33695#       发表于 2025-3-6 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592717&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-3-6 23:19</a>
+
+我觉得这一集是十本对懂王的情书，这是我第一次看到这么明确的厌恶表情，在一个主角身上，少年漫主角看最 ...</blockquote>
+崆峒的眼神
+
+“这个唱歌的女同好恶心，等下会不会来雷普我”
+
+*****
+
+####  雪霜  
+##### 33696#       发表于 2025-3-6 23:31
+
+睦死了除了素食没人在意是吧，还有莫演奏时是不是假弹？
+
+*****
+
+####  琉璃苑軒風  
+##### 33697#       发表于 2025-3-6 23:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">其他集甚至有能重复看的，但是第七集和现在的第十集，我是一点想法都没了
+
+*****
+
+####  fsfs_freeze  
+##### 33698#       发表于 2025-3-6 23:32
+
+本集甚至完全没有任何能讨论的点，所有相关评论都能归集于wsd和柿本的司马制作上
+
+*****
+
+####  你听得到  
+##### 33699#       发表于 2025-3-6 23:32
+
+造孽啊，初华太惨了
+
+*****
+
+####  zhzij111  
+##### 33700#       发表于 2025-3-6 23:33
+
+这集真得3倍速观看吧。
+
+牢祥就从了姨姨吧，再扣不到侄女她就要疯掉了<img src="https://static.saraba1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  厄神之息  
+##### 33701#       发表于 2025-3-6 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592633&amp;ptid=2208921" target="_blank">modkingr 发表于 2025-3-6 23:14</a>
+
+不需要和解
+
+这集已经讲得很明白了 母鸡卡的团魂就是五个烂人互相折磨 也就喵梦所谓soulmate强制爱 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">原来和go的方向相反是这么个意思吗？go是五个好人即使迷茫也互相搀扶走下去；鸡是五个神人即使互相憎恶也要绑在一起彼此纠缠折磨是吗？天堂乐队卖狗和地狱乐队母鸡卡，好像有点合理哦。
+
+*****
+
+####  ntrntr1  
+##### 33702#       发表于 2025-3-6 23:33
+
+这集倒是真情实感的嗑了口素墨/睦
+
+素妈妈带一个傻小鬼一个自闭症还蛮萌的
+
+可惜墨睦都没了感觉
+
+剩下的估计是个纯纯祥子舔狗二号了估计，丰川承太郎小岛游泳追妻还会主动递泳圈那种
+
+*****
+
+####  猫执事  
+##### 33703#       发表于 2025-3-6 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592810&amp;ptid=2208921" target="_blank">蓮華 发表于 2025-3-6 23:24</a>
+
+我寻思这个三角初音是不是在那段同居日子里已经姦过大祥了，所以大祥才这么对她深恶痛绝，初音时时刻刻担心 ...</blockquote>
+合理的解释是大祥难道已在同居期间经察觉到她是冒牌货了。但剧情太烂了，一点描写都没有。
+
+*****
+
+####  草化木  
+##### 33704#       发表于 2025-3-6 23:34
+
+这也能叫饺子么，我请问了。
+
+之前给剧情找补的楼友还能说话不？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  盐盐盐盐盐  
+##### 33705#       发表于 2025-3-6 23:34
+
+<blockquote>雪霜 发表于 2025-3-6 23:31
+睦死了除了素食没人在意是吧，还有莫演奏时是不是假弹？</blockquote>
+莫是假弹，开始真弹后给了一个后台把她吉他音量推上去的特写
+
+莫在那光明正大假弹原来你们livehouse也不管啊（
+
+*****
+
+####  天空塔书记官  
+##### 33706#       发表于 2025-3-6 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592822&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-6 23:25</a>
+遗臭万年也是一种带进坟墓的办法</blockquote>
+社会性死亡也是一种死亡<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 33707#       发表于 2025-3-6 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592835&amp;ptid=2208921" target="_blank">usodakedo 发表于 2025-3-6 23:26</a>
+
+写烂人或者说写点负面的东西没关系，但问题不是这群人变态，而是变态的豪无魅力，只剩下阴湿女同的性幻想， ...</blockquote>
+感觉五个大瞄进行推动剧情，也比这五个人好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

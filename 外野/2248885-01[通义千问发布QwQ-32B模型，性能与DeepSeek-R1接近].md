@@ -994,3 +994,16 @@ win ollama+i5-13600kf+4080+内存24*2</blockquote>
 
 导入gguf究竟要不要手动配置模板什么的？
 
+
+*****
+
+####  处男老司机  
+##### 66#       发表于 2025-3-6 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67589342&amp;ptid=2248885" target="_blank">moekyo 发表于 2025-3-6 18:43</a>
+
+混元</blockquote>
+已经被痛批为路边一条🐕了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+倒也不是很差，如果和文生视频一起出来足够火上几个月，但既然跳票了几个月现在才拿出来就免不了大家拿去和万象比了
+
