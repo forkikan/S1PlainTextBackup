@@ -122,3 +122,13 @@
 
 <img src="https://p.sda1.dev/22/b2686042fa97755c2b3a6e090d407ed5/QQ图片20250305153527.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViyViy  
+##### 1530#       发表于 2025-3-6 08:46
+
+这次OP是大会曲之一，已经天然占了一个歌服位，三期也没那么不堪可以多放点拖时间换衣服，加之也没CDCW那种无论是设计还是露出度都out的衣服
+
+这次六巡总不能还有歌服是当“等等党”的吧<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
