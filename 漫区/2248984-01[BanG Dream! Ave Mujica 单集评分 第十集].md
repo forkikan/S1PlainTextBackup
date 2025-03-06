@@ -2257,3 +2257,13 @@ live做得越好看完越气
 
 看见满地的初音，我就知道这片没有未来了<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卫星露天咖啡屋  
+##### 259#       发表于 2025-3-7 06:54
+
+-2 这个制作团队到底是怎么创作出mygo的，我开始怀疑世界上有mygo这个作品是我的幻觉了<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
