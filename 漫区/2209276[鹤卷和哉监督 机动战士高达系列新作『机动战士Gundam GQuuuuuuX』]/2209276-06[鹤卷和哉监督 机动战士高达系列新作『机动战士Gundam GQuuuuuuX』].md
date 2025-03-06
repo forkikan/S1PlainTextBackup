@@ -8320,3 +8320,40 @@ GQ世界线吉翁的大家应该都不知道鸭子是萝莉控</blockquote>
 
 突然想起来gqx这个85的新锐高达前面顶着I力场盾直接撞的话，红高达确实拿它没办法啊，推力和硬度都不如别人纯纯被俘虏完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gamedreamer  
+##### 8081#       发表于 2025-3-6 15:46
+
+参考79骡就知道其实是很绝望的那种感觉，越杀人越觉得麻木，不知道为了什么战斗，最后才发现原来自己其实一直有一个可以回去的地方，“没有比这再高兴的事情了”
+但是鸭妹这次好像连回去的地方都没有了<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  Gaybird  
+##### 8082#       发表于 2025-3-6 15:53
+
+鸭妹<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">阿姆罗的白色恶魔称号是敌方视角下的恐怖杀人魔，轮到if线的鸭妹，可能真的从处境到心境都仿若在地狱里了
+
+*****
+
+####  刺客ares  
+##### 8083#       发表于 2025-3-6 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67587662&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-3-6 15:26</a>
+
+突然想起来gqx这个85的新锐高达前面顶着I力场盾直接撞的话，红高达确实拿它没办法啊，推力和硬度都不如别人 ...</blockquote>
+GQX的大口径光束步枪一枪没开就被打飞了
+
+飞走的时候是完好的，后续索冬方也没有回收，目前应该还在小行星带里飘着呢
+
+可能玛秋会去拿吧，主视图上是有这把枪的
+
+红高达两次和GQX拼推力（宙域被推进side6）（side6内被撞飞）都输了，可以看出机能是真的不如GQX
+
+能在场面上压制GQX真是纯靠驾驶员能力<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
