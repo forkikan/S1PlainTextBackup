@@ -443,3 +443,29 @@ QwQ 32b早就有了，比deepseek r1还早吧。这是模型更新了？
 
 这次算正式版。
 
+
+*****
+
+####  流缨  
+##### 44#       发表于 2025-3-6 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67585427&amp;ptid=2248885" target="_blank">overflowal 发表于 2025-3-6 10:37</a>
+
+就这个参数量，看来全都点到数学和编程上了，benchmark刷高点很正常。
+
+Deepseek好像不太喜欢刷，他们估计想 ...</blockquote>
+是的，路边社消息就是预计到5月才有下一版本，但是估计如果变化不大也不会搞公开发布
+
+
+*****
+
+####  处男老司机  
+##### 45#       发表于 2025-3-6 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67585959&amp;ptid=2248885" target="_blank">neptunehs 发表于 2025-3-6 11:40</a>
+
+怎么解决的手脚触手化的？
+
+虽然身体什么的没问题动作也不是说不能色起来 但就是老是手脚突然变成触手。。 ...</blockquote>
+是不是生成步数太少了？想要效果过得去至少20起步，而且采样器最好选dpm++
+
