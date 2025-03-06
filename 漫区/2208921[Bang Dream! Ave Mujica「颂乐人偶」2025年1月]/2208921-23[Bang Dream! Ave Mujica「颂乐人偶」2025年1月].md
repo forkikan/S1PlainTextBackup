@@ -8998,3 +8998,41 @@ md，屎本这访谈给我看吐了，不愧是最大的战犯<img src="https://
 最邦多利的角色说这种话吗
 <img src="https://p.sda1.dev/22/e1bb2d6ca594174190dde66240e0b0b7/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AveMujica  
+##### 33326#         楼主| 发表于 2025-3-6 20:25
+
+几年前有个对星二的评价，我觉得可以挪用到母鸡卡上来：反人类粪作
+
+*****
+
+####  天空塔书记官  
+##### 33327#       发表于 2025-3-6 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67589944&amp;ptid=2208921" target="_blank">HereLink 发表于 2025-3-6 20:03</a>
+真要考据学校吗，那YSL的联名怎么说呢😂😂
+
+🍅是怎么做到写勤奋上进又说才能，又参加吃辣挑战又联名国际品 ...</blockquote>
+考据学校是因为这学校不止她一个bang乐队成员，RAS的主唱就是她同校前辈
+
+而且在第三集时早就考据完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  一心而用  
+##### 33328#       发表于 2025-3-6 20:27
+
+不管动画，看免费live了。<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/b2c3d9f707878cc804d3202f32e5962c/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 33329#       发表于 2025-3-6 20:28
+
+马上结束嘞，就一个小时
+

@@ -1138,3 +1138,14 @@ DNF ...</blockquote>
 
 2025-3-5 12:48 上传
 
+
+*****
+
+####  慕容复  
+##### 91#       发表于 2025-3-6 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67578906&amp;ptid=2071758" target="_blank">ztkong 发表于 2025-3-5 12:48</a>
+
+是的，而且雇佣的SR驾驶员能力不强，主要作用就是为了打Z高达的主线，必须上一队人的时候补位。</blockquote>
+请教一下，这张图我看234号位置从机体到驾驶员都是Z高达的单位啊，怎么都不可出击？
+
