@@ -7810,3 +7810,27 @@ MyGO的故事其实只有10+1话，这也是制作组边做边改结果故事收
 <img src="https://p.sda1.dev/22/0eaf5339fe6725bc40db28d93196a107/88885f8cgy1hz72nijnysj20vb0sjdj3.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/22/2b82ccb9e0255d413d61f373e0cba85c/88885f8cgy1hz72nix4d0j20vb0u4n0x.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一心而用  
+##### 33226#       发表于 2025-3-6 15:43
+
+作者：-slms-
+<img src="https://s3.bmp.ovh/imgs/2025/03/06/11a7834f04bf9b73.jpg" referrerpolicy="no-referrer">
+<img src="https://s3.bmp.ovh/imgs/2025/03/06/efa81e5076eb22a8.jpg" referrerpolicy="no-referrer">
+<img src="https://s3.bmp.ovh/imgs/2025/03/06/8e8b9ade92d78faa.jpg" referrerpolicy="no-referrer">
+<img src="https://s3.bmp.ovh/imgs/2025/03/06/977e025c7fce67ed.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  sauron.j  
+##### 33227#       发表于 2025-3-6 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67587716&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-3-6 15:32</a>
+
+MyGO的故事其实只有10+1话，这也是制作组边做边改结果故事收尾比预期快了，才有机会把后2话用来讲mujica结 ...</blockquote>
+因为mygo现在的成品是剔除了原案中鸡团本应有的戏份的结果
+
+睦祥在go存在感这么高、立希乐奈的刻画不足 某种程度上也算是废案痕迹，后者如果在10人共进的故事里不会显得太突兀，但单独切割成一季造成了偏袒感
+
