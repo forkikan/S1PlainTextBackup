@@ -1068,3 +1068,11 @@ win ollama+i5-13600kf+4080+内存24*2</blockquote>
 写文……我翻了一圈我手头的，没个正经题材的
 还得多测试
 
+
+*****
+
+####  lokiling  
+##### 73#       发表于 2025-3-7 02:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">跑了会酒馆，感觉同时带着点R1的癫和V3的傻，但写出来的东西好歹能看，比之前那些32B的蒸馏模型强倒是
+

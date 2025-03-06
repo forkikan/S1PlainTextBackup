@@ -156,3 +156,14 @@ xbox 版的雷不是意义不明的 3d 吗？
 
 never7第二天夜晚突然画风一转成恐怖片了。久留美一撅屁股我就知道她要放什么屁，太典了。这部应该没有jump scare吧，打越不至于用那么低级的手法吓玩家吧。
 
+
+*****
+
+####  nozomitech  
+##### 127#       发表于 2025-3-7 02:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592016&amp;ptid=2208135" target="_blank">空洞骑士 发表于 2025-3-6 15:42</a>
+
+never7第二天夜晚突然画风一转成恐怖片了。久留美一撅屁股我就知道她要放什么屁，太典了。这部应该没有jump ...</blockquote>
+好几年前玩通的，我印象里是没有的
+
