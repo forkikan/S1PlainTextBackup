@@ -1076,3 +1076,13 @@ win ollama+i5-13600kf+4080+内存24*2</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">跑了会酒馆，感觉同时带着点R1的癫和V3的傻，但写出来的东西好歹能看，比之前那些32B的蒸馏模型强倒是
 
+
+*****
+
+####  吃人不吐葡萄  
+##### 74#       发表于 2025-3-7 04:10
+
+只能说全面领先 R1 32B 蒸馏
+
+但是拆字题还是做不对
+
