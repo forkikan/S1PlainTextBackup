@@ -147,3 +147,13 @@
 
 狂黑鸭那个池子是不是能抽到嘲讽礼装？
 
+
+*****
+
+####  khxooo  
+##### 47050#       发表于 2025-3-7 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67599559&amp;ptid=1712412" target="_blank">snakeling 发表于 2025-3-7 16:36</a>
+狂黑鸭那个池子是不是能抽到嘲讽礼装？</blockquote>
+旧剑那个池子才有
+

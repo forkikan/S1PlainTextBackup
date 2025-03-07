@@ -582,3 +582,53 @@ BG3.jpg
 
 <img src="https://img.saraba1st.com/forum/202503/07/163043t9nzy2myr0ndz5mr.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  moonblackwh  
+##### 56#       发表于 2025-3-7 16:35
+
+又幻想了，唉，幻想黑曜石不再沉迷多开小品作选择梭哈，结果新作惊天大爆，网状叙事精彩故事，对话文本充满哲思，玩法丰富系统深奥，画面美术惊为天人，贝塞斯达拼尽全力无法战胜，斯宾塞大手一挥把杯赛划成了黑曜石的子公司
+
+*****
+
+####  Bieaeml  
+##### 57#       发表于 2025-3-7 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67599485&amp;ptid=2248961" target="_blank">ultraseven 发表于 2025-3-7 16:29</a>
+
+BG3抢先体验20年10月出来的，泄露的邮件来自于22年5月的。如果非要说5百万就是微软认为BG3的开发成本那我 ...</blockquote>
+典型的开始改口开发成本，我原话说的是第三方首发XGP的预期成本，你给洗地500W美元是纯移植成本，合着别家还能按照IP以及以往作品额外来点，到了BG3这边20年EA都摸出100W份的作品，你就出个500W移植钱赏拉瑞安是吧。
+
+
+*****
+
+####  Bieaeml  
+##### 58#       发表于 2025-3-7 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67599558&amp;ptid=2248961" target="_blank">moonblackwh 发表于 2025-3-7 16:35</a>
+
+又幻想了，唉，幻想黑曜石不再沉迷多开小品作选择梭哈，结果新作惊天大爆，网状叙事精彩故事，对话文本充满 ...</blockquote>
+梭哈十有八九褒姒，又不是没干过，不如现在这样继续混，而且黑曜石乃至猫头猫这样的中小厂我情愿各自走各自的路子，而不是一把输光回家。当然微软草台那就是另一码事了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古代人皮克  
+##### 59#       发表于 2025-3-7 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67599503&amp;ptid=2248961" target="_blank">Bieaeml 发表于 2025-3-7 16:31</a>
+突然想起还有这张图，毕竟500W美元只是移植钱，都是微软眼光毒辣的赏赐机会 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">有没有可能花大钱买一个卖了一段时间现金流良好的的游戏和订阅制是相冲突的呢
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ultraseven  
+##### 60#       发表于 2025-3-7 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67599190&amp;ptid=2248961" target="_blank">BRAVADO 发表于 2025-3-7 16:03</a>
+
+grounded也是只需20人维护的长青服务型游戏:)</blockquote>
+Grounded已经确定没大更新了，地平线和盗贼之海都还不断有新赛季内容。从Steam同时在线人数也可以看出，后两者日常破万，Grounded就几千。
+
