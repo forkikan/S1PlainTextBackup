@@ -2285,3 +2285,13 @@ live好看加分，不然就-2了
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  吴怀在  
+##### 262#       发表于 2025-3-7 08:05
+
+我还以为这集评价会很高<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+不能娶的职业又多了一种：组过乐队的！
+

@@ -16068,3 +16068,57 @@ mujica动画现在已经到了一种为了推进情节，完全不在乎角色�
 
 这一话的脚本真的可以拿去拍av吧，写小黄歌xsr祥子的小姨终于还是.....<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  哩子ayil  
+##### 34004#       发表于 2025-3-7 07:59
+
+又溜了两遍live，再怎么沦为乐子人看乐，想起开播前的期待还是流泪
+
+银河战舰……我的银河战舰……
+
+*****
+
+####  swessia  
+##### 34005#       发表于 2025-3-7 08:01
+
+这集喵睦我竟然没有觉得吃屎
+
+我对木子米的爱也已经消失了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  cscbzcbz  
+##### 34006#       发表于 2025-3-7 08:02
+
+真就海猫精神续作呗，又是多重人格，又是海岛，又是小姨子
+我懂了编剧和龙骑士07也是soulmate<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卡卡布鲁根  
+##### 34007#       发表于 2025-3-7 08:03
+
+代入老登
+我女儿怎么天天想着艹我外孙女啊
+太绝望了
+
+—— 来自 vivo V2307A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Ferrari  
+##### 34008#       发表于 2025-3-7 08:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67594509&amp;ptid=2208921" target="_blank">哩子ayil 发表于 2025-3-7 07:59</a>
+又溜了两遍live，再怎么沦为乐子人看乐，想起开播前的期待还是流泪
+
+银河战舰……我的银河战舰…… ...</blockquote>
+银河战舰3话拆散，4-9话都在卖废铁，已经卖到全球各处都把铁融了造锅碗瓢盆了
+然后大祥老师突然人格觉醒发动大召唤术和时间操控，所有的零件复原半集就把战舰拼回来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+你说这15年未有，我看500年都未有
+
