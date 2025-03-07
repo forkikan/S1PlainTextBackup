@@ -2487,3 +2487,11 @@ lz可否加个看结果选项，我为了看结果投了好几期0
 
 太变态了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hyde_caesar  
+##### 283#       发表于 2025-3-7 10:27
+
+终于唱歌了但是唱得什么X压抑神曲+0, soulmate害我笑了一下+1
+
