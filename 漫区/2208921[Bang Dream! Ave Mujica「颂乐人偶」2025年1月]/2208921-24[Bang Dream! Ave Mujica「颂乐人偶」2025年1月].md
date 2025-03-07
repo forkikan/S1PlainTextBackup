@@ -266,3 +266,78 @@ mggm什么都能炒，又不是第一天了<img src="https://static.saraba1st.co
 不过按死海文书记载，严格说初音和丰川家确实没关系吧，老登的私生女是初华，初音是初华妈妈和其他人生的， ...</blockquote>
 你好像记反了，初音才是私生女<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  浅仓透透  
+##### 34065#       发表于 2025-3-7 10:08
+
+疯狂吧，毁灭吧！
+
+*****
+
+####  ape-apple  
+##### 34066#       发表于 2025-3-7 10:10
+
+战吧这种群体一个意识，集体传播的力量太大了，对全体社区影响也全是负面的，这次不炸也早晚得炸
+
+*****
+
+####  qratosones1337  
+##### 34067#       发表于 2025-3-7 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67594112&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-3-7 02:22</a>
+
+妈的初华的脾气真的太好了，抢手机能忍，强拉到豪宅里还能忍啊</blockquote>
+所以这集这么多槽点为啥你们非得纠结这个……
+
+去豪宅之前上一个镜头是大喵问初华“你想组Mujica吧？”显然初华想艹大祥想疯了，这时候根本没可能回答“不想”，所以就顺势被拉着去了呗。
+
+
+*****
+
+####  Yugao  
+##### 34068#       发表于 2025-3-7 10:14
+
+想必祥子也是在公寓阁楼里被初华qj了才会留下一封信跑路吧
+
+*****
+
+####  虚无缥缈的分身  
+##### 34069#       发表于 2025-3-7 10:15
+
+祥子应该早就觉得初音不对劲了吧，但是到这集才确定了其真实身份应该是
+
+*****
+
+####  南宮凝香  
+##### 34070#       发表于 2025-3-7 10:15
+
+大喵重組了母雞卡
+
+你叫初音給她磕一個她能磕三個
+
+*****
+
+####  YF31  
+##### 34071#       发表于 2025-3-7 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67595547&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-3-7 10:11</a>
+
+所以这集这么多槽点为啥你们非得纠结这个……
+
+去豪宅之前上一个镜头是大喵问初华“你想组Mujica吧？”显 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">一般来说我们把这种行为叫做二皮脸，正常人一般都会对二皮脸绷不住。
+
+柿畜觉得二皮脸没问题是柿畜的事，老中观众觉得二皮脸能行那真的要开始查询13亿朴素价值观了。
+
+*****
+
+####  adretyu67.  
+##### 34072#       发表于 2025-3-7 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67595257&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-3-7 09:42</a></blockquote>
+监禁12讲的就是鸡动画开始初华邀请祥子来自己家住。
+
+只能说这么整也没艹上快把自己憋疯了也是有点搞了。
+

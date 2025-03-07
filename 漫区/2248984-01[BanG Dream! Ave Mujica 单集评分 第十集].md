@@ -2470,3 +2470,20 @@ lz可否加个看结果选项，我为了看结果投了好几期0
 
 这玩意儿越发变态了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nnsgwhs  
+##### 281#       发表于 2025-3-7 10:14
+
+-1 台词一句也看不懂歌也无感-2，soulmate初音好笑+1
+
+*****
+
+####  hac0101  
+##### 282#       发表于 2025-3-7 10:15
+
++2
+
+太变态了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

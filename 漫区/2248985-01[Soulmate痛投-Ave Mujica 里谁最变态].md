@@ -620,3 +620,18 @@ mygo里看春日影哭着跑出去的时候给初华打的电话吧，我感觉�
 
 我觉得还是我比较变态，可能是因为刚玩完一个游戏的原因我脑子里自适应编了一集结局后的DLC，不敢发出来
 
+
+*****
+
+####  hac0101  
+##### 63#       发表于 2025-3-7 10:16
+
+「正常人组什么乐队」<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  红鲤鱼与黑化肥  
+##### 64#       发表于 2025-3-7 10:16
+
+别急，还没完结<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">相信本片三分钟就能整一个更变态的
+
