@@ -900,3 +900,18 @@ POE里笨重大锤圣武士角色进行完一轮整轮施法的时候，高敏�
 
 2025-3-7 22:10 上传
 
+
+*****
+
+####  Bieaeml  
+##### 80#       发表于 2025-3-7 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67602487&amp;ptid=2248961" target="_blank">D-JoeII 发表于 2025-3-7 22:10</a>
+
+你懂Second-run是什麼意思就知為啥是500萬
+
+不懂的話拉瑞安的Very afk會告訴你
+
+ ...</blockquote>
+如果你真的明白他为啥要说 ain't defending shit，你也不会回我经典的”我来考考你这是什么意思“，尤其在本贴我没有任何一次对Second-run做翻译的前提下<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
