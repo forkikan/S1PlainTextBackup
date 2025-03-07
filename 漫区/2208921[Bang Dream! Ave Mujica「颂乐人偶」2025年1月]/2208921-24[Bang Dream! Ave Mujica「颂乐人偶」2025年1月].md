@@ -3062,3 +3062,142 @@ deepseekV3，现在速度好起来了，不过还是避免不了敏感词的问�
 
 “斗财阀”一直是假命题，不如说，老登到现在为止是 反派 吗233
 
+
+*****
+
+####  哩子ayil  
+##### 34320#       发表于 2025-3-7 16:48
+
+边斗边开live吧，只要有live什么都好说（我又幻想了）
+
+
+*****
+
+####  滑稽Captain  
+##### 34321#       发表于 2025-3-7 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67599638&amp;ptid=2208921" target="_blank">AshPenguin 发表于 2025-3-7 16:42</a>
+
+假设是柿本引入了双重人格的烂活，这个设定直接推动了4到10集的几乎所有剧情。再假设后面几集比较接近绫奈 ...</blockquote>
+就是因为在初稿阶段里实在在这个框架下想不出来怎么炸团，所以才搞了双重人格来炸
+
+*****
+
+####  一心而用  
+##### 34322#       发表于 2025-3-7 16:49
+
+【官方中字】『BanG Dream! Ave Mujica -manuscriptus-』第6话
+<img src="https://p.sda1.dev/22/a0689cba07ea586f27dd5fa690f7d200/1.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/cba189b2d7fe003e751cbe109de7cca8/2.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/bed45580bd3a2b9e9d69f27ff1f37f06/3.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/dbac7339e6cad7be90d7c3c2ca1c0dfd/4.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/46f4547a3658f87d67d76cf02e58b88a/5.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/d42fc670ac56094472eddfcf0041f109/6.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/87e70e5caa11c563cdf69a17ad3093e4/7.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/898605ff2a82f76ddcd911bdb0407271/8.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/2d5c2977887444bd6f82329757a847a2/9.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 34323#       发表于 2025-3-7 16:49
+
+斗啥了斗，私下开live收门票老登都没说啥，只是让初音滚回老家，仁至义尽了好吧。。
+
+反正只要祥子开口，老登总会放弃的不是么，又不是四宫辉夜。
+
+*****
+
+####  一心而用  
+##### 34324#       发表于 2025-3-7 16:52
+
+此事在飞轮海已有记载
+
+NK%FU)}OOXTCQFX@C]H@5K7.jpg
+(127.54 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 16:52 上传
+
+<img src="https://img.saraba1st.com/forum/202503/07/165202h1115mmww30bb7z8.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 34325#       发表于 2025-3-7 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67599725&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-3-7 16:49</a>
+
+斗啥了斗，私下开live收门票老登都没说啥，只是让初音滚回老家，仁至义尽了好吧。。
+
+反正只要祥子开口，老 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">不知道为啥老钟观众的所谓的 斗财阀 是不是 大赤老师PTSD啊
+
+*****
+
+####  AshPenguin  
+##### 34326#       发表于 2025-3-7 16:53
+
+现在确实没斗，只是在臆想独角兽的原稿里是怎么推动剧情矛盾的，是不是因为财阀的大手才炸团的
+
+除此以外也没想到什么好法子
+
+*****
+
+####  6030sylar  
+##### 34327#       发表于 2025-3-7 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67599704&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-3-7 16:47</a>
+“斗财阀”一直是假命题，不如说，老登到现在为止是 反派 吗233</blockquote>
+之前不算，这集最后老登算是第一个反对组乐队的家长？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  ads147147  
+##### 34328#       发表于 2025-3-7 16:53
+
+说起来，祥子写曲子还说考虑到初华填词的时间，所以要先把曲子写好。
+
+但是实际上，完全可以由初华先把词写完，祥子再把曲子补上，效果是一样的，so初华就是沉迷在祥子在自家阁楼上的温柔乡里不能自拔，如果真要给祥子分忧应该自己早点把词写了就行了，所以说母鸡卡这个战舰真的是一开始就破破烂烂，能看到武道馆真的很不容易了。。
+
+
+*****
+
+####  cxj649  
+##### 34329#       发表于 2025-3-7 16:55
+
+ 本帖最后由 cxj649 于 2025-3-7 16:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67599780&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-3-7 16:53</a>
+
+之前不算，这集最后老登算是第一个反对组乐队的家长？
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">老登不是反对组，是母鸡卡让孙女不开心
+
+别忘了第一次组老登也是同意的，第二次也是至少同意组一场
+
+*****
+
+####  adretyu67.  
+##### 34330#       发表于 2025-3-7 16:56
+
+ 本帖最后由 adretyu67. 于 2025-3-7 16:57 编辑 
+
+初华不都是先等大祥供曲吗。
+
+自己一出手就是imprisoned xii<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+想了下，鸡团1.0这个创作模式是和正常团反过来的？正常要么先词后曲，要么词曲同步。
+
+*****
+
+####  油画布  
+##### 34331#       发表于 2025-3-7 16:57
+
+<blockquote>AshPenguin 发表于 2025-3-7 16:42
+假设是柿本引入了双重人格的烂活，这个设定直接推动了4到10集的几乎所有剧情。再假设后面几集比较接近绫奈 ...</blockquote>
+财阀反派至少是个现实的能让观众感到紧迫紧张的推力，睦这几集的人格分裂推动炸团，推动c团复合（未遂），推动祥子忏悔，又推动鸡团复合，没一件事做的能让人信服，说到底正常人常识就是人格分裂就应该去看医院，搞乐队救不了
+

@@ -632,3 +632,36 @@ BG3抢先体验20年10月出来的，泄露的邮件来自于22年5月的。如�
 grounded也是只需20人维护的长青服务型游戏:)</blockquote>
 Grounded已经确定没大更新了，地平线和盗贼之海都还不断有新赛季内容。从Steam同时在线人数也可以看出，后两者日常破万，Grounded就几千。
 
+
+*****
+
+####  Bieaeml  
+##### 61#       发表于 2025-3-7 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67599650&amp;ptid=2248961" target="_blank">古代人皮克 发表于 2025-3-7 16:43</a>
+
+有没有可能花大钱买一个卖了一段时间现金流良好的的游戏和订阅制是相冲突的呢
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+你要说那也是微软自己这么写了，写就写了还给个500W美元，更别提表格里有的是虚高的报价
+
+1.png
+(34.18 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 16:50 上传
+
+<img src="https://img.saraba1st.com/forum/202503/07/165030g116x7xffc2v8u1x.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  古代人皮克  
+##### 62#       发表于 2025-3-7 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67599731&amp;ptid=2248961" target="_blank">Bieaeml 发表于 2025-3-7 16:49</a>
+
+你要说那也是微软自己这么写了，写就写了还给个500W美元，更别提表格里有的是虚高的报价 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说有人灌了迷魂汤把这玩意理解成satdia护航大作，然后按这个逻辑按死了，不然怎么说也是两个月两百万的游戏。
+
