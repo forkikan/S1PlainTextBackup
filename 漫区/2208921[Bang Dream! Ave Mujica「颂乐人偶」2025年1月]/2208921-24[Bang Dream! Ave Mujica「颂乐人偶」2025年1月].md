@@ -4254,3 +4254,40 @@ MV画得真丑，这跑楼梯对标栞吧
 
 这歌换个性别直接可以报警的**犯犯罪宣言，你还真给他配个诱拐**现场的MV啊
 
+
+*****
+
+####  zhoujin8584  
+##### 34431#       发表于 2025-3-7 19:54
+
+<blockquote>6030sylar 发表于 2025-3-7 16:53
+之前不算，这集最后老登算是第一个反对组乐队的家长？
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+老登出场的时机明明是你组乐队我不管，别跟我的私生女离家出走了又
+
+*****
+
+####  6030sylar  
+##### 34432#       发表于 2025-3-7 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67601400&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-7 19:54</a>
+
+老登出场的时机明明是你组乐队我不管，别跟我的私生女离家出走了又</blockquote>
+也对，时机很重要
+
+
+*****
+
+####  cayon  
+##### 34433#       发表于 2025-3-7 20:00
+
+诶，鸟笼，诶，国家队
+
+*****
+
+####  烂片雷达  
+##### 34434#       发表于 2025-3-7 20:03
+
+离史上最狂只剩一个女女雷普了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
