@@ -1563,3 +1563,86 @@ mortis的演技并非不值一提，喵梦说的是:很像，简直完美，真�
 再看一眼梦以的话</blockquote>
 太震撼了，堪比看完八王之乱、五胡乱华之后，忍不住回头重看三国。
 
+
+*****
+
+####  6030sylar  
+##### 34183#       发表于 2025-3-7 12:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">22年公布mygo人设的时候，我还说这么成人化的人设不如进DJ
+
+*****
+
+####  Lyzers  
+##### 34184#       发表于 2025-3-7 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67597079&amp;ptid=2208921" target="_blank">烂片雷达 发表于 2025-3-7 12:25</a>
+
+这片和狗血晚8点档的唯一区别就是角色间没有性关系
+
+不是我说，这片要加点性关系进去逻辑绝对会通畅很多 ...</blockquote>
+你说如果是R16甚至R18的韩式乐队对抗财团，那至少感官刺激拉满是吧
+
+女人吵架打耳光，推下楼爆番茄酱，女同互抠解压，老登找小岛妹造私生女，都端上来吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ntrntr1  
+##### 34185#       发表于 2025-3-7 12:38
+
+好像最近有个女铜韩剧挺火的就是我没看
+
+有空批判下是否更有o张力
+
+*****
+
+####  adretyu67.  
+##### 34186#       发表于 2025-3-7 12:39
+
+狗13时候鸡团意气风发踏上舞台。
+
+谁能想到鸡动画里鸡团成了这么个鬼样子。
+
+但是鸡10话live里我感觉doloris女士的动作和表情比之前live丰富了很多。
+
+不知道该怎么形容心情或者说想法。
+
+
+*****
+
+####  钦念以忱  
+##### 34187#       发表于 2025-3-7 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67596628&amp;ptid=2208921" target="_blank">AlterDialog 发表于 2025-3-7 11:42</a>
+
+这里小墨又没在表演……</blockquote>
+就是表演，前期小墨只会表演，所以4话解散的时候，她直接卡壳说不出话了，后来逐渐获得独立人格之后才能讲些真正想说的话，反倒表演水平下降了。
+
+*****
+
+####  南宮凝香  
+##### 34188#       发表于 2025-3-7 12:43
+
+<blockquote>adretyu67. 发表于 2025-3-7 12:34
+借睦头家地下室排练了一周吧。
+
+下面1213话live就看老团们出多少人来支援了。
+</blockquote>
+不找老團來已經是柿本對邦邦最後的溫柔
+
+你能想像到台上在假彈
+
+台下高祖被按頭出感動面嗎？
+
+*****
+
+####  adretyu67.  
+##### 34189#       发表于 2025-3-7 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67597275&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-7 12:43</a>
+
+不找老團來已經是柿本對邦邦最後的溫柔
+
+你能想像到台上在假彈</blockquote>
+以后应该不会假弹了吧<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">，毕竟都融合了
+
