@@ -3943,3 +3943,29 @@ NGA全集舅舅的最后一舞 <blockquote>客观：李子尽力，有独角兽�
 
 一款许愿机型乐队暴君。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  钦念以忱  
+##### 34400#       发表于 2025-3-7 18:55
+
+这集睦墨的终局故事，内心小剧场戏，拍的还不错，不考虑前因后果铺垫的话。
+
+所以为啥上一集的吉他睦死亡场景拍这么烂，连监督在访谈里都自承拍差了。
+
+
+*****
+
+####  zhwpjy  
+##### 34401#       发表于 2025-3-7 18:58
+
+<img src="https://img.saraba1st.com/forum/202503/07/185747dr5o31qxxfeuurf5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8135.jpeg</strong> (43.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 18:57 上传
+
+老登是不是每年来找 初音妈妈啊 
+
