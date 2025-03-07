@@ -3531,3 +3531,103 @@ NS上那NS2应该也会有吧</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  6030sylar  
+##### 34363#       发表于 2025-3-7 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67600148&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-7 17:24</a>
+怎么可能不知道，两人来大象家，老登都看到了，开LIVE的宣传海报也贴出来了，除非独角兽和柿本对“信息展 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我的理解是没说就是没有，初喵两人来了就是发现这两人，还没深一步知道已经重组了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  aptx8285144  
+##### 34364#       发表于 2025-3-7 17:31
+
+<blockquote>厉飞雨 发表于 2025-3-7 16:13
+按现在的塑造，所以大祥老师以前组ccc也纯粹为了自我满足，享受大小姐带一群跟班的感觉 ...</blockquote>
+说起这个，CCC组建时大象发表演讲时只有立希是几乎半眯半听的状态，考虑到那时候灯的歌词应该还没征服立希，立希能暂时免疫于大象的蛊惑真是奇迹jpg
+
+*****
+
+####  HereLink  
+##### 34365#       发表于 2025-3-7 17:31
+
+要不把mujica上架gal吧，我看能不能拿牢祥打出完美结局😃
+
+*****
+
+####  adretyu67.  
+##### 34366#       发表于 2025-3-7 17:32
+
+迈巴赫那集老登坐靠右后座，10话迈巴赫两次登场老登反而都坐左边了。
+
+当然应该只是坐左边能视线好能看到需要看到路上需要看到的人<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  zhzij111  
+##### 34367#       发表于 2025-3-7 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67600229&amp;ptid=2208921" target="_blank">HereLink 发表于 2025-3-7 17:31</a>
+要不把mujica上架gal吧，我看能不能拿牢祥打出完美结局😃</blockquote>
+完美结局太简单了吧，队里两个舔狗一个雇佣兵一个炒作狗，后台也梆硬，只要身段放低做好睦的心理工作想炸都难<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  斑驳的阴影  
+##### 34368#       发表于 2025-3-7 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67597491&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-7 13:03</a>
+
+哼，你有经历过怎么猛烈的强制性压抑吗？
+
+这可是跨越10集O精禁止强制隔离才能诞生的在舞台live中解放的极致 ...</blockquote>
+何等虾头，南无三！
+
+*****
+
+####  thisisaspider  
+##### 34369#       发表于 2025-3-7 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67599996&amp;ptid=2208921" target="_blank">AshPenguin 发表于 2025-3-7 17:11</a>
+那就和失语症一样处理呗。睦重度抑郁然后失吉他症了，祥子又压力她然后睦头崩溃自闭了。之后的剧情可以和 ...</blockquote>
+按主题来说莫让睦在某种程度上反抗（坑）了祥。这点关系性还是比直接压力崩溃扭曲点。
+
+*****
+
+####  与太郎  
+##### 34370#       发表于 2025-3-7 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67599638&amp;ptid=2208921" target="_blank">AshPenguin 发表于 2025-3-7 16:42</a>
+
+假设是柿本引入了双重人格的烂活，这个设定直接推动了4到10集的几乎所有剧情。再假设后面几集比较接近绫奈 ...</blockquote>
+因为睦是得到双重人格设定的同时得到更多笔墨描写的，所以原版里初祥关系肯定会占更大篇幅
+
+但是初华剧情地位上升不代表她在祥子心里的地位就会上升，毕竟“让我忘记一切”是MyGO7，劝诱是MyGO8的故事，再加上设定里祥子的计划是在合适的时机先摘初华面具炒热度
+
+从一开始祥子就是打着利用初华的目的来的，如果把祥子往坏的想，那就是“让我忘记一切”也是故意刺激初华同情心的欺瞒之语
+
+很有可能在那个世界线里，mujica是暗流涌动摇摇欲坠，靠祥子压榨自己和初华维持，中间安排一个祥喵冲后各退一步，初华摘面具
+
+然后#7演奏春日影祥子和c团和解，但是也失去了继续mujica的理由（不过可以只暂停不解散，暂停到重启也不要隔现在这么久）
+
+面对初华不安的询问，祥子索性摊牌表示我一直在利用你，把初华逼到黑化边缘
+
+此时安排灯和初华在星象馆相遇，让灯把“歌词传递心意”这句话还回来，然后初华写下两首变态示爱歌曲，团内另外三个人再来给初华助攻
+
+海铃其实是最简单的，反正立希、海铃、初华座位都挨在一起，写立希希望海铃帮初华都行，没必要唐突退30个队，就让她维持雇佣兵状态，和乐奈一个生态位，不必过多着笔
+
+睦的动机可以是“c团的时候我错误地推动了炸团”，所以到mujica这次不想再炸团了
+
+而喵梦既然是爱音的偶像，完全可以更功利同时也更聪明，基于mujica存续更有利的原则行动，“爱上神级演技睦”这个设定不说好不好，至少动画里的表现手法是不能说服我的
+
+接下来要不要搞双子、小姨、私生女、斗老登，都只能说是选择的问题，搞烂了最多被骂一句烂尾，而不是现在这样大家都等着看你还能搞出什么烂活
+
