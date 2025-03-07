@@ -851,3 +851,73 @@ imprisoned xii明显是祥子自己的问题啊<img src="https://static.saraba1s
 
 她应该穿越回狗7话一巴掌拍死那个打电话的自己才是正解<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qratosones1337  
+##### 34119#       发表于 2025-3-7 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67596205&amp;ptid=2208921" target="_blank">YF31 发表于 2025-3-7 11:06</a>
+
+那怎么说，抢她手机公屏嗯发黄词是为了祝两位百年好合？天长地久白头偕老？
+
+那太行了哥们，太朴素价值观 ...</blockquote>
+所以“辱骂男生犯贱女生犯婊”不就是你的自我加戏么，这么有生活看来很熟悉校园混混那一套嘛，咋了还有啥不堪回首的往事么？
+
+*****
+
+####  ads147147  
+##### 34120#       发表于 2025-3-7 11:09
+
+别急，pico这就只给把时间机器安排上。。。
+
+
+*****
+
+####  YF31  
+##### 34121#       发表于 2025-3-7 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67596238&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-3-7 11:09</a>
+所以“辱骂男生犯贱女生犯婊”不就是你的自我加戏么，这么有生活看来很熟悉校园混混那一套嘛，咋了还有啥 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那你猜猜为什么初音女士说"不要讨厌我？"一定是因为美好的告白被接受了大家围成一圈鼓掌是吧。
+太能混混soulmate了，怎么动不动就倒打一耙回来啊，还我加戏都来了，只要柿畜用他非人类的脑子画出来什么行为都能合理化，太厉害了soulmate。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zhoujin8584  
+##### 34122#       发表于 2025-3-7 11:12
+
+<blockquote>adretyu67. 发表于 2025-3-7 10:58
+初华在sumimi不快乐倒是狗里就确定了的。
+
+两个人刚营业完，甜甜圈很开心，金毛倒是很累，然后改变一切的 ...</blockquote>
+是的，所以祥子在初华复刻甜甜圈的时候不搭理她，其实应该理解祥子，作为对比，这种不走心的互动同样也是让初华真心的疲于应付
+
+*****
+
+####  肛之练筋士  
+##### 34123#       发表于 2025-3-7 11:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">要不坛友还是来补补vgdz吧，我也搞不懂都是wsd旗下的也是广告片，怎么vgdz能做得这么不错，这边母鸡卡就成这个样子了……
+
+
+*****
+
+####  与太郎  
+##### 34124#       发表于 2025-3-7 11:16
+
+<blockquote>最终形成了 “只有才能” 的mortis和 “只有笨拙自我” 的睦</blockquote>
+
+有个问题不知道前面有没有人说，按照访谈来说，mortis才是那个拥有表演才能的角色，但喵梦脑子里烙印的又始终是睦断线化身人偶的那一幕
+
+如果说#9末尾#10开头这里喵梦真的是觉得mortis的演技和睦的那个“神迹”相比不值一提，之前怎么没见她表现出来（或者表现了但我忽略了？）
+
+*****
+
+####  adretyu67.  
+##### 34125#       发表于 2025-3-7 11:16
+
+VG我就知道当年代永翼搞基了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+

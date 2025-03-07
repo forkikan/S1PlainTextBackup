@@ -9013,3 +9013,51 @@ image.png
 
 驾驶舱的抗光束涂层理应在光枪的之上才对。
 
+
+*****
+
+####  ads147147  
+##### 8131#       发表于 2025-3-7 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67595534&amp;ptid=2209276" target="_blank">型月神话伊阿宋 发表于 2025-3-7 10:09</a>
+
+高达GQuuuuuuX 4月9日配信</blockquote>
+之前eva终好像也是亚马逊流媒体先行，略诡异，是khara的金主么。。。
+
+
+*****
+
+####  bird-lay  
+##### 8132#       发表于 2025-3-7 11:14
+
+◤大ヒット御礼◢ 
+
+さらに、公開から49日目となった昨日、ついに【興行収入30億円】を突破しました！
+
+劇場へ足を運んでくださった皆さま、本当にありがとうございます！
+
+監督 #鶴巻和哉 さんと、主・プロデューサー #杉谷勇樹 さんより、皆さまへのお礼のコメントも届いております！
+
+<img src="https://img.saraba1st.com/forum/202503/07/111407uqe6k4a0e54akaoe.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2600.jpeg</strong> (670.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 11:14 上传
+
+*****
+
+####  psycho_Gadfly  
+##### 8133#       发表于 2025-3-7 11:17
+
+原版夏利亚商品化决定
+
+<img src="https://img.saraba1st.com/forum/202503/07/111722mee0tx7x7yars7ey.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_7712.jpeg</strong> (81.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 11:17 上传
+

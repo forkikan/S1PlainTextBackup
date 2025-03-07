@@ -931,3 +931,15 @@ V2是新设计
 本来就说v2第一次的样子问题不会小，马斯克非觉得加个灭火器就能解决，问题是8飞完全没办法证明v2只靠加灭 ...</blockquote>
 本来spaceX做的事也和去火星没啥关系，谁家去火星不研究可持续生态圈一门心思死磕可复用火箭啊
 
+
+*****
+
+####  鲜血秋叶  
+##### 71#       发表于 2025-3-7 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67595930&amp;ptid=2245624" target="_blank">枯风瘦雪 发表于 2025-3-7 10:42</a>
+本来spaceX做的事也和去火星没啥关系，谁家去火星不研究可持续生态圈一门心思死磕可复用火箭啊 ...</blockquote>
+载人火星本身是一个奇观，所以看他的想法是不是去火星你只要看能不能直接把人带回来就行，星舰的ppt设计很多地方恰恰是为了去火星才被迫这样处理的。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
