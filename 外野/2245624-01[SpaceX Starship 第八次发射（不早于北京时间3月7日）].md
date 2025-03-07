@@ -888,3 +888,16 @@ V2是新设计
 
 —— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
 
+
+*****
+
+####  瓦格雷  
+##### 67#       发表于 2025-3-7 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67595185&amp;ptid=2245624" target="_blank">larry1 发表于 2025-3-7 09:36</a>
+
+这个箭头跟微博我没看懂，怎么看出来发动机发生了故障</blockquote>
+箭头的真空发动机 有烧穿 
+
+故障也是外侧真空发动机先爆1台 然后 内侧海平面发动机爆了2台
+

@@ -8945,3 +8945,34 @@ image.png
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
 
+
+*****
+
+####  纪寞  
+##### 8126#       发表于 2025-3-7 09:50
+
+<img src="https://img.saraba1st.com/forum/202503/07/094853le1z3uqquqhpqhyh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (593.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 09:48 上传
+
+<img src="https://img.saraba1st.com/forum/202503/07/094937mt63wrbz5z5kkzmb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (166.72 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 09:49 上传
+
+红高达的消失还有光点细节的
+
+*****
+
+####  YU_JI  
+##### 8127#       发表于 2025-3-7 09:51
+
+也就是说side抓黑拳其实未必就真的抓的紧，感觉还是在睁一只眼闭一只眼
+
