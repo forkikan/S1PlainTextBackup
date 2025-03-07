@@ -5367,3 +5367,19 @@ stage上的睦眼睛像是睦头的眼睛，嘴巴像莫头。
 
 歌有多好剧情就有多烂，想给zzmlz团购一把AK47，把柿本广大突突了完事
 
+
+*****
+
+####  牢大别肘我了  
+##### 34538#       发表于 2025-3-8 01:47
+
+以后和别人举例什么是一念畜圣，除了偶活兽娘2木村隆一，少战迷家水岛努，现在也有mygomujica柿本广大
+
+*****
+
+####  qwased  
+##### 34539#       发表于 2025-3-8 01:48
+
+【初华力作《香草祥子之歌》空降B榜！「Imprisoned XII」Mujica#10 插曲-哔哩哔哩】 https://b23.tv/ZLurulY
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最符合原作的一集
+
