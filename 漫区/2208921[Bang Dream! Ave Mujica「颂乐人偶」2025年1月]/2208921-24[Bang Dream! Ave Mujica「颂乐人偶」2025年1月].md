@@ -4536,3 +4536,13 @@ ave之前一直都是公式ppt，这次来了个接轨mygo做法的
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67601977&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-3-7 20:59</a></blockquote>
 怎么和TLT的C团和狗团的3人组一个模样233
 
+
+*****
+
+####  guaguagua  
+##### 34456#       发表于 2025-3-7 21:11
+
+把歌词发给了不看动画的gay朋友试了下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/22/827411231435831cd1dd57bd9ff4bcc6/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OCE-AN50, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+

@@ -9632,3 +9632,23 @@ LLM都是数据喂出来的，真不一定比wiki靠谱，万一出幻觉了呢�
 
 现在就节目刷脸了不但资源厉害又是帮GQ宣传
 
+
+*****
+
+####  az一串字母  
+##### 8175#       发表于 2025-3-7 21:05
+
+反正之前看到大阪世博会那部高达片子里有土屋太凤配音，我满脑子想的都是这才是醋，土屋弟大概是那盘饺子
+
+*****
+
+####  岸浪白野  
+##### 8176#       发表于 2025-3-7 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67601892&amp;ptid=2209276" target="_blank">AraTurambar 发表于 2025-3-7 20:51</a>
+
+虽然弟弟声音挺好听的我很受用，但是他那两个姐姐面子真就那么大？
+
+翻译到男人那边山崎贤人的级别？ ...</blockquote>
+是只有土屋太凤厉害<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
