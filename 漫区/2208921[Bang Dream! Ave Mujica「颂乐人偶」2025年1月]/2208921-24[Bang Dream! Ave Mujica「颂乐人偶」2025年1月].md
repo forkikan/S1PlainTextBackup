@@ -4348,3 +4348,35 @@ ave之前一直都是公式ppt，这次来了个接轨mygo做法的
 
 后来观众才知道这个粉毛是千早爱音的表妹而姓氏要等到剧场版才判明 ​​
 
+
+*****
+
+####  6030sylar  
+##### 34441#       发表于 2025-3-7 20:19
+
+<img src="https://img.saraba1st.com/forum/202503/07/201824mszd1tz8t1wt5wpd.png" referrerpolicy="no-referrer">
+
+<strong>16D[Z3%F$EKPRKJ40@8([7P.png</strong> (104.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 20:18 上传
+
+<img src="https://img.saraba1st.com/forum/202503/07/201824tn5kd5jgdugr3584.png" referrerpolicy="no-referrer">
+
+<strong>I{DR51JDZ_LCVZ%]~65PM@X.png</strong> (68.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 20:18 上传
+
+<img src="https://img.saraba1st.com/forum/202503/07/201824kj7jwenheysjnyiv.png" referrerpolicy="no-referrer">
+
+<strong>J_X~KG4ISCH`37UW(M~@PW7.png</strong> (77.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 20:18 上传
+
+眼光可以，但是剧本不懂就不要乱改
+
