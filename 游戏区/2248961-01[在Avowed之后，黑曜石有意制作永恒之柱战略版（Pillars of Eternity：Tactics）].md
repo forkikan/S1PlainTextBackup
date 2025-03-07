@@ -879,3 +879,24 @@ POE里笨重大锤圣武士角色进行完一轮整轮施法的时候，高敏�
 
 这点我知道是可以用控制台来切，但如果不用控制台就只能一路用到死，就比较神秘了
 
+
+*****
+
+####  D-JoeII  
+##### 79#       发表于 2025-3-7 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67599297&amp;ptid=2248961" target="_blank">Bieaeml 发表于 2025-3-7 16:12</a>
+
+泄露表格是22年xgp首发价格，除了BG3的，还有个每月500W美元的荒野大镖客：救赎2，即纯移植旧作都要每个月 ...</blockquote>
+你懂Second-run是什麼意思就知為啥是500萬
+
+不懂的話拉瑞安的Very afk會告訴你
+
+<img src="https://img.saraba1st.com/forum/202503/07/221005bnmvwn253tp2k32k.jpg" referrerpolicy="no-referrer">
+
+<strong>F6fjMwsWAAEO0P_.jpg</strong> (135.69 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 22:10 上传
+
