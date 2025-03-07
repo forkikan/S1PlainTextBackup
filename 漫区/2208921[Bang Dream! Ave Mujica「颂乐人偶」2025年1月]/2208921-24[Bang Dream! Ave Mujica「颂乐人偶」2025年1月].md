@@ -4380,3 +4380,41 @@ ave之前一直都是公式ppt，这次来了个接轨mygo做法的
 
 眼光可以，但是剧本不懂就不要乱改
 
+
+*****
+
+####  huxiaopao163  
+##### 34442#       发表于 2025-3-7 20:25
+
+吉他睦和mortis，那样应该不是融合了，而是都死了的意思吧
+
+因为那个深渊、深海，mortis把它认知为掉下去就是死亡，也就是人格的消解。那就应该是这样没错
+
+最后俩人都只剩下轮廓，然后消散了，那就是它们共同赴死了吧
+
+当然啦，也可以认为柏林墙倒塌，两德合并。确实原来的两个框架死了，但是里面的人事物都还在，只是融入到了一个更大的框架里。
+
+*****
+
+####  6030sylar  
+##### 34443#       发表于 2025-3-7 20:26
+
+<img src="https://img.saraba1st.com/forum/202503/07/202638bskcvpp2zzpoobso.png" referrerpolicy="no-referrer">
+
+<strong>8H}PL)91Q]FI)`$TPG78C.png</strong> (107.05 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 20:26 上传
+
+
+*****
+
+####  厄神之息  
+##### 34444#       发表于 2025-3-7 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67601090&amp;ptid=2208921" target="_blank">cherryjia12 发表于 2025-3-7 19:10</a>
+
+诗超绊mv那种效果不就挺好的吗，为什么要做的这么抽象</blockquote>
+诗抄半效果好是前面演的好铺垫的好，这live几乎就奔着复刻去的，结果闪回的那些比内容抽象的要死，当然效果就不行了
+

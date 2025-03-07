@@ -9585,3 +9585,19 @@ LLM都是数据喂出来的，真不一定比wiki靠谱，万一出幻觉了呢�
 </blockquote>
 要复兴了吗，高达男主声优红利
 
+
+*****
+
+####  量产失败型  
+##### 8171#       发表于 2025-3-7 20:24
+
+"泽克诺瓦把全人类的画风都改变了好可怕"<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202503/07/202318i0e7ot6kyho0zep8.png" referrerpolicy="no-referrer">
+
+<strong>50307202250.png</strong> (62.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 20:23 上传
+
