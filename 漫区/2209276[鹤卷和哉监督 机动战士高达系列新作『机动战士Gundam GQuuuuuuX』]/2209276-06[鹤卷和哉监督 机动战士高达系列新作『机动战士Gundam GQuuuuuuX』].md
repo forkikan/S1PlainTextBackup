@@ -8992,3 +8992,14 @@ image.png
 
 高达GQuuuuuuX 4月9日配信
 
+
+*****
+
+####  AraTurambar  
+##### 8129#       发表于 2025-3-7 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67595340&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-3-7 09:51</a>
+
+也就是说side6抓黑拳其实未必就真的抓的紧，感觉还是在睁一只眼闭一只眼</blockquote>
+钦定的联邦残党吉翁老兵再就业项目嘛，SIDE 6也肯定不希望一帮有军事技能的说不定还有新人类失业吧。
+
