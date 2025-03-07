@@ -4291,3 +4291,60 @@ MV画得真丑，这跑楼梯对标栞吧
 
 离史上最狂只剩一个女女雷普了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  是谁的书画  
+##### 34435#       发表于 2025-3-7 20:06
+
+<img src="https://i.miji.bid/2025/03/07/513c00d6629299546c7afb4d8b40c1e0.gif" referrerpolicy="no-referrer">
+<img src="https://i.miji.bid/2025/03/07/3ef1a9fb943f5c157599bad66c1b71c2.jpeg" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  K·os  
+##### 34436#       发表于 2025-3-7 20:06
+
+mygo的mv都是交给相应的画师自由发挥，所以mygo里你可以看到各种不同的抽象
+
+ave之前一直都是公式ppt，这次来了个接轨mygo做法的
+
+*****
+
+####  zhoujin8584  
+##### 34437#       发表于 2025-3-7 20:07
+
+还有，一个cp是互相成就的，爱灯拿爱踩头灯在能全拿下的行动力，下次看见直接用圣厨扣你脸上
+
+*****
+
+####  厄神之息  
+##### 34438#       发表于 2025-3-7 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67601511&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-7 20:06</a></blockquote>
+红红火火恍恍惚惚哈哈哈哈，这是什么勾八啊！We are Fighting Dreamers~的声音已经在脑子里想起来惹~
+
+
+*****
+
+####  ykyin09  
+##### 34439#       发表于 2025-3-7 20:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这mv从火影跑开始就没绷住，明明前面还挺好的
+
+*****
+
+####  DARK_HGCG  
+##### 34440#       发表于 2025-3-7 20:13
+
+大胆预测
+
+邦邦的下一部作品里有个虎牙粉毛大家都叫她爱音
+
+中期她会陷入绝境
+
+这时千早爱音和祐天寺喵梦会出现并帮她一把
+
+后来观众才知道这个粉毛是千早爱音的表妹而姓氏要等到剧场版才判明 ​​
+
