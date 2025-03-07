@@ -858,3 +858,13 @@ mygo里看春日影哭着跑出去的时候给初华打的电话吧，我感觉�
 泥潭之前还有人说母鸡卡的烂不过是完结多年后被遗忘路边的一条🐶，现在看这么变态的歌词面前，谁敢说是烂 ...</blockquote>
 要我说这片最出彩的点，就是真把这么变态的东西拍出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  极寒冷焰酋蕾姆  
+##### 84#       发表于 2025-3-7 20:39
+
+经过一番纠结后投了初华，毕竟发疯了是真能物理意义上要人性命的，某开膛手二创真是一针见血<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

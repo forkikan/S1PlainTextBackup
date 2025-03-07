@@ -4418,3 +4418,25 @@ ave之前一直都是公式ppt，这次来了个接轨mygo做法的
 诗超绊mv那种效果不就挺好的吗，为什么要做的这么抽象</blockquote>
 诗抄半效果好是前面演的好铺垫的好，这live几乎就奔着复刻去的，结果闪回的那些比内容抽象的要死，当然效果就不行了
 
+
+*****
+
+####  一心而用  
+##### 34445#       发表于 2025-3-7 20:34
+
+宣示主权的soyo
+<img src="https://p.sda1.dev/22/c7e2a4f6cd01b07346ceab2c44b42d04/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/eae8869fa3f694f4e2f784e94e6f7d54/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/484eb9e90eab551424fd2db96940d02f/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/85e09cbe1b327814486810c24fbbe710/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Tehebe  
+##### 34446#       发表于 2025-3-7 20:41
+
+这是人类脑回路能想出来的剧本？还是鬼子变态啊<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus CPH2649, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
