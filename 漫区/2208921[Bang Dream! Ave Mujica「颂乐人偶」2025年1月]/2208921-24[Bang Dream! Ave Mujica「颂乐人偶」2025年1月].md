@@ -2679,3 +2679,49 @@ r组从定调上就不是坏的。
 
 我在其他论坛接触到的RAS厨因为二三季对chuchu layer的塑造问题对绫奈普遍意见很大，当然也和绫奈当时推特上挺跳的，柿本直到前两天英文访谈才接了锅有关系
 
+
+*****
+
+####  一心而用  
+##### 34284#       发表于 2025-3-7 15:41
+
+曹操的马践踏麦田，无罪。
+<img src="https://p.sda1.dev/22/cabaf515e3588410b7913ecbd0863bdc/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/cf5b9cca222910fe7fa669d21380480b/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/99c7ab4d1748122f3be31c901d2b81a6/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一心而用  
+##### 34285#       发表于 2025-3-7 15:43
+
+灯睦观星
+<img src="https://p.sda1.dev/22/074e852051c32c1e4499b4be172df6e2/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/c27d8d8b3313e035793fb1e0c1c3d0f9/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  rollingusagi  
+##### 34286#       发表于 2025-3-7 15:43
+
+鸡的歌感觉还是那个问题，第一首纯抒情确实不错，但是一旦搞偏金属的就总觉得少了点什么，第二首听完后我直接回去又听了遍萝的Sage der Rosen，就都是金属向的歌曲为什么整体感受能差那么大，总觉得编曲很放不开，本来killkiss让我感觉supa love这几个新负责作曲的已经搞明白要怎么写了，结果只是昙花一现吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  号为熊  
+##### 34287#       发表于 2025-3-7 15:44
+
+<blockquote>zhoujin8584 发表于 2025-3-7 15:15
+还是祥学长比较了解祥，我才看出来老登是出来救场祥子的，跟中登住好歹是祥子自己的选择，再不出场这个背负 ...</blockquote>
+如果我没记错的话，这13+10集初音在ED字幕上一直都是被记成初华吧，如果后续确实是祥子和初华同居，初音只有在舞台上才能见到祥子的话，那不如直接一步到位把Mujica的主唱也换成初华算了？
+
+我可能会更倾向于最后祥子和初音在一起了，但是就像Mortis最后会被当成睦对待一样，初音也只会被当成初华对待。不过也就猜猜，聊天记录剧透会在细节上犯错，我也不太敢挑战武士道的想象力。
+
+*****
+
+####  一心而用  
+##### 34288#       发表于 2025-3-7 15:44
+
+<img src="https://p.sda1.dev/22/9b292671b5de1b14eb44e0eeb752e20e/QQ图片20250307154346.jpg" referrerpolicy="no-referrer">
+

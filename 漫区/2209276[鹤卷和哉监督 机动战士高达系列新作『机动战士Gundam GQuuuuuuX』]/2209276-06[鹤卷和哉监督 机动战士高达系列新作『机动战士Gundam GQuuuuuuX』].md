@@ -9341,3 +9341,13 @@ edit
 
 公开前还赶进度就对应了1月底访谈视频的OP还在制作中和最终话还在制作中的那番话
 
+
+*****
+
+####  Gysumitka  
+##### 8156#       发表于 2025-3-7 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67598763&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-3-7 15:22</a>
+公开前还在赶进度是对应了1月底访谈视频里鹤卷说的OP还在制作中和最终话还在制作中的那番话 ...</blockquote>
+电影前期宣传不足，op和最终话制作影响能有多大，鹤卷明显在说电影吧
+

@@ -2614,3 +2614,28 @@ lz可否加个看结果选项，我为了看结果投了好几期0
 
 大猫老师就是柿本手里的打狗棍，想起来了就拿起来抽祥子两下让她挪下窝
 
+
+*****
+
+####  失忆的香槟  
+##### 297#       发表于 2025-3-7 15:41
+
+实名+2
+偶遇天赋型监督，二创假药拼尽全力也无法战胜。
+
+本来已经当乐子看了，但看到牢莫下线心里还是抽了一下。希望牢莫别再秽土转生了，让我想到了另一个娘不疼爹不爱的绿毛<img src="https://static.saraba1st.com/image/smiley/carton2017/285.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  朝霧春嘉  
+##### 298#       发表于 2025-3-7 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67591827&amp;ptid=2248984" target="_blank">厄神之息 发表于 2025-3-6 22:35</a>
+-2000000硬推半集剧情唱半集歌，鉴定为纯烂。还想复刻诗抄半呢，诗抄半那过去一点一滴的闪回让人觉得感动， ...</blockquote>
+赞同
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
