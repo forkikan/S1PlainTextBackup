@@ -9555,3 +9555,19 @@ WG系列MS用驱动安装装置设定。省流版：吉翁在MS的实战运用�
 
 LLM都是数据喂出来的，真不一定比wiki靠谱，万一出幻觉了呢？
 
+
+*****
+
+####  岸浪白野  
+##### 8169#       发表于 2025-3-7 19:42
+
+[X 上的 Luv：“#GQuuuuuuX #FLCL [url]https://t.co/1qdbN0EOd3](https://x.com/luvluvvox/status/1897943001437290981)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202503/07/194237j5sj88le227gkk2v.jpg" referrerpolicy="no-referrer">
+
+<strong>GlbZGQ2bwAMzwfy.jpg</strong> (687.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 19:42 上传
+
