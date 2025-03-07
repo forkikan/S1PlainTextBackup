@@ -683,3 +683,31 @@ SS发动机出现以外时的速度5.6km/s，上一次在5.9km/s时GG了
 
 姿态发散以后不存在一个稳定的液面所以数字就随便跳了
 
+
+*****
+
+####  死宅真恶心  
+##### 47#       发表于 2025-3-7 07:48
+
+所以这次有流星雨看不
+
+*****
+
+####  madbird023  
+##### 48#       发表于 2025-3-7 07:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67594469&amp;ptid=2245624" target="_blank">死宅真恶心 发表于 2025-3-7 07:48</a>
+
+所以这次有流星雨看不</blockquote>
+已经有视频了，不过是白天不明显
+
+
+*****
+
+####  7do  
+##### 49#       发表于 2025-3-7 07:54
+
+二级以前不是已经验证过回收了吗 在宇宙边缘待一会难度这么大
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

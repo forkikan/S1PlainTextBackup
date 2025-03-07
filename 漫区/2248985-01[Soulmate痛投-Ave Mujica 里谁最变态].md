@@ -574,3 +574,11 @@ mygo里看春日影哭着跑出去的时候给初华打的电话吧，我感觉�
 
 —— 来自 OPPO PJC110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
 
+
+*****
+
+####  Yugao  
+##### 58#       发表于 2025-3-7 07:53
+
+野兽主唱名不虚传<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
