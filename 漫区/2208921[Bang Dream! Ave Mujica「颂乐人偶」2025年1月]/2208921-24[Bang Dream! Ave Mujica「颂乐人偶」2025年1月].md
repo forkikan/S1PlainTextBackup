@@ -2169,3 +2169,84 @@ avemujica搞人偶小剧场-人偶小剧场逆输入进二次元动画角色。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">弹幕里有句说的好：我们邦邦都是轻百合， 姐们你是真女同啊——顺便我觉得狗的队员关系正常多了，经历了13集之后都挺成熟独立的，我十分怀疑没拍出来的地方有立希爱音soyo三人排练拌嘴之类的小段子
 
+
+*****
+
+####  江口夕  
+##### 34243#       发表于 2025-3-7 13:47
+
+ 本帖最后由 江口夕 于 2025-3-7 13:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67597522&amp;ptid=2208921" target="_blank">清江望月 发表于 2025-3-7 13:07</a>
+重看了一遍，第一首还是太虾头了，而且这首歌跟mujica的风格也不搭，也不知道大莫老师为什么会在这首歌里和 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没错 莫对睦确实是单箭头 估计后知后觉，莫女士想抠而不得比初音小姐激烈多了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  天空塔书记官  
+##### 34244#       发表于 2025-3-7 13:48
+
+说到这个，我就想起全职高手动画被铜人女制作塞私货的事，这都什么R18二创倒灌原作
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  非建政专用号  
+##### 34245#       发表于 2025-3-7 13:49
+
+小姨扣侄女还能说句乱伦，左脑扣右脑是什么自交吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  adretyu67.  
+##### 34246#       发表于 2025-3-7 13:49
+
+ 本帖最后由 adretyu67. 于 2025-3-7 13:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67597836&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-3-7 13:47</a>
+
+没错 莫对睦确实是单箭头 估计后知后觉
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 S1Next-鹅版 v2.2 ...</blockquote>
+第二段台词更变态，按第二段台词的意思是我为了独占她所以埋葬了她，那么之前发生了什么事<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+再联想一下，场上干了这事的人是谁呢
+
+
+*****
+
+####  MASKA-1  
+##### 34247#       发表于 2025-3-7 13:52
+
+睦融合完已经是圣人了，带四个队友飞（
+
+*****
+
+####  AlterDialog  
+##### 34248#       发表于 2025-3-7 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67597269&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-7 12:42</a>
+
+就是表演，前期小墨只会表演，所以4话解散的时候，她直接卡壳说不出话了，后来逐渐获得独立人格之后才能讲 ...</blockquote>
+额，那她表演的是谁？小墨本来就是个能说会道活泼外向的人。也就吓唬小祥时演了一下，其他时候不都是性格如此。
+
+有表演天赋不代表无时无刻都在演啊。
+
+*****
+
+####  江口夕  
+##### 34249#       发表于 2025-3-7 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67597858&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-7 13:49</a>
+第二段台词更变态，按第二段台词的意思是我为了独占她所以埋葬了她，那么之前发生了什么事
+
+再联想一下， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">莫女士其实不是什么保护人格，而是对吉他睦的独占欲，求而不得，监禁play。讨厌大祥也是基于此。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
