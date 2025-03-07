@@ -1036,3 +1036,20 @@ bro干的：問題是現在微軟沒說BG3能 ...</blockquote>
 
 22年5月的微軟怎麼看PC版的XGP跟現在差很遠耶
 
+
+*****
+
+####  Bieaeml  
+##### 90#       发表于 2025-3-7 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67603110&amp;ptid=2248961" target="_blank">D-JoeII 发表于 2025-3-7 23:40</a>
+
+在當時的角度買一個不能首發,只有PC版的遊戲是要出多少錢?
+
+22年5月的微軟怎麼看PC版的XGP跟現在差很遠耶 ...</blockquote>
+“微软干的：把BG3加入第三方首发XGP报价表格，然后给了500W美元的报价 X
+
+微软干的：在表格的附註寫明BG3無法首發XGP,只能進第二輪 O”
+
+删去500W报价并且自己发明一个无人验证的说法，贴上图之后轻描淡写的一转另一个问题讨论500W合理不合理，bro今天自说自话的KPI还挺多的
+
