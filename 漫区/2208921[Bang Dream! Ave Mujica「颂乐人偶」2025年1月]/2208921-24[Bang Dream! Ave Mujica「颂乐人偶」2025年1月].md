@@ -5397,3 +5397,11 @@ stage上的睦眼睛像是睦头的眼睛，嘴巴像莫头。
 
 2025-3-8 02:13 上传
 
+
+*****
+
+####  cxj649  
+##### 34541#       发表于 2025-3-8 02:23
+
+突然发现第十集这时间点大祥C团众人甚至狗团好感度要比对鸡团众人好感度高<img src="https://static.saraba1st.com/image/smiley/carton2017/481.png" referrerpolicy="no-referrer">
+
