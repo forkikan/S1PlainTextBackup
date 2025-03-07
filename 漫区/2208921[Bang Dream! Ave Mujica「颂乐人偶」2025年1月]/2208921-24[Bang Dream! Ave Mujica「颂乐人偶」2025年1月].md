@@ -3335,3 +3335,106 @@ ring外面都贴了公告了，除非老登的手下真的不管事，不然还�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  AshPenguin  
+##### 34344#       发表于 2025-3-7 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67599945&amp;ptid=2208921" target="_blank">油画布 发表于 2025-3-7 17:06</a>
+
+非要弄心理问题的话，不如直接让睦重度抑郁算了</blockquote>
+那就和失语症一样处理呗。睦重度抑郁然后失吉他症了，祥子又压力她然后睦头崩溃自闭了。之后的剧情可以和现在的某种程度上接上。但是没c团复辟什么事了，直接鸡团live睦头一开始弹空气后来觉醒了病好了。
+
+*****
+
+####  6030sylar  
+##### 34345#       发表于 2025-3-7 17:12
+
+武士道放弃手游进军主机是什么脑子有问题
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  adretyu67.  
+##### 34346#       发表于 2025-3-7 17:12
+
+AVG又没什么门槛的，美术够就能做。
+
+
+*****
+
+####  油画布  
+##### 34347#       发表于 2025-3-7 17:14
+
+<blockquote>AshPenguin 发表于 2025-3-7 17:11
+那就和失语症一样处理呗。睦重度抑郁然后失吉他症了，祥子又压力她然后睦头崩溃自闭了。之后的剧情可以和 ...</blockquote>
+不和c团扯上关系我就直接万岁了，这时候再让大喵愧疚不已  顺带搞点喵睦关系不是美滋滋
+
+*****
+
+####  adretyu67.  
+##### 34348#       发表于 2025-3-7 17:15
+
+看了下第10话RiNG贴的广告，居然没写日期。看起来特意淡化日程了。
+
+*****
+
+####  钦念以忱  
+##### 34349#       发表于 2025-3-7 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67599809&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-3-7 16:55</a>
+
+老登不是反对组，是母鸡卡让孙女不开心
+
+别忘了第一次组老登也是同意的，第二次也是至少同意组一场</blockquote>
+之前avemujica都唱黑深残，老登觉得虽然中二了点，但也随孙女玩，这次唱上Imprisoned XII了，只能大手阻挠了。
+
+*****
+
+####  南宮凝香  
+##### 34350#       发表于 2025-3-7 17:16
+
+<blockquote>ads147147 发表于 2025-3-7 16:53
+说起来，祥子写曲子还说考虑到初华填词的时间，所以要先把曲子写好。
+
+但是实际上，完全可以由初华先把词写 ...</blockquote>
+先曲後詞是因為祥子樂團地位比較高
+
+是由她決定音樂方向初華負責跟從
+
+由歌帶動詞
+
+換成初華先作詞就是MyGo 的詞人帶音樂了
+
+這點祥子是不會妥協的
+
+*****
+
+####  最终兵器狂战  
+##### 34351#       发表于 2025-3-7 17:17
+
+<img src="https://p.sda1.dev/22/e2ce8651a7c9d62f5bc84b0b840c3074/image.jpg" referrerpolicy="no-referrer">
+好表情，截走了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 34352#       发表于 2025-3-7 17:17
+
+用IP搞AVG，不就和卖卡差不多，成本低、溢价高，凯子只管花钱就行了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  南宮凝香  
+##### 34353#       发表于 2025-3-7 17:17
+
+<blockquote>ntrntr1 发表于 2025-3-7 17:05
+看剧透哥的只言片语，感觉比起斗财阀，更像下一集老登要开始讲财阀爱恨情仇了，甚至三角妈似乎认识老登老婆 ...</blockquote>
+你不從了她
+
+她將來就會去跟你老公出軌？
+

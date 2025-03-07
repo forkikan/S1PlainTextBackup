@@ -712,3 +712,39 @@ GTA V和RDR2 20年就在XGP库里，别的作品当时是尚未发售的不论�
 
 那看来你比微软有品味，毕竟微软可是总共只给500W美元，真的只算移植成本只会低于500W美元。
 
+
+*****
+
+####  sandro  
+##### 67#       发表于 2025-3-7 17:09
+
+要能有个poe版wartales就好了
+
+*****
+
+####  Bieaeml  
+##### 68#       发表于 2025-3-7 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67599925&amp;ptid=2248961" target="_blank">ultraseven 发表于 2025-3-7 17:04</a>
+
+GTA V和RDR2 20年就在XGP库里，别的作品当时是尚未发售的不论，会不会这个每月500万/1200万的价格就是R星 ...</blockquote>
+虚高的报价=微软对于第三方首发XGP的预期成本里必定包含了IP价值以及新作参考旧作表现，但是这个虚高报价的思路在BG3这里毫无体现，直接开始贬低报价，更不是你所谓的移植成本报价。
+
+*****
+
+####  sandro  
+##### 69#       发表于 2025-3-7 17:11
+
+要能有个poe版wartales就好了
+
+
+*****
+
+####  ultraseven  
+##### 70#       发表于 2025-3-7 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67599928&amp;ptid=2248961" target="_blank">Bieaeml 发表于 2025-3-7 17:05</a>
+
+所以为啥别的游戏第三方首发XGP的预期成本，多多少少会有IP以及新作参考旧作表现，出现了各种虚高的报价 ...</blockquote>
+因为在微软看来，这不是<strong>首发</strong>XGP啊，是在Steam上已经EA开卖一年多了再加进XGP的老游戏。
+

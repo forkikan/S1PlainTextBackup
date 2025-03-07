@@ -212,3 +212,14 @@ Never7用这次的重制版补，然后再补原版Ever17，这个方案妥吗�
 谢谢</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">其实n7玩的价值不大 时间不多可以直接原版e17
 
+
+*****
+
+####  sakuranosibe  
+##### 132#       发表于 2025-3-7 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67589535&amp;ptid=2208135" target="_blank">yury 发表于 2025-3-6 19:16</a>
+
+原版。支持正版可以在方块游戏上花9块钱买官方中文的 https://store.cubejoy.com/html/en/store/goodsdet ...</blockquote>
+签到两三个月就能拿积分换了，而且每天签到抽奖的过程中有可能直接抽到key
+
