@@ -1446,3 +1446,67 @@ mortis的演技并非不值一提，喵梦说的是:很像，简直完美，真�
 
 而小莫直到最后一刻才找回了真心，才同样的给喵梦一次瘫坐级的震惊，并选择了赎罪
 
+
+*****
+
+####  huxiaopao163  
+##### 34171#       发表于 2025-3-7 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67596608&amp;ptid=2208921" target="_blank">AlterDialog 发表于 2025-3-7 11:40</a>
+
+喵梦一直没吧双重人格当回事，她一直错把大自然的鬼斧神工当成主观能动性的巧夺天工，正好误打误撞的把握 ...</blockquote>
+对的对的，这集再不好，喵睦的部分简直无敌。后面小剧场里俩人的对话也是充满美感。
+
+墨最后说的那句“我也是”，非常让人触动，就像电锯人里“其实我也没上过学”一样。那种爱恨交织的，矛盾又互补的感情，太美了。
+
+*****
+
+####  是谁的书画  
+##### 34172#       发表于 2025-3-7 12:21
+
+再听新歌，看着沉重的歌词，和初华全程偷看小祥。
+
+哎，这能弹的下去我也觉得是神人了，双腿发软啊。
+
+无论多少次都感觉变态变态，女同玩的确实花<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  钦念以忱  
+##### 34173#       发表于 2025-3-7 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67594711&amp;ptid=2208921" target="_blank">拱猪 发表于 2025-3-7 08:40</a>
+
+接下来两集该斗财阀了，我很好奇祥爹还会不会再出来，还是十本索性忘了这个人了 ...</blockquote>
+包出场的，大概率还要洗白
+
+*****
+
+####  凉良  
+##### 34174#       发表于 2025-3-7 12:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">初音在上面唱情歌的时候下面是不是吹了
+
+*****
+
+####  Mika-S  
+##### 34175#       发表于 2025-3-7 12:24
+
+主唱太压抑了！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhoujin8584  
+##### 34176#       发表于 2025-3-7 12:25
+
+如果说以后初华要在让她倍感疲惫的甜甜圈友情营业和给了她助攻的喵梦之间选内圈朋友的话，我估计她会选能在关键时刻推自己往前走一步的那个<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  烂片雷达  
+##### 34177#       发表于 2025-3-7 12:25
+
+这片和狗血晚8点档的唯一区别就是角色间没有性关系
+
+不是我说，这片要加点性关系进去逻辑绝对会通畅很多
+
