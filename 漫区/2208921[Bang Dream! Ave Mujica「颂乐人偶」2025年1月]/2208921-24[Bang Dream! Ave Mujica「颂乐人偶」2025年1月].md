@@ -5405,3 +5405,13 @@ stage上的睦眼睛像是睦头的眼睛，嘴巴像莫头。
 
 突然发现第十集这时间点大祥C团众人甚至狗团好感度要比对鸡团众人好感度高<img src="https://static.saraba1st.com/image/smiley/carton2017/481.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  syndrome2032  
+##### 34542#       发表于 2025-3-8 02:38
+
+鸡团初华单箭头，睦头下线换莫头。
+
+大象对剩下四个好感度怕不是都是0。
+
