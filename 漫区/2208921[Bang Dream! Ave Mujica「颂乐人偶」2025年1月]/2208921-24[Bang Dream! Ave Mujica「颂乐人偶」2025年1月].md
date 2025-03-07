@@ -4134,3 +4134,51 @@ Mujica目前看工期挺紧张的而且当时制作组内斗应该蛮严重了�
 
 小闭灯行动力强啊，暗影冲刺抓爱音泉水钩抓素世都是秒杀。
 
+
+*****
+
+####  木板春香  
+##### 34420#       发表于 2025-3-7 19:28
+
+<img src="https://img.saraba1st.com/forum/202503/07/192843mjj81sbpbhhtbpb8.png" referrerpolicy="no-referrer">
+
+<strong>X~~A8API3R~]D~G{TJHZF.png</strong> (226.59 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 19:28 上传
+
+<img src="https://img.saraba1st.com/forum/202503/07/192848rqciadgwucq0uwut.png" referrerpolicy="no-referrer">
+
+<strong>LRL}]WBW$R}0(2T_G@AKA(C.png</strong> (401.59 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 19:28 上传
+
+<img src="https://img.saraba1st.com/forum/202503/07/192853mjg2zh5hjmkhklh9.gif" referrerpolicy="no-referrer">
+
+<strong>RH})C4QW36TY9$@X[Z)]SI1.gif</strong> (2.11 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 19:28 上传
+
+*****
+
+####  syndrome2032  
+##### 34421#       发表于 2025-3-7 19:29
+
+抓爱音明明是奶龙自己认输的吧。
+
+已经证明过爱音想跑的话灯是追不上的。也就是自愿被俘
+
+*****
+
+####  非建政专用号  
+##### 34422#       发表于 2025-3-7 19:31
+
+小闭灯在教室里放话的时候奶龙已经投了吧，润去天台估计是怕被同学当成玩弄阿斯伯格少女情感的渣女
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
