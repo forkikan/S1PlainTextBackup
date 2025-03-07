@@ -3798,3 +3798,82 @@ pareo也就是陪chu2到地狱尽头，等一个超越地狱尽头的重力发�
 
 感觉台湾那边的舆论也反转了，第七集还有很多人洗的，今天过去看基本上正反方人数是和第七集完全反过来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  厄神之息  
+##### 34386#       发表于 2025-3-7 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67594186&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-7 02:55</a>
+
+海铃：豪词，豪词啊
+
+说不定也藏了虎狼之心</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">那我请她速速复刻希望厨紫砂，展开学院裁判和木子米人格一换一
+
+*****
+
+####  号为熊  
+##### 34387#       发表于 2025-3-7 18:17
+
+NGA全集舅舅的最后一舞 <blockquote>客观：李子尽力，有独角兽单集。
+
+主观：幽默烂片，大小姐过家家。
+
+优点：最后各自的live还行。</blockquote>
+可以猜一下绫奈写的是11还是12了，我感觉13不太现实
+
+*****
+
+####  comegogo3  
+##### 34388#       发表于 2025-3-7 18:20
+
+突然想到一点，可能反映了剧本有大改？
+
+播到现在，睦妈的戏份比老登多多了，算上后面几话老登再出场，也就跟睦妈戏份差不多
+
+但是老登有建模睦妈没有，少女番做老男人3D不去做美女3D有点奇怪吧
+
+
+*****
+
+####  operatbig  
+##### 34389#       发表于 2025-3-7 18:20
+
+【【杂谈】无耻的共犯，堕落的温床，顺从欲望的人偶——全面解读母鸡卡的一集重建-哔哩哔哩】 https://b23.tv/cICxA1s
+
+这up讲得不错，至少我认为母鸡卡就是这样的故事。
+
+*****
+
+####  号为熊  
+##### 34390#       发表于 2025-3-7 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67600599&amp;ptid=2208921" target="_blank">AshPenguin 发表于 2025-3-7 18:09</a>
+
+用祥利用初当冲突点挺好的，有点像素食和爱音了。
+
+但初音和爱音最大的不一样在她是个无条件爱祥的重女， ...</blockquote>
+想让初华受刺激退出的话最好的导火索是让她确信自己在祥子心中的地位不如灯和睦，然后因此产生类似“被抛弃而怨恨”的情绪
+
+不过这样子要怎么把初华拉回来就比较麻烦了，在NGA那边讨论过，结论是小姨真好用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 34391#       发表于 2025-3-7 18:21
+
+这话老登的分镜全是2d，没有3d
+
+*****
+
+####  滑稽Captain  
+##### 34392#       发表于 2025-3-7 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67600516&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-3-7 18:00</a>
+
+想炸还是可以的，让成员一步步意识到自己只是大祥复仇的工具人，然后以初睦祥的矛盾为导火索
+
+虽然这样写 ...</blockquote>
+黑暗大祥复仇记就是被否掉的原设中的一个，之所以会变成现在这样就是他们在剧本创作过程中太过于追求爆点和非常规的发展，再加上对于对偶和“对立且镜像”的魔怔追求，还有死命令的CCC复活+初祥**戏，buff叠得太多了
+
