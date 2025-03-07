@@ -1371,3 +1371,66 @@ PTT怎么崩了，挂梯子都进不去，谭里有湾友吗😢</blockquote>
 
 —— 来自 vivo V2307A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  43453  
+##### 34164#       发表于 2025-3-7 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592328&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-3-6 22:58</a>
+不知道，只能说写死是最合理的。看独角兽大编剧和柿本大导演咋给你拍就完事了 ...</blockquote>
+藏一下最后一集出场，第三季堂堂出道，和另一群女人搞关系，敬请期待
+
+*****
+
+####  与太郎  
+##### 34165#       发表于 2025-3-7 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67596628&amp;ptid=2208921" target="_blank">AlterDialog 发表于 2025-3-7 11:42</a>
+
+这里小墨又没在表演……</blockquote>
+晚些明确梳理一下喵梦态度的变化好了
+
+*****
+
+####  Mika-S  
+##### 34166#       发表于 2025-3-7 11:59
+
+每当有人开始把角色行为都往80上面扯的时候，就已经彻底没有讨论的必要了，说明角色塑造早就烂完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  DeltaStriker  
+##### 34167#       发表于 2025-3-7 12:02
+
+还想要第三季 还是想想手游编剧怎么把柿本的🐴鲨了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  huxiaopao163  
+##### 34168#       发表于 2025-3-7 12:03
+
+ 本帖最后由 huxiaopao163 于 2025-3-7 12:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67596327&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-3-7 11:16</a>
+
+有个问题不知道前面有没有人说，按照访谈来说，mortis才是那个拥有表演才能的角色，但喵梦脑子里烙印的又 ...</blockquote>
+喵梦爱的不是切割演技的吉他睦，也不是被切割出来的只有演技的mortis，她爱的是偶然窥见的，断线后露出表演才华的若叶睦。
+
+mortis的演技并非不值一提，喵梦说的是:很像，简直完美，真是恶心透顶。然后mortis也搞不清自己应该怎么演才是真正的睦。可以认为mortis是空有技能，没有灵魂，说到底就是一个只会模仿的小孩子，她没有自己想表达的东西，这是对于一门艺术来说是致命的。
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  大户爱  
+##### 34169#       发表于 2025-3-7 12:05
+
+这集喵梦行为动机虽然令人发笑。
+但对初华来说肯定感激死了。
+在喵梦操作下，小祥愿意回来和我们组一辈子乐队了。自己充满性幻想的歌词也传达到了。
+“那个小祥还为我的性幻想谱了曲，是不是代表小祥同意了呢^ ^”
+“肯定是这样，待会问问她什么时候和我同居，什么时候睡一张床，什么时候让姨摸摸你吧<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">”
+

@@ -1123,3 +1123,14 @@ temperature, Top K, Top P这些参数可能要自己稍微调一调？没直接�
 什么环境？我也是同样配置，win+ollama最多也就2tokens</blockquote>
 试试量化的？q4km 我6G显存3060也有 2token。win + llama.cpp cuda预编译包
 
+
+*****
+
+####  c月光咖啡  
+##### 79#       发表于 2025-3-7 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67596398&amp;ptid=2248885" target="_blank">UNICORN00 发表于 2025-3-7 11:23</a>
+
+试试量化的？q4km 我6G显存3060也有 2token。win + llama.cpp cuda预编译包</blockquote>
+是4k了，感觉是因为33%在内存，内存速度拖慢了整体速度。之前就问过DS混合使用的模式，DS明确告诉我性能会降到10%甚至更低
+
