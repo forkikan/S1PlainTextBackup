@@ -784,3 +784,17 @@ V2是新设计
 
 助推V2会怎么表现  不敢想 ^_^
 
+
+*****
+
+####  netcat  
+##### 58#       发表于 2025-3-7 08:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67594692&amp;ptid=2245624" target="_blank">瓦格雷 发表于 2025-3-7 08:35</a>
+V2是新设计 
+
+助推V2会怎么表现  不敢想 ^_^</blockquote>
+不飞去伦敦对不起这名字<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
