@@ -675,3 +675,19 @@ mygo里看春日影哭着跑出去的时候给初华打的电话吧，我感觉�
 
 谁的篇幅最长就最变态<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NEWROMANCER  
+##### 69#       发表于 2025-3-7 14:00
+
+初华终于找到了和祥子对等还能共同分担罪恶的场合了。
+
+
+*****
+
+####  上班族  
+##### 70#       发表于 2025-3-7 14:03
+
+投了无责任大象老师，但是谁不喜欢这种可人怜爱的无能的暴君<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

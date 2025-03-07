@@ -2250,3 +2250,70 @@ avemujica搞人偶小剧场-人偶小剧场逆输入进二次元动画角色。
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  ntrntr1  
+##### 34250#       发表于 2025-3-7 13:57
+
+<blockquote>非建政专用号 发表于 2025-3-7 13:49
+小姨扣侄女还能说句乱伦，左脑扣右脑是什么自交吗
+
+—— 来自 S1Fun</blockquote>
+这叫水仙。古希腊早已有之。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 非建政专用号| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  adretyu67.  
+##### 34251#       发表于 2025-3-7 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67597885&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-3-7 13:53</a>
+
+莫女士其实不是什么保护人格，而是对吉他睦的独占欲，求而不得，监禁play。讨厌大祥也是基于此。
+
+要说发 ...</blockquote>
+非得带入大祥和初华就是初华为了独占祥子于是<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+都到这份上鸡团确实是不得不组了。
+
+
+*****
+
+####  Victorino  
+##### 34252#       发表于 2025-3-7 14:03
+
+其实现在这个烂法，最大的点是突兀，换句话说，如果给两倍的篇幅，很多问题都能解释好，人物转变也能更自然而不是像提线木偶
+
+另外还有很大的锅在每集结束都要强行制造爆点，12389不正常地快而567不正常地慢，如果放弃这个想法，把每集的快慢节奏再打磨，13集未尝不能包好寿司
+
+时常会幻想一个有独角兽每集看分镜提意见的版本，会比现在好吗
+
+*****
+
+####  江口夕  
+##### 34253#       发表于 2025-3-7 14:03
+
+ 本帖最后由 江口夕 于 2025-3-7 14:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67597937&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-7 13:59</a>
+非得带入大祥和初华就是初华为了独占祥子于是
+
+都到这份上鸡团确实是不得不组了。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">初音小姐最害怕的是高松灯，睦是什么臭鱼烂虾根本不足为惧，何况已经挂了。
+初音想艹大祥
+莫想艹睦 
+大猫想艹莫 
+海玲：虽然不知道你们在干什么，但是我现在很high
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
