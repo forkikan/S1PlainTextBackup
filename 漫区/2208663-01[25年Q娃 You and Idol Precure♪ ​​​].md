@@ -4546,3 +4546,28 @@ ps 梅泽主p的q娃们是没有设定生日过 网络传的都是假的
 
 前面漏油还在讨论为什么没有姐妹q娃，然后独角兽就来了，太宠粉了
 
+
+*****
+
+####  modedd  
+##### 689#       发表于 2025-3-7 09:28
+
+第八集预告楼上不是都贴出来了吗，就是大家一起给没有手的噗哩伦一份她也能用的礼物，这是非常王道向的<strong>单元回</strong>剧情<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  粉儿alice  
+##### 690#       发表于 2025-3-7 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67590887&amp;ptid=2208663" target="_blank">jaewoongh_ 发表于 2025-3-6 21:30</a>
+要相信不当系构的独角兽
+
+没人关心下第七集吗，紫色小女孩被激烈的偶像活动吓跑了，搭配上田华子的演出，啧 ...</blockquote>
+把变身器换成出道机会 战斗姿态换成演唱会表演 这剧情就通顺多了
+
+现在都明目张胆把破铁皮带货都写到正片里去了
+这几年卖谷子吃相够难看过分了
+

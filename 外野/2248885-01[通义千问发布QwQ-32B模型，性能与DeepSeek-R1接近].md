@@ -1097,3 +1097,18 @@ win ollama+i5-13600kf+4080+内存24*2</blockquote>
 对了请教一下，我之前试过导入gguf（ds蒸馏的qwen-32b），但是跑起来感觉和ollama直接pull下来的不一样， ...</blockquote>
 temperature, Top K, Top P这些参数可能要自己稍微调一调？没直接从ollama上pull过，还真没注意过<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Vacuolar  
+##### 76#       发表于 2025-3-7 09:35
+
+很好，在写项目和改代码时一直用qwen节省时间，性能好了对我来说越好
+
+*****
+
+####  百响  
+##### 77#       发表于 2025-3-7 09:38
+
+比猴版r1强点，但远不如满血版，部署成本低是个优势
+

@@ -3475,3 +3475,17 @@ F5确实可以，但是又觉得分辨率有点低...
 
 魔法学院校长室打完后该去哪里？
 
+
+*****
+
+####  DARILBALDE  
+##### 309#       发表于 2025-3-7 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67594600&amp;ptid=2246453" target="_blank">hootao 发表于 2025-3-7 08:18</a>
+问下一路上捡到各种提升能力上限的道具，到底是直接用掉比较好还是做合成素材比较好？
+
+—— 来自 鹅球 v3. ...</blockquote>
+料理/调和的理智升满，能制作升级版提升属性道具
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
