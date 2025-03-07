@@ -4863,3 +4863,51 @@ out of expectation。
 
 就是二人一体的假面吉他手了呀，莫+小睦=真正的若叶睦，但是🍅喜欢留白所以应该不会让当事人亲口说。
 
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 34488#       发表于 2025-3-7 22:38
+
+鸡这片就是典型的点子很好笔力跟不上，写一堆有魅力的烂人写得好得让荒木来了。
+
+*****
+
+####  烂片雷达  
+##### 34489#       发表于 2025-3-7 22:38
+
+祥子作曲前在看灯的便签
+
+说不定祥子是想着灯谱下的曲
+太痛了初华，你再卑微再真挚也赢不了过去的女人<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 34490#       发表于 2025-3-7 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67602650&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-3-7 22:38</a>
+
+鸡这片就是典型的点子很好笔力跟不上，写一堆有魅力的烂人写得好得让荒木来了。 ...</blockquote>
+烂人写出魅力也是要塑造亮点的。 
+
+*****
+
+####  akiomn  
+##### 34491#       发表于 2025-3-7 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67602614&amp;ptid=2208921" target="_blank">爱莉希雅 发表于 2025-3-7 22:31</a>
+
+牢莫还能回来吗</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难说，墨缇丝和吉他睦如果都被舍弃，最后端出个四不像睦，我算柿本厉害
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 34492#       发表于 2025-3-7 22:43
+
+<blockquote>凉良 发表于 2025-3-7 22:42
+烂人写出魅力也是要塑造亮点的。</blockquote>
+所以说了🍅野心太大能力不行，可惜了。
+
