@@ -1510,3 +1510,56 @@ mortis的演技并非不值一提，喵梦说的是:很像，简直完美，真�
 
 不是我说，这片要加点性关系进去逻辑绝对会通畅很多
 
+
+*****
+
+####  卡卡布鲁根  
+##### 34178#       发表于 2025-3-7 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67597079&amp;ptid=2208921" target="_blank">烂片雷达 发表于 2025-3-7 12:25</a>
+这片和狗血晚8点档的唯一区别就是角色间没有性关系
+
+不是我说，这片要加点性关系进去逻辑绝对会通畅很多 ...</blockquote>
+确实
+
+—— 来自 vivo V2307A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  是谁的书画  
+##### 34179#       发表于 2025-3-7 12:32
+
+你要说这5个人上live之前先在睦的地下室里玩了一晚上SM，第二天这个状态上场live，那我觉得反而会显得大伙不那么变态一点。
+
+*****
+
+####  adretyu67.  
+##### 34180#       发表于 2025-3-7 12:34
+
+借睦头家地下室排练了一周吧。
+
+下面1213话live就看老团们出多少人来支援了。
+
+鸡团开live下面抓不到几个老面孔多少是有点失望的。虽然这风格继续发展下去是不适合抓老团壮丁。
+
+*****
+
+####  6030sylar  
+##### 34181#       发表于 2025-3-7 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67597167&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-7 12:32</a>
+
+你要说这5个人上live之前先在睦的地下室里玩了一晚上SM，第二天这个状态上场live，那我觉得反而会显得大伙 ...</blockquote>
+就是原本R18剧本没改好就进制作阶段了，重大制作事故
+
+*****
+
+####  钦念以忱  
+##### 34182#       发表于 2025-3-7 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67595761&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-3-7 10:28</a>
+
+再看一眼梦以的话</blockquote>
+太震撼了，堪比看完八王之乱、五胡乱华之后，忍不住回头重看三国。
+
