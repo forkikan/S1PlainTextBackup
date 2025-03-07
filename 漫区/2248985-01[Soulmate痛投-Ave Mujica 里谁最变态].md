@@ -743,3 +743,39 @@ mygo里看春日影哭着跑出去的时候给初华打的电话吧，我感觉�
 
 我现在只想知道初音究竟是从什么时候开始冒充初华的（似乎MyGO#7的时候已经处于这个状态了），另外这角色我推了这么久也带了不少感情了最后还是要看看她能不能有一个好归宿的
 
+
+*****
+
+####  你妈的为什么  
+##### 73#       发表于 2025-3-7 16:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  それは奇跡です  
+##### 74#       发表于 2025-3-7 16:11
+
+这一集播完还觉得这里面有人类的话，那我也嗦不出话了
+
+
+*****
+
+####  osore  
+##### 75#       发表于 2025-3-7 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67599258&amp;ptid=2248985" target="_blank">**为什么 发表于 2025-3-7 16:08</a>
+
+初音小姐这个变态表现，当时怎么忍得住半夜不爬上阁楼去猛抠的</blockquote>
+并没有证据显示没有爬
+
+同样是骑空团群友不知道哪里搬的
+
+<img src="https://img.saraba1st.com/forum/202503/07/161618xb5d3uttxnnppsnp.jpg" referrerpolicy="no-referrer">
+
+<strong>初音.jpg</strong> (55.44 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 16:16 上传
+

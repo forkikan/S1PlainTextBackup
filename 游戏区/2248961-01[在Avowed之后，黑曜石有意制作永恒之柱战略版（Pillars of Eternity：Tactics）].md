@@ -533,3 +533,23 @@ PG和Rare有地平线和盗贼之海这样的长青服务型游戏，黑曜石�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Bieaeml  
+##### 52#       发表于 2025-3-7 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67598110&amp;ptid=2248961" target="_blank">ultraseven 发表于 2025-3-7 14:19</a>
+
+这完全不一样。BG3已经在Steam EA了一段时间，所以500万只是微软认为的EA移植的成本。自杀小队华纳开发成 ...</blockquote>
+泄露表格是22年xgp首发价格，除了BG3的，还有个每月500W美元的荒野大镖客：救赎2，即纯移植旧作都要每个月算钱（移植+IP价值），其他新作或者计划中的，就没有一个低于1000W的，到了BG3这里500W就成只剩“移植”成本了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古代人皮克  
+##### 53#       发表于 2025-3-7 16:14
+
+再说tango最多只能算是杯赛保陶派得牺牲品，东京幽灵线最多算拉了坨小的但是也在推二代的制作，应该还是没亏的。百把号人的小制作组绩效再差能比陶德哥哥那坨玩意差吗。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
