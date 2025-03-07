@@ -846,3 +846,15 @@ mygo里看春日影哭着跑出去的时候给初华打的电话吧，我感觉�
 是踩下去能深陷一条小腿的史坑
 不仅摔的当时会感到恶心，多年回想起来也会为什么会有这么大的史坑在路面而震彻心扉
 
+
+*****
+
+####  创始’’’天翔  
+##### 83#       发表于 2025-3-7 18:41
+
+ 本帖最后由 创始’’’天翔 于 2025-3-7 18:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67599936&amp;ptid=2248985" target="_blank">aptx8285144 发表于 2025-3-7 17:05</a>
+
+泥潭之前还有人说母鸡卡的烂不过是完结多年后被遗忘路边的一条🐶，现在看这么变态的歌词面前，谁敢说是烂 ...</blockquote>
+要我说这片最出彩的点，就是真把这么变态的东西拍出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
