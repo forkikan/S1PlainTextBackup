@@ -2373,3 +2373,46 @@ lz可否加个看结果选项，我为了看结果投了好几期0
 
 谐音梗。 <blockquote>最好笑的是祥肯定是知道姨妈的身份的，所以实在是没法对初华的爱予以回应，因为她是侄女。</blockquote>
 
+
+*****
+
+####  一心而用  
+##### 271#       发表于 2025-3-7 09:20
+
+吸枕头不算是吧？
+
+<img src="https://img.saraba1st.com/forum/202503/07/092001mnnew7ms7z9fye7z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (39.44 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 09:20 上传
+
+
+*****
+
+####  六道明  
+##### 272#       发表于 2025-3-7 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67595004&amp;ptid=2248984" target="_blank">一心而用 发表于 2025-3-7 09:20</a>
+
+吸枕头不算是吧？</blockquote>
+初华（音）就只会骗人
+
+*****
+
+####  临汾牛肉丸  
+##### 273#       发表于 2025-3-7 09:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer"> 鸡和狗剧集加起来只看过狗的第一集，剩下都是在看nga s1 b站的乐子
+
+这期论坛的乐子不够，只能给+1
+
+*****
+
+####  Mincy0222  
+##### 274#       发表于 2025-3-7 09:26
+
+我真的没想到会有木柜子番致敬海猫的<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+

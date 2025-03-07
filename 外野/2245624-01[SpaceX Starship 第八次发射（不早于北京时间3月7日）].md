@@ -823,3 +823,31 @@ V2是新设计
 姿态发散以后不存在一个稳定的液面所以数字就随便跳 ...</blockquote>
 确实，估计跟上一次一样疯狂转圈
 
+
+*****
+
+####  鲜血秋叶  
+##### 61#       发表于 2025-3-7 09:18
+
+本来就说v2第一次的样子问题不会小，马斯克非觉得加个灭火器就能解决，问题是8飞完全没办法证明v2只靠加灭火器就能解决问题，而且就他现在的颠劲很怀疑他现在还有多少心思在去火星上。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  哈里-谢顿  
+##### 62#       发表于 2025-3-7 09:22
+
+<img src="https://img.saraba1st.com/forum/202503/07/092229bqvcp0xrxouor4qc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1897.jpeg</strong> (135.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 09:22 上传
+
+#spacex星舰进行第八次试飞# 从任务飞控中心电脑中显示，貌似星舰(S34)发动机出现故障导致发生爆炸。 ​​​
+
+[https://weibo.com/5616492130/5141474120303107](https://weibo.com/5616492130/5141474120303107)
+

@@ -16453,3 +16453,26 @@ mujica动画现在已经到了一种为了推进情节，完全不在乎角色�
 
 谐音梗。 <blockquote>最好笑的是祥肯定是知道姨妈的身份的，所以实在是没法对初华的爱予以回应，因为她是侄女。</blockquote>
 
+
+*****
+
+####  乙津夢  
+##### 34039#       发表于 2025-3-7 09:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">早上冲浪的时候又看见有人提了个小细节，大祥问大莫木子米怎么样了的时候，大莫的回答是她自己摔下去的，合着原来精分脑内小剧场不是象征意义啊，全是实拍，还遵循物理定律的，超能力者实锤了吧
+
+*****
+
+####  一心而用  
+##### 34040#       发表于 2025-3-7 09:21
+
+吸枕头不算是吧
+
+<img src="https://img.saraba1st.com/forum/202503/07/092056eqfuxtfx4wjaqs74.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (38.54 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 09:20 上传
+
