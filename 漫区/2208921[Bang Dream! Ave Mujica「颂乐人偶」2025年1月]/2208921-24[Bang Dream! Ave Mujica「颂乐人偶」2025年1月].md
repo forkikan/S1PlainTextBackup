@@ -1293,3 +1293,81 @@ TFT能给C团能给狗团，照理来说鸡团那份少不了的。
 Mujica动画在表现灯的话语能直击祥子心灵，初华歌词却一点触动不了祥子这方面真的很用心。
 每次遇上什么大事就要看灯的便签，看得还出奇的认真。初华的告白诗则是连一个正眼瞧一下的演出都不愿意做，不管对方说什么都突出一个不回应。
 
+
+*****
+
+####  modkingr  
+##### 34157#       发表于 2025-3-7 11:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67596402&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-3-7 11:23</a>
+
+编辑编辑</blockquote>
+这个是iphone的备忘录窗口，右上角是转发，怎么会是聊天窗口
+
+*****
+
+####  adretyu67.  
+##### 34158#       发表于 2025-3-7 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67596673&amp;ptid=2208921" target="_blank">老贝 发表于 2025-3-7 11:45</a>
+
+Mujica动画在表现灯的话语能直击祥子心灵，初华歌词却一点触动不了祥子这方面真的很用心。
+
+每次遇上什么大 ...</blockquote>
+这不就是11、12话要干的事吗。
+
+*****
+
+####  肛之练筋士  
+##### 34159#       发表于 2025-3-7 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67596496&amp;ptid=2208921" target="_blank">凉良 发表于 2025-3-7 11:32</a>
+DZ是卖卡不是卖角色</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">一样道理吧，喜欢这个角色才会有给角色花钱的动力，要让观众喜欢那起码得塑造得好点或者有相应特色吧，就母鸡卡现在这全员神人的状态很难让大部分观众喜欢吧（甚至还有些都脱坑了）
+
+*****
+
+####  与太郎  
+##### 34160#       发表于 2025-3-7 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67596659&amp;ptid=2208921" target="_blank">HereLink 发表于 2025-3-7 11:45</a>
+
+PTT怎么崩了，挂梯子都进不去，谭里有湾友吗😢</blockquote>
+能正常打开
+
+
+*****
+
+####  HereLink  
+##### 34161#       发表于 2025-3-7 11:50
+
+<blockquote>与太郎 发表于 2025-3-7 11:48
+能正常打开</blockquote>
+挂了梯子吗，是要开全局吗？
+
+*****
+
+####  YF31  
+##### 34162#       发表于 2025-3-7 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67596345&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-3-7 11:18</a>
+这不就是典型的劣等感么？真要是不愿意的话大喵一开始问“你想不想组Mujica”的时候应该直接回一句“还是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我太有生活了，因为二皮脸二流子行径的定性是我的四十岁地中海教导主任专门占了在高二的时候占了半节化学课前来我班处理定性的，在下午的光线里，黑着脸骂人的秃头还能反光，我记忆犹新。
+一想到这下半辈子没出过国从来不懂日语的中年秃头教导主任也很有生活了，非常具有私密马赛距离感的日式价值观了，我也挺难绷住的。
+就我是不懂哈，你这么锲而不舍地正当化喵圣的行为有什么意义吗？还是说喵圣是最符合你朴素价值观的角色，柿本广大写得太好了太对了？要是你这么想，那我祝你幸福吧。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  卡卡布鲁根  
+##### 34163#       发表于 2025-3-7 11:54
+
+喵梦首先是工具人
+其次是演技 炒作 视频现在都不太行的艺人
+抓住mujica 抱紧大小姐大腿还是很符合逻辑的
+就是这又要抱大腿又要当工具人哈气
+思之令人发笑了
+
+—— 来自 vivo V2307A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
