@@ -9733,3 +9733,14 @@ LLM都是数据喂出来的，真不一定比wiki靠谱，万一出幻觉了呢�
 
 话说魔女声优是谁有人听出来了吗（）
 
+
+*****
+
+####  刺客ares  
+##### 8185#       发表于 2025-3-7 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67602446&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-3-7 22:04</a>
+
+话说魔女声优是谁有人听出来了吗（）</blockquote>
+现在还没有repo可以排除最有名最有特点的那几个了（
+
