@@ -210,3 +210,59 @@ mggm什么都能炒，又不是第一天了<img src="https://static.saraba1st.co
 
 赶紧趁他来华给他锁
 
+
+*****
+
+####  LeonsCat  
+##### 34060#       发表于 2025-3-7 09:58
+
+不，这两首歌水平怎么……
+
+第一首给我整超级碗去了，第二首刻板印象到无聊……
+
+*****
+
+####  ape-apple  
+##### 34061#       发表于 2025-3-7 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67594572&amp;ptid=2208921" target="_blank">肛之练筋士 发表于 2025-3-7 08:13</a>
+笑了，战吧最新一集的捂嘴方式就是都怪剧透舅舅，觉得剧透太多了失去了原创番的魅力了
+虽然我也觉得剧透不 ...</blockquote>
+战吧一部分人不是啥比，这里面包括战吧厨厨，剩下的都应该绑起来循环播放蒜水鸡国到死
+
+
+*****
+
+####  qratosones1337  
+##### 34062#       发表于 2025-3-7 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593953&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-3-7 01:37</a>
+
+1.偷看别人手机内容
+
+2.抢走别人手机
+
+3.在对方不愿意的情况下强制发送消息</blockquote>
+虽然这集是难绷但为什么你会纠结这么奇怪的点……
+
+“别废话，我就问你，你想艹大祥么？”
+
+“……想”
+
+*****
+
+####  capraeLinn  
+##### 34063#       发表于 2025-3-7 10:05
+
+虽然但是，留战吧自己在那共振不是挺好的，非得把战吧怎么看战吧人怎样怎样搬到别的论坛上是不是有点太喜欢战吧了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  虚无缥缈的分身  
+##### 34064#       发表于 2025-3-7 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67595294&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-3-7 09:47</a>
+
+不过按死海文书记载，严格说初音和丰川家确实没关系吧，老登的私生女是初华，初音是初华妈妈和其他人生的， ...</blockquote>
+你好像记反了，初音才是私生女<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

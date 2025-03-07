@@ -2462,3 +2462,11 @@ lz可否加个看结果选项，我为了看结果投了好几期0
 
 -2，适合一群死宅拿着爆米花不带脑子起哄着看，看完之后回头一想全是槽点
 
+
+*****
+
+####  Wildfire  
+##### 280#       发表于 2025-3-7 09:58
+
+这玩意儿越发变态了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
