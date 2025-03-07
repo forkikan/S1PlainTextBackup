@@ -64,3 +64,14 @@
 那泰坦嘴巴上贴了两个铝热炸完变烟花，屁事没有接着追我也是手抖吗</blockquote>
 屎山代码偷伤害了，铝热东线反重效果一直很不稳定我都懒得带了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FLZB  
+##### 5838#       发表于 2025-3-8 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67603025&amp;ptid=2170852" target="_blank">madcow 发表于 2025-3-7 23:29</a>
+
+现在还差毒蛇突击兵，自由烈焰，真理执行者，自由公仆这四个债券没买，哪个性价比更高点？ ...</blockquote>
+首先排除真理执行者和自由烈焰，毒蛇冰针可以蹭队友的，自由公仆的核弹手枪解锁了更多配装选择和全新的打法，地狱火背包更是重量级，选哪个不用多说了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
