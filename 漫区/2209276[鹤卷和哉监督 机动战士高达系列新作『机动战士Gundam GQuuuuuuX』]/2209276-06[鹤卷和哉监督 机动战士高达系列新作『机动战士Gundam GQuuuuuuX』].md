@@ -9529,3 +9529,21 @@ GQ版大魔的腰(对比胸胯来说)特别细，但是这个角度看不到腰 
 
 2025-3-7 18:31 上传
 
+
+*****
+
+####  纪寞  
+##### 8166#       发表于 2025-3-7 19:04
+
+艹，85的高达被黑拳扎古的豆豆枪吓得满地乱跑的画面是挺搞笑的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 8167#       发表于 2025-3-7 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67596630&amp;ptid=2209276" target="_blank">王留美 发表于 2025-3-7 11:42</a>
+
+WG系列MS用驱动安装装置设定。省流版：吉翁在MS的实战运用过程中为了快速进行战斗用OS的升级而采用的卡带式 ...</blockquote>
+这搜索方法不够未来，难道不应该是直接问ChatGPT
+
