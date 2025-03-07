@@ -4440,3 +4440,50 @@ ave之前一直都是公式ppt，这次来了个接轨mygo做法的
 
 —— 来自 OnePlus CPH2649, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ntrntr1  
+##### 34447#       发表于 2025-3-7 20:45
+
+笑死，看了mv，原来老登真是过来阻止女儿对孙女犯罪的。
+
+你们年轻人搞搞乐队我不反对，搞成监o play还是算了吧。
+
+还好初音怂，大喵你知不知道自己在帮助犯罪啊xdd  你啊，真是满脑子只有木头人呢。
+
+*****
+
+####  maritimus  
+##### 34448#       发表于 2025-3-7 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67601190&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-3-7 19:24</a>
+
+但是需要作词给人看到。她第一步就怂了。</blockquote>
+但还是很回旋的，都在第10集，都唱出来了，都表达了恋恋不舍的感情
+
+还有个对偶的一点：灯也不是一开始就唱出来，第10集受初华的提示才唱的。初华这个词能唱出来，是因为祥子看了灯的便签决定写了曲
+
+*****
+
+####  sauron.j  
+##### 34449#       发表于 2025-3-7 20:48
+
+海铃：求信任是错误的，在锁妖塔里满足强欲就行了，无畏背叛的恐惧
+
+喵梦：因嫉妒不敢爱，现在自甘堕落，无畏爱上睦
+
+莫提斯：为了祥无畏死亡
+
+祥：当初赚了哥几个上山，现在不许逃跑，必须忘记一切（C团）
+
+这破片留白太多，每集都是只看一遍莫名其妙，要自己拼图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  好面子的懒虫  
+##### 34450#       发表于 2025-3-7 20:50
+
+这mv角色一开跑我就想笑是怎么回事，感觉好魔性<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
