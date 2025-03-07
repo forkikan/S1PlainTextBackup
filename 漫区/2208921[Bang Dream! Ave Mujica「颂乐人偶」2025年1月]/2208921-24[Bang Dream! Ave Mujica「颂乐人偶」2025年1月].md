@@ -2086,3 +2086,78 @@ avemujica搞人偶小剧场-人偶小剧场逆输入进二次元动画角色。
 
 初音的小黄曲比这不知道强到哪里去了，这碰瓷也太掉价了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天空塔书记官  
+##### 34235#       发表于 2025-3-7 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67596087&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-3-7 10:56</a>
+这也算致敬初音了，性压抑小黄歌
+
+—— 来自 鹅球 v3.3.96</blockquote>
+《罗密欧与辛德瑞拉》是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  cxj649  
+##### 34236#       发表于 2025-3-7 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67597652&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-7 13:22</a>
+
+祥子还一脸冷酷地样子，倒是睦头和莫头再不和解真就要假唱乐队一辈子了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">我个人觉得除了开头不管木头外，后面都是非常正常的反应
+
+
+*****
+
+####  adretyu67.  
+##### 34237#       发表于 2025-3-7 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67597732&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-3-7 13:32</a>
+
+我个人觉得除了开头不管木头外，后面都是非常正常的反应</blockquote>
+没，说的是live
+
+*****
+
+####  非建政专用号  
+##### 34238#       发表于 2025-3-7 13:33
+
+感觉大初老师的智力水平应该再验一验，居然能问出大象要不要回阁楼住这种问题
+是觉得丰川别野不够大还是觉得大象也炫压抑了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  莉缇娅  
+##### 34239#       发表于 2025-3-7 13:33
+
+我懂了，mujica是柿本写给pjsk的情书。
+
+鸡的新曲就决定是doriko写的了。
+
+*****
+
+####  adretyu67.  
+##### 34240#       发表于 2025-3-7 13:35
+
+大初老师应该是隐约地感觉到了大祥和家里关系不好，所以宁肯在事务所加班打地铺也不肯回去。
+
+但是她没想到大祥不是和老登冷战，顺带和中登也冷战了。
+
+
+*****
+
+####  天空塔书记官  
+##### 34241#       发表于 2025-3-7 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67597212&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-3-7 12:37</a>
+22年公布mygo人设的时候，我还说这么成人化的人设不如进DJ</blockquote>
+迷子其实一点也不成人，充满着一股青春期屁大点事的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

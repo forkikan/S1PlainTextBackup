@@ -9258,3 +9258,15 @@ ARK那帮人画的基连暗杀计划、强尼莱丁归来里设定是电子合�
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
 
+
+*****
+
+####  Toby_dak  
+##### 8147#       发表于 2025-3-7 13:29
+
+<img src="https://p.sda1.dev/22/2457cfa2b65bc37c83de06a4ac379a15/1000096056.png" referrerpolicy="no-referrer">
+
+庵野这是想全场一起背诵「認めたくないものだな」之类的马沙语录吗<img src="https://static.saraba1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
