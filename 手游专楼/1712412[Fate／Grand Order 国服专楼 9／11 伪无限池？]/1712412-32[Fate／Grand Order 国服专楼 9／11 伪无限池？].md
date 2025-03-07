@@ -107,3 +107,24 @@
 
 礼装换哪个好
 
+
+*****
+
+####  marxel  
+##### 47046#       发表于 2025-3-7 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67589635&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2025-3-6 19:28</a>
+
+最后差一个血泪没搬掉，狗粮芙芙棋子放弃，没办法，根本找不到满破卡池礼装的 ...</blockquote>
+狂金棋子还是尽量搬一下，开ex树都要吃
+
+*****
+
+####  marxel  
+##### 47047#       发表于 2025-3-7 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67597747&amp;ptid=1712412" target="_blank">6030sylar 发表于 2025-3-7 13:34</a>
+
+礼装换哪个好</blockquote>
+一般认为烟雾镜那个最实用
+

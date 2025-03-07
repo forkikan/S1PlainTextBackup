@@ -2161,3 +2161,11 @@ avemujica搞人偶小剧场-人偶小剧场逆输入进二次元动画角色。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  盗号找不回  
+##### 34242#       发表于 2025-3-7 13:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">弹幕里有句说的好：我们邦邦都是轻百合， 姐们你是真女同啊——顺便我觉得狗的队员关系正常多了，经历了13集之后都挺成熟独立的，我十分怀疑没拍出来的地方有立希爱音soyo三人排练拌嘴之类的小段子
+
