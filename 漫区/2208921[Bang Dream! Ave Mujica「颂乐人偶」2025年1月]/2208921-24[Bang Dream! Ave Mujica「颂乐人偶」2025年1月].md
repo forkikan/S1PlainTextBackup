@@ -2376,3 +2376,21 @@ soyo：不会呀~
 soyo：不会呀~</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怪不得母鸡卡里go团这反应呢，第十集这些可能性定调啥的估计都聊过了，就是木头出意外被大猫发现了，不出意外装下去估计就是soyo或者立希开团拒绝了
 
+
+*****
+
+####  ads147147  
+##### 34258#       发表于 2025-3-7 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67598071&amp;ptid=2208921" target="_blank">盗号找不回 发表于 2025-3-7 14:15</a>
+
+那从第一季到后来这段时间里可指不定怎么说祥子了，soyo祛魅了，立希本来也不太被魅惑，爱音更是被ccc创 ...</blockquote>
+爱音知道ccc账号是soyo在管而且还知道她更新了，就知道其实大概率几个人底下已经把底透的差不多了。
+
+*****
+
+####  sauron.j  
+##### 34259#       发表于 2025-3-7 14:20
+
+这些年原创翻车的的共同点是喜欢浪费时间然后发现收不回来，水母、蒜、水魔亦如是
+
