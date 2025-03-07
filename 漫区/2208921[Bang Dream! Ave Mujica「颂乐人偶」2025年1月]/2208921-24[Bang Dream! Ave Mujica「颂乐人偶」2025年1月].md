@@ -2902,3 +2902,53 @@ r组从定调上就不是坏的。
 
  收声啦，小心后面还有一次鸡狗对邦CCC，让你再听一次春日影
 
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 34303#       发表于 2025-3-7 16:18
+
+不过炫压抑神曲很适合上TFT，编制小的慢歌。
+
+*****
+
+####  老贝  
+##### 34304#       发表于 2025-3-7 16:20
+
+TFT上这首表白歌的话这两天应该就官宣了，Mujica后面要上应该也是新歌吧。
+
+*****
+
+####  GBLMikuHatsune  
+##### 34305#       发表于 2025-3-7 16:20
+
+昨晚看到中间的时候就一个想法：姐们几个和鸡刚开演的时候有啥区别呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+祥子还在哈气，初华（音）还在舔狗，牢莫还是杂鱼搞笑角色，喵梦还是正论怪，海玲还惦记着那逼信用。
+
+我看了10集后对角色的评价和第一集、甚至go13集结束的时候都没太大差别，能量守恒了说是<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+wsd能不能把我浪费的人生退给我啊<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  南宮凝香  
+##### 34306#       发表于 2025-3-7 16:25
+
+星之鼓動 （初華版）
+
+*****
+
+####  ads147147  
+##### 34307#       发表于 2025-3-7 16:25
+
+说起来，如果喵梦接受了舞台剧的演出，那么喵梦就要在剧里演美奈美女儿。。这位妈妈是不是动了奇怪的念头。。
+
+*****
+
+####  Lyzers  
+##### 34308#       发表于 2025-3-7 16:27
+
+尬黑了，go13集姐几个最多也只能是几个势利眼和自私心较重的JK，现在人均神经病，你竟然说没太大差别<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

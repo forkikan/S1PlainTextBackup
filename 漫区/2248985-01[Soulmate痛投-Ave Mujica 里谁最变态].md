@@ -779,3 +779,32 @@ mygo里看春日影哭着跑出去的时候给初华打的电话吧，我感觉�
 
 2025-3-7 16:16 上传
 
+
+*****
+
+####  ntrntr1  
+##### 76#       发表于 2025-3-7 16:20
+
+<blockquote>你妈的为什么 发表于 2025-3-7 16:08
+初音小姐这个变态表现，当时怎么忍得住半夜不爬上阁楼去猛抠的</blockquote>
+简述本动画中多次出现的咖啡的作用
+
+*****
+
+####  你妈的为什么  
+##### 77#       发表于 2025-3-7 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67599384&amp;ptid=2248985" target="_blank">ntrntr1 发表于 2025-3-7 16:20</a>
+
+简述本动画中多次出现的咖啡的作用</blockquote>
+只有红茶可以吗，不可以还有咖啡<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lyzers  
+##### 78#       发表于 2025-3-7 16:22
+
+还是被全年龄限制了
+
+不敢想初音女士在同居期间用了多少次大祥老师的脏衣服<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
