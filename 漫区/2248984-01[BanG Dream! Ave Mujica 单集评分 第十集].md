@@ -2718,3 +2718,12 @@ live的演出是什么玩意？歌还行。-2
 -2
 又半集是睦，初华的歌也放睦，有啥病啊
 
+
+*****
+
+####  mhss  
+##### 308#       发表于 2025-3-8 00:53
+
+-2
+金毛是女同就算了，怎么坏猫也变女同了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
