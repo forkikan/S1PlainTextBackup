@@ -1720,3 +1720,36 @@ miko第一个表扬的是2K画质
 
 刚才阿心/山田/马自立3人突发线下联动唱歌，唱完miko的曲子突然往死里夸miko，吓死我了还以为出了什么事
 
+
+*****
+
+####  holofan  
+##### 10882#       发表于 2025-3-7 20:41
+
+<img src="https://img.saraba1st.com/forum/202503/07/203807qc05gz2coix769x4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (13.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 20:38 上传
+
+一专的主推曲磨磨蹭蹭现在才300万，而みこきゅん都快400万了，看起来一辈子超不过去了
+
+我宣布みこきゅん才是真正的国歌，みこきゅん神坛永不陨落<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holofan  
+##### 10883#       发表于 2025-3-7 20:57
+
+<img src="https://img.saraba1st.com/forum/202503/07/205720rt20zpnlk2mscstg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (7.94 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 20:57 上传
+
+草
+
