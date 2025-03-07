@@ -1053,3 +1053,22 @@ bro干的：問題是現在微軟沒說BG3能 ...</blockquote>
 
 删去500W报价并且自己发明一个无人验证的说法，贴上图之后轻描淡写的一转另一个问题讨论500W合理不合理，bro今天自说自话的KPI还挺多的
 
+
+*****
+
+####  D-JoeII  
+##### 91#       发表于 2025-3-7 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67603153&amp;ptid=2248961" target="_blank">Bieaeml 发表于 2025-3-7 23:50</a>
+
+“微软干的：把BG3加入第三方首发XGP报价表格，然后给了500W美元的报价 X
+
+微软干的：在表格的附註寫明BG3 ...</blockquote>
+那500萬你想加進去我沒問題,隨便
+
+"微软干的：把BG3加入第三方首发XGP报价表格，然后给了500W美元的报价 X
+
+微软干的：在表格的附註寫明BG3無法首發XGP,只能進第二輪,最後寫上了500萬報價 O"
+
+現在你要討論什麼?或者說其實你有沒有想討論?
+
