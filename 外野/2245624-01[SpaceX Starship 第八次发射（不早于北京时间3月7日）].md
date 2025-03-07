@@ -762,3 +762,25 @@ SS发动机出现以外时的速度5.6km/s，上一次在5.9km/s时GG了
 
 V2看来设计有问题吧
 
+
+*****
+
+####  thelinli2  
+##### 56#       发表于 2025-3-7 08:32
+
+泥潭著名坛友jupiter高兴了，但只高兴一半。
+
+*****
+
+####  瓦格雷  
+##### 57#       发表于 2025-3-7 08:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67594488&amp;ptid=2245624" target="_blank">7do 发表于 2025-3-7 07:54</a>
+
+二级以前不是已经验证过回收了吗 在宇宙边缘待一会难度这么大
+
+— from S1 Next Goose v3.3.96 ...</blockquote>
+V2是新设计 
+
+助推V2会怎么表现  不敢想 ^_^
+

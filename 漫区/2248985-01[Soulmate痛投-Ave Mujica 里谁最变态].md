@@ -582,3 +582,13 @@ mygo里看春日影哭着跑出去的时候给初华打的电话吧，我感觉�
 
 野兽主唱名不虚传<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Schwarzess  
+##### 59#       发表于 2025-3-7 08:34
+
+想了想还是投了全员，但umr和猫只是被卷进来的普通人。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
