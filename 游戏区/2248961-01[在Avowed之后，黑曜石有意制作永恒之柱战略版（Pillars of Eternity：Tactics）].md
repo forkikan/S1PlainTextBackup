@@ -864,3 +864,18 @@ POE里笨重大锤圣武士角色进行完一轮整轮施法的时候，高敏�
 
 回家吧好不好，回家吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Anatoly  
+##### 78#       发表于 2025-3-7 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67601375&amp;ptid=2248961" target="_blank">otaku21126 发表于 2025-3-7 19:50</a>
+
+你真的有玩过《永恒之柱》吗
+
+永恒之柱的战斗机制并不是真正的RTWP，而是动作冷却时间很长的即时战略RPG</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">我的用词问题，我的想法其实不需要是正义之怒那种无缝，而只是那种可以在战斗前切的
+
+这点我知道是可以用控制台来切，但如果不用控制台就只能一路用到死，就比较神秘了
+

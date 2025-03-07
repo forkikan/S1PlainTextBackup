@@ -4562,3 +4562,42 @@ ave之前一直都是公式ppt，这次来了个接轨mygo做法的
 
 说真的，现在这舔狗初华形象还真不如当初让初华化身带土给大祥家的都暗杀一下，设计把丰川产业做空来让小祥投入自己怀抱，然后面对其余三个责问说都怪你们当时对有小祥的母鸡卡见死不救！我才会出此下策！然后一顿live以后心里受荡涤表示俺也想当主唱洗白白来的好接受呢
 
+
+*****
+
+####  cccpprc  
+##### 34458#       发表于 2025-3-7 21:25
+
+话说现在台长精神状态好些了吧
+
+不至于像当年推子之于噩梦吧
+
+*****
+
+####  安娜导函数  
+##### 34459#       发表于 2025-3-7 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67595950&amp;ptid=2208921" target="_blank">YF31 发表于 2025-3-7 10:44</a>
+你觉得公屏发性压抑黄词，发完性压抑黄词再拉着嗯闯发黄词对象本人人生也是初音本意的话，那我顺从你吧。 ...</blockquote>
+什么？我寻思你初音不都当人面把"我监禁你，我想**"唱完了，完事还能面不改色的说"我为（监禁）你准备的阁楼还在，你快回来和我同居吧"嘛<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  钦念以忱  
+##### 34460#       发表于 2025-3-7 21:32
+
+高尾 以我自己的想法举例来说，我觉得祥子之外的Ave Mujica成员在描写的时候都“露出了至今从未见过的一面”，但是唯有祥子，没有展露出另一面之类的东西呢。
+
+大家都OOC了，但唯独祥子好像没有OOC呢。
+
+*****
+
+####  cxj649  
+##### 34461#       发表于 2025-3-7 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67602212&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-3-7 21:29</a>
+
+什么？我寻思你初音不都当人面把"我监禁你，我想**"唱完了，完事还能面不改色的说"我为（监禁）你准备的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以说这哪里是斗财阀，这分明祥爷来救孙女
+
