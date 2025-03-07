@@ -9278,3 +9278,28 @@ ARK那帮人画的基连暗杀计划、强尼莱丁归来里设定是电子合�
 
 就等内地看什么时候上映了
 
+
+*****
+
+####  王留美  
+##### 8149#       发表于 2025-3-7 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67596630&amp;ptid=2209276" target="_blank">王留美 发表于 2025-3-7 11:42</a>
+ WG系列MS用驱动安装装置设定。省流版：吉翁在MS的实战运用过程中为了快速进行战斗用OS的升级而采用的卡带式 ...</blockquote>
+民用MS在使用该装置升级/安装战斗用OS后，会开启对携带武器的供能回路开关，同时关闭标准配备用于防治撞击事故的安全装置，从而使得MS的可动范围可以大幅增加
+
+*****
+
+####  王留美  
+##### 8150#       发表于 2025-3-7 14:11
+
+<img src="https://img.saraba1st.com/forum/202503/07/141057mtityt3tgdrhsyiu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6934.jpeg</strong> (235.19 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 14:10 上传
+
+夏利安的德姆，似乎是蓝色为主，腰腹及头部十字轨道外沿为红色，似乎在腰部有追加组件(塞可缪?） 
+

@@ -2317,3 +2317,62 @@ avemujica搞人偶小剧场-人偶小剧场逆输入进二次元动画角色。
 海玲：虽然不知道你们在干什么，但是我现在很high
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  ntrntr1  
+##### 34254#       发表于 2025-3-7 14:06
+
+<blockquote>江口夕 发表于 2025-3-7 14:03
+初音小姐最害怕的是高松灯，睦是什么臭鱼烂虾根本不足为惧，何况已经挂了。
+
+初音想艹大祥
+
+莫想艹睦 </blockquote>
+海铃:起控制欲了。下次你们开银趴姿势顺序按我说的来。
+
+*****
+
+####  ads147147  
+##### 34255#       发表于 2025-3-7 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67597784&amp;ptid=2208921" target="_blank">盗号找不回 发表于 2025-3-7 13:38</a>
+
+弹幕里有句说的好：我们邦邦都是轻百合， 姐们你是真女同啊——顺便我觉得狗的队员关系正常多了，经历了13 ...</blockquote>
+不是有短信小剧场么：
+
+立希：上次live后你们好松弛，得赶紧定下一次live了。
+
+soyo：不会呀~
+
+正常来说爱音应该会搭话顺着soyo或者立希把话题继续下去，比如没觉得松弛啊，或者问立希下一场有没有新曲子。而是抛出了劲爆的祥子要重组ccc。
+
+突然觉得这三个人会私底下开小会讨论祥子。。。
+
+*****
+
+####  非建政专用号  
+##### 34256#       发表于 2025-3-7 14:11
+
+和大初老师身体接触最亲密的几个人：
+1、这是我们sumimi时的甜甜圈
+2、抓手强行带到丰川家的大喵
+3、在大初脑子被掼杀的若叶睦
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  盗号找不回  
+##### 34257#       发表于 2025-3-7 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67598016&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-3-7 14:08</a>
+
+不是有短信小剧场么：
+
+立希：上次live后你们好松弛，得赶紧定下一次live了。
+
+soyo：不会呀~</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怪不得母鸡卡里go团这反应呢，第十集这些可能性定调啥的估计都聊过了，就是木头出意外被大猫发现了，不出意外装下去估计就是soyo或者立希开团拒绝了
+
