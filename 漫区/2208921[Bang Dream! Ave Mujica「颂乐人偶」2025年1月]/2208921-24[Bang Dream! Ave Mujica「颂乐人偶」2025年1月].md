@@ -921,3 +921,97 @@ imprisoned xii明显是祥子自己的问题啊<img src="https://static.saraba1s
 
 VG我就知道当年代永翼搞基了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qratosones1337  
+##### 34126#       发表于 2025-3-7 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67596265&amp;ptid=2208921" target="_blank">YF31 发表于 2025-3-7 11:12</a>
+
+那你猜猜为什么初音女士说"不要讨厌我？"一定是因为美好的告白被接受了大家围成一圈鼓掌是吧。
+
+太能混混s ...</blockquote>
+这不就是典型的劣等感么？真要是不愿意的话大喵一开始问“你想不想组Mujica”的时候应该直接回一句“还是算了吧”，现实是初华在犹豫的状态下，让她自己主动她没有决心，但是真推着她那她也没有拒绝的决心，这种情况下外力半推半就地推一把，就是典型的恋爱戏桥段（虽然确实太变态了）。柿畜虽然畜但起码这一段是没OOC的
+
+你冒出来一句莫名其妙的“辱骂男生犯贱女生犯婊”，跟剧内情节一点边都不沾，只能理解为你自己太有生活了……
+
+*****
+
+####  adretyu67.  
+##### 34127#       发表于 2025-3-7 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67596270&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-7 11:12</a>
+
+是的，所以祥子在初华复刻甜甜圈的时候不搭理她，其实应该理解祥子，作为对比，这种不走心的互动同样也是 ...</blockquote>
+但是鸡10话live基本就是最高档的交心了。
+
+*****
+
+####  thisisaspider  
+##### 34128#       发表于 2025-3-7 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67594904&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-3-7 09:07</a>
+灯的一辈子是无数个瞬间变成永远 
+祥的一辈子是被停止的瞬间变成永远。</blockquote>
+我觉得应该是
+灯 永恒是过程
+祥 永恒是目的
+
+*****
+
+####  zhoujin8584  
+##### 34129#       发表于 2025-3-7 11:19
+
+咱就是说有没有可能，那个镜头初华本来也想点分享到line，一直下不了决心，喵梦只是帮她点了个确认，而且line她想撤回也可以撤回呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202503/07/111949b50083utop01u1k0.png" referrerpolicy="no-referrer">
+
+<strong>27787217413175512.png</strong> (156.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 11:19 上传
+
+*****
+
+####  魔法使夜子  
+##### 34130#       发表于 2025-3-7 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67596327&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-3-7 11:16</a>
+
+有个问题不知道前面有没有人说，按照访谈来说，mortis才是那个拥有表演才能的角色，但喵梦脑子里烙印的又 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">你是在试图理解天才监督柿本的逻辑，凡人怎么能理解
+
+*****
+
+####  syndrome2032  
+##### 34131#       发表于 2025-3-7 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67596356&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-7 11:19</a>
+我觉得应该是
+灯 永恒是过程
+祥 永恒是目的</blockquote>
+这个是我看鸡狗合同live那张宣传下写的两个团的词。鸡写的我记得好像是被封闭的永远。
+
+*****
+
+####  qratosones1337  
+##### 34132#       发表于 2025-3-7 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67596362&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-7 11:19</a>
+
+咱就是说有没有可能，那个镜头初华本来也想点分享到line，一直下不了决心，喵梦只是帮她点了个确认，而且li ...</blockquote>
+她自己就是在聊天窗口里编辑的，这就是想发的意愿非常强烈但是下不了决心——否则从一开始就不应该在聊天窗口里写这么长的东西，毕竟就算没有别人，自己也可能手滑发出去。
+
+*****
+
+####  圣血天使  
+##### 34133#       发表于 2025-3-7 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67595338&amp;ptid=2208921" target="_blank">风真人 发表于 2025-3-7 09:51</a>
+还是祥子塑造太烂导致的，让所有人的人物关系和行且逻辑显得不知所谓，除了制作组硬堆砌的设定，mujica播到 ...</blockquote>
+祥子烂武士刀也知道啊，你看不是借大猫嘴说了大小姐过家家<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PJC110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+

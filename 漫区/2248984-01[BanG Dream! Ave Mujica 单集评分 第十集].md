@@ -2511,3 +2511,11 @@ lz可否加个看结果选项，我为了看结果投了好几期0
 
 0 利空落地级别的烂，彻底和解了
 
+
+*****
+
+####  neokirin  
+##### 286#       发表于 2025-3-7 11:19
+
+必须+2，就爱看别人尖叫抓挠<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

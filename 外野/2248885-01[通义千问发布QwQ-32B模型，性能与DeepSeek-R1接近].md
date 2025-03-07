@@ -1112,3 +1112,14 @@ temperature, Top K, Top P这些参数可能要自己稍微调一调？没直接�
 
 比猴版r1强点，但远不如满血版，部署成本低是个优势
 
+
+*****
+
+####  UNICORN00  
+##### 78#       发表于 2025-3-7 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67589070&amp;ptid=2248885" target="_blank">c月光咖啡 发表于 2025-3-6 18:11</a>
+
+什么环境？我也是同样配置，win+ollama最多也就2tokens</blockquote>
+试试量化的？q4km 我6G显存3060也有 2token。win + llama.cpp cuda预编译包
+
