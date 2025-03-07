@@ -455,3 +455,47 @@ Sawyer这些年做的游戏虽然可能在整个游戏界有些路边，但在�
 
 毕竟给人打工打多了，不敢all in
 
+
+*****
+
+####  ultraseven  
+##### 45#       发表于 2025-3-7 15:49
+
+黑曜石唯一做大项目机会就是和B社合作了，不过这也要高层主动推动才行
+
+*****
+
+####  古代人皮克  
+##### 46#       发表于 2025-3-7 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67599005&amp;ptid=2248961" target="_blank">zris 发表于 2025-3-7 15:45</a>
+扛不住
+
+没那个能力</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以saywer真要圆梦不如全世界收集一下极乐迪斯科碎片（深空梦里人那个也不错），真搞个一两个亿的大项目里面八成钱又拿去整画面和k高清模型想想就头痛。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ultraseven  
+##### 47#       发表于 2025-3-7 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67599005&amp;ptid=2248961" target="_blank">zris 发表于 2025-3-7 15:45</a>
+
+扛不住
+
+没那个能力</blockquote>
+我也觉得没多大把握还是不要all in好。毕竟微软从收购完ABK后就不再从前对手下工作室好好先生的姿态了，绩效不好直接关门，Tango这种就是牺牲品。毕竟纳心难测
+
+*****
+
+####  古代人皮克  
+##### 48#       发表于 2025-3-7 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67599077&amp;ptid=2248961" target="_blank">ultraseven 发表于 2025-3-7 15:53</a>
+我也觉得没多大把握还是不要all in好。毕竟微软从收购完ABK后就不再从前对手下工作室好好先生的姿态了， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">微软已经是游戏史最大慈善家了，新fable和rare那个十几年磨一剑都没砍。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
