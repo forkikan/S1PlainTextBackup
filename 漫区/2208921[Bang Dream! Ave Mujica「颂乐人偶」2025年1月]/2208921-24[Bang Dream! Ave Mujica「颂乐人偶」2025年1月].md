@@ -4695,3 +4695,62 @@ out of expectation。
 回转企鹅罐也是这么拍的，几原每集只给了开头结尾，拍出来效果也不错</blockquote>
 没看过，不过如果是这样的话那可能人家往里塞的东西还能下咽吧
 
+
+*****
+
+####  AnnieLeonhart  
+##### 34471#       发表于 2025-3-7 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67601666&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-3-7 20:25</a>
+
+吉他睦和mortis，那样应该不是融合了，而是都死了的意思吧
+
+因为那个深渊、深海，mortis把它认知为掉下去就 ...</blockquote>
+有一说一，两德合并方式是前东德地区作为五个新联邦州加入联邦德国，也就是西吃掉东
+
+*****
+
+####  cxj649  
+##### 34472#       发表于 2025-3-7 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67602351&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-3-7 21:48</a>
+
+事到如今我只想看柿本有没有本事把之前塑造完成的吉他睦和墨缇丝全部都弄死，最后端出个四不像睦 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">手游之后日常怎么办
+
+*****
+
+####  KASUKASU111  
+##### 34473#       发表于 2025-3-7 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67600162&amp;ptid=2208921" target="_blank">油画布 发表于 2025-3-7 17:25</a>
+
+每一集追求爆点结果就是关键时候爆不起来了，前面铺垫点喵睦互动，第十集这个大喵出柜的戏不是就美妙加倍 ...</blockquote>
+说是5个烂人但是在拷打部分相当双标，结果就成了初祥睦一路被迫害衬托紫色亲妈和空降亲女儿
+
+*****
+
+####  akiomn  
+##### 34474#       发表于 2025-3-7 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67602412&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-3-7 21:59</a>
+手游之后日常怎么办</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我不知道啊，ep10太无敌了，睦莫和解本来该是重头戏，然后草草结束了，说烂尾都是夸奖了，堪比陨石遁，最后睦是个什么性格也不说了
+
+*****
+
+####  南宮凝香  
+##### 34475#       发表于 2025-3-7 22:00
+
+重溫了邦邦之前的和解回
+
+這母雞卡的是什麼JB 東西
+
+十集和解兩次 （可見還有第三次要來）
+
+兩次的表現都拉了
+
+連自己本家的強項都表現不出
+
+就只會瞎搞變態女女關係
+

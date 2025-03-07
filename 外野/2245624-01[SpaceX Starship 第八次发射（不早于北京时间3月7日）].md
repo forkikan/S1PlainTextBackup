@@ -1180,3 +1180,14 @@ spacex的工程师跟科学家里民主党支持者也不少吧，马一龙现�
 我看微博在传特斯拉2月份在欧洲市场全面溃败，除了在英国销量微升，其他主要市场都是大跌30%～40%，其中德 ...</blockquote>
 Maga在maga群体以外可能好评度最高的地方就是大陆了。把自己贴上maga标签对全球性的生意肯定不是好事情。或者特斯拉的马斯克标签没那么深入人心影响也能小点，谁让他偏偏搞的还是明星企业家那套。
 
+
+*****
+
+####  lactone  
+##### 92#       发表于 2025-3-7 21:56
+
+西大汽车工业现在也基本只剩下特斯拉了吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
