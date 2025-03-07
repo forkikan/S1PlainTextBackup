@@ -3050,3 +3050,13 @@ SB KONAMI又锁区了？之前打折时候买了进库，能进商店页面。�
 
 [https://vv0817.neocities.org/gametxt/04_fssuiko2](https://vv0817.neocities.org/gametxt/04_fssuiko2)
 
+
+*****
+
+####  Toby_dak  
+##### 332#       发表于 2025-3-7 15:26
+
+用STEAMDECK玩不了？新游戏输入名字就一直播着BGM黑屏，没出现loading画面。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+

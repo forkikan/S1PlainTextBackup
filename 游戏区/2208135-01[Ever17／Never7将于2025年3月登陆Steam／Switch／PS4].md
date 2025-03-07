@@ -197,3 +197,18 @@ xbox版的ever17的剧情改编一句话概括就是编剧把原来游戏中模�
 
 Never7用这次的重制版补，然后再补原版Ever17，这个方案妥吗？
 
+
+*****
+
+####  alucardcz  
+##### 131#       发表于 2025-3-7 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67596854&amp;ptid=2208135" target="_blank">winggg 发表于 2025-3-7 12:03</a>
+
+那么，作为一片白纸似的新人，
+
+先用这次的重制版补Never7，接着再补旧版Ever17，这个方案妥吗？
+
+谢谢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">其实n7玩的价值不大 时间不多可以直接原版e17
+
