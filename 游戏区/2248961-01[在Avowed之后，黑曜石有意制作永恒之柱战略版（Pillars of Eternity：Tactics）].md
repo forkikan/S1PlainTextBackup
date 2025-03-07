@@ -936,3 +936,39 @@ POE里笨重大锤圣武士角色进行完一轮整轮施法的时候，高敏�
 沒人打算考你,不過你知道的話就不會拿55樓的圖出來好像證明了什麼似的</blockquote>
 不用证明什么，尤其每次这类场合你一定会跳出来力挽狂澜，大家都不是外宾，对吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  D-JoeII  
+##### 83#       发表于 2025-3-7 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67602809&amp;ptid=2248961" target="_blank">Bieaeml 发表于 2025-3-7 23:01</a>
+
+无论Second-run 还是 Second-rate,明眼人一看就知道重点是game of the year，至于每次这类场合你一定会跳 ...</blockquote>
+Second-run就是第二輪的意思,代表微軟知道BG3不能在Xbox/XGP上首發,這哪裡不是重點了?
+
+"第三方首发XGP"不是你說的?問題是現在微軟沒說BG3能在XGP首發啊?
+
+
+*****
+
+####  Bieaeml  
+##### 84#       发表于 2025-3-7 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67602868&amp;ptid=2248961" target="_blank">D-JoeII 发表于 2025-3-7 23:08</a>
+
+Second-run就是第二輪的意思,代表微軟知道BG3不能在Xbox/XGP上首發,這哪裡不是重點了?
+
+"第三方首发XGP"不 ...</blockquote>
+”微软没说BG3能在XGP首发“，但是微软分析师写报价的时候把BG3加进去再给了500W美元报价，都怪文件泄露，不然大家就不会知道微软有多没品位了<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  D-JoeII  
+##### 85#       发表于 2025-3-7 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67602919&amp;ptid=2248961" target="_blank">Bieaeml 发表于 2025-3-7 23:15</a>
+
+”微软没说BG3能在XGP首发“，但是微软分析师写报价的时候把BG3加进去再给了500W美元报价，都怪文件泄露， ...</blockquote>
+什麼時候XGP只能買首發遊戲了?
+
