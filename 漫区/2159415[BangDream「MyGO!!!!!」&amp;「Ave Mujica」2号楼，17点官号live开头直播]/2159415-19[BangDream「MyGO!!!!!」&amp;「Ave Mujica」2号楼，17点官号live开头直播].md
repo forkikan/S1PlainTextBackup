@@ -20,3 +20,15 @@
 二⭐
 <img src="https://p.sda1.dev/22/73272f5b006d8a11e6c213a41a9841cf/1741324953684.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  织部琴音  
+##### 27036#       发表于 2025-3-7 19:47
+
+Ave Mujica - Imprisoned XII (Official Music Video)
+
+[https://www.bilibili.com/video/BV1Ep91YPEQo](https://www.bilibili.com/video/BV1Ep91YPEQo)
+
+画风微妙
+

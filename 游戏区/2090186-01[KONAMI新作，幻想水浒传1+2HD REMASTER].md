@@ -3129,3 +3129,17 @@ SB KONAMI又锁区了？之前打折时候买了进库，能进商店页面。�
 
 顺便路克是天闲星（
 
+
+*****
+
+####  牧月萌  
+##### 338#       发表于 2025-3-7 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67601078&amp;ptid=2090186" target="_blank">茶茶丸 发表于 2025-3-7 19:09</a>
+1当然值得一玩，某种意义上比2还痛
+
+论坛云玩家太多啦</blockquote>
+日版就天间星，叫习惯了，不要在意细节<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
