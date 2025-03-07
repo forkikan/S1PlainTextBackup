@@ -3201,3 +3201,137 @@ NK%FU)}OOXTCQFX@C]H@5K7.jpg
 假设是柿本引入了双重人格的烂活，这个设定直接推动了4到10集的几乎所有剧情。再假设后面几集比较接近绫奈 ...</blockquote>
 财阀反派至少是个现实的能让观众感到紧迫紧张的推力，睦这几集的人格分裂推动炸团，推动c团复合（未遂），推动祥子忏悔，又推动鸡团复合，没一件事做的能让人信服，说到底正常人常识就是人格分裂就应该去看医院，搞乐队救不了
 
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 34332#       发表于 2025-3-7 16:58
+
+祥子先作曲的那堆都是deep dark fantasy，初华后作词也要配合这个风格不能太离题。这次初华先手直接放飞自我了。
+
+*****
+
+####  6030sylar  
+##### 34333#       发表于 2025-3-7 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67599809&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-3-7 16:55</a>
+老登不是反对组，是母鸡卡让孙女不开心
+
+别忘了第一次组老登也是同意的，第二次也是至少同意组一场</blockquote>
+是作为初音家长反对吧
+而且这集第二次那是五人自己开吧，老登不知道
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  cxj649  
+##### 34334#       发表于 2025-3-7 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67599833&amp;ptid=2208921" target="_blank">油画布 发表于 2025-3-7 16:57</a>
+
+财阀反派至少是个现实的能让观众感到紧迫紧张的推力，睦这几集的人格分裂推动炸团，推动c团复合（未遂） ...</blockquote>
+虽然但是人格分裂现实不去住院的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+尤其大莫是非暴力的能正常社交人格
+
+*****
+
+####  cxj649  
+##### 34335#       发表于 2025-3-7 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67599852&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-3-7 16:59</a>
+
+是作为初音家长反对吧
+
+而且这集第二次那是五人自己开吧，老登不知道</blockquote>
+知道，初猫来祥家他有看见，而且大祥晚上作曲也不是偷偷的
+
+*****
+
+####  adretyu67.  
+##### 34336#       发表于 2025-3-7 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67599852&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-3-7 16:59</a>
+
+是作为初音家长反对吧
+
+而且这集第二次那是五人自己开吧，老登不知道</blockquote>
+ring外面都贴了公告了，除非老登的手下真的不管事，不然还是应该能知道的。
+
+*****
+
+####  ntrntr1  
+##### 34337#       发表于 2025-3-7 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67599780&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-3-7 16:53</a>
+
+之前不算，这集最后老登算是第一个反对组乐队的家长？
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+老登：让你陪我孙女组乐队，没让你草她。
+
+*****
+
+####  AshPenguin  
+##### 34338#       发表于 2025-3-7 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67599833&amp;ptid=2208921" target="_blank">油画布 发表于 2025-3-7 16:57</a>
+
+财阀反派至少是个现实的能让观众感到紧迫紧张的推力，睦这几集的人格分裂推动炸团，推动c团复合（未遂） ...</blockquote>
+先说明我没有什么财阀ptsd。但反正帮多利已经是个架空世界观了，加入和现实中有切实对照的东西我感觉反而会产生荒诞感。双重人格在acg里还算是相对比较常见的，但是弄成这种精神病的自我拉扯确实不多，所有我感觉是写烂了而不是双重人格本质上有问题
+
+
+*****
+
+####  钦念以忱  
+##### 34339#       发表于 2025-3-7 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67599308&amp;ptid=2208921" target="_blank">厉飞雨 发表于 2025-3-7 16:13</a>
+
+按现在的塑造，所以大祥老师以前组ccc也纯粹为了自我满足，享受大小姐带一群跟班的感觉 ...</blockquote>
+本来就是，刚刚丧母心情灰暗，被睦头带着看了次学姐的krkrdkdk的live，就兴奋不已的打算自己弄一个乐队。
+
+*****
+
+####  ntrntr1  
+##### 34340#       发表于 2025-3-7 17:05
+
+看剧透哥的只言片语，感觉比起斗财阀，更像下一集老登要开始讲财阀爱恨情仇了，甚至三角妈似乎认识老登老婆，还对老登老婆保持憧憬
+
+比起斗财阀更像琼瑶剧点醒崆峒大小姐<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  油画布  
+##### 34341#       发表于 2025-3-7 17:06
+
+<blockquote>AshPenguin 发表于 2025-3-7 17:02
+先说明我没有什么财阀ptsd。但反正帮多利已经是个架空世界观了，加入和现实中有切实对照的东西我感觉反而 ...</blockquote>
+非要弄心理问题的话，不如直接让睦重度抑郁算了
+
+*****
+
+####  adretyu67.  
+##### 34342#       发表于 2025-3-7 17:07
+
+我觉得老登真能有那么多台词吗。让初华自述比较正常吧。
+
+*****
+
+####  天空塔书记官  
+##### 34343#       发表于 2025-3-7 17:07
+
+『魔法使的新娘』首次游戏化 2025年发售
+
+平台：Nintendo Switch
+类型：视觉小说
+发行：BUSHIROAD GAMES 
+ ​​​[http://t.cn/A6Bh1IA4](http://m.weibo.cn/status/5141607038324312?)
+
+不是我说，武士道真王朝了吧
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

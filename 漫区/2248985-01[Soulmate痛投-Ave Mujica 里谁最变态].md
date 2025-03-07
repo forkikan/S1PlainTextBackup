@@ -826,3 +826,14 @@ mygo里看春日影哭着跑出去的时候给初华打的电话吧，我感觉�
 
 恐怖留白<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 81#       发表于 2025-3-7 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67597332&amp;ptid=2248985" target="_blank">创始’’’天翔 发表于 2025-3-7 12:48</a>
+
+第一段描述了犯罪过程。后面的描述了扣一辈子</blockquote>
+泥潭之前还有人说母鸡卡的烂不过是完结多年后被遗忘路边的一条🐶，现在看这么变态的歌词面前，谁敢说是烂的是路边🐶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

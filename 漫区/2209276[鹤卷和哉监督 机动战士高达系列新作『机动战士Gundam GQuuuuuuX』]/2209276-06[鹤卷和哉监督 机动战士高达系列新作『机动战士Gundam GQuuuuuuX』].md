@@ -9367,3 +9367,33 @@ edit
 
 电影要一直上映到4月么？
 
+
+*****
+
+####  Steel.Haze  
+##### 8159#       发表于 2025-3-7 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67598041&amp;ptid=2209276" target="_blank">王留美 发表于 2025-3-7 14:11</a>
+
+夏利安的德姆，似乎是蓝色为主，腰腹及头部十字轨道外沿为红色，似乎在腰部有追加组件(塞可缪?）  ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202503/07/170129y9dw293uyy2v25y5.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (1.28 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 17:01 上传
+
+<img src="https://img.saraba1st.com/forum/202503/07/170149d01zi8xhggxx1qhk.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (1012 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 17:01 上传
+
+就是标准的R.大魔（涂装偏大魔改的蓝色），然后这版大魔貌似屁股特别的大而已。
+
+或者夏利尔的大魔确实是改装的有个尾仓的特机，所罗门作战时让给下属了。前后这两台大魔是同一机。
+

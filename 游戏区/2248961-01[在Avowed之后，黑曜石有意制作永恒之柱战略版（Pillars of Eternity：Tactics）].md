@@ -665,3 +665,50 @@ Grounded已经确定没大更新了，地平线和盗贼之海都还不断有新
 你要说那也是微软自己这么写了，写就写了还给个500W美元，更别提表格里有的是虚高的报价 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说有人灌了迷魂汤把这玩意理解成satdia护航大作，然后按这个逻辑按死了，不然怎么说也是两个月两百万的游戏。
 
+
+*****
+
+####  ultraseven  
+##### 63#       发表于 2025-3-7 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67599595&amp;ptid=2248961" target="_blank">Bieaeml 发表于 2025-3-7 16:39</a>
+
+典型的开始改口开发成本，我原话说的是第三方首发XGP的预期成本，你给洗地500W美元是纯移植成本，合着别 ...</blockquote>
+
+您之前就在谈预算啊
+
+ <blockquote>宣誓确实没有BG3的预算，毕竟微软评估BG3这样的第三方首发XGP的预期成本只有500W美元</blockquote>
+微软评估BG3这样的第三方首发XGP的<strong>预期成本</strong>只有500W美元。一个第三方游戏的预期成本是啥？我理解鉴于游戏已经开卖一段时间，所以成本主要就是内容移植的费用了，毕竟移植一个游戏和全新开发一个游戏的成本完全俩码事。
+
+或者您愿意详细解释一下您说的预期成本包含哪些费用吗？
+
+
+*****
+
+####  Escaton  
+##### 64#       发表于 2025-3-7 17:02
+
+battle brothers已经很好了，加上永恒之柱我感觉很可能是负优化
+
+*****
+
+####  ultraseven  
+##### 65#       发表于 2025-3-7 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67599731&amp;ptid=2248961" target="_blank">Bieaeml 发表于 2025-3-7 16:49</a>
+
+你要说那也是微软自己这么写了，写就写了还给个500W美元，更别提表格里有的是虚高的报价 ...</blockquote>
+GTA V和RDR2 20年就在XGP库里，别的作品当时是尚未发售的不论，会不会这个每月500万/1200万的价格就是R星的市场价呢？
+
+*****
+
+####  Bieaeml  
+##### 66#       发表于 2025-3-7 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67599842&amp;ptid=2248961" target="_blank">ultraseven 发表于 2025-3-7 16:58</a>
+
+您之前就在谈预算啊</blockquote>
+所以为啥别的游戏第三方首发XGP的预期成本，多多少少会有IP以及新作参考旧作表现，出现了各种虚高的报价，到了BG3这边甩个500W美元你还给微软脑补美化只有移植成本了？
+
+那看来你比微软有品味，毕竟微软可是总共只给500W美元，真的只算移植成本只会低于500W美元。
+
