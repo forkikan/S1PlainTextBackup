@@ -3505,3 +3505,16 @@ F5确实可以，但是又觉得分辨率有点低...
 
 最近玩这个很上头，安利的时候突然有个朋友问这游戏译名是啥，一时间不知道怎么回答。后来问了 D 老师，给了个《幻魂止境》的翻译，但是前缀的“DE”不知道什么意思，你们觉得怎么翻译比较好？
 
+
+*****
+
+####  kerbad  
+##### 312#       发表于 2025-3-7 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67598941&amp;ptid=2246453" target="_blank">莫名奇妙封ID 发表于 2025-3-7 15:40</a>
+
+最近玩这个很上头，安利的时候突然有个朋友问这游戏译名是啥，一时间不知道怎么回答。后来问了 D 老师，给 ...</blockquote>
+DE估计是是决定版（Definitive Edition）的意思，跟免费版做个区分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+fanastasis这个词是fana（涅槃，解脱）+fanatic（疯狂的，狂信者）+anastasis（恢复，复活）的组合词，可以说很贴合主角的经历了
+

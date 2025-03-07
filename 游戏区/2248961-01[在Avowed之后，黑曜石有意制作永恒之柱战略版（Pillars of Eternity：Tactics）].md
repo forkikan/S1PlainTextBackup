@@ -499,3 +499,37 @@ Sawyer这些年做的游戏虽然可能在整个游戏界有些路边，但在�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  ultraseven  
+##### 49#       发表于 2025-3-7 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67599098&amp;ptid=2248961" target="_blank">古代人皮克 发表于 2025-3-7 15:55</a>
+
+微软已经是游戏史最大慈善家了，新fable和rare那个十几年磨一剑都没砍。
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+PG和Rare有地平线和盗贼之海这样的长青服务型游戏，黑曜石有啥？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">还是不能一概而论的
+
+*****
+
+####  BRAVADO  
+##### 50#         楼主| 发表于 2025-3-7 16:03
+
+<blockquote>ultraseven 发表于 2025-3-7 16:00
+PG和Rare有地平线和盗贼之海这样的长青服务型游戏，黑曜石有啥？还是不能一概而论的 ...</blockquote>
+grounded也是只需20人维护的长青服务型游戏:)
+
+*****
+
+####  古代人皮克  
+##### 51#       发表于 2025-3-7 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67599157&amp;ptid=2248961" target="_blank">ultraseven 发表于 2025-3-7 16:00</a>
+PG和Rare有地平线和盗贼之海这样的长青服务型游戏，黑曜石有啥？还是不能一概而论的 ...</blockquote>
+黑曜石有小朋友打蚂蚁这个长青gaas，被收前也有柱子1和天外世界这种口碑销量双收的。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">收购之后也是吭哧吭哧的一直往外冒游戏，还是挺可以的了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
