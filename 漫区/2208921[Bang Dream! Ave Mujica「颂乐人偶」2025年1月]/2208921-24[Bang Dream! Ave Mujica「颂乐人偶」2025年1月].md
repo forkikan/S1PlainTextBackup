@@ -468,3 +468,103 @@ mggm什么都能炒，又不是第一天了<img src="https://static.saraba1st.co
 你确定老中的朴素价值观指的是保持绝对的事不关己高高挂起？这种情节概括就是A想去做一件事情但是犹犹豫豫 ...</blockquote>
 是的，开场ring就剩初喵祥三人组，初华那个没出息的样子老喵尽收眼底，后面初华每表白一次她嗤之以鼻一次，太没出息了，还得老娘帮你<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 34086#       发表于 2025-3-7 10:39
+
+ 本帖最后由 akiomn 于 2025-3-7 10:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67595834&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-3-7 10:34</a>
+
+老中的朴素价值观指的是保持绝对的事不关己高高挂起？
+
+这种情节概括就是A想去做一件事情但是犹犹豫豫不敢 ...</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得是个人都不会强抢别人手机，在对方一脸不情愿的情况下还强拉着对方进豪宅，而能达成想要的结果纯粹是编剧的大手，
+
+不要只看个结果，如果你只看结果那你就是柿本的solomate了，人都是有脾气的，初华能忍着也是因为剧情需要，是个正常人早就先和喵梦吵起来了。
+
+正常人会怎么搞？劝初华去豪宅，如果初华硬是不去那也没办法就自己一个人去，要不然干脆不管了。能直接强抢对方手机甚至强拉着对方进豪宅的，本身脑子就有问题。喵梦也不是为了初华，是为了她自己想组mujica
+
+*****
+
+####  与太郎  
+##### 34087#       发表于 2025-3-7 10:41
+
+<img src="https://img.saraba1st.com/forum/202503/07/104013pxfhjjhkfldvv6x5.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20250307103945.jpg</strong> (261.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 10:40 上传
+
+<img src="https://img.saraba1st.com/forum/202503/07/104012hx8oneqoexdecxle.png" referrerpolicy="no-referrer">
+
+<strong>454265f8b46863f22d7c5eecad36a7f.png</strong> (37.18 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 10:40 上传
+
+又可以吹x趋势登顶了
+
+就是新闻底下的评论怎么看怎么像sakura
+
+*****
+
+####  一心而用  
+##### 34088#       发表于 2025-3-7 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67595814&amp;ptid=2208921" target="_blank">星降る森 发表于 2025-3-7 10:32</a>
+
+如果你觉得星三不如母鸡卡，我觉得你可能是木谷高明</blockquote>
+我没有这么觉得啊，我觉得星二都完爆mujica。
+
+*****
+
+####  qratosones1337  
+##### 34089#       发表于 2025-3-7 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67595888&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-3-7 10:39</a>
+
+我觉得是个人都不会强抢别人手机，在对方一脸不情愿的情况下还强拉着对方进豪宅，而能达成想要的结果纯粹 ...</blockquote>
+剧情里进豪宅前一个镜头是大喵问初华“你想组mujica吗”，然后初华就软了。
+
+
+*****
+
+####  人又如何  
+##### 34090#       发表于 2025-3-7 10:44
+
+<img src="https://img.saraba1st.com/forum/202503/07/104407qhmddimllarstfwh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-03-07-10-37-55-954-edit_gov.pianzong.androidnga.jpg</strong> (85.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 10:44 上传
+
+是她？不，是她！
+
+*****
+
+####  YF31  
+##### 34091#       发表于 2025-3-7 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67595834&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-3-7 10:34</a>
+老中的朴素价值观指的是保持绝对的事不关己高高挂起？
+
+这种情节概括就是A想去做一件事情但是犹犹豫豫不敢 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你觉得公屏发性压抑黄词，发完性压抑黄词再拉着嗯闯发黄词对象本人人生也是初音本意的话，那我顺从你吧。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  油画布  
+##### 34092#       发表于 2025-3-7 10:46
+
+mujica拍的这么烂还要碰瓷初音，把初音写成油腻女同真的不会被骂吗
+
