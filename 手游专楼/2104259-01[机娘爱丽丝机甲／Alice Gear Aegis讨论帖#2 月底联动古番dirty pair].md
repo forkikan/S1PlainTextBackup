@@ -188,3 +188,11 @@
 
 好像是好感度1w飞吻，不足就是挥手。我都懒得用
 
+
+*****
+
+####  不灭的旋律  
+##### 1400#       发表于 2025-3-7 23:30
+
+才知道负责你游活动剧情和部分人物剧情（土妹、来弥、小结等）的朝日文左一年前的今天去世了今天才爆出来<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+

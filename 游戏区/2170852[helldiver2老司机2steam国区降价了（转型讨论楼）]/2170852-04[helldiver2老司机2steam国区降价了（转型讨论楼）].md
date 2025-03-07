@@ -45,3 +45,11 @@
 
 说起来不知道是bug还是怎么回事，前几天打了一把虫族n10，被掀飞出去判定成叛徒了，但是一直在炸我二三十米外，我带着炮击把巨巢炸平了才打光子弹被虫子啃死<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  madcow  
+##### 5836#       发表于 2025-3-7 23:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">现在还差毒蛇突击兵，自由烈焰，真理执行者，自由公仆这四个债券没买，哪个性价比更高点？
+

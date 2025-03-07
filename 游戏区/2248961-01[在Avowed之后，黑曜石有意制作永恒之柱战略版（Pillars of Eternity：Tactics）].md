@@ -1007,3 +1007,19 @@ bro干的：問題是現在微軟沒說BG3能 ...</blockquote>
 
 你一直強調不正確的論點幹嘛?
 
+
+*****
+
+####  Bieaeml  
+##### 88#       发表于 2025-3-7 23:34
+
+确实，毕竟5M是写着好玩的
+
+<img src="https://img.saraba1st.com/forum/202503/07/233407zxkcnicsci52cxsn.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (11.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 23:34 上传
+

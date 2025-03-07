@@ -5076,3 +5076,37 @@ imprisoned这个mv直到大家开始跑之前我觉得都做挺好的这个跑�
 
 海初祥都是自己選這條路， 換條路就海闊天空
 
+
+*****
+
+####  厉飞雨  
+##### 34509#       发表于 2025-3-7 23:24
+
+不得不说，牢莫已经成为我在鸡狗最喜欢的角色了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 34510#       发表于 2025-3-7 23:25
+
+唉，鸡团动画要有鸡团。
+
+*****
+
+####  aptx8285144  
+##### 34511#       发表于 2025-3-7 23:27
+
+初华在庄园有可能住过，那个女仆语气像是见过她<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  烂片雷达  
+##### 34512#       发表于 2025-3-7 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67602874&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-7 23:09</a>
+其实这个曲子是祥子把主角代入自己，把小灯当成不可触及的纯洁天使谱写的曲子，该曲子体现了她怀念库莱西 ...</blockquote>
+是这样的
+丰川祥子心里藏了一头野兽，初华的歌词把这头野兽释放了出来
+
+有一天祥子会在无人的小岛找到一个小动物一般的天真电波短发大胸紫曈少女，她会抓着祥子的手一起抓独角仙，也会每天在便签上诉说对祥子的感情，这一次祥子不会再放手，而是会把她一直锁在岛上，锁在自己身边直到永远
+
