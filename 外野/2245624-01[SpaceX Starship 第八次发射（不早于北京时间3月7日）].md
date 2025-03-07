@@ -976,3 +976,38 @@ m27-res_854p.mp4
 
 https://weibo.com/5549194014/5141512020297442
 
+
+*****
+
+####  commcody  
+##### 74#         楼主| 发表于 2025-3-7 11:42
+
+S34爆炸瞬间
+
+<img src="https://img.saraba1st.com/forum/202503/07/114242tllx3uewzxd3ltap.jpg" referrerpolicy="no-referrer">
+
+<strong>GlZ_JlqXQAEt-VH.jpg</strong> (132.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 11:42 上传
+
+*****
+
+####  commcody  
+##### 75#         楼主| 发表于 2025-3-7 11:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67595897&amp;ptid=2245624" target="_blank">哈里-谢顿 发表于 2025-3-7 10:40</a>
+
+差不多。星舰1-6时候每次都有肉眼可见的进步
+
+马老板去了华盛顿以后，7-8全在一个地方出事</blockquote>
+目前看来V2版星舰的新推进系统设计方面可能存在某些固有缺陷。
+
+*****
+
+####  亚尔迪8424  
+##### 76#       发表于 2025-3-7 11:48
+
+果然失败了。
+

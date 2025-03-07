@@ -9097,3 +9097,77 @@ image.png
 
 超过10e就算成功
 
+
+*****
+
+####  王留美  
+##### 8138#       发表于 2025-3-7 11:42
+
+WG系列MS用驱动安装装置设定。省流版：吉翁在MS的实战运用过程中为了快速进行战斗用OS的升级而采用的卡带式装置。在MS-05(Zaku 1）之后所有的MS也都采用了卡带式的升级系统，同时官方也对各企业进行了一致性要求。与MS-06同时发布的WG-X22100系列因为稳定性与泛用性是一年战争中使用数量最多的装置。目前在Side6黑市流通的版本型号是WG-X22120AU-01-76
+
+<img src="https://img.saraba1st.com/forum/202503/07/114101akeq8q5nuk5knnko.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (70.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 11:41 上传
+
+<img src="https://img.saraba1st.com/forum/202503/07/114106zb4add4b33bddfa2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (60.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 11:41 上传
+
+<img src="https://img.saraba1st.com/forum/202503/07/114113rshqa2hs0icixhtq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (56.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 11:41 上传
+
+<img src="https://img.saraba1st.com/forum/202503/07/114117aqkhuqukq1heu50g.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (83.52 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 11:41 上传
+
+<img src="https://img.saraba1st.com/forum/202503/07/114121k06rr6rytu666nyy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (105.04 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 11:41 上传
+
+<img src="https://img.saraba1st.com/forum/202503/07/114126vg8v4b72z66jqqai.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (105.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 11:41 上传
+
+<img src="https://img.saraba1st.com/forum/202503/07/114131vroe8bl6786r8b8r.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (91.55 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 11:41 上传
+
+<img src="https://img.saraba1st.com/forum/202503/07/114138whe33pq8eihgh3pb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (108.32 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 11:41 上传
+
+这样也解释了为什么提姆雷回路长这样了，因为用的是公版外壳（废品机上拆下来的
+

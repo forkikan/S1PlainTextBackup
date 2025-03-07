@@ -1110,3 +1110,186 @@ live前更衣室，初华女士发表一辈子宣言。大祥女士这是不跟�
 
 喵梦一直没吧双重人格当回事，她一直错把大自然的鬼斧神工当成主观能动性的巧夺天工，正好误打误撞的把握住了某种更本质的东西（一种在艺术的物质形式与观众的感性体验之上的更具有超越性的东西，不知道该怎么称呼它），让喵梦能准确的看穿小墨缺乏这种本质的表演。因为对自己缺少的东西的渴望，她非常喜欢睦/墨，但出于嫉妒不喜欢，但是又被曾经给自己带来过的震撼所吸引（“目光离不开你”），将其视为珍贵的宝物，因此说出那段爱恨交织的话。这段的演出太精彩了，昏暗的红光、喵梦的动作、台词，小墨的回应，完美展现了她们的矛盾心态。如果把喵梦这段视为表演，那么她早就获得了自己所渴望的东西了。
 
+
+*****
+
+####  ntrntr1  
+##### 34142#       发表于 2025-3-7 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67596500&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-7 11:32</a>
+
+live前更衣室，初华女士发表一辈子宣言。大祥女士这是不跟也得跟，跟也得跟了。
+
+其实睦头地下室大祥老师 ...</blockquote>
+祥：妈的我写这几句本来只是为了中二装逼结果你们真的全部想和我结婚，嗯喵女士你想的是睦女士，草啊那是我本来队内唯一愿意结婚的对象，海玲你说什么你想一次管四个，都是些什么神人。
+
+*****
+
+####  AlterDialog  
+##### 34143#       发表于 2025-3-7 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67595906&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-3-7 10:41</a>
+
+又可以吹x趋势登顶了
+
+就是新闻底下的评论怎么看怎么像sakura</blockquote>
+不用吹吧，每周四不是固定登顶X趋势吗。
+
+*****
+
+####  HereLink  
+##### 34144#       发表于 2025-3-7 11:37
+
+<blockquote>AlterDialog 发表于 2025-3-7 11:34
+不用吹吧，每周四不是固定登顶X趋势吗。</blockquote>
+有两次不是，一次是因为NS2一次是因为宝可梦😂
+
+*****
+
+####  ntrntr1  
+##### 34145#       发表于 2025-3-7 11:37
+
+ 本帖最后由 ntrntr1 于 2025-3-7 11:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67596477&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-7 11:30</a>
+
+第10话算是把鸡团为什么会存在和要存在挑明白了。
+
+原来指导方向是主唱对作曲的欲望</blockquote>
+祥子确实特别在意自己的音乐才能
+
+所以初华也是傻的惊人，每一句都在馋祥子身子，平时要是多夸夸祥子写的曲子卧槽神作啊，没准就能替代小闭灯被祥子当成知音，日久生情没准对面就以身相许了。
+
+可惜大金毛空有一幅好脸和好嗓子，怎么回事呢，哦丰川家遗传的啊，那合理了。
+
+*****
+
+####  肛之练筋士  
+##### 34146#       发表于 2025-3-7 11:38
+
+<img src="https://img.saraba1st.com/forum/202503/07/113818mi8ynqsnohnprptn.jpg" referrerpolicy="no-referrer">
+
+<strong>axw3Q2v-jy9xK2nT3cSjz-sg.jpg</strong> (97.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 11:38 上传
+
+母鸡卡BD送的歌肯定是母鸡卡自己的歌吧！
+
+嘛mygo的歌也行吧！
+
+总不会是CRYCHIC吧？
+
+啊？sumimi新歌？？？ 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">wsd真的要搞11个人排列组合四支乐队是吧
+
+*****
+
+####  与太郎  
+##### 34147#       发表于 2025-3-7 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67596376&amp;ptid=2208921" target="_blank">魔法使夜子 发表于 2025-3-7 11:21</a>
+
+你是在试图理解天才监督柿本的逻辑，凡人怎么能理解</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202503/07/113108hin6llwz9b7zvroe.jpg" referrerpolicy="no-referrer">
+
+<strong>Honeyview_videoframe_544375.jpg</strong> (380.27 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 11:31 上传
+
+回顾#4，之前是明确有喵梦被mortis的气势压倒的画面的
+
+感觉喵梦与其说是忘不了睦的演技，不如说是被人偶化的睦戳中了XP<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 34148#       发表于 2025-3-7 11:39
+
+sumimi不会解散，但是4月合同live要是真的只有一首歌是有点尴尬了
+
+
+*****
+
+####  与太郎  
+##### 34149#       发表于 2025-3-7 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67596527&amp;ptid=2208921" target="_blank">AlterDialog 发表于 2025-3-7 11:34</a>
+
+不用吹吧，每周四不是固定登顶X趋势吗。</blockquote>
+确认了一下，不是每周都能稳定登顶
+
+*****
+
+####  AlterDialog  
+##### 34150#       发表于 2025-3-7 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67596327&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-3-7 11:16</a>
+
+有个问题不知道前面有没有人说，按照访谈来说，mortis才是那个拥有表演才能的角色，但喵梦脑子里烙印的又 ...</blockquote>
+喵梦一直没吧双重人格当回事，她一直错把大自然的鬼斧神工当成主观能动性的巧夺天工，正好误打误撞的把握住了某种更本质的东西（一种在艺术的物质形式与观众的感性体验之上的更具有超越性的东西，不知道该怎么称呼它），让喵梦能准确的看穿小墨缺乏这种本质的表演。因为对自己缺少的东西的渴望，她非常喜欢睦/墨，但出于嫉妒不喜欢，但是又被曾经给自己带来过的震撼所吸引（“目光离不开你”），将其视为珍贵而脆弱的宝物，因此说出那段爱恨交织的话。这段的演出太精彩了，昏暗的红光、喵梦的动作、台词，小墨的回应，完美展现了她们的矛盾心态。如果把喵梦这段视为表演，那么她早就获得了自己所渴望的东西了。
+
+*****
+
+####  adretyu67.  
+##### 34151#       发表于 2025-3-7 11:42
+
+大喵老师对睦头的执着确实是很说不明白的事了。
+
+可能这就是被精神污染了。
+
+并且最悲伤的应该是很难有机会说明白了。
+
+*****
+
+####  AlterDialog  
+##### 34152#       发表于 2025-3-7 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67596593&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-3-7 11:39</a>
+
+回顾#4，之前是明确有喵梦被mortis的气势压倒的画面的
+
+感觉喵梦与其说是忘不了睦的演技，不如说是被人 ...</blockquote>
+这里小墨又没在表演……
+
+*****
+
+####  影伴光生  
+##### 34153#       发表于 2025-3-7 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67595332&amp;ptid=2208921" target="_blank">YF31 发表于 2025-3-7 09:50</a>
+木谷高明还能在那里赛高，我是真怀疑武士道领导层是不是九龙扎多了脑袋尖尖的了。
+
+这种绝对的垃圾，无论怎 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">TFT得有第三个吧，要不然资源分配肯定有问题
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  HereLink  
+##### 34154#       发表于 2025-3-7 11:45
+
+PTT怎么崩了，挂梯子都进不去，谭里有湾友吗😢
+
+*****
+
+####  adretyu67.  
+##### 34155#       发表于 2025-3-7 11:45
+
+TFT能给C团能给狗团，照理来说鸡团那份少不了的。
+
+按照烂抄进度应该是半个月后和鸡12话live一起安排？
+
+*****
+
+####  老贝  
+##### 34156#       发表于 2025-3-7 11:45
+
+Mujica动画在表现灯的话语能直击祥子心灵，初华歌词却一点触动不了祥子这方面真的很用心。
+每次遇上什么大事就要看灯的便签，看得还出奇的认真。初华的告白诗则是连一个正眼瞧一下的演出都不愿意做，不管对方说什么都突出一个不回应。
+
