@@ -9223,3 +9223,27 @@ ARK那帮人画的基连暗杀计划、强尼莱丁归来里设定是电子合�
 也就是说side6抓黑拳其实未必就真的抓的紧，感觉还是在睁一只眼闭一只眼</blockquote>
 你周围游荡着一帮子拿自用MS当遣散费的吉翁退伍老兵，就算用扎古的也人均改装机，没准有的人还有大魔，你只有一帮生瓜蛋子警察和最丐的扎古当殖民星护卫机。那么他们想自己打黑拳....那可太好了。
 
+
+*****
+
+####  七七見奈波  
+##### 8144#       发表于 2025-3-7 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67596269&amp;ptid=2209276" target="_blank">ads147147 发表于 2025-3-7 11:12</a>
+
+之前eva终好像也是亚马逊流媒体先行，略诡异，是khara的金主么。。。</blockquote>
+不是，这个流媒的是TV版，不是beginning
+
+*****
+
+####  ads147147  
+##### 8145#       发表于 2025-3-7 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67597351&amp;ptid=2209276" target="_blank">七七見奈波 发表于 2025-3-7 12:50</a>
+不是，这个流媒的是TV版，不是beginning</blockquote>
+阿，还以为是电影版。
+
+不过还是挺奇怪的，好奇tv的叙述顺序是不是和电影一样。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
