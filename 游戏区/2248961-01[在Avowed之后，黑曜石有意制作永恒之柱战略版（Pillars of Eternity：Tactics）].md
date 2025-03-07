@@ -1080,3 +1080,16 @@ bro干的：問題是現在微軟沒說BG3能 ...</blockquote>
 
 我总算理清这谣言的逻辑了，原来是沙拉阿姨丢一个一年半不更新的表格给斯宾塞看。再草台班子也没这么离谱的吧。
 
+
+*****
+
+####  zris  
+##### 93#       发表于 2025-3-8 03:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67601455&amp;ptid=2248961" target="_blank">qqq2142 发表于 2025-3-7 20:00</a>
+
+主要是 罕见看到微软弹窗广告，MS这么多游戏，我就只看到这个弹窗广告</blockquote>
+你是没被starfield轰炸过吗<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+现在win11 login界面时不时还有starfield最后ending那个图打广告
+
