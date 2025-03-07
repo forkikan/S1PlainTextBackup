@@ -223,3 +223,13 @@ Never7用这次的重制版补，然后再补原版Ever17，这个方案妥吗�
 原版。支持正版可以在方块游戏上花9块钱买官方中文的 https://store.cubejoy.com/html/en/store/goodsdet ...</blockquote>
 签到两三个月就能拿积分换了，而且每天签到抽奖的过程中有可能直接抽到key
 
+
+*****
+
+####  dddyghr  
+##### 133#       发表于 2025-3-7 17:35
+
+我买了方块版e17 只要9块 win11完美运行配合magpie强行高清，就是四比三黑边没办法
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+

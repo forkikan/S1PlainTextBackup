@@ -9439,3 +9439,47 @@ edit
 
 2025-3-7 17:30 上传
 
+
+*****
+
+####  岸浪白野  
+##### 8162#       发表于 2025-3-7 17:41
+
+ 本帖最后由 岸浪白野 于 2025-3-7 17:43 编辑 
+
+土屋弟以修司CV的身份上了「ZIP!」当节目旁白
+
+「高达说，看起来很好吃」
+
+<img src="https://img.saraba1st.com/forum/202503/07/173601kmxy6xlilomxcfio.png" referrerpolicy="no-referrer">
+
+<strong>[U{FP9`39AB9(OPDJU11M%9.png</strong> (3.06 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 17:36 上传
+
+<img src="https://img.saraba1st.com/forum/202503/07/173622jlugioxllgii3i7z.png" referrerpolicy="no-referrer">
+
+<strong>ZF9EVVGQHQ{~3L0P6%@@0W7.png</strong> (2.84 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 17:36 上传
+
+<img src="https://img.saraba1st.com/forum/202503/07/173635fkisz7firfmkfrtu.png" referrerpolicy="no-referrer">
+
+<strong>41J@E52CAQ~MGI_RQ[VF~(A.png</strong> (3.53 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 17:36 上传
+
+<img src="https://img.saraba1st.com/forum/202503/07/174015wd1w6z6mgffj9p01.png" referrerpolicy="no-referrer">
+
+<strong>E9EQD}]WP{2IO}5XJOO9OMC.png</strong> (3.08 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 17:40 上传
+

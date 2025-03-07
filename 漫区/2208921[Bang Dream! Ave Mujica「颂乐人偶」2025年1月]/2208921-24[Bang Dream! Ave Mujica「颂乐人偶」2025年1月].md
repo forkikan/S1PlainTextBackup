@@ -3631,3 +3631,73 @@ NS上那NS2应该也会有吧</blockquote>
 
 接下来要不要搞双子、小姨、私生女、斗老登，都只能说是选择的问题，搞烂了最多被骂一句烂尾，而不是现在这样大家都等着看你还能搞出什么烂活
 
+
+*****
+
+####  ntrntr1  
+##### 34371#       发表于 2025-3-7 17:38
+
+<blockquote>HereLink 发表于 2025-3-7 17:31
+要不把mujica上架gal吧，我看能不能拿牢祥打出完美结局😃</blockquote>
+全收全幸福结局！
+
+*****
+
+####  adretyu67.  
+##### 34372#       发表于 2025-3-7 17:38
+
+鸡团五人组：
+
+大猫和海铃都是利益绑定。
+
+睦头完成人格融合之后不知道会怎么样，我看最后深渊里是莫主动拥抱睦，不知道最后两个人格怎么分出场。
+
+大祥老师还是努力一下绑定初华吧，毕竟是能创作出imprisoned xii的终极黑洞怪。
+
+pareo也就是陪chu2到地狱尽头，等一个超越地狱尽头的重力发言了。
+
+*****
+
+####  thisisaspider  
+##### 34373#       发表于 2025-3-7 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67600253&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-3-7 17:33</a>
+完美结局太简单了吧，队里两个舔狗一个雇佣兵一个炒作狗，后台也梆硬，只要身段放低做好睦的心理工作想炸 ...</blockquote>
+完美结局的目标是保护贞操呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lyzers  
+##### 34374#       发表于 2025-3-7 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67600229&amp;ptid=2208921" target="_blank">HereLink 发表于 2025-3-7 17:31</a>
+
+要不把mujica上架gal吧，我看能不能拿牢祥打出完美结局😃</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只要不是制作组摁头怎么选都错，或者你就是奔着全员be选的，正常人应该打不出mujica现在这条线
+
+*****
+
+####  adretyu67.  
+##### 34375#       发表于 2025-3-7 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67600281&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-3-7 17:36</a>
+
+因为睦是得到双重人格设定的同时得到更多笔墨描写的，所以原版里初祥关系肯定会占更大篇幅
+
+但是初华剧情 ...</blockquote>
+双子、小姨、私生女、老登裤裆一连串的要素就是为了把初华搞跑好让祥子去追。
+
+我本来觉得初华会自觉重力于是隐退+私自演出退社，现在看来要苦一苦老登当黑手了。
+
+
+*****
+
+####  6030sylar  
+##### 34376#       发表于 2025-3-7 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67600320&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-3-7 17:40</a>
+只要不是制作组摁头怎么选都错，或者你就是奔着全员be选的，正常人应该打不出mujica现在这条线 ...</blockquote>
+隐藏一条什么都不做就能达成的结局吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
