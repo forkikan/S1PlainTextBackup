@@ -9795,3 +9795,22 @@ B站上有人贴了了军团战的完整版（应该是他自己拍的）
 
 在知道了本作的一大主题是真伪之分的话大姐头对于麻球是真物的评价就很耐人寻味了，这里的货真价实的是指的什么？特殊nt？gqx驾驶员？既然大姐头说麻球是真的那就代表她肯定接触过或者至少知道一个假的的存在，也算是做实了她城府很深的猜测。又或者说这里和之前哈罗说修斯是真正的mav一样都只是烟雾弹？故意引诱观众认为麻球是真物，但实际上只是玫瑰的代餐。
 
+
+*****
+
+####  ryanghj  
+##### 8191#       发表于 2025-3-8 01:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67603435&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-3-8 00:59</a>
+
+既然本作的一大主题是真伪之分的话大姐头对于麻球是真物的评价就很耐人寻味了，这里的货真价实的是指的什么 ...</blockquote>
+就是能用psycommu的nt啊，你稍微往下看1秒就知道了
+
+<img src="https://img.saraba1st.com/forum/202503/08/011015dl46n4hexy844e26.png" referrerpolicy="no-referrer">
+
+<strong>b30e6f16-4771-4af0-bbec-b4cd89288299.png</strong> (534.16 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-8 01:10 上传
+

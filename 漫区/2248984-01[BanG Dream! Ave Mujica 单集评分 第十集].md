@@ -2727,3 +2727,14 @@ live的演出是什么玩意？歌还行。-2
 -2
 金毛是女同就算了，怎么坏猫也变女同了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DarkDuck  
+##### 309#       发表于 2025-3-8 01:07
+
+0
+感觉有点无聊，没那么有乐子。我只看到了满屏幕的性压抑
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
