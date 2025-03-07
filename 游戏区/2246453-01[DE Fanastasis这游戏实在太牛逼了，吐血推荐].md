@@ -3443,3 +3443,27 @@ F5确实可以，但是又觉得分辨率有点低...
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  hootao  
+##### 306#       发表于 2025-3-7 08:18
+
+问下一路上捡到各种提升能力上限的道具，到底是直接用掉比较好还是做合成素材比较好？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  InfiniteGyre  
+##### 307#       发表于 2025-3-7 08:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67594600&amp;ptid=2246453" target="_blank">hootao 发表于 2025-3-7 08:18</a>
+问下一路上捡到各种提升能力上限的道具，到底是直接用掉比较好还是做合成素材比较好？
+
+—— 来自 鹅球 v3. ...</blockquote>
+哪怕用掉了，后期也有理智能洗出来的
+
+—— 来自 HUAWEI DCO-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+

@@ -16177,3 +16177,68 @@ mujica动画现在已经到了一种为了推进情节，完全不在乎角色�
 
 想起来这里说的是go团春日影，大祥也太恨了。
 
+
+*****
+
+####  syndrome2032  
+##### 34013#       发表于 2025-3-7 08:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67594294&amp;ptid=2208921" target="_blank">zhigui 发表于 2025-3-7 04:49</a>
+刚刚还刷到有人试图用小细节错误证伪那个剧透的
+
+我只想说，啊，如果有人真的能把初音这两个字编出来，那已 ...</blockquote>
+剧透里还是有些细节不对，比如甜甜圈连续5年。。。
+
+时间线不可能写这么长吧。
+
+*****
+
+####  ads147147  
+##### 34014#       发表于 2025-3-7 08:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67594577&amp;ptid=2208921" target="_blank">operatbig 发表于 2025-3-7 08:13</a>
+想起来这里说的是go团春日影，大祥也太恨了。</blockquote>
+作词是初华。。。哦不对，是初音。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  艾ACC  
+##### 34015#       发表于 2025-3-7 08:21
+
+从第六集开始没看了，这给我干哪来了？三角初音是说谁啊？有漏油愿意，言简意赅概括一下这四集以来到底整了什么活吗？
+
+
+*****
+
+####  堆雪若叶  
+##### 34016#       发表于 2025-3-7 08:22
+
+<img src="https://p.sda1.dev/22/6b52b90b141b88aee46bd0f21fc5a057/_Nekomoe kissaten__BanG Dream! Ave Mujica__10__1080p__JPSC_.mp4_000906.534.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/98ee12853da16e28e3b3800da8775756/_Nekomoe kissaten_LoliHouse_ BanG Dream! It_s MyGO!!!!! - 10 _WebRip 1080p HEVC-10bit AAC ASSx2_.mkv_000200.590.jpg" referrerpolicy="no-referrer">
+
+揭开祥子最初组建母鸡卡的目的正是捆绑其他人的一生后又回到了和灯的对应，她和灯分别组建母鸡卡和mygo都是为了不再受伤而想要追求一辈子的乐队，而同样因为一辈子的愿望再次受伤的灯在mygo10开头的独白也成为了祥子的注释。但和mygo要花一生建立联系不同，母鸡卡是毁掉一生才建立联系，结果便是祥子和灯的分岔路。但明明走的是分岔路却还给祥子安排类似灯的反应，当初mygo沉沉浮浮灯因为性格和境遇各种debuff无所作为甚至都被车过一段时间，祥子亲手毁掉所有人的人生还选择类似灯的打法只能说是东施效颦。母鸡卡众人的人生在解散的时候就已经毁掉了，而祥子再次成为暴君也根本不需要这么多兜兜转转，不知所谓的东西还是太多了。
+
+*****
+
+####  ads147147  
+##### 34017#       发表于 2025-3-7 08:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67594613&amp;ptid=2208921" target="_blank">艾ACC 发表于 2025-3-7 08:21</a>
+从第六集开始没看了，这给我干哪来了？三角初音是说谁啊？有漏油愿意，言简意赅概括一下这四集以来到底整了 ...</blockquote>
+概括来说就是大祥不哈气了，破罐子破摔还是重组了。
+
+现在的初华其实是初音，真初华还在祥子小时候去的那个岛上，然后论辈分初华/初音应该是祥子小姨（老登的私生子）。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  onlv星骸  
+##### 34018#       发表于 2025-3-7 08:27
+
+剧情都这样了，哪怕你跟我说最后一集祥子家的人偶突然说话了，原来一切都是它在幕后策划，目的是把am的五人都变成没有感情的人偶，最后五人一娃在一场诡异的live中和全场观众一起成佛，我都信。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
