@@ -75,3 +75,14 @@
 现在还差毒蛇突击兵，自由烈焰，真理执行者，自由公仆这四个债券没买，哪个性价比更高点？ ...</blockquote>
 首先排除真理执行者和自由烈焰，毒蛇冰针可以蹭队友的，自由公仆的核弹手枪解锁了更多配装选择和全新的打法，地狱火背包更是重量级，选哪个不用多说了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 5839#       发表于 2025-3-8 00:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67603275&amp;ptid=2170852" target="_blank">FLZB 发表于 2025-3-8 00:18</a>
+
+首先排除真理执行者和自由烈焰，毒蛇冰针可以蹭队友的，自由公仆的核弹手枪解锁了更多配装选择和全新的打 ...</blockquote>
+看到个邪道玩法是补给背包+地狱火背包+次抛+任意，背包轮流叫，全程爆射，怪一多或者巢不好拆直接进去自爆人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
