@@ -16324,3 +16324,88 @@ mujica动画现在已经到了一种为了推进情节，完全不在乎角色�
 现在的初华其实是初音，真初华还在祥子小时候去的那 ...</blockquote>
 真假😨如果是真的，那完整追完十集的漏油很有享受了
 
+
+*****
+
+####  ads147147  
+##### 34026#       发表于 2025-3-7 08:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67594773&amp;ptid=2208921" target="_blank">艾ACC 发表于 2025-3-7 08:50</a>
+
+真假😨如果是真的，那完整追完十集的漏油很有享受了</blockquote>
+舅舅的死海文书是这样写的，既然这一集已经演到老登说出初音这两个字了，那么剧透准确性应该是很高的。
+
+个人感觉离星2还有是差点水平，你说烂吧，其实你接受了他台词写啥就是啥的设计，倒也不至于很难受（不像是星2设定都圆不回去几个矛盾点炸的脑袋疼），这也就是为啥大家一直说假药的根本是假，入脑了痛苦的会是自己。
+
+当然，只是没想到十本会这么没有才能就是了。花田：我是没兴趣，你是没才能。
+
+*****
+
+####  syndrome2032  
+##### 34027#       发表于 2025-3-7 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67594719&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-7 08:42</a>
+這是初華（音）說大祥彈春日影吧
+
+妳當眾出軌羞辱了我</blockquote>
+不如说是宣誓主权<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  宵神乐  
+##### 34028#       发表于 2025-3-7 09:02
+
+住大house座大奔驰的祥子谁不爱<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  08df1258c5ed098  
+##### 34029#       发表于 2025-3-7 09:03
+
+虽然知道现在讨论剧情实质上没有任何意义了
+但小时候都不是一个人，那初音为啥对祥子这么重，你俩见过么？<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  6030sylar  
+##### 34030#       发表于 2025-3-7 09:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">看过轻拍的早就有抗体了，小姨根本没所谓，怪阿姨喜欢侄女怎么了
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">就是非要拍丰川风暴比较无语
+
+*****
+
+####  aptx8285144  
+##### 34031#       发表于 2025-3-7 09:04
+
+<blockquote>akiomn 发表于 2025-3-7 01:56
+不对，这逼暖色调回忆是什么情况？我看了眼怎么大部分是痛苦回忆啊？
+
+开头狗团部分也不对，祥子和第九集的 ...</blockquote>
+爱音不要管鸡团这些神人才是对的，离这些神人越近，越会不幸
+
+*****
+
+####  ads147147  
+##### 34032#       发表于 2025-3-7 09:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67594877&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-7 09:04</a>
+
+爱音不要管鸡团这些神人才是对的，离这些神人越近，越会不幸</blockquote>
+爱音：我居然敢邀请祥子组乐队。
+
+虽然灯也是一休尼，但是祥子的一休尼要先毁掉你人生还是过于摇滚。。。
+
+*****
+
+####  syndrome2032  
+##### 34033#       发表于 2025-3-7 09:07
+
+灯的一辈子是无数个瞬间变成永远 
+祥的一辈子是被停止的瞬间变成永远。
+
+没初华这么重还真不行。
+
