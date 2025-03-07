@@ -714,3 +714,140 @@ mujica拍的这么烂还要碰瓷初音，把初音写成油腻女同真的不�
 我觉得是个人都不会强抢别人手机，在对方一脸不情愿的情况下还强拉着对方进豪宅，而能达成想要的结果纯粹 ...</blockquote>
 泛式评mygo十集，soyo铁了心不想上台的话谁拉得动她。这里同理
 
+
+*****
+
+####  adretyu67.  
+##### 34107#       发表于 2025-3-7 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67596085&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-7 10:55</a>
+
+死海文书里面好像有说真奈是类似老登给初音的迈巴赫这种感觉。
+
+表面的关心看起来是友好的，但初华自己也 ...</blockquote>
+初华在sumimi不快乐倒是狗里就确定了的。
+
+两个人刚营业完，甜甜圈很开心，金毛倒是很累，然后改变一切的电话来了
+
+*****
+
+####  capraeLinn  
+##### 34108#       发表于 2025-3-7 10:58
+
+带入初华的话确实会觉得大喵的行为难绷，我是初华我肯定跟她爆了
+
+但我不是重女，场内也不会有人对大喵的行为有意见，那就没问题了，这番就讲究一个没意见是真没意见，制作组也没意见那种
+
+*****
+
+####  YF31  
+##### 34109#       发表于 2025-3-7 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67596004&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-3-7 10:49</a>
+不是本意你倒是把词撤回了然后直接跑啊？市一虽然没木但是“你想组mujica吗”这一段确实是拍出来了，大喵 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">一般我们这只有二流子二皮脸的校园混混喜欢起哄架人，喜欢把情书抢来读，再辱骂男生犯贱女生犯婊。
+社会混混都不干这事，太掉价。
+柿畜和柿畜soulmate觉得起哄架人抢手机太好了，说到性压抑舔狗心里去了，性压抑舔狗就缺这么一架太好了可喜可贺，那我祝他们幸福百年好合。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  非建政专用号  
+##### 34110#       发表于 2025-3-7 11:00
+
+感觉漏油确实是疯了，神人里一定要找一个共情吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  qratosones1337  
+##### 34111#       发表于 2025-3-7 11:02
+
+ 本帖最后由 qratosones1337 于 2025-3-7 11:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67596115&amp;ptid=2208921" target="_blank">YF31 发表于 2025-3-7 10:58</a>
+
+一般我们这只有二流子二皮脸的校园混混喜欢起哄架人，喜欢把情书抢来读，再辱骂男生犯贱女生犯婊。
+
+社会 ...</blockquote>
+那可能说明你跟校园混混比较Soulmate吧，正常普通纯良老中无论如何都不可能想到“辱骂男生犯贱女生犯婊”，动画里根本不存在的东西能让你加戏加成这样，看来你这是自我带入了？
+
+
+*****
+
+####  wwwttth  
+##### 34112#       发表于 2025-3-7 11:04
+
+其实我已经心满意足了，致敬海猫说成立了，至于是不是史已经无所谓了，因为海猫动画就是史，史也是致敬的一部分，想一想也太快乐了
+
+*****
+
+####  油画布  
+##### 34113#       发表于 2025-3-7 11:05
+
+<blockquote>adretyu67. 发表于 2025-3-7 10:58
+初华在sumimi不快乐倒是狗里就确定了的。
+
+两个人刚营业完，甜甜圈很开心，金毛倒是很累，然后改变一切的 ...</blockquote>
+现在不是更累 都正念杀人了
+
+*****
+
+####  Victorino  
+##### 34114#       发表于 2025-3-7 11:05
+
+不管喵梦手段有什么问题，她最后确实是把初音最大的夙愿给完成了
+
+假如是我跟我女神犹豫不敢表白，有个哥们帮我发了我编辑很久的告白，对方还答应了，我得请哥们吃饭的
+
+一般社会人都觉得这种事情没什么问题，可能只有日式死宅会觉得破防
+
+*****
+
+####  YF31  
+##### 34115#       发表于 2025-3-7 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67596157&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-3-7 11:02</a>
+那可能说明你跟校园混混比较Soulmate吧，正常普通纯良老中无论如何都不可能想到“辱骂男生犯贱女生犯婊” ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那怎么说，抢她手机公屏嗯发黄词是为了祝两位百年好合？天长地久白头偕老？
+那太行了哥们，太朴素价值观了，只要柿畜做出来舔狗终将拥有就没问题是吧。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  南宮凝香  
+##### 34116#       发表于 2025-3-7 11:06
+
+喵當然是鍵喵，
+
+美式80 是洗不了的
+
+但當對象是個星壓抑只會自我發電的舔狗，
+
+觀眾也共情不了多少
+
+這就典型的美式校園體育明星80 暗戀啦啦隊長的油頭死宅的劇情
+
+*****
+
+####  qratosones1337  
+##### 34117#       发表于 2025-3-7 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67596201&amp;ptid=2208921" target="_blank">Victorino 发表于 2025-3-7 11:05</a>
+
+不管喵梦手段有什么问题，她最后确实是把初音最大的夙愿给完成了
+
+假如是我跟我女神犹豫不敢表白，有个哥们 ...</blockquote>
+能代入到校园混混的，可能真是跟校园混混是soulmate吧
+
+*****
+
+####  adretyu67.  
+##### 34118#       发表于 2025-3-7 11:06
+
+imprisoned xii明显是祥子自己的问题啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+她应该穿越回狗7话一巴掌拍死那个打电话的自己才是正解<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
