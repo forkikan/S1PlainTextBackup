@@ -3701,3 +3701,24 @@ pareo也就是陪chu2到地狱尽头，等一个超越地狱尽头的重力发�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  Ravio  
+##### 34377#       发表于 2025-3-7 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67596327&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-3-7 11:16</a>
+
+有个问题不知道前面有没有人说，按照访谈来说，mortis才是那个拥有表演才能的角色，但喵梦脑子里烙印的又 ...</blockquote>
+这里我9集结束时候就觉得应该“恶心”的是mortis装睦骗祥这点，事实上确实祥一开始没看出来，被点破后mortis和祥态度也都变了。
+
+*****
+
+####  adw667  
+##### 34378#       发表于 2025-3-7 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67599723&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-3-7 16:49</a>
+
+【官方中字】『BanG Dream! Ave Mujica -manuscriptus-』第6话</blockquote>
+我发现漫画的色调相对动画来说明亮多了
+

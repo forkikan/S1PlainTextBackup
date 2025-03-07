@@ -3078,3 +3078,16 @@ SB KONAMI又锁区了？之前打折时候买了进库，能进商店页面。�
 
 ----发送自 [Xiaomi 23049RAD8C,Android 14](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  森田美位子  
+##### 335#       发表于 2025-3-7 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67599927&amp;ptid=2090186" target="_blank">周处除三害 发表于 2025-3-7 17:05</a>
+
+新手刚玩，二代有好的阵容人物推荐吗？
+
+----发送自 Xiaomi 23049RAD8C,Android 14</blockquote>
+这游戏战斗不难，练级又快，而且主角这个超级奶妈托底，你可以多试试不同组合
+
