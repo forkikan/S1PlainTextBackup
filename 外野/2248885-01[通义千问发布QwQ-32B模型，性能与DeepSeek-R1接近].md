@@ -1134,3 +1134,69 @@ temperature, Top K, Top P这些参数可能要自己稍微调一调？没直接�
 试试量化的？q4km 我6G显存3060也有 2token。win + llama.cpp cuda预编译包</blockquote>
 是4k了，感觉是因为33%在内存，内存速度拖慢了整体速度。之前就问过DS混合使用的模式，DS明确告诉我性能会降到10%甚至更低
 
+
+*****
+
+####  UNICORN00  
+##### 80#       发表于 2025-3-7 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67596780&amp;ptid=2248885" target="_blank">c月光咖啡 发表于 2025-3-7 11:57</a>
+
+是4k了，感觉是因为33%在内存，内存速度拖慢了整体速度。之前就问过DS混合使用的模式，DS明确告诉我性能 ...</blockquote>
+我的参数参考
+
+./llama-server
+
+ --model qwq-32b-q4_k_m-00001-of-00005.gguf
+
+ --port xxx
+
+ --threads 4
+
+ --n-gpu-layers 16  加载层数不要爆显存，16G感觉能加载50+，可以看下显存占用多试几个
+
+ --ctx-size 4096 这个上下文搞大了也吃显存
+
+ --flash-attn
+
+ --temp 0.6
+
+ --top-p 0.95
+
+ --top-k 42
+
+ --cache-type-k q8_0
+
+ --cache-type-v q8_0
+
+ --jinja 
+
+
+*****
+
+####  c月光咖啡  
+##### 81#       发表于 2025-3-7 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67596870&amp;ptid=2248885" target="_blank">UNICORN00 发表于 2025-3-7 12:05</a>
+
+我的参数参考
+
+./llama-server
+
+ --model qwq-32b-q4_k_m-00001-of-00005.gguf</blockquote>
+你这是QwQ呢<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+我是R1-Qwen32B_4q_k_m
+
+*****
+
+####  UNICORN00  
+##### 82#       发表于 2025-3-7 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67596887&amp;ptid=2248885" target="_blank">c月光咖啡 发表于 2025-3-7 12:06</a>
+
+你这是QwQ呢
+
+我是R1-Qwen32B_4q_k_m</blockquote>
+也试过，性能差不多的，q4k量化的大小都是18G多
+

@@ -1434,3 +1434,15 @@ mortis的演技并非不值一提，喵梦说的是:很像，简直完美，真�
 “那个小祥还为我的性幻想谱了曲，是不是代表小祥同意了呢^ ^”
 “肯定是这样，待会问问她什么时候和我同居，什么时候睡一张床，什么时候让姨摸摸你吧<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">”
 
+
+*****
+
+####  zhoujin8584  
+##### 34170#       发表于 2025-3-7 12:13
+
+<blockquote>与太郎 发表于 2025-3-7 11:16
+有个问题不知道前面有没有人说，按照访谈来说，mortis才是那个拥有表演才能的角色，但喵梦脑子里烙印的又 ...</blockquote>
+不能单独的看访谈战神，睦首先是演技古神，小睦只有自我，但是有自我的演技才是真物<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+而小莫直到最后一刻才找回了真心，才同样的给喵梦一次瘫坐级的震惊，并选择了赎罪
+
