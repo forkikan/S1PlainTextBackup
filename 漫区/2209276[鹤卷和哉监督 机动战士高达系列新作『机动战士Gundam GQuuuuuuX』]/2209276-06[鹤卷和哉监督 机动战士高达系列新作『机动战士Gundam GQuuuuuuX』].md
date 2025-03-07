@@ -9763,3 +9763,14 @@ LLM都是数据喂出来的，真不一定比wiki靠谱，万一出幻觉了呢�
 B站上有人贴了了军团战的完整版（应该是他自己拍的）
 可以去看看
 
+
+*****
+
+####  Toby_dak  
+##### 8188#       发表于 2025-3-7 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67602139&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-3-7 22:18</a>
+
+官方的说法是鹤卷gg觉得土屋弟在《龙的牙医》里出演的那个声音适合修司，于是找他来配，但土屋弟在那部里 ...</blockquote>
+名塚还需要关系户？人家都结婚生孩子了。
+

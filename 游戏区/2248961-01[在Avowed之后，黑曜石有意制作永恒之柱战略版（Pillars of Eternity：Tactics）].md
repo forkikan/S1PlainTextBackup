@@ -1023,3 +1023,16 @@ bro干的：問題是現在微軟沒說BG3能 ...</blockquote>
 
 2025-3-7 23:34 上传
 
+
+*****
+
+####  D-JoeII  
+##### 89#       发表于 2025-3-7 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67603062&amp;ptid=2248961" target="_blank">Bieaeml 发表于 2025-3-7 23:34</a>
+
+确实，毕竟5M是写着好玩的</blockquote>
+在當時的角度買一個不能首發,只有PC版的遊戲是要出多少錢?
+
+22年5月的微軟怎麼看PC版的XGP跟現在差很遠耶
+
