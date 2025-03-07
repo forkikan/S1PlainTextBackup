@@ -123,3 +123,47 @@
 
 莫里斯是日本木吉他牌子
 
+
+*****
+
+####  ads147147  
+##### 34052#       发表于 2025-3-7 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67595189&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-3-7 09:36</a>
+看着架势我觉得星三可以上B站了，口碑一定好。</blockquote>
+至少逻辑上回旋回来了，不过感觉阿b也不想买。主要还是因为掀不起热度吧，母鸡卡这个样子阿b买了肯定保底不亏狂炒热度捞一波。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ads147147  
+##### 34053#       发表于 2025-3-7 09:42
+
+<img src="https://img.saraba1st.com/forum/202503/07/094253n4dmj42zd4m4jw0z.png" referrerpolicy="no-referrer">
+
+<strong>a16eb2e3c539e834e0b439bea4e3ee04.png</strong> (95.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 09:42 上传
+
+
+*****
+
+####  丹德里恩  
+##### 34054#       发表于 2025-3-7 09:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">老登管着偌大基业，结果女儿死了、女婿废物、私生女只想着草孙女、孙女只会哈气
+
+太绝望了
+
+*****
+
+####  ads147147  
+##### 34055#       发表于 2025-3-7 09:47
+
+不过按死海文书记载，严格说初音和丰川家确实没关系吧，老登的私生女是初华，初音是初华妈妈和其他人生的，只能说占了一个辈分而已，而且这个辈分还不怎么样。
+
+但是从这集去大宅的时候仆人的反应来看，恐怕只有祥子自己不知道初音是谁。。。
+

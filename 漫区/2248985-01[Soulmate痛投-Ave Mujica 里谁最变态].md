@@ -600,3 +600,15 @@ mygo里看春日影哭着跑出去的时候给初华打的电话吧，我感觉�
 
 初音和祥子里如果要2选1，我觉得写出“祥子我要草你”还上台唱的初音更变态，而面对这样的歌词还能写出曲子的祥子更神经
 
+
+*****
+
+####  swessia  
+##### 61#       发表于 2025-3-7 09:43
+
+我片看得少，祥子这我感觉单纯是写烂了
+
+初华是真让我见识到了女同的可怕<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

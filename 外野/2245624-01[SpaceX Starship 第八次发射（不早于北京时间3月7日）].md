@@ -878,3 +878,13 @@ V2是新设计
 
 我打赌起码在YKW任期内看不到阿尔忒弥斯3了
 
+
+*****
+
+####  2017.05.04  
+##### 66#       发表于 2025-3-7 09:41
+
+不如想想SLS还砍不砍了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
