@@ -53,3 +53,14 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">现在还差毒蛇突击兵，自由烈焰，真理执行者，自由公仆这四个债券没买，哪个性价比更高点？
 
+
+*****
+
+####  FLZB  
+##### 5837#       发表于 2025-3-8 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67589584&amp;ptid=2170852" target="_blank">qwased 发表于 2025-3-6 19:23</a>
+
+那泰坦嘴巴上贴了两个铝热炸完变烟花，屁事没有接着追我也是手抖吗</blockquote>
+屎山代码偷伤害了，铝热东线反重效果一直很不稳定我都懒得带了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
