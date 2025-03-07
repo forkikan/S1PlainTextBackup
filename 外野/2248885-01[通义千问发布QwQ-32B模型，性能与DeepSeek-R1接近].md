@@ -1086,3 +1086,14 @@ win ollama+i5-13600kf+4080+内存24*2</blockquote>
 
 但是拆字题还是做不对
 
+
+*****
+
+####  yorktown  
+##### 75#       发表于 2025-3-7 08:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592306&amp;ptid=2248885" target="_blank">fat 发表于 2025-3-6 22:57</a>
+
+对了请教一下，我之前试过导入gguf（ds蒸馏的qwen-32b），但是跑起来感觉和ollama直接pull下来的不一样， ...</blockquote>
+temperature, Top K, Top P这些参数可能要自己稍微调一调？没直接从ollama上pull过，还真没注意过<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
