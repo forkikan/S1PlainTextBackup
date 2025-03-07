@@ -9483,3 +9483,18 @@ edit
 
 2025-3-7 17:40 上传
 
+
+*****
+
+####  王留美  
+##### 8163#       发表于 2025-3-7 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67599905&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-3-7 17:03</a>
+
+就是标准的R.大魔（涂装偏大魔改的蓝色），然后这版大魔貌似屁股特别的大而已。
+
+或者夏利尔的大魔确实 ...</blockquote>
+唔，仔细看了下造型应该是角度问题形成的错觉
+
+GQ版大魔的腰(对比胸胯来说)特别细，但是这个角度看不到腰直接到前裙甲了，给我一种腰上有附加组件的错觉
+
