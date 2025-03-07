@@ -4633,3 +4633,65 @@ ave之前一直都是公式ppt，这次来了个接轨mygo做法的
 
 别的不说，喵梦这集抢人手机看还擅自发出来符合我对这角色的想象，键帽一个
 
+
+*****
+
+####  油画布  
+##### 34465#       发表于 2025-3-7 21:46
+
+<blockquote>钦念以忱 发表于 2025-3-7 21:32
+高尾 以我自己的想法举例来说，我觉得祥子之外的Ave Mujica成员在描写的时候都“露出了至今从未见过的一面 ...</blockquote>
+祥子是ooe 
+
+out of expectation。
+
+*****
+
+####  akiomn  
+##### 34466#       发表于 2025-3-7 21:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">事到如今我只想看柿本有没有本事把之前塑造完成的吉他睦和墨缇丝全部都弄死，最后端出个四不像睦
+
+*****
+
+####  Delicatus545  
+##### 34467#       发表于 2025-3-7 21:49
+
+睦还没结束吗
+
+
+*****
+
+####  钦念以忱  
+##### 34468#       发表于 2025-3-7 21:50
+
+高尾 果然自己身为祥子的饰演者，无论如何都会带入到祥子的视角去看待，这样去看的话我觉得“她向其撒娇最多的存在就是睦”。正因为向她撒娇，才会对她说出最伤人的话。睦也是这样，心里一直在想着祥子的事情，觉得“必须去支持她”。然而她们之间却没能好好地交流心意。看着这2人的关系性，我再次深切感受到“果然重要的事情如果不说出口的话是无法传达给对方的”。
+
+渡濑 是啊。
+
+高尾 果然对于祥子而言睦是尤其特别的存在。不会说一句废话，只是安静地在一旁支持者她。
+
+渡濑 是啊。从守护者的方面来讲她的确不会说一句废话（笑）。但是啊，她也没有什么废话可以说啊？因为说的全都是她的真心话。
+
+睦果然一直是祥子的姐姐
+
+*****
+
+####  Libartas  
+##### 34469#       发表于 2025-3-7 21:52
+
+<img src="https://p.sda1.dev/22/7953d5bac14a43f18bb3623be2519ae6/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/d1183152cadc0ef79ed8845bd3dc442a/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/bfd3c2ebe3831bcf4c2dee515b01f98d/image.jpg" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">木棉花这活整得，太八点档了
+
+*****
+
+####  师傅没水了  
+##### 34470#       发表于 2025-3-7 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67597520&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-7 13:07</a>
+
+回转企鹅罐也是这么拍的，几原每集只给了开头结尾，拍出来效果也不错</blockquote>
+没看过，不过如果是这样的话那可能人家往里塞的东西还能下咽吧
+
