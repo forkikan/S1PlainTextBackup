@@ -972,3 +972,38 @@ Second-run就是第二輪的意思,代表微軟知道BG3不能在Xbox/XGP上首�
 ”微软没说BG3能在XGP首发“，但是微软分析师写报价的时候把BG3加进去再给了500W美元报价，都怪文件泄露， ...</blockquote>
 什麼時候XGP只能買首發遊戲了?
 
+
+*****
+
+####  Bieaeml  
+##### 86#       发表于 2025-3-7 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67602936&amp;ptid=2248961" target="_blank">D-JoeII 发表于 2025-3-7 23:17</a>
+
+什麼時候XGP只能買首發遊戲了?</blockquote>
+微软干的：把BG3加入第三方首发XGP报价表格，然后给了500W美元的报价
+
+bro干的：問題是現在微軟沒說BG3能在XGP首發啊
+
+强调了一下微软干的：把BG3加入第三方首发XGP报价表格，然后给了500W美元的报价
+
+bro干的：什麼時候XGP只能買首發遊戲了?
+
+没事，你可以继续回复顺便发明一点我没发过的东西，完成你今天的自说自话KPI
+
+*****
+
+####  D-JoeII  
+##### 87#       发表于 2025-3-7 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67602968&amp;ptid=2248961" target="_blank">Bieaeml 发表于 2025-3-7 23:22</a>
+
+微软干的：把BG3加入第三方首发XGP报价表格，然后给了500W美元的报价
+
+bro干的：問題是現在微軟沒說BG3能 ...</blockquote>
+微软干的：把BG3加入第三方首发XGP报价表格，然后给了500W美元的报价 X
+
+微软干的：在表格的附註寫明BG3無法首發XGP,只能進第二輪 O
+
+你一直強調不正確的論點幹嘛?
+
