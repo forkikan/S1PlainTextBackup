@@ -856,3 +856,11 @@ POE里笨重大锤圣武士角色进行完一轮整轮施法的时候，高敏�
 —— 来自 鹅球 v3.3.96</blockquote>
 主要是 罕见看到微软弹窗广告，MS这么多游戏，我就只看到这个弹窗广告
 
+
+*****
+
+####  サリシノハラ  
+##### 77#       发表于 2025-3-7 21:23
+
+回家吧好不好，回家吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

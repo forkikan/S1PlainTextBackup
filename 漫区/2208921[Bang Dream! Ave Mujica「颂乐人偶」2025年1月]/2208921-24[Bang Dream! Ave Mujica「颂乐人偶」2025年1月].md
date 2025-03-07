@@ -4546,3 +4546,19 @@ ave之前一直都是公式ppt，这次来了个接轨mygo做法的
 
 —— 来自 HUAWEI OCE-AN50, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  厄神之息  
+##### 34457#       发表于 2025-3-7 21:20
+
+ 本帖最后由 厄神之息 于 2025-3-7 21:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67601982&amp;ptid=2208921" target="_blank">非建政专用号 发表于 2025-3-7 20:59</a>
+
+祥，我要创造一个有你的世界
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">当时我看带土神威难藏泪，一顿操作最后俺其实也想当村长洗白就挺难顶的。这母鸡卡生硬转折让我觉得忍界大战的带土剧情都不算什么了。
+
+说真的，现在这舔狗初华形象还真不如当初让初华化身带土给大祥家的都暗杀一下，设计把丰川产业做空来让小祥投入自己怀抱，然后面对其余三个责问说都怪你们当时对有小祥的母鸡卡见死不救！我才会出此下策！然后一顿live以后心里受荡涤表示俺也想当主唱洗白白来的好接受呢
+

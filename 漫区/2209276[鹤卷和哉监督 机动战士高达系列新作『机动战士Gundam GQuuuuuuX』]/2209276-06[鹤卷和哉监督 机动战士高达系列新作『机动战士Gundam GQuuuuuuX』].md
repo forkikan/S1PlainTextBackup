@@ -9652,3 +9652,31 @@ LLM都是数据喂出来的，真不一定比wiki靠谱，万一出幻觉了呢�
 翻译到男人那边山崎贤人的级别？ ...</blockquote>
 是只有土屋太凤厉害<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AraTurambar  
+##### 8177#       发表于 2025-3-7 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67602067&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-3-7 21:09</a>
+
+是只有土屋太凤厉害</blockquote>
+我知道她厉害，就不太确定厉害到什么水平。
+
+弟弟声音资质还可以的，关系户就关系户吧。
+
+*****
+
+####  刺客ares  
+##### 8178#       发表于 2025-3-7 21:18
+
+<blockquote>AraTurambar 发表于 2025-3-7 20:51
+虽然弟弟声音挺好听的我很受用，但是他那两个姐姐面子真就那么大？
+
+翻译到男人那边山崎贤人的级别？ ...</blockquote>
+官方的说法是鹤卷gg觉得土屋弟在《龙的牙医》里出演的那个声音适合修司，于是找他来配，但土屋弟在那部里是个纯路人，台词只有几句那种，男主是冈本配的
+
+这理由自己品吧
+
+当然这次绿叔叔和紫婆的CV也都在龙的牙医里配过角色，所以看实力的可能性也不是完全没有吧（
+
