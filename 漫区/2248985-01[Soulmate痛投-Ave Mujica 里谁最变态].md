@@ -808,3 +808,13 @@ mygo里看春日影哭着跑出去的时候给初华打的电话吧，我感觉�
 
 不敢想初音女士在同居期间用了多少次大祥老师的脏衣服<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  osore  
+##### 79#       发表于 2025-3-7 16:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第五话的时候我就说祥子从初华家跑路以后，有一个在他爹住的小破屋洗澡的镜头
+
+就是暗示祥子在初华家都不敢洗澡
+

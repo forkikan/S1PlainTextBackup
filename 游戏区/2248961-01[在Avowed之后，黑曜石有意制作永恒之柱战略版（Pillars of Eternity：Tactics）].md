@@ -553,3 +553,32 @@ PG和Rare有地平线和盗贼之海这样的长青服务型游戏，黑曜石�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  ultraseven  
+##### 54#       发表于 2025-3-7 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67599297&amp;ptid=2248961" target="_blank">Bieaeml 发表于 2025-3-7 16:12</a>
+
+泄露表格是22年xgp首发价格，除了BG3的，还有个每月500W美元的荒野大镖客：救赎2，即纯移植旧作都要每个 ...</blockquote>
+BG3抢先体验20年10月出来的，泄露的邮件来自于22年5月的。如果非要说5百万就是微软认为BG3的开发成本那我也没什么可说的。拿RDR2举例就更没有意思了。RDR2是一年稳定卖1000万的已证明成功的大作，索尼和微软两家的订阅制都是待几个月就出库了。
+
+50 million in 2022 61 million in 2023 and over 70 million in 2024.
+
+*****
+
+####  Bieaeml  
+##### 55#       发表于 2025-3-7 16:31
+
+突然想起还有这张图，毕竟500W美元只是移植钱，都是微软眼光毒辣的赏赐机会
+
+BG3.jpg
+(152.37 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 16:30 上传
+
+<img src="https://img.saraba1st.com/forum/202503/07/163043t9nzy2myr0ndz5mr.jpg" referrerpolicy="no-referrer">
+
