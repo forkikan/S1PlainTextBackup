@@ -1015,3 +1015,98 @@ VG我就知道当年代永翼搞基了<img src="https://static.saraba1st.com/ima
 
 —— 来自 OPPO PJC110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
 
+
+*****
+
+####  ykyin09  
+##### 34134#       发表于 2025-3-7 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67596402&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-3-7 11:23</a>
+她自己就是在聊天窗口里编辑的，这就是想发的意愿非常强烈但是下不了决心——否则从一开始就不应该在聊天 ...</blockquote>
+不是，メモ是备忘录
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  qratosones1337  
+##### 34135#       发表于 2025-3-7 11:25
+
+ 本帖最后由 qratosones1337 于 2025-3-7 11:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67596404&amp;ptid=2208921" target="_blank">圣血天使 发表于 2025-3-7 11:23</a>
+
+祥子烂武士刀也知道啊，你看不是借大猫嘴说了大小姐过家家我看出来了，大猫设定就是外地来东京打拼够疯的 ...</blockquote>
+现在可以解释了，大祥之所以那么逆天是因为住在天天想雷普自己的变态小姨家的阁楼上，然后大祥自己又是深柜崆峒，导致整个人心理状态变得扭曲。后来虽然搬走了但是心理状态已经跟之前不一样了，一直到第十集才终于别扭着接受了自己要被小姨艹的命运……
+
+*****
+
+####  qratosones1337  
+##### 34136#       发表于 2025-3-7 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67596419&amp;ptid=2208921" target="_blank">ykyin09 发表于 2025-3-7 11:25</a>
+
+不是，メモ是备忘录
+
+论坛助手,iPhone</blockquote>
+草，看错了
+
+*****
+
+####  ntrntr1  
+##### 34137#       发表于 2025-3-7 11:28
+
+ 本帖最后由 ntrntr1 于 2025-3-7 11:29 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我觉得不要想这么多
+
+正常情况下喵梦这种是典型的E人把I人当玩具
+
+但这剧吧。。。就明显是编剧强行把初华晾在那3集没有任何进展突然记起哎呀要完结了，又不知道为什么一定要坚持初华怂小祥不CARE的人设，只能派大手喵梦上前强行加速了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+我就好奇现在的崆峒小祥怎么又基因突变成铁人小祥的
+
+
+*****
+
+####  adretyu67.  
+##### 34138#       发表于 2025-3-7 11:30
+
+第10话算是把鸡团为什么会存在和要存在挑明白了。
+
+原来指导方向是主唱对作曲的欲望<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+虽然很变态，但是总是个理由。
+
+*****
+
+####  凉良  
+##### 34139#       发表于 2025-3-7 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67596292&amp;ptid=2208921" target="_blank">肛之练筋士 发表于 2025-3-7 11:14</a>
+
+要不坛友还是来补补vgdz吧，我也搞不懂都是wsd旗下的也是广告片，怎么vgdz能做得这么不错（甚至第三季还有m ...</blockquote>
+DZ是卖卡不是卖角色
+
+*****
+
+####  adretyu67.  
+##### 34140#       发表于 2025-3-7 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67596450&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-7 11:28</a>
+
+我觉得不要想这么多
+
+正常情况下喵梦这种是典型的E人把I人当玩具</blockquote>
+live前更衣室，初华女士发表一辈子宣言。大祥女士这是不跟也得跟，跟也得跟了。
+
+其实睦头地下室大祥老师那句不管是健康还是生病，总有种一眼结婚时在神父面前宣誓的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AlterDialog  
+##### 34141#       发表于 2025-3-7 11:33
+
+越回味越精彩。
+
+喵梦一直没吧双重人格当回事，她一直错把大自然的鬼斧神工当成主观能动性的巧夺天工，正好误打误撞的把握住了某种更本质的东西（一种在艺术的物质形式与观众的感性体验之上的更具有超越性的东西，不知道该怎么称呼它），让喵梦能准确的看穿小墨缺乏这种本质的表演。因为对自己缺少的东西的渴望，她非常喜欢睦/墨，但出于嫉妒不喜欢，但是又被曾经给自己带来过的震撼所吸引（“目光离不开你”），将其视为珍贵的宝物，因此说出那段爱恨交织的话。这段的演出太精彩了，昏暗的红光、喵梦的动作、台词，小墨的回应，完美展现了她们的矛盾心态。如果把喵梦这段视为表演，那么她早就获得了自己所渴望的东西了。
+

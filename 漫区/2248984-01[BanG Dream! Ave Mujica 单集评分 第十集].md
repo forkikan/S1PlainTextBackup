@@ -2519,3 +2519,21 @@ lz可否加个看结果选项，我为了看结果投了好几期0
 
 必须+2，就爱看别人尖叫抓挠<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  斑驳的阴影  
+##### 287#       发表于 2025-3-7 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67594981&amp;ptid=2248984" target="_blank">一心而用 发表于 2025-3-7 09:16</a>
+
+谐音梗。</blockquote>
+祥子只有在灯的面前会展现出女通讯录的一面（
+
+*****
+
+####  ardente  
+##### 288#       发表于 2025-3-7 11:30
+
+孩子们，原来插入歌真的是插入歌<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
