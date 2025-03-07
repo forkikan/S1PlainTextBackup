@@ -3438,3 +3438,96 @@ AVG又没什么门槛的，美术够就能做。
 
 她將來就會去跟你老公出軌？
 
+
+*****
+
+####  adretyu67.  
+##### 34354#       发表于 2025-3-7 17:18
+
+psp那个年代AVG衍生物才是真的多，现在少了很多了。
+
+*****
+
+####  AshPenguin  
+##### 34355#       发表于 2025-3-7 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67600033&amp;ptid=2208921" target="_blank">油画布 发表于 2025-3-7 17:14</a>
+
+不和c团扯上关系我就直接万岁了，这时候再让大喵愧疚不已  顺带搞点喵睦关系不是美滋滋 ...</blockquote>
+c团live上突然睦头又会弹了也不是没可能<img src="https://static.saraba1st.com/image/smiley/carton2017/485.png" referrerpolicy="no-referrer">。反正这么幻想的剧情没什么爆点，武士道肯定不乐意采纳的
+
+*****
+
+####  ads147147  
+##### 34356#       发表于 2025-3-7 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67599952&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-3-7 17:07</a>
+『魔法使的新娘』首次游戏化 2025年发售
+
+平台：Nintendo Switch</blockquote>
+能听到华哥配音不也挺好嘛。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  堆雪若叶  
+##### 34357#       发表于 2025-3-7 17:22
+
+没可能躲过crychic的，柿本原话就是crychic炸了才有了mygo，而crychic的复活也离不开母鸡卡的解散，crychic的优先级比抽祥子还高
+
+*****
+
+####  天空塔书记官  
+##### 34358#       发表于 2025-3-7 17:22
+
+ 本帖最后由 天空塔书记官 于 2025-3-7 17:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67600080&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-7 17:18</a>
+psp那个年代AVG衍生物才是真的多，现在少了很多了。</blockquote>
+等一波老任新机开卖NS降价，作为gal启动器NS性能还是够用的，还得是掌机啊
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  HereLink  
+##### 34359#       发表于 2025-3-7 17:23
+
+NS上那NS2应该也会有吧
+
+
+*****
+
+####  aptx8285144  
+##### 34360#       发表于 2025-3-7 17:24
+
+<blockquote>6030sylar 发表于 2025-3-7 16:59
+是作为初音家长反对吧
+
+而且这集第二次那是五人自己开吧，老登不知道
+</blockquote>
+怎么可能不知道，两人来大象家，老登都看到了，开LIVE的宣传海报也贴出来了，除非独角兽和柿本对“信息展示”的理解是异于常人的
+
+
+*****
+
+####  油画布  
+##### 34361#       发表于 2025-3-7 17:25
+
+<blockquote>AshPenguin 发表于 2025-3-7 17:18
+c团live上突然睦头又会弹了也不是没可能。反正这么幻想的剧情没什么爆点，武士道肯定不乐意采纳的 ...</blockquote>
+每一集追求爆点结果就是关键时候爆不起来了，前面铺垫点喵睦互动，第十集这个大喵出柜的戏不是就美妙加倍了 太可惜了 我本来很喜欢这俩的
+
+*****
+
+####  天空塔书记官  
+##### 34362#       发表于 2025-3-7 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67600139&amp;ptid=2208921" target="_blank">HereLink 发表于 2025-3-7 17:23</a>
+NS上那NS2应该也会有吧</blockquote>
+实体版应该兼容，但数字版不好说，NS2要开新的商店<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

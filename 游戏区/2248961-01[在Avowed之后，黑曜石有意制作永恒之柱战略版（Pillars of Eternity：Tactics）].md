@@ -748,3 +748,17 @@ GTA V和RDR2 20年就在XGP库里，别的作品当时是尚未发售的不论�
 所以为啥别的游戏第三方首发XGP的预期成本，多多少少会有IP以及新作参考旧作表现，出现了各种虚高的报价 ...</blockquote>
 因为在微软看来，这不是<strong>首发</strong>XGP啊，是在Steam上已经EA开卖一年多了再加进XGP的老游戏。
 
+
+*****
+
+####  Bieaeml  
+##### 71#       发表于 2025-3-7 17:22
+
+ 本帖最后由 Bieaeml 于 2025-3-7 17:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67600009&amp;ptid=2248961" target="_blank">ultraseven 发表于 2025-3-7 17:12</a>
+
+因为在微软看来，这不是首发XGP啊，是在Steam上已经EA开卖一年多了再加进XGP的老游戏。 ...</blockquote>
+那为啥同样不是<strong>首发</strong>的大镖客是每月500W美元，但是BG3却是猴岛一桌，买断的500W美元？
+
+说一千道一万，微软分析师就是没眼光/品味，你也不用上赶着从“只是移植费用”洗到“不是首发”，一句微软22年看不起BG3不就完了，包括XSS的优化都没上心，给索尼白送主机独占几个月
+
