@@ -2452,3 +2452,61 @@ soyo：不会呀~</blockquote>
 
 怕不是真冲着这种调性去写的
 
+
+*****
+
+####  zhoujin8584  
+##### 34264#       发表于 2025-3-7 14:41
+
+<blockquote>KokutouMikiya 发表于 2025-3-7 12:55
+看了下那个剧透，有点没懂，如果祥子去追岛上的真初华了，那这个初音该咋办，最后还得和小姨同居？这种剧情 ...</blockquote>
+初华的人设就是劣等替代品，然后WSD有意把她的人设做到极致，可能就是真初华祥子同居，初音只能在live上跟祥子play
+
+*****
+
+####  木板春香  
+##### 34265#       发表于 2025-3-7 14:41
+
+第10集的欢乐节奏榜：
+
+<img src="https://img.saraba1st.com/forum/202503/07/144122raatrbuf8uubweat.jpg" referrerpolicy="no-referrer">
+
+<strong>6L5Q{`RP$HO7E_T{V47J2C7_tmb.jpg</strong> (398.44 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-7 14:41 上传
+
+*****
+
+####  Yugao  
+##### 34266#       发表于 2025-3-7 14:42
+
+关系性吗，我怎么觉得一开始就朝着性关系狂奔了
+
+*****
+
+####  zhoujin8584  
+##### 34267#       发表于 2025-3-7 14:43
+
+<blockquote>江口夕 发表于 2025-3-7 14:03
+初音小姐最害怕的是高松灯，睦是什么臭鱼烂虾根本不足为惧，何况已经挂了。
+
+初音想艹大祥
+
+莫想艹睦 </blockquote>
+大猫也想艹睦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 34268#       发表于 2025-3-7 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67598263&amp;ptid=2208921" target="_blank">plok201 发表于 2025-3-7 14:35</a>
+老实说，不搞那些有的没的，就老老实实大祥大胜利，然后内部一直出状况，5个人全在吵架，但是LIVE还是能 ...</blockquote>
+问题是鸡1话就直接定调武道馆+全国巡演了。
+这继续升级下去就得出国开演唱会了。
+
+这样来就是没准备正常收束内部矛盾。
+就是往爆上一路狂奔的。
+
