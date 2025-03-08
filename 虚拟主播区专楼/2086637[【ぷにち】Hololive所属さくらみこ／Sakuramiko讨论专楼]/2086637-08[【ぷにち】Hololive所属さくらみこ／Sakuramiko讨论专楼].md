@@ -1867,3 +1867,23 @@ miko第一个表扬的是2K画质
 
 还得是唯一指定coser
 
+
+*****
+
+####  holofan  
+##### 10892#       发表于 2025-3-8 20:46
+
+明天的creatorstage一开始就说了不是唱自己的曲子这个就没什么好说的了
+
+关键看STAGE3是怎么安排了，我感觉是应该没有自己的新曲，大概solo是翻唱，组合跟谁也不好说随便猜一个跟sora吧很久没有live一起唱歌了（去年0期live除外
+
+*****
+
+####  rs5621  
+##### 10893#       发表于 2025-3-8 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67606496&amp;ptid=2086637" target="_blank">holofan 发表于 2025-3-8 14:36</a>
+
+你TM才是这漫画的主角（确信</blockquote>
+什么个人漫画
+

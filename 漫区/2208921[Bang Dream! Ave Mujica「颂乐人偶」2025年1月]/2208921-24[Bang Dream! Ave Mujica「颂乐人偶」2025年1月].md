@@ -9279,3 +9279,51 @@ b版这直球一点都不含蓄不说，还丢了这个三连排比的情感递�
 
 我去，原作啊。
 
+
+*****
+
+####  一心而用  
+##### 34877#       发表于 2025-3-8 21:58
+
+日综总结动画『Ave Mujica』名场景BEST3
+<img src="https://p.sda1.dev/22/41f88f9121cf8e09ded54a9125ddccd1/image.jpg" referrerpolicy="no-referrer">
+1.CRYCHIC最后的演出（第7集）
+<img src="https://p.sda1.dev/22/a9740d840250a01d9230bdec4f1f6a9b/image.jpg" referrerpolicy="no-referrer">
+2.Ave Mujica摘面具（第1集）
+<img src="https://p.sda1.dev/22/49c36b7ee062c0bb038760a5611f36ba/image.jpg" referrerpolicy="no-referrer">
+3.立希和灯在天桥上的对话（第5集）
+<img src="https://p.sda1.dev/22/e1fe5ea637bfbce0e440e327ac0aa4a8/image.jpg" referrerpolicy="no-referrer">
+只有一个是mujica自己的<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 34878#       发表于 2025-3-8 21:59
+
+邦邦历史上主角团有死过人吗（不管有没有复活），shi本广大是不是创造历史了？<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ape-apple  
+##### 34879#       发表于 2025-3-8 22:02
+
+有初华摘面具我都觉得是节目不好意思塞进去的，初海喵在鸡里哪有什么特别好的场景呢
+
+*****
+
+####  adretyu67.  
+##### 34880#       发表于 2025-3-8 22:03
+
+第一话初华摘面具是挺惊艳的。
+
+但是第七话羊叫是真的<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  秋月孝三  
+##### 34881#       发表于 2025-3-8 22:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">港真🐔团5人病到需要进群青学院的最多仨，🍅和🦄的颠力还是不如各路前辈
+
