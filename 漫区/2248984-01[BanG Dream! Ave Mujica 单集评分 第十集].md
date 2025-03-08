@@ -2853,3 +2853,13 @@ live的演出是什么玩意？歌还行。-2
 
 还好小祥住初华家的时候是加班到初华睡了以后才睡<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天邪鬼  
+##### 322#       发表于 2025-3-8 18:06
+
+➕2，好一个君若离去，我不独生，给我磕爽了
+
+—— 来自 nubia NX789J, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -7686,3 +7686,26 @@ Imprisoned XII的MV对比栞的MV，能看出Ave Mujica这乐队的设定有多�
 代价就是要少年丧女</blockquote>
 如果无视第七话 集体被脑控的话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  operatbig  
+##### 34736#       发表于 2025-3-8 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67606815&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-3-8 15:15</a>
+
+Imprisoned XII的MV对比栞的MV，能看出Ave Mujica这乐队的设定有多么充满“恶意”（是否真的是恶意取决于你 ...</blockquote>
+还是BE文学最有魅力。<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wangh  
+##### 34737#       发表于 2025-3-8 18:11
+
+话说之前柿本访谈里说原案里祥子组mujica的动机是对mygo的恨，那时都狂喷柿本懂个屁的mygo。但是十集这里mujica的重组感觉是不是要把这个设定给捡回来了，祥子现在应该是真的对mygo带着恨意了吧
+
+这集mujica重组过程以及准备演出各种行动，祥子还是挺主动积极的。按照最广泛的说法，假如只是因为夸下“背负人生”海口，被四个神人架起来不情不愿的去组mujica，如果是这样，那作完曲摆烂就好，其它交给大猫海玲，反正最想重组的也是她们两个。然而事实上这集里祥子的行动力和当初首组mujica的时候看上去也没多大区别，显然并不缺少自身的意愿。事到如今，还有多少东西能让祥子发自内心去重组mujica呢，睦头已经没了，中登也不需要养了，也不用向丰川家证明自己了，还剩下的恐怕也就是和C团狗团的纠葛
+
+这集开头的十人集结场景，现在大家最津津乐道的是mygo团大撤退<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 好不容易约出人来低声下气求复合，没得到正式回应不说，还被半路闹了一地鸡毛，然后人家对自己脸都不甩一下，直接光速拍屁股走人，对于高自尊心的祥子来说这简直就是羞辱啊。也难怪后面初华来安慰的时候露出了白祥回归以来最恨的一次哈气。最后也正是这场闹剧中狗团的决裂让祥子重新明白，自己是真的只剩下mujica了
+

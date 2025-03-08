@@ -117,3 +117,29 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  FLZB  
+##### 5843#       发表于 2025-3-8 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67607858&amp;ptid=2170852" target="_blank">jy000129 发表于 2025-3-8 17:24</a>
+
+放心，等西线城市图出来，ATAT加喜锯人更给你无限的惊喜口牙
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+西线城市我觉得可能反倒还好，机器人就恶心在开阔地形火力压制，城市巷战都挤成一坨，这不得驾着路口狠狠杀啊？当然被包了跑不掉也是真的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qwased  
+##### 5844#       发表于 2025-3-8 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67604499&amp;ptid=2170852" target="_blank">jy000129 发表于 2025-3-8 10:21</a>
+
+地狱火背包泛用性一般，核弹手枪重量级，西线切实解决了冻肉拆干扰塔的问题
+
+南线以后光能大部队出场就会缺 ...</blockquote>
+不是说只要解决了技术问题就实装加特林，这玩意估计就是光能专属了<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
