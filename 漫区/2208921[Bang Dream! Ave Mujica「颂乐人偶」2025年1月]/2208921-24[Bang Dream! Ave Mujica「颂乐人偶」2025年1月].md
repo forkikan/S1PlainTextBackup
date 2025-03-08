@@ -8690,3 +8690,199 @@ mujica随便写点像是正片猫莫/海希这种程度的其他多人互动蒙�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  南宮凝香  
+##### 34824#       发表于 2025-3-8 20:46
+
+至於大祥的道歉表…….
+
+3C三人： 為自己離隊時的差態度道歉
+
+Soyo： 為自己在飛鳥山的不成熟道歉
+
+初華： 為自己找她當備胎道歉
+
+睦： 睦就太多了， 建議在臨終床前說謝謝代替
+
+你說這是大事？ 
+
+大概不是
+
+可是是不是要道歉？ 是
+
+*****
+
+####  堆雪若叶  
+##### 34825#       发表于 2025-3-8 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609252&amp;ptid=2208921" target="_blank">岬开斗 发表于 2025-3-8 20:28</a>
+
+也就立希不是作词的，否则会写出什么重力歌词我都不敢想。
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+初华就是癫化立希，闷骚箭头到直球示爱。睦就是癫化soyo，交际伪装到双重人格。海铃就是癫化猫猫，居无定所到自己拆家。
+
+*****
+
+####  江口夕  
+##### 34826#       发表于 2025-3-8 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609398&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-8 20:46</a>
+至於大祥的道歉表…….
+
+3C三人： 為自己離隊時的差態度道歉</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">莫女士过失造成吉他睦挂了怎么算，你这些和莫女士的相比你觉得如何
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  aptx8285144  
+##### 34827#       发表于 2025-3-8 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609337&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-3-8 20:39</a>
+
+B站看了几个剪辑，初祥的定位就是，没有任何双向感情的CP，更衣室池沼表白那一段，祥子甚至连厌恶的表情都 ...</blockquote>
+但是初华唱live时念到那歌词，大象的表情就像见鬼了，不过吗，蚀本独角兽现在连台词都经常一话之后就180度转向，这种表情也可以随意解读<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thisisaspider  
+##### 34828#       发表于 2025-3-8 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609355&amp;ptid=2208921" target="_blank">油画布 发表于 2025-3-8 20:41</a>
+
+觉得剧情合理剧本就合格了就是最不专业的理解，剧本最重要的是感情共鸣，感情上打动不了观众才会在逻辑上挑 ...</blockquote>
+现在这样也没人觉得剧情合理啊<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cxj649  
+##### 34829#       发表于 2025-3-8 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609398&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-8 20:46</a>
+
+至於大祥的道歉表…….
+
+3C三人： 為自己離隊時的差態度道歉</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然说C团其实在第7集也算和解了，但是观众还在记小本本呢233
+
+*****
+
+####  钦念以忱  
+##### 34830#       发表于 2025-3-8 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609407&amp;ptid=2208921" target="_blank">堆雪若叶 发表于 2025-3-8 20:47</a>
+
+初华就是癫化立希，闷骚箭头到直球示爱。睦就是癫化soyo，交际伪装到双重人格。海铃就是癫化猫猫，居无定 ...</blockquote>
+那祥子就是癫化爱音，好好好的时候比爱音更阳光更灿烂，破防跑路切割的时候比爱音更决绝
+
+*****
+
+####  半年  
+##### 34831#       发表于 2025-3-8 20:52
+
+<img src="https://p.sda1.dev/22/a5a1f697703554e2e51ec585d90690c0/Glg9HBebYAAD3D9.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/Mourinka_/status/1898334436313501759/photo/1](https://x.com/Mourinka_/status/1898334436313501759/photo/1)
+
+*****
+
+####  adretyu67.  
+##### 34832#       发表于 2025-3-8 20:52
+
+大祥还是好好想想海岛铁人三项准备给初华的台词吧。
+
+她组鸡团的原始资本就是睦头和初华。睦头已经不会回来了，就剩初华了。
+
+*****
+
+####  是谁的书画  
+##### 34833#       发表于 2025-3-8 20:52
+
+有没有可能，就是有那么一个瞬间啊
+
+大祥会觉得，既然已经所谓命运共同体了，而我这样的人偶身体怎么样也都无所谓了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你们随便对我发泄**吧，我已经没有人的感情了之类的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  油画布  
+##### 34834#       发表于 2025-3-8 20:52
+
+<blockquote>thisisaspider 发表于 2025-3-8 20:49
+现在这样也没人觉得剧情合理啊</blockquote>
+其实见到过一些 还有 这一页也有（
+
+*****
+
+####  xyion  
+##### 34835#       发表于 2025-3-8 20:53
+
+莫撒疯开始周围9个人都无比拟人，哪怕是当妈妈的soyo。
+
+非要分析，就只能假设不是所有人都能听懂莫那句话是指睦没了。
+
+唯一能肯定的是祥子能听懂，给了表情特写，之后初华和喵梦去祥子家那幕，祥子也明确说了"睦不在的现在还组什么乐队"。
+
+*****
+
+####  ape-apple  
+##### 34836#       发表于 2025-3-8 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609414&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-8 20:49</a>
+但是初华唱live时念到那歌词，大象的表情就像见鬼了，不过吗，蚀本独角兽现在连台词都经常一话之后就180 ...</blockquote>
+现在mujica也快和二流少年漫一个路数了，莫名其妙大和解，莫名其妙死了个队友，莫名其妙打boss，莫名其妙结局发情搞CP
+
+*****
+
+####  影伴光生  
+##### 34837#       发表于 2025-3-8 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609437&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-8 20:52</a>
+有没有可能，就是有那么一个瞬间啊
+
+大祥会觉得，既然已经所谓命运共同体了，而我这样的人偶身体怎么样也都 ...</blockquote>
+枕头公主是吧，可惜目前真馋身子的似乎只有小姨
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  thisisaspider  
+##### 34838#       发表于 2025-3-8 20:55
+
+还在分锅的百分百电竞ylg吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  烂片雷达  
+##### 34839#       发表于 2025-3-8 20:55
+
+带着对角色的喜恶看剧情就会有失偏颇，观众应该平心和气少带点先入为主的有色眼镜才能对作品做出公正的论断<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 34840#       发表于 2025-3-8 20:55
+
+<blockquote>江口夕 发表于 2025-3-8 20:49
+莫女士过失造成吉他睦挂了怎么算，你这些和莫女士的相比你觉得如何
+
+虽然这集对莫女士跳下去我还是很认可 ...</blockquote>
+莫老師是睦被迫到絕境時才放出的人格
+
+算正常防衛
+
+最多判一個防衛過當
+
+兄弟為情義替你拚命， 拚到半死失誤毁了你事業，
+
+不管怎看他也對得起你
+
+祥子對睦頭的謝謝是省不了的
+
