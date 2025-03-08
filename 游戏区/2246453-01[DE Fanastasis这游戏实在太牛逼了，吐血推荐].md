@@ -3577,3 +3577,16 @@ MARK,看见群友在整这个了……
 
 这游戏的乐趣就在这里了。
 
+
+*****
+
+####  五块  
+##### 316#       发表于 2025-3-8 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593958&amp;ptid=2246453" target="_blank">远野乙姬 发表于 2025-3-7 01:38</a>
+
+双刀哥好像没想象那么强，双大剑，主手镰刀副手三刀短剑都试过了，就那样吧
+
+匕首妹是越用越强，我还没给她 ...</blockquote>
+匕首妹前期怎么过渡啊？我收他们两的时候主力队是电火法炼金，平均25级，双刀哥拿两把大剑还能靠攻击力硬怼，匕首妹全程刮痧，想有点伤害还得带工坊给她上一套buff，上完不如双刀哥一个双斩<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+

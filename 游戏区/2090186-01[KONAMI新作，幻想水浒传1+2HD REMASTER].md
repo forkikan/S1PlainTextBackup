@@ -3153,3 +3153,15 @@ SB KONAMI又锁区了？之前打折时候买了进库，能进商店页面。�
 
 ----发送自 [Xiaomi 23049RAD8C,Android 14](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  张路  
+##### 340#       发表于 2025-3-8 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67604592&amp;ptid=2090186" target="_blank">周处除三害 发表于 2025-3-8 10:39</a>
+刚接触这个系列，一般直接玩2还是推荐1玩了再玩2？我看2里的英雄不少都是1里面的。
+
+----发送自 Xiaomi 230 ...</blockquote>
+一代流程不长，先玩一代吧
+

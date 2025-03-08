@@ -868,3 +868,23 @@ mygo里看春日影哭着跑出去的时候给初华打的电话吧，我感觉�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  牢大别肘我了  
+##### 85#       发表于 2025-3-8 10:47
+
+初音姐最变态，喵梦姐最畜牲，木头姐最神经病，海铃姐最人机。
+至于大祥，博采众家之长。
+
+*****
+
+####  牢大别肘我了  
+##### 86#       发表于 2025-3-8 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67592529&amp;ptid=2248985" target="_blank">kykawaiii 发表于 2025-3-6 23:08</a>
+看样子祥子刚知道
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+有一说一，这里应该是早就知道了。结合她对初华的态度和最后的特写可以很明显的看出来
+
