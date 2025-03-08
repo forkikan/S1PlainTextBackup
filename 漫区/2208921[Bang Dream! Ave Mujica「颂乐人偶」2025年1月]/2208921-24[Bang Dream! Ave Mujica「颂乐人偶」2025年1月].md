@@ -7756,3 +7756,11 @@ Imprisoned XII的MV对比栞的MV，能看出Ave Mujica这乐队的设定有多�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  十九号大侠  
+##### 34742#       发表于 2025-3-8 18:37
+
+蜥蜴那几句，我觉得配的很好啊
+
