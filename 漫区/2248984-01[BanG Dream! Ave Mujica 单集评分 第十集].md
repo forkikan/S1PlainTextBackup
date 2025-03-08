@@ -2813,3 +2813,12 @@ live的演出是什么玩意？歌还行。-2
 
 剧情令我感到困惑，但是歌不错。一想到这难绷到极点的超诗祥还是本人作曲的，初音怕是要轻哼每一天了
 
+
+*****
+
+####  Schwftyyyyy  
+##### 318#       发表于 2025-3-8 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67600951&amp;ptid=2248984" target="_blank">ArowRocher 发表于 2025-3-7 18:52</a></blockquote>
+求笑点解析，飞轮海不是四个人吗
+

@@ -7346,3 +7346,75 @@ Imprisoned XII的MV对比栞的MV，能看出Ave Mujica这乐队的设定有多�
 初音这人比较看不明白，社交意外很窄233 ...</blockquote>
 初华只能靠祥子带了。
 
+
+*****
+
+####  cxj649  
+##### 34709#       发表于 2025-3-8 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67607247&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-8 16:11</a>
+
+初华只能靠祥子带了，具体也要看追完后双人状态。除非等手游加新社交关系。
+
+总的来说，没祥子初华就不会 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这2姐妹团主唱
+
+灯表无口自闭里阳光人
+
+初音是表阳光伟大的脸里阴湿自闭病娇
+
+
+*****
+
+####  adretyu67.  
+##### 34710#       发表于 2025-3-8 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67607304&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-3-8 16:19</a>
+
+这2姐妹团主唱
+
+灯表无口自闭里阳光人
+
+初音是表阳光伟大的脸里阴湿自闭病娇 ...</blockquote>
+11-12话祥子追初华估计就是“如此丑陋的我值得被爱吗”
+
+但是这么包饺子的剧情我已经不敢想象要怎么摁头压抑了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 34711#       发表于 2025-3-8 16:24
+
+做饭的时候突然想起一件事，祥子那套衣服被喵梦嫌弃
+
+是不是因为祥子那套本质是量产型地雷妹套装，还是最水货的那种？
+
+*****
+
+####  adretyu67.  
+##### 34712#       发表于 2025-3-8 16:25
+
+ 本帖最后由 adretyu67. 于 2025-3-8 16:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67607359&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-8 16:24</a>
+
+做饭的时候突然想起一件事，祥子那套衣服被喵梦嫌弃
+
+是不是因为祥子那套本质是量产型地雷妹套装，还是最水 ...</blockquote>
+狗12吗。狗12大猫就是看出了大祥穷酸样却要硬撑请人喝茶组队。
+
+至于为什么鸡里上了迈巴赫回了祖宅还继续穿那套不换就只能是舍不得多花精力做衣服了。
+
+不过鸡狗在服装上本来就能省就省，不止是祥子一个人的事。
+
+*****
+
+####  cxj649  
+##### 34713#       发表于 2025-3-8 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67607359&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-8 16:24</a>
+
+做饭的时候突然想起一件事，祥子那套衣服被喵梦嫌弃
+
+是不是因为祥子那套本质是量产型地雷妹套装，还是最水 ...</blockquote>
+不是衣服问题，而且当时大祥举止有点微妙，毕竟那时间点大祥已经是1年底层打工人了
+
