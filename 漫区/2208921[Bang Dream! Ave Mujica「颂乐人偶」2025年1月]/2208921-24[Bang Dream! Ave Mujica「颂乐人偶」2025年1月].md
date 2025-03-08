@@ -7117,3 +7117,40 @@ ave剧本爆炸和是不是邦世界观没有任何关系，重点在于想不�
 不如胆子再大一点</blockquote>
 太劲了
 
+
+*****
+
+####  adretyu67.  
+##### 34695#       发表于 2025-3-8 14:45
+
+穴兄弟有点变态了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  thisisaspider  
+##### 34696#       发表于 2025-3-8 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67606315&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-3-8 14:11</a>
+鸡团炸了5个人全员自闭，狗团炸了灯可以跑去ring尬念诗朗诵，精神力强度怎么比啊。 ...</blockquote>
+没发现鸡团里灯越活越回去了吗。本质是灯就不符合又爱又恨这一主题。觉得不符合编剧叙事的都可以扔掉好吧。真觉得角色可以超越创作者吗。
+
+*****
+
+####  adretyu67.  
+##### 34697#       发表于 2025-3-8 14:47
+
+我记得masking她爹那个death galaxy三人团虽然没提音乐风格，但是从取名和造型来看应该也是非常金属的？？？？
+
+鸡团搞成这样还是人的问题。
+
+*****
+
+####  天空塔书记官  
+##### 34698#       发表于 2025-3-8 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67606573&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-8 14:47</a>
+我记得masking她爹那个death galaxy三人团虽然没提音乐风格，但是从取名和造型来看应该也是非常金属的？？ ...</blockquote>
+死亡银河应该是视觉系乐队<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

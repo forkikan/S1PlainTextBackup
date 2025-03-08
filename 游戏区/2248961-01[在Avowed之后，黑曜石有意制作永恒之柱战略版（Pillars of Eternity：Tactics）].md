@@ -1169,3 +1169,11 @@ bro的理解——“宣誓确实没有BG3的预算，毕竟微软评估BG3这�
 
 顺便加一句，黑曜石的制作思路——有多少钱干多少事，而不是钱多就大干，钱少就摆烂，前者容易猝死后者容易自费功力，本身没啥问题。但即使以后黑曜石有能力做更大，按照微软对CRPG类型的态度，也不会加钱，属于就卡在这里了。
 
+
+*****
+
+####  posthoc  
+##### 100#       发表于 2025-3-8 14:46
+
+Sawyer是很喜欢battle brothers和dungeon rats，而且明确说过比起AoD更喜欢Dungeon Rats<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
