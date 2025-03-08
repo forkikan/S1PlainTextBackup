@@ -9586,3 +9586,84 @@ tgw最后也只是在海报上出现，也就是其实，虽然有无限的线�
 
 這說明什麼？ 自己想
 
+
+*****
+
+####  バーチャルS1er  
+##### 34905#       发表于 2025-3-8 22:47
+
+突然想到wsd这么想爆的话怎么不直接搞点床戏画面或者暗示呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 34906#       发表于 2025-3-8 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67610119&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-8 22:40</a>
+
+鸡团大猫和初华都是win-wing事务所的签约艺人，win-wing又高概率是丰川集团的产业。
+
+只能说鸡团2.0在liveho ...</blockquote>
+海林：自负盈亏？？我重组的动机之一就是缺钱<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  K·os  
+##### 34907#       发表于 2025-3-8 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67610180&amp;ptid=2208921" target="_blank">バーチャルS1er 发表于 2025-3-8 22:47</a>
+
+突然想到wsd这么想爆的话怎么不直接搞点床戏画面或者暗示呢</blockquote>
+这可不好说<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岬开斗  
+##### 34908#       发表于 2025-3-8 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67610169&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-8 22:45</a>
+初華想復活母雞卡， 上頭不許
+
+祥子想復活母雞卡， 一星期就能再開業</blockquote>
+说明柿本和独角兽想怎么写就怎么写。
+现在还想抠细节脑补剧情设定找合理性的，我只能说别太爱柿本和独角兽了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  adretyu67.  
+##### 34909#       发表于 2025-3-8 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67610191&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-8 22:48</a>
+
+海林：自负盈亏？？我重组的动机之一就是缺钱，我记得社长上周还说上面压力云云，这周就没人提了 ...</blockquote>
+手头紧这事应该是不会再提了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  siansian  
+##### 34910#       发表于 2025-3-8 22:52
+
+wsd能不能把幕后现场放出来，我单纯就想看staff在怎样的精神状态下制作这部番的
+
+*****
+
+####  K·os  
+##### 34911#       发表于 2025-3-8 22:54
+
+这里不得不提，武士道的幕后是一个究极大黑箱，live都是不出making的
+
+*****
+
+####  aptx8285144  
+##### 34912#       发表于 2025-3-8 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67610169&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-8 22:45</a>
+
+初華想復活母雞卡， 上頭不許
+
+祥子想復活母雞卡， 一星期就能再開業</blockquote>
+说明上头听老登的，合理推测是这样，毕竟这话最后大象都说老登你"无处不在"(6,7,8话表示？？)，话说大象对老登说你无处不在的时候，这语气感觉也不是充满敬意的，允许组母鸡卡这事不是恩情jpg<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
