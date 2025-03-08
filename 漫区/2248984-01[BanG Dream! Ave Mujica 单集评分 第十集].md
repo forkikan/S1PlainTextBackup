@@ -2863,3 +2863,11 @@ live的演出是什么玩意？歌还行。-2
 
 —— 来自 nubia NX789J, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  huanzhi  
+##### 323#       发表于 2025-3-8 18:14
+
+感觉这是10集里最像乐队动画的一集<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

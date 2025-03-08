@@ -7709,3 +7709,29 @@ Imprisoned XII的MV对比栞的MV，能看出Ave Mujica这乐队的设定有多�
 
 这集开头的十人集结场景，现在大家最津津乐道的是mygo团大撤退<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 好不容易约出人来低声下气求复合，没得到正式回应不说，还被半路闹了一地鸡毛，然后人家对自己脸都不甩一下，直接光速拍屁股走人，对于高自尊心的祥子来说这简直就是羞辱啊。也难怪后面初华来安慰的时候露出了白祥回归以来最恨的一次哈气。最后也正是这场闹剧中狗团的决裂让祥子重新明白，自己是真的只剩下mujica了
 
+
+*****
+
+####  syndrome2032  
+##### 34738#       发表于 2025-3-8 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67608210&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-8 18:02</a>
+如果无视第七话 集体被脑控的话</blockquote>
+7话soyo那个大笑其实还好理解吧。
+
+我以为就我一个ccc姨姥，结果前脚还被立希表扬为了狗团努力写歌词的灯其实是写ccc的词。究竟谁不忠诚。
+
+看上去很失态，但是实际上爽姐看似大小姐但是本质是一个小市民。这种情感宣泄才是爽姐释放本性的样子。
+
+*****
+
+####  aptx8285144  
+##### 34739#       发表于 2025-3-8 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67608292&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-3-8 18:14</a>
+
+7话soyo那个大笑其实还好理解吧。
+
+我以为就我一个ccc姨姥，结果前脚还被立希表扬为了狗团努力写歌词的灯 ...</blockquote>
+还有几个姨姥对爱音比较生硬的态度<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
