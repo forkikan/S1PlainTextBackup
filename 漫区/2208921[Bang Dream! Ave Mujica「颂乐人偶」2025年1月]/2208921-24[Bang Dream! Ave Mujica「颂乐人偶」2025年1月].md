@@ -10235,3 +10235,38 @@ Ave Mujica 前10话 niconico 好评率
 
 只要祥子愿意乐队一句话的事，但是这个超诗祥真不行
 
+
+*****
+
+####  油画布  
+##### 34962#       发表于 2025-3-9 00:37
+
+别惦记动画了 独角兽回来重写mujica手游剧情吧 比较两个版本至少知道该怎么分锅了 ，哪版能卖角色用哪版 竞争上岗 
+
+*****
+
+####  adretyu67.  
+##### 34963#       发表于 2025-3-9 00:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67610785&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-9 00:32</a>
+
+这不是很明显吗？大小姐过家家点出来了，喵梦都入职了能不知道事务所姓丰川吗
+
+只要祥子愿意乐队一句话的 ...</blockquote>
+超诗祥意义就是初华本人黑泥大爆发，意味着她正式加入鸡团行列。
+
+只是想艹小祥并不需要在鸡团，只需要关进自家阁楼就行。
+
+但是在鸡团的歌里唱出艹小祥那就是你也是鸡团大家庭的一员了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  huxiaopao163  
+##### 34964#       发表于 2025-3-9 00:41
+
+看到一个非常好的分析
+
+感觉第十集的mortis和第六集soyo在睦家拿舞鞋打电话逻辑类似。
+
+soyo看到mortis拿起舞鞋打电话不知所措（mortis因为小睦消失自己站在舞台上不知所措）-&gt; soyo收到爱音的信息，知道了交流的重要性（mortis收到喵梦的爱，知道了被爱的重要性) -&gt; soyo想到了mortis也需要与他人沟通（mortis想到吉他睦也需要这份爱）-&gt; soyo拿起舞鞋与mortis交流（mortis行动起来将这份爱传递给吉他睦)
+
