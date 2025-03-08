@@ -6693,3 +6693,85 @@ MYGO时期黄瓜睦早已不在<img src="https://static.saraba1st.com/image/smil
 海玲从打工人到a团才是我的 ...</blockquote>
 编剧想了个惊天（自认）剧本、对偶结构和主题。导致角色只能为剧情服务了。但剧情又因为实力不足演崩了。角色活过来了就是一群只写过写剧情为角色服务的剧本家在挑战自我后失败借口。
 
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 34656#       发表于 2025-3-8 13:29
+
+说不定喵梦和layer很熟的设定就是留着进手游让老团插手的口子，正好鸡和当初的RAS一样最初设定是反派团。
+
+*****
+
+####  木板春香  
+##### 34657#       发表于 2025-3-8 13:31
+
+卡其脱离太
+
+<img src="https://img.saraba1st.com/forum/202503/08/133110htf8vca7uv7hztv7.gif" referrerpolicy="no-referrer">
+
+<strong>XXT5XU]]Q82WBPY`WM]Q02J.gif</strong> (1.78 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-8 13:31 上传
+
+*****
+
+####  thisisaspider  
+##### 34658#       发表于 2025-3-8 13:31
+
+祥子的睦在鸡团2.0前已经死了。祥子恨着莫说的让莫表演睦。后面会怎么展现不好说。
+
+
+*****
+
+####  螺旋的小夜曲  
+##### 34659#       发表于 2025-3-8 13:32
+
+看到现在实在是受不了了，丰川祥子是批里有大嘛？能让人如此疯狂
+
+*****
+
+####  cxj649  
+##### 34660#       发表于 2025-3-8 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67605860&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-8 13:22</a>
+
+睦祥关系本来就在一直被消解，第十集只是彻底盖棺了。
+
+钓网红是在睦还没有答应的时候，关心的话被哈高高在 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我个人觉得，10后半大祥早该这样了
+
+睦（莫）头人自己看着办233
+
+*****
+
+####  adretyu67.  
+##### 34661#       发表于 2025-3-8 13:34
+
+ 本帖最后由 adretyu67. 于 2025-3-8 13:36 编辑 
+
+对比了下9、10话内心小剧场的情况。
+
+9话剧场地板部分脱落，除此以外整体还算完整，背景墙里黑影还在喊不要抢走我的角色。10话剧场连背景墙都损坏的差不多了。
+
+莫应该是时日不长了。
+
+即使不主动跳下去，等剧场崩塌也是一定会消融。
+
+*****
+
+####  半年  
+##### 34662#       发表于 2025-3-8 13:37
+
+<img src="https://img.saraba1st.com/forum/202503/08/133715nf0pifkproihjrfy.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20250308133659.png</strong> (753.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-8 13:37 上传
+
+[https://x.com/arukuBAKEGAKU/status/1897881620033765536](https://x.com/arukuBAKEGAKU/status/1897881620033765536)
+
