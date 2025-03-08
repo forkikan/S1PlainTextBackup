@@ -8191,3 +8191,145 @@ avemujica1.0解散是祥子的音乐梦追逐不下去了，孝爹表演了一�
 
 如果这个都吃不下，那其他的基本上只会更糟糕了...
 
+
+*****
+
+####  Суслов  
+##### 34780#       发表于 2025-3-8 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609025&amp;ptid=2208921" target="_blank">梅杜莎 发表于 2025-3-8 20:00</a>
+哎呦，刚反应过来，道德绑架对祥子是真好使，那当年Soyo出招没有错，难怪她觉得自己本来能hold住 ...</blockquote>
+飞鸟山公园，战后
+素世：（跪地仰天长叹）我计不成，乃天命也
+小睦：哭来兮哭之灭，绝非贝斯之罪，实是鼓手冲动无道而致啊
+素世：（咽气）
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  cxj649  
+##### 34781#       发表于 2025-3-8 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609114&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-3-8 20:12</a>
+
+大祥认识的只有吉他睦，对莫女士并不熟甚至无感。这集明着已经告诉你了。
+
+大祥去睦家组mujica时，对莫女士 ...</blockquote>
+所以我说的第10话这时间点，大祥对鸡团其他4人好感度很低的233
+
+*****
+
+####  钦念以忱  
+##### 34782#       发表于 2025-3-8 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609118&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-8 20:13</a>
+
+这种套路类型的东西现在日本人做的确实不行，漫画不如韩国人，小说不如中国人。
+
+小说我了解不多，韩漫更 ...</blockquote>
+日本才是真的还有世家大族的国家，也是贵族制消亡最晚的，照理应该最能写好这种角色才对吧
+
+*****
+
+####  凉良  
+##### 34783#       发表于 2025-3-8 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67608971&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-8 19:50</a>
+
+當看到祥子面對莫老師說睦頭死了倒地大哭的反應是毫無動作， 面無表情，
+
+你就知道這動畫已經爛完了 ...</blockquote>
+应该说竟然没有一个人对睦死了有反应  上集结尾一帮人为了莫死不死闹那样搞毛呢 
+
+*****
+
+####  十九号大侠  
+##### 34784#       发表于 2025-3-8 20:18
+
+日本现在搞色情都搞不过韩国了
+
+
+*****
+
+####  adretyu67.  
+##### 34785#       发表于 2025-3-8 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609171&amp;ptid=2208921" target="_blank">凉良 发表于 2025-3-8 20:18</a>
+
+应该说竟然没有一个人对睦死了有反应  上集结尾一帮人为了莫死不死闹那样搞毛呢  ...</blockquote>
+狗团做法是对的，先安抚再陪伴<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 34786#       发表于 2025-3-8 20:21
+
+ 本帖最后由 江口夕 于 2025-3-8 20:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609171&amp;ptid=2208921" target="_blank">凉良 发表于 2025-3-8 20:18</a>
+应该说竟然没有一个人对睦死了有反应  上集结尾一帮人为了莫死不死闹那样搞毛呢  ...</blockquote>
+没错，这里大祥反而没问题，mygo反而全员ooc，竟然一点反应都没有。ccc陪伴那三个人的是吉他睦，包括立希认识的都是吉他睦。这时候竟然什么话都没有
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  是谁的书画  
+##### 34787#       发表于 2025-3-8 20:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609161&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-8 20:17</a>
+
+日本才是真的还有世家大族的国家，也是贵族制消亡最晚的，照理应该最能写好这种角色才对吧 ...</blockquote>
+总感觉日本人特别喜欢路径依赖，一个东西成了就很难变通，只会在小框架下进行一点点更改，例如人设和战力单位这块。
+
+例如什么退队流，龙傲天流，本质上不知道如何在成功作品的基础上做出总结提升，只会流水线加工。
+
+---------------------------------------
+
+但话又说回来，mujiaca就想脱离邦邦的框架，结果是这个结果，真的想啸啊
+
+*****
+
+####  凉良  
+##### 34788#       发表于 2025-3-8 20:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609191&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-8 20:21</a>
+
+狗团做法是对的，先安抚再陪伴</blockquote>
+也就素有安抚啊 还是安抚的mortis 对睦都没问一句
+
+后续还是海玲在陪床
+
+这段简直太诡异了
+
+*****
+
+####  adretyu67.  
+##### 34789#       发表于 2025-3-8 20:23
+
+ 本帖最后由 adretyu67. 于 2025-3-8 20:25 编辑 
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609203&amp;ptid=2208921" target="_blank">凉良 发表于 2025-3-8 20:22</a>
+
+也就素有安抚啊 还是安抚的mortis 对睦都没问一句
+
+后续还是海玲在陪床
+
+这段简直太诡异了 ...</blockquote>
+
+素世带着莫走了以后企鹅追了上去，然后是奶龙连体人联动。
+
+至于海铃陪床，是立希教的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  钦念以忱  
+##### 34790#       发表于 2025-3-8 20:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609171&amp;ptid=2208921" target="_blank">凉良 发表于 2025-3-8 20:18</a>
+
+应该说竟然没有一个人对睦死了有反应  上集结尾一帮人为了莫死不死闹那样搞毛呢  ...</blockquote>
+其实没几个人真信睦头的多重人格，实在这戏拖太长了，观众都看累了，何况戏里这些人，祥子都厌倦了演不下去了
+
+最后mortis只好一个人孤苦地在台上演自杀行为艺术
+
