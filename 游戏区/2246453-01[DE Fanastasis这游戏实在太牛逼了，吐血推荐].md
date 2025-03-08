@@ -3564,3 +3564,16 @@ fanastasis这个词是fana（涅槃，解脱）+fanatic（疯狂的，狂信者�
 
 MARK,看见群友在整这个了……
 
+
+*****
+
+####  五块  
+##### 315#       发表于 2025-3-8 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67595275&amp;ptid=2246453" target="_blank">太阳骑士GAOYAN 发表于 2025-3-7 09:45</a>
+
+话说我现在拿了两个记忆进度到了大书库和遗迹开了恶魔镇进不去，古代语也看不懂，放魔塔上不去，卡农之棺停 ...</blockquote>
+这两个地方我探索进度正好和你相反，海底隧道我是从上面跳下来的，跳下来的地方就是有光，镇子我也是从上面放绳子下来的。
+
+这游戏的乐趣就在这里了。
+

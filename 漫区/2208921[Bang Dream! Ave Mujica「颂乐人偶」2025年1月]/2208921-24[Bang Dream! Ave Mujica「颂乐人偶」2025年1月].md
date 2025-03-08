@@ -5908,3 +5908,60 @@ Nico 那三千人評分表早就提純了
 
 這跟去戰吧問母雞卡好看不一樣
 
+
+*****
+
+####  ape-apple  
+##### 34588#       发表于 2025-3-8 10:36
+
+假如第七集的硅胶live都能听下去，那第十集在鬼子眼里肯定真神回，之前在楼里我跟一个楼友辩论，不是为了说明日本人眼光多好，而是要说明根本指望不了日本人有鉴赏能力
+
+
+*****
+
+####  与太郎  
+##### 34589#       发表于 2025-3-8 10:43
+
+<img src="https://img.saraba1st.com/forum/202503/08/103818wji9xdpu9ysysuit.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (516.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-8 10:38 上传
+
+<img src="https://img.saraba1st.com/forum/202503/08/103927crvn36gr19r0v09w.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (437.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-8 10:39 上传
+
+<img src="https://img.saraba1st.com/forum/202503/08/103938fz9hnmvtxz8c4vfx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (391.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-8 10:39 上传
+
+<img src="https://img.saraba1st.com/forum/202503/08/103950a61cwje41g1zgh8g.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (462.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-8 10:39 上传
+
+[https://x.com/ohtaki_bashi/status/1898201977185853763](https://x.com/ohtaki_bashi/status/1898201977185853763)
+
+*****
+
+####  牢大别肘我了  
+##### 34590#       发表于 2025-3-8 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67604025&amp;ptid=2208921" target="_blank">shinoverse 发表于 2025-3-8 08:28</a>
+怎么NGA还有说牢墨是柿本广大皮套的</blockquote>
+玩手游把自己脑子玩烂了
+

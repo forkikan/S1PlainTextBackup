@@ -42,3 +42,22 @@ Ave Mujica - Imprisoned XII (Official Music Video)
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  ykyin09  
+##### 27038#       发表于 2025-3-8 10:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">鸡现在这风评，今年还有可能来国内开live吗
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  江口夕  
+##### 27039#       发表于 2025-3-8 10:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">2.5是2.5动画是动画，bang1还小星星呢，跟你去看爱美有啥关系。厨老r时候也压根没动画
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
