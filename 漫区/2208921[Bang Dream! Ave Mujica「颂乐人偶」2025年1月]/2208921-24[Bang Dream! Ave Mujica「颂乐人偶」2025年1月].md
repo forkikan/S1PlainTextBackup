@@ -10041,3 +10041,95 @@ Ave Mujica 前10话 niconico 好评率
 可能这就是工具人黑手吧。 ...</blockquote>
 怕自己女儿和孙女好上那可就真绝后了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 34946#       发表于 2025-3-8 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67610511&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-8 23:39</a>
+
+怕自己女儿和孙女好上那可就真绝后了</blockquote>
+深究又很难说得通，毕竟这两个前面同居那么久，老登也是浑然不知的吗，按照他自己说法就是一直在关注鸡团（主要应该就是大象），当然，按照只是一个随着蚀本这些神人需要而出场的有钱工具人而言，不是没这个可能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 34947#       发表于 2025-3-8 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67610554&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-8 23:46</a>
+
+深究又很难说得通，毕竟这两个前面同居那么久，老登也是浑然不知的吗，按照他自己说法就是一直在关注鸡团 ...</blockquote>
+没说就是没有
+
+don‘t thing just feel
+
+
+*****
+
+####  非建政专用号  
+##### 34948#       发表于 2025-3-8 23:50
+
+找补的话就是之前同居的时候老头以为是小姨照顾侄女，等第十集偷偷跑去听live才知道TMD丰川家要绝后了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  南宮凝香  
+##### 34949#       发表于 2025-3-8 23:50
+
+<blockquote>ape-apple 发表于 2025-3-8 23:38
+人跑了一批，但好评率又高了，鬼子确实就配看这种东西</blockquote>
+純粹提純
+
+集數    好評人數
+
+4  2900
+
+5  2800
+
+6  3250
+
+7  3200
+
+8  2800
+
+9  2770
+
+10 2400
+
+實際上就算是日本在第7話後也跑了一批人
+
+然後每一話都有一批之前給好評的跑路
+
+*****
+
+####  影伴光生  
+##### 34950#       发表于 2025-3-8 23:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nico好评率的参考性不大——mujica既没有烂到兽娘2那种人神共愤的程度，又有⏰头两天大量差评导致霓虹人的逆反心理
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  钦念以忱  
+##### 34951#       发表于 2025-3-8 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67610499&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-3-8 23:38</a>
+
+Ave Mujica 前10话 niconico 好评率
+
+第1话 81.4% 8.7% 4.5% 3.0% 2.5% 约2200人
+
+第2话 79.4% 8.3% 5.8% 4 ...</blockquote>
+那看来日本人其实也差不多，也觉得7话9话很烂
+
+*****
+
+####  adretyu67.  
+##### 34952#       发表于 2025-3-8 23:55
+
+7话的欺诈性质高一点吧。冲着ccc和解去看结果被欺诈了。
+

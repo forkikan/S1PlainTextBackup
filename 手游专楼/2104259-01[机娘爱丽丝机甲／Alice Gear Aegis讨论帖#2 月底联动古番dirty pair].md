@@ -196,3 +196,11 @@
 
 才知道负责你游活动剧情和部分人物剧情（土妹、来弥、小结等）的朝日文左一年前的今天去世了今天才爆出来<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Picavian  
+##### 1401#       发表于 2025-3-8 23:52
+
+什么……走好
+
