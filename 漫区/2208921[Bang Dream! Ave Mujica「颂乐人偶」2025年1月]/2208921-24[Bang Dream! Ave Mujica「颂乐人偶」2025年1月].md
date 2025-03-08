@@ -6403,3 +6403,129 @@ Nico 那三千人評分表早就提純了
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  adretyu67.  
+##### 34632#       发表于 2025-3-8 12:56
+
+大祥组鸡2.0的时候就已经彻底无所谓睦头了，只要来个人站着弹吉他都行。
+
+*****
+
+####  污陨血红  
+##### 34633#       发表于 2025-3-8 12:56
+
+ 本帖最后由 污陨血红 于 2025-3-8 12:59 编辑 
+
+草，发错楼了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+手机网页版真不好用
+
+*****
+
+####  thisisaspider  
+##### 34634#       发表于 2025-3-8 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67605575&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-3-8 12:49</a>
+出新手游，你如果要扬，扬的方式不对的话和音乐风格又打架了，你不能都合家欢了积极向上，音乐风格是这个 ...</blockquote>
+正常来说，音乐风格没必要和创作者的心境一致。不然也没这么多网抑云了。不过邦多利是想表达音乐作为创作者心声的故事。所以也矛盾了。但初华有个设定作词表达是别人的心声。又不矛盾了。只能说这企划左右互搏太多了。
+
+*****
+
+####  半年  
+##### 34635#       发表于 2025-3-8 12:57
+
+<img src="https://img.saraba1st.com/forum/202503/08/125723dqbeckdxccxxgwgz.jpg" referrerpolicy="no-referrer">
+
+<strong>GlbRdgobUAAGot_.jpg</strong> (333.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-8 12:57 上传
+
+[https://x.com/sasakirico/status/1897934604150988817/photo/1](https://x.com/sasakirico/status/1897934604150988817/photo/1)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 木板春香| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  thisisaspider  
+##### 34636#       发表于 2025-3-8 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67605596&amp;ptid=2208921" target="_blank">operatbig 发表于 2025-3-8 12:52</a>
+想起睦回来的时候，只有海铃跟大喵的镜头，大祥又回到解散前对睦漠不关心的状态了，面对不断给自己制造麻烦 ...</blockquote>
+我觉得这样解读太早了。故事没完结。可能只是编排上不能展现。但也说的通，祥奉献一生的睦已经被莫杀死了。
+
+*****
+
+####  cxj649  
+##### 34637#       发表于 2025-3-8 12:59
+
+我是个人觉得大祥放弃睦头人才是正常人<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+MYGO时期黄瓜睦早已不在<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  非建政专用号  
+##### 34638#       发表于 2025-3-8 13:00
+
+大象是为了保护睦不被大初老师谋杀，你好温柔大象
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  6030sylar  
+##### 34639#       发表于 2025-3-8 13:00
+
+祥睦两姐妹没事的，对待她们就是要硬起来，让她们跟上你的节奏，反而不要太过于关心她们三长两短的，大喵就这样
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  江口夕  
+##### 34640#       发表于 2025-3-8 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67605629&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-8 12:56</a>
+正常来说，音乐风格没必要和创作者的心境一致。不然也没这么多网抑云了。不过邦多利是想表达音乐作为创作 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">老企划有些东西根深蒂固了，老邦如果不是2.5老r人气太高，必须吊着，不然早放手了。2017年还是16年的游戏了。当然了，新接手的p其实现实路线方向问题不大，奈何手底下能力不行。游戏游戏不行，mujica也崩
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  adretyu67.  
+##### 34641#       发表于 2025-3-8 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67605629&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-8 12:56</a>
+
+正常来说，音乐风格没必要和创作者的心境一致。不然也没这么多网抑云了。不过邦多利是想表达音乐作为创作 ...</blockquote>
+我是觉得鸡团的词也反映了初华内心的阴暗。
+
+在imprisoned xii和Crucifix X终于能体现出来了。
+
+
+*****
+
+####  cxj649  
+##### 34642#       发表于 2025-3-8 13:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67605669&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-3-8 13:01</a>
+
+老企划有些东西根深蒂固了，老邦如果不是2.5老r人气太高，必须吊着，不然早放手了。2017年还是16年的游戏 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小心像LL那样，把所有手游都自爆了233
+
