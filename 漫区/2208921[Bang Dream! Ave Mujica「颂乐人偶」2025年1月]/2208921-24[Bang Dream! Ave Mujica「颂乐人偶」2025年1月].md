@@ -7764,3 +7764,13 @@ Imprisoned XII的MV对比栞的MV，能看出Ave Mujica这乐队的设定有多�
 
 蜥蜴那几句，我觉得配的很好啊
 
+
+*****
+
+####  天空塔书记官  
+##### 34743#       发表于 2025-3-8 18:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

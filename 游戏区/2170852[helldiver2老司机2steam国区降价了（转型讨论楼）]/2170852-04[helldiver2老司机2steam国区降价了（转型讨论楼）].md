@@ -143,3 +143,15 @@
 南线以后光能大部队出场就会缺 ...</blockquote>
 不是说只要解决了技术问题就实装加特林，这玩意估计就是光能专属了<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jy000129  
+##### 5845#       发表于 2025-3-8 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67608247&amp;ptid=2170852" target="_blank">FLZB 发表于 2025-3-8 18:08</a>
+西线城市我觉得可能反倒还好，机器人就恶心在开阔地形火力压制，城市巷战都挤成一坨，这不得驾着路口狠狠 ...</blockquote>
+喜剧人速度比僵尸快多了，城市地形突然围上来跑都跑不掉
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
