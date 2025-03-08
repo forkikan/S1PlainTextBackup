@@ -16,3 +16,18 @@ pc优化又爆炸了吗<img src="https://static.saraba1st.com/image/smiley/face2
 
 小弟请牢庄吃顿饺子教教怎么做优化吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  千秋难诉  
+##### 3403#       发表于 2025-3-8 22:06
+
+优化要钱啊，暗耻的游戏永远至少缺一样，卧龙有宣发费没优化费，起源有优化费没宣发费，浪人这个索尼的弃子那当然既没宣发费又没优化费
+
+*****
+
+####  东方定助  
+##### 3404#       发表于 2025-3-8 22:07
+
+幽默忍者组<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

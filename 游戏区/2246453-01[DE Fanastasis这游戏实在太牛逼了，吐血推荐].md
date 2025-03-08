@@ -3705,3 +3705,11 @@ MARK,看见群友在整这个了……
 老哥们，开荒选哪个难度</blockquote>
 默认 0 难度就好了，战斗就是个添头，主要玩的是地图探索。
 
+
+*****
+
+####  红魔馆的糖  
+##### 327#       发表于 2025-3-8 22:07
+
+隐藏的东西太多了，没攻略玩的有点焦虑<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+

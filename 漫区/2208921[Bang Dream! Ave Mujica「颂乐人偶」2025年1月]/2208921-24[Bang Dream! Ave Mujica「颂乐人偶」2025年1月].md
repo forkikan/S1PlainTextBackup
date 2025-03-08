@@ -9327,3 +9327,57 @@ b版这直球一点都不含蓄不说，还丢了这个三连排比的情感递�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">港真🐔团5人病到需要进群青学院的最多仨，🍅和🦄的颠力还是不如各路前辈
 
+
+*****
+
+####  是谁的书画  
+##### 34882#       发表于 2025-3-8 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609904&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-3-8 22:02</a>
+
+有初华摘面具我都觉得是节目不好意思塞进去的，初海喵在鸡里哪有什么特别好的场景呢 ...</blockquote>
+喵梦这一集揉睦那一幕还真是挺不错的。很有感觉
+
+*****
+
+####  YF29  
+##### 34883#       发表于 2025-3-8 22:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以这个mujica2.0是建来干嘛的，只是编剧用来盖住五个神人的锁妖塔吗？
+
+该大小姐过家家的还是过家家，甚至过家家的更狠了，去livehouse炸鱼，演出到舞台设计全面敷衍，甚至直接让成员假弹。
+
+柿本广大拷打十集的意义，是不是就是为了证明mujica这个团烂完了，1.0打烂之后，建出来的mujica2.0更烂，五个神人组团就是要一烂到底吗？
+
+那很好了，也是和纸片人较上劲了。
+
+*****
+
+####  adretyu67.  
+##### 34884#       发表于 2025-3-8 22:11
+
+按照旁白的意思。
+
+1话结尾大猫摘面具以后，就是5个人偶（坏掉）了。
+
+5个人偶一通闹腾把鸡团1.0闹炸了。
+
+第10话5个人偶一顿合计又把鸡团2.0组起来了
+
+现在就是5个坏掉的人偶组成了鸡团2.0
+
+
+*****
+
+####  cxj649  
+##### 34885#       发表于 2025-3-8 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609938&amp;ptid=2208921" target="_blank">YF29 发表于 2025-3-8 22:09</a>
+
+所以这个mujica2.0是建来干嘛的，只是编剧用来盖住五个神人的锁妖塔吗？
+
+该大小姐过家家的还是过家家，甚至 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">舅舅都说了，大小姐玩家家闹麻了
+
+尤其进手游和邦邦大集合动画会超尴尬233
+

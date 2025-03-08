@@ -10157,3 +10157,19 @@ image.png
 今天媒体录的2段舞台访谈相关</blockquote>
 土田弟那句敢达是这么说的究竟是在玩梗还是暗搓搓的剧透啊<img src="https://static.saraba1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 8213#       发表于 2025-3-8 22:08
+
+鹤卷和哉：个人而言，也不是一直都想当监督。非常想担任副监督，在年轻且有才华的监督手下工作。
+
+<img src="https://img.saraba1st.com/forum/202503/08/220803nfmmzt3hzusu8zpd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (621.44 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-8 22:08 上传
+
