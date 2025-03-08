@@ -8994,3 +8994,69 @@ B站看了几个剪辑，初祥的定位就是，没有任何双向感情的CP�
 
 2. 如果睦莫不是一人： 那莫有沒有殺人 跟祥子要對睦道歉有什麼關係
 
+
+*****
+
+####  江口夕  
+##### 34849#       发表于 2025-3-8 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609513&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-8 21:02</a>
+本质上谁才是虾仁犯啊，谁把睦搞成这个样子的。
+
+第七集还觉得是自己害了睦，第十集吉他睦掉下去她一定心 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">退一万步哪怕大祥想让吉他睦死，这事责任也轮不到大祥
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  ape-apple  
+##### 34850#       发表于 2025-3-8 21:07
+
+今晚有Nico生放吧，看看这集日本人好评率怎么样<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 34851#       发表于 2025-3-8 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609530&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-8 21:04</a>
+這就是邏輯問題了
+
+1. 如果睦莫算一人：那莫就沒殺人， 祥子要道歉</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你真是搞笑，说的好像大祥跟吉他睦抢吉他一样。大祥对睦已经道歉过了你第7话没看还是怎
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  adretyu67.  
+##### 34852#       发表于 2025-3-8 21:08
+
+不可能比第7话低。第7话那神奇的live我根本不想提。
+
+*****
+
+####  Lyzers  
+##### 34853#       发表于 2025-3-8 21:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">怎么这时候还在分锅我敲嘞，而且还是为已经全员人机念说明书的第十集分锅
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">这时候就应该有人转些“主创很有想法，把所有人缺点放大来让观众也成为疯狂的一部分”balabala的锐评来缓和大家的矛盾辣
+
+*****
+
+####  烂片雷达  
+##### 34854#       发表于 2025-3-8 21:12
+
+除了第七集本来就都还好
+只不过剧情都合了点被你们说的像绝世烂片一样，动画哪有不都合的，我看完全在接受范围之内<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  南宮凝香  
+##### 34855#       发表于 2025-3-8 21:14
+
+你只不过是失去了一条生命，祥子呢，她向你道歉了
+

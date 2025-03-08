@@ -10127,3 +10127,22 @@ image.png
 
 其中一个的翻译
 
+
+*****
+
+####  岸浪白野  
+##### 8211#       发表于 2025-3-8 21:07
+
+ 本帖最后由 岸浪白野 于 2025-3-8 21:09 编辑 
+
+又是官方的repo
+|[3月8日(土)『機動戦士Gundam GQuuuuuuX -Beginning-』大ヒット御礼舞台挨拶第2弾オフィシャルレポート | NEWS | 機動戦士Gundam GQuuuuuuX(ジークアクス) 公式サイト](https://www.gundam.info/feature/gquuuuuux/news/video-music/01_16835/)|
+
+<img src="https://img.saraba1st.com/forum/202503/08/210655herbapmqzssuagah.png" referrerpolicy="no-referrer">
+
+<strong>Q30(U7S3N1[DUYTN2HRNLCO.png</strong> (941 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-8 21:06 上传
+
