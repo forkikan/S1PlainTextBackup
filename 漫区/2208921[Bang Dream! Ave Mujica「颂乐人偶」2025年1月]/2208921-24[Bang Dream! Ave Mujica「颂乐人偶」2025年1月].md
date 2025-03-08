@@ -9869,3 +9869,82 @@ wsd能不能把幕后现场放出来，我单纯就想看staff在怎样的精神
 
 保护家人，解决烂事，都兜底完了再来说自己的事，鉴啊
 
+
+*****
+
+####  影伴光生  
+##### 34931#       发表于 2025-3-8 23:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别在意Ring打复活赛的合理性了
+在🐘老师不想要组队的时候就是现实要素，在🐘老师想要组队的时候就是奇幻要素
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  DeltaStriker  
+##### 34932#       发表于 2025-3-8 23:17
+
+好感度比0多点当然是比负数的好啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 34933#       发表于 2025-3-8 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67610347&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-3-8 23:13</a>
+
+所以说大祥对狗团（含爱音）的好感度现时间比鸡团的4人高很多233</blockquote>
+狗团是过去的ccc重组的
+
+鸡团是现在大祥老师的东西。
+
+大祥老师在鸡狗目前合计23话的故事里大部分时候都选过去而不珍惜现在，也是个神人。
+
+
+*****
+
+####  aptx8285144  
+##### 34934#       发表于 2025-3-8 23:20
+
+不对，如果真得下面斗财阀和母鸡卡有关，那老登允许大象组母鸡卡就有一些搞笑了，我看还不如认定老登你有第二个可以光明正大的继承人吗来拿捏更为合理<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 34935#       发表于 2025-3-8 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67610377&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-8 23:18</a>
+
+狗团是过去的ccc重组的
+
+鸡团是现在大祥老师的东西。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">现在这4神人，大祥都吓尿好么
+
+2发小现在都很陌生
+
+*****
+
+####  adretyu67.  
+##### 34936#       发表于 2025-3-8 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67610384&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-8 23:20</a>
+
+不对，如果真得下面斗财阀和母鸡卡有关，那老登允许大象组母鸡卡就有一些搞笑了，我看还不如认定老登你有第 ...</blockquote>
+艺人身份参与livehouse演出和鸡团ip这种现实因素很重的东西应该会直接略过了。
+
+最终落到斗老登上，甚至老登最后一转苦劳役比较现实。
+
+*****
+
+####  南宮凝香  
+##### 34937#       发表于 2025-3-8 23:25
+
+讓女兒跟孫女去玩樂隊是一回事
+
+放任女兒超詩孫女又是另一回事
+
+說不定老登找了幾個老朋友一起去捧場
+
+不料一進去就聽到豐川初音香草豐川祥子
+

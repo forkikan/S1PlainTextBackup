@@ -3713,3 +3713,15 @@ MARK,看见群友在整这个了……
 
 隐藏的东西太多了，没攻略玩的有点焦虑<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ATRO  
+##### 328#       发表于 2025-3-8 23:20
+
+ 本帖最后由 ATRO 于 2025-3-8 23:23 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+而且每天玩一点儿，过了一周拿完各种钥匙，回头想补老图发现已经忘了哥布林森林等前面地图没走完的分支都在哪了
+
