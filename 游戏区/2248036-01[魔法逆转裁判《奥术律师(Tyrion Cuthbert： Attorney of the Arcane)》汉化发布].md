@@ -454,3 +454,16 @@ SteamDeck需要安装运行库吗？</blockquote>
 
 通关了，这游戏最大的毛病是人物名字太长了，看得头晕
 
+
+*****
+
+####  r1r2r3  
+##### 43#       发表于 2025-3-9 01:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67602001&amp;ptid=2248036" target="_blank">fmban 发表于 2025-3-7 21:01</a>
+
+通了 整个故事可以说十分日式王道，除了感情戏不含蓄之外完全看不出是欧美编剧
+
+在众多借鉴逆转的作品里面我 ...</blockquote>
+确实。。已经涉及到多元宇宙和神魔了，设定挺夸张的
+
