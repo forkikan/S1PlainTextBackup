@@ -7494,3 +7494,87 @@ Imprisoned XII的MV对比栞的MV，能看出Ave Mujica这乐队的设定有多�
 
 大灯老师在两部动画里面就是纯纯的现人神，能拯救所有人的选手，总不能真的让大灯老师开音趴包饺子吧。好歹这片子叫mujica呢
 
+
+*****
+
+####  aptx8285144  
+##### 34721#       发表于 2025-3-8 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67607499&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-3-8 16:40</a>
+
+所以说问这图的2位年龄</blockquote>
+素世这包的风格，愈发像二十几岁起步的人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ntrntr1  
+##### 34722#       发表于 2025-3-8 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67606423&amp;ptid=2208921" target="_blank">风道北来 发表于 2025-3-8 14:27</a>
+
+老登要是和初音妈一直保有私情那未免对三角先生太不公平了
+
+不如胆子再大一点</blockquote>
+那祥妈死的很安详了。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 34723#       发表于 2025-3-8 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67607508&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-8 16:41</a>
+
+素世女士这次真的是老年丧子了</blockquote>
+指正，是丧女
+
+*****
+
+####  adretyu67.  
+##### 34724#       发表于 2025-3-8 17:03
+
+我看设定本里提过祥爹最大的错是背叛？？？
+
+
+*****
+
+####  ntrntr1  
+##### 34725#       发表于 2025-3-8 17:04
+
+最后不包饺子
+
+祥子勉为其难的同4个神人队友同台LIVE，发出心声：小灯，这些都是我想着你写的曲子啊
+
+解散后任由舔狗初音缠着不回话，回到和纯真岛妹同居的温馨小窝，初华，我当时一时口嗨，要负担这群神人的人生，这太沉重了，只有和你的时间，我才是我自己 
+
+对于这一切，大喵表示自己只要和木兹米在一起就好了，木兹米就是最棒的，木兹米要去更广阔的舞台
+
+海铃觉得很感动，点了个赞。
+
+*****
+
+####  aptx8285144  
+##### 34726#       发表于 2025-3-8 17:05
+
+ 本帖最后由 aptx8285144 于 2025-3-8 17:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67607678&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-8 17:03</a>
+
+我看设定本里提过祥爹最大的错是背叛？？？</blockquote>
+什么背叛，只要脑子还正常就不可能背叛祥妈，是说背叛祥爷的集团发展方向而稀里糊涂搞出了168亿的债吗
+
+*****
+
+####  ape-apple  
+##### 34727#       发表于 2025-3-8 17:05
+
+你邦这服设真不行，不像个2025的作品，不过也还能和ll有些场景的打个有来有回
+
+*****
+
+####  cxj649  
+##### 34728#       发表于 2025-3-8 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67607656&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-8 17:00</a>
+
+素世这包的风格，愈发像二十几岁起步的人</blockquote>
+我也是看一次笑一次<img src="https://static.saraba1st.com/image/smiley/carton2017/472.png" referrerpolicy="no-referrer">
+
