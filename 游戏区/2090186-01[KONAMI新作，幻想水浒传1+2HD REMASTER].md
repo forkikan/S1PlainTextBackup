@@ -3235,3 +3235,14 @@ Switch版1代洛克兰村的赌钱SL作弊大法是不是给修了？测试了�
 修了，硬着头皮sl到了两万启动资金</blockquote>
 首发特典能领到57300块钱作为启动资金
 
+
+*****
+
+####  忧蓝  
+##### 348#       发表于 2025-3-8 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67607376&amp;ptid=2090186" target="_blank">西多士 发表于 2025-3-8 16:26</a>
+首发特典能领到57300块钱作为启动资金</blockquote>
+我不知是不是一开始太快点错了，没领到这个特典（好像还有封印球…）
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

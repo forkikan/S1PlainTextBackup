@@ -1457,3 +1457,11 @@ fantia好像绑不上国内的JCB，不过已经断了 再续也没意义了</bl
 
 之前信用卡事件大点的社团起码损失了3成销量，最近又把非日本IP有lo相关、学生相关的关键词的作品给隐藏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  圈量子  
+##### 154#       发表于 2025-3-8 19:03
+
+鬼佬和谐你的时候可不是tag不标萝莉和雌小鬼就行的问题，信不信迟早把体操服死库水这些“看起来是在暗示校园环境和年龄”的东西也给海外干掉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
