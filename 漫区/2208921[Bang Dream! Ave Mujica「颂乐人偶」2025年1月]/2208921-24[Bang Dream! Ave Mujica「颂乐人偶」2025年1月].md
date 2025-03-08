@@ -6175,3 +6175,16 @@ EP11看预告基本石锤是初音的第一人称回忆录，对称mygo的EP3
 
 2025-3-8 11:56 上传
 
+
+*****
+
+####  ads147147  
+##### 34610#       发表于 2025-3-8 11:58
+
+<img src="https://p.sda1.dev/22/af2356a7685a710d1158f317b27851d3/image.jpg" referrerpolicy="no-referrer">
+让我看看你的真面目！
+ave母鸡卡→pjsk
+我就知道
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
