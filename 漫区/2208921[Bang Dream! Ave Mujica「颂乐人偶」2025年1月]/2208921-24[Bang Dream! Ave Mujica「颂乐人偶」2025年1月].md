@@ -9187,3 +9187,61 @@ https://tieba.baidu.com/p/9554633132?p ...</blockquote>
 我觉得吉他睦肯定还会”回来“（不管是融合还是啥的）的吧，否则其他几个人现在的反应太平静而搞笑了，蚀本 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">肯定会“回来”，不然手游睦剧情都不好做了233
 
+
+*****
+
+####  6030sylar  
+##### 34868#       发表于 2025-3-8 21:37
+
+突然觉得把木箱性转不就不高兴和没头脑，互相给对方添麻烦
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  aptx8285144  
+##### 34869#       发表于 2025-3-8 21:38
+
+猫猫之前和莫女士玩得不错，发现熟人变成过失杀人犯，也没任何表示<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 34870#       发表于 2025-3-8 21:38
+
+没头脑和不高兴不是爱音和爽姐吗
+
+*****
+
+####  木板春香  
+##### 34871#       发表于 2025-3-8 21:38
+
+<img src="https://img.saraba1st.com/forum/202503/08/213827xwooaqc2snnqjoqq.jpg" referrerpolicy="no-referrer">
+
+<strong>2CLM2]}I3C@`J)L`L51%8L9_tmb.jpg</strong> (318.19 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-8 21:38 上传
+
+遇到危险先找猫！
+
+
+*****
+
+####  一心而用  
+##### 34872#       发表于 2025-3-8 21:42
+
+更黄了也更隐晦了。
+
+【初华古风力作《诗超祥》婉约登场！「Imprisoned XII」Mujica#10 插曲-哔哩哔哩】 [https://b23.tv/zuZcDTn](https://b23.tv/zuZcDTn)
+
+*****
+
+####  非建政专用号  
+##### 34873#       发表于 2025-3-8 21:43
+
+要天师只认识墨指导，说不定眼里是墨指导驱除了身体里的恶魔，比另外几个先认识睦头人的占优势
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
