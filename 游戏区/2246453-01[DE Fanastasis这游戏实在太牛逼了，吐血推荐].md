@@ -3602,3 +3602,32 @@ MARK,看见群友在整这个了……
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  五块  
+##### 318#       发表于 2025-3-8 11:33
+
+ 本帖最后由 五块 于 2025-3-8 11:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67604859&amp;ptid=2246453" target="_blank">jy000129 发表于 2025-3-8 11:22</a>
+
+黑魔法可以减防，吃减防的BOSS丢个减防输出就很高了
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+面板最高的短刀忍者匕首攻击才94，减防+酸液+攻击+cri一套猴戏下来，七连刀不如双刀哥左手梅尔瓦右手太刀砍一刀<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+火法是我目前输出最高的，配合也只要电法上个魔力，自己开个日月，炼金扔个睡眠。
+
+感觉是不是我开了难度一的原因，除了主角硬堆防御，其他人被最初级的小怪打两下都残废了，睡眠被打不会醒真是天才设定。
+
+*****
+
+####  jy000129  
+##### 319#       发表于 2025-3-8 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67604932&amp;ptid=2246453" target="_blank">五块 发表于 2025-3-8 11:33</a>
+面板最高的短刀忍者匕首攻击才94，减防+酸液+攻击+cri一套猴戏下来，七连刀不如双刀哥左手梅尔瓦右手太刀 ...</blockquote>
+这确实没办法，匕首妹猴戏半天加上浪费的回合的话输出还是不如双刀的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
