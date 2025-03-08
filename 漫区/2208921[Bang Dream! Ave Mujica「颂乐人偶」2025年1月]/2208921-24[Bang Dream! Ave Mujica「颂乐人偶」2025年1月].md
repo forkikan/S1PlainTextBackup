@@ -10206,3 +10206,32 @@ Ave Mujica 前10话 niconico 好评率
 
 毕竟怎么直球大家也是头一次见，确实是带领全网进行大脑升级了
 
+
+*****
+
+####  Cavaliar  
+##### 34960#       发表于 2025-3-9 00:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67610660&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-9 00:03</a>
+
+一个很阴暗的想法。
+
+独角兽最后时刻跑出来负责单话剧本是不是准备一转包饺子顺带甩锅 ...</blockquote>
+最后一话纯live回出来收割吗
+
+要是能硬刚挑战初华回就好了
+
+
+*****
+
+####  zhoujin8584  
+##### 34961#       发表于 2025-3-9 00:32
+
+<blockquote>adretyu67. 发表于 2025-3-8 23:13
+老登的问题是为什么非等到live完才跑出来劝退。
+
+可能这就是工具人黑手吧。 ...</blockquote>
+这不是很明显吗？大小姐过家家点出来了，喵梦都入职了能不知道事务所姓丰川吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+只要祥子愿意乐队一句话的事，但是这个超诗祥真不行
+

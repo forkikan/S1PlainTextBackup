@@ -41,3 +41,11 @@ pc优化又爆炸了吗<img src="https://static.saraba1st.com/image/smiley/face2
 
 看來優化不如怪獵荒野
 
+
+*****
+
+####  寂长无星夜  
+##### 3406#       发表于 2025-3-9 00:32
+
+等11号品品，开帧生成才64也太夸张了<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
