@@ -7006,3 +7006,46 @@ MYGO时期黄瓜睦早已不在<img src="https://static.saraba1st.com/image/smil
 
 [https://x.com/MILFCOOKIESIMP/status/1898037915537883277/photo/1](https://x.com/MILFCOOKIESIMP/status/1898037915537883277/photo/1)
 
+
+*****
+
+####  航母掉头  
+##### 34685#       发表于 2025-3-8 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67601001&amp;ptid=2208921" target="_blank">zhwpjy 发表于 2025-3-7 18:58</a>
+
+老登是不是每年来找 初音妈妈啊</blockquote>
+老登自己实打实定时去艹音妈可以，牢音只是在歌词里幻想下艹侄女就冷脸<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 34686#       发表于 2025-3-8 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67606315&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-3-8 14:11</a>
+
+鸡团炸了5个人全员自闭，狗团炸了灯可以跑去ring尬念诗朗诵，精神力强度怎么比啊。 ...</blockquote>
+话说初音是不是病娇入脑了，她应该不知道灯写纸条问幸福吧，这话突然冒出一句这样下去大祥要被灯抢走了，这逻辑哪来的，前面还在围观睦祥含情脉脉，这逻辑大反转是怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  adretyu67.  
+##### 34687#       发表于 2025-3-8 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67606395&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-8 14:21</a>
+
+话说初音是不是病娇入脑了，她应该不知道灯写纸条问幸福吧，这话突然冒出一句这样下去大祥要被灯抢走了， ...</blockquote>
+第9话脑内飞睦之前看了灯的歌词。
+
+大祥给灯的词作曲，自己给大祥的曲作词，主从关系一目了然<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 34688#       发表于 2025-3-8 14:25
+
+<blockquote>aptx8285144 发表于 2025-3-8 14:21
+话说初音是不是病娇入脑了，她应该不知道灯写纸条问幸福吧，这话突然冒出一句这样下去大祥要被灯抢走了， ...</blockquote>
+c团两次live她都看过，灯的笔记本她也看过，其他事情在咖啡馆那里能听到爱音补充一部分，猜得到很正常。
+

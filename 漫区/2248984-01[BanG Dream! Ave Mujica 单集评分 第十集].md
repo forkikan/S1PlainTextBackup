@@ -2773,3 +2773,23 @@ live的演出是什么玩意？歌还行。-2
 我曾经最喜欢的动画就是独角兽写的。最后两集突然爆出来说女二一直在装嫩，实际上是女主的阿姨，她从小就想 ...</blockquote>
 这不就是eva？
 
+
+*****
+
+####  ads147147  
+##### 314#       发表于 2025-3-8 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67605874&amp;ptid=2248984" target="_blank">mandown 发表于 2025-3-8 13:23</a>
+这不就是eva？</blockquote>
+说的应该是轻拍。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  free  
+##### 315#       发表于 2025-3-8 14:23
+
+能不能别搞高中生斗财阀和家庭伦理剧了，没活了去咬打火机行不行
+

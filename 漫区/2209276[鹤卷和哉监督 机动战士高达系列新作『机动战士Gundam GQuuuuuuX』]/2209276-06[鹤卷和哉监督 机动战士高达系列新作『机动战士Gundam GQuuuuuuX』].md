@@ -9927,3 +9927,40 @@ image.png
 
 但感觉应该不是变鬼，应该不是死去这种
 
+
+*****
+
+####  RE㐅ia  
+##### 8201#       发表于 2025-3-8 14:16
+
+画面配上歌词才意识到这段可能是说牢修的
+
+<img src="https://img.saraba1st.com/forum/202503/08/141605zn95wbqb7l2nq6s9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>985F0565-5B03-4483-A77A-5B0F8A897AA5.jpeg</strong> (357.49 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-8 14:16 上传
+
+<img src="https://img.saraba1st.com/forum/202503/08/141605ur6jrj22zfrr9pg2.png" referrerpolicy="no-referrer">
+
+<strong>EF4A26D7-F485-4C78-B783-21C6220EFB8F.png</strong> (271.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-8 14:16 上传
+
+*****
+
+####  纪寞  
+##### 8202#       发表于 2025-3-8 14:18
+
+ 本帖最后由 纪寞 于 2025-3-8 14:21 编辑 
+
+阿尔法和奥米加在故事最后应该是要消失或者封存才对，不然还留着那就是gqx世界线后面全都是神棍大战了
+
+虽然这世界线后面还是能自研出精神感应框架，还是还会再有一段神棍大战的时间了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过大文豪说UC2之后独角兽就不会是问题了，那是UC2要讲封住通过精神感应框架沟通上层世界的大门吗
+
