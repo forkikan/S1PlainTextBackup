@@ -97,3 +97,23 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  FLZB  
+##### 5841#       发表于 2025-3-8 17:15
+
+东线城市也是献祭亲马才做得出来的图了，四面八方不间断刷怪，能从地图一头跑到另一头边跑边拉边杀不带停，配上当前这个模板套模板的臭啥比版本更是终极享受，无论带反重配装、清杂配装还是全能配装都能让你难受
+
+
+*****
+
+####  jy000129  
+##### 5842#       发表于 2025-3-8 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67607766&amp;ptid=2170852" target="_blank">FLZB 发表于 2025-3-8 17:15</a>
+东线城市也是献祭亲马才做得出来的图了，四面八方不间断刷怪，能从地图一头跑到另一头边跑边拉边杀不带停， ...</blockquote>
+放心，等西线城市图出来，ATAT加喜锯人更给你无限的惊喜口牙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

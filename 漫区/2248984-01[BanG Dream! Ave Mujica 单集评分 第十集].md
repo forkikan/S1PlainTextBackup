@@ -2833,3 +2833,15 @@ live的演出是什么玩意？歌还行。-2
 求笑点解析，飞轮海不是四个人吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">有 男 同 喜 欢 队 友
 
+
+*****
+
+####  usodakedo  
+##### 320#       发表于 2025-3-8 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67607325&amp;ptid=2248984" target="_blank">Schwftyyyyy 发表于 2025-3-8 16:20</a>
+
+求笑点解析，飞轮海不是四个人吗</blockquote>[https://www.bilibili.com/video/BV1Cb411c7v9/?share_source=copy_web&amp;vd_source=ec58507b88db49723db41c045a2c3b1d](https://www.bilibili.com/video/BV1ph4y1u7cL/?share_source=copy_web)
+
+看下这个视频，并非玩梗，炎亚纶是真南通，汪东城在外演出时据说也都是把门反锁，因为是乐队里唯一家境贫寒的打工人，所以不得不忍
+
