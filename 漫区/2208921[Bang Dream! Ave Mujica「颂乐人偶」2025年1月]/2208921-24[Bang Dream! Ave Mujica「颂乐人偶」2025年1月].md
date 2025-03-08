@@ -7774,3 +7774,35 @@ Imprisoned XII的MV对比栞的MV，能看出Ave Mujica这乐队的设定有多�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  油画布  
+##### 34744#       发表于 2025-3-8 19:06
+
+还实验动画 ，怀疑柿本都没有独立写过一个故事，像某些只写过高考作文空谈点子滔滔不绝的自信大学生
+
+*****
+
+####  一心而用  
+##### 34745#       发表于 2025-3-8 19:07
+
+<img src="https://p.sda1.dev/22/03518faa5b05f00437769c6c90180d21/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/762c0566ed26dc085a5722963d8ee1e0/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  ape-apple  
+##### 34746#       发表于 2025-3-8 19:07
+
+mygo怎么样都无所谓了，光速退场意思就是跑了算了，市一老哥也不想再动脑思索mygo要怎么说话。至于鸡团怎么办，没人知道，就这样吧
+
+*****
+
+####  刑部姬真可爱  
+##### 34747#       发表于 2025-3-8 19:09
+
+迫害粉毛是邦邦的底层逻辑，不爽不要看（<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">）
+
+说白了还是编剧监督制作得垃圾，迫害绯玛丽和彩彩时，其他两队队友的表现就和mygo这群人的表现不一样，大家打个哈哈就过去了，mujica里只给负面印象，没给一点正面塑造是真的神经
+
