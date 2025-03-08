@@ -86,3 +86,14 @@
 首先排除真理执行者和自由烈焰，毒蛇冰针可以蹭队友的，自由公仆的核弹手枪解锁了更多配装选择和全新的打 ...</blockquote>
 看到个邪道玩法是补给背包+地狱火背包+次抛+任意，背包轮流叫，全程爆射，怪一多或者巢不好拆直接进去自爆人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jy000129  
+##### 5840#       发表于 2025-3-8 10:21
+
+地狱火背包泛用性一般，核弹手枪重量级，西线切实解决了冻肉拆干扰塔的问题
+南线以后光能大部队出场就会缺一个效率破盾后拆中甲的东西，不过有这种武器另外两条线就更简单了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
