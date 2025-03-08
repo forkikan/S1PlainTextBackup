@@ -10262,3 +10262,18 @@ image.png
 
 鹤卷这字里行间只看得出幽怨（）
 
+
+*****
+
+####  wasssf  
+##### 8222#       发表于 2025-3-9 01:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67610818&amp;ptid=2209276" target="_blank">古怪山庄士大夫 发表于 2025-3-9 00:40</a>
+
+痞子下一部都不知道是何时何地了，鹤卷还是单飞吧，而且也是老害了，还能给谁当副监督。
+
+其他有趣的:
+
+诚哥 ...</blockquote>
+00好像是日升不给做啊
+
