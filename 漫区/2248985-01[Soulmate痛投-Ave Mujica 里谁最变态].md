@@ -888,3 +888,14 @@ mygo里看春日影哭着跑出去的时候给初华打的电话吧，我感觉�
 —— 来自 鹅球 v3.3.96-alpha</blockquote>
 有一说一，这里应该是早就知道了。结合她对初华的态度和最后的特写可以很明显的看出来
 
+
+*****
+
+####  liekong  
+##### 87#       发表于 2025-3-9 04:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67599936&amp;ptid=2248985" target="_blank">aptx8285144 发表于 2025-3-7 17:05</a>
+
+泥潭之前还有人说母鸡卡的烂不过是完结多年后被遗忘路边的一条🐶，现在看这么变态的歌词面前，谁敢说是烂 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">Y1S1，因为变态被人铭记，跟因为烂被人铭记可不是一回事
+
