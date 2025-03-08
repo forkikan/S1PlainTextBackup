@@ -9859,3 +9859,36 @@ B站上有人贴了了军团战的完整版（应该是他自己拍的）
 夏利亚酒吧看黑拳前接了个电话，感觉博美队退伍吉翁老兵概率up</blockquote>
 大姐头应该是，其他几个太年轻了而且也不没那种气质
 
+
+*****
+
+####  纪寞  
+##### 8197#       发表于 2025-3-8 14:02
+
+从现在有的歌来看结局可能会是这种形式吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202503/08/140057tkk54ok47nlrjuro.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.6 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-8 14:00 上传
+
+<img src="https://img.saraba1st.com/forum/202503/08/140159wirifxgsfyzzrs3i.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.87 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-8 14:01 上传
+
+image.png
+(1.87 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-8 14:01 上传
+
+<img src="https://img.saraba1st.com/forum/202503/08/140152elu294lvty9tr4re.png" referrerpolicy="no-referrer">
+

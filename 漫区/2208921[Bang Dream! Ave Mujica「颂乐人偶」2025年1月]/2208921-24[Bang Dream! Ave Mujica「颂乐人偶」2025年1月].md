@@ -6873,3 +6873,60 @@ MYGO时期黄瓜睦早已不在<img src="https://static.saraba1st.com/image/smil
 
 现在外海风云变幻，不妨给睦天尊的演技点个赞，睦某一定会带各位道友星海飞驰！
 
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 34672#       发表于 2025-3-8 13:58
+
+还在祥子魅魔，她四条舔狗里soyo已经出脑了，睦和初华是从小培养的感情，灯也不是满脑子想着祥子过日子的。然后最大的魅魔是灯啊，能魅惑祥子的真魅魔。
+
+*****
+
+####  非建政专用号  
+##### 34673#       发表于 2025-3-8 13:59
+
+要天师的阴阳眼就开了一次，也不知道柿畜到底想表达什么
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  my707776310  
+##### 34674#       发表于 2025-3-8 14:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">mv小祥那个超车真是看一次笑一次,你邦这群staff怎么这么有活儿啊
+
+
+*****
+
+####  钦念以忱  
+##### 34675#       发表于 2025-3-8 14:02
+
+ 本帖最后由 钦念以忱 于 2025-3-8 14:03 编辑 
+
+所以8-10是睦头玩脱了吧，2-4这三集，在喵梦摘面具之后，祥子就不想玩avemujica1.0了，孝了爹一年也快孝不下去了，所以睦头变出一个mortis来拷打祥子，逼迫祥子回去住大宅做迈巴赫，这其实也符合祥子说不出口的内心需求
+
+5-7这三集，祥子明明想和C团和好，家里也收集满了一整本灯的贴纸，但对外还是要哈气，所以睦头继续用mortis拷打祥子，拉拉扯扯着旧C团一起重聚合奏了，7话那里的live，祥子多开心啊，可能是avemujica整部戏里祥子最开心唯一开心的一幕了。
+
+但8-10的时候，祥子想玩音乐了，睦头两个人格，一个C团一个A团，但问题来了，祥子一直是喜欢小睦的人设，也不承认mortis的，（没法承认啊，mortis帮祥子做了那么多祥子不愿意做的事），虽然操作是拉满了，A团也组起来了，但睦头这两个人格都不合适啊，这下玩脱了，只能全死了。
+
+*****
+
+####  半年  
+##### 34676#       发表于 2025-3-8 14:05
+
+<img src="https://p.sda1.dev/22/ab158142a5ab5d2a87a8da56d4c3d5cb/GlY5iiWXQAAlZhU.png" referrerpolicy="no-referrer">
+
+[https://x.com/nukesura/status/1897771673111208121/photo/1](https://x.com/nukesura/status/1897771673111208121/photo/1)
+
+*****
+
+####  aptx8285144  
+##### 34677#       发表于 2025-3-8 14:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67606193&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-3-8 13:58</a>
+
+还在祥子魅魔，她四条舔狗里soyo已经出脑了，睦和初华是从小培养的感情，灯也不是满脑子想着祥子过日子的。 ...</blockquote>
+灯也亏不在鸡团，否则也要变得更加舔狗，而鸡团甚至可以让人变成鬼<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
