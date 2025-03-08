@@ -10089,3 +10089,41 @@ image.png
 
 哈哈哈哈，我也好喜欢小森和艾克撒贝的嘀嘀咕咕呀，“但我是第一次上战场诶！” “你是不是忘了战争已经结束啦！”
 
+
+*****
+
+####  岸浪白野  
+##### 8210#       发表于 2025-3-8 19:39
+
+今天媒体录的2段舞台访谈相关
+
+<img src="https://img.saraba1st.com/forum/202503/08/193624qivwyw2it7vzu2uf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (241.49 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-8 19:36 上传
+
+<img src="https://img.saraba1st.com/forum/202503/08/193648kz8w81l2wjoc8w28.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (227.87 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-8 19:36 上传
+
+【劇場先行版『機動戦士Gundam GQuuuuuuX -Beginning-』大ヒット御礼舞台挨拶 第2弾】 [https://www.bilibili.com/video/BV1Pp99YKEUM/](https://www.bilibili.com/video/BV1Pp99YKEUM/)
+
+<img src="https://img.saraba1st.com/forum/202503/08/193830adxujhjsul0ualyq.png" referrerpolicy="no-referrer">
+
+<strong>BO@T{P0XQ3UC_W)41T~G}$W.png</strong> (155.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-8 19:38 上传
+
+【【中日字幕】夏亚新声优新祐树 谈喜欢的场景&amp;现场演绎观众票选的名台词【高达GQuuuuuuX】】 [https://www.bilibili.com/video/BV1QpRpYZEAe/](https://www.bilibili.com/video/BV1QpRpYZEAe/)
+
+其中一个的翻译
+
