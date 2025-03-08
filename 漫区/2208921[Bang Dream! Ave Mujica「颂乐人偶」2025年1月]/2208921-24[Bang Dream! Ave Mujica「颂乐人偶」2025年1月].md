@@ -6775,3 +6775,63 @@ MYGO时期黄瓜睦早已不在<img src="https://static.saraba1st.com/image/smil
 
 [https://x.com/arukuBAKEGAKU/status/1897881620033765536](https://x.com/arukuBAKEGAKU/status/1897881620033765536)
 
+
+*****
+
+####  cxj649  
+##### 34663#       发表于 2025-3-8 13:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我有个暴论7,8,9,10的睦头人（大莫）和观众的道德绑架真多
+
+10后半大祥变黑祥反而正常顺眼许多
+
+*****
+
+####  钦念以忱  
+##### 34664#       发表于 2025-3-8 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67605842&amp;ptid=2208921" target="_blank">风真人 发表于 2025-3-8 13:19</a>
+
+解决了吗
+
+对比第一集 喵梦从拆队搏热度到现在发现单飞失利只能回mijica继续抱团
+
+海玲从打工人到a团才是我的 ...</blockquote>
+小祥就是古代举孝廉父别居的世家大族，已经演了一年，全了孝道，够了，该回家了，也确实因为avemujica1.0的事变，看起来是因为外力迫不得已才回的家
+
+但祥子毕竟受了很多世家教育，不能真的这么自私自利，所以我讨厌我自己，音乐也不玩了
+
+现在则是为了朋友之义，“被迫”重新去玩自己最爱的中二金属，祥子的生活状况进一步变好
+
+*****
+
+####  钦念以忱  
+##### 34665#       发表于 2025-3-8 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67605838&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-3-8 13:19</a>
+
+而且鸡团大的矛盾也就那破双人格，其他矛盾很闹麻，尤其手游前辈插手几次就完事 ...</blockquote>
+这双重人格，剧中其实也没几个人当真，好像严格来说其实就祥子在当真，这真的不是祥睦两个大小姐在过家家玩么
+
+*****
+
+####  cxj649  
+##### 34666#       发表于 2025-3-8 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67606050&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-8 13:42</a>
+
+小祥就是古代举孝廉父别居的世家大族，已经演了一年，全了孝道，够了，该回家了，也确实因为avemujica1.0 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实现在看来大祥被道德绑架太多了
+
+戏外戏内都被道德绑架233
+
+*****
+
+####  cxj649  
+##### 34667#       发表于 2025-3-8 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67606063&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-8 13:45</a>
+
+这双重人格，剧中其实也没几个人当真，好像严格来说其实就祥子在当真，这真的不是祥睦两个大小姐在过家家 ...</blockquote>
+观众也当真的23
+
