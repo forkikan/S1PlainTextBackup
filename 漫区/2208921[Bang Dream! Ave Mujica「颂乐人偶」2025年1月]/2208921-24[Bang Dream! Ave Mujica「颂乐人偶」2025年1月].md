@@ -7735,3 +7735,24 @@ Imprisoned XII的MV对比栞的MV，能看出Ave Mujica这乐队的设定有多�
 我以为就我一个ccc姨姥，结果前脚还被立希表扬为了狗团努力写歌词的灯 ...</blockquote>
 还有几个姨姥对爱音比较生硬的态度<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  南宮凝香  
+##### 34740#       发表于 2025-3-8 18:29
+
+<blockquote>wangh 发表于 2025-3-8 18:11
+话说之前柿本访谈里说原案里祥子组mujica的动机是对mygo的恨，那时都狂喷柿本懂个屁的mygo。但是十集这里mu ...</blockquote>
+升米恩， 斗米仇
+
+*****
+
+####  DeltaStriker  
+##### 34741#       发表于 2025-3-8 18:29
+
+ 本帖最后由 DeltaStriker 于 2025-3-8 18:31 编辑 
+
+<img src="https://p.sda1.dev/22/6c2f30131a5543cace577b0e7d953e38/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
