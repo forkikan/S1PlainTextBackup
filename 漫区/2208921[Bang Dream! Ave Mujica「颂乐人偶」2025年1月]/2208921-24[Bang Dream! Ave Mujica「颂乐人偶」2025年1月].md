@@ -7049,3 +7049,71 @@ MYGO时期黄瓜睦早已不在<img src="https://static.saraba1st.com/image/smil
 话说初音是不是病娇入脑了，她应该不知道灯写纸条问幸福吧，这话突然冒出一句这样下去大祥要被灯抢走了， ...</blockquote>
 c团两次live她都看过，灯的笔记本她也看过，其他事情在咖啡馆那里能听到爱音补充一部分，猜得到很正常。
 
+
+*****
+
+####  一心而用  
+##### 34689#       发表于 2025-3-8 14:26
+
+借楼发一下，这段时间的追番经历与现实生活的纠葛。[https://bbs.saraba1st.com/2b/thread-2249160-1-1.html](https://bbs.saraba1st.com/2b/thread-2249160-1-1.html)
+
+*****
+
+####  风道北来  
+##### 34690#       发表于 2025-3-8 14:27
+
+老登要是和初音妈一直保有私情那未免对三角先生太不公平了
+
+不如胆子再大一点
+
+在祥子小时候和初音妈偷情的其实是中登，三角先生是中登的化名。初音妈和老登生了初音，和中登生了初华。这样祥子一次性有了小姨和姐妹的双倍女女关系。后面还可以用初华把中登吊出来拷打，这样才算是史上最狂少女乐队
+
+
+*****
+
+####  Lyzers  
+##### 34691#       发表于 2025-3-8 14:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以才说鸡团动画不仅影响鸡团本身，还会影响狗团的塑造
+
+go时期灯的定位是“虽然看上去是那个样子实际上十分固执”（soyo评），一般来讲这种关键事件后的角色评价是约等于官方实锤的人设标签的，结果鸡团这么一搞这个定位又被模糊掉了
+
+*****
+
+####  天空塔书记官  
+##### 34692#       发表于 2025-3-8 14:33
+
+ave剧本爆炸和是不是邦世界观没有任何关系，重点在于想不想好好讲故事，总想在故事外整花活，不好好讲故事，不好好立角色，再好的世界观也白搭<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  江口夕  
+##### 34693#       发表于 2025-3-8 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67606395&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-8 14:21</a>
+话说初音是不是病娇入脑了，她应该不知道灯写纸条问幸福吧，这话突然冒出一句这样下去大祥要被灯抢走了， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大祥的心，初音明白是回不来的放弃了。大祥的肉体是万万不能靠近灯的。
+
+1阶段，ccc解散，这时候初音做了什么是黑箱
+2阶段，mygo解散，把灯解放，这是万万不能的，因为放虎归山。
+3阶段，mygo重组，彻底安心了
+4阶段，mujica解散，黑箱
+5阶段，睦想组ccc，差点暴走
+6阶段，开始行动组mujica
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  航母掉头  
+##### 34694#       发表于 2025-3-8 14:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67606423&amp;ptid=2208921" target="_blank">风道北来 发表于 2025-3-8 14:27</a>
+
+老登要是和初音妈一直保有私情那未免对三角先生太不公平了
+
+不如胆子再大一点</blockquote>
+太劲了
+
