@@ -10173,3 +10173,31 @@ image.png
 
 2025-3-8 22:08 上传
 
+
+*****
+
+####  az一串字母  
+##### 8214#       发表于 2025-3-8 22:39
+
+<img src="https://img.saraba1st.com/forum/202503/08/223650uv6dbpmutbdnddnh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250308_223635_tv.danmaku.bili.jpg</strong> (246.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-8 22:36 上传
+
+虽然目前看剧情关联度确实该索顿那几个组一队，但修司和夏亚一组也挺暗示味十足
+
+*****
+
+####  赤黑的假面  
+##### 8215#       发表于 2025-3-8 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609932&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-3-8 22:08</a>
+
+鹤卷和哉：个人而言，也不是一直都想当监督。非常想担任副监督，在年轻且有才华的监督手下工作。
+
+ ...</blockquote>
+想当年轻有才华导演的副手还行
+

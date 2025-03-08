@@ -9474,3 +9474,115 @@ ave是第一部在剧情结构上完全不同的邦多利动画，mygo你可以�
 
 现在看来邦多利这套老班底显然并不适应搭一个新框架来讲好故事
 
+
+*****
+
+####  是谁的书画  
+##### 34894#       发表于 2025-3-8 22:36
+
+一个个人感想题外话，Imprisoned XII这歌太适合六字母了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+MXMK就该狠狠被囚禁<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 34895#       发表于 2025-3-8 22:36
+
+但是2话收掉一个人剧情的速度和老邦TV速度差不多。
+
+至于为什么前面要双重人格反复折腾那么久只能说是没活了硬拖。
+
+*****
+
+####  K·os  
+##### 34896#       发表于 2025-3-8 22:36
+
+tgw最后也只是在海报上出现，也就是其实，虽然有无限的线索指向ave背后是tgw大手，但剧中对这点没有直白的体现
+
+至少目前来看是这样的，后面要是有祥子逼宫老登那两说了
+
+*****
+
+####  凉良  
+##### 34897#       发表于 2025-3-8 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609938&amp;ptid=2208921" target="_blank">YF29 发表于 2025-3-8 22:09</a>
+
+所以这个mujica2.0是建来干嘛的，只是编剧用来盖住五个神人的锁妖塔吗？
+
+该大小姐过家家的还是过家家，甚至 ...</blockquote>
+就是五个负面角色俘虏在mujica这个牢笼中一起痛苦沉沦。  成长 正面高光 全都不需要
+
+*****
+
+####  aptx8285144  
+##### 34898#       发表于 2025-3-8 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67610063&amp;ptid=2208921" target="_blank">K·os 发表于 2025-3-8 22:32</a>
+
+对待睦的反应这点上，说实话，不管睦到底是怎么个双重人格法，真信双重人格这套的角色估计只有祥子，祥子和 ...</blockquote>
+这个怎么说呢，完全是随蚀本需要了，<strong>毕竟素世和莫女士三天三夜，猫猫和她也玩过，现在这人变成过失杀人犯，蚀本独角兽这些神人也就只好淡化双重人格和人命关系的严肃性了</strong>，只是莫女士说吉他睦摔下楼死了云云，再结合前面她真摔过现实楼，就会有一种爆笑的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  K·os  
+##### 34899#       发表于 2025-3-8 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67610089&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-8 22:36</a>
+
+但是2话收掉一个人剧情的速度和老邦TV速度差不多。
+
+至于为什么前面要双重人格反复折腾那么久只能说是没活 ...</blockquote>
+这本质还是ccc和解剧情放置位置的不合理导致的，让ccc剧情发生在睦莫问题的中间，让不稳定的双重人格状态硬是多存在了两集
+
+*****
+
+####  天空塔书记官  
+##### 34900#       发表于 2025-3-8 22:39
+
+<img src="https://p.sda1.dev/22/0a5109d618c89c1528907aba9ed13bab/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  adretyu67.  
+##### 34901#       发表于 2025-3-8 22:40
+
+鸡团大猫和初华都是win-wing事务所的签约艺人，win-wing又高概率是丰川集团的产业。
+
+只能说鸡团2.0在livehouse演出可能是盈亏自负不找家里加钱。
+
+至于怎么说服事务所出人帮忙完全不提，至少第10话的live准备里没提。
+
+
+*****
+
+####  K·os  
+##### 34902#       发表于 2025-3-8 22:42
+
+剧情里有很多大人世界的问题基本只能用“我身为丰川祥子的权力是无限的”来解释
+
+祥子的大小姐过家家其实是无自觉的
+
+某种意义上kkr差不多也是这种感觉，原来邦多利富人是这么回事吗
+
+*****
+
+####  木板春香  
+##### 34903#       发表于 2025-3-8 22:44
+
+  太恶毒了，囚禁在直播间多年了，还被百合豚拉去配种，磕中日六字母的比推荐别人从母鸡卡开始入坑邦邦还恶毒吧
+
+*****
+
+####  南宮凝香  
+##### 34904#       发表于 2025-3-8 22:45
+
+初華想復活母雞卡， 上頭不許
+
+祥子想復活母雞卡， 一星期就能再開業
+
+這說明什麼？ 自己想
+
