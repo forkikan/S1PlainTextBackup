@@ -5653,3 +5653,103 @@ stage上的睦眼睛像是睦头的眼睛，嘴巴像莫头。
 卡片战斗先导者08
 <img src="https://p.sda1.dev/22/fa7d57d141434e670a29852d04d68faa/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 34567#       发表于 2025-3-8 08:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67604106&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-3-8 08:54</a>
+
+游戏编剧应该能提前看到剧本吧。鸡团动画又不是现在才完成的。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">但是工艺蛋还没做鸡团就跑路了
+
+*****
+
+####  syndrome2032  
+##### 34568#       发表于 2025-3-8 08:58
+
+大改不可能，但是应该会减少神人部分吧。
+
+*****
+
+####  6030sylar  
+##### 34569#       发表于 2025-3-8 09:00
+
+ 本帖最后由 6030sylar 于 2025-3-8 09:01 编辑 
+
+<img src="https://img.saraba1st.com/forum/202503/08/090107i56nbnx5x06xx6hg.png" referrerpolicy="no-referrer">
+
+<strong></strong> (524.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-8 09:01 上传
+
+<img src="https://img.saraba1st.com/forum/202503/08/090119o67wdkujuqwsp1oz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (487.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-8 09:01 上传
+
+<img src="https://img.saraba1st.com/forum/202503/08/090125dck18beunu5e1gnz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (473.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-8 09:01 上传
+
+<img src="https://img.saraba1st.com/forum/202503/08/090131n04v9555uosvwtw9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (483.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-8 09:01 上传
+
+大鼻子哥哥好
+
+*****
+
+####  北条早苗  
+##### 34570#       发表于 2025-3-8 09:01
+
+母鸡卡一直以来的问题就是写作能力跟不上，外加演出能力连狗时期都比不上
+大喵就是抛开追求名利和嫉妒之后，构成人物的就是对纯粹演技的爱
+若叶睦缺乏的是爱，所以才造出这么多人格，牢莫是造出来保护小睦的，但之前都是求生欲。牢莫在接受了大喵的爱之后，选择了死亡来把自己的爱传达给小睦，之后的若叶睦就不再需要这么多人格了
+想法是这么想的，但是实际写出来就剩下一群神人了。把人格抢方向盘作为推动剧情的道具反复仰卧起坐，睦莫这点破事像裹脚布一样从ep4拉扯到ep10，真的还有人会对此动情吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  syndrome2032  
+##### 34571#       发表于 2025-3-8 09:04
+
+ 本帖最后由 syndrome2032 于 2025-3-8 09:07 编辑 
+
+ep10live起码告诉你睦莫就此结束了。折腾了整整半个鸡团动画长度啊。
+不整ccc和解，ep10live应该是定位在ep7live那个节点的。
+
+现在就是又白白折腾了3话才刚开始。
+
+等一个睦头踢大祥屁股告诉她要去追初华了
+
+*****
+
+####  6030sylar  
+##### 34572#       发表于 2025-3-8 09:04
+
+手游大改不可能，应该是憋都憋不出来
+
+而且手游谁看剧情啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  油画布  
+##### 34573#       发表于 2025-3-8 09:04
+
+进手游的剧情能用独角兽的原案吗 这要也不好我就能彻底释然了
+
