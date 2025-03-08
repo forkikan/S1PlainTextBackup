@@ -8886,3 +8886,111 @@ B站看了几个剪辑，初祥的定位就是，没有任何双向感情的CP�
 
 祥子對睦頭的謝謝是省不了的
 
+
+*****
+
+####  江口夕  
+##### 34841#       发表于 2025-3-8 20:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609466&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-8 20:55</a>
+莫老師是睦被迫到絕境時才放出的人格
+
+算正常防衛</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">搞笑了，对疑似杀人犯莫女士说谢谢么
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  堆雪若叶  
+##### 34842#       发表于 2025-3-8 20:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609427&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-8 20:51</a>
+
+那祥子就是癫化爱音，好好好的时候比爱音更阳光更灿烂，破防跑路切割的时候比爱音更决绝 ...</blockquote>
+祥子是癫化灯，灯是人家自愿一辈子，祥子把人都毁了绑起来一辈子<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 34843#       发表于 2025-3-8 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609449&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-3-8 20:54</a>
+
+现在mujica也快和二流少年漫一个路数了，莫名其妙大和解，莫名其妙死了个队友，莫名其妙打boss，莫名其妙 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">观众都反应不了了，睦头剧情观众算是被观众的阴阳眼视角搞晕了233
+
+*****
+
+####  thisisaspider  
+##### 34844#       发表于 2025-3-8 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609434&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-8 20:52</a>
+
+大祥还是好好想想海岛铁人三项准备给初华的台词吧。
+
+她组鸡团的原始资本就是睦头和初华。睦头已经不会回来 ...</blockquote>
+台词已经说过了，复读一遍就好。
+
+"無論是順境或是逆境，富有或貧窮，健康或疾病，珍惜你直到地老天長。"
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  adretyu67.  
+##### 34845#       发表于 2025-3-8 21:02
+
+我对新生睦就3个指望。
+
+吉他能发声了吗，不要再当小祥bot了，照顾好小黄瓜。
+
+其他就虽然live演出里最后和解很好，但是回来的是谁已经不做指望了。
+
+不过目前鸡团所有人都在坠落的前提下我已经不太指望了。
+
+*****
+
+####  是谁的书画  
+##### 34846#       发表于 2025-3-8 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609479&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-3-8 20:57</a>
+
+搞笑了，对疑似杀人犯莫女士说谢谢么
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 S1Next-鹅版 v2.2.2 ...</blockquote>
+本质上谁才是虾仁犯啊，谁把睦搞成这个样子的。
+
+第七集还觉得是自己害了睦，第十集吉他睦掉下去她一定心理老开心了吧，自己不用再照顾一个麻烦的人生了<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+之后舞台上的究竟是谁，她真的会在意吗？
+
+*****
+
+####  cxj649  
+##### 34847#       发表于 2025-3-8 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609509&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-8 21:02</a>
+
+我对新生睦就3个指望。
+
+吉他能发声了吗，不要再当小祥bot了，照顾好小黄瓜。
+
+其他就虽然live演出里最后和解 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这得看手游了
+
+*****
+
+####  南宮凝香  
+##### 34848#       发表于 2025-3-8 21:04
+
+<blockquote>江口夕 发表于 2025-3-8 20:57
+搞笑了，对疑似杀人犯莫女士说谢谢么
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 S1Next-鹅版 v2.2.2 ...</blockquote>
+這就是邏輯問題了
+
+1. 如果睦莫算一人：那莫就沒殺人， 祥子要道歉
+
+2. 如果睦莫不是一人： 那莫有沒有殺人 跟祥子要對睦道歉有什麼關係
+
