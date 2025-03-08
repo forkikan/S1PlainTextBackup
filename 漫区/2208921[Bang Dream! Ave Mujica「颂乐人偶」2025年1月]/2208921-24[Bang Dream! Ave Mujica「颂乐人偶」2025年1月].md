@@ -10133,3 +10133,68 @@ Ave Mujica 前10话 niconico 好评率
 
 7话的欺诈性质高一点吧。冲着ccc和解去看结果被欺诈了。
 
+
+*****
+
+####  swessia  
+##### 34953#       发表于 2025-3-9 00:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">就现在故意负面描写的样子，很难想象进手游的样子
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ntrntr1  
+##### 34954#       发表于 2025-3-9 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67610554&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-8 23:46</a>
+
+深究又很难说得通，毕竟这两个前面同居那么久，老登也是浑然不知的吗，按照他自己说法就是一直在关注鸡团 ...</blockquote>
+老登：哎，孙女中二病年纪了爱玩乐队让她玩去吧，反正玩够了回来继承家业就行了，反正便宜女儿听我的说解散就解散
+
+这次偷听完女儿的惊世大作，妈的你想监禁我孙女<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+虽然标准答案应该就是想起我们背后还有一段家族大战怎么圆过去来着。。
+
+*****
+
+####  adretyu67.  
+##### 34955#       发表于 2025-3-9 00:03
+
+一个很阴暗的想法。
+
+独角兽最后时刻跑出来负责单话剧本是不是准备一转包饺子顺带甩锅<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 34956#       发表于 2025-3-9 00:03
+
+现在《初抄祥》的二创高雅程度已经直逼银梦本番了，我还是多诵读几遍三浦和尚便乘经涤洗一下心灵吧，sodayo
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  adretyu67.  
+##### 34957#       发表于 2025-3-9 00:05
+
+我觉得监禁独占亵渎还是比单纯的雷普要更变态一点的。
+
+不过似乎大家都喜欢更直接的我要雷普你。二创听起来也挺乐的。
+
+*****
+
+####  cxj649  
+##### 34958#       发表于 2025-3-9 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67610637&amp;ptid=2208921" target="_blank">swessia 发表于 2025-3-9 00:00</a>
+
+就现在故意负面描写的样子，很难想象进手游的样子
+
+—— 来自 鹅球 v3.3.96</blockquote>
+大祥塑造认知，制作组观众场内场外都错位了233
+

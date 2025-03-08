@@ -155,3 +155,11 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  madcow  
+##### 5846#       发表于 2025-3-9 00:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">草今天一打开游戏发现衣服表情啥的全变默认了，这也就算了怎么steam好友也全消失了
+

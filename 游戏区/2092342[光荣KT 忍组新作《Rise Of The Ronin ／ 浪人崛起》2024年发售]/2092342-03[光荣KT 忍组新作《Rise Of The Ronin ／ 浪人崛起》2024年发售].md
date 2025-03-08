@@ -31,3 +31,13 @@ pc优化又爆炸了吗<img src="https://static.saraba1st.com/image/smiley/face2
 
 幽默忍者组<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  病態極端  
+##### 3405#       发表于 2025-3-8 23:56
+
+<img src="https://p.sda1.dev/22/c3f8fbcac2e07d095973299c7a62967c/ronin-vs-mhws.jpg" referrerpolicy="no-referrer">
+
+看來優化不如怪獵荒野
+
