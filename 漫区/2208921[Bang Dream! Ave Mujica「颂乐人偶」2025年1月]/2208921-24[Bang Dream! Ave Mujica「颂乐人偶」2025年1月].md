@@ -8333,3 +8333,178 @@ avemujica1.0解散是祥子的音乐梦追逐不下去了，孝爹表演了一�
 
 最后mortis只好一个人孤苦地在台上演自杀行为艺术
 
+
+*****
+
+####  cxj649  
+##### 34791#       发表于 2025-3-8 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609203&amp;ptid=2208921" target="_blank">凉良 发表于 2025-3-8 20:22</a>
+
+也就素有安抚啊 还是安抚的mortis 对睦都没问一句
+
+后续还是海玲在陪床
+
+这段简直太诡异了 ...</blockquote>
+后续希海希有提狗团集体去陪床
+
+*****
+
+####  江口夕  
+##### 34792#       发表于 2025-3-8 20:27
+
+ 本帖最后由 江口夕 于 2025-3-8 20:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609203&amp;ptid=2208921" target="_blank">凉良 发表于 2025-3-8 20:22</a>
+也就素有安抚啊 还是安抚的mortis 对睦都没问一句
+
+后续还是海玲在陪床
+
+这段简直太诡异了 ...</blockquote>
+所以柿本根本不知道怎么拿捏角色对应，只会样板戏，整了个二重人格，一些人对待太儿戏，时有时无毫无逻辑。
+从头到尾只有大祥像是对应二重人格有反应，别人就像看戏一样，哪怕素世也看不出一点对吉他睦的关注。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  adretyu67.  
+##### 34793#       发表于 2025-3-8 20:27
+
+其实不管双重人格不双重人格什么的。
+
+莫头那种突然跪下来发癫表示人格摔死了最好解决办法是安抚陪伴。
+
+而不是大祥老师那种急着追问睦头怎样了。大祥老师的问题才更会刺激睦的精神状态。
+
+*****
+
+####  cxj649  
+##### 34794#       发表于 2025-3-8 20:28
+
+狗团和大祥其实这集行为都还算正常的，只是观众自己晕了233
+
+*****
+
+####  岬开斗  
+##### 34795#       发表于 2025-3-8 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67608705&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-3-8 19:07</a></blockquote>
+也就立希不是作词的，否则会写出什么重力歌词我都不敢想。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  是谁的书画  
+##### 34796#       发表于 2025-3-8 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609243&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-8 20:27</a>
+
+其实不管双重人格不双重人格什么的。
+
+莫头那种突然跪下来发癫表示人格摔死了最好解决办法是安抚陪伴。</blockquote>
+就从来没感觉大祥了解过睦，说句实话她更多是在睦的眼睛里看自己的倒影吧。
+
+真悲惨啊，不管是对这两个人中的任何一个。
+
+*****
+
+####  6030sylar  
+##### 34797#       发表于 2025-3-8 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609060&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-8 20:05</a>
+
+恶役大小姐不多是堆砌刻板印象么，有什么描写的很好作品也很好的推荐推荐？就那种真的把世家大族看不起平 ...</blockquote>
+罗兹玛丽（明日的妮嘉）？
+
+不限动画就乱世佳人（1939）斯嘉丽
+
+*****
+
+####  天空塔书记官  
+##### 34798#       发表于 2025-3-8 20:32
+
+大概会是“灯是我命，如果没有灯的话，我就要死了”
+
+这类的云云
+
+不过立希会作词也大概率不会这么写，因为她就是因为不会表达自己的感情才变成现在这样的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  非建政专用号  
+##### 34799#       发表于 2025-3-8 20:32
+
+要天师是明确知道双重人格的，虽然要天师也不是什么正常人
+其他四个眼里大抵是卧槽，这B疯的比上次严重了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  cxj649  
+##### 34800#       发表于 2025-3-8 20:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实观众现在还在潜意识想让大祥认错，亲口说：对不起
+
+观众这气还没出233
+
+
+*****
+
+####  南宮凝香  
+##### 34801#       发表于 2025-3-8 20:32
+
+愛音： 跟睦的接觸只有一句謝謝
+
+樂奈： 誰？
+
+燈： 我是一隻小企鵝
+
+Soyo： 莫是養女， 睦是凡事搞對抗的同學
+
+立希： 唯物主義者不信這些勞什子
+
+睦頭死了！
+
+迷狗： 木子美？ （無感）
+
+實際上考慮到距離， MyGo 的人能不能聽清楚對話是存疑的
+
+*****
+
+####  北条早苗  
+##### 34802#       发表于 2025-3-8 20:33
+
+演出水平下降已经是很严重的问题了，小表情几乎没有只剩下大祥的恐同，第二首歌跟闪彩一样晃来晃去的镜头乌米铃大旋风接睦子米大旋风
+
+*****
+
+####  thisisaspider  
+##### 34803#       发表于 2025-3-8 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609202&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-8 20:22</a>
+
+总感觉日本人特别喜欢路径依赖，一个东西成了就很难变通，只会在小框架下进行一点点更改，例如人设和战力 ...</blockquote>
+看访谈反而是强行融入邦邦框架，但你这么说也没问题。毕竟原案没有写完就等于废案。
+
+*****
+
+####  烂片雷达  
+##### 34804#       发表于 2025-3-8 20:35
+
+我早就觉得剧情大部分是合理的，只是观众精神失常了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+终于有人敢说出来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ape-apple  
+##### 34805#       发表于 2025-3-8 20:36
+
+剧情合理在哪，这里面只有纯粹的框架算是初具人形，肉和皮都是稻草，怎么算是人类呢
+
