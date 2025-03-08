@@ -6327,3 +6327,79 @@ Nico 那三千人評分表早就提純了
 
 老登还有造型，这位男士可能连图都不会有就不要太在意了。
 
+
+*****
+
+####  半年  
+##### 34625#       发表于 2025-3-8 12:47
+
+<img src="https://img.saraba1st.com/forum/202503/08/124702finpfz9jmjnmtnpl.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250308124615.jpg</strong> (156.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-8 12:47 上传
+
+*****
+
+####  cxj649  
+##### 34626#       发表于 2025-3-8 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67605471&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-8 12:37</a>
+现在最可怕的是真可能给你来个摁头一抑到底吧</blockquote>
+这样尬尴还是以后的编剧，这不是一炮走人的作品
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 34627#       发表于 2025-3-8 12:48
+
+即使再抑，到手游也要想办法扬起来，因为这就是邦多利的世界观啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  江口夕  
+##### 34628#       发表于 2025-3-8 12:49
+
+ 本帖最后由 江口夕 于 2025-3-8 12:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67605419&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-3-8 12:31</a>
+手游怎么办呢，不是所谓一个BE就完了的
+
+—— 来自 鹅球 v3.3.96</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">出新手游，你如果要扬，扬的方式不对的话和音乐风格又打架了，你不能都合家欢了，音乐风格是这个风格吧，那不是无病呻吟了，其实一开始就矛盾了。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  thisisaspider  
+##### 34629#       发表于 2025-3-8 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67605575&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-3-8 12:49</a>
+出新手游
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 S1Next-鹅版 v2.2.2.1</blockquote>
+谁给wsd的自信。不如重做动画省钱
+
+
+*****
+
+####  operatbig  
+##### 34630#       发表于 2025-3-8 12:52
+
+想起睦回来的时候，只有海铃跟大喵的镜头，大祥又回到解散前对睦漠不关心的状态了，面对不断给自己制造麻烦，甚至自己放下身段去照顾仍不消停的睦头，大祥这次怕是彻底厌倦了。
+
+*****
+
+####  天空塔书记官  
+##### 34631#       发表于 2025-3-8 12:55
+
+能做新企划，ave就不是现在这个样了，就是因为没钱搞新企划，ave才拍成了现在这个鬼样子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

@@ -1122,3 +1122,15 @@ bro的理解——“宣誓确实没有BG3的预算，毕竟微软评估BG3这�
 
 自说自话式的理解别人的理解，然后倒打一耙说对面理解错了，确实是本坛特色之一啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ultraseven  
+##### 96#       发表于 2025-3-8 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67604998&amp;ptid=2248961" target="_blank">Bieaeml 发表于 2025-3-8 11:42</a>
+
+bro的理解——“宣誓确实没有BG3的预算，毕竟微软评估BG3这样的第三方首发XGP的预期成本只有500W美元”=微 ...</blockquote><blockquote>微软不会给CPRG高预算，因为他对BG3都只给了500W美元的价格（无论这个价格包含了什么）。</blockquote>
+
+微软给宣誓掏了多少钱微软自己不清楚吗，这个价格难道不是远高于500万？一个预算成本远高于500万，一个您说微软预期成本只给500万，在您的语境里这两个数字谁高谁低？这难道不是<strong>您认为</strong> <strong>微软认为</strong>宣誓的预算远高于BG3吗？从来不把话说清楚的不正是您自己吗？
+

@@ -3185,3 +3185,21 @@ Switch版1代洛克兰村的赌钱SL作弊大法是不是给修了？测试了�
 
 链接: [https://pan.baidu.com/s/1S0EXUz5gIoaoMwSf3Ud5wQ?pwd=644c](https://pan.baidu.com/s/1S0EXUz5gIoaoMwSf3Ud5wQ?pwd=644c) 提取码: 644c 
 
+
+*****
+
+####  xyzchaos  
+##### 343#       发表于 2025-3-8 12:49
+
+不知道二代的推门bug还在不在
+
+*****
+
+####  ds2324ds2  
+##### 344#       发表于 2025-3-8 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67605180&amp;ptid=2090186" target="_blank">西多士 发表于 2025-3-8 12:04</a>
+
+Switch版1代洛克兰村的赌钱SL作弊大法是不是给修了？测试了一下退出读档，每次杯子里的金币位置都不一样了 ...</blockquote>
+等梁山泊建成之后去赌筛子吧，存档点就在边上。
+
