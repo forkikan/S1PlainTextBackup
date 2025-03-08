@@ -3644,3 +3644,24 @@ MARK,看见群友在整这个了……
 匕首妹是越用越强，我还没给她 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">该加入弓箭神教了,堆技术,大招一箭2W不是梦
 
+
+*****
+
+####  InfiniteGyre  
+##### 321#       发表于 2025-3-8 11:51
+
+感觉狂战姐是个骗局啊，敏捷太低没有出手权抗性也比较差，好几次猴戏耍完之后想输出被控住了，要先堆精神抗性再考虑输出吗？
+
+—— 来自 HUAWEI DCO-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  mull132  
+##### 322#       发表于 2025-3-8 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67605068&amp;ptid=2246453" target="_blank">InfiniteGyre 发表于 2025-3-8 11:51</a>
+感觉狂战姐是个骗局啊，敏捷太低没有出手权抗性也比较差，好几次猴戏耍完之后想输出被控住了，要先堆精神抗 ...</blockquote>
+抗性靠嗑药啊<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">打之前磕上，进去一套猴戏秒了
+
+—— 来自 Xiaomi 22041216C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
