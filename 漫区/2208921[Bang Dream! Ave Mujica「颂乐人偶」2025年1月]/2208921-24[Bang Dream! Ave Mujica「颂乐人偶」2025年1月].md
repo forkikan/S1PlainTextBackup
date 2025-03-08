@@ -7646,3 +7646,43 @@ Imprisoned XII的MV对比栞的MV，能看出Ave Mujica这乐队的设定有多�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  swessia  
+##### 34733#       发表于 2025-3-8 17:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">母鸡卡播到现在，素世成了人物塑造唯一受益者
+
+代价就是要少年丧女
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  半年  
+##### 34734#       发表于 2025-3-8 18:02
+
+<img src="https://img.saraba1st.com/forum/202503/08/180158aqyuuvdyz1zuffvf.jpg" referrerpolicy="no-referrer">
+
+<strong>GlgYuO_bEAAdIL0.jpg</strong> (370.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-8 18:01 上传
+
+[https://x.com/MILFCOOKIESIMP/status/1898294433877033156](https://x.com/MILFCOOKIESIMP/status/1898294433877033156)
+
+*****
+
+####  aptx8285144  
+##### 34735#       发表于 2025-3-8 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67608107&amp;ptid=2208921" target="_blank">swessia 发表于 2025-3-8 17:54</a>
+
+母鸡卡播到现在，素世成了人物塑造唯一受益者
+
+代价就是要少年丧女</blockquote>
+如果无视第七话 集体被脑控的话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
