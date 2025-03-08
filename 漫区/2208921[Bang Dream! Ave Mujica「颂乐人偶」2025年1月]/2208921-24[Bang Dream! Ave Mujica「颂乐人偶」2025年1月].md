@@ -9114,3 +9114,76 @@ B站看了几个剪辑，初祥的定位就是，没有任何双向感情的CP�
 
 准确来说是需要一个搞鸡团的诱因，或者说借口。
 
+
+*****
+
+####  aptx8285144  
+##### 34861#       发表于 2025-3-8 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609583&amp;ptid=2208921" target="_blank">烂片雷达 发表于 2025-3-8 21:12</a>
+
+除了第七集本来就都还好
+
+只不过剧情都合了点被你们说的像绝世烂片一样，动画哪有不都合的，我看完全在接受 ...</blockquote>
+你和战吧有些观众应该很投趣，可惜那边发飙的人也越来越多了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">  
+
+[https://tieba.baidu.com/p/9554633132?pn=1](https://tieba.baidu.com/p/9554633132?pn=1)
+
+*****
+
+####  是谁的书画  
+##### 34862#       发表于 2025-3-8 21:29
+
+能感觉这玩意正常的观众只会是因为把自己的心态调整成和精神病或者小孩差不多才行吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+作为一个拥有尊严的观众，会在保持自我认知的基础上评判这玩意，应该是对于这片子最大的敬意了吧。柿本应该为我的精神支付费用才对。
+
+*****
+
+####  ntrntr1  
+##### 34863#       发表于 2025-3-8 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609668&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-3-8 21:24</a></blockquote>
+祥子想了下，觉得本团还是海铃看着最靠谱，思索再三只发给了海铃
+
+结果海铃收到后：太感动了，这就是信任吗
+
+过了几天觉得这份信任光在手机里没法实施不过瘾，先帮初华把祥子绑了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 34864#       发表于 2025-3-8 21:34
+
+我觉得吉他睦肯定还会”回来“（不管是融合还是啥的）的吧，否则其他几个人现在的反应太平静而搞笑了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 34865#       发表于 2025-3-8 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609684&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-8 21:26</a>
+
+你和战吧有些观众应该很投趣，可惜那边发飙的人也越来越多了  
+
+https://tieba.baidu.com/p/9554633132?p ...</blockquote>
+你在鸵鸟党同伐异吧发这种东西岂不是自讨没趣<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  modkingr  
+##### 34866#       发表于 2025-3-8 21:35
+
+我也是除了第七集都OK派。只有第七集是真的观感很差
+
+*****
+
+####  cxj649  
+##### 34867#       发表于 2025-3-8 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609729&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-8 21:34</a>
+
+我觉得吉他睦肯定还会”回来“（不管是融合还是啥的）的吧，否则其他几个人现在的反应太平静而搞笑了，蚀本 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">肯定会“回来”，不然手游睦剧情都不好做了233
+
