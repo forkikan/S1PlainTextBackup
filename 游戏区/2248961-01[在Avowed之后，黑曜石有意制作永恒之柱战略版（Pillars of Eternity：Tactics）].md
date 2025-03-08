@@ -1177,3 +1177,13 @@ bro的理解——“宣誓确实没有BG3的预算，毕竟微软评估BG3这�
 
 Sawyer是很喜欢battle brothers和dungeon rats，而且明确说过比起AoD更喜欢Dungeon Rats<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  BRAVADO  
+##### 101#         楼主| 发表于 2025-3-8 15:23
+
+<blockquote>posthoc 发表于 2025-3-8 14:46
+Sawyer是很喜欢battle brothers和dungeon rats，而且明确说过比起AoD更喜欢Dungeon Rats 其实踢门团才是Saw ...</blockquote>
+sawyer其实还是忍龙2的超级爱好者（
+

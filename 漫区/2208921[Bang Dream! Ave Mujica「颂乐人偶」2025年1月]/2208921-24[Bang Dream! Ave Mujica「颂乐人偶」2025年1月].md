@@ -7220,3 +7220,13 @@ MyGo vs Mujica，灯vs初华，真是好恶意啊。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adretyu67.  
+##### 34701#       发表于 2025-3-8 15:17
+
+挑个刺，抓独角仙可能也是假的。
+
+当年现初华和大祥抓的可能是蜘蛛<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
