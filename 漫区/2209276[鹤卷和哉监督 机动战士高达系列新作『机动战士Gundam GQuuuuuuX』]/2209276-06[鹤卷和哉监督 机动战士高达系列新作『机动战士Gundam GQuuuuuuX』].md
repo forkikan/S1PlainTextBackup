@@ -9990,3 +9990,19 @@ image.png
 
 所以我就觉得独角兽这么整，如果只是用封存也太敷衍了，如果有UC2的话，不知道UC2会不会讲暂时封住通过精神感应框架沟通上层世界的大门。
 
+
+*****
+
+####  az一串字母  
+##### 8205#       发表于 2025-3-8 14:44
+
+<img src="https://img.saraba1st.com/forum/202503/08/144348hy1d19jz82z5yedj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250306_185453_tv.danmaku.bili.jpg</strong> (124.32 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-8 14:43 上传
+
+牢修这个进入聊天室的画面看起来就拥有强大的nt能力
+
