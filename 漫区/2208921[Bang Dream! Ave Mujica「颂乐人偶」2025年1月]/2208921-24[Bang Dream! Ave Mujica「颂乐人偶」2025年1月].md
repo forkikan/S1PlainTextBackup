@@ -9984,3 +9984,60 @@ wsd能不能把幕后现场放出来，我单纯就想看staff在怎样的精神
 
 直接少了500人，第9话有那么劝退吗。我还以为到第9话干脆都放弃思考了。
 
+
+*****
+
+####  ape-apple  
+##### 34941#       发表于 2025-3-8 23:38
+
+人跑了一批，但好评率又高了，鬼子确实就配看这种东西
+
+*****
+
+####  一心而用  
+##### 34942#       发表于 2025-3-8 23:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67610463&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-3-8 23:32</a>
+这次人少了</blockquote>
+Ave Mujica 前10话 niconico 好评率
+第1话 81.4% 8.7% 4.5% 3.0% 2.5% 约2200人
+第2话 79.4% 8.3% 5.8% 4.6% 1.9% 约3600人
+第3话 83.5% 4.4% 5.5% 4.9% 1.7% 约3100人
+第4话 82.4% 7.8% 3.8% 3.1% 2.9% 约3500人
+第5话 85.4% 5.3% 4.3% 3.3% 1.8% 约3300人
+第6话 85.5% 6.3% 4.1% 2.8% 1.4% 约3800人
+第7话 86.7% 3.5% 5.1% 1.8% 2.9% 约3700人
+第8话 85.9% 6.3% 4.0% 2.0% 1.8% 约3300人
+第9话 86.8% 5.4% 2.9% 2.9% 1.9% 约3200人
+第10话 88.8% 4.1% 3.4% 1.8% 2.0% 约2700人
+
+*****
+
+####  K·os  
+##### 34943#       发表于 2025-3-8 23:38
+
+第九话火车开的水平太差，也是我个人最不喜欢的一回
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  是谁的书画  
+##### 34944#       发表于 2025-3-8 23:39
+
+但这评分不挺高的吗<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+第七集才86 87吧，我记得
+
+*****
+
+####  ntrntr1  
+##### 34945#       发表于 2025-3-8 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67610342&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-8 23:13</a>
+
+老登的问题是为什么非等到live完才跑出来劝退。
+
+可能这就是工具人黑手吧。 ...</blockquote>
+怕自己女儿和孙女好上那可就真绝后了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
