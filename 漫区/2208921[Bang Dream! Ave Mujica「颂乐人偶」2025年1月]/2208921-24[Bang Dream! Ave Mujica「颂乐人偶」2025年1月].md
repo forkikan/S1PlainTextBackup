@@ -6130,3 +6130,13 @@ ep10live后的祥子不见得是迟钝，应该是根本无所谓了。
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  thisisaspider  
+##### 34606#       发表于 2025-3-8 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67604905&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-3-8 11:30</a>
+大祥跟她中登一样的，对已经有的东西视而不见，去追求得不到的东西，结果有的东西也没了。所以发现的时候对 ...</blockquote>
+对soyo也是中登，幸好让祥子给骂醒了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

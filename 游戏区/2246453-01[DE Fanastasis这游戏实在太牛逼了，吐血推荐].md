@@ -3631,3 +3631,16 @@ MARK,看见群友在整这个了……
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  cym887  
+##### 320#       发表于 2025-3-8 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67593958&amp;ptid=2246453" target="_blank">远野乙姬 发表于 2025-3-7 01:38</a>
+
+双刀哥好像没想象那么强，双大剑，主手镰刀副手三刀短剑都试过了，就那样吧
+
+匕首妹是越用越强，我还没给她 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">该加入弓箭神教了,堆技术,大招一箭2W不是梦
+

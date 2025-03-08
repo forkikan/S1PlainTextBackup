@@ -1106,3 +1106,19 @@ bro干的：問題是現在微軟沒說BG3能 ...</blockquote>
 
 既定事实是啥？既定事实是无论那个微软分析员在表格上填的是500万、1000万、5000万、1亿，您61楼表格里的新游戏没一个首发XGP，就连您念叨了几次的猴岛都没有。您这么执着于“白送给索尼几个月主机独占”，是幻想微软分析员填了2亿美元，然后BG3就登陆XGP了，Xbox在2023年就大赢特赢了？是的，微软应该在2023年把星空卖给PS5独占，然后用索尼给的钱买BG3 主机独占，这下是不是爽感拉满？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Bieaeml  
+##### 95#       发表于 2025-3-8 11:42
+
+ 本帖最后由 Bieaeml 于 2025-3-8 11:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67603773&amp;ptid=2248961" target="_blank">ultraseven 发表于 2025-3-8 03:36</a>
+
+我还是那个问题：同一个微软分析师，您说的在计算其他游戏进XGP花费时都有一套商业逻辑，到了拉瑞安这里 ...</blockquote>
+bro的理解——“宣誓确实没有BG3的预算，毕竟微软评估BG3这样的第三方首发XGP的预期成本只有500W美元”=微软认为宣誓的预算远高于BG3吗
+
+我的理解——“宣誓确实没有BG3的预算，毕竟微软评估BG3这样的第三方首发XGP的预期成本只有500W美元”=微软不会给CPRG高预算，因为他对BG3都只给了500W美元的价格（无论这个价格包含了什么）。
+
+自说自话式的理解别人的理解，然后倒打一耙说对面理解错了，确实是本坛特色之一啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
