@@ -6241,3 +6241,53 @@ ave母鸡卡→pjsk
 
 祥子是背负编剧，又恨又爱的扭曲主题的角色。本质是出于高维的人物。最后观感差实际是上团队太菜了，达不到展现这个主题的能力水平。
 
+
+*****
+
+####  adretyu67.  
+##### 34616#       发表于 2025-3-8 12:26
+
+恨是看到了，爱呢<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">只能说希望高光在后面是真的吧
+
+*****
+
+####  thisisaspider  
+##### 34617#       发表于 2025-3-8 12:27
+
+祥子对重力不敏感，但冷落初华应该是感受并害怕到其中的恨意。
+
+*****
+
+####  aptx8285144  
+##### 34618#       发表于 2025-3-8 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67604568&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-8 10:34</a>
+
+Nico 那三千人評分表早就提純了
+
+這跟去戰吧問母雞卡好看不一樣</blockquote>
+战吧是靠删帖维持着压制，<strong>最近</strong>抵抗力量一直在用各种办法发帖表达愤怒<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">  
+
+[https://tieba.baidu.com/p/9554633132?pn=1](https://tieba.baidu.com/p/9554633132?pn=1)
+
+*****
+
+####  thisisaspider  
+##### 34619#       发表于 2025-3-8 12:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67605369&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-8 12:26</a>
+恨是看到了，爱呢只能说希望高光在后面是真的吧</blockquote>
+爱可能已经展现完了。祥子的背景就是被众人爱着的。祥希望完成的事情都被他人实现了。但最后不知道怎么写，编剧大脑太奇怪了。
+
+*****
+
+####  cxj649  
+##### 34620#       发表于 2025-3-8 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67604712&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-3-8 11:00</a>
+动画创作目的就是为了鸡的音乐风格这点现在已经明盘了吧。
+所以不管是live后大祥和初音回去并没有管睦，还 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">手游怎么办呢，不是所谓一个BE就完了的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
