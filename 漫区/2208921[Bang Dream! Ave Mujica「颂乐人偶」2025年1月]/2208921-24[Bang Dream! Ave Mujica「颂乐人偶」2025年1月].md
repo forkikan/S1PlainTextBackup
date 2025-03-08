@@ -6099,3 +6099,16 @@ note上倒是一直有一些批评，这次是“铁血”水平
 
 ep10live后的祥子不见得是迟钝，应该是根本无所谓了。
 
+
+*****
+
+####  adretyu67.  
+##### 34604#       发表于 2025-3-8 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67604796&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-3-8 11:13</a>
+
+我看这个人的意思就是接下来可能铁血化（但仍有挽回的余地）</blockquote>
+取决于11-12准备怎么圆和13话怎么包饺子。
+
+不过现在习惯埋雷了，到时候又是芥末寿司
+

@@ -3590,3 +3590,15 @@ MARK,看见群友在整这个了……
 匕首妹是越用越强，我还没给她 ...</blockquote>
 匕首妹前期怎么过渡啊？我收他们两的时候主力队是电火法炼金，平均25级，双刀哥拿两把大剑还能靠攻击力硬怼，匕首妹全程刮痧，想有点伤害还得带工坊给她上一套buff，上完不如双刀哥一个双斩<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jy000129  
+##### 317#       发表于 2025-3-8 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67604649&amp;ptid=2246453" target="_blank">五块 发表于 2025-3-8 10:48</a>
+匕首妹前期怎么过渡啊？我收他们两的时候主力队是电火法炼金，平均25级，双刀哥拿两把大剑还能靠攻击力硬 ...</blockquote>
+黑魔法可以减防，吃减防的BOSS丢个减防输出就很高了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
