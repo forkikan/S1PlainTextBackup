@@ -9667,3 +9667,103 @@ wsd能不能把幕后现场放出来，我单纯就想看staff在怎样的精神
 祥子想復活母雞卡， 一星期就能再開業</blockquote>
 说明上头听老登的，合理推测是这样，毕竟这话最后大象都说老登你"无处不在"(6,7,8话表示？？)，话说大象对老登说你无处不在的时候，这语气感觉也不是充满敬意的，允许组母鸡卡这事不是恩情jpg<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adretyu67.  
+##### 34913#       发表于 2025-3-8 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67610235&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-8 22:55</a>
+
+说明上头听老登的，合理推测是这样，毕竟这话最后大象都说老登你"无处不在"(6,7,8话表示？？)，话说大象 ...</blockquote>
+第10话大祥老师重组鸡团后气也足了，敢阴阳怪气老登了。
+
+第5话鸡团炸了后，上迈巴赫就是一句话都不敢说。
+
+看样子玩乐队确实有益身心健康
+
+*****
+
+####  aptx8285144  
+##### 34914#       发表于 2025-3-8 22:58
+
+但是如果老登允许大象组母鸡卡，已知允许时大象肯定还不知道初音是谁这种事情，已知老登还给大象付了赔偿金，怎么看都是大象应该对老登不说感激万分，起码也要有一些敬意，但是最后好像又没有，估计她不知道什么是大手，或者更合理的解释是这是大小姐的傲慢<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  K·os  
+##### 34915#       发表于 2025-3-8 22:59
+
+唉
+
+你敢违抗拥有丰川姓的我吗！
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| aptx8285144| + 1|欢乐多|
+
+查看全部评分
+
+
+*****
+
+####  南宮凝香  
+##### 34916#       发表于 2025-3-8 23:02
+
+哈氣又怎樣了
+
+老登你有第二個繼承人給你送終嗎？
+
+*****
+
+####  cxj649  
+##### 34917#       发表于 2025-3-8 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67610258&amp;ptid=2208921" target="_blank">K·os 发表于 2025-3-8 22:59</a>
+
+唉
+
+你敢违抗拥有丰川姓的我吗！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那么说狗团敢啊233
+
+*****
+
+####  K·os  
+##### 34918#       发表于 2025-3-8 23:03
+
+老登十几年前管不住裤裆，现在都是现世报啊
+
+*****
+
+####  K·os  
+##### 34919#       发表于 2025-3-8 23:03
+
+老登十几年前管不住裤裆，现在都是现世报啊
+
+*****
+
+####  K·os  
+##### 34920#       发表于 2025-3-8 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67610281&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-3-8 23:03</a>
+
+那么说狗团敢啊233</blockquote>
+那是一回事吗，大家都哥们
+
+
+*****
+
+####  江口夕  
+##### 34921#       发表于 2025-3-8 23:05
+
+这话也就ring搞个小场live还不至于上大手，这点钱祥子打打工都能上。
+至于初音让没让事务所知道不好说
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
