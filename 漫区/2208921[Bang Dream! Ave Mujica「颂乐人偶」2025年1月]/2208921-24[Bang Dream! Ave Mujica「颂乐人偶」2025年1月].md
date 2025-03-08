@@ -7453,3 +7453,26 @@ Imprisoned XII的MV对比栞的MV，能看出Ave Mujica这乐队的设定有多�
 
 不过邦私服都挺土的，而且越少女的越土，月之森三个私服不是太成熟就是小学生，一点不像jk
 
+
+*****
+
+####  cxj649  
+##### 34717#       发表于 2025-3-8 16:40
+
+所以说问这图的2位年龄<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202503/08/164008b6x8z7ef7ma4sl6a.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (62.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-8 16:40 上传
+
+*****
+
+####  adretyu67.  
+##### 34718#       发表于 2025-3-8 16:41
+
+素世女士这次真的是老年丧子了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
