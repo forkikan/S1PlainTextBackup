@@ -8120,3 +8120,74 @@ mujica到第十集我的观感就是专业不专业感混杂，它最不专业�
 而且沿着mygo写好的继续写下去 ...</blockquote>
 恶役大小姐不多是堆砌刻板印象么，有什么描写的很好作品也很好的推荐推荐？就那种真的把世家大族看不起平民刻画出来的。
 
+
+*****
+
+####  huxiaopao163  
+##### 34775#       发表于 2025-3-8 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67608971&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-8 19:50</a>
+
+當看到祥子面對莫老師說睦頭死了倒地大哭的反應是毫無動作， 面無表情，
+
+你就知道這動畫已經爛完了 ...</blockquote>
+话说祥子会觉得莫是什么时候开始演的，小睦是什么时候真的死了？
+
+说不定祥子会以为从第七集开始的所有小睦都是莫演出来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  6030sylar  
+##### 34776#       发表于 2025-3-8 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67608971&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-8 19:50</a>
+
+當看到祥子面對莫老師說睦頭死了倒地大哭的反應是毫無動作， 面無表情，
+
+你就知道這動畫已經爛完了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">祥子会觉得：你又演我?!
+
+*****
+
+####  钦念以忱  
+##### 34777#       发表于 2025-3-8 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67606063&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-8 13:45</a>
+
+这双重人格，剧中其实也没几个人当真，好像严格来说其实就祥子在当真，这真的不是祥睦两个大小姐在过家家 ...</blockquote>
+在睦墨一体论基础上的衍生，祥子其实一直也都知道睦头没有多重人格
+
+avemujica1.0解散是祥子的音乐梦追逐不下去了，孝爹表演了一年也演不下去了，自己撑不住了，于是就配合睦头的双重人格表演顺势解散了乐队。
+
+所以才会一个月不去探望
+
+后来得知了睦头还在演，只好配合着一起演，所以祥子坚持要在门外睦门立雪，这是两人的对戏
+
+*****
+
+####  江口夕  
+##### 34778#       发表于 2025-3-8 20:12
+
+大祥认识的只有吉他睦，对莫女士并不熟甚至无感。这集明着已经告诉你了。
+
+大祥去睦家组mujica时，对莫女士叫的是mutsumi，确认吉他睦已经死之后已经对这个躯壳没兴趣了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  是谁的书画  
+##### 34779#       发表于 2025-3-8 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609060&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-8 20:05</a>
+
+恶役大小姐不多是堆砌刻板印象么，有什么描写的很好作品也很好的推荐推荐？就那种真的把世家大族看不起平 ...</blockquote>
+这种套路类型的东西现在日本人做的确实不行，漫画不如韩国人，小说不如中国人。
+
+小说我了解不多，韩漫更是涉猎极少。
+
+日漫里面我比较推荐“阿尔伯特家的大小姐努力朝着没落进发”，这个算是我看过的一杆日系同类题材里面相对还不错的。
+
+如果这个都吃不下，那其他的基本上只会更糟糕了...
+
