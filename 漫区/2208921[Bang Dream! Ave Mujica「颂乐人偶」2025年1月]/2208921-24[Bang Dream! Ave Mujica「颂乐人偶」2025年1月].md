@@ -9381,3 +9381,63 @@ b版这直球一点都不含蓄不说，还丢了这个三连排比的情感递�
 
 尤其进手游和邦邦大集合动画会超尴尬233
 
+
+*****
+
+####  钦念以忱  
+##### 34886#       发表于 2025-3-8 22:16
+
+立希和灯的天桥对话选进来不合适吧
+
+*****
+
+####  adretyu67.  
+##### 34887#       发表于 2025-3-8 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609971&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-8 22:16</a>
+
+立希和灯的天桥对话选进来不合适吧</blockquote>
+我记得那段应该是讨论什么是幸福。
+
+相对现在越来越神必的剧情。
+
+虽然没事做讨论你幸福吗也挺抽象的，但还是比现在温暖点。
+
+*****
+
+####  岬开斗  
+##### 34888#       发表于 2025-3-8 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609449&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-3-8 20:54</a>
+现在mujica也快和二流少年漫一个路数了，莫名其妙大和解，莫名其妙死了个队友，莫名其妙打boss，莫名其妙 ...</blockquote>
+最后喊一句我们是妖精的尾巴就爆种车翻财团是吧。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  YF29  
+##### 34889#       发表于 2025-3-8 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609960&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-3-8 22:13</a>
+
+舅舅都说了，大小姐玩家家闹麻了
+
+尤其进手游和邦邦大集合动画会超尴尬233 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这大小姐过家家看着自己也不爽啊，怎么是被别人架起来过家家的。
+
+闹麻了也得是大小姐自己真情实感想过这个家家拿钱砸人才能论道论道，大小姐自己过得都不爽，那能叫过家家吗，没事做给自己上刑来了。
+
+
+*****
+
+####  wangh  
+##### 34890#       发表于 2025-3-8 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609938&amp;ptid=2208921" target="_blank">YF29 发表于 2025-3-8 22:09</a>
+
+所以这个mujica2.0是建来干嘛的，只是编剧用来盖住五个神人的锁妖塔吗？
+
+该大小姐过家家的还是过家家，甚至 ...</blockquote>
+被说是大小姐过家家是因为和TWG沾了边啊，这次重组和TWG脱离关系了，已经不能算过家家了
+
