@@ -5581,3 +5581,75 @@ stage上的睦眼睛像是睦头的眼睛，嘴巴像莫头。
 
 好像和原作也没什么区别。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岬开斗  
+##### 34561#       发表于 2025-3-8 08:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67604078&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-3-8 08:45</a>
+【初华力作《香草祥子之歌》空降B榜！「Imprisoned XII」Mujica#10 插曲-哔哩哔哩】 https://b23.tv/8CH5AM ...</blockquote>
+评论区给我笑得头都掉了。
+神特么“初华抄笔记之最爱小橡皮”
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zhoujin8584  
+##### 34562#       发表于 2025-3-8 08:50
+
+我一直都是双死即HE的支持者。
+
+这集就是突出即使真小睦已经没了大家还愿意保你的命重组AM，配合你的自我欺骗只管你叫睦，但莫还是自己选择了死亡，也许是被喵梦的表白触动了对小睦的真情吧，微妙的三角，赴死前也解了喵梦的心魔，从此两不相欠了。
+
+*****
+
+####  6030sylar  
+##### 34563#       发表于 2025-3-8 08:53
+
+<img src="https://img.saraba1st.com/forum/202503/08/085234mjztc9ejimrwdvvn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (157.49 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-8 08:52 上传
+
+<img src="https://img.saraba1st.com/forum/202503/08/085243tieeekezv4el055m.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (41.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-8 08:52 上传
+
+工艺蛋：我们跑路了没想到吧
+
+
+*****
+
+####  syndrome2032  
+##### 34564#       发表于 2025-3-8 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67604099&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-3-8 08:53</a>
+工艺蛋：我们跑路了没想到吧</blockquote>
+游戏编剧应该能提前看到剧本吧。鸡团动画又不是现在才完成的。
+
+*****
+
+####  天空塔书记官  
+##### 34565#       发表于 2025-3-8 08:57
+
+意思是手游剧情有可能大改是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  一心而用  
+##### 34566#       发表于 2025-3-8 08:58
+
+卡片战斗先导者08
+<img src="https://p.sda1.dev/22/fa7d57d141434e670a29852d04d68faa/image.jpg" referrerpolicy="no-referrer">
+
