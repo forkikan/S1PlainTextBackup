@@ -7418,3 +7418,38 @@ Imprisoned XII的MV对比栞的MV，能看出Ave Mujica这乐队的设定有多�
 是不是因为祥子那套本质是量产型地雷妹套装，还是最水 ...</blockquote>
 不是衣服问题，而且当时大祥举止有点微妙，毕竟那时间点大祥已经是1年底层打工人了
 
+
+*****
+
+####  xyion  
+##### 34714#       发表于 2025-3-8 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67607228&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-8 16:08</a>
+
+我经历第10话live后已经接受鸡团就是这么一群人，所以就要这么搞音乐。
+
+大祥：自我中心任性妄为
+
+初华：好皮 ...</blockquote>
+有种说法是live同集但不同笼，各演各的
+
+*****
+
+####  一心而用  
+##### 34715#       发表于 2025-3-8 16:35
+
+初音：“小祥！小祥！”
+海铃：“这也算是重修旧好吧。”
+定治：“初音，别做这种不成体统的事。”
+<img src="https://p.sda1.dev/22/7a46c8034f38d7f8a1f4b5c0069edb56/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/48c4f11fa76c02f8a1677d73d34f367f/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  盐盐盐盐盐  
+##### 34716#       发表于 2025-3-8 16:37
+
+祥子衣服类似某宝几十块一身的廉价“学院千金风”服装（
+
+不过邦私服都挺土的，而且越少女的越土，月之森三个私服不是太成熟就是小学生，一点不像jk
+
