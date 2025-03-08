@@ -10288,3 +10288,11 @@ image.png
 
 —— 来自 vivo V2284A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  AvenueIII  
+##### 8224#       发表于 2025-3-9 02:15
+
+鹤卷gg这么有个人风格的监督想当绿叶啊
+
