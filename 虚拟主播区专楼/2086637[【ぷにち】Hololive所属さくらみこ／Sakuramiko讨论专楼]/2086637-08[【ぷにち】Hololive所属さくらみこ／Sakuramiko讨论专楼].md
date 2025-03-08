@@ -1834,3 +1834,36 @@ miko第一个表扬的是2K画质
 
 猛者，交通费是餐费的几十倍
 
+
+*****
+
+####  holofan  
+##### 10890#       发表于 2025-3-8 14:36
+
+<img src="https://img.saraba1st.com/forum/202503/08/143622eljh9k3hnh93voka.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (557.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-8 14:36 上传
+
+你TM才是这漫画的主角（确信
+
+*****
+
+####  holofan  
+##### 10891#       发表于 2025-3-8 19:22
+
+<img src="https://img.saraba1st.com/forum/202503/08/192157bou5prstku5qrgh5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (639.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-8 19:21 上传
+
+[https://x.com/saki_miyamoto/status/1898330925819363759](https://x.com/saki_miyamoto/status/1898330925819363759)
+
+还得是唯一指定coser
+
