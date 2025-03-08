@@ -6529,3 +6529,81 @@ MYGO时期黄瓜睦早已不在<img src="https://static.saraba1st.com/image/smil
 老企划有些东西根深蒂固了，老邦如果不是2.5老r人气太高，必须吊着，不然早放手了。2017年还是16年的游戏 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小心像LL那样，把所有手游都自爆了233
 
+
+*****
+
+####  南宮凝香  
+##### 34643#       发表于 2025-3-8 13:08
+
+手遊簡單
+
+雞活永不推主線
+
+就是海鈴暴食/當打手
+
+喵夢去拍視頻/拍戲
+
+初華Sumimi
+
+睦就種小黃瓜
+
+避重就輕總是能當正常人的
+
+*****
+
+####  江口夕  
+##### 34644#       发表于 2025-3-8 13:08
+
+ 本帖最后由 江口夕 于 2025-3-8 13:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67605681&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-3-8 13:03</a>
+小心像LL那样，把所有手游都自爆了233</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ll不就是带着脚链跳舞的鼻祖，花田玩不转何况柿本，玩ll就不要看二次元了，老实厨2.5。
+偶像大师那种打法才是最健康的，重心全在二次元，所有声优基本也跟着二次元人物走，二次元好了，2.5直接大口喝汤，直接给2.5戴上二次元人设滤镜，人也顺眼了。就像冬优子。人广告直接让冬优子顶上。你邦有这种角色么。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  北条早苗  
+##### 34645#       发表于 2025-3-8 13:09
+
+或许母鸡卡不挂在邦邦世界观会更好吧，但是我觉得狗的成功也正好是邦的世界观限制住了柿本和绫奈，不管如何闹麻了，狗的关键剧情节点都是用音乐推进的
+母鸡卡现在音乐已经成为附加的东西了，2.0启动也是大祥终于心死了，不再执着于她那可笑的自尊，终于开始决定肩负起别人的人生了，把5个神人拴在一起一辈子就是她玩弄了这么多人情感的惩罚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thisisaspider  
+##### 34646#       发表于 2025-3-8 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67605647&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-8 12:59</a>
+我觉得这样解读太早了。故事没完结。可能只是编排上不能展现。但也说的通，祥奉献一生的睦已经被莫杀死了 ...</blockquote>
+祥和muzimi的又爱又恨。被拆分表现了。祥和睦是互爱的。和莫是互恨的。表现初祥的不一致又是同一主题。
+
+*****
+
+####  cxj649  
+##### 34647#       发表于 2025-3-8 13:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实鸡团现在色仇大苦深，初音的病娇也那样
+
+大祥哈气的缘由其实已经解决，现在问题就破双人格而已
+
+大祥现在不管拉到，其他也就那样
+
+
+*****
+
+####  thisisaspider  
+##### 34648#       发表于 2025-3-8 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67605736&amp;ptid=2208921" target="_blank">北条早苗 发表于 2025-3-8 13:09</a>
+或许母鸡卡不挂在邦邦世界观会更好吧，但是我觉得狗的成功也正好是邦的世界观限制住了柿本和绫奈，不管如何 ...</blockquote>
+就算不在邦邦，原剧本的难度也不是他们能驾驭的。CCC这个难题他们就没处理好。
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 34649#       发表于 2025-3-8 13:13
+
+鸡怎么可能在手游里不推主线，好不容易攒到这么强又没什么其他大活儿的中之人肯定狠狠卖啊。反而是狗这里羊和鼓是真不缺你邦这口饭吃，青木也是明牌想圈一批自己的粉丝。
+
