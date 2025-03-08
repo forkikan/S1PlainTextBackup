@@ -5842,3 +5842,14 @@ CCC 和解結束了 -》 CCC再起
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  The_Ether_  
+##### 34581#       发表于 2025-3-8 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67604304&amp;ptid=2208921" target="_blank">間桐櫻 发表于 2025-3-8 09:44</a>
+
+這幾集下來日本那邊也是好評如潮嗎</blockquote>
+这集nico评分已经崩了
+
