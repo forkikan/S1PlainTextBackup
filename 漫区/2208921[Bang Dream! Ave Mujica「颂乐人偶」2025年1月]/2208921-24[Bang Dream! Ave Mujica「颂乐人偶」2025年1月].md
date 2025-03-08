@@ -7286,3 +7286,27 @@ Imprisoned XII的MV对比栞的MV，能看出Ave Mujica这乐队的设定有多�
 
 但轉角就發現只要她們多走兩步就有朋友等著接納她們
 
+
+*****
+
+####  ykyin09  
+##### 34705#       发表于 2025-3-8 16:03
+
+我都怀疑这个mv讲的是鸡的原案剧本<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  cxj649  
+##### 34706#       发表于 2025-3-8 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67607136&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-8 15:56</a>
+
+問題就是祥子根本沒需要選初華 
+
+編劇一方面要黑一方面又不敢黑</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">祥睦海都好说，出来走几步，前辈团和狗团会帮忙
+
+初音这人比较看不明白，社交意外很窄233
+
