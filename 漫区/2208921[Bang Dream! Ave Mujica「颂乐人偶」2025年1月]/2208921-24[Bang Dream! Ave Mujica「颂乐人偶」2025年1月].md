@@ -7476,3 +7476,21 @@ Imprisoned XII的MV对比栞的MV，能看出Ave Mujica这乐队的设定有多�
 
 素世女士这次真的是老年丧子了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 34719#       发表于 2025-3-8 16:52
+
+祥子私服和睦私服，还有kkr那法国青梅的私服，看着就感觉同模换色
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  真爱与热情  
+##### 34720#       发表于 2025-3-8 16:56
+
+大灯老师在两部动画里面就是纯纯的现人神，能拯救所有人的选手，总不能真的让大灯老师开音趴包饺子吧。好歹这片子叫mujica呢
+
