@@ -10006,3 +10006,30 @@ image.png
 
 牢修这个进入聊天室的画面看起来就拥有强大的nt能力
 
+
+*****
+
+####  虛無迴廊  
+##### 8206#       发表于 2025-3-8 15:09
+
+奇怪的是牢修本人到现在还没有出现过那种nt额头放电的画面吧
+
+*****
+
+####  psycho_Gadfly  
+##### 8207#       发表于 2025-3-8 15:11
+
+看了下今天舞台的repo 好像山下原来试音的是劳修 然而最后直接把エグザベ给他演了……
+
+另外导演正在密切关注SNS和p站(不知道看到某些赤绿会有何感想
+
+过会应该有完整翻译的吧
+
+<img src="https://img.saraba1st.com/forum/202503/08/151112bl01pk0mjwmq9hp0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_7715.jpeg</strong> (238.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-8 15:11 上传
+
