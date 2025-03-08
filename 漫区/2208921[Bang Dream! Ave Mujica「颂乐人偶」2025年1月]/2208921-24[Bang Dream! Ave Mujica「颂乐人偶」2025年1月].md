@@ -9767,3 +9767,105 @@ wsd能不能把幕后现场放出来，我单纯就想看staff在怎样的精神
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  K·os  
+##### 34922#       发表于 2025-3-8 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67610290&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-3-8 23:05</a>
+
+这话也就ring搞个小场live还不至于上大手，这点钱祥子打打工都能上。
+
+—— 来自 Xiaomi 23113RKC6C, Andro ...</blockquote>
+钱本身不是问题，这live卖票的
+
+但是ave相关的一系列版权问题
+
+喵姆和初华都是签约艺人不能就这么直接参与商演
+
+等等
+
+总之，你敢违抗拥有丰川姓的我吗
+
+*****
+
+####  江口夕  
+##### 34923#       发表于 2025-3-8 23:07
+
+ 本帖最后由 江口夕 于 2025-3-8 23:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67610301&amp;ptid=2208921" target="_blank">K·os 发表于 2025-3-8 23:06</a>
+钱本身不是问题，这live卖票的
+
+但是ave相关的一系列版权问题</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">上次就没什么违约不违约，就场地费拍拍屁股走人，你指望这次来跟你扯这个。指望武士道和柿本知道补这方面细节想太多了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  K·os  
+##### 34924#       发表于 2025-3-8 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67610307&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-3-8 23:07</a>
+
+上次就没什么违约不违约，就场地费拍拍屁股走人，你指望这次来跟你扯这个
+
+—— 来自 Xiaomi 23113RKC6C, ...</blockquote>
+所以，我才说，你一旦接受了祥子在无知觉的利用丰川家遨游，这些大人问题就都是小事
+
+*****
+
+####  الطائر  
+##### 34925#       发表于 2025-3-8 23:09
+
+“三角定治，汝不过是为了让我丰川祥子降生于人间的垫脚石罢了。”
+
+*****
+
+####  aptx8285144  
+##### 34926#       发表于 2025-3-8 23:10
+
+话说楼里还有认为老登”可能不知道“母鸡卡复活，但是我刚才确认了一下，那宣布日期门票的广告是打在<strong>建筑物外面</strong>的，这要是不知道或不允许情况下复活，那老登还当啥财阀<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  adretyu67.  
+##### 34927#       发表于 2025-3-8 23:13
+
+老登的问题是为什么非等到live完才跑出来劝退。
+
+可能这就是工具人黑手吧。
+
+*****
+
+####  cxj649  
+##### 34928#       发表于 2025-3-8 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67610288&amp;ptid=2208921" target="_blank">K·os 发表于 2025-3-8 23:04</a>
+
+那是一回事吗，大家都哥们</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以说大祥对狗团（含爱音）的好感度现时间比鸡团的4人高很多233
+
+*****
+
+####  aptx8285144  
+##### 34929#       发表于 2025-3-8 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67610342&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-8 23:13</a>
+
+老登的问题是为什么非等到live完才跑出来劝退。
+
+可能这就是工具人黑手吧。 ...</blockquote>
+他也”只是“叫初音回家吧，也没让母鸡卡解散啥的
+
+*****
+
+####  是谁的书画  
+##### 34930#       发表于 2025-3-8 23:16
+
+只能说是成熟男人的气度吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+保护家人，解决烂事，都兜底完了再来说自己的事，鉴啊
+
