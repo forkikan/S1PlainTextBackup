@@ -9060,3 +9060,57 @@ B站看了几个剪辑，初祥的定位就是，没有任何双向感情的CP�
 
 你只不过是失去了一条生命，祥子呢，她向你道歉了
 
+
+*****
+
+####  滑稽Captain  
+##### 34856#       发表于 2025-3-8 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67608969&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-8 19:50</a>
+
+睦的问题上，神人主创们已经想把家庭和大象都洗白了（或者说主观上想洗白），大象就不说了，她妈妈没提过去 ...</blockquote>
+因为睦妈根本不觉得睦是病理性的异常，她只是对演技天才感到畏惧
+
+*****
+
+####  凉良  
+##### 34857#       发表于 2025-3-8 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609434&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-8 20:52</a>
+
+大祥还是好好想想海岛铁人三项准备给初华的台词吧。
+
+她组鸡团的原始资本就是睦头和初华。睦头已经不会回来 ...</blockquote>
+可是现在是其他人架着祥子搞鸡团啊  
+
+*****
+
+####  aptx8285144  
+##### 34858#       发表于 2025-3-8 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609438&amp;ptid=2208921" target="_blank">油画布 发表于 2025-3-8 20:52</a>
+
+其实见到过一些 还有 这一页也有（</blockquote>
+现在好像连战吧发飙的人也越来越多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一心而用  
+##### 34859#       发表于 2025-3-8 21:24
+
+<img src="https://p.sda1.dev/22/6d8b8944ce3ae05ad09980f6bd5105b5/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 34860#       发表于 2025-3-8 21:24
+
+ 本帖最后由 adretyu67. 于 2025-3-8 21:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609637&amp;ptid=2208921" target="_blank">凉良 发表于 2025-3-8 21:19</a>
+
+可是现在是其他人架着祥子搞鸡团啊</blockquote>
+大猫领着初华冲家前大祥老师就在看imprisoned xii的歌词了
+
+准确来说是需要一个搞鸡团的诱因，或者说借口。
+
