@@ -7154,3 +7154,19 @@ ave剧本爆炸和是不是邦世界观没有任何关系，重点在于想不�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  半年  
+##### 34699#       发表于 2025-3-8 15:03
+
+<img src="https://img.saraba1st.com/forum/202503/08/150327c94uc4p39ubcrbx6.jpg" referrerpolicy="no-referrer">
+
+<strong>GlfjHRYbgAAqtQ2.jpg</strong> (127.21 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-8 15:03 上传
+
+[https://x.com/kimino107/status/1898235558817853633/photo/1](https://x.com/kimino107/status/1898235558817853633/photo/1)
+
