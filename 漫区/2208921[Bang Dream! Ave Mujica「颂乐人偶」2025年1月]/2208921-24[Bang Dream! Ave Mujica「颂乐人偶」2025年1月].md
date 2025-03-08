@@ -6037,3 +6037,65 @@ note上倒是一直有一些批评，这次是“铁血”水平
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  adretyu67.  
+##### 34598#       发表于 2025-3-8 11:07
+
+把鸡的人偶小剧场设定逆移植进动画剧情。
+
+完蛋，那大家的确都是拟人了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 34599#       发表于 2025-3-8 11:08
+
+迪亚波罗和托比欧都死了，活着的是不会死的粉色霉斑章鱼，睦说不定在大家不知道的角落不断循环死了活活了死呢
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  半年  
+##### 34600#       发表于 2025-3-8 11:11
+
+<img src="https://img.saraba1st.com/forum/202503/08/111145ij8mjfgodex0880a.jpg" referrerpolicy="no-referrer">
+
+<strong>GlZnVLiW0AAz1VT.jpg</strong> (383.27 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-8 11:11 上传
+
+[https://x.com/uikaposting/status/1897817912083153372/photo/1](https://x.com/uikaposting/status/1897817912083153372/photo/1)
+
+
+*****
+
+####  MASKA-1  
+##### 34601#       发表于 2025-3-8 11:12
+
+祥子的迟钝，从古神睦变化到吉他睦都没察觉，睦莫台上融合发现吉他出声的是海铃和凛凛子，睦再变又如何，照样迟钝<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  与太郎  
+##### 34602#       发表于 2025-3-8 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67604665&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-3-8 10:50</a>
+
+铁血其实Nico评分并不算很低。。。
+
+引爆舆论的其实是团长后面的三明惨死和三流驾驶员访谈的补刀。</blockquote>
+我看这个人的意思就是接下来可能铁血化（但仍有挽回的余地）
+
+*****
+
+####  adretyu67.  
+##### 34603#       发表于 2025-3-8 11:14
+
+ep10live后的祥子不见得是迟钝，应该是根本无所谓了。
+
