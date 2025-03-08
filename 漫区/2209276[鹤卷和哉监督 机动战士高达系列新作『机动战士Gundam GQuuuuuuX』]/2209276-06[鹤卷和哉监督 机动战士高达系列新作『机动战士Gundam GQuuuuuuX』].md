@@ -9892,3 +9892,38 @@ image.png
 
 <img src="https://img.saraba1st.com/forum/202503/08/140152elu294lvty9tr4re.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gamedreamer  
+##### 8198#       发表于 2025-3-8 14:07
+
+那谁变鬼呢。<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  RE㐅ia  
+##### 8199#       发表于 2025-3-8 14:09
+
+<blockquote>gamedreamer 发表于 2025-3-8 14:07
+那谁变鬼呢。
+
+—— 来自 鹅球 v3.3.96</blockquote>
+当然是还没开播就成了牢子辈的那个（
+
+*****
+
+####  纪寞  
+##### 8200#       发表于 2025-3-8 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67606278&amp;ptid=2209276" target="_blank">gamedreamer 发表于 2025-3-8 14:07</a>
+
+那谁变鬼呢。
+
+—— 来自 鹅球 v3.3.96</blockquote>
+真是这剧情，那人选不明摆着的吗<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+但感觉应该不是变鬼，应该不是死去这种
+

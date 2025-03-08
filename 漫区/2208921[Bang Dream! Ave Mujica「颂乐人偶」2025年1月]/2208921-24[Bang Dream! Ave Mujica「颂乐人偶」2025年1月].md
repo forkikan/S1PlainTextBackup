@@ -6930,3 +6930,79 @@ MYGO时期黄瓜睦早已不在<img src="https://static.saraba1st.com/image/smil
 还在祥子魅魔，她四条舔狗里soyo已经出脑了，睦和初华是从小培养的感情，灯也不是满脑子想着祥子过日子的。 ...</blockquote>
 灯也亏不在鸡团，否则也要变得更加舔狗，而鸡团甚至可以让人变成鬼<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 34678#       发表于 2025-3-8 14:06
+
+吉他睦和mortis本来就是若叶睦本体（脑内小剧场窗后巨大黑影）的工具而已，分场合使用，用不上了就收回去。本质上和泰伦虫族一样。
+
+*****
+
+####  半年  
+##### 34679#       发表于 2025-3-8 14:07
+
+<img src="https://p.sda1.dev/22/9f2343890b328613c1fe3835b9865049/GlbhuZOa8AAHtRV.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/ansdj8181/status/1897952749679190491/photo/1](https://x.com/ansdj8181/status/1897952749679190491/photo/1)
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 34680#       发表于 2025-3-8 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67606264&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-8 14:06</a>
+
+灯也亏不在鸡团，否则也要变得更加舔狗，而鸡团甚至可以让人变成鬼</blockquote>
+灯只是看上去自闭，实际非常有主见，被逼急了是鸡狗10个人里行动力可能仅次爱音的第二强，而且她写歌就是要表达自己内心的呐喊，总之是没办法做祥子的木偶的，何况她是祥子真正的白月光。灯在鸡团祥子根本闹不起来。
+
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 34681#       发表于 2025-3-8 14:11
+
+鸡团炸了5个人全员自闭，狗团炸了灯可以跑去ring尬念诗朗诵，精神力强度怎么比啊。
+
+*****
+
+####  aptx8285144  
+##### 34682#       发表于 2025-3-8 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67606301&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-3-8 14:09</a>
+
+灯只是看上去自闭，实际非常有主见，被逼急了是鸡狗10个人里行动力可能仅次爱音的第二强，而且她写歌就是 ...</blockquote>
+以母鸡卡剧情的混乱，灯最多是拒绝服从大祥的傲慢，要想修正大祥，太难了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  半年  
+##### 34683#       发表于 2025-3-8 14:12
+
+<img src="https://img.saraba1st.com/forum/202503/08/141226vqvqwxv3cicee5ic.jpg" referrerpolicy="no-referrer">
+
+<strong>Glc8x0iXcAAd4AI.jpg</strong> (175.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-8 14:12 上传
+
+[https://x.com/Advenberries/status/1898052880856207390/photo/1](https://x.com/Advenberries/status/1898052880856207390/photo/1)
+
+*****
+
+####  半年  
+##### 34684#       发表于 2025-3-8 14:13
+
+<img src="https://img.saraba1st.com/forum/202503/08/141315dkespwkqqwwky4s2.jpg" referrerpolicy="no-referrer">
+
+<strong>GlcvarzaUAA77hy.jpg</strong> (269.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-8 14:13 上传
+
+[https://x.com/MILFCOOKIESIMP/status/1898037915537883277/photo/1](https://x.com/MILFCOOKIESIMP/status/1898037915537883277/photo/1)
+
