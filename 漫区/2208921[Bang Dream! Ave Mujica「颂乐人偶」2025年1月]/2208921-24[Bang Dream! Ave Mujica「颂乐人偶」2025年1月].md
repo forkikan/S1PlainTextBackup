@@ -8508,3 +8508,185 @@ Soyo： 莫是養女， 睦是凡事搞對抗的同學
 
 剧情合理在哪，这里面只有纯粹的框架算是初具人形，肉和皮都是稻草，怎么算是人类呢
 
+
+*****
+
+####  江口夕  
+##### 34806#       发表于 2025-3-8 20:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">老实说这个时间点，吉他睦都没了，攻击大祥还有啥意义，大祥最对不起的是吉他睦。其他人也就那样吧，现在要道歉向谁道歉，给素世还是给观众？
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  凉良  
+##### 34807#       发表于 2025-3-8 20:36
+
+脱离了吗 这消极负面的内核他也不敢真的写透彻了 
+
+*****
+
+####  aptx8285144  
+##### 34808#       发表于 2025-3-8 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609240&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-3-8 20:27</a>
+
+所以柿本根本不知道怎么拿捏角色对应，只会样板戏，整了个二重人格，一些人对待太儿戏，时有时无毫无逻辑 ...</blockquote>
+之前猫猫都能看出是莫女士而不是吉他睦，这话也没啥表现了，反正都是蚀本这群神人决定什么时候发威<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 34809#       发表于 2025-3-8 20:38
+
+不是强行融入邦邦的框架，是根本没有融入邦邦的框架，邦的逻辑是用音乐来展开故事，描述人物关系和完善人物弧光，想写关系不好的乐队可以啊，让五个人在舞台上用乐器打架都比现在这样更像邦邦
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  是谁的书画  
+##### 34810#       发表于 2025-3-8 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609283&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-8 20:33</a>
+
+看访谈反而是强行融入邦邦框架，但你这么说也没问题。毕竟原案没有写完就等于废案。 ...</blockquote>
+我根本就不相信所谓WSD会说让他们做一个完全无关系的乐队动画，还是二偶企划。WSD有那个资本吗。
+
+不如说是想在邦邦的框架下做出不同的东西，结果只思考到“人物要标新立异，乐队不krkr“的阶段
+
+*****
+
+####  江口夕  
+##### 34811#       发表于 2025-3-8 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609280&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-8 20:32</a>
+愛音： 跟睦的接觸只有一句謝謝
+
+樂奈： 誰？
+
+燈： 我是一隻小企鵝</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">爱猫不谈，剩下三个你想表达啥，先别说组过乐队吧，哪怕不熟的同班同学说什么跳楼了也得给个反应
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  ape-apple  
+##### 34812#       发表于 2025-3-8 20:39
+
+B站看了几个剪辑，初祥的定位就是，没有任何双向感情的CP，更衣室池沼表白那一段，祥子甚至连厌恶的表情都没有，完全彻底的机械回应，甚至还是回应的🐔团整体，这真现实
+
+*****
+
+####  DeltaStriker  
+##### 34813#       发表于 2025-3-8 20:39
+
+感觉不如请除了爱音和芭菲猫以外的8个人revue能更快治好这8个人的病
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  6030sylar  
+##### 34814#       发表于 2025-3-8 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609278&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-3-8 20:32</a>
+
+其实观众现在还在潜意识想让大祥认错，亲口说：对不起
+
+观众这气还没出233 ...</blockquote>
+大祥所长：睦头的身体会变成这样是我的责任，但是我不会道歉
+
+*****
+
+####  cxj649  
+##### 34815#       发表于 2025-3-8 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609302&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-3-8 20:36</a>
+
+老实说这个时间点，吉他睦都没了，攻击大祥还有啥意义，大祥最对不起的是吉他睦。其他人也就那样吧，现在要 ...</blockquote>
+所以说这集其实最搞就是观众晕了233
+
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 34816#       发表于 2025-3-8 20:41
+
+同事跟你表白你又不能离职也不能开除同事那还能怎么样，这事儿我真遇到过，不过不是我本人。
+
+*****
+
+####  油画布  
+##### 34817#       发表于 2025-3-8 20:41
+
+觉得剧情合理剧本就合格了就是最不专业的理解，剧本最重要的是感情共鸣，感情上打动不了观众才会在逻辑上挑刺
+
+*****
+
+####  是谁的书画  
+##### 34818#       发表于 2025-3-8 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609325&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-3-8 20:38</a>
+
+不是强行融入邦邦的框架，是根本没有融入邦邦的框架，邦的逻辑是用音乐来展开故事，描述人物关系和完善人物 ...</blockquote>
+原来今年的邦邦是摇滚乃淑女之嗜好啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 34819#       发表于 2025-3-8 20:41
+
+大祥這當事人都沒反應了
+
+還在問為什麼其他人沒反應？
+
+*****
+
+####  钦念以忱  
+##### 34820#       发表于 2025-3-8 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609302&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-3-8 20:36</a>
+
+老实说这个时间点，吉他睦都没了，攻击大祥还有啥意义，大祥最对不起的是吉他睦。其他人也就那样吧，现在要 ...</blockquote>
+坑大祥最狠的也是睦头搞出来的mortis人格，认睦墨一体论的话，那就是两个大小姐玩过家家玩爽了，把大家都给玩晕了
+
+认双重人格的话，就是祥子、吉他睦、Mortis三死
+
+*****
+
+####  天空塔书记官  
+##### 34821#       发表于 2025-3-8 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609356&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-8 20:41</a>
+原来今年的邦邦是摇滚乃淑女之嗜好啊</blockquote>
+没记错的话，那部要网盘见了<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  cxj649  
+##### 34822#       发表于 2025-3-8 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609358&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-8 20:41</a>
+
+坑大祥最狠的也是睦头搞出来的mortis人格，认睦墨一体论的话，那就是两个大小姐玩过家家玩爽了，把大家都 ...</blockquote>
+大莫老师等于杀3人了
+
+虽然观众：似得好（
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  影伴光生  
+##### 34823#       发表于 2025-3-8 20:44
+
+mujica随便写点像是正片猫莫/海希这种程度的其他多人互动蒙混过关就行，非要追求一些看似深刻的主题然后崩坏了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

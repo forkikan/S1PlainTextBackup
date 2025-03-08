@@ -3246,3 +3246,14 @@ Switch版1代洛克兰村的赌钱SL作弊大法是不是给修了？测试了�
 我不知是不是一开始太快点错了，没领到这个特典（好像还有封印球…）
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  火红之眼  
+##### 349#       发表于 2025-3-8 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67605579&amp;ptid=2090186" target="_blank">xyzchaos 发表于 2025-3-8 12:49</a>
+
+不知道二代的推门bug还在不在</blockquote>
+PSP版就修了
+
