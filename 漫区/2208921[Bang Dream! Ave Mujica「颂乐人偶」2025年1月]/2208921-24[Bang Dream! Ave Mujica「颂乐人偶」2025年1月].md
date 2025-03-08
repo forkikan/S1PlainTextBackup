@@ -7806,3 +7806,97 @@ mygo怎么样都无所谓了，光速退场意思就是跑了算了，市一老�
 
 说白了还是编剧监督制作得垃圾，迫害绯玛丽和彩彩时，其他两队队友的表现就和mygo这群人的表现不一样，大家打个哈哈就过去了，mujica里只给负面印象，没给一点正面塑造是真的神经
 
+
+*****
+
+####  thisisaspider  
+##### 34748#       发表于 2025-3-8 19:28
+
+我还是觉得这东西是独角兽的大纲。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+从写人物角色，转变为以故事为重的剧本，加上以这个主题为核心描写确实是业界少有的。
+
+导致编剧团队的能力+演出镜头配乐水平全面下滑。结果就是灾难级动画。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 34749#       发表于 2025-3-8 19:28
+
+實際上就是這部已經爛到連角色表情跟小動作也控制不了了
+
+像十話的大撤退，
+
+正常來說退場時該給個點頭示意告別的動作的
+
+結果整得像大逃亡一樣
+
+至於表情， 基本上三人在場，不說話的那個只能擺出小嘴微張的痴呆樣子
+
+
+*****
+
+####  thisisaspider  
+##### 34750#       发表于 2025-3-8 19:30
+
+确实很没礼貌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 34751#       发表于 2025-3-8 19:30
+
+柿本就是菜，祥子这典型恶役大小姐前段时间这么流行，该怎么拍，大把能抄，
+
+而且沿着mygo写好的继续写下去就是，加什么双重人格，剧本节点全乱了，还要压缩其他的戏份，该长不长该短不短，人物情感转折拍出来就很生硬突兀
+
+*****
+
+####  aptx8285144  
+##### 34752#       发表于 2025-3-8 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67608830&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-8 19:30</a>
+
+确实很没礼貌</blockquote>
+不过被鸡团神人们折磨到现在，我的感受竟然是赶紧溜走，go团溜得好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  航母掉头  
+##### 34753#       发表于 2025-3-8 19:32
+
+说起来，初华和祥处感情有那么好么，一句话不说就答应来银河战舰组团，又让祥处用她的名义去勾引大喵老师的可是牢音不是初华
+
+虽然牢音不厚道馋祥处身子，但是也没看到祥处要特意去找初华同居这么离谱的选择必要性把
+
+*****
+
+####  天空塔书记官  
+##### 34754#       发表于 2025-3-8 19:32
+
+真想写好故事，就不会丢一句“没什么特别的过去”出来了，摆明了就是只想挖坑，不想填坑<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 34755#       发表于 2025-3-8 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67608822&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-8 19:28</a>
+
+實際上就是這部已經爛到連角色表情跟小動作也控制不了了
+
+像十話的大撤退，</blockquote>
+其实这里有一种看够了闹剧后，赶紧走人的疲倦感<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thisisaspider  
+##### 34756#       发表于 2025-3-8 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67608846&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-8 19:32</a>
+
+不过被鸡团神人们折磨到现在，我的感受竟然是赶紧溜走，go团溜得好</blockquote>
+就是出戏了，演成这样真没什么代入感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
