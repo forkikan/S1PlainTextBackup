@@ -3695,3 +3695,13 @@ MARK,看见群友在整这个了……
 
 老哥们，开荒选哪个难度
 
+
+*****
+
+####  莫名奇妙封ID  
+##### 326#       发表于 2025-3-8 20:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67608849&amp;ptid=2246453" target="_blank">红魔馆的糖 发表于 2025-3-8 19:32</a>
+老哥们，开荒选哪个难度</blockquote>
+默认 0 难度就好了，战斗就是个添头，主要玩的是地图探索。
+

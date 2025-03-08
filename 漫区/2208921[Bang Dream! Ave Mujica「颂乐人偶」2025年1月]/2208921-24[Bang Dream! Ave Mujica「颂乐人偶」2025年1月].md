@@ -8009,3 +8009,114 @@ mygo怎么样都无所谓了，光速退场意思就是跑了算了，市一老�
 
 还有差分
 
+
+*****
+
+####  DeltaStriker  
+##### 34766#       发表于 2025-3-8 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67608965&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-8 19:50</a>
+鸡目前正式出现的5个家长
+
+老登：标准封建大家长，疑似管不住裤裆</blockquote>
+海铃妈这都能被挑刺的吗……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  南宮凝香  
+##### 34767#       发表于 2025-3-8 19:57
+
+<blockquote>6030sylar 发表于 2025-3-8 19:51
+还有差分</blockquote>
+我球球他P一下圖吧
+
+把立希移到燈右邊 跟愛音平行
+
+再把Soyo 拉到圖左跟貓對應的位置有那麼難嗎？
+
+*****
+
+####  玖羽  
+##### 34768#       发表于 2025-3-8 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67608969&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-8 19:50</a>
+
+睦的问题上，神人主创们已经想把家庭和大象都洗白了（或者说主观上想洗白），大象就不说了，她妈妈没提过去 ...</blockquote>
+这个问题都轮多久了，不是说带去看医生马上就能确诊马上就能治，复杂精神病光是确诊就要花好几年
+
+再说，就算看过医生，美奈美没必要向喵梦说得那么细，其实已经说的这些都是不该说的
+
+*****
+
+####  aptx8285144  
+##### 34769#       发表于 2025-3-8 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67608971&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-8 19:50</a>
+
+當看到祥子面對莫老師說睦頭死了倒地大哭的反應是毫無動作， 面無表情，
+
+你就知道這動畫已經爛完了 ...</blockquote>
+这里我甚至是看完以后才意识到这里好像不对劲<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  adretyu67.  
+##### 34770#       发表于 2025-3-8 20:00
+
+ 本帖最后由 adretyu67. 于 2025-3-8 20:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67609002&amp;ptid=2208921" target="_blank">DeltaStriker 发表于 2025-3-8 19:57</a>
+
+海铃妈这都能被挑刺的吗……
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+海妈的造型+厌恶应该是暗示过海铃有过一段小胖妹时间并且因此可能被歧视过。
+
+*****
+
+####  梅杜莎  
+##### 34771#       发表于 2025-3-8 20:00
+
+哎呦，刚反应过来，道德绑架对祥子是真好使，那当年Soyo出招没有错，难怪她觉得自己本来能hold住<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 34772#       发表于 2025-3-8 20:01
+
+我转生了，35岁乐队解散一事无成最后饿晕在大马路上，被刹车不及的大运轻轻碾过之后再一睁眼竟是满眼月光。
+
+书桌上笔记本的便签让我起这个身体曾经的过去。这是我记忆中十年前的一部动画，制作稀烂遭人唾弃，从此系列一蹶不振再无讯息。
+
+现在我转生到这个故事主人公恶役大小姐的身体里。
+
+突然耳边传来系统的声音 ”拯救mujica的未来并保证身体的纯洁，你将获得重新开始人生的机会。”
+
+坐在钢琴面前，看向手机中的歌词也只感觉心里的冷汗直流。可是手指触及键盘的感觉还是让我做下决断。
+
+既然无法支配前世的命运落得如此结局，那这一次重新来过我将会拯救这另一个世界中即将破碎的未来。
+
+*****
+
+####  油画布  
+##### 34773#       发表于 2025-3-8 20:01
+
+<blockquote>thisisaspider 发表于 2025-3-8 19:41
+我是坚定拒绝分锅。不过有柿本透露过有些是自己的点子。那这部分最后没法好或者占用别的内容的篇幅。锅肯 ...</blockquote>
+
+mujica到第十集我的观感就是专业不专业感混杂，它最不专业的部分体现在总是抓不到关键矛盾，无论是从go延续下来的角色矛盾和观众期待展开的矛盾都抓不到，导致故事内容比重失调等一系列低级错误。这种沉浸在自己世界里自我感动的剧本说是外行管内行的结果我是相信的。如果要大篇幅添改设定，把独角兽踢出去了也应该再找个能统筹把关的专业编剧，柿本很显然这没能力
+
+*****
+
+####  钦念以忱  
+##### 34774#       发表于 2025-3-8 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67608833&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-3-8 19:30</a>
+
+柿本就是菜，祥子这典型恶役大小姐前段时间这么流行，该怎么拍，大把能抄，
+
+而且沿着mygo写好的继续写下去 ...</blockquote>
+恶役大小姐不多是堆砌刻板印象么，有什么描写的很好作品也很好的推荐推荐？就那种真的把世家大族看不起平民刻画出来的。
+
