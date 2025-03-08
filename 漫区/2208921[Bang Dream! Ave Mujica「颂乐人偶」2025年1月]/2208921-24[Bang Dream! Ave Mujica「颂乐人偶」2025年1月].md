@@ -9441,3 +9441,36 @@ b版这直球一点都不含蓄不说，还丢了这个三连排比的情感递�
 该大小姐过家家的还是过家家，甚至 ...</blockquote>
 被说是大小姐过家家是因为和TWG沾了边啊，这次重组和TWG脱离关系了，已经不能算过家家了
 
+
+*****
+
+####  cazedor  
+##### 34891#       发表于 2025-3-8 22:28
+
+[https://www.bilibili.com/video/BV1aL92YoESR](https://www.bilibili.com/video/BV1aL92YoESR) 初音写的这小黄歌给圆焰真的刚刚好啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YF29  
+##### 34892#       发表于 2025-3-8 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67610024&amp;ptid=2208921" target="_blank">wangh 发表于 2025-3-8 22:25</a>
+
+被说是大小姐过家家是因为和TWG沾了边啊，这次重组和TWG脱离关系了，已经不能算过家家了 ...</blockquote>
+
+目前来看第十集没有哪里说明脱离TGW了。
+
+聊剧透反白：
+聊剧透的话，就是TGW从来就没下过。
+
+*****
+
+####  K·os  
+##### 34893#       发表于 2025-3-8 22:32
+
+对待睦的反应这点上，说实话，不管睦到底是怎么个双重人格法，真信双重人格这套的角色估计只有祥子，祥子和吉他睦太熟了导致了她特别应激，mygo众说到头其实都没接触过几次莫提斯没啥实感，喵姆基本上是不信的，海铃无所谓，属于实用主义
+
+ave是第一部在剧情结构上完全不同的邦多利动画，mygo你可以视为邦一期的promax版
+
+现在看来邦多利这套老班底显然并不适应搭一个新框架来讲好故事
+
