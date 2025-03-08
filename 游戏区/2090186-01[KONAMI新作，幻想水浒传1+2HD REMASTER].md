@@ -3173,3 +3173,15 @@ SB KONAMI又锁区了？之前打折时候买了进库，能进商店页面。�
 
 Switch版1代洛克兰村的赌钱SL作弊大法是不是给修了？测试了一下退出读档，每次杯子里的金币位置都不一样了
 
+
+*****
+
+####  航站楼  
+##### 342#       发表于 2025-3-8 12:16
+
+3dm找了份旧版的攻略，对照着打通了1没啥问题。
+
+通过网盘分享的文件：幻想水浒传1&amp;2 旧版攻略.rar
+
+链接: [https://pan.baidu.com/s/1S0EXUz5gIoaoMwSf3Ud5wQ?pwd=644c](https://pan.baidu.com/s/1S0EXUz5gIoaoMwSf3Ud5wQ?pwd=644c) 提取码: 644c 
+

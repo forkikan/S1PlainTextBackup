@@ -6188,3 +6188,24 @@ ave母鸡卡→pjsk
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  adretyu67.  
+##### 34611#       发表于 2025-3-8 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67605081&amp;ptid=2208921" target="_blank">shinoverse 发表于 2025-3-8 11:52</a>
+
+我最后期待的谜底有两个，一个是大祥是不是真的要铁人三项，二是这之后的若叶睦会不会成为下一个“唐舞桐 ...</blockquote>
+问题是回忆啥呢。。。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  烂片雷达  
+##### 34612#       发表于 2025-3-8 12:12
+
+看来祥子和真初华同居确实不会影响和其他人的关系性了
+
+根据种种线索推测初华·真大概率体弱多病卧床不起，祥子和她一起住的目的是出于同情想要照料她，和其他几个soulmate还是不一样的
+
