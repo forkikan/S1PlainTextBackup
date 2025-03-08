@@ -9948,3 +9948,39 @@ wsd能不能把幕后现场放出来，我单纯就想看staff在怎样的精神
 
 不料一進去就聽到豐川初音香草豐川祥子
 
+
+*****
+
+####  aptx8285144  
+##### 34938#       发表于 2025-3-8 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67610417&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-8 23:25</a>
+
+艺人身份参与livehouse演出和鸡团ip这种现实因素很重的东西应该会直接略过了。
+
+重点是海岛铁人三项</blockquote>
+那大象能组母鸡卡怎么看都需要老登起码默许甚至可能是支持才合理（丰川家的姓名），结果反手又为私生活去斗老登，这感觉好魔幻<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cxj649  
+##### 34939#       发表于 2025-3-8 23:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次人少了
+
+<img src="https://img.saraba1st.com/forum/202503/08/233244tyz4sqwr89y5sa8p.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (78.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-8 23:32 上传
+
+*****
+
+####  adretyu67.  
+##### 34940#       发表于 2025-3-8 23:36
+
+直接少了500人，第9话有那么劝退吗。我还以为到第9话干脆都放弃思考了。
+
