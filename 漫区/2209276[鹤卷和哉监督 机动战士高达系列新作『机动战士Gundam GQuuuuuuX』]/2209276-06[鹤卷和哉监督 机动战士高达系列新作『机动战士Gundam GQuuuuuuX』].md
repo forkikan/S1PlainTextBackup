@@ -10277,3 +10277,14 @@ image.png
 诚哥 ...</blockquote>
 00好像是日升不给做啊
 
+
+*****
+
+####  hosilly  
+##### 8223#       发表于 2025-3-9 01:48
+
+要不鹤卷哥哥帮忙带带锦织哥哥？
+或者看看斋藤押山这些年轻有为的导演？
+
+—— 来自 vivo V2284A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
