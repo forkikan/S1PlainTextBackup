@@ -11897,3 +11897,17 @@ bang23的ppp的香澄不就很卡里斯马。虽然我不太喜欢邦高祖的�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  江口夕  
+##### 35113#       发表于 2025-3-9 20:13
+
+ 本帖最后由 江口夕 于 2025-3-9 20:15 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">上几个写成功的精神病都是游戏，素晴日chaoschild。致郁的片子非大团圆的也多了去了
+动画注定篇幅不够外加水平不行就是灾难。
+睦莫其实可以写的很好，路线还是很清晰的，有这个live演出明明是事半功倍的事情，实在太可惜了。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
