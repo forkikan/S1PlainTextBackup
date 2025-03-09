@@ -10667,3 +10667,44 @@ https://x.com/youri_you_ri/status/1898351139277717518
 
 2025-3-9 21:31 上传
 
+
+*****
+
+####  刺客ares  
+##### 8253#       发表于 2025-3-9 21:45
+
+<img src="https://img.saraba1st.com/forum/202503/09/214231j7bgguuzdpmangpk.png" referrerpolicy="no-referrer">
+
+<strong>捕获.PNG</strong> (47.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-9 21:42 上传
+
+首席哥被捕时的记录卡，GQX和红高达撞入side6的日期是UC0085.06.08
+
+剧场版开头发生在六月八号夜里，后半主角团相遇和军团战是六月九号一天的时间
+
+*****
+
+####  Steel.Haze  
+##### 8254#       发表于 2025-3-9 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67615228&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-3-9 19:51</a>
+
+83哪来可以直接塞进高达里还可以不改变整机尺寸的无线塞可缪系统，更别说79了，而且到 新安洲/独角兽 之前 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202503/09/214252l1l6z6ra3cvrqlnq.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (411.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-9 21:42 上传
+
+哈曼的精神力感应大魔，也是用和红高达一样的大型Bit。不过其Bit不是外挂，另外有独立飞行舱室收纳。这玩意80年就在实战。实际上79末期就有了。
+
+艾美号巨大是因为其那一打大型Bit全是内置的，在机体内的坞仓，外加面多加水水多加面的粒子炮和更大推进装置。
+
+79年塞在MS里面的精神力装置可不少，不过都是那种线控的试验机为主。硬凑一下，加上GUQ的科技树高一点。原典79的无线精神力控制器塞到高达也不是不能。
+

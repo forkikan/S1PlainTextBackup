@@ -163,3 +163,11 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">草今天一打开游戏发现衣服表情啥的全变默认了，这也就算了怎么steam好友也全消失了
 
+
+*****
+
+####  FLZB  
+##### 5847#       发表于 2025-3-9 21:42
+
+沟槽的挂比改经验直接给我一口气升了10级，起飞退出跳结算，下一把才发现不对劲，防不胜防<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

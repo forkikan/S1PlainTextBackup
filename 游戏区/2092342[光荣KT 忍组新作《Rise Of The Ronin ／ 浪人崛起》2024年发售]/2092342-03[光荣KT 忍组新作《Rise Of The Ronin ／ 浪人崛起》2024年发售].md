@@ -65,3 +65,20 @@ pc优化又爆炸了吗<img src="https://static.saraba1st.com/image/smiley/face2
 
 ucg说的是笔记本残血版30702k中等画质可以60帧，贴吧有人4060dlss平衡，默认画质（不知道是怎么样的）大部分可以60，雪地加火会掉到50
 
+
+*****
+
+####  Sopp  
+##### 3409#       发表于 2025-3-9 21:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">传统优化呗
+
+仁王2和卧龙一开始优化也是屎
+
+*****
+
+####  ネロ  
+##### 3410#       发表于 2025-3-9 21:43
+
+幽默忍组，反正起源一出，现在是没法甩锅引擎了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
