@@ -11008,3 +11008,56 @@ soyo（am ep10 ver.）：这个（大象老师） 不需要了
 但难绷的是在场外无论访谈还是声优线下营业都见不到一点卖喵睦的意思，都是素睦和睦祥 ...</blockquote>
 可能是被要求保密了吧，连透喵睦的舅舅都没有
 
+
+*****
+
+####  595505568  
+##### 35030#       发表于 2025-3-9 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67613657&amp;ptid=2208921" target="_blank">Skymoon 发表于 2025-3-9 15:33</a>
+但难绷的是在场外无论访谈还是声优线下营业都见不到一点卖喵睦的意思，都是素睦和睦祥 ...</blockquote>
+声优和访谈不是有月三角就卖月三角吗（
+
+*****
+
+####  zhoujin8584  
+##### 35031#       发表于 2025-3-9 15:36
+
+<blockquote>aptx8285144 发表于 2025-3-9 15:26
+重新分析一下，为什么CCC的姨姥里面只有立希能对大象有免疫能力（第七话那种集体脑控是剧情杀，谁也躲不过 ...</blockquote>
+立希其实有个只顾眼前事的设定，可以理解为平时压力怪，大事犯糊涂。算是mygo时期她不停熬夜改曲子却在演出前一天跑路的复描
+
+*****
+
+####  syndrome2032  
+##### 35032#       发表于 2025-3-9 15:37
+
+ 本帖最后由 syndrome2032 于 2025-3-9 15:39 编辑 
+
+猫睦本质是把扯了太久的大猫被断线人偶睦头震撼一整年的线收了。
+live散场又是海铃送的人，大猫自己一个人溜了。
+
+*****
+
+####  haohaoh4  
+##### 35033#       发表于 2025-3-9 15:39
+
+<img src="https://img.saraba1st.com/forum/202503/09/153933me7c2bgxh486e674.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (151.49 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-9 15:39 上传
+
+
+*****
+
+####  aptx8285144  
+##### 35034#       发表于 2025-3-9 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67613670&amp;ptid=2208921" target="_blank">罥索GFFF 发表于 2025-3-9 15:36</a>
+
+可能是被要求保密了吧，连透喵睦的舅舅都没有</blockquote>
+这种剧情有啥好保密的<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
