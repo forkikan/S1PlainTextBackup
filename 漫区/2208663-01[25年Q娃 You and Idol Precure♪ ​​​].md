@@ -4904,3 +4904,24 @@ pulilun怎么比克罗贝鲁斯还无能啊<img src="https://static.saraba1st.co
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  pokemon最爱  
+##### 722#       发表于 2025-3-9 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67614885&amp;ptid=2208663" target="_blank">sheshiro 发表于 2025-3-9 18:50</a>
+
+pulilun怎么比克罗贝鲁斯还无能啊
+
+可怜的坤坤天使真的要被搞得心悸了，这下真的成为偶像练习生咯</blockquote>
+练习时长两年半（指从米米长大到心正式登场的时间）的Q娃练习生，擅长唱、跳、Rap（指角色歌的Rap部分）<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  66367749  
+##### 723#       发表于 2025-3-9 19:25
+
+噗哩伦这和人鱼有得一拼，人鱼是主观上屑，它这是少根筋+自我中<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

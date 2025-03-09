@@ -11775,3 +11775,38 @@ bang23的ppp的香澄不就很卡里斯马。虽然我不太喜欢邦高祖的�
 
 大家边骂边看其实是为了给自己找补，不愿意承认自己居然从这样的剧情中获得了爽感<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DeltaStriker  
+##### 35100#       发表于 2025-3-9 19:20
+
+倒也不是来看剧情的 主要是来看社区反应的 观察社区反应也挺好玩的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  wwwttth  
+##### 35101#       发表于 2025-3-9 19:21
+
+我觉得全盛期打越能写好，真写成时空乱序叙诡，而且有描写神人和多重人格的经验。
+
+
+*****
+
+####  aptx8285144  
+##### 35102#       发表于 2025-3-9 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67615042&amp;ptid=2208921" target="_blank">烂片雷达 发表于 2025-3-9 19:16</a>
+
+其实每集在线屡创新高社区讨论度蒸蒸日上说明大部分人从动画中获得了某种程度的精神满足吧，人是趋利避害的 ...</blockquote>
+烂片也分好几种类型，母鸡卡虽然成为了烂片但是它很多时候不是那种无聊的烂片<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 35103#       发表于 2025-3-9 19:26
+
+我不知道别人能不能写好，但是我知道的是放任团队自己发挥搞灵光乍现那一套，肯定是会烂完了的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -530,3 +530,22 @@ SteamDeck需要安装运行库吗？</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">感觉这游戏挖了很多坑没填上，不是指会明显出续作的那部分，就是单纯探案的部分，感觉制作组也有很多想法但是最后为了自圆其说就用了最保守的路，比如说其实还有很多物证和证词用不上，还以为每个疑点都会有一个说法解释，这就明显不如逆转
 
+
+*****
+
+####  acg_gyanc  
+##### 50#       发表于 2025-3-9 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67614990&amp;ptid=2248036" target="_blank">DET 发表于 2025-3-9 19:05</a>
+感觉这游戏挖了很多坑没填上，不是指会明显出续作的那部分，就是单纯探案的部分，感觉制作组也有很多想法但 ...</blockquote>
+这里我也记得有个特别明显的，就是魔法学校的案子，前面先垫了米莉亚姆成绩非常好，但是搜出来一张受害人的羊皮纸说米莉亚姆的成绩好是作弊的，后面又通过米莉亚姆自己的心声来证明至少她本人也是自认成绩很好的，然后这条线就没下文了，直到这章打完结束都没有相关内容，那个说她作弊的证据一次都没用上过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑夜守望者  
+##### 51#       发表于 2025-3-9 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67615039&amp;ptid=2248036" target="_blank">acg_gyanc 发表于 2025-3-9 19:15</a>
+这里我也记得有个特别明显的，就是魔法学校的案子，前面先垫了米莉亚姆成绩非常好，但是搜出来一张受害人 ...</blockquote>
+哦你说这个我也想起来了，我都自动脑补成真凶伪造的证据了，现在想起来根本就没解释<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
