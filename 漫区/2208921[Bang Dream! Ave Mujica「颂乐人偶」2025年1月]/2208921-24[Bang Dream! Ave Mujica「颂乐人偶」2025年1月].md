@@ -10501,3 +10501,47 @@ Mortis：老睦，别装死了，你再不出来，祥要被人强碱了。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  MuramasaSP  
+##### 34987#       发表于 2025-3-9 11:24
+
+<img src="https://img.saraba1st.com/forum/202503/09/112341u8eat5b5tghe9ot8.jpg" referrerpolicy="no-referrer">
+
+<strong>1000046440.jpg</strong> (191.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-9 11:23 上传
+
+<img src="https://img.saraba1st.com/forum/202503/09/112341tcjmallqbraiqalc.jpg" referrerpolicy="no-referrer">
+
+<strong>1000046441.jpg</strong> (192.79 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-9 11:23 上传
+
+<img src="https://img.saraba1st.com/forum/202503/09/112341rx6hh6glhliswxc6.jpg" referrerpolicy="no-referrer">
+
+<strong>1000046442.jpg</strong> (208.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-9 11:23 上传
+
+祥子放弃一切的勇气，或许也是从灯那里获取的。
+
+*****
+
+####  aptx8285144  
+##### 34988#       发表于 2025-3-9 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67612277&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-3-9 11:17</a>
+
+笑死，这下破案了2333
+
+Mortis：老睦，别装死了，你再不出来，祥要被人强碱了。</blockquote>
+这么一说的话，初音这表情，我感觉老登赶紧把她叫回去看管起来才是老登对大祥的爱护<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
