@@ -4737,3 +4737,32 @@ ps 梅泽主p的q娃们是没有设定生日过 网络传的都是假的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">对小紫的塑造真舍得下功夫，两集都投了不错的资源，就是断章半个月真有点难顶……
 
+
+*****
+
+####  himfsz  
+##### 706#       发表于 2025-3-9 08:08
+
+还有周边是阿心自制的吗？还以为又要像也是擅自做偶像的LL一样被无良商家被出无授权的周边赚钱
+
+*****
+
+####  咲良うた  
+##### 707#       发表于 2025-3-9 08:08
+
+第 05 集的 TVer 源（含日字）：magnet:?xt=urn:btih:a008e866da5ad63432f33003ce1d974b0fd859e1
+
+第 06 集的 TVer 源（含日字）：magnet:?xt=urn:btih:692c0fdd2bea7e32b3d967e4e0fee12ee3e27adc
+
+
+*****
+
+####  modedd  
+##### 708#       发表于 2025-3-9 08:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67611395&amp;ptid=2208663" target="_blank">himfsz 发表于 2025-3-9 08:08</a>
+还有周边是阿心自制的吗？还以为又要像也是擅自做偶像的LL一样被无良商家被出无授权的周边赚钱 ...</blockquote>
+是自制的，有专门的特写，太pro了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
