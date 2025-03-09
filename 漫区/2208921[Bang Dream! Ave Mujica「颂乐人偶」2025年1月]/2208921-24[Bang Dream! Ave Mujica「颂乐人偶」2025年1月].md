@@ -11335,3 +11335,60 @@ ep10的重组证明了ep5–9这5话就是在恶意拖戏。
 有一点不得不承认是对于我来说很新颖的，就是把角色刻画的足够变态畸形，从而掩盖的一些前期铺垫不足的硬伤 ...</blockquote>
 不如这么说吧，小姨身份才能解释初华为什么这么变态<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  联想会  
+##### 35060#       发表于 2025-3-9 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67614014&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-9 16:30</a>
+这剧感情太抽象了，不如我们讨论点唯物主义的
+
+已知体验过无产阶级大劳动的祥子人能抗醉汉，一脚能把铁门踹 ...</blockquote>
+虽然剧内比较抽象。但大概想表现的就是祥子被初音折服了，结束后都自愿和初音离开，要不是外公打断，可能c part已经扣上了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  是谁的书画  
+##### 35061#       发表于 2025-3-9 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67614056&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-9 16:37</a>
+
+不如这么说吧，小姨身份才能解释初华为什么这么变态</blockquote>
+小姨的身份只是她和大祥关系性的一个切入口，在剧情上初华首先是个性压抑变态，之后再推出小姨这个身份---这就会显得整个剧情的堆砌感很重。原来只是一个变态，现在甚至是一个带有血缘的变态，那真是变态中的变态。小姨这个身份只会让初华的形象“锦上添花”，但不能对她的行为进行解释。
+
+打个比方，这个世界上拥有小姨的人有很多，可能就比如我。但也没见我小姨会想草我啊。
+
+想草人，总该是有一个理由的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  安娜导函数  
+##### 35062#       发表于 2025-3-9 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67613971&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-9 16:23</a>
+主要睦头这边回得莫名其妙的。。。
+
+其实睦一直都在做铺垫，她想要吉他唱歌，想要属于自己的东西</blockquote>
+我觉得是大莫老师听到"香草祥子之歌"，心想我以为你们是营业没想到你们来真的！深怕自己被喵梦抠赶紧跳下去找睦头换号<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  油画布  
+##### 35063#       发表于 2025-3-9 16:55
+
+mujica很多后堆的设定细想都没什么卵用
+
+*****
+
+####  aptx8285144  
+##### 35064#       发表于 2025-3-9 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67614127&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-9 16:50</a>
+
+小姨的身份只是她和大祥关系性的一个切入口，在剧情上初华首先是个性压抑变态，之后再推出小姨这个身份-- ...</blockquote>
+不但是性压抑变态，还有病娇，<strong>还想谋杀对手（睦）</strong>，这些愈发赤裸裸表现出来，独角兽和蚀本觉得自己真得在写音乐番吗，以后记得这么变态的玩意的观众肯定比母鸡卡的音乐多太多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
