@@ -10706,3 +10706,46 @@ Mortis：老睦，别装死了，你再不出来，祥要被人强碱了。</blo
 <img src="https://p.sda1.dev/22/3f8c0a806d80c67a3babd415c8351d15/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/22/fb27c341a5d3e32162e7eec083c6ac7c/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  thisisaspider  
+##### 35004#       发表于 2025-3-9 12:58
+
+很大程度上感谢李子的监禁12，这段谱曲描写虽然铺垫不足，但细品确实前无古人后无来者。初音脑内对祥子的亵渎，经过祥子的谱曲完成了和祥子的神交。结论：祥子已经被qj了。不可能再看到这样变态的剧本了。
+我一直在骂编剧菜，一直否认讨论废案的意义。但现在我惋惜这部剧没有写好。
+所有的都是个人猜测。不相信编剧能写出来才是应有的预期。
+
+*****
+
+####  zhoujin8584  
+##### 35005#       发表于 2025-3-9 13:00
+
+感觉是有意的设计，因为没有睦喵的戏份了，就用live演出
+
+<img src="https://img.saraba1st.com/forum/202503/09/125958xu3crsuz3bbzgbio.png" referrerpolicy="no-referrer">
+
+<strong>111735417414958232.png</strong> (161.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-9 12:59 上传
+
+来展示完神睦对大猫的箭头
+
+
+*****
+
+####  zhoujin8584  
+##### 35006#       发表于 2025-3-9 13:01
+
+还有这段节奏吉他和鼓点的soli，绝了，简直就想是大庭广众在开二人音趴一样
+
+<img src="https://img.saraba1st.com/forum/202503/09/130128n500q0m00v56pw46.gif" referrerpolicy="no-referrer">
+
+<strong>bili_v_1741495993238.gif</strong> (815.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-9 13:01 上传
+
