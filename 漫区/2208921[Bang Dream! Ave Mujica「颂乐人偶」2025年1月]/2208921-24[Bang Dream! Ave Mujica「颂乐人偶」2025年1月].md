@@ -12220,3 +12220,15 @@ LaLa arena TOKYO-BAY
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  liekong  
+##### 35140#       发表于 2025-3-9 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67615826&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-9 21:16</a>
+所以柿本是没参与mygo制作吗</blockquote>
+神鬼二象性是这样的了，用控制变量法去查制作人员差异其实也很难说明为什么mygo好mujica坏，毕竟天才也有脑抽的时候，蠢才也会灵光一闪。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

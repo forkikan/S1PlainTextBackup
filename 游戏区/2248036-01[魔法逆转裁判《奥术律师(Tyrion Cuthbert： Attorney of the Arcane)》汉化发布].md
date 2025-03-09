@@ -599,3 +599,23 @@ SteamDeck需要安装运行库吗？</blockquote>
 通关了，这游戏最大的毛病是人物名字太长了，看得头晕</blockquote>
 外国人名字太难记了最后的指正哪里，外国人名字我都没反应过来，要是叫职位第一眼就看出来问题了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  白軍浪  
+##### 57#       发表于 2025-3-9 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67615566&amp;ptid=2248036" target="_blank">黑夜守望者 发表于 2025-3-9 20:41</a>
+
+记得还有第三案意图绑架王子的人是谁也没说吧</blockquote>
+应该是厄里斯
+
+
+*****
+
+####  acg_gyanc  
+##### 58#       发表于 2025-3-9 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67615566&amp;ptid=2248036" target="_blank">黑夜守望者 发表于 2025-3-9 20:41</a></blockquote>
+那里确实挺搞笑，实在不重要就不反白了，反正那章打完连船回来没有都没说，一整艘船消失的事情就这样毫无下文了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
