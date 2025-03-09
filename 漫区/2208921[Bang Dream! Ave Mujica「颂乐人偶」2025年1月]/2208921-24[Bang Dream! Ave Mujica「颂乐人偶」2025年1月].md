@@ -12736,3 +12736,45 @@ go吧指出甜甜圈女士演的角色最后被砍头了，而初音即将上断
 我和朋友的那个花篮不仅再现了ED，甚至还 ...</blockquote>
 细说一下zsbd
 
+
+*****
+
+####  cxj649  
+##### 35190#       发表于 2025-3-9 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616535&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2025-3-9 23:11</a>
+
+难道祥子不该道歉么？现在分明是剧组自己按着她不让道歉，看你是推子楼那边经常出没的人，你觉得有马加奈 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">现在太拧巴这状况
+
+其实对象可能无了233
+
+*****
+
+####  thisisaspider  
+##### 35191#       发表于 2025-3-9 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616537&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-9 23:11</a>
+敗筆就是回豐川家了
+
+物資上讓祥回血了</blockquote>
+实际上前面演了一大堆，祥子设定上根本不在意物质性的东西。完全被观众无视了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  油画布  
+##### 35192#       发表于 2025-3-9 23:17
+
+怀疑以现在剧组水平，有能力表现出任何层次的主旨吗 连单个角色都写不清楚
+
+
+*****
+
+####  thisisaspider  
+##### 35193#       发表于 2025-3-9 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616572&amp;ptid=2208921" target="_blank">油画布 发表于 2025-3-9 23:17</a>
+以现在剧组水平，有能力表现出任何层次的主旨吗 连单个角色都写不清楚</blockquote>
+写主旨和写角色是创作中平衡的艺术。而不是对方的基础。主旨需要揭示，角色需要铺垫代入。
+品的时候确实互相影响很大。反而是读者的心态需要转变。
+
