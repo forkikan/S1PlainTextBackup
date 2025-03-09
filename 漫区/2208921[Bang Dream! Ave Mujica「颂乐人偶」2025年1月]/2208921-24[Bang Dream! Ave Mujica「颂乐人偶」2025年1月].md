@@ -10810,3 +10810,54 @@ Mortis：老睦，别装死了，你再不出来，祥要被人强碱了。</blo
 
 难道还没卖吗，从劣等感一转爱怜摸脸强行对偶爱素撩头发
 
+
+*****
+
+####  thisisaspider  
+##### 35012#       发表于 2025-3-9 14:11
+
+这个主题下很难说有回箭头式的CP爱。毕竟爱恨一体的回箭头要错位才好写。不然恨意容易消解。
+
+*****
+
+####  Mika-S  
+##### 35013#       发表于 2025-3-9 14:12
+
+不禁让人想问竟然还没拉黑吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhoujin8584  
+##### 35014#       发表于 2025-3-9 14:13
+
+别动不动就拉爱素来贴。这一段明显的性暗示镜头，并不是摸脸，而是低头暗示接吻。
+
+<img src="https://img.saraba1st.com/forum/202503/09/141336isr70slo2txz9xq7.jpg" referrerpolicy="no-referrer">
+
+<strong>CC5B4DC4187EADB14703F22E4A82E34B.jpg</strong> (47.65 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-9 14:13 上传
+
+*****
+
+####  DeltaStriker  
+##### 35015#       发表于 2025-3-9 14:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67613227&amp;ptid=2208921" target="_blank">Mika-S 发表于 2025-3-9 14:12</a>
+不禁让人想问竟然还没拉黑吗</blockquote>
+只有soyo受伤的世界.jpg
+soyo（am ep10 ver.）：这个（大象老师） 不需要了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  烂片雷达  
+##### 35016#       发表于 2025-3-9 14:15
+
+你还别说，连喵睦这种空降cp都是有来有往有所回应的，初华舔了这么多集给的只有冷脸
+
+不过根据祥子的人格极速切换原理，下一集很有可能就态度转180度展现出对初华的巨大感情并追妻火葬场了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
