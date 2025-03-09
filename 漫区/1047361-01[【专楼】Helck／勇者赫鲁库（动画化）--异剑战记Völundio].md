@@ -40,3 +40,13 @@
 现在七尾老师自己画的插画尾页
 <img src="https://p.sda1.dev/22/395ecdfc434cf72b86f2074ae3efa543/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御坂MKII  
+##### 1204#       发表于 2025-3-9 07:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">总不能真腐烂了吧 感觉不可能啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

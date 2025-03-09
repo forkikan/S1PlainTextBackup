@@ -4693,3 +4693,23 @@ ps 梅泽主p的q娃们是没有设定生日过 网络传的都是假的
 
 你搞bg也无所谓了，反正nana不要变成整天对着别人的恋情瞎起哄的讨厌角色就好了，想想当年无印第八话，正常人那可是要跟你翻脸的
 
+
+*****
+
+####  jaewoongh_  
+##### 701#       发表于 2025-3-9 07:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67606471&amp;ptid=2208663" target="_blank">himfsz 发表于 2025-3-8 14:33</a>
+
+你搞bg也无所谓了，反正nana不要变成整天对着别人的恋情瞎起哄的讨厌角色就好了，想想当年无印第八话，正常 ...</blockquote>
+一嫂那是另一回事
+
+*****
+
+####  modedd  
+##### 702#       发表于 2025-3-9 07:56
+
+不是这完全不能怪心吧，也没说清楚是要打怪啊，人家本来就是抱着当偶像的心态来的，以为是kirakira的魔法少女结果来了才发现是要真刀真枪的战场这种事不是某银兽耐杀王才会干的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
