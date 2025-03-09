@@ -4892,3 +4892,15 @@ kokoro：我是来当偶像的你们要干嘛！
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">这集入队回的铺垫做的不错啊，正经和搞笑部分的安排都可圈可点，噗哩伦诓骗小女孩入伙就等着被女王清算吧
 
+
+*****
+
+####  sheshiro  
+##### 721#       发表于 2025-3-9 18:50
+
+pulilun怎么比克罗贝鲁斯还无能啊<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+可怜的坤坤天使真的要被搞得心悸了，这下真的成为偶像练习生咯
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
