@@ -10400,3 +10400,11 @@ soyo看到mortis拿起舞鞋打电话不知所措（mortis因为小睦消失自�
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67611162&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-9 02:50</a></blockquote>
 这种画风，这种歌词，我突然觉得海玲 的钱包已经是母鸡的卡组队这些潜在受益者里面最清白无辜的一个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  莱茵哈鲁特  
+##### 34978#       发表于 2025-3-9 09:59
+
+开局mygo走是因为soyo送睦回家了，众人也跟着soyo去睦家。中间祥子重组mujica应该是一种对承诺的责任感驱使的。
+
