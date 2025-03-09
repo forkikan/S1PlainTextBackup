@@ -4925,3 +4925,15 @@ pulilun怎么比克罗贝鲁斯还无能啊
 
 噗哩伦这和人鱼有得一拼，人鱼是主观上屑，它这是少根筋+自我中<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sheshiro  
+##### 724#       发表于 2025-3-9 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67615052&amp;ptid=2208663" target="_blank">pokemon最爱 发表于 2025-3-9 19:18</a>
+练习时长两年半（指从米米长大到心正式登场的时间）的Q娃练习生，擅长唱、跳、Rap（指角色歌的Rap部分） ...</blockquote>
+篮球这个部分啥时候补上<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

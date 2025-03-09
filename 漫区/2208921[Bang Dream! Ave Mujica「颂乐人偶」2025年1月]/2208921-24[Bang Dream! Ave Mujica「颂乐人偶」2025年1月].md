@@ -11948,3 +11948,60 @@ bang23的ppp的香澄不就很卡里斯马。虽然我不太喜欢邦高祖的�
 喵睦这cp吃不下去。
 箭头太多太混沌了。
 
+
+*****
+
+####  风真人  
+##### 35118#       发表于 2025-3-9 20:43
+
+如果他不是跟mygo深度绑定的续作谁会关注这个主创自嗨的实验性作品，谁会每周花20分钟折磨自己看十本这畜生把自己在前作的感动毁于一旦，纯纯的绑匪，mygo的角色是他手上的人质。我推在你手上jpg<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 35119#       发表于 2025-3-9 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67615409&amp;ptid=2208921" target="_blank">operatbig 发表于 2025-3-9 20:21</a>
+
+不可能走大女主路线，在母鸡卡的祥子必须是痛苦的才是母鸡卡动画剧情的底层逻辑。 ...</blockquote>
+不要把这些神人主创想的那么有逻辑，最初的脚本还真是大反派呢<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 35120#       发表于 2025-3-9 20:46
+
+喵睦
+
+<img src="https://img.saraba1st.com/forum/202503/09/204558vc3b3u7aozgoette.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250309204507.jpg</strong> (25.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-9 20:45 上传
+
+<img src="https://img.saraba1st.com/forum/202503/09/204601te6e4pszvlsg49vv.gif" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250309204503.gif</strong> (1000.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-9 20:46 上传
+
+恐☆怖☆心
+
+
+*****
+
+####  影伴光生  
+##### 35121#       发表于 2025-3-9 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67615201&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-3-9 19:46</a>
+最理想的写法：人物正面反面并存，相互影响逻辑自洽，人物复杂立体
+
+保险的写法：正反面的力度都适中，保 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如去孕吧看🐘被拍卖，初华拼尽全力凑钱竞拍的故事（作者甚至做了三个结局）
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

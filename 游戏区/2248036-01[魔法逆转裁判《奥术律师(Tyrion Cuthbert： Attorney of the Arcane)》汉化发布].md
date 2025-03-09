@@ -576,3 +576,15 @@ SteamDeck需要安装运行库吗？</blockquote>
 剧透预警
 还有第三案比较明显的是被害者和公会长出去聊天，第四案就是清洁工偷听到的证词，第五案小王子证词的魔法的之类的，这些明显都是有些说法的结果完全没用上……
 
+
+*****
+
+####  黑夜守望者  
+##### 55#       发表于 2025-3-9 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67615490&amp;ptid=2248036" target="_blank">DET 发表于 2025-3-9 20:31</a>
+剧透预警
+
+还有第三案比较明显的是被害者和公会长出去聊天，第四案就是清洁工偷听到的证词，第五案小王子 ...</blockquote>
+记得还有第三案意图绑架王子的人是谁也没说吧
+
