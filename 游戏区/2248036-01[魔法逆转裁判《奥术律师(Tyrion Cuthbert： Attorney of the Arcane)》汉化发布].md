@@ -588,3 +588,14 @@ SteamDeck需要安装运行库吗？</blockquote>
 还有第三案比较明显的是被害者和公会长出去聊天，第四案就是清洁工偷听到的证词，第五案小王子 ...</blockquote>
 记得还有第三案意图绑架王子的人是谁也没说吧
 
+
+*****
+
+####  白軍浪  
+##### 56#       发表于 2025-3-9 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67610923&amp;ptid=2248036" target="_blank">r1r2r3 发表于 2025-3-9 01:07</a>
+
+通关了，这游戏最大的毛病是人物名字太长了，看得头晕</blockquote>
+外国人名字太难记了最后的指正哪里，外国人名字我都没反应过来，要是叫职位第一眼就看出来问题了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

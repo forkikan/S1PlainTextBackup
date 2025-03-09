@@ -12123,3 +12123,100 @@ bang23的ppp的香澄不就很卡里斯马。虽然我不太喜欢邦高祖的�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  天空塔书记官  
+##### 35132#       发表于 2025-3-9 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67615680&amp;ptid=2208921" target="_blank">liekong 发表于 2025-3-9 20:57</a>
+老任的项目管理是世界级的……微博上也有人做过老任为王泪特意开发了各种项目管理的辅助工具，通篇看下来 ...</blockquote>
+所以说人贵有自知之明，但wsd没有
+
+没有相应的资源和准备，就别随便搞什么破坏性创新，哪怕慢点边做边放，也比早做完然后搞一大波炒作一起爆了强<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  liekong  
+##### 35133#       发表于 2025-3-9 21:11
+
+ 本帖最后由 liekong 于 2025-3-9 21:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67615774&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-3-9 21:09</a>
+所以说人贵有自知之明，但wsd没有
+
+没有相应的资源和准备，就别随便搞什么破坏性创新，哪怕慢点边做边放 ...</blockquote>
+但你真的问我感想，我多少还是会说“精神可嘉”……尝试求变去做实验的时候，就算明知自己菜也值得试一试的……所以京吹3第12集我也给了好评。当然，作品最后做烂了该骂还是得骂，精神可嘉跟成品评价是两回事(
+
+*****
+
+####  是谁的书画  
+##### 35134#       发表于 2025-3-9 21:12
+
+话说有没有大哥有高清无水印的邀请函啊，拿来做壁纸，时刻给自己提供充足笑料
+
+*****
+
+####  天空塔书记官  
+##### 35135#       发表于 2025-3-9 21:13
+
+不过我看微博上关于之前wsd线下炒作解密活动的相关介绍，搞不好真会有一手真假掺半的梦结局可能，大家需要做一下相应的心理准备，不过可能性也不是很大就是了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  影伴光生  
+##### 35136#       发表于 2025-3-9 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67615684&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-3-9 20:59</a>
+只在第四集孕吧表示拼尽全力无法战胜官方时去那里瞄过一下，不了解好吧 ...</blockquote>
+https://tieba.baidu.com/p/9548909857?share=9105&amp;fr=sharewise&amp;see_lz=0&amp;share_from=post&amp;sfc=copy&amp;client_type=2&amp;client_version=12.79.1.0&amp;st=1741526076&amp;is_video=false&amp;unique=FC7DA221831AA964DCCF3F5B1DAA5FAB
+
+孕吧大部分同人都挺过激的，这篇倒是还好
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 35137#       发表于 2025-3-9 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67615795&amp;ptid=2208921" target="_blank">liekong 发表于 2025-3-9 21:11</a>
+但你真的问我感想，我多少还是会说“精神可嘉”……尝试求变去做实验的时候，就算明知自己菜也值得试一试 ...</blockquote>
+嘛，毕竟老任也是踩坑踩出来的，只不过就现在的状况，就只能丢给观众“享受”了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  thisisaspider  
+##### 35138#       发表于 2025-3-9 21:16
+
+所以柿本是没参与mygo制作吗
+
+*****
+
+####  天空塔书记官  
+##### 35139#       发表于 2025-3-9 21:17
+
+Ave Mujica 1st专辑今年春季发售决定！5th LIVE 開催決定！
+
+LIVE门票最速先行抽選申込券将封入2nd Single「KiLLKiSS」初回生产版。
+
+LIVE时间地点：
+7月26日(土)・27日(日)
+LaLa arena TOKYO-BAY 
+
+[http://m.weibo.cn/status/5129677439505436? ​​​](http://m.weibo.cn/status/5129677439505436?)
+
+信源微博:少年JUMP吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

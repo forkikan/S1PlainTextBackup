@@ -10632,3 +10632,14 @@ https://x.com/youri_you_ri/status/1898351139277717518
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  岸浪白野  
+##### 8250#       发表于 2025-3-9 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67615520&amp;ptid=2209276" target="_blank">青空独 发表于 2025-3-9 20:36</a>
+
+哇，那这对女主父母来说是倒大霉啊，要赔这么多钱</blockquote>
+但这个只是画面1秒的脑海里幻想自己出了事上新闻
+
