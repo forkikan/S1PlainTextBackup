@@ -2942,3 +2942,20 @@ n友真是不挑食啊~
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dicktt  
+##### 331#       发表于 2025-3-10 01:51
+
+单集来说zqsg的投了+2，怎么说也比第七话好了几个次元……好奇这个投票同样sqsg给+2的有多少
+
+*****
+
+####  彼岸之焰  
+##### 332#       发表于 2025-3-10 01:53
+
+live有活，其他-2
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
