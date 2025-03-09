@@ -11166,3 +11166,15 @@ B站偷跑了一个55分钟各路盗摄混剪的版本，感觉光是看盗摄�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  wpcc  
+##### 8289#       发表于 2025-3-10 01:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67617047&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-3-10 00:33</a>
+红高达那边想通过壁画吸引什么这点我是认同的，我只是不觉得那个人是夏利亚和奥米加。假设zeknova是使空间 ...</blockquote>
+那个亚空间里面是没有时间概念的 你进去就能看到无限时间 你出来就变成全知全能了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
