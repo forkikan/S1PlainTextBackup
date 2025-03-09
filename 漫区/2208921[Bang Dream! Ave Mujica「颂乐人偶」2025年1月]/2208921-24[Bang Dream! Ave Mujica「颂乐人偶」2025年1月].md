@@ -11220,3 +11220,64 @@ mujica到现在好像没一对cp是完全对等有来有回的健康关系，看
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  cxj649  
+##### 35050#       发表于 2025-3-9 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67613905&amp;ptid=2208921" target="_blank">油画布 发表于 2025-3-9 16:14</a>
+
+mujica到现在好像没一对cp是完全对等有来有回的健康关系，看上去在卖百合但是细品都很难磕 柿本有什么毛病 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">比较健康都是和狗团的
+
+*****
+
+####  Skymoon  
+##### 35051#       发表于 2025-3-9 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67613910&amp;ptid=2208921" target="_blank">MASKA-1 发表于 2025-3-9 16:14</a>
+睦莫融合是祥厨祥黑的融合，以后应该不会当祥子全肯定bot了。</blockquote>
+本来就爱得很极端，恨得也很极端，那么融合后不就是更极端的爱恨交织了吗，感觉更变态了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ntrntr1  
+##### 35052#       发表于 2025-3-9 16:23
+
+ 本帖最后由 ntrntr1 于 2025-3-9 16:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67613796&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-3-9 15:56</a>
+
+从第二话那么多集都铺垫了喵梦对睦头有特殊情愫，最后终于染上了不也是很正常嘛，至少我觉得比之前预测的 ...</blockquote>
+主要睦头这边回得莫名其妙的。。。
+
+其实睦一直都在做铺垫，她想要吉他唱歌，想要属于自己的东西
+
+理论上喵梦去吼一句我就觉得你这人牛逼，别说遗传的你那妈，没看出她有啥好的，俺就觉得你特别，我也看不懂你在演啥但反正你就是不一样，还是挺不错的。。。
+
+但睦莫大战了一堆外加一直在拉扯祥睦，导致喵睦这边就是喵梦莫名其妙看上睦头了，睦头一直都在围绕小祥做大斗争，结果老莫听着歌突然就被感化融合了。。。
+
+*****
+
+####  syndrome2032  
+##### 35053#       发表于 2025-3-9 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67613971&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-9 16:23</a>
+主要睦头这边回得莫名其妙的。。。
+
+其实睦一直都在做铺垫，她想要吉他唱歌，想要属于自己的东西</blockquote>
+10话内心小剧场破坏程度对比9话上升了。
+
+莫应该也是撑不了多久了。
+
+*****
+
+####  是谁的书画  
+##### 35054#       发表于 2025-3-9 16:24
+
+有一点不得不承认是对于我来说很新颖的，就是把角色刻画的足够变态畸形，从而掩盖的一些前期铺垫不足的硬伤。大家的视线都被巨大感情淹没了，就没人在意原因合不合理了，毕竟没办法去质疑一个变态的行动是否符合正常人的逻辑。
+正因为是这样的初华，现在网上质疑初华从哪来怎么强信念感的声音才小很多，变相解决了剧本逻辑与推进混乱的问题。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -4813,3 +4813,24 @@ ps 梅泽主p的q娃们是没有设定生日过 网络传的都是假的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  leleq  
+##### 714#       发表于 2025-3-9 16:21
+
+土田的搞笑回演出驾轻就熟舒服啊
+
+偶像片终于有人认真练习了！虽然kokoro连偶像都还不是<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+家里有立牌，自己做的塑料小垃圾<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，真是东大妈模范雇员啊
+
+kokoro：我是来当偶像的你们要干嘛！
+
+*****
+
+####  キュアアイドル  
+##### 715#       发表于 2025-3-9 16:24
+
+こころちゃん，好担心啊……
+
