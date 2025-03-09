@@ -10749,3 +10749,14 @@ Mortis：老睦，别装死了，你再不出来，祥要被人强碱了。</blo
 
 2025-3-9 13:01 上传
 
+
+*****
+
+####  千千千千鸟  
+##### 35007#       发表于 2025-3-9 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67612759&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-3-9 12:38</a>
+
+啊？翔爹是丰川清告啊，是入赘的，翔爷有说是入赘的吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我傻逼了，搞混了因为主要都喊祥爹祥爷的
+

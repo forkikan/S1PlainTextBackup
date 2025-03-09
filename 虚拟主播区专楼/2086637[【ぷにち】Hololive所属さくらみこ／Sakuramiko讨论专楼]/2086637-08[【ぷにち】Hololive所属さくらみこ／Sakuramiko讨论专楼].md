@@ -1945,3 +1945,24 @@ miko第一个表扬的是2K画质
 
 ふとももカメラ
 
+
+*****
+
+####  holofan  
+##### 10898#       发表于 2025-3-9 12:43
+
+是不是就剩下一曲了？好像也不是，自己的曲子也会出场，还有solo一曲？
+
+*****
+
+####  holofan  
+##### 10899#       发表于 2025-3-9 13:12
+
+<img src="https://img.saraba1st.com/forum/202503/09/131244p1s8sjzsjs2fjjf5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (640.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-9 13:12 上传
+
