@@ -10455,3 +10455,15 @@ soyo看到mortis拿起舞鞋打电话不知所措（mortis因为小睦消失自�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  adretyu67.  
+##### 34983#       发表于 2025-3-9 10:55
+
+ 本帖最后由 adretyu67. 于 2025-3-9 10:56 编辑 
+
+万一真初华才是小姨，老登和外遇生下的孩子，假初华初音才是外遇和苦主的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+不过事到如今只能说框架已经基本透的差不多了。就看最后怎么搭起来了。
+
