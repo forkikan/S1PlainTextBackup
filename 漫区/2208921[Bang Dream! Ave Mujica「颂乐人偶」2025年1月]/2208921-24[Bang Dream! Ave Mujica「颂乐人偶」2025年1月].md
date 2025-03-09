@@ -13582,3 +13582,17 @@ Mujica在剧中的武道馆LIVE“Nostri Noctis”，就剧中细节来看只办
 但她所有東西都是物質性的</blockquote>
 我不知道你在上升什么阶级叙事。按剧中表现来说。go团所有人包括鸡团里的睦都是受扶养人口。与其说劳动阶级无法共情老钱。角色间的关系不如说受扶养人不能共情自立人。
 
+
+*****
+
+####  堆雪若叶  
+##### 35262#       发表于 2025-3-10 07:39
+
+喵梦俯在睦身上爱的念白带有自己的影子，但得不到爱这一意象其实最初是对应睦作为人偶的死亡 
+<img src="https://p.sda1.dev/22/389c3b2f4f49fa18fbc414cb5d87f07d/_Nekomoe kissaten_LoliHouse_ BanG Dream! It_s MyGO!!!!! - 13 WebRip 1080p HEVC-10bit AAC ASSx2.mkv_001706.056.jpg" referrerpolicy="no-referrer"> 
+
+竭尽全力狂热付出的爱而不得则定格在初华身上，确实也是她现状的写照 
+<img src="https://p.sda1.dev/22/7568e56edcd121acfcda167c744855c9/_Nekomoe kissaten__BanG Dream! Ave Mujica__10__1080p__JPSC_.mp4_001418.199.jpg" referrerpolicy="no-referrer"> 
+
+这段其实成了母鸡卡内爱与被爱纠缠的共同演出。不过一旁的海铃并未直接追求爱只是代以信任，而祥子更是一无所求——从未期待任何反馈，不曾追求别人的爱，也不曾在意别人的爱。无论是困窘于生活、在母鸡卡堕落、陪伴睦而赎罪，乃至最初流连于crychic的幸福时，她都没有看向任何人对她的爱。无视一切的爱和为爱无视一切，祥子和初华结果微妙处于两个极端。 
+
