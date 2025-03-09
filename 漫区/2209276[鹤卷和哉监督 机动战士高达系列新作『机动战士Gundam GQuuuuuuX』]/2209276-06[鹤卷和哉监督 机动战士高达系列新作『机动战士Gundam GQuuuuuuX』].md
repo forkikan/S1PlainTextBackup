@@ -10481,3 +10481,41 @@ X 上的 🍠：“#マチュ ＜30億めでたいマチュねぇ…… [https:/
 
 麻球可以说很没有母性了，但比起让鸭享受还是让鸭困扰更有意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RE㐅ia  
+##### 8239#       发表于 2025-3-9 19:49
+
+喵安有母性。这猎头蟹都快抛弃牢修了
+
+*****
+
+####  纪寞  
+##### 8240#       发表于 2025-3-9 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67614613&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-3-9 18:02</a>
+
+从之前泄露来看，这个世界线的NT装置并不很神棍，不是精神力框架级别，而是更接近80~83年精神力试验机的 ...</blockquote>
+83哪来可以直接塞进高达里还可以不改变整机尺寸的无线塞可缪系统，更别说79了，而且到 新安洲/独角兽 之前也没有可以全脑控操作的常规大小尺寸的ms，甚至这个奥米加对驾驶员的精神负担比ntd还小，你觉得正常吗？
+
+另外说是这个世界有部分科技提升了，但78的数据是和正史的几乎一样的，以元祖为标准，甚至可以说这gqx的79的整体水平并没有太大变化
+
+
+*****
+
+####  az一串字母  
+##### 8241#       发表于 2025-3-9 19:55
+
+シュウジへの幻想が強いマチュ
+
+https://x.com/youri_you_ri/status/1898351139277717518
+
+<img src="https://img.saraba1st.com/forum/202503/09/195432bam3itm01us3t4dr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>GlhMTK8acAAcEsZ.jpeg</strong> (270.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-9 19:54 上传
+
