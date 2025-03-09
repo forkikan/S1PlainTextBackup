@@ -4834,3 +4834,16 @@ kokoro：我是来当偶像的你们要干嘛！
 
 こころちゃん，好担心啊……
 
+
+*****
+
+####  jaewoongh_  
+##### 716#       发表于 2025-3-9 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67613394&amp;ptid=2208663" target="_blank">Mr1z 发表于 2025-3-9 14:40</a>
+
+好➗的吉祥物
+
+坏人还是不如蠢人破坏力大</blockquote>
+确实，不是QB那种纯坏的，单纯脑子里缺根筋
+
