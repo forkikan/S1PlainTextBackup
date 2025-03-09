@@ -10970,3 +10970,41 @@ soyo（am ep10 ver.）：这个（大象老师） 不需要了
 这对已经是官配了吧（</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那确实得拉黑母鸡卡了，神人乐队不要进邦多利世界观污染少女乐队了
 
+
+*****
+
+####  aptx8285144  
+##### 35026#       发表于 2025-3-9 15:26
+
+ 本帖最后由 aptx8285144 于 2025-3-9 15:27 编辑 
+
+重新分析一下，为什么CCC的姨姥里面只有立希能对大象有免疫能力（第七话那种集体脑控是剧情杀，谁也躲不过<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  非建政专用号  
+##### 35027#       发表于 2025-3-9 15:32
+
+纯情立希在发觉有沉迷蓝冰风险之后毅然决然选择了吸食企鹅冰
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Skymoon  
+##### 35028#       发表于 2025-3-9 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67613533&amp;ptid=2208921" target="_blank">罥索GFFF 发表于 2025-3-9 15:08</a>
+这对已经是官配了吧（</blockquote>
+但难绷的是在场外无论访谈还是声优线下营业都见不到一点卖喵睦的意思，都是素睦和睦祥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  罥索GFFF  
+##### 35029#       发表于 2025-3-9 15:36
+
+<blockquote>Skymoon 发表于 2025-3-9 15:33
+但难绷的是在场外无论访谈还是声优线下营业都见不到一点卖喵睦的意思，都是素睦和睦祥 ...</blockquote>
+可能是被要求保密了吧，连透喵睦的舅舅都没有
+
