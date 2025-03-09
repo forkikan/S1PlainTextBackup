@@ -12778,3 +12778,97 @@ go吧指出甜甜圈女士演的角色最后被砍头了，而初音即将上断
 写主旨和写角色是创作中平衡的艺术。而不是对方的基础。主旨需要揭示，角色需要铺垫代入。
 品的时候确实互相影响很大。反而是读者的心态需要转变。
 
+
+*****
+
+####  aptx8285144  
+##### 35194#       发表于 2025-3-9 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616565&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-9 23:16</a>
+
+实际上前面演了一大堆，祥子设定上根本不在意物质性的东西。完全被观众无视了 ...</blockquote>
+有不在意物质性的东西的余力，是因为赔偿金被大爷爷付了，<strong>一想到没有丰川家的名头，就完全是另一种人生，就会对主角的本质上的塑造产生质疑</strong>（虽说即使有，哈气什么的也很多<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">），尽管二次元很多角色都是非富即贵，但是如此露骨地危及到主角的塑造，也确实不多见
+
+*****
+
+####  油画布  
+##### 35195#       发表于 2025-3-9 23:26
+
+<blockquote>thisisaspider 发表于 2025-3-9 23:22
+写主旨和写角色是创作中平衡的艺术。而不是对方的基础。主旨需要揭示，角色需要铺垫代入。
+
+品的时候确实 ...</blockquote>
+我很好奇，在mujica这种群像关系剧里 如果写不好单个角色的弧光，那要用什么来揭示主旨？靠旁白吼吗
+
+*****
+
+####  thisisaspider  
+##### 35196#       发表于 2025-3-9 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616632&amp;ptid=2208921" target="_blank">油画布 发表于 2025-3-9 23:26</a>
+我很好奇，在mujica这种群像关系剧里 如果写不好单个角色的弧光，那要用什么来揭示主旨？靠旁白吼吗 ...</blockquote>
+对，这是最简单的方法。再进一步乐队番写首歌就行。
+
+*****
+
+####  天空塔书记官  
+##### 35197#       发表于 2025-3-9 23:28
+
+其实有一点，老登出来给祥子收拾烂摊子其实没什么问题，“麻烦的事交给大人就好了”，祥子本来就没能力收拾残局，况且这舞台还是丰川家搭的<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  thisisaspider  
+##### 35198#       发表于 2025-3-9 23:30
+
+非常多的以故事为推动力的作品主题都是旁白揭示的。你进游戏前大部分旁白就会告诉你这是一个少年拯救世界的故事。虽然他也写人物，但其实不打算卖人物。因为人物写得好故事才能精彩基本就是创作定律。
+
+
+*****
+
+####  是谁的书画  
+##### 35199#       发表于 2025-3-9 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616651&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-3-9 23:28</a>
+
+其实有一点，老登出来给祥子收拾烂摊子其实没什么问题，“麻烦的事交给大人就好了”，祥子本来就没能力收拾 ...</blockquote>
+那这个故事只会更加走向无可救药的悲惨中去。
+
+参考监禁12，这话说的，那本质这个鸟笼其实就是丰川家。
+
+大小姐和丫鬟们都是笼中的金丝雀，要生要死其实都是笼中闹剧。
+
+要是喜欢邦邦这个系列，是没有办法接受这种解释的吧？
+
+*****
+
+####  whzfjd  
+##### 35200#       发表于 2025-3-9 23:31
+
+祥子的挣扎点不是物质，而是顺从吧，祥爹进局子时顺从了家境放弃乐队，mygo 应激了，决定组商业乐队既不顺从家族也不顺从家境，制作组应该认为祥子回家做迈巴赫是角色巨大的低谷，至少没有很享受的表情不是吗。
+
+
+*****
+
+####  thisisaspider  
+##### 35201#       发表于 2025-3-9 23:33
+
+mujica有非常多的元素可以表达主题。初华旁白，live，小祥中二剧场，访谈，某ARG。
+
+*****
+
+####  天空塔书记官  
+##### 35202#       发表于 2025-3-9 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616670&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-9 23:31</a>
+那这个故事只会更加走向无可救药的悲惨中去。
+
+参考监禁12，这话说的，那本质这个鸟笼其实就是丰川家。
+
+大 ...</blockquote>
+可是故事总得讲逻辑不是，从一开始速通武道馆就告诉观众资本的大手一直存在，现在还在否定到底有什么意义呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

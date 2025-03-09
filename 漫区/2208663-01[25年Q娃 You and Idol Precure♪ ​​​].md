@@ -4970,3 +4970,37 @@ pulilun怎么比克罗贝鲁斯还无能啊
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">噗哩伦，难道那天在樱花树下我的决意你都已经忘记了吗……也许需要一些偶像活动让你清醒过来了
 
+
+*****
+
+####  Piano-Forest  
+##### 728#         楼主| 发表于 2025-3-9 23:26
+
+<img src="https://p.sda1.dev/22/7e88d3d3a2d04e8ade040fc5b263d37a/20250309_232519.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/0991c7043bea0127d4708822d7a11fa1/20250309_232524.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 729#         楼主| 发表于 2025-3-9 23:30
+
+[https://x.com/sugimoto_mi_ho_/status/1898525692280918325](https://x.com/sugimoto_mi_ho_/status/1898525692280918325)
+
+キミとアイドルプリキュア♪
+
+6話
+
+こころちゃん…
+
+次回も是非ご覧頂けたら嬉しいです!!!!!(来週はおやすみです😢)
+<img src="https://p.sda1.dev/22/4a5883ed72072b098f0a4bf8f4227d6d/20250309_232530.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/kuubyo/status/1898525259323830505](https://x.com/kuubyo/status/1898525259323830505)
+
+『キミとアイドルプリキュア♪』6話、冒頭のシーン担当させていただきました
+
+こころ………
+
+7話もどうぞよろしくおねがいします…！
+<img src="https://p.sda1.dev/22/f4ddaa905ab6078241e45e9ce68e33a9/20250309_232537.jpg" referrerpolicy="no-referrer">
+
