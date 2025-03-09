@@ -11495,3 +11495,13 @@ mujica的女女关系性大乱炖:不堪入目的塑造，毫无遐想空间的�
 
 本来大祥和大猫关于乐队方向争论挺好的，但是被莫头毁掉了。快进回来的时候大猫也已经是事业不顺只能打鼓了，大祥也不在乎假唱只要凑够人上台就行。
 
+
+*****
+
+####  江口夕  
+##### 35075#       发表于 2025-3-9 17:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么无畏死亡无畏忘却
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
