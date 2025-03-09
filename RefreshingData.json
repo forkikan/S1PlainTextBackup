@@ -2232,10 +2232,10 @@
     "update": false
   },
   "2068301": {
-    "totalreply": 14745,
+    "totalreply": 14746,
     "title": "[【绝区零】调率测试结束 咖啡馆 141718492]",
     "newtitle": "[绝区零 咖啡馆 交流群 141718492 更多情报 2024年公布]",
-    "lastedit": 1741485742,
+    "lastedit": 1741515497,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -6170,7 +6170,7 @@
     "newtitle": "[国产安卓掌机奥丁2的u公布了，居然是8g2]",
     "lastedit": 1741256077,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1755649": {
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 150217,
+    "totalreply": 150218,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1741514768,
+    "lastedit": 1741515368,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -9630,10 +9630,10 @@
     "update": false
   },
   "2183166": {
-    "totalreply": 1536,
+    "totalreply": 1537,
     "title": "[2024年新来打🍬🍭「假面骑士 GAVV」]",
     "newtitle": "[2024年新来打🍬🍭「假面骑士 GAVV」]",
-    "lastedit": 1741500615,
+    "lastedit": 1741515497,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10503,10 +10503,10 @@
     "update": false
   },
   "2208921": {
-    "totalreply": 35077,
+    "totalreply": 35081,
     "title": "[Bang Dream! Ave Mujica「颂乐人偶」2025年1月]",
     "newtitle": "[BanG Dream! Ave Mujica「颂乐人偶」2025年1月]",
-    "lastedit": 1741514896,
+    "lastedit": 1741515497,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10620,10 +10620,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 96031,
+    "totalreply": 96035,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1741514892,
+    "lastedit": 1741515494,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11556,10 +11556,10 @@
     "update": false
   },
   "2246209": {
-    "totalreply": 4793,
+    "totalreply": 4794,
     "title": "[俄乌专楼-2025年2月版]",
     "newtitle": "[俄乌专楼-2025年2月版]",
-    "lastedit": 1741514652,
+    "lastedit": 1741515018,
     "category": "外野",
     "active": true,
     "update": false
@@ -15813,10 +15813,10 @@
     "update": false
   },
   "2248667": {
-    "totalreply": 2281,
+    "totalreply": 2283,
     "title": "[【街霸6】卡普空杯（Capcom Cup 11）讨论专楼]",
     "newtitle": "[【街霸6】卡普空杯（Capcom Cup 11）讨论专楼，带节奏引战直接小黑屋]",
-    "lastedit": 1741514656,
+    "lastedit": 1741515012,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16376,7 +16376,7 @@
     "newtitle": "[美国滞留太空宇航员婉拒马斯克：这里挺好，还不是离开的时候]",
     "lastedit": 1741256077,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2248886": {
@@ -17469,10 +17469,10 @@
     "update": false
   },
   "2249271": {
-    "totalreply": 79,
+    "totalreply": 81,
     "title": "[不想孩子卷让小孩进中专职高会不会更好？]",
     "newtitle": "[不想孩子卷让小孩进中专职高会不会更好？]",
-    "lastedit": 1741514419,
+    "lastedit": 1741515018,
     "category": "外野",
     "active": true,
     "update": false
@@ -17514,11 +17514,29 @@
     "update": false
   },
   "2173260": {
-    "totalreply": 81,
+    "totalreply": 82,
     "title": "[五星物语的发展]",
     "newtitle": "[五星物语的发展]",
-    "lastedit": 1741514536,
+    "lastedit": 1741515497,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2249274": {
+    "totalreply": 42,
+    "title": "[美国宽带政策转变：放弃光纤主干网优先，资金或流向星链网络]",
+    "newtitle": "[美国宽带政策转变：放弃光纤主干网优先，资金或流向星链网络]",
+    "lastedit": 1741515018,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2249283": {
+    "totalreply": 41,
+    "title": "[感觉新生代对于国际形势已经和我们这一代观念完全不一样了]",
+    "newtitle": "[感觉新生代对于国际形势已经和我们这一代观念完全不一样了]",
+    "lastedit": 1741515018,
+    "category": "外野",
     "active": true,
     "update": false
   }

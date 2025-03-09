@@ -11522,3 +11522,48 @@ mujica的女女关系性大乱炖:不堪入目的塑造，毫无遐想空间的�
 要搞这种沉重消极负面角色报团的乐队主题根本没必要样板拆团再复合吧
 写个表面风光场下闹翻的不是更深刻现实里还能找出一堆例子。
 
+
+*****
+
+####  whzfjd  
+##### 35078#       发表于 2025-3-9 18:08
+
+很多翻车作品常见的“只看大纲是好的”这个挽尊法在鸡都没法成立，各个拐点的由头都十分突兀。
+
+对比历代烂作，从篡位乱改看是轻度兽娘2（区别在于没有对前作和先人的攻击性），从反弧光看是熊巫女TV第二，浓缩版 ARC-V 比较有争议（找不到微笑世界对应物，演技？），铁血第二（反少女乐队）和奇蛋第二（根本不知道在讲啥）应该不至于。
+
+
+*****
+
+####  凉良  
+##### 35079#       发表于 2025-3-9 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67614638&amp;ptid=2208921" target="_blank">whzfjd 发表于 2025-3-9 18:08</a>
+很多翻车作品常见的“只看大纲是好的”这个挽尊法在鸡都没法成立，各个拐点的由头都十分突兀。
+
+对比历代烂 ...</blockquote>
+mujica都不是大纲是好的 最多只是立意有新意也许能写好  大纲纯纯一坨
+
+*****
+
+####  金钱与民主  
+##### 35080#       发表于 2025-3-9 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67614638&amp;ptid=2208921" target="_blank">whzfjd 发表于 2025-3-9 18:08</a>
+很多翻车作品常见的“只看大纲是好的”这个挽尊法在鸡都没法成立，各个拐点的由头都十分突兀。
+
+对比历代烂 ...</blockquote>
+这不就是各色烂番之集合，那Mujica更该载入烂番史册了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  天空塔书记官  
+##### 35081#       发表于 2025-3-9 18:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
