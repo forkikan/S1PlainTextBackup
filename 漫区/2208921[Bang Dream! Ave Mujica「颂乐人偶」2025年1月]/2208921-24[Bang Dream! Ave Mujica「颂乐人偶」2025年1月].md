@@ -10650,3 +10650,59 @@ Mortis：老睦，别装死了，你再不出来，祥要被人强碱了。</blo
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  岬开斗  
+##### 34999#       发表于 2025-3-9 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67611348&amp;ptid=2208921" target="_blank">堆雪若叶 发表于 2025-3-9 07:50</a>
+祥子去睦门立雪是重温灯的贴纸之后，重组母鸡卡也是因为看过灯的贴纸。而灯新写的词还没交到祥子手里，不会 ...</blockquote>
+鸡狗最硬的双向女女关系还是灯箱。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  非建政专用号  
+##### 35000#       发表于 2025-3-9 12:38
+
+两个绝命毒师
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  厚乳果珍爽  
+##### 35001#       发表于 2025-3-9 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67612736&amp;ptid=2208921" target="_blank">千千千千鸟 发表于 2025-3-9 12:35</a>
+
+白看了，丰川定治是入赘第一集就知道了
+
+—— 来自 鹅球 v3.3.96</blockquote>
+啊？翔爹是丰川清告啊，是入赘的，翔爷有说是入赘的吗？
+
+*****
+
+####  thisisaspider  
+##### 35002#       发表于 2025-3-9 12:39
+
+所以这个主题的剧本非常有难度。超出了二偶企划的范围。甚至一般文学也不常见同时写多对爱恨一体的关系。
+
+而且角色原设的社会性是无法承载该主题的。只能将角色社会性全摧毁了。人偶化后。编辑才好上台揭示。
+
+但不管前面写得怎么烂，这条线确实在后半段被铺垫了。在live中被展示。在祥追初上被回扣。只能说听多了监禁12。我已经和解了。祥子确实背负着"命运"。舞台剧是祥子编写的，她让爱说出了梦镜中无法彻底爱上，遗忘小姐就是高维的角色。
+
+
+*****
+
+####  一心而用  
+##### 35003#       发表于 2025-3-9 12:42
+
+睦叶旋风
+<img src="https://p.sda1.dev/22/3b02a58c663334d042c7f84135e56e26/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/3f8c0a806d80c67a3babd415c8351d15/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/fb27c341a5d3e32162e7eec083c6ac7c/image.jpg" referrerpolicy="no-referrer">
+
