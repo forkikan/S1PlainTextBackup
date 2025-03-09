@@ -4713,3 +4713,27 @@ ps 梅泽主p的q娃们是没有设定生日过 网络传的都是假的
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  摘星独角兽  
+##### 703#       发表于 2025-3-9 07:58
+
+偶像，究竟是什么啊
+
+*****
+
+####  himfsz  
+##### 704#       发表于 2025-3-9 07:59
+
+阿心的性格跟我想象的很不一样啊，因为是后辈角色所以很老实很认真吗？普利伦这集整个q比一样，因为没问所以也不提前说明，还是说阿歌和阿七才是不正常的人？
+
+*****
+
+####  jaewoongh_  
+##### 705#       发表于 2025-3-9 08:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">小紫要消沉半个月了，有点心疼啊
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">对小紫的塑造真舍得下功夫，两集都投了不错的资源，就是断章半个月真有点难顶……
+
