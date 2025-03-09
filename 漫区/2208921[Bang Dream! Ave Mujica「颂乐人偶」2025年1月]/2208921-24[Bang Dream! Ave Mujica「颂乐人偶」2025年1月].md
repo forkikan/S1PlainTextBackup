@@ -13289,3 +13289,42 @@ mujica有非常多的元素可以表达主题。初华旁白，live，小祥中�
 
 jk乐队真的配的上这种原案么
 
+
+*****
+
+####  是谁的书画  
+##### 35237#       发表于 2025-3-10 00:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67617016&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-3-10 00:25</a>
+然而现在证明祥子就是这样一个角色
+
+(摊手)</blockquote>
+那倒不至于，我觉得祥子在组建 mujica 并且上演速通武道馆这块还是有一定自我努力的。当然在邦世界观的超能力帮助下，而不全靠丰川家在背后的支持。
+可能我到现在心理还是期望着能够在祥子的灵魂里找到点什么 krkr 的东西吧<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  thisisaspider  
+##### 35238#       发表于 2025-3-10 00:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67617052&amp;ptid=2208921" target="_blank">黑色蘑菇 发表于 2025-3-10 00:33</a>
+看完感觉祥子需要向母鸡卡这支乐队，献上自己以前最重视的尊严与真诚，就为了换取被需要的感觉。除了此处， ...</blockquote>
+去循环Crucifix X说不定悟到什么<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  الطائر  
+##### 35239#       发表于 2025-3-10 00:41
+
+让武道馆连续坐满两天（一天票价不能收回成本）多少是要有人气的，更何况还是抽选。
+
+*****
+
+####  thisisaspider  
+##### 35240#       发表于 2025-3-10 00:42
+
+我们ave mujica数值真的太高啦
+
