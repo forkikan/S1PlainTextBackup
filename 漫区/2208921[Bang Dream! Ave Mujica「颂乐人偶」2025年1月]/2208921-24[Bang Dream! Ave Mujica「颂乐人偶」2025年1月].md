@@ -12872,3 +12872,110 @@ mujica有非常多的元素可以表达主题。初华旁白，live，小祥中�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  ntrntr1  
+##### 35203#       发表于 2025-3-9 23:36
+
+<blockquote>联想会 发表于 2025-3-9 23:12
+泥漏已经从小祥绿帽癖进化成小祥抖m了？
+
+—— 来自 鹅球 v3.4.98</blockquote>
+女铜来说磨豆腐不是m吧
+
+闷骚大小姐星压抑瑟琴狂竟然是小祥！
+
+*****
+
+####  aptx8285144  
+##### 35204#       发表于 2025-3-9 23:37
+
+说到底还是为什么非要重组母鸡卡，除了海林自己做死的钱包外，其他的全都是大小姐之间闹麻了的破事，这个团队最大意义就是锁死别出去祸害其他人
+
+*****
+
+####  结衣小比取  
+##### 35205#       发表于 2025-3-9 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616543&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-9 23:12</a>
+
+细说一下zsbd</blockquote>
+可能说的是这个[3713L](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=2208921&amp;pid=66939511)、[3714L](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=2208921&amp;pid=66939599)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| thisisaspider| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  thisisaspider  
+##### 35206#       发表于 2025-3-9 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616670&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-9 23:31</a>
+那这个故事只会更加走向无可救药的悲惨中去。
+
+参考监禁12，这话说的，那本质这个鸟笼其实就是丰川家。
+
+大 ...</blockquote>
+现在还以正常的思维逻辑看待这番，你一定很难受吧<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+等结局就完事了
+
+*****
+
+####  xyion  
+##### 35207#       发表于 2025-3-9 23:37
+
+以灯为代表的ccc，是祥子真正需要的东西，但她不配得到。而以初华为代表的鸡2.0，这个祥子自己埋根、不是她需要而是需要她的东西，才是她该去接受的。看起来这是编剧给祥子安排的答案。
+
+但所谓的不配，也就是她大小姐过家家搞代餐期间，那点儿"不道德"行为，比如利用初华、明知睦并不适合商业乐队还要拉进来、用睦吊喵梦。这点东西真的值得写得这么虚无么？至少观众到了第七话都无法建立这种预期。
+
+*****
+
+####  非建政专用号  
+##### 35208#       发表于 2025-3-9 23:40
+
+总结了下就是富姐精神痛苦的故事，突然绷紧斗争的弦了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  天空塔书记官  
+##### 35209#       发表于 2025-3-9 23:41
+
+祥子的核心矛盾在于自己与乐队的关系，而不是是否执意脱离丰川家，同样是借助家族的资源和财力起家，楚平方的是一开始借了再说，后来才考虑自力更生的问题，而祥子照样可以，关键还是因为她没把乐队当成自己真正的归宿和人生的目标，她更在乎的是大小姐的“自尊”与“高贵”，她没法真正过平民的生活做真正的乐队人，所以她才没法脱离丰川家，老登没有困住祥子的肉身，是她把自己的内心栓在了大别墅里<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  是谁的书画  
+##### 35210#       发表于 2025-3-9 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616688&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-3-9 23:33</a>
+可是故事总得讲逻辑不是，从一开始速通武道馆就告诉观众资本的大手一直存在，因为这与才能无关，现在还在 ...</blockquote>
+有时候就是会觉得 mujica 这片子的世界观假真实的点就在这，我个人总会希望能更偏向美少女的爱与希望这块儿，终归是这样<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  thisisaspider  
+##### 35211#       发表于 2025-3-9 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616735&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-3-9 23:41</a>
+祥子的核心矛盾在于自己与乐队的关系，而不是是否执意脱离丰川家，同样是借助家族的资源和财力起家，楚平方 ...</blockquote>
+真正的平民生活和真正的乐队人分开比较好。虽然可能同时成立，但不是同个东西。
+
+真正的平民生活不如说是群众精神。她作为大小姐活了15年，1年的时间又能改变什么。
+
