@@ -10596,3 +10596,57 @@ Mortis：老睦，别装死了，你再不出来，祥要被人强碱了。</blo
 
 還是有點機會讓🦄甩鍋的
 
+
+*****
+
+####  thisisaspider  
+##### 34994#       发表于 2025-3-9 12:25
+
+初音缺少一个爱祥子的理由，但主题是因恨生爱，既恨又爱。所以初音缺少的是恨祥子的理由。恨来源于对理想自我的嫉妒，爱来源于一见钟情被吸引后无法移开目光的畸形恨，被自我内耗伤害后的斯德哥尔摩。按这个思路走，初音身份已经是非常契合的。
+
+祥子在这个主题下确实不会存在任何正常关系的CP。
+
+*****
+
+####  thisisaspider  
+##### 34995#       发表于 2025-3-9 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67612682&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-9 12:25</a>
+初音缺少一个爱祥子的理由，但主题是因恨生爱，既恨又爱。所以初音缺少的是恨祥子的理由。恨来源于对理想自 ...</blockquote>
+甚至于废案中，祥子应该恨灯的，祥子也作为了爱恨一体的主题载体。但官方要卖CCC，必须消解灯祥的恨。搞了一个CCC和解，消解主题同时破坏了祥组mujica的人物动机。（以上都是猜测）
+
+*****
+
+####  ads147147  
+##### 34996#       发表于 2025-3-9 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67612682&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-9 12:25</a>
+初音缺少一个爱祥子的理由，但主题是因恨生爱，既恨又爱。所以初音缺少的是恨祥子的理由。恨来源于对理想自 ...</blockquote>
+什么日向宁次和日向雏田的纠葛。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  thisisaspider  
+##### 34997#       发表于 2025-3-9 12:30
+
+ 本帖最后由 thisisaspider 于 2025-3-9 12:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67612704&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-3-9 12:29</a>
+什么日向宁次和日向雏田的纠葛。。。
+
+—— 来自 鹅球 v3.3.96</blockquote>
+背景相似但发展完全不一样。日向雏田不是爱情。日向反抗家族命运。初音为爱埋葬了恨。
+
+*****
+
+####  千千千千鸟  
+##### 34998#       发表于 2025-3-9 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67612403&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-3-9 11:40</a>
+你说有没有一种可能丰川定治也是入赘进丰川家的？丰川家的血统决定了只能生女孩？丰川家至始至终都是母系遗 ...</blockquote>
+白看了，丰川定治是入赘第一集就知道了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
