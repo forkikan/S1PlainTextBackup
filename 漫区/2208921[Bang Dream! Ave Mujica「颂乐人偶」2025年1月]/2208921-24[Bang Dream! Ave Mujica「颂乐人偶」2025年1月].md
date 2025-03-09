@@ -13211,3 +13211,81 @@ mujica有非常多的元素可以表达主题。初华旁白，live，小祥中�
 
 于是祥子和睦头一起玩音乐只剩下ave mujica这个选项，重组ave mujica还即不能是祥子推动，也不能是睦头推动，最后演出来的就是第10话的样子。
 
+
+*****
+
+####  thisisaspider  
+##### 35231#       发表于 2025-3-10 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616935&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-3-10 00:11</a>
+因为这种关系就像无根之萍，它没有足够牢靠的根基，所以无法令人信服，因为柿本说了“睦祥没有特别的过去 ...</blockquote>
+没有特别的过去不代表长久的陪伴没意义啊。事实上就是剧内演出了，剧外写了半身一词。如果你希望全否定，不如直接用错爱。这样逻辑更兼容。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 天空塔书记官| + 1|嘛，只是发发牢骚罢了|
+
+查看全部评分
+
+*****
+
+####  天空塔书记官  
+##### 35232#       发表于 2025-3-10 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616939&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-10 00:12</a>
+在 mujica 片场肯定主视角是在🐔身上。虽然我认为你说的都是对的也同意你的观点。
+以我的角度从这部剧来 ...</blockquote>
+然而现在证明祥子就是这样一个角色
+
+(摊手)
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  航母掉头  
+##### 35233#       发表于 2025-3-10 00:25
+
+16岁未亡人jk富太太幼年丧女没人提一下吗
+
+*****
+
+####  Akari  
+##### 35234#       发表于 2025-3-10 00:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616543&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-9 23:12</a>
+
+细说一下zsbd</blockquote>
+[https://bbs.saraba1st.com/2b/for ... 21&amp;pid=66958718](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=2208921&amp;pid=66958718)
+
+初祥的那棵小树~
+
+
+*****
+
+####  thisisaspider  
+##### 35235#       发表于 2025-3-10 00:31
+
+现在爱恨统一的主题还是我理解mujica的锚点。木箱的关系性随着剧情肯定会发生变化。睦是否能保持对祥子的爱恨统一呢。但祥子基本保持不住了。木箱关系性确实遇到新危机了。
+
+*****
+
+####  黑色蘑菇  
+##### 35236#       发表于 2025-3-10 00:33
+
+看完感觉祥子需要向母鸡卡这支乐队，献上自己以前最重视的尊严与真诚，就为了换取被需要的感觉。除了此处，无人需要她。
+
+为了乐队，老实向姥爷低头，承认自己是大小姐。
+
+为了乐队，假弹也无所谓了，只要乐队能继续下去。
+
+想到这些，太恶心。把大众意义上的美德用来交换这个结局🤢
+
+jk乐队真的配的上这种原案么
+
