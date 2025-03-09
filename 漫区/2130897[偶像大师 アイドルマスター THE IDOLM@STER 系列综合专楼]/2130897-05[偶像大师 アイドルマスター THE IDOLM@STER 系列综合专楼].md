@@ -54,3 +54,14 @@
 
 聽到中間的旋律，直接確定作曲就是椎名豪了。
 
+
+*****
+
+####  yuuuuuuuu  
+##### 6949#       发表于 2025-3-9 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66213665&amp;ptid=2130897" target="_blank">yuuuuuuuu 发表于 2024-9-15 19:29</a>
+
+不知道会不会找豪哥来给圣写solo</blockquote>
+果然是<img src="https://static.saraba1st.com/image/smiley/face2017/266.gif" referrerpolicy="no-referrer">
+

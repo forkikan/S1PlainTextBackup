@@ -11911,3 +11911,40 @@ bang23的ppp的香澄不就很卡里斯马。虽然我不太喜欢邦高祖的�
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  haohaoh4  
+##### 35114#       发表于 2025-3-9 20:18
+
+编辑编辑
+
+*****
+
+####  operatbig  
+##### 35115#       发表于 2025-3-9 20:21
+
+<blockquote>MASKA-1 发表于 2025-3-9 18:29
+但凡祥子经过炸团拷打之后，独裁乐队掌控者大女主形象能立起来，mujica的受众都还能有点辩护的落脚点。
+
+现 ...</blockquote>
+不可能走大女主路线，在母鸡卡的祥子必须是痛苦的才是母鸡卡动画剧情的底层逻辑。
+
+
+*****
+
+####  6030sylar  
+##### 35116#       发表于 2025-3-9 20:23
+
+<img src="https://p.sda1.dev/22/ef4ee06ba1aae28156bdae720d1b3791/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  Liza  
+##### 35117#       发表于 2025-3-9 20:24
+
+喵睦这cp吃不下去。
+箭头太多太混沌了。
+
