@@ -10372,3 +10372,46 @@ image.png
 
 2025-3-9 09:46 上传
 
+
+*****
+
+####  纪寞  
+##### 8231#       发表于 2025-3-9 13:51
+
+ 本帖最后由 纪寞 于 2025-3-9 13:53 编辑 
+
+说个怪的，本来觉得plazma的第三段是修司视角，但是mv里抬头看飞机云的却是"玛秋"，飞机云甚至是红色的，难道第三段也是玛秋的<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">？
+
+<img src="https://img.saraba1st.com/forum/202503/09/134807r7p6gm4j44fuzg4s.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (64.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-9 13:48 上传
+
+<img src="https://img.saraba1st.com/forum/202503/09/134921mdegat0tny6e6ae6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (30.49 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-9 13:49 上传
+
+不过第二段尼娅安的话，这句基本就锁定她这段的"你"是指玛秋了吧
+
+<img src="https://img.saraba1st.com/forum/202503/09/135109aal6llv5mphc722d.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (74.04 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-9 13:51 上传
+
+*****
+
+####  0aleph37  
+##### 8232#       发表于 2025-3-9 13:54
+
+等op画面出了再看看
+
