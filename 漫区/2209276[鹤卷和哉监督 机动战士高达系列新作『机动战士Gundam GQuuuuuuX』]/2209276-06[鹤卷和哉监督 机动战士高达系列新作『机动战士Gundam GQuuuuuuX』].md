@@ -10612,3 +10612,13 @@ https://x.com/youri_you_ri/status/1898351139277717518
 
 哇，那这对女主父母来说是倒大霉啊，要赔这么多钱
 
+
+*****
+
+####  刺客ares  
+##### 8248#       发表于 2025-3-9 20:51
+
+200W海特按之前换算的得接近1300Wrmb
+
+另外玛秋在学校确实是没什么朋友，校园戏应该不会展开了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

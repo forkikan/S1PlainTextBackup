@@ -12005,3 +12005,56 @@ bang23的ppp的香澄不就很卡里斯马。虽然我不太喜欢邦高祖的�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  6030sylar  
+##### 35122#       发表于 2025-3-9 20:50
+
+<img src="http://i0.hdslb.com/bfs/new_dyn/1e749e835e52e31bd72cc5757ee387503826641.jpg" referrerpolicy="no-referrer">
+<img src="http://i0.hdslb.com/bfs/new_dyn/c5d9155e88a17c80ad62bf45bc4068293826641.jpg" referrerpolicy="no-referrer">
+<img src="http://i0.hdslb.com/bfs/new_dyn/9dfe7fcaa083cc1cf8d6c78418fe236a3826641.jpg" referrerpolicy="no-referrer">
+<img src="http://i0.hdslb.com/bfs/new_dyn/e1323554a1d743953989453c9b6c7b1d3826641.jpg" referrerpolicy="no-referrer">
+<img src="http://i0.hdslb.com/bfs/new_dyn/5b08aedc2c7478839b3c5992fb1c11ac3826641.jpg" referrerpolicy="no-referrer">
+[https://www.bilibili.com/opus/10 ... d_from=333.1365.0.0](https://www.bilibili.com/opus/1042319177576087577?spm_id_from=333.1365.0.0)
+
+转千圣佬
+
+*****
+
+####  yy19  
+##### 35123#       发表于 2025-3-9 20:52
+
+<blockquote>adretyu67. 发表于 2025-3-9 18:19
+我觉得鸡团动画有人偶小剧场和剧中初华旁白作为剧情印证。
+
+只能说剧本安排上就是有意喂观众吃屎的。
+
+</blockquote>
+努力个毛。经典的造物主（创作者）被笔下角色挂起来羞辱。10一有胆就逼死祥子也不重组这个破AM2.0——WSD压着不允许是吧？那好了，小祥在AM1.0时代放的回旋镖，stuff就好好收着去吧XD
+
+
+*****
+
+####  岬开斗  
+##### 35124#       发表于 2025-3-9 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67614921&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-9 18:53</a>
+很早访谈里高尾说祥子的高光在后面，前面的祥子她也受不了。
+
+只能说希望如此吧。 ...</blockquote>
+可能第七集悔改的祥子就是高尾奏音嘴里的高光吧。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  liekong  
+##### 35125#       发表于 2025-3-9 20:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67615146&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-3-9 19:37</a>
+这项目能变成这样总策划和项目统筹要背最大的锅，今天刚看了野炊的全解视频，只能感叹老任家的项目管理能力 ...</blockquote>
+老任的项目管理是世界级的……微博上也有人做过老任为王泪特意开发了各种项目管理的辅助工具，通篇看下来感想只有一个字“叼”。用老任来比是欺负人了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
