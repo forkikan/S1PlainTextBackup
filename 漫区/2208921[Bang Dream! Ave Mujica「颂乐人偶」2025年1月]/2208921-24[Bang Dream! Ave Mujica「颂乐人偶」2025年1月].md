@@ -10908,3 +10908,55 @@ soyo（am ep10 ver.）：这个（大象老师） 不需要了
 
 所以说为啥成人歌是在阳光微醺的琴房，监禁12是在月光幽冷的琴房创作啊<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  595505568  
+##### 35020#       发表于 2025-3-9 15:08
+
+可别性暗示了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，加害爱上受害，然后还要受害爱上加害，恶心完了，你这不是当我鸡团卡一张都不想抽就直说（
+
+*****
+
+####  罥索GFFF  
+##### 35021#       发表于 2025-3-9 15:08
+
+<blockquote>swessia 发表于 2025-3-9 13:31
+真卖喵睦那在我眼里母鸡卡就可以彻底拉黑了
+
+—— 来自 鹅球 v3.3.96</blockquote>
+这对已经是官配了吧（
+
+*****
+
+####  钦念以忱  
+##### 35022#       发表于 2025-3-9 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67613239&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-9 14:13</a>
+
+别动不动就拉爱素来贴。这一段明显的性暗示镜头，并不是摸脸，而是低头暗示接吻。
+
+ ...</blockquote>
+这里确实，我看到喵梦俯下头的时候，第一反应也是亲上去了，之后镜头一拉又显示没亲，但我相信这个镜头切换肯定是故意的
+
+
+*****
+
+####  swessia  
+##### 35023#       发表于 2025-3-9 15:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这种前三集已经是加害者对受害者的描写，中间下线六集，然后再翻出来按头卖，真是母鸡卡特色女女关系性
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  yy19  
+##### 35024#       发表于 2025-3-9 15:13
+
+<blockquote>zhoujin8584 发表于 2025-3-9 14:13
+别动不动就拉爱素来贴。这一段明显的性暗示镜头，并不是摸脸，而是低头暗示接吻。
+
+ ...</blockquote>
+怎么不截阿姨洗铁路那帧？看不起我破站的避讳翻译乜？😂
+

@@ -467,3 +467,13 @@ SteamDeck需要安装运行库吗？</blockquote>
 在众多借鉴逆转的作品里面我 ...</blockquote>
 确实。。已经涉及到多元宇宙和神魔了，设定挺夸张的
 
+
+*****
+
+####  今城果天  
+##### 44#       发表于 2025-3-9 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67610923&amp;ptid=2248036" target="_blank">r1r2r3 发表于 2025-3-9 01:07</a>
+通关了，这游戏最大的毛病是人物名字太长了，看得头晕</blockquote>
+有时候一下子叫姓，一下子叫名，也更令人困扰<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
