@@ -4873,3 +4873,14 @@ kokoro：我是来当偶像的你们要干嘛！
 
 等这件事情告一段落后我感觉女王陛下暴怒的发音听上去都不会像日语了
 
+
+*****
+
+####  sakumazhuan  
+##### 719#       发表于 2025-3-9 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67611395&amp;ptid=2208663" target="_blank">himfsz 发表于 2025-3-9 08:08</a>
+
+还有周边是阿心自制的吗？还以为又要像也是擅自做偶像的LL一样被无良商家被出无授权的周边赚钱 ...</blockquote>
+就是带货 这徽章机也是官方出的玩具
+
