@@ -619,3 +619,28 @@ SteamDeck需要安装运行库吗？</blockquote>
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67615566&amp;ptid=2248036" target="_blank">黑夜守望者 发表于 2025-3-9 20:41</a></blockquote>
 那里确实挺搞笑，实在不重要就不反白了，反正那章打完连船回来没有都没说，一整艘船消失的事情就这样毫无下文了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑夜守望者  
+##### 59#       发表于 2025-3-9 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67615861&amp;ptid=2248036" target="_blank">acg_gyanc 发表于 2025-3-9 21:22</a>
+
+那里确实挺搞笑，实在不重要就不反白了，反正那章打完连船回来没有都没说，一整艘船消失的事情就这样毫无 ...</blockquote>
+我越复盘越觉得太多坑没填，除了前面几楼提到的，还有第三案王子和莫里森和冯谈话内容是什么也不知道，第二案米莉亚姆的证言王子投资的召唤术研究，全都没了后文。全都涉及到王子，而且王子黑化实在是太突然了，让我怀疑是临时决定让王子当最终boss，王子真是死（黑化）得不明不白
+
+如果说断刀复盘后从7.5升到了8，那奥术律师我只能觉得不如断刀了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑夜守望者  
+##### 60#       发表于 2025-3-9 21:37
+
+ 本帖最后由 黑夜守望者 于 2025-3-9 21:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67615850&amp;ptid=2248036" target="_blank">白軍浪 发表于 2025-3-9 21:20</a>
+应该是厄里斯</blockquote>
+没证据，没动机。
+
+其实我一开始还以为是第二案开头华/莱/士质问校长的一句话“威廉弗雷加能将整个商队连人带车传送到大陆另一头”的伏笔，结果是我想多了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
