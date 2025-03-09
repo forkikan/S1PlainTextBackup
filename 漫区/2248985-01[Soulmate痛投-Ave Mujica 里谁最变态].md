@@ -899,3 +899,11 @@ mygo里看春日影哭着跑出去的时候给初华打的电话吧，我感觉�
 泥潭之前还有人说母鸡卡的烂不过是完结多年后被遗忘路边的一条🐶，现在看这么变态的歌词面前，谁敢说是烂 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">Y1S1，因为变态被人铭记，跟因为烂被人铭记可不是一回事
 
+
+*****
+
+####  sdeplee  
+##### 88#       发表于 2025-3-9 16:04
+
+初祥俩神经病赶紧锁死<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

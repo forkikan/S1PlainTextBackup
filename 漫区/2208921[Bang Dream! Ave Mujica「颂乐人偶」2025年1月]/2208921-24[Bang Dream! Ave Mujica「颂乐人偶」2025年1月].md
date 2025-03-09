@@ -11138,3 +11138,36 @@ live散场又是海铃送的人，大猫自己一个人溜了。
 但难绷的是在场外无论访谈还是声优线下营业都见不到一点卖喵睦的意思，都是素睦和睦祥 ...</blockquote>
 别急，等这周柿本再出个新访谈就给你卖了，顺便帮你官方解读一下，祥子对小睦死了是怎么想的，睦墨融合是怎么回事，新睦头是怎么样的，新睦头和祥子会是什么关系
 
+
+*****
+
+####  安娜导函数  
+##### 35042#       发表于 2025-3-9 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67613758&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-9 15:50</a>
+猫睦没回啥箭头吧，大概率新生睦也不会太回喵梦箭头
+
+真认真卖其实这对是可以卖挺好，单箭头也无所谓，可惜 ...</blockquote>
+从第二话那么多集都铺垫了喵梦对睦头有特殊情愫，最后终于染上了不也是很正常嘛，至少我觉得比之前预测的祥堕来的能接受，而且我是睦头肉体厨，小短裤真心喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  联想会  
+##### 35043#       发表于 2025-3-9 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67613787&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-9 15:55</a>
+别急，等这周柿本再出个新访谈就给你卖了，顺便帮你官方解读一下，祥子对小睦死了是怎么想的，睦墨融合是 ...</blockquote>
+感觉初祥正剧里也会卖得很抽象，然后靠访谈找补<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  非建政专用号  
+##### 35044#       发表于 2025-3-9 16:03
+
+现在已经访谈比动画好看的环节了，大柿老师每一句话都比串子一辈子的努力强
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
