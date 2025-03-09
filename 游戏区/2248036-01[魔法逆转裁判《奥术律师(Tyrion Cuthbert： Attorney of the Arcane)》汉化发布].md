@@ -644,3 +644,16 @@ SteamDeck需要安装运行库吗？</blockquote>
 
 其实我一开始还以为是第二案开头华/莱/士质问校长的一句话“威廉弗雷加能将整个商队连人带车传送到大陆另一头”的伏笔，结果是我想多了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  白軍浪  
+##### 61#       发表于 2025-3-9 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67615949&amp;ptid=2248036" target="_blank">黑夜守望者 发表于 2025-3-9 21:37</a>
+
+没证据，没动机。
+
+其实我一开始还以为是第二案开头华/莱/士质问校长的一句话“威廉弗雷加能将整个商队连 ...</blockquote>
+当时地图里有这个能力的就她了吧
+

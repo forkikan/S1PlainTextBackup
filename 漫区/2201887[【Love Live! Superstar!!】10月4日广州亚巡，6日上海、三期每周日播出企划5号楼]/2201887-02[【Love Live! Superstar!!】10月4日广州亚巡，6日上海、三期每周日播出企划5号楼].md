@@ -269,3 +269,25 @@ CelticWhite：
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  离心  
+##### 1546#       发表于 2025-3-9 21:50
+
+14首曲子？有2首cw?<img src="https://p.sda1.dev/22/6fda5c782526721adbe5394c2711da51/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ViyViy  
+##### 1547#       发表于 2025-3-9 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616039&amp;ptid=2201887" target="_blank">离心 发表于 2025-3-9 21:50</a>
+
+14首曲子？有2首cw?
+
+—— 来自 鹅球 v3.3.96</blockquote>
+1首团曲+11solo+OP/ED 14首
+

@@ -82,3 +82,12 @@ ucg说的是笔记本残血版30702k中等画质可以60帧，贴吧有人4060dl
 
 幽默忍组，反正起源一出，现在是没法甩锅引擎了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  寂长无星夜  
+##### 3411#       发表于 2025-3-9 21:46
+
+忍组正常水平<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/87c2e69fd0da1dea44b0337c12fb9921/image.jpg" referrerpolicy="no-referrer">
+
