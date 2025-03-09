@@ -12600,3 +12600,139 @@ go吧指出甜甜圈女士演的角色最后被砍头了，而初音即将上断
 
 还好吧，重组母鸡卡算是挽回了观感
 
+
+*****
+
+####  zhoujin8584  
+##### 35177#       发表于 2025-3-9 23:04
+
+<img src="https://img.saraba1st.com/forum/202503/09/230412pnm2f3am933oybac.jpg" referrerpolicy="no-referrer">
+
+<strong>1741532361776.jpg</strong> (245.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-9 23:04 上传
+
+*****
+
+####  Akari  
+##### 35178#       发表于 2025-3-9 23:06
+
+看了李子这个采访，难怪12月的花篮奏音要单独拎出来注意关系性。
+
+我和朋友的那个花篮不仅再现了ED，甚至还把祥子对初华救赎也压中了。
+
+夸夸我自己。
+
+*****
+
+####  钦念以忱  
+##### 35179#       发表于 2025-3-9 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616473&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2025-3-9 23:02</a>
+
+其实如祥子这种步步皆错、每一次选择都会造成不可避免的糟糕后果并招致痛苦的角色。现实里真有这种人，我会 ...</blockquote>
+参考这贴的部分理论：[丰川祥子堂吉诃德论](https://bbs.nga.cn/read.php?tid=43485575)，祥子“做错事”的根源在于她模仿贵族道德，所以勉强算是控诉贵族制门阀制对鲜活的少女的异化吧，作为文学作品是弱了点，但作为二次元作品大概刚刚好。
+
+*****
+
+####  ape-apple  
+##### 35180#       发表于 2025-3-9 23:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">不开玩笑，我真觉得mujica维系活动的唯一可能性就是约炮说，五个人闲来无事就找个地方疯狂卓艾，卓完事了就换装live，live结束了就散，因为正常人实在想不出他们有什么再保持连接状态的必要性
+
+*****
+
+####  cxj649  
+##### 35181#       发表于 2025-3-9 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616473&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2025-3-9 23:02</a>
+
+其实如祥子这种步步皆错、每一次选择都会造成不可避免的糟糕后果并招致痛苦的角色。现实里真有这种人，我会 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我更好奇一些观众还要让大祥道歉没
+
+*****
+
+####  是谁的书画  
+##### 35182#       发表于 2025-3-9 23:08
+
+ 本帖最后由 是谁的书画 于 2025-3-9 23:10 编辑 
+
+其实只要用“其实祥子就是想被磨了，但是她就是不好意思开口。”，就可以解释100%她在剧里稀奇古怪的行为。
+
+*****
+
+####  thisisaspider  
+##### 35183#       发表于 2025-3-9 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616480&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-9 23:02</a>
+之前访谈里柿本说参考了多种现实里的精神疾病，其中有提到一个孟乔森综合征，我当时没想明白用在哪了，现在 ...</blockquote>
+这个确实是伏笔但是可能不是你说的。
+这里可能指代墨装病骗soyo陪了她三天三夜，用舞鞋打电话。后来因为墨实际上能用手机穿帮了。当然你也可以理解为墨随着人格稳定功能强大了又学会用手机了。
+
+按睦装病说要推到太多东西了。
+
+*****
+
+####  金钱与民主  
+##### 35184#       发表于 2025-3-9 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616516&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-3-9 23:08</a>
+
+我更好奇一些观众还要让大祥道歉没</blockquote>
+难道祥子不该道歉么？现在分明是剧组自己按着她不让道歉，看你是推子楼那边经常出没的人，你觉得有马加奈要不要对黑川茜道歉？
+
+*****
+
+####  南宮凝香  
+##### 35185#       发表于 2025-3-9 23:11
+
+敗筆就是回豐川家了
+
+物資上讓祥回血了
+
+那要讓觀眾共情她精神上的缺失的難度就加倍了
+
+制作組明顯沒那能力
+
+結果是悲劇變鬧劇
+
+*****
+
+####  aptx8285144  
+##### 35186#       发表于 2025-3-9 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616482&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-9 23:03</a>
+
+还好吧，重组母鸡卡算是挽回了观感</blockquote>
+初华要组母鸡卡上面的人不同意，丰川家要组母鸡卡，很快组完了，感觉这是一种滑稽体现阶级不平等的故事<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白色池塘  
+##### 35187#       发表于 2025-3-9 23:12
+
+细品了一下，初华（初音）这拧巴性格也不是不能解释。如果小姨说为真，那么那个卑微懦弱说不出一句囫囵话的初华才是原本的她，自信大主唱不过是面具罢了。看初华在丰川大宅那个害怕的态度，八成是作为私生子已经习惯了对本家唯唯诺诺，小祥这个高贵的丰川正统公主竟然如此温柔地平等地对待她，乡下金毛犬当然会爱得无法自拔了。双子之谜大概跟寒蝉类似，见不得光的私生子初音本该永远留在岛上，初华怜悯她，两个人互换身份让初音去体验外面的世界，不过现在初音估计打死都不想回去了。
+
+*****
+
+####  联想会  
+##### 35188#       发表于 2025-3-9 23:12
+
+泥漏已经从小祥绿帽癖进化成小祥抖m了？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  thisisaspider  
+##### 35189#       发表于 2025-3-9 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616504&amp;ptid=2208921" target="_blank">Akari 发表于 2025-3-9 23:06</a>
+看了李子这个采访，难怪12月的花篮奏音要单独拎出来注意关系性。
+
+我和朋友的那个花篮不仅再现了ED，甚至还 ...</blockquote>
+细说一下zsbd
+
