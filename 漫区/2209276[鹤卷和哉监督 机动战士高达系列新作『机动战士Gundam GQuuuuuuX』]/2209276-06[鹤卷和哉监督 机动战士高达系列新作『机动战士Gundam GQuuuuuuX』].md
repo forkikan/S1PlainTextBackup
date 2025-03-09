@@ -10729,3 +10729,14 @@ https://x.com/youri_you_ri/status/1898351139277717518
 
 另外就是现有的两首歌都用到了"光年"这种说法，你就等着看神棍吧，别忘了这是khara
 
+
+*****
+
+####  纪寞  
+##### 8256#       发表于 2025-3-9 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616014&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-3-9 21:46</a>
+
+哈曼的精神力感应大魔，也是用和红高达一样的大型Bit。不过其Bit不是外挂，另外有独立飞行舱室收纳。这 ...</blockquote>
+再来就是鸭子的灵魂寄宿在塞可缪中，而UC正史能达到这种长期容纳灵魂的东西也不用我说是什么了吧，那你觉得阿尔法是什么水平，而且如果阿尔法没和奥米加一个级别它凭什么拿来对应奥米加。
+

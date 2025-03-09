@@ -12375,3 +12375,26 @@ LaLa arena TOKYO-BAY
 
 go吧指出甜甜圈女士演的角色最后被砍头了，而初音即将上断头台（旁白），所以sum真得一起死了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ape-apple  
+##### 35155#       发表于 2025-3-9 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616178&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-3-9 22:15</a>
+
+观众：又哈气！必须道歉！</blockquote>
+不用道歉了，这个乐队持续多久，祥子就要承受多久的碟刑，甚至初华也是祥子所受碟刑的一部分，如果你想要我的肉体，那这具肉体就随你使用
+
+*****
+
+####  cxj649  
+##### 35156#       发表于 2025-3-9 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616199&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-3-9 22:18</a>
+
+不用道歉了，这个乐队持续多久，祥子就要承受多久的碟刑，甚至初华也是祥子所受碟刑的一部分，如果你想要 ...</blockquote>
+随着黄毛的本性曝光<img src="https://static.saraba1st.com/image/smiley/carton2017/359.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/carton2017/487.png" referrerpolicy="no-referrer">
+
+观众对受刑人的一些执念会淡化吧<img src="https://static.saraba1st.com/image/smiley/carton2017/352.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/carton2017/481.png" referrerpolicy="no-referrer">
+
