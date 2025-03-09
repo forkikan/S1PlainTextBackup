@@ -511,3 +511,14 @@ SteamDeck需要安装运行库吗？</blockquote>
 
 我倒是觉得读心挺好的，丰富叙事维度，加快剧情推进节奏，最终还是靠逻辑
 
+
+*****
+
+####  黑夜守望者  
+##### 48#       发表于 2025-3-9 18:55
+
+ 本帖最后由 黑夜守望者 于 2025-3-9 18:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67614812&amp;ptid=2248036" target="_blank">卡拉德利姆 发表于 2025-3-9 18:37</a>
+我倒是觉得读心挺好的，丰富叙事维度，加快剧情推进节奏，最终还是靠逻辑 ...</blockquote>
+真要靠全靠逻辑我就不会这么不满，很多都是问话→对方不肯说或者说了句假话→听到心声，用听到的心声直接问是不是这样→对方放弃抵抗直接和你坦白。我就请问了你靠什么逻辑让对方和你坦白的。反正你都这么耍赖而且还是魔法背景，还不如设置男主会魅惑术得了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
