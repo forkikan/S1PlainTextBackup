@@ -13095,3 +13095,55 @@ mujica有非常多的元素可以表达主题。初华旁白，live，小祥中�
 重点在于心态，祥子可以不做平民，但需要她理解平民，至少需要明白自己和其他人本质是一样的，但她只是一 ...</blockquote>
 互相帮助前进也是平民精神之一。祥子可能没有理解这一点。但睦要算作亲人。
 
+
+*****
+
+####  天空塔书记官  
+##### 35223#       发表于 2025-3-9 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616845&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-9 23:56</a>
+互相帮助前进也是平民精神之一。祥子可能没有理解这一点。但睦要算作亲人。 ...</blockquote>
+但其实她和睦其实也没有多深的联系不是吗，现在这样更像是被制作组摁上的设定
+
+这就是睦祥关系描写最失败的地方<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  联想会  
+##### 35224#       发表于 2025-3-10 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616868&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-3-9 23:58</a>
+但其实她和睦其实也没有多深的联系不是吗，现在这样更像是被制作组摁上的设定
+
+这就是睦祥关系描写最失败 ...</blockquote>
+制作组不是说。。木箱肉体上相近但是心灵上疏远吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">哪里摁上设定了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  thisisaspider  
+##### 35225#       发表于 2025-3-10 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616868&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-3-9 23:58</a>
+但其实她和睦其实也没有多深的联系不是吗，现在这样更像是被制作组摁上的设定
+
+这就是睦祥关系描写最失败 ...</blockquote>
+不太可能，睦对祥的爱已经可以启动第二人格了。祥对睦也可以放下自尊。
+
+*****
+
+####  adretyu67.  
+##### 35226#       发表于 2025-3-10 00:03
+
+ 本帖最后由 adretyu67. 于 2025-3-10 00:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616754&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-9 23:43</a>
+
+有时候就是会觉得 mujica 这片子的世界观假真实的点就在这，我个人总会希望能更偏向美少女的爱与希望这块 ...</blockquote>
+最速武道馆这个设定是对应狗动画里的大祥老师给鸡团定的目标“最速出名”。
+
+考虑到鸡狗动画之间直接略过了鸡成名的1个半月还是2个月来着，就是准备直接盛极而衰了。
+
