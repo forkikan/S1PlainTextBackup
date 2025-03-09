@@ -4847,3 +4847,19 @@ kokoro：我是来当偶像的你们要干嘛！
 坏人还是不如蠢人破坏力大</blockquote>
 确实，不是QB那种纯坏的，单纯脑子里缺根筋
 
+
+*****
+
+####  MLP_102  
+##### 717#       发表于 2025-3-9 16:45
+
+在意这里的照片，小紫的父亲应该没在身边吧，会是什么原因呢（外出工作，离异，身故） 
+
+<img src="https://img.saraba1st.com/forum/202503/09/164352y50cxjj56zlaibci.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (277.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-9 16:43 上传
+
