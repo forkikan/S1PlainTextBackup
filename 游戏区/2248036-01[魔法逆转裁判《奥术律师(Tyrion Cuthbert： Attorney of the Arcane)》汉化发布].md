@@ -557,3 +557,22 @@ SteamDeck需要安装运行库吗？</blockquote>
 
 4个emoji表情包的设定真的是个很出彩的点子，太能让人共情了
 
+
+*****
+
+####  fmban  
+##### 53#       发表于 2025-3-9 20:31
+
+我印象中部分用不上的证物在荷鲁斯之眼偷窥环节出示有特殊补充说明（不加进度条）， 第二案不记得出示作弊传闻有无，但那个臭教室肯定有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DET  
+##### 54#       发表于 2025-3-9 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67615039&amp;ptid=2248036" target="_blank">acg_gyanc 发表于 2025-3-9 19:15</a>
+
+这里我也记得有个特别明显的，就是魔法学校的案子，前面先垫了米莉亚姆成绩非常好，但是搜出来一张受害人 ...</blockquote>
+剧透预警
+还有第三案比较明显的是被害者和公会长出去聊天，第四案就是清洁工偷听到的证词，第五案小王子证词的魔法的之类的，这些明显都是有些说法的结果完全没用上……
+
