@@ -12398,3 +12398,25 @@ go吧指出甜甜圈女士演的角色最后被砍头了，而初音即将上断
 
 观众对受刑人的一些执念会淡化吧<img src="https://static.saraba1st.com/image/smiley/carton2017/352.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/carton2017/481.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  金钱与民主  
+##### 35157#       发表于 2025-3-9 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616186&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-9 22:16</a>
+
+go吧指出甜甜圈女士演的角色最后被砍头了，而初音即将上断头台（旁白），所以sum真得一起死了 ...</blockquote>
+甜甜圈饰演的是安托瓦内特，她的结局早就人人皆知了吧......
+
+*****
+
+####  是谁的书画  
+##### 35158#       发表于 2025-3-9 22:30
+
+ 本帖最后由 是谁的书画 于 2025-3-9 22:32 编辑 
+
+一想到大黄狗居然可以在一具没有知觉的尸体上获得快感，我就觉得女同作为以神交为主要输出手段的人生小爱好，有一些部分内容是我只需进行观察但不需要也最好别能够理解的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+十多年来居然在同一个事情上重复感到震撼，南无三，何等醍醐
+

@@ -3791,3 +3791,18 @@ https://bgm.tv/subject/topic/33083
 
 后篇攻略，卡碎片了可以看看
 
+
+*****
+
+####  best32167  
+##### 335#       发表于 2025-3-9 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67615906&amp;ptid=2246453" target="_blank">blueelf 发表于 2025-3-9 21:30</a>
+
+https://bgm.tv/subject/topic/33083
+
+后篇攻略，卡碎片了可以看看</blockquote>
+转啊转发现问题了，停尸处提到的三兄弟没找不齐，缺钥匙
+
+一点印象都没...
+

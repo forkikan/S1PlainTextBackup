@@ -4962,3 +4962,11 @@ pulilun怎么比克罗贝鲁斯还无能啊
 
 话说我觉得心变身的发型还没有常态可爱
 
+
+*****
+
+####  キュアアイドル  
+##### 727#       发表于 2025-3-9 22:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">噗哩伦，难道那天在樱花树下我的决意你都已经忘记了吗……也许需要一些偶像活动让你清醒过来了
+
