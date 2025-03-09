@@ -11061,3 +11061,80 @@ live散场又是海铃送的人，大猫自己一个人溜了。
 可能是被要求保密了吧，连透喵睦的舅舅都没有</blockquote>
 这种剧情有啥好保密的<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  联想会  
+##### 35035#       发表于 2025-3-9 15:48
+
+猫睦这段单纯是舅舅无关心吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+看到后面几集的舅舅估计已经麻了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  罥索GFFF  
+##### 35036#       发表于 2025-3-9 15:48
+
+<blockquote>aptx8285144 发表于 2025-3-9 15:44
+这种剧情有啥好保密的</blockquote>
+不然完全没人透真的很怪
+
+*****
+
+####  syndrome2032  
+##### 35037#       发表于 2025-3-9 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67613714&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-9 15:44</a>
+这种剧情有啥好保密的</blockquote>
+有个剧透说最后是猫睦。但是没法考据是不是真的了。
+
+*****
+
+####  ntrntr1  
+##### 35038#       发表于 2025-3-9 15:50
+
+猫睦没回啥箭头吧，大概率新生睦也不会太回喵梦箭头
+
+真认真卖其实这对是可以卖挺好，单箭头也无所谓，可惜现在这个嘛，突出一个编剧大手你们该麦了
+
+好奇新生睦什么样子，继续放冰山美少女无脑支持祥子追小姨妈就很幽默了。
+
+*****
+
+####  syndrome2032  
+##### 35039#       发表于 2025-3-9 15:51
+
+鸡团cp这事就没办法。
+
+睦祥解锁，初祥瞎子都看得出来，海铃一直和隔壁鼓手。
+
+一个加强版关系不好的团碎了一地又要加新的关系性结果就是大猫执着睦的演技甚至严重到了自己都演不动的状态。
+
+
+*****
+
+####  是谁的书画  
+##### 35040#       发表于 2025-3-9 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67613758&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-9 15:50</a>
+猫睦没回啥箭头吧，大概率新生睦也不会太回喵梦箭头
+
+真认真卖其实这对是可以卖挺好，单箭头也无所谓，可惜 ...</blockquote>
+大概率就是怎么幽默了，她的事情一完就可以重置回出厂模式了。这片子从第一部开始就这样了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  钦念以忱  
+##### 35041#       发表于 2025-3-9 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67613657&amp;ptid=2208921" target="_blank">Skymoon 发表于 2025-3-9 15:33</a>
+
+但难绷的是在场外无论访谈还是声优线下营业都见不到一点卖喵睦的意思，都是素睦和睦祥 ...</blockquote>
+别急，等这周柿本再出个新访谈就给你卖了，顺便帮你官方解读一下，祥子对小睦死了是怎么想的，睦墨融合是怎么回事，新睦头是怎么样的，新睦头和祥子会是什么关系
+
