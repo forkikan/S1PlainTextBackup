@@ -10768,3 +10768,37 @@ Mortis：老睦，别装死了，你再不出来，祥要被人强碱了。</blo
 
 喵梦极有可能是因为想入赘若叶家才去跟木子米告白的
 
+
+*****
+
+####  swessia  
+##### 35009#       发表于 2025-3-9 13:31
+
+ 本帖最后由 swessia 于 2025-3-9 13:35 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真卖喵睦那在我眼里母鸡卡就可以彻底拉黑了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  白水潭的饿鬼  
+##### 35010#       发表于 2025-3-9 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67612873&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-9 12:58</a>
+
+很大程度上感谢李子的监禁12，这段谱曲描写虽然铺垫不足，但细品确实前无古人后无来者。初音脑内对祥子的亵 ...</blockquote>
+编剧就是在擦边套皮jk写苦情剧啊
+
+编剧想写的：
+
+翔子就是在和大金毛同居的时候被qj了，后面歌词根本不是预告而是忏悔
+
+编剧真写的：
+
+留白加擦边
+
+整个就是借少女乐队这个体系套皮在搞性癖放出，换个视角看才是编剧真想写的玩意<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+所以这局从mygo起逻辑就是连贯的，主角就是ccc的众人，除去ccc的众人不过是接盘侠加挂架，主题是前任文学，翔子就是女频式虐主大女主
+
