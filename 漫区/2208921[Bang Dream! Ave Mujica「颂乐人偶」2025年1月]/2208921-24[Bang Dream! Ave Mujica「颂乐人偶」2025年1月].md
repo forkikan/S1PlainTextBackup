@@ -12492,3 +12492,30 @@ go吧指出甜甜圈女士演的角色最后被砍头了，而初音即将上断
 
 只能说是该来的都来了。
 
+
+*****
+
+####  aptx8285144  
+##### 35166#       发表于 2025-3-9 22:49
+
+下面如果真得要斗财阀，那大象是不是在官方心里已经“很白”了，然后什么铁人三项，感觉真是很恍惚，大象就像什么觉悟都还没出来，也许就有“高光”了？也就是少女乐队这种题材随便玩玩，要是一个更加严肃题材番剧主角是这样，估计起码被关禁闭好几次了，而不是炸团就是惩罚，<strong>虽然母鸡卡号称是大象的余生，可是你敢违抗丰川家要组母鸡卡的我才是真正的余生这点太出戏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"></strong>
+
+*****
+
+####  6030sylar  
+##### 35167#       发表于 2025-3-9 22:50
+
+5人还缺少磨合时间，既然都拖了一年才上，剧中来个time jump 半年后也不为过吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  cxj649  
+##### 35168#       发表于 2025-3-9 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616392&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-9 22:49</a>
+
+下面如果真得要斗财阀，那大象是不是在官方心里已经“很白”了，然后什么铁人三项，感觉真是很恍惚，大象就 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">观众所以为象征意义的犯错误的主角的悔改仪式剧情一直没给233
+
