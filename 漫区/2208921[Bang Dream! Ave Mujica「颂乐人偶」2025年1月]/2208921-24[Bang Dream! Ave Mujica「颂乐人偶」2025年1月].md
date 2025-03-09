@@ -10545,3 +10545,31 @@ Mortis：老睦，别装死了，你再不出来，祥要被人强碱了。
 Mortis：老睦，别装死了，你再不出来，祥要被人强碱了。</blockquote>
 这么一说的话，初音这表情，我感觉老登赶紧把她叫回去看管起来才是老登对大祥的爱护<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天空塔书记官  
+##### 34989#       发表于 2025-3-9 11:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  厚乳果珍爽  
+##### 34990#       发表于 2025-3-9 11:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你说有没有一种可能丰川定治也是入赘进丰川家的？丰川家的血统决定了只能生女孩？丰川家至始至终都是母系遗传？
+
+*****
+
+####  blackeryuri2  
+##### 34991#       发表于 2025-3-9 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67611169&amp;ptid=2208921" target="_blank">DeltaStriker 发表于 2025-3-9 02:56</a>
+
+【母鸡卡，但是把4～10集全删掉】 https://www.bilibili.com/video/BV1Fz92YGERN/?share_source=copy_web&amp;v ...</blockquote>
+是个人都能比原作写得好，武士道真是活全家了
+
