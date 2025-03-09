@@ -10337,3 +10337,38 @@ image.png
 
 原来拿的也是鸭子剧本<img src="https://static.saraba1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gamedreamer  
+##### 8228#       发表于 2025-3-9 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67611421&amp;ptid=2209276" target="_blank">xwz 发表于 2025-3-9 08:19</a>
+原来拿的也是鸭子剧本</blockquote>
+快进到三人组，一个带墨镜，一个带假面,还有一个发出很奇怪的声音(指在太空中发疯<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  虛無迴廊  
+##### 8229#       发表于 2025-3-9 09:24
+
+这脸也没遮起来呀，至少得像抢银行一样剪两个洞再把整个头套起来把
+
+*****
+
+####  RE㐅ia  
+##### 8230#       发表于 2025-3-9 09:46
+
+<blockquote>虛無迴廊 发表于 2025-3-9 09:24
+这脸也没遮起来呀，至少得像抢银行一样剪两个洞再把整个头套起来把</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202503/09/094600ezn5fcf54r90eft9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>66F7043F-67D7-42FC-A862-947AB5FE4823.jpeg</strong> (58.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-9 09:46 上传
+

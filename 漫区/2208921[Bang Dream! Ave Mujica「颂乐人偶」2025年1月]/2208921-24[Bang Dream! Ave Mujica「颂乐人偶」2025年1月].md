@@ -10391,3 +10391,12 @@ soyo看到mortis拿起舞鞋打电话不知所措（mortis因为小睦消失自�
 
 祥子去睦门立雪是重温灯的贴纸之后，重组母鸡卡也是因为看过灯的贴纸。而灯新写的词还没交到祥子手里，不会最后追初华还要先读一遍吧。整个世界就是一个巨大的灯祥。
 
+
+*****
+
+####  aptx8285144  
+##### 34977#       发表于 2025-3-9 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67611162&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-9 02:50</a></blockquote>
+这种画风，这种歌词，我突然觉得海玲 的钱包已经是母鸡的卡组队这些潜在受益者里面最清白无辜的一个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
