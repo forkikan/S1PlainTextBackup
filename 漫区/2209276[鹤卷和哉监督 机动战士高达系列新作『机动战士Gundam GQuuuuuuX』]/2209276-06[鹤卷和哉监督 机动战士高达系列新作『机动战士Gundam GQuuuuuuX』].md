@@ -10296,3 +10296,44 @@ image.png
 
 鹤卷gg这么有个人风格的监督想当绿叶啊
 
+
+*****
+
+####  hosilly  
+##### 8225#       发表于 2025-3-9 01:48
+
+要不鹤卷哥哥帮忙带带锦织哥哥？
+或者看看斋藤押山这些年轻有为的导演？
+
+—— 来自 vivo V2284A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  AvenueIII  
+##### 8226#       发表于 2025-3-9 02:15
+
+鹤卷gg这么有个人风格的监督想当绿叶啊
+
+*****
+
+####  xwz  
+##### 8227#       发表于 2025-3-9 08:19
+
+<img src="https://img.saraba1st.com/forum/202503/09/081820kaazzchdtw8s8ha8.png" referrerpolicy="no-referrer">
+
+<strong>KZG[88P_AQNH7MV$AP3~JBT.png</strong> (792.72 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-9 08:18 上传
+
+<img src="https://img.saraba1st.com/forum/202503/09/081826n2wvv2z3bl2mv3l2.png" referrerpolicy="no-referrer">
+
+<strong>7HER_M)J793%%0LEC6MDF@O.png</strong> (800.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-9 08:18 上传
+
+原来拿的也是鸭子剧本<img src="https://static.saraba1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+
