@@ -12058,3 +12058,68 @@ bang23的ppp的香澄不就很卡里斯马。虽然我不太喜欢邦高祖的�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Lyzers  
+##### 35126#       发表于 2025-3-9 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67615611&amp;ptid=2208921" target="_blank">影伴光生 发表于 2025-3-9 20:47</a>
+
+不如去孕吧看🐘被拍卖，初华拼尽全力凑钱竞拍的故事（作者甚至做了三个结局）
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+只在第四集孕吧表示拼尽全力无法战胜官方时去那里瞄过一下，不了解好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhoujin8584  
+##### 35127#       发表于 2025-3-9 21:00
+
+监禁12百万播放了
+
+
+*****
+
+####  ape-apple  
+##### 35128#       发表于 2025-3-9 21:03
+
+喵睦就好像那个snh某一个小湖笔突然发现不麦咭就无法生存，于是随便找了一个队友就开卖
+另一方：？
+观众：？
+
+*****
+
+####  yy19  
+##### 35129#       发表于 2025-3-9 21:03
+
+<blockquote>南宮凝香 发表于 2025-3-9 18:51
+反派又不等同於爛人
+
+母雞卡的問題在角色爛，不是角色壞
+</blockquote>
+对。我很早就想吐槽了，比较怕母鸡卡烂完了，但更怕它丑完了，，小丑的丑。
+
+现在，果然是一堆小丑在台上演咯——搞笑的是stuff更是小丑中的小丑。摁着角色头整活出来的AM2.0，TMD还不如祥子当初预备这么那么搞的1.0（拟）呢🤣
+
+*****
+
+####  qratosones1337  
+##### 35130#       发表于 2025-3-9 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67612312&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-9 11:25</a>
+
+这么一说的话，初音这表情，我感觉老登赶紧把她叫回去看管起来才是老登对大祥的爱护 ...</blockquote>
+所以一开始老登看到大喵和初音的时候也没拦着，但是Live之后老登马上出来了，毕竟过家家可以，真超诗祥了肯定不行
+
+*****
+
+####  swessia  
+##### 35131#       发表于 2025-3-9 21:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">如果早点告诉我母鸡卡是五神人全员恶人的BE，而且还会死人，我第一时间跑
+
+我不信kirakira的少女乐队编剧能写成这个
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
