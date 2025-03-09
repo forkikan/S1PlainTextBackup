@@ -522,3 +522,11 @@ SteamDeck需要安装运行库吗？</blockquote>
 我倒是觉得读心挺好的，丰富叙事维度，加快剧情推进节奏，最终还是靠逻辑 ...</blockquote>
 真要靠全靠逻辑我就不会这么不满，很多都是问话→对方不肯说或者说了句假话→听到心声，用听到的心声直接问是不是这样→对方放弃抵抗直接和你坦白。我就请问了你靠什么逻辑让对方和你坦白的。反正你都这么耍赖而且还是魔法背景，还不如设置男主会魅惑术得了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DET  
+##### 49#       发表于 2025-3-9 19:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">感觉这游戏挖了很多坑没填上，不是指会明显出续作的那部分，就是单纯探案的部分，感觉制作组也有很多想法但是最后为了自圆其说就用了最保守的路，比如说其实还有很多物证和证词用不上，还以为每个疑点都会有一个说法解释，这就明显不如逆转
+
