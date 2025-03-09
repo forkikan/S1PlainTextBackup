@@ -13570,3 +13570,15 @@ Mujica在剧中的武道馆LIVE“Nostri Noctis”，就剧中细节来看只办
 
 勞動階級共情不了老錢的矯情是理所當然的
 
+
+*****
+
+####  thisisaspider  
+##### 35261#       发表于 2025-3-10 07:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67617534&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-10 07:22</a>
+她不在意物質
+
+但她所有東西都是物質性的</blockquote>
+我不知道你在上升什么阶级叙事。按剧中表现来说。go团所有人包括鸡团里的睦都是受扶养人口。与其说劳动阶级无法共情老钱。角色间的关系不如说受扶养人不能共情自立人。
+
