@@ -549,3 +549,11 @@ SteamDeck需要安装运行库吗？</blockquote>
 这里我也记得有个特别明显的，就是魔法学校的案子，前面先垫了米莉亚姆成绩非常好，但是搜出来一张受害人 ...</blockquote>
 哦你说这个我也想起来了，我都自动脑补成真凶伪造的证据了，现在想起来根本就没解释<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  油库里  
+##### 52#       发表于 2025-3-9 19:58
+
+4个emoji表情包的设定真的是个很出彩的点子，太能让人共情了
+
