@@ -12342,3 +12342,36 @@ LaLa arena TOKYO-BAY
 
 现在也不是古神吧，只是Mortis人格
 
+
+*****
+
+####  adretyu67.  
+##### 35152#       发表于 2025-3-9 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616119&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-9 22:04</a>
+
+现在也不是古神吧，只是Mortis人格</blockquote>
+大猫不分莫头和睦头的。
+
+
+*****
+
+####  cxj649  
+##### 35153#       发表于 2025-3-9 22:15
+
+ 本帖最后由 cxj649 于 2025-3-9 22:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616104&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-3-9 22:00</a>
+
+看牛姐漫评，我真觉得市一大师最后想写一个类似于《七磅》的故事，每个人都因为祥子的选择毁掉自己的人生， ...</blockquote>
+观众：又哈气！必须道歉！
+
+这种角色几年前见过，叫 古手梨花（业卒巡）<img src="https://static.saraba1st.com/image/smiley/carton2017/352.gif" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 35154#       发表于 2025-3-9 22:16
+
+go吧指出甜甜圈女士演的角色最后被砍头了，而初音即将上断头台（旁白），所以sum真得一起死了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
