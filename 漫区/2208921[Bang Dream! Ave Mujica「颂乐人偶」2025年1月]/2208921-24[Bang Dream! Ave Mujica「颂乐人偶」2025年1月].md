@@ -12979,3 +12979,119 @@ mujica有非常多的元素可以表达主题。初华旁白，live，小祥中�
 
 真正的平民生活不如说是群众精神。她作为大小姐活了15年，1年的时间又能改变什么。
 
+
+*****
+
+####  thisisaspider  
+##### 35212#       发表于 2025-3-9 23:48
+
+越和楼友探讨越觉得丰川祥子这个角色美味至极。真可惜。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 35213#       发表于 2025-3-9 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616713&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-9 23:37</a>
+现在还以正常的思维逻辑看待这番，你一定很难受吧
+等结局就完事了</blockquote>
+虽然之前说过，柿本应该为我看这部作品仍然能够保持正常观众的态度支付费用。
+但作为我个人而言，能够为这个屎作出现的问题解释出一个让我自己满意的原因，也算是我个人对自己受到恶心的消解了<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  swessia  
+##### 35214#       发表于 2025-3-9 23:50
+
+这几天对祥子的解读我在第十话一点没看出来<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">我觉得应该不是我的问题
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 35215#       发表于 2025-3-9 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616754&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-9 23:43</a>
+有时候就是会觉得 mujica 这片子的世界观假真实的点就在这，我个人总会希望能更偏向美少女的爱与希望这块 ...</blockquote>
+因为这种爱与梦想会毁灭别人的梦想，如果祥子真靠自己的力量超脱现实让一支刚组建没几场演出的乐队就制霸武道馆，那之前从数百只乐队卷出来的萝、RAS和ppp岂不是很可怜，她们的努力就那么一钱不值吗，那丰川老登还会影响到祥子吗，恐怕只能让弦卷和三原家出场才能给天降乐队圣人大祥老师制造一些微不足道的困难了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  玖羽  
+##### 35216#       发表于 2025-3-9 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616735&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-3-9 23:41</a>
+
+祥子的核心矛盾在于自己与乐队的关系，而不是是否执意脱离丰川家，同样是借助家族的资源和财力起家，楚平方 ...</blockquote>
+这跟chu2有一个根本性的不同：【chu2是小孩】，她的任何恶劣行为都会得到一层弱化，事实上chu2登场的时候踢垃圾桶再把垃圾捡回去这个行为就定性了：【本性不坏的急躁小孩】，说白了就是你不能跟小孩置气；
+
+据说喵梦的原案也是小孩外观，后来才由声优逆输入成御姐外观，如果喵梦真的是小孩外观，她身上的争议会少很多
+
+*****
+
+####  operatbig  
+##### 35217#       发表于 2025-3-9 23:51
+
+挺期待手游活动，想看祥子被灯的光芒净化稍微变回点人类，结果下一秒回到母鸡卡又被整傻了的剧情。<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  adretyu67.  
+##### 35218#       发表于 2025-3-9 23:53
+
+祥子组鸡1.0和鸡2.0的动机倒是没变过。
+
+都是大猫嘴的那句承担他人人生。
+
+所以说鸡动画闹麻了倒是真的，鸡10话直接平替到狗13话都行。
+
+*****
+
+####  thisisaspider  
+##### 35219#       发表于 2025-3-9 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616781&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-9 23:48</a>
+越和楼友探讨越觉得丰川祥子这个角色美味至极。真可惜。</blockquote>
+这么看来丰川祥子这个角色是有原型的。而且是非常相似的原型。虽然mygo和mujica中引入了大量文学。但好像都没法完全对上。
+
+*****
+
+####  天空塔书记官  
+##### 35220#       发表于 2025-3-9 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616763&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-9 23:45</a>
+真正的平民生活和真正的乐队人分开比较好。虽然可能同时成立，但不是同个东西。
+
+真正的平民生活不如说是 ...</blockquote>
+重点在于心态，祥子可以不做平民，但需要她理解平民，至少需要明白自己和其他人本质是一样的，但她只是一昧的封闭自我，真这就是能好好说话就可以解决的问题
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  天空塔书记官  
+##### 35221#       发表于 2025-3-9 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616798&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-3-9 23:50</a>
+这跟chu2有一个根本性的不同：【chu2是小孩】，她的任何恶劣行为都会得到一层弱化，事实上chu2登场的时候 ...</blockquote>
+问题是高一这个年龄就是小孩，我高中时班上就有一个人妻气质拉满的同学，她那时也只是一个高中生而已<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  thisisaspider  
+##### 35222#       发表于 2025-3-9 23:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616825&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-3-9 23:53</a>
+重点在于心态，祥子可以不做平民，但需要她理解平民，至少需要明白自己和其他人本质是一样的，但她只是一 ...</blockquote>
+互相帮助前进也是平民精神之一。祥子可能没有理解这一点。但睦要算作亲人。
+

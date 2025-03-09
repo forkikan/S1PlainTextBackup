@@ -10887,3 +10887,38 @@ https://x.com/youri_you_ri/status/1898351139277717518
 阿尔法本身可能就和玫瑰脱不开关系。红高达是基西莉亚那边的人改造的，而玫瑰也一直在她那边 ...</blockquote>
 我也这么认为啊，两者肯定是存在什么联系，而奥米加牵上线就是奥米加对应阿尔法，且是主角机系统，没理由不参与核心设定。
 
+
+*****
+
+####  Toby_dak  
+##### 8268#       发表于 2025-3-9 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616010&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-3-9 22:45</a>
+
+给首席哥开的通行证，GQX和红高达撞入side6的日期是UC0085.06.08
+
+剧场版开头发生在六月八号夜里，后半主角 ...</blockquote>
+夏利尔给卡姆兰不是通行证，而是入境申请卡。
+
+SIDE6是日本风的，所以这东西看上去就是日本的外国人入国纪录。去过日本的应该对这东西有印象吧。
+
+<img src="https://img.saraba1st.com/forum/202503/10/005324z9ddhdsd0dzkz4bs.jpg" referrerpolicy="no-referrer">
+
+<strong>キャプチャ.JPG</strong> (108.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-9 23:53 上传
+
+*****
+
+####  纪寞  
+##### 8269#       发表于 2025-3-9 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616757&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-3-9 23:43</a>
+
+还有一点指名道姓出动的是奥米加而不是说gqux。因为忌惮的对象是阿尔法和zeknova而不是一个79年的老爷机。 ...</blockquote>
+吉翁那边连启动条件都不知道，但是知道奥米加能压制阿尔法感觉是一件很奇妙的事。
+
+然后就是现在怀疑的红高达方与夏利尔暗中交易gqx(奥米加)，他们又知道奥米加的什么秘密，为什么需要它。
+
