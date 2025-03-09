@@ -90,3 +90,13 @@
 
 尸体软软的，很贴心<img src="https://static.saraba1st.com/image/smiley/face2017/262.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御坂MKII  
+##### 1209#       发表于 2025-3-10 01:42
+
+果然没啥事 两话琥珀用黑背景就是在骗情绪<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
