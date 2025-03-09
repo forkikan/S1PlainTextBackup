@@ -11134,3 +11134,35 @@ B站偷跑了一个55分钟各路盗摄混剪的版本，感觉光是看盗摄�
 所以我觉得他们现在还在side6是因为还需要先搞到奥米加，做到这步才能去地球。不过对于去地球这东西，我有 ...</blockquote>
 真正去地球打陆战，我最担心的是GQX那个脚（
 
+
+*****
+
+####  RE㐅ia  
+##### 8286#       发表于 2025-3-10 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67617111&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-3-10 00:50</a>
+
+真正去地球打陆战，我最担心的是GQX那个脚（</blockquote>
+那就海战～
+
+
+*****
+
+####  wpcc  
+##### 8287#       发表于 2025-3-10 01:02
+
+修司也看过时间的尽头 你居然是巴上帝啊
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  wpcc  
+##### 8288#       发表于 2025-3-10 01:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67617057&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-3-10 00:34</a>
+B站偷跑了一个55分钟各路盗摄混剪的版本，感觉光是看盗摄已经把剧场版看完了（） ...</blockquote>
+加上之前的战斗已经完全能拼出来了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

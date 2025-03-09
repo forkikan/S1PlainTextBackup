@@ -13397,3 +13397,78 @@ mujica代表的是反抗精神，X这首新歌里尤甚。
 
 起码把年龄改成20➕，sox，元素拉满，哥特曲风拉满，才敢提这种企划吧
 
+
+*****
+
+####  thisisaspider  
+##### 35245#       发表于 2025-3-10 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67617117&amp;ptid=2208921" target="_blank">黑色蘑菇 发表于 2025-3-10 00:52</a>
+在二偶片里看这种东西还是太恶心了，特别是拙劣的编剧搞得人不停出脑。
+
+天真又有殉道者情节的大小姐，在 ...</blockquote>
+我理解这些废案中没办法被移除的剧本核心。剧组无论如何都要写，导致叙事全崩了。
+
+*****
+
+####  adretyu67.  
+##### 35246#       发表于 2025-3-10 00:56
+
+合同live上给鸡团的定位词是箱庭中被封闭的永远。
+
+不知道鸡动画会不会回收这句话。
+
+狗的定位词，一个个瞬间累积成一辈子倒是已经知道了
+
+*****
+
+####  dicktt  
+##### 35247#       发表于 2025-3-10 00:57
+
+哈哈，可能是舔狗这个属性彻底污名化了感觉大家都挺讨厌初音的人设的，但是喜欢扭曲女同的我确实觉得这是目前mujica唯一让我能感觉到美味的角色了…希望后面的财阀戏不要搞太变态<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Akari  
+##### 35248#       发表于 2025-3-10 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67617113&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-10 00:51</a>
+
+虽然从现在制作组的操作上来看应该是做不出这样的东西了，不过我由衷的希望你说的都会在某种程度上达成吧 ...</blockquote>
+都说了，等着最后一层才能完成真正的mujica。
+
+当然这之前反抗的底蕴也都写在脸上：且不说祥子跟着老爸跑出去、组团就是为了“复仇”，她选择的叛逆的金属风和用来带流量的寸剧世界观这些行为看起来虽然都被大家说是闹麻了，但你不能不说她在反抗在挣扎，这是她的本能，不管是好是坏祥子天生就是有这个特性的。
+
+恰好是她这个特性加上天性的カリスマ，才能把这4个人凑到一起。
+
+
+*****
+
+####  UNISONIA  
+##### 35249#       发表于 2025-3-10 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67617081&amp;ptid=2208921" target="_blank">الطائر 发表于 2025-3-10 00:41</a>
+
+让武道馆连续坐满两天（一天票价不能收回成本）多少是要有人气的，更何况还是抽选。 ...</blockquote>
+Mujica在剧中的武道馆LIVE“Nostri Noctis”，就剧中细节来看只办了一天（应该是周末），也没有明确的坐满的描写，就剧中舞台布置和坐席来看，应该是wsd自己办过的ppp和RAS一样的半开坐席
+
+抽选这个……其实现在一些不能完售的LIVE也是走的抽选的，为了更好的坐席。我举我去过的真人团Mujica LIVE为例吧，其实2nd爱知和4th都没正常卖完，但是两次LIVE都是通过碟里的抽选卖的第一波票（S席只能先行抽选）
+
+*****
+
+####  thisisaspider  
+##### 35250#       发表于 2025-3-10 01:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67617133&amp;ptid=2208921" target="_blank">dicktt 发表于 2025-3-10 00:57</a>
+哈哈，可能是舔狗这个属性彻底污名化了感觉大家都挺讨厌初音的人设的，但是喜欢扭曲女同的我确实觉得这是目 ...</blockquote>
+初华角色按场外信息会有反转。但是好塑造还是坏，不好说。现在只能相信独角兽了。
+
+*****
+
+####  天空塔书记官  
+##### 35251#       发表于 2025-3-10 01:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
