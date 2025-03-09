@@ -13194,3 +13194,20 @@ mujica有非常多的元素可以表达主题。初华旁白，live，小祥中�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  钦念以忱  
+##### 35230#       发表于 2025-3-10 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616710&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-9 23:37</a>
+
+说到底还是为什么非要重组母鸡卡，除了海林自己做死的钱包外，其他的全都是大小姐之间闹麻了的破事，这个团 ...</blockquote>
+祥子和睦头想玩音乐了
+
+睦头只想和祥子一起玩音乐，祥子因为种种原因已经自己告诉自己我不玩音乐了
+
+第7话告诉我们祥子还愿意在crythic乐队里玩音乐，第9话告诉我们哪怕为了疑似人格分裂的睦头，crythic也重组不起来了
+
+于是祥子和睦头一起玩音乐只剩下ave mujica这个选项，重组ave mujica还即不能是祥子推动，也不能是睦头推动，最后演出来的就是第10话的样子。
+
