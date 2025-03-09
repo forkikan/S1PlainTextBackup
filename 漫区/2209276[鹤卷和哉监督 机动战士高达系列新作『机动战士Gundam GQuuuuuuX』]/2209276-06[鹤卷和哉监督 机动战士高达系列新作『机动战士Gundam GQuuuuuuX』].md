@@ -11186,3 +11186,14 @@ B站偷跑了一个55分钟各路盗摄混剪的版本，感觉光是看盗摄�
 
 想法和楼上几位不太一样，我觉得夏利亚有种z中夏亚的感觉，老谋深算但是对同事部下又很温柔。所以他说吉翁太穷才不换战舰，只有赛可谬才可以对抗红高达什么的都是骗人的，他就是故意要把赛可谬送到side6然后启动的。
 
+
+*****
+
+####  Aaa炒面面包批发  
+##### 8291#       发表于 2025-3-10 02:49
+
+电影绘柄太稳了，而且很还原竹的特色，买了很多胶片，先简单拍点<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">对光好好看，拍不出实物肉眼看的色彩。
+<img src="https://p.sda1.dev/22/34b69517e92baf28fcb2e3eb2efa17d7/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
