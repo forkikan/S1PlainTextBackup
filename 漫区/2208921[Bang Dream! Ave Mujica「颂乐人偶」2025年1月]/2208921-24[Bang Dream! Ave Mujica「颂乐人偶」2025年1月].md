@@ -13147,3 +13147,50 @@ mujica有非常多的元素可以表达主题。初华旁白，live，小祥中�
 
 考虑到鸡狗动画之间直接略过了鸡成名的1个半月还是2个月来着，就是准备直接盛极而衰了。
 
+
+*****
+
+####  哈曼的YY  
+##### 35227#       发表于 2025-3-10 00:10
+
+<img src="https://img.saraba1st.com/forum/202503/10/001034g4z65n6nkonzli74.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>000953vjbcy2mumzju3jup.webp</strong> (17.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-10 00:10 上传
+
+<img src="https://img.saraba1st.com/forum/202503/10/001039utqg3tt7q5983gsq.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>000933ner54khhhb3kguev.webp</strong> (169.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-10 00:10 上传
+
+*****
+
+####  天空塔书记官  
+##### 35228#       发表于 2025-3-10 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616891&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-10 00:02</a>
+不太可能，睦对祥的爱已经可以启动第二人格了。祥对睦也可以放下自尊。 ...</blockquote>
+因为这种关系就像无根之萍，它没有足够牢靠的根基，所以无法令人信服，因为柿本说了“睦祥没有特别的过去”，这句话的言下之意就是，她们的过去可以忽略，这是在否定角色的可能性与人生经历对关系性的塑造，没有过去的角色就没有未来，这是我一直信奉的创作理念，所以我无法认同<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  是谁的书画  
+##### 35229#       发表于 2025-3-10 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616796&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-3-9 23:50</a>
+因为这种爱与梦想会毁灭别人的梦想，如果祥子真靠自己的力量超脱现实让一支刚组建没几场演出的乐队就制霸 ...</blockquote>
+在 mujica 片场肯定主视角是在🐔身上。虽然我认为你说的都是对的也同意你的观点。
+以我的角度从这部剧来看，对于自己天生起点就比别人高而且甚至意识不到，自我行动没有目标没有意义，那简直是最糟糕透顶的。
+打个比方，玩法环开了风灵月影，一路无敌过去了。别人问为什么要这样玩魂游，得到的回答既不是“我想通关看剧情”或者“我就菜没办法”而是更让人无语的“其实什么游戏都一样，我只是想消磨时间”
+我所质疑的就在这，天生通关开挂般的后台背景获得了邦历史上最高的起点，那你不过是被圈养的金丝雀罢了，而最糟糕的祥子甚至可能不觉得这有问题。那给人带来的观感就是无药可救的。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
