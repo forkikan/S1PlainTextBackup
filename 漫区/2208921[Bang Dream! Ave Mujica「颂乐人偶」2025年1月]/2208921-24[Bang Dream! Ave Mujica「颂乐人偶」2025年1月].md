@@ -13886,3 +13886,35 @@ kkr才是真的把大小姐当作身份点缀，而丰川资本就像mujica这�
 现在都摆明了mujica从创作开始就是一个反邦多利内核的企划 被后续强行放进邦多利里 拿之前的邦邦套毫无意义 ...</blockquote>
 我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">…我其实更想看的是原案的go团是什么样子的…感觉那个更好玩（
 
+
+*****
+
+####  syndrome2032  
+##### 35289#       发表于 2025-3-10 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67618435&amp;ptid=2208921" target="_blank">595505568 发表于 2025-3-10 10:03</a>
+我…我其实更想看的是原案的go团是什么样子的…感觉那个更好玩（</blockquote>
+原案那个设定就是ppp+roselia
+相当于原案灯=狗灯+爱音
+原案爱音=猫
+
+*****
+
+####  thisisaspider  
+##### 35290#       发表于 2025-3-10 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67618297&amp;ptid=2208921" target="_blank">UNISONIA 发表于 2025-3-10 09:47</a>
+綾奈当时贴推上的行式关系表有暗示过一次初华和睦后面遮盖掉的部分是相反的
+
+猜测睦除了忠实执行了不把祥 ...</blockquote>
+让睦和祥子用诡异的方式吵一架，然后炸团。这样过家家就落实了。后面冰释前嫌。不过这个关系性有点太正统了。
+
+*****
+
+####  天空塔书记官  
+##### 35291#       发表于 2025-3-10 10:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
