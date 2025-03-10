@@ -3806,3 +3806,11 @@ https://bgm.tv/subject/topic/33083
 
 一点印象都没...
 
+
+*****
+
+####  绞首浪漫派丶  
+##### 336#       发表于 2025-3-10 09:16
+
+地图真牛，战斗真一点不想玩。打到瀑布已经开始对多动症蜜蜂感到烦躁了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

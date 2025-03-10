@@ -13769,3 +13769,21 @@ Mujica在剧中的武道馆LIVE“Nostri Noctis”，就剧中细节来看只办
 
 打住吧，你们觉得我有问题那就是。不讨论这些。
 
+
+*****
+
+####  哈曼的YY  
+##### 35278#       发表于 2025-3-10 09:17
+
+这系列这么多富婆 观众都无法共情了是吧 重点是这里吗
+
+
+*****
+
+####  thisisaspider  
+##### 35279#       发表于 2025-3-10 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67617952&amp;ptid=2208921" target="_blank">間桐櫻 发表于 2025-3-10 09:03</a>
+如果不寫睦有雙重人格 祥睦的愛恨關係在這片裡應該怎樣寫？</blockquote>
+挺难的，但编剧都下场按头了。不是没办法。
+

@@ -3291,3 +3291,40 @@ PSP版就修了
 
 听起来应该是少个BGM文件……因为跟他对话会切BGM……
 
+
+*****
+
+####  alfredno2  
+##### 353#       发表于 2025-3-10 09:18
+
+遇到了2个BUG
+
+通需要用玫瑰胸针加入的家伙对话会卡死
+
+文字换成日语就能过去
+
+第二个收齐108星石板 退出时就几率死机
+
+
+*****
+
+####  alfredno2  
+##### 354#       发表于 2025-3-10 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67617884&amp;ptid=2090186" target="_blank">ztkong 发表于 2025-3-10 08:55</a>
+
+有人打2代遇到死机bug么囧。。。
+
+进度在打完卢卡，然后自由行动去水门用蔷薇胸针收贵族那。。。开始对话到 ...</blockquote>
+语言改成日语 加入之后再改回来
+
+*****
+
+####  ztkong  
+##### 355#       发表于 2025-3-10 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67618088&amp;ptid=2090186" target="_blank">alfredno2 发表于 2025-3-10 09:22</a>
+
+语言改成日语 加入之后再改回来</blockquote>
+感谢，下班回去搞
+
