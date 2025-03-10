@@ -473,3 +473,13 @@ spacex拿kerbal模拟，这灾难性的失败简直是板上钉钉的
 
 上一个还是苹果
 
+
+*****
+
+####  StrangerJ  
+##### 52#       发表于 2025-3-10 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67624440&amp;ptid=2249415" target="_blank">larry1 发表于 2025-3-10 23:30</a>
+有句港句，特斯拉性价比真不太高，毛坯房，安全堪忧，这些人只是为了买洋车给自己找理由吧，理解一下对国外 ...</blockquote>
+这就有点瞎黑了，像my，限牌大城市里，要求纯电suv，空间够大，但是又不至于太大导致老小区里不好开，再沾个操控好，再加上一部分人对洋牌子的迷信，卖的好还是合理的。
+

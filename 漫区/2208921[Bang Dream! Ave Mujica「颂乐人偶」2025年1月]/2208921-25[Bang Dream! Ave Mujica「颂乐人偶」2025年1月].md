@@ -364,3 +364,51 @@ mygo第十一话开头有个庄周梦蝶
 
 那个就是她理解里的完美。莫头的所有演技在她看来都比不上那一瞬。
 
+
+*****
+
+####  thisisaspider  
+##### 35552#       发表于 2025-3-10 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67624500&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-10 23:37</a>
+大猫就是被鸡2话木头那个断线瘫吓疯了。
+
+那个就是她理解里的完美。莫头的所有演技在她看来都比不上那一 ...</blockquote>
+可以这么解释，但我这边主要是讲第10集这部分。要理解起来挺绕的。莫的演技完美，但是达不到断线表演的怪物级一半水平。
+
+*****
+
+####  adretyu67.  
+##### 35553#       发表于 2025-3-10 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67624496&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-10 23:36</a>
+
+冰恋太过了，实际上只是歌词里的折翼堕临。</blockquote>
+第二段那段冰冷双手埋葬所爱，总觉得是歌词里的我为了独占所以杀了她。
+
+
+*****
+
+####  钦念以忱  
+##### 35554#       发表于 2025-3-10 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67624527&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-10 23:41</a>
+
+第一段是**堕落被我监禁
+
+第二段那段冰冷双手埋葬所爱，总觉得是歌词里的我为了独占她所以杀了她。 ...</blockquote>
+我猜初音的姐妹真初华已经死了，骨灰是初音亲手埋葬的
+
+当然这里也在对应mortis亲手杀了小睦人格
+
+甚至可以对应祥子把小睦拉进mujica最后害死了小睦
+
+*****
+
+####  zhoujin8584  
+##### 35555#       发表于 2025-3-10 23:47
+
+<blockquote>thisisaspider 发表于 2025-3-10 23:34
+喵梦第一次说莫表演睦的时候是，恶心，很像，简直完美。但回头则是，半吊子，称不上怪物。说实话看不懂。需 ...</blockquote>
+神态很像，语气很像，外在的空壳很像，但此时的莫并没有去理解睦，睦也不会想要mujica，所以情感、台词都不对。
+
