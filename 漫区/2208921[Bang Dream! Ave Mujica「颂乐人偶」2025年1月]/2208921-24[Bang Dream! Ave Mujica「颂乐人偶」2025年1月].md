@@ -15997,3 +15997,43 @@ i want you后面加了个句号表示断句。
 
 大祥老师给我的感觉就是角色魅力太少了搞着搞着都像拔作女角了，还是很差那种拔作
 
+
+*****
+
+####  是谁的书画  
+##### 35486#       发表于 2025-3-10 19:42
+
+祥子过于软暖了，哪怕第十集后半切回一开始的冷面祥模式还是给人一种邦邦必吃榜的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 35487#       发表于 2025-3-10 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67622942&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-10 19:18</a>
+i want you后面加了个句号表示断句。
+
+下面是know how much又没有主语。</blockquote>
+其实加了to后整个句子意思变了，从“你知道我想要你”变成了“我想要你知道”。
+
+*****
+
+####  滑稽Captain  
+##### 35488#       发表于 2025-3-10 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67622684&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-3-10 18:38</a>
+
+憎恨ccc是原案，被改掉了。</blockquote>
+你记反了，恨mygo向mygo复仇是原案，想忘记ccc是现实
+
+*****
+
+####  一心而用  
+##### 35489#       发表于 2025-3-10 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67622857&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-3-10 19:06</a>
+迟到早退的恶果（）
+
+—— 来自 鹅球 v3.3.96</blockquote>
+其实就是know前面少一个主语，日语经常省略主语的。
+

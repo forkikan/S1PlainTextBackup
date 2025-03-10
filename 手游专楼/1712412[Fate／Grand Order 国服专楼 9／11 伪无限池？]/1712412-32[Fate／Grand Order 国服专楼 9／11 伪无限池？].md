@@ -186,3 +186,13 @@
 1井3个5星，可以了。</blockquote>
 其实不止一井了中间为了抽正雪还认了五十多抽……月底就up紫伯了手里只剩20抽，只能说看命了，不行就明年再续前缘（如果中途不再犯错的话
 
+
+*****
+
+####  shimotsuki14  
+##### 47054#       发表于 2025-3-10 19:35
+
+前几天象征性抽十连然后查理曼就+1了
+
+今年是第二年把头一年的巧克力放过期全部清空<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -32,3 +32,11 @@
 
 享受RNG之神的眷顾吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aribayuuki  
+##### 18213#       发表于 2025-3-10 19:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">这辣鸡圣遗物限定属性就算了,居然限定武器得意
+
