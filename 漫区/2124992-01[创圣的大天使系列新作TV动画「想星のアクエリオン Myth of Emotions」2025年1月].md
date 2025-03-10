@@ -66,3 +66,18 @@
 
 现在还有个在意的是早早死掉的紫毛女鬼知道的太多了，信息量快和SUN一桌了，和前世的身份感觉不太对应，提前接到迷之情报觉醒的大叔可能是前世的父亲之一？
 
+
+*****
+
+####  Acla  
+##### 279#       发表于 2025-3-10 21:19
+
+10话预告
+サッコたちが神話宇宙から戻ると、世界は様変わりしていた。過去の因縁が明らかになる中、宇宙の合体が迫り、サッコたちは宇宙の合体と消滅を阻止するためにサンを探す。
+<img src="https://p.sda1.dev/22/37ef2b9cdc95b2a84a29523531adf9e7/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/49d05ccc5d9e1b90d8fb36799ba671ff/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/936b43b3d5b535e88f2bc59a8a69df0b/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/f13cf3f5db278befddbf8a97bd0941d4/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

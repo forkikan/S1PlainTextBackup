@@ -16357,3 +16357,48 @@ ring的堕落！
 还是多看动画少看假药，明显有假弹的镜头，mujica2.0也明确说了弹不了就演，舞台只能打半吊子光就半吊子。 ...</blockquote>
 那个是装吊灯吧。装吊灯真能勉强livehouse搞这么吗。我觉得这里推不出这么多东西。
 
+
+*****
+
+####  天空塔书记官  
+##### 35517#       发表于 2025-3-10 21:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  钦念以忱  
+##### 35518#       发表于 2025-3-10 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67623628&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-10 21:07</a>
+
+太一面之词了。如果这样根本没必要给推音量的镜头。祥子是从德米安中悟出了人格融合大法吗。 ...</blockquote>
+因为没有人格融合，一直都是若叶睦的演技，祥子是否知情并且配合若叶睦演出，我还没想好
+
+
+*****
+
+####  非建政专用号  
+##### 35519#       发表于 2025-3-10 21:23
+
+要天师：？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  zhoujin8584  
+##### 35520#       发表于 2025-3-10 21:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这就是空气吉他，你知道的，对于mujica，wsd一向是生怕观众看不出对主角的烂人塑
+
+<img src="https://img.saraba1st.com/forum/202503/10/212431qj61yif5b8b9qjyq.gif" referrerpolicy="no-referrer">
+
+<strong>bili_v_1741613002365.gif</strong> (1.17 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-10 21:24 上传
+
