@@ -3269,3 +3269,15 @@ PSP版就修了
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  ztkong  
+##### 351#       发表于 2025-3-10 08:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">有人打2代遇到死机bug么囧。。。
+
+进度在打完卢卡，然后自由行动去水门用蔷薇胸针收贵族那。。。开始对话到他说胸针丢了，然后就定版了，音乐照旧，按键全失效。。。我尝试了不带胸针和带胸针，不下5次对话次次都定版。。。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+现在先去推主线打吸血鬼了，过一阵再回来试试。。。
+

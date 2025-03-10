@@ -13655,3 +13655,67 @@ Mujica在剧中的武道馆LIVE“Nostri Noctis”，就剧中细节来看只办
 
 先把阶级和物质问题扯进来的是mygo自己 ，并在mujica进一步发扬光大，现在被观众做成回旋镖纯属活该
 
+
+*****
+
+####  thisisaspider  
+##### 35268#       发表于 2025-3-10 08:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67617747&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-10 08:28</a>
+並沒有自立
+
+核心問題是當第五話把祥物質性的問題挪去後</blockquote>
+祥子核心确实不是物质性问题是存在性问题。但剧中表现的就是祥子她不重视物质性，有能力并且养活过自己。
+这部分制作组确实没写好，有硬凹人设的嫌疑。甚至可能后面没办法写，角色的设定脱离控制了有种强行把这个人设回收了。所以一般我会无视这个设定。
+
+*****
+
+####  thisisaspider  
+##### 35269#       发表于 2025-3-10 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67617860&amp;ptid=2208921" target="_blank">油画布 发表于 2025-3-10 08:50</a>
+先把阶级和物质问题扯进来的是mygo自己 ，并在mujica进一步发扬光大，现在被观众做成回旋镖纯属活该 ...</blockquote>
+上升阶级问题，有没有可能是二创入脑。
+
+
+*****
+
+####  thisisaspider  
+##### 35270#       发表于 2025-3-10 09:02
+
+剧中从来没出现过阶级对抗，真正表现的只有家庭背景和社会身份。事实上，学生全都没法归入社会生产的阶级描述中。
+
+*****
+
+####  UNISONIA  
+##### 35271#       发表于 2025-3-10 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67617126&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-10 00:56</a>
+
+合同live上给鸡团的定位词是箱庭中被封闭的永远。
+
+不知道鸡动画会不会回收这句话。</blockquote>
+那个是TV动画的合同企划展的标题和描述吧，『あつめた一瞬、閉じ込めた永遠』
+
+以及
+
+一瞬一瞬を積み重ねて一生にする「MyGO!!!!!」
+
+運命をも手玉に取り、彼女たちだけの箱庭で偽りの永遠に生きる「Ave Mujica」
+
+不是LIVE的
+
+*****
+
+####  間桐櫻  
+##### 35272#       发表于 2025-3-10 09:03
+
+如果不寫睦有雙重人格 祥睦的愛恨關係在這片裡應該怎樣寫？
+
+*****
+
+####  syndrome2032  
+##### 35273#       发表于 2025-3-10 09:03
+
+阶级对抗没有。但是大祥的“高高在上”是一直存在的。
+
