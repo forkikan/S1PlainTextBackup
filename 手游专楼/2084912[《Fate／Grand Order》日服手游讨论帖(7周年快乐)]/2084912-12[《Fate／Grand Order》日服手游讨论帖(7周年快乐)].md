@@ -852,3 +852,49 @@
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.44)
 
+
+*****
+
+####  eilot  
+##### 16478#       发表于 2025-3-6 14:19
+
+ 本帖最后由 eilot 于 2025-3-6 22:23 编辑 
+
+210石抽宇宙凜池
+
+1隻5星雙生子(寶2)，1隻4星人馬(寶2)，2隻仇小黑(寶4)
+
+就是沒宇宙凜...
+
+再加120石抽丑御前池，
+
+中了一隻泳裝エリセ(寶2)
+
+*****
+
+####  jackyhuang  
+##### 16479#       发表于 2025-3-7 21:58
+
+双色持续三回合50魔放，还有30自充，CD5<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  希望之花  
+##### 16480#       发表于 2025-3-8 09:28
+
+仇尼托池子一个五星没有，副产品狼王满宝了，有毒吧
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.44)
+
+
+*****
+
+####  jackyhuang  
+##### 16481#       发表于 2025-3-10 17:11
+
+看来奏四又要死一次了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

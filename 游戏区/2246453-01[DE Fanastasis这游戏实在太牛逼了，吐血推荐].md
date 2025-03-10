@@ -3875,3 +3875,14 @@ https://bgm.tv/subject/topic/33083
 顺便这游戏体量真的太太太大了，古代遗迹看了看wiki上的地图，居然还有这么大一块，而且整体游戏进度居然还 ...</blockquote>
 这个可能要用禁止回复的 debuff 打吧，理智之间有个血字功能，升级后可以在一些 boss 的身边刷出血字，内含一些攻略提醒。不过 18000 的血 30 级肯定打不过的，先去其他地方转转吧。
 
+
+*****
+
+####  莫名奇妙封ID  
+##### 343#       发表于 2025-3-10 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67619494&amp;ptid=2246453" target="_blank">大空魔术 发表于 2025-3-10 11:48</a>
+猛玩了快30小时，真好啊真好，就是岔路太多了想回头探索都会忘记一些地方。
+目前只拿到大圣堂的记忆珠，其 ...</blockquote>
+十处恐怕不够<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">，好多的暗门都让人眼前一亮。我前几天打到共同研究所，提示要有炼金师的钥匙才能进入，但当时只拿了卡农钥匙，走的密道然后进去了，昨天拿了炼金师钥匙后回来逛了一圈，又发现了很多东西。这种可以用多种方法进入地图的设计思路既契合剧情又增加探索欲望，真的很棒。
+

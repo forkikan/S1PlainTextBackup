@@ -15682,3 +15682,38 @@ kkr才是真的把大小姐当作身份点缀，而丰川资本就像mujica这�
 而且青梅竹马已经出道了吧，一般也不会想着找已经当了代明星的人陪自己玩学生乐队吧 ...</blockquote>
 喵梦是假装0基础吧，更不用说声优本人是职业级
 
+
+*****
+
+####  adretyu67.  
+##### 35456#       发表于 2025-3-10 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67621992&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-3-10 17:07</a>
+
+喵梦是假装0基础吧，更不用说声优本人是职业级</blockquote>
+访谈里确认了是从0练起来的
+
+*****
+
+####  z-hunter  
+##### 35457#       发表于 2025-3-10 17:12
+
+就等后面祥子的追妻剧场演得怎样了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+mujica动画的主题终于是明白了，完全没有邦味的黑暗乐队，中二舞台小剧场和乐队音乐风格，这个团是不团结的，就是背负着5个人的自私黑暗，祥子也仅仅是为了所谓的“责任”，继续走下去（起码估计在动画完结时是这个主题
+
+这个主题无论是武士道自大，还是想创新求变，还是本来不是邦企划但硬塞进去变成了4不像，现在其实都没什么所谓了。重要的是，这个故事没有讲好，缺点太多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过主题明确了，个人对mujica这个乐队的好感还是有提升的，就是不知道后续进手游之后，故事会继续怎样讲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  滑稽Captain  
+##### 35458#       发表于 2025-3-10 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67621992&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-3-10 17:07</a>
+
+喵梦是假装0基础吧，更不用说声优本人是职业级</blockquote>
+别管场外实际上mujica的曲子鼓谱被写得有多变态，米泽自己多有实力，在剧内设定上喵梦就是从0学起的努力家
+
