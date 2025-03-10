@@ -40,3 +40,13 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">这辣鸡圣遗物限定属性就算了,居然限定武器得意
 
+
+*****
+
+####  leeskies  
+##### 18214#       发表于 2025-3-10 23:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">貌似和打的多人本属性有关
+
+做称号任务一直在打风龙  30个圣遗物里有14个风属性
+

@@ -206,3 +206,33 @@
 1.这样的设定容易和大喵的人 ...</blockquote>
 其实这周动画开头有些台词明显还是指向大瞄并不认为睦是什么双重人格，后面演出时则完全“神化”了，很难说究竟怎么想的
 
+
+*****
+
+####  雪菜碧池  
+##### 35537#       发表于 2025-3-10 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67624278&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-10 23:06</a>
+
+其实这周动画开头有些台词明显还是指向大瞄并不认为睦是什么双重人格，后面演出时则完全“神化”了，很难 ...</blockquote>
+mygo第十一话开头有个庄周梦蝶
+
+*****
+
+####  聋与唬  
+##### 35538#       发表于 2025-3-10 23:11
+
+不是，指责一个不会弹吉他的纸片人假弹是不是有点太严格了？
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+*****
+
+####  聋与唬  
+##### 35539#       发表于 2025-3-10 23:14
+
+大猫一直就不认双重人格啊，这不明摆着吗？都被吓了那么多次了。
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
