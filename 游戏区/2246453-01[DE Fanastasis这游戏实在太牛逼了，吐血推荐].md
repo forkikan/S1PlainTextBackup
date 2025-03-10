@@ -3962,3 +3962,14 @@ https://bgm.tv/subject/topic/33083
 该加入弓箭神教了,堆技术,大招一箭2W不是梦</blockquote>
 弓箭手真的厉害，确实
 
+
+*****
+
+####  cym887  
+##### 351#       发表于 2025-3-11 00:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67618046&amp;ptid=2246453" target="_blank">绞首浪漫派丶 发表于 2025-3-10 09:16</a>
+
+地图真牛，战斗真一点不想玩。打到瀑布已经开始对多动症蜜蜂感到烦躁了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">大圣堂魅魔才是真的烦人
+
