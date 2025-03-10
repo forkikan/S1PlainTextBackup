@@ -167,3 +167,11 @@ PS5上画面模式60帧完全不稳，但是帧数模式60帧还是可以的，p
 
 pc版我反正不买了，忍组吃屎去吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sopp  
+##### 3420#       发表于 2025-3-11 00:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">预载都没有啊
+

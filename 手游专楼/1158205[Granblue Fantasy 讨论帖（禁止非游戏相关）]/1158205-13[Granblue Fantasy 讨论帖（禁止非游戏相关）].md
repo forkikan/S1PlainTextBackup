@@ -50,3 +50,13 @@
 
 做称号任务一直在打风龙  30个圣遗物里有14个风属性
 
+
+*****
+
+####  Sylpheed  
+##### 18215#       发表于 2025-3-11 00:26
+
+前30个还是很好出就是了，后面的今晚400多只大巴出了2个
+
+评价是你急也没用，慢慢玩呗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
