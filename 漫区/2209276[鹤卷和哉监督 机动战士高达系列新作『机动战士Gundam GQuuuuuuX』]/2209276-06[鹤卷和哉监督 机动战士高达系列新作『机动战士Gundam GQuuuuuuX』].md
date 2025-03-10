@@ -11557,3 +11557,19 @@ GQX陆战应该是喷射移动的，类似大魔。
 昭和铁血老登时代剧封面和令和潮哥创新三人关系性，这就是我们Khara的 ...</blockquote>
 昭和时代剧和令和三个火枪手
 
+
+*****
+
+####  ads147147  
+##### 8321#       发表于 2025-3-10 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67622512&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-3-10 18:06</a>
+没想到吧，这是出自同一部电影的人物
+
+昭和铁血老登时代剧封面和令和潮哥创新三人关系性，这就是我们Khara的 ...</blockquote>
+其实，还挺和谐的。
+
+之前还担心画风不对，其实实际感觉没那么割裂。可能是主角团就是第二代的人，有种天然的分割感。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

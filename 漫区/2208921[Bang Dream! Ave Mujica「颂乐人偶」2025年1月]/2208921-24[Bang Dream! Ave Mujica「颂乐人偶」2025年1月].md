@@ -15848,3 +15848,51 @@ mujica动画的主题终于是明白了，完全没有邦味的黑暗乐队，�
 柿本在mygo完结的时候就说祥子组mujoca是为了忘记ccc，现在又说恨mygo是不是双重人格 ...</blockquote>
 憎恨ccc是原案，被改掉了。
 
+
+*****
+
+####  与太郎  
+##### 35472#       发表于 2025-3-10 18:47
+
+看访谈里喵梦描述#10的mujica是「魂のバンド」、苏醒的怪物，李子描述是经过锔活修复的瓷器，不过二人都表示 mujica，实际强大
+
+另外李子应该是让大家回顾MyGO#8对话，果然那里已经定好了双子or小姨的展开了吗
+
+*****
+
+####  595505568  
+##### 35473#       发表于 2025-3-10 18:50
+
+还是怨啊<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">，为什么不直接皮下故事高强度逆输入给鸡狗的动画，几个素人成员成长经历逆输入的故事也很好看啊；我只想看越来越少的本格摇滚故事都能这样吗
+
+
+*****
+
+####  syndrome2032  
+##### 35474#       发表于 2025-3-10 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67622735&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-3-10 18:47</a>
+看访谈里喵梦描述#10的mujica是「魂のバンド」、苏醒的怪物，李子描述是经过锔活修复的瓷器，不过二人都表 ...</blockquote>
+初华的人设应该没改过。
+
+*****
+
+####  ape-apple  
+##### 35475#       发表于 2025-3-10 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67622133&amp;ptid=2208921" target="_blank">z-hunter 发表于 2025-3-10 17:23</a>
+最后祥子被老登这样一叫初音，这表情是都整懵了吧，这不是明显不知道初华的身份么。。。
+
+还有经典的双子诡 ...</blockquote>
+当然初音是，不然一个情妇和接盘侠生的孩子，老登有什么资格让她离孙女远点呢
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">打完字我自己都想笑啊，这上面的文字竟然出自少女乐队动画
+
+*****
+
+####  一心而用  
+##### 35476#       发表于 2025-3-10 18:56
+
+好嘛，词还改过的，初华英语太差。
+<img src="https://p.sda1.dev/22/eafaaf11766ee102182891c7e53b231c/image.jpg" referrerpolicy="no-referrer">
+
