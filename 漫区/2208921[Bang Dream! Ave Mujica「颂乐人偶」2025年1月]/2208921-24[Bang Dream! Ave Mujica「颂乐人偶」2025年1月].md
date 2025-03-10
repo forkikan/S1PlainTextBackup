@@ -15538,3 +15538,49 @@ kkr才是真的把大小姐当作身份点缀，而丰川资本就像mujica这�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  聋与唬  
+##### 35443#       发表于 2025-3-10 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67621043&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-10 15:11</a>
+那大祥万一因为初音是私生女之类的事情再去违抗老登的话就有一些讽刺，爱都给了你，你还要家庭私事违抗我 ...</blockquote>
+那孙女撒娇是这样的，向老登撒娇“为什么不能把爱分给初音一些嘛？”
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  NEWROMANCER  
+##### 35444#       发表于 2025-3-10 16:20
+
+虽然柿本自称每时每刻思考角色在当时这个情境会说什么有什么反应有什么情绪。但这些东西的方向还是被他控制着的。
+不然按第九集最后十人第一次汇聚对峙那情况，一群人搁那你方唱罢我登场剑拔弩张时，粉毛不得来一句“我去喵姆亲”给大伙全部破功逗乐整无语？
+那所以他想了个锤子想，不还是在人造神经病。
+
+
+*****
+
+####  聋与唬  
+##### 35445#       发表于 2025-3-10 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67621332&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-10 15:48</a>
+没魅力啊
+
+负面人格爆表表现得很有魅力的反派多了去了</blockquote>
+嗯……怎么说呢，祥子性格上本身或许是个没有魅力的（当然祥子肉体还是很有魅力的）脸谱化恶役千金。但作为少女乐队，以一个恶役千金作为核心来讲述这个故事我觉得还是挺有魅力的。
+关键还是大莫老师这个双重人格喧宾夺主了，把这片子搞得虎头蛇尾了。
+不应该搞双重人格的，大祥传中途变大莫传了。
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  ape-apple  
+##### 35446#       发表于 2025-3-10 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67620091&amp;ptid=2208921" target="_blank">595505568 发表于 2025-3-10 13:07</a>
+谁能把这几个积极营业的人换个当人的甲方企划啊，wsd真不配拥有李子 弄弄 邦梦蜜柑 akane吧 ...</blockquote>
+日本真不缺这样的，wsd都是保底了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">真的有颜有才的肯定不在这
+
