@@ -13719,3 +13719,53 @@ Mujica在剧中的武道馆LIVE“Nostri Noctis”，就剧中细节来看只办
 
 阶级对抗没有。但是大祥的“高高在上”是一直存在的。
 
+
+*****
+
+####  shinoverse  
+##### 35274#       发表于 2025-3-10 09:06
+
+ 本帖最后由 shinoverse 于 2025-3-10 09:09 编辑 
+
+坛友真的很会偷换概念，划红线的部分就这么被过渡到划蓝线的地方了（顺便再给小祥起个高调），然后批评对方二设入脑<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202503/10/090610yll0u3hclrcclrl0.png" referrerpolicy="no-referrer">
+
+<strong>20250310090337.png</strong> (81.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-10 09:06 上传
+
+*****
+
+####  油画布  
+##### 35275#       发表于 2025-3-10 09:08
+
+<blockquote>thisisaspider 发表于 2025-3-10 08:59
+上升阶级问题，有没有可能是二创入脑。</blockquote>
+大小姐过家家 168负债 上面不允许
+
+上面这些梗都是二创造的？mujica这个故事没有丰川家资本能成立吗 怎么速通武道馆，谁给祥子付违约金？
+
+原作不搞这些二创会在这些地方发挥？现在又怪二创了
+
+*****
+
+####  thisisaspider  
+##### 35276#       发表于 2025-3-10 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67617984&amp;ptid=2208921" target="_blank">油画布 发表于 2025-3-10 09:08</a>
+大小姐过家家 168负债 上面不允许
+
+上面这些梗都是二创造的？mujica这个故事没有丰川家资本能成立吗 怎么 ...</blockquote>
+社会身份和阶级问题能混为一谈？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  thisisaspider  
+##### 35277#       发表于 2025-3-10 09:10
+
+打住吧，你们觉得我有问题那就是。不讨论这些。
+
