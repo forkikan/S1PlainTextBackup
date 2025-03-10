@@ -594,3 +594,21 @@ mygo第十一话开头有个庄周梦蝶
 
 死亡是得不到爱，可能当时就已经喵睦捆绑了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  与太郎  
+##### 35571#       发表于 2025-3-11 02:00
+
+ 本帖最后由 与太郎 于 2025-3-11 02:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67624178&amp;ptid=2208921" target="_blank">结衣小比取 发表于 2025-3-10 22:51</a>
+
+建议还要同时参考动画实际表现，MyGO动画祥子笼络若麦的时候描述过她的演奏特点，所以这个“0基础”肯定 ...</blockquote>
+[https://www.animatetimes.com/news/details.php?id=1741242390&amp;p=3](https://www.animatetimes.com/news/details.php?id=1741242390&amp;p=3)
+
+柿本在这里又谈到了喵梦的技术，明确了祥子是为了喵梦作为视频博主的话题性和（双手打鼓的）视觉要素而选择她，并用「付け焼き刃」也就是“样子货”形容这个时间点的喵梦的技术
+
+那么喵梦就是在被劝诱后的20天左右的时间里，由打着玩的博主变成Ave mujica出道表演中实力更胜于立希的高水平鼓手了，只能说比爱音进步速度还快，这不叫超能力鼓手我随你怎么说（所以柿本对天才的定义显然有点问题啊！爱音是“有才能的”而喵梦是没才能的，这怎么想都很奇怪吧！）
+
+感觉还不如完全逆输入中之人设定呢，反正都逆输入双手打鼓设定了，也不差这一点了
+
