@@ -3328,3 +3328,14 @@ PSP版就修了
 语言改成日语 加入之后再改回来</blockquote>
 感谢，下班回去搞
 
+
+*****
+
+####  等等等灯等灯  
+##### 356#       发表于 2025-3-10 09:33
+
+幻想水浒传1《GensoSuikoden》PSP1+2版全流程图文攻略
+[https://mip.mamecn.com/wz/243195.html](https://mip.mamecn.com/wz/243195.html)
+
+一个更详细的psp版攻略，应该也能用在这版吧
+
