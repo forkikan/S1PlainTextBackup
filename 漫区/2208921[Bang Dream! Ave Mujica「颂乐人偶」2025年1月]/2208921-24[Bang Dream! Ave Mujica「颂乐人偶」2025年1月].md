@@ -15323,3 +15323,74 @@ Imprisoned和诗超绊最大的区别也就在这。饶了这么多的远路度�
 
 这类作品还有多少？
 
+
+*****
+
+####  聋与唬  
+##### 35421#       发表于 2025-3-10 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616688&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-3-9 23:33</a>
+可是故事总得讲逻辑不是，从一开始速通武道馆就告诉观众资本的大手一直存在，因为这与才能无关，现在还在 ...</blockquote>
+不是因为祥子气不过ccc团成员在mygo里没有自己也过得很开心而气不过吗？
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+*****
+
+####  巴裘拉  
+##### 35422#       发表于 2025-3-10 15:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个第十集演完的鸡团的状态，本质和go13集的鸡团有什么差别吗，祥子回到高压模式，睦头左右脑合并，回去了，喵梦还是那个喵梦反正除了正常脑的观众外，剧内剧组都不觉得她有错，海玲说实话你30个团真的露脸也就1个D什么团，还就露一面，退团一句话，对实际剧情根本没啥影响，初华，哦现在是初音，除了让人感觉她好变态外，也没啥变化。什么问题都没解决，看似转了一大圈，再看看又啥都没变，除了让观众觉得这五个人都有毛病外，只能说制作组的无能在mujica里体现的淋漓尽致了
+
+*****
+
+####  聋与唬  
+##### 35423#       发表于 2025-3-10 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616845&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-9 23:56</a>
+互相帮助前进也是平民精神之一。祥子可能没有理解这一点。但睦要算作亲人。 ...</blockquote>
+不是，本作都说了是黑暗向的最狂少女乐队了。
+祥子形象就是一个任性的，傲慢的，自我意识过剩的，但遇到困难解决不了又想逃避的女主角有啥问题？
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  聋与唬  
+##### 35424#       发表于 2025-3-10 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616939&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-10 00:12</a>
+在 mujica 片场肯定主视角是在🐔身上。虽然我认为你说的都是对的也同意你的观点。
+以我的角度从这部剧来 ...</blockquote>
+如果从祥子粉角度来说可能是毁灭性的，但如果从少女乐队的创新性来说，这种反派主角还是很新颖的。
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  aptx8285144  
+##### 35425#       发表于 2025-3-10 15:36
+
+<blockquote>cxj649 发表于 2025-3-10 15:24
+观众所认知的饺子是对主角的最大不幸
+
+这类作品还有多少？</blockquote>
+第十话这一片混乱的动机，变态的歌词，变态的表情配上大祥那仿佛看到鬼一样的表情，真得是饺子吗，可不好说(
+
+*****
+
+####  qlipho  
+##### 35426#       发表于 2025-3-10 15:37
+
+没什么问题，现在柿本哥哥有释经权，他说什么就是什么（无终恨意了
+
+*****
+
+####  老贝  
+##### 35427#       发表于 2025-3-10 15:37
+
+精心设计的让你绕了一大圈却什么都没有做到，和叙事能力不行讲了半天等于没讲是两码事，在这片上我倾向于是主创故意这么搞的。
+
+把观众的体验和角色的感受甚至剧情发展刻意制造冲突对立，让你觉得好的展开对角色而言却是剧毒，这不是菜而是真的坏。<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
