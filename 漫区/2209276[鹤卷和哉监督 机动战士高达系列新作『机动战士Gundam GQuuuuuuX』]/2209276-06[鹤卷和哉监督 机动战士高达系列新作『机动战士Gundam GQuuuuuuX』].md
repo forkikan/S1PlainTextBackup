@@ -11501,3 +11501,33 @@ GQX陆战应该是喷射移动的，类似大魔。
 
 这弹不错<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">是要收尾了吗
 
+
+*****
+
+####  psycho_Gadfly  
+##### 8317#       发表于 2025-3-10 18:01
+
+我擦来了个大的!
+
+3.15那场还是允许观众吐槽说话的
+
+会不会全场的欢声笑语(或者吵架呢。hhhhhh
+
+
+*****
+
+####  刺客ares  
+##### 8318#       发表于 2025-3-10 18:06
+
+没想到吧，这是出自同一部电影的人物<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+昭和铁血老登时代剧封面和令和潮哥创新三人关系性，这就是我们Khara的MAV战术啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202503/10/180447vn413ad8ennnh82q.png" referrerpolicy="no-referrer">
+
+<strong>WPS拼图0.png</strong> (282.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-10 18:04 上传
+
