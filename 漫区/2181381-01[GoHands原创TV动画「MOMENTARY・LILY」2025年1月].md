@@ -84,3 +84,11 @@
 
 怎么有点迷惑了，按这个理由，金毛在看到莲华的安德瓦利的时候就察觉不对了吧，毕竟她认得那个安德瓦利的
 
+
+*****
+
+####  stevenzero  
+##### 158#       发表于 2025-3-10 13:51
+
+纳丽花出场这柔弱的外形、乖巧的背心裙校服，配上boku自称，加上后面正版的狂野军大衣，反差感GJ<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
