@@ -3926,3 +3926,16 @@ https://bgm.tv/subject/topic/33083
 死刑执行所到底从那条路过去？已经打了校长室和大雪原的魔女，到了医疗所，但是通往左边和下面的门都是锁着 ...</blockquote>
 自警团B1的隐藏通道
 
+
+*****
+
+####  best32167  
+##### 348#       发表于 2025-3-10 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67618775&amp;ptid=2246453" target="_blank">DARILBALDE 发表于 2025-3-10 10:38</a>
+
+三兄弟，第一个在下水道入口传送点往阿尔卡姆平原走，第二个在达卡斯地下墓地传送点往西北方向，第三个是 ...</blockquote>
+谢啦。解完了，是平原那个漏了。不过缺这个其实不卡关...
+
+碎片是我悬崖村那个漏了。进去后一听BGM，原来是你小子233
+

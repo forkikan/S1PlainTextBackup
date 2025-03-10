@@ -371,3 +371,13 @@ spacex拿kerbal模拟，这灾难性的失败简直是板上钉钉的
 
 泥潭就有啊，车和股票<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刘黄书  
+##### 43#       发表于 2025-3-10 22:16
+
+前苏州特斯拉店长说过，苏州大部分购买特斯拉的平均家庭收入不到10W，贷款5年比例很高。
+
+【孙少军，特斯拉前店长胖虎爆料，苏州特斯拉的消费人群家庭收入8万】 [https://www.bilibili.com/video/B ... 91e4f33c6f288170332](https://www.bilibili.com/video/BV1de411Y7Se/?share_source=copy_web&amp;vd_source=f28b8333615d391e4f33c6f288170332)
+
