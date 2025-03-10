@@ -11602,3 +11602,27 @@ GQX陆战应该是喷射移动的，类似大魔。
 <img src="https://p.sda1.dev/22/ed0a61059af9951cc14f2211d3a195a8/20250310_201121.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/22/603eada69a90703591d12127931362bc/20250310_200951.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 8324#       发表于 2025-3-10 20:39
+
+[ふたい (@futai21) / X](https://x.com/futai21)
+
+<img src="https://img.saraba1st.com/forum/202503/10/203543uvbogag5ssso8627.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.93 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-10 20:35 上传
+
+<img src="https://img.saraba1st.com/forum/202503/10/203909jfblcglqfmgubu4h.png" referrerpolicy="no-referrer">
+
+<strong>VRJ_O[27EOZ@A9{Q@Y5Q~K0.png</strong> (2.91 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-10 20:39 上传
+

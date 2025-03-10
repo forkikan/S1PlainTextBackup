@@ -16215,3 +16215,68 @@ i want you后面加了个句号表示断句。
 对，这个是最糟糕的，【大小姐过家家】相当于半官方下的定性，如果剧情内没有人用行动反驳的话（因为语言 ...</blockquote>
 无论下面三话的如何行动，前面的赔偿金与天降迈巴赫，初华与大象巨大的待遇反差，就已经把大小姐过家家按在鸡团脑门上了，现在基本上就和第五话否定了前四话大部分的价值一样，<strong>最后三话要不要否定9,10话的很多东西？剧本完全是进退失据的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer"></strong>
 
+
+*****
+
+####  6030sylar  
+##### 35505#       发表于 2025-3-10 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67623318&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-10 20:17</a>
+
+祥子其实皱眉是因为发现语法错误不知道该不该给小姨改
+
+走的时候差点瞎JB负责的责任心大爆发准备去小姨家 ...</blockquote>
+爷爷：阿祥又在玩乐队，休息一下好不好
+
+祥子：（mujica）又死了啦
+
+初华：我家里还蛮大的，经常收留一些俏佳人
+
+*****
+
+####  航母掉头  
+##### 35506#       发表于 2025-3-10 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67623197&amp;ptid=2208921" target="_blank">人又如何 发表于 2025-3-10 20:00</a>
+大祥现在这个状态，虽然组建母鸡卡很痛苦，但也是她唯一能享受掌控别人命运的舞台了吧？而且按照第一集表现 ...</blockquote>
+祥处明显是恶堕状态，中二病时期到处大嘴巴惹了一堆麻烦精，索性躺平还债的了
+
+
+*****
+
+####  南宮凝香  
+##### 35507#       发表于 2025-3-10 20:42
+
+祥就是怕了， 把歌詞改弱了
+
+You know, I want, I want
+
+I want, I want you, so I want, 
+
+いなければよかったのに なぜ 
+
+you know, you know
+
+You know, you know I want you.
+
+（You）know how much I need you so, いま 狂おしいほど
+
+正常是在括號塞一個不響又快的You就行
+
+上面的You know I want you 是高潮
+
+（You）know how much I need you so 
+
+是高潮後的升華
+
+但有人怕了把整句改成一句非常長的病句
+
+*****
+
+####  adretyu67.  
+##### 35508#       发表于 2025-3-10 20:44
+
+ 本帖最后由 adretyu67. 于 2025-3-10 20:45 编辑 
+
+鸡进livehouse办live最大阻力其实是初华和大猫的签约艺人身份。
+
