@@ -11436,3 +11436,37 @@ GQX陆战应该是喷射移动的，类似大魔。
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
 
+
+*****
+
+####  虛無迴廊  
+##### 8312#       发表于 2025-3-10 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67622140&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-3-10 17:23</a>
+封面紫婆这么大一颗头比夏利亚还大了，正片肯定还会出场吧</blockquote>
+也许这次的面具（指蒙了半脸）敌役就是紫婆<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 8313#       发表于 2025-3-10 17:32
+
+新闻稿大图和土屋弟的応援上映指南动画
+[https://youtu.be/Np3y26MzQeo](https://youtu.be/Np3y26MzQeo)
+
+<img src="https://img.saraba1st.com/forum/202503/10/172420b5v67n737aszuinr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (592.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-10 17:24 上传
+
+<img src="https://img.saraba1st.com/forum/202503/10/172506izn4byzaq8xn5axn.jpg" referrerpolicy="no-referrer">
+
+<strong>AAOMFUSKG`XC7FENR`W7@3W.jpg</strong> (192.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-10 17:25 上传
+

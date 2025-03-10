@@ -15740,3 +15740,23 @@ mujica动画的主题终于是明白了，完全没有邦味的黑暗乐队，�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  与太郎  
+##### 35461#       发表于 2025-3-10 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67622080&amp;ptid=2208921" target="_blank">滑稽Captain 发表于 2025-3-10 17:16</a>
+
+别管场外实际上mujica的曲子鼓谱被写得有多变态，米泽自己多有实力，在剧内设定上喵梦就是从0学起的努力 ...</blockquote>
+好像还真是<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+但是和爱音不一样，她在剧中应该也是被夸赞有职业级实力的（没有说爱音很差的意思）
+
+*****
+
+####  operatbig  
+##### 35462#       发表于 2025-3-10 17:32
+
+我还挺希望出本大祥视角的小说，好好描写一下她内心的痛苦，一定很美味。
+
