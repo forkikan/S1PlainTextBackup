@@ -416,3 +416,22 @@ spacex拿kerbal模拟，这灾难性的失败简直是板上钉钉的
 【孙少军，特斯拉 ...</blockquote>
 苏州？家庭？不到10W？请教@中原氮磷钾， 这种家庭在苏州算赤贫吧？
 
+
+*****
+
+####  浅井惠  
+##### 47#       发表于 2025-3-10 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67622911&amp;ptid=2249415" target="_blank">是小号 发表于 2025-3-10 19:13</a>
+4楼，慕洋，当离岸gop的人和那些支持本地企业的人没区别是吧？</blockquote>
+
+一般来说正常人是不会把支持国产和品牌粉混淆的
+
+毕竟国产不是只有一个叫国产的品牌
+
+如果误伤你了的话不好意思
+
+但是你这拿着哪吒的票坐到蛟龙行动场也挺离谱的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

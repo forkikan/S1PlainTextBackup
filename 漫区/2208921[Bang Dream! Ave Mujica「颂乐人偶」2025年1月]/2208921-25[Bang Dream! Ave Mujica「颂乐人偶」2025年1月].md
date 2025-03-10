@@ -163,3 +163,46 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  聋与唬  
+##### 35534#       发表于 2025-3-10 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67622133&amp;ptid=2208921" target="_blank">z-hunter 发表于 2025-3-10 17:23</a>
+最后祥子被老登这样一叫初音，这表情是都整懵了吧，这不是明显不知道初华的身份么。。。
+
+还有经典的双子诡 ...</blockquote>
+我觉得都是。丰川初音是先生下来的私生女，三角初华是意外生出来的私生女，没被认可被踢出丰川家了，但也是有血缘关系在的。
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  是谁的书画  
+##### 35535#       发表于 2025-3-10 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67624195&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-3-10 22:53</a>
+喵睦的的留白太多，再加上多重人格问题，就有各种各样不同的解释。
+
+有说喵爱的是小睦，所以莫决定将这份爱 ...</blockquote>
+我个人其实还是倾向大喵认为睦是演技派而非人格分裂。主要是以下几个原因：
+1.这样的设定容易和大喵的人物对轴
+2.她对于莫与睦的态度是统一的，两者都是来自于一个人的真实。
+3.这更好解释睦妈对于喵梦的那段话，从睦妈的视角，睦是个演技派而非人格分裂
+4.我觉得编剧在设计睦人格分裂的时候根本没想那么多喵梦的事，反正能接上，那接呗。我现在对柿本就是这样的看法。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  aptx8285144  
+##### 35536#       发表于 2025-3-10 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67624264&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-10 23:04</a>
+
+我个人其实还是倾向大喵认为睦是演技派而非人格分裂。主要是以下几个原因：
+
+1.这样的设定容易和大喵的人 ...</blockquote>
+其实这周动画开头有些台词明显还是指向大瞄并不认为睦是什么双重人格，后面演出时则完全“神化”了，很难说究竟怎么想的
+
