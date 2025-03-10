@@ -543,3 +543,26 @@ mygo第十一话开头有个庄周梦蝶
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  钦念以忱  
+##### 35566#       发表于 2025-3-11 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67624677&amp;ptid=2208921" target="_blank">老贝 发表于 2025-3-11 00:06</a>
+
+愛しても、愛しても、愛しきれない、愛されない
+
+即使爱了又爱，仍无法爱到极致，亦没有被爱。</blockquote>
+这段小剧场和之后的Mortis人格自杀强关联，我不确定是不是祥子编剧的，毕竟Mortis出现之后的即兴表演都是大莫老师自编自演的
+
+
+*****
+
+####  thisisaspider  
+##### 35567#       发表于 2025-3-11 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67624738&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-11 00:18</a>
+这段小剧场和之后的Mortis人格自杀强关联，我不确定是不是祥子编剧的，毕竟Mortis出现之后的即兴表演都是 ...</blockquote>
+喵梦在幕后练过台词，所以喵梦一定不是即兴。睦用“我也是”回答喵梦的疑问“为什么无法彻底爱上”。也符合台词逻辑。但因为本来就是剧中剧，睦是否即兴回答都可以解读。
+

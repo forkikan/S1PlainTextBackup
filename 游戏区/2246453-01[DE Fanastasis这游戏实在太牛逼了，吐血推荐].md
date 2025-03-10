@@ -3939,3 +3939,26 @@ https://bgm.tv/subject/topic/33083
 
 碎片是我悬崖村那个漏了。进去后一听BGM，原来是你小子233
 
+
+*****
+
+####  远野乙姬  
+##### 349#       发表于 2025-3-11 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67604649&amp;ptid=2246453" target="_blank">五块 发表于 2025-3-8 10:48</a>
+
+匕首妹前期怎么过渡啊？我收他们两的时候主力队是电火法炼金，平均25级，双刀哥拿两把大剑还能靠攻击力硬 ...</blockquote>
+我把加攻饰品都给她了，再带铁匠，buff上全二动输出很高了
+
+现在试下来双刀哥单发是高一些……看你把加属性的都堆谁身上吧
+
+*****
+
+####  远野乙姬  
+##### 350#       发表于 2025-3-11 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67605005&amp;ptid=2246453" target="_blank">cym887 发表于 2025-3-8 11:43</a>
+
+该加入弓箭神教了,堆技术,大招一箭2W不是梦</blockquote>
+弓箭手真的厉害，确实
+
