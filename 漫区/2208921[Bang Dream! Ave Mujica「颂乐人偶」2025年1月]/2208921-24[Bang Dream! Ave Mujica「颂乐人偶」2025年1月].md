@@ -14144,3 +14144,130 @@ MyGO早期的宣传图给人感觉就是几个大学生打拼的乐队，和后�
 
 这点其实目前三次元MyGO单独live的宣传图还是那个风格。只要不涉及到和其他乐队合作的话，一直都是由shuzuku担当宣传图画师，Ave Mujica倒是3rd开始和动画越来越同步了。
 
+
+*****
+
+####  凉良  
+##### 35313#       发表于 2025-3-10 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67618903&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-10 10:49</a>
+
+嗯，应该是这个。
+
+但是封闭在虚伪的永远里实在太哀了。</blockquote>
+mujica内核就是这么消极 乐队就是不幸福
+
+咋办嘛
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 35314#       发表于 2025-3-10 10:58
+
+不过起码播出之前我的一个猜测应验了，那就是mujica战力最后还是得拉下来，从武道馆随便去的大明星拉到和别的队伍一样在livehouse里混。
+
+*****
+
+####  与太郎  
+##### 35315#       发表于 2025-3-10 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67617952&amp;ptid=2208921" target="_blank">間桐櫻 发表于 2025-3-10 09:03</a>
+
+如果不寫睦有雙重人格 祥睦的愛恨關係在這片裡應該怎樣寫？</blockquote>
+就算在当前这个双重人格占了巨大剧情篇幅的情况下，#10的live散场之后也没见祥睦有什么互动，以制作组当下表现出的单线程+杀后台程序的演绎模式，也不知道后面几集还会不会再提祥睦关系了
+
+仅从MyGO的部分来说，祥对睦的态度基本上就是那种把工作上的怨气发泄到伴侣身上，最终又需要伴侣支持自己事业的感觉（开头睦来羽丘找祥子，二人羽沢珈琲店见面时，祥子一瞬激昂然后喝咖啡又软化这个真有点典了）
+
+睦的两个人格显然是共享记忆的，吉他睦沉睡之后又苏醒时也能完全读取mujica炸团前后的记忆
+
+在完全共享记忆的前提下，记忆-情感-人格的串联究竟应该怎么表现？吉他睦对祥子0恶意而mortis对祥子0爱意这种完全二分是否太过简单粗暴？
+
+想写睦祥之间的爱恨，完全可以把睦写成人格退行（而非分化出一个幼儿化人格mortis），让幼儿化的睦对祥子发脾气
+
+如果想写得粘稠一点，也可以说睦一直压抑自己想和祥子发展超友谊关系，因为祥子只关注主唱初华而心生嫉妒（c团爆炸时的发言也写成是因为对灯的嫉妒而生的心声）
+
+由此也可以把其他几个人的人设调整一下（）
+
+初华可以是真小姨，但是一开始不要有这么沉重的爱意，只是单纯的亲情，但是和祥子同居之后亲情变质了
+
+喵梦就写成馋祥子身子好了，MyGO见面时本来就是非常失礼的“扫本”，上下打量小祥可口的肉体
+
+海铃在30个乐队乱搞女女关系，第一个乐队是因为女女关系而破产的，原本只把mujica当后宫的一部分，为了挽回小祥群发了分手信
+
+*****
+
+####  庸necro  
+##### 35316#       发表于 2025-3-10 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67618192&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-3-10 09:34</a>
+
+“演技”
+
+大的方向不用改，睦头本来就是主人格，mo是演出来的，他炸团的目的是让mujica按下暂停键，因为睦 ...</blockquote>
+她费这么大劲搞这一出不如直接装病不来，或者直接和祥子聊。
+
+
+*****
+
+####  thisisaspider  
+##### 35317#       发表于 2025-3-10 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67619009&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-3-10 10:59</a>
+就算在当前这个双重人格占了巨大剧情篇幅的情况下，#10的live散场之后也没见祥睦有什么互动，以制作组当下 ...</blockquote>
+祥压抑了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秦南心  
+##### 35318#       发表于 2025-3-10 11:02
+
+【【素祥/误解向】又幻想了，幻想「后来的我们」能在一起】 [https://www.bilibili.com/video/BV1G296YGEM2](https://www.bilibili.com/video/BV1G296YGEM2)
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">不错
+
+*****
+
+####  adretyu67.  
+##### 35319#       发表于 2025-3-10 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67618983&amp;ptid=2208921" target="_blank">凉良 发表于 2025-3-10 10:56</a>
+
+mujica内核就是这么消极 乐队就是不幸福
+
+咋办嘛</blockquote>
+君子远庖厨的人之常情吧。
+
+*****
+
+####  是谁的书画  
+##### 35320#       发表于 2025-3-10 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67618970&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-3-10 10:55</a>
+按原案写不就是gbc咯？！</blockquote>
+错误的，哪怕是原案也没不登校<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  ape-apple  
+##### 35321#       发表于 2025-3-10 11:04
+
+gbc的两个成人队友确实好用，一个“大人能解决问题”就可以规避掉很多事，谁让非要进bang世界观的？
+
+*****
+
+####  adretyu67.  
+##### 35322#       发表于 2025-3-10 11:04
+
+邦邦都是学习音乐社团打工（如果有的话）四不误的超人jk。
+
+你说她们一天有36小时我也信。
+
+*****
+
+####  油画布  
+##### 35323#       发表于 2025-3-10 11:04
+
+实锤祥子组建mujica是纯粹恨mygo还挺让我失落的，虽然说的通，但我本希望这个动机更加复杂，包含寻找自我的意味
+
