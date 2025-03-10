@@ -16280,3 +16280,34 @@ You know, you know I want you.
 
 鸡进livehouse办live最大阻力其实是初华和大猫的签约艺人身份。
 
+
+*****
+
+####  MuramasaSP  
+##### 35509#       发表于 2025-3-10 20:53
+
+最近刚开始玩bangdream手游，看ppp团的剧情。原来只要鸽一次演出就永封，这假弹要是被老板（听发音是owner？）知道就完蛋了。
+
+*****
+
+####  木板春香  
+##### 35510#       发表于 2025-3-10 20:54
+
+ring的堕落！
+
+*****
+
+####  是谁的书画  
+##### 35511#       发表于 2025-3-10 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67623513&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-10 20:44</a>
+
+鸡进livehouse办live最大阻力其实是初华和大猫的签约艺人身份。</blockquote>
+到最后要融入“大家庭”，mujica肯定是会回落的...不对，应该是降等。要不然别说你mygo有没有资格，Roselia的资格都要先盘算一下。
+
+估计最后斗财阀也是失败，所有人回归一无所有了。也恰恰是对上了舅舅之前的东西。
+
+也是闹了一大圈甚至没回原点可能还更烂了，但对mujica来说应该是好事吧。
+
+早晚要脱离丰川这个鸟笼的，这基本上也算定死了的事...希望如此吧
+
