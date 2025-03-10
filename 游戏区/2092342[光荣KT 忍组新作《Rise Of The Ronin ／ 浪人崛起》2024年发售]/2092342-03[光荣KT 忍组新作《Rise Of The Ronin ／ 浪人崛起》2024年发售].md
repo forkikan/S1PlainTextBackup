@@ -159,3 +159,11 @@ PS5上画面模式60帧完全不稳，但是帧数模式60帧还是可以的，p
 
 刚买了，为了在PC上玩一直没接触过实际的信息，只知道说比卧龙强，还是期待一下吧
 
+
+*****
+
+####  桥洞底下盖小被  
+##### 3419#       发表于 2025-3-10 23:49
+
+pc版我反正不买了，忍组吃屎去吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
