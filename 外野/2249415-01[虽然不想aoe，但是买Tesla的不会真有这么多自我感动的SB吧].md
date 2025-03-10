@@ -381,3 +381,25 @@ spacex拿kerbal模拟，这灾难性的失败简直是板上钉钉的
 
 【孙少军，特斯拉前店长胖虎爆料，苏州特斯拉的消费人群家庭收入8万】 [https://www.bilibili.com/video/B ... 91e4f33c6f288170332](https://www.bilibili.com/video/BV1de411Y7Se/?share_source=copy_web&amp;vd_source=f28b8333615d391e4f33c6f288170332)
 
+
+*****
+
+####  爱撕衣魔刃  
+##### 44#       发表于 2025-3-10 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67622882&amp;ptid=2249415" target="_blank">斯卡文分则能成 发表于 2025-3-10 19:09</a></blockquote>
+买磐石的板卡，
+
+哪怕是散热都完全不合格的丐中丐版，
+
+也要阿Q一下自己的PC是高端货，
+
+与凄惨红之类同德五虎是不一样的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  masonknight  
+##### 45#       发表于 2025-3-10 22:33
+
+有啊，身边就有两个这样的女同事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
