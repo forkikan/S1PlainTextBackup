@@ -3894,3 +3894,16 @@ https://bgm.tv/subject/topic/33083
 
 这游戏真的适合一口气通关，五年后失忆再来一遍，估计会选择完全不同的道路。
 
+
+*****
+
+####  发条之心  
+##### 345#       发表于 2025-3-10 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67619494&amp;ptid=2246453" target="_blank">大空魔术 发表于 2025-3-10 11:48</a>
+
+猛玩了快30小时，真好啊真好，就是岔路太多了想回头探索都会忘记一些地方。
+
+目前只拿到大圣堂的记忆珠，其 ...</blockquote>
+目前只看到卡农最cs地图的投票<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

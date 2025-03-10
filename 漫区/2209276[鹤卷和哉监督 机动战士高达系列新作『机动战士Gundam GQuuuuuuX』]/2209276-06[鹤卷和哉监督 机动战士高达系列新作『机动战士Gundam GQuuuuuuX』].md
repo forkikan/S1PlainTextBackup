@@ -11478,3 +11478,26 @@ GQX陆战应该是喷射移动的，类似大魔。
 
 这么大的紫婆，怀疑弗拉纳冈机构里听过紫婆卡斯巴尔梦话的男人可有不少
 
+
+*****
+
+####  岸浪白野  
+##### 8315#       发表于 2025-3-10 17:54
+
+[X 上的 【公式】機動戦士ガンダム アーセナルベース：“【FQブースター カード紹介】 #アーセナルベース FORSQUAD SEASON:01[FQブースター]収録の 『機動戦士Gundam GQuuuuuuX(ジークアクス)』より参戦の パーフェクトレアカード「赤いガンダム(0079)」 パラレルカード「白いガンダム」の実写写真をご紹介！ 【FQブースター情報】 [url]https://t.co/xKR5QHPApw](https://x.com/gundam_ab/status/1899024149810757854)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202503/10/175430zqpnvypqmkfsppgd.jpg" referrerpolicy="no-referrer">
+
+<strong>20250310174825.jpg</strong> (723.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-10 17:54 上传
+
+*****
+
+####  Gysumitka  
+##### 8316#       发表于 2025-3-10 17:54
+
+这弹不错<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">是要收尾了吗
+
