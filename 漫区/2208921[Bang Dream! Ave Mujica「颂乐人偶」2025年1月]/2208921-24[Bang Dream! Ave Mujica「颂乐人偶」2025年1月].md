@@ -15154,3 +15154,37 @@ Imprisoned和诗超绊最大的区别也就在这。饶了这么多的远路度�
 
 大祥重建mujica需要突破的是自己内心的底线。
 
+
+*****
+
+####  聋与唬  
+##### 35405#       发表于 2025-3-10 15:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67610384&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-8 23:20</a>
+不对，如果真得下面斗财阀和母鸡卡有关，那老登允许大象组母鸡卡就有一些搞笑了，我看还不如认定老登你有第 ...</blockquote>
+这还不简单，祥子是大女主啊，老登也绕着祥子转。祥子不想组母鸡卡，老登就不许任何人组母鸡卡。祥子想组母鸡卡，老登就尽一切手段满足祥子的愿望
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  cxj649  
+##### 35406#       发表于 2025-3-10 15:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这动画和寒蝉业卒类似，都是场内场外的观众观感都不一样
+
+都是作为主角的行为缺少观众可认知的制式行为仪式节点233
+
+*****
+
+####  6030sylar  
+##### 35407#       发表于 2025-3-10 15:06
+
+<img src="https://img.saraba1st.com/forum/202503/10/150634naa7dhcz8aca7dzc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>2b85ff83195b72fdc22265f0fc79b777.jpeg</strong> (124.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-10 15:06 上传
+
