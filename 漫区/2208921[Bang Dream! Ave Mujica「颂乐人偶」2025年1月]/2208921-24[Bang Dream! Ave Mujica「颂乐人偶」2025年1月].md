@@ -14271,3 +14271,155 @@ gbc的两个成人队友确实好用，一个“大人能解决问题”就可�
 
 实锤祥子组建mujica是纯粹恨mygo还挺让我失落的，虽然说的通，但我本希望这个动机更加复杂，包含寻找自我的意味
 
+
+*****
+
+####  kenqqex  
+##### 35324#       发表于 2025-3-10 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67617491&amp;ptid=2208921" target="_blank">الطائر 发表于 2025-3-10 06:27</a>
+
+有高手啊：</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202503/10/110632l8npxqoo3pap3p8a.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (206.87 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-10 11:06 上传
+
+所以元素1234 和 这次的10 和12  
+
+这是要把arcana 全填完么
+
+*****
+
+####  老贝  
+##### 35325#       发表于 2025-3-10 11:07
+
+ 本帖最后由 老贝 于 2025-3-10 11:08 编辑 
+
+队内关系并没有那么好这点应该算是两边最大的共同点了。
+
+柿本一直以来对MyGO的定义就是“也许过两年就会解散”和“聚在一起就是为了开live”。这种反bangdream企划基本逻辑的思路能通过，说明从根本开始的指挥上层就是抱着弄出新东西，搞差异化来的。
+
+更别提本身这里面就包含木谷决策失误导致的社内资源倾斜问题，你要乐意的话往公司内部权力斗争的角度去发散都可以，什么新领导上任第一件事就是否定前任成果之类的。<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 35326#       发表于 2025-3-10 11:07
+
+因为恨mygo不是废案么
+
+*****
+
+####  6030sylar  
+##### 35327#       发表于 2025-3-10 11:08
+
+ 本帖最后由 6030sylar 于 2025-3-10 11:09 编辑 
+
+<img src="http://i0.hdslb.com/bfs/new_dyn/7720a2f943dc542ad242d704c73c7c923826641.jpg" referrerpolicy="no-referrer">
+<img src="http://i0.hdslb.com/bfs/new_dyn/6b86e6ea79c2b3b8222dee3a56935f9f3826641.jpg" referrerpolicy="no-referrer">
+<img src="http://i0.hdslb.com/bfs/new_dyn/778f5c3a5a6c4021774b332f5c9c560d3826641.jpg" referrerpolicy="no-referrer">
+<img src="http://i0.hdslb.com/bfs/new_dyn/8a700fa77fa8c44e5d6ae0149fff2d6d3826641.jpg" referrerpolicy="no-referrer">
+<img src="http://i0.hdslb.com/bfs/new_dyn/acc08400999300fd3486d4aa01d82b823826641.jpg" referrerpolicy="no-referrer">
+<img src="http://i0.hdslb.com/bfs/new_dyn/c1d41f1a3bc90d0a141ac3777939e9aa3826641.jpg" referrerpolicy="no-referrer">
+<img src="http://i0.hdslb.com/bfs/new_dyn/f519b947567a3e56f7475ee69ca11d303826641.jpg" referrerpolicy="no-referrer">
+<img src="http://i0.hdslb.com/bfs/new_dyn/79d6941b4322562bc34177c5587687ba3826641.jpg" referrerpolicy="no-referrer">
+<img src="http://i0.hdslb.com/bfs/new_dyn/5014d821663b3e40641c6adf6325294d3826641.jpg" referrerpolicy="no-referrer">
+<img src="http://i0.hdslb.com/bfs/new_dyn/20c4e2cba2936ff0ddb019d7364e2ab13826641.jpg" referrerpolicy="no-referrer">
+<img src="http://i0.hdslb.com/bfs/new_dyn/594fb76a592c8e9ba93d8c9fa126dc5d3826641.jpg" referrerpolicy="no-referrer">
+
+[https://www.bilibili.com/opus/10 ... d_from=333.1365.0.0](https://www.bilibili.com/opus/1042535042626093077?spm_id_from=333.1365.0.0)
+
+*****
+
+####  thisisaspider  
+##### 35328#       发表于 2025-3-10 11:08
+
+我觉得祥子恨mygo已经完全是废案设定了。剧中消失得一点都看不见。挺可惜的。
+
+*****
+
+####  ads147147  
+##### 35329#       发表于 2025-3-10 11:09
+
+大祥老师的砸瓦鲁多会是什么样，很好奇。会致敬dio的重金属摇滚么（笑
+
+*****
+
+####  zhoujin8584  
+##### 35330#       发表于 2025-3-10 11:11
+
+我觉得重组的起点可能是这样。
+
+但是喵梦输出的时候已经点出来了，“什么一丘之貉，我还以为完全不需要搞好关系呢，事实上完全相反”
+
+“睦就是被这所谓的团魂害了”
+
+所以mujica2.0就是要治愈眼下被mujica1.0摧毁到一无所有的大家，这个逻辑还是比较通畅的。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  曼彻斯特联  
+##### 35331#       发表于 2025-3-10 11:11
+
+mygo!!!!!可能过两年就解散不是十本在采访里开的玩笑嘛，还是我看得翻译版本有问题。
+
+*****
+
+####  thisisaspider  
+##### 35332#       发表于 2025-3-10 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67619124&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-3-10 11:09</a>
+大祥老师的砸瓦鲁多会是什么样，很好奇。会致敬dio的重金属摇滚么（笑</blockquote>
+我想象是关系不需要再变化。大家对对方的印象停留在某一刻。后面剧情也不用写了。
+
+
+*****
+
+####  油画布  
+##### 35333#       发表于 2025-3-10 11:12
+
+<blockquote>凉良 发表于 2025-3-10 11:07
+因为恨mygo不是废案么</blockquote>
+这不是柿本的访谈吗 这是废案吗，那算了 反正现在mujica解散了一遍我还是不清楚当初为什么要组mujica，我只有mujica了真是句屁话啊
+
+*****
+
+####  ads147147  
+##### 35334#       发表于 2025-3-10 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67619151&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-10 11:12</a>
+
+我想象是关系不需要再变化。大家对对方的印象停留在某一刻。后面剧情也不用写了。 ...</blockquote>
+要进手游，故事线应该还是会继续往下写的，现在五个人相互折磨的永恒轮回地狱，总该会写到走出迷宫的哪一天吧。。
+
+*****
+
+####  swessia  
+##### 35335#       发表于 2025-3-10 11:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">其实为了炸团写睦吉他失能就够了，双重人格完全画蛇添足
+
+*****
+
+####  是谁的书画  
+##### 35336#       发表于 2025-3-10 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67619165&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-3-10 11:13</a>
+
+要进手游，故事线应该还是会继续往下写的，现在五个人相互折磨的永恒轮回地狱，总该会写到走出迷宫的哪一 ...</blockquote>
+哪怕不是要叫你失望了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">可能还真是永恒轮回无尽地狱了
+
+運命をも手玉に取り、彼女たちだけの箱庭で偽りの永遠に生きる
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 35337#       发表于 2025-3-10 11:16
+
+因为恨mygo才组mujica其实挺好圆回去的：大祥当上大明星上了武道馆回去找soyo炫耀，发现别人老婆孩子热炕头平平淡淡才是真，自己这边家里废物老爹团里4个神人，结果自己破大防了。这么写想想就乐。
+
