@@ -735,3 +735,21 @@ SteamDeck需要安装运行库吗？</blockquote>
 
 这游戏制作者绝对是逆5的拥趸吧。糟粕全继承了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  零崎不识  
+##### 70#       发表于 2025-3-10 12:39
+
+<blockquote>黑夜守望者 发表于 2025-3-10 09:33
+别洗了，第五章幕后黑手有本事自己动手，别嫁祸别人，那样我还能信你的话。嫁祸别人的内核原因是什么？还 ...</blockquote>
+我可以接受，毕竟以他的地位替罪羊他能保下来
+
+
+*****
+
+####  DET  
+##### 71#       发表于 2025-3-10 12:44
+
+推理游戏能自圆其说没有bug不喂屎就已经算佳作了，属于是矮子里挑高个的程度<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，这游戏算不错的了
+
