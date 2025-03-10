@@ -3855,3 +3855,13 @@ https://bgm.tv/subject/topic/33083
 
 赶紧火吧，等个全收集攻略再玩<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">强迫症玩的我异常痛苦，不折磨自己了
 
+
+*****
+
+####  缤纷如落絮  
+##### 341#       发表于 2025-3-10 16:49
+
+队友除了回忆和血迹，在地图上会有额外对话和剧情吗，明明是队友相关的地点和记忆，队友一句话太死人了，
+
+虽然确实都是死人<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
