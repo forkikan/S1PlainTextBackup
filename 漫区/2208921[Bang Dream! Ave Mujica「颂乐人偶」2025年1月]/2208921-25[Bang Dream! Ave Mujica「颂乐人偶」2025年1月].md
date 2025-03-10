@@ -499,3 +499,47 @@ mygo第十一话开头有个庄周梦蝶
 
 但鉴于不知道后面柿本的哪个访谈可能就会把这个思路否决掉，不太想往这方面多想。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adretyu67.  
+##### 35562#       发表于 2025-3-11 00:09
+
+那句我也一样是莫头压低了声音自己说给自己听的，应该是随性追加。
+
+
+*****
+
+####  是谁的书画  
+##### 35563#       发表于 2025-3-11 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67624677&amp;ptid=2208921" target="_blank">老贝 发表于 2025-3-11 00:06</a>
+愛しても、愛しても、愛しきれない、愛されない
+
+即使爱了又爱，仍无法爱到极致，亦没有被爱。</blockquote>
+正确的，而且我觉得话题讨论到了这一步才能算是揭露这个作品本身的样子。就是痛苦扭曲畸形的爱让她们能够以不自然不美好的状态凝合成一个整体。这样的解读才有意思。
+这已经无所谓柿本对于这部作品的看发了，而是作品本身成为观众自我感知的一部分<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  huxiaopao163  
+##### 35564#       发表于 2025-3-11 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67624561&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-10 23:47</a>
+神态很像，语气很像，外在的空壳很像，但此时的莫并没有去理解睦，睦也不会想要mujica，所以情感、台词都 ...</blockquote>
+莫演别的可以，演小睦就不行了。我觉得反而可能是因为太懂小睦了，想的太多了，所以反而演不好。而且被喵梦指出恶心之后，居然瞬间给出了三种其他演法。
+就像上面说的，人不能演自己，自己眼中的自己，不一定是别人眼中的自己。莫眼中的小睦，也不一定是别人眼中的小睦。毕竟她们只在脑中才能见面，而不能在现实中见面。
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  影伴光生  
+##### 35565#       发表于 2025-3-11 00:16
+
+单独拎几个关键词都挺变态了，要是一支小小的五人乐队集齐了多种要素也太恐怖了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
