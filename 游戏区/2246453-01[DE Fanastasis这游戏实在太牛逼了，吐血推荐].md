@@ -3814,3 +3814,26 @@ https://bgm.tv/subject/topic/33083
 
 地图真牛，战斗真一点不想玩。打到瀑布已经开始对多动症蜜蜂感到烦躁了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DARILBALDE  
+##### 337#       发表于 2025-3-10 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67616276&amp;ptid=2246453" target="_blank">best32167 发表于 2025-3-9 22:28</a>
+转啊转发现问题了，停尸处提到的三兄弟没找不齐，缺钥匙
+
+一点印象都没...</blockquote>
+三兄弟，第一个在下水道入口传送点往阿尔卡那平原走，第二个在达卡斯地下墓地传送点往西南方向，第三个是米尔顿自卫团的boss
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  DARILBALDE  
+##### 338#       发表于 2025-3-10 10:42
+
+顺便这游戏体量真的太太太大了，古代遗迹看了看wiki上的地图，居然还有这么大一块，而且进度居然还有一半，舔图党已经完全打不动了……<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
