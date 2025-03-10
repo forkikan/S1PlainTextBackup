@@ -3865,3 +3865,13 @@ https://bgm.tv/subject/topic/33083
 
 虽然确实都是死人<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  莫名奇妙封ID  
+##### 342#       发表于 2025-3-10 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67618816&amp;ptid=2246453" target="_blank">DARILBALDE 发表于 2025-3-10 10:42</a>
+顺便这游戏体量真的太太太大了，古代遗迹看了看wiki上的地图，居然还有这么大一块，而且整体游戏进度居然还 ...</blockquote>
+这个可能要用禁止回复的 debuff 打吧，理智之间有个血字功能，升级后可以在一些 boss 的身边刷出血字，内含一些攻略提醒。不过 18000 的血 30 级肯定打不过的，先去其他地方转转吧。
+

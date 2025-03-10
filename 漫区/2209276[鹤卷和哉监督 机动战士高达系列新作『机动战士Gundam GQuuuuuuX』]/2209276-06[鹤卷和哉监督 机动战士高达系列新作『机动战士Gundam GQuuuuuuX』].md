@@ -11297,3 +11297,58 @@ B站偷跑了一个55分钟各路盗摄混剪的版本，感觉光是看盗摄�
 
 而且小番茄和妈妈长挺像的，应该不是收养关系吧？
 
+
+*****
+
+####  kuriri  
+##### 8299#       发表于 2025-3-10 16:58
+
+ 本帖最后由 kuriri 于 2025-3-10 17:02 编辑 
+
+想问一下关于夏利亚和前夫哥聊到的17号殖民地（日文应该是“番地”大概）事件是什么事件，目前有任何材料吗？
+
+1741597034484.jpg
+(144.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-10 16:58 上传
+
+<img src="https://img.saraba1st.com/forum/202503/10/165837ve7s6xk8ix72eep8.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 8300#       发表于 2025-3-10 17:01
+
+庵野的初始剧情构想及部分剧本，以及主设计师及工作人员的原创设定草稿素材
+
+<img src="https://img.saraba1st.com/forum/202503/10/170158xvcp5xaywvy7zna2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.09 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-10 17:01 上传
+
+
+*****
+
+####  王留美  
+##### 8301#       发表于 2025-3-10 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67621946&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-3-10 17:01</a>
+ 庵野的初始剧情构想及部分剧本，以及主设计师及工作人员的原创设定草稿素材   ...</blockquote>
+艹！开大了！
+要冲35亿了吗？
+
+*****
+
+####  王留美  
+##### 8302#       发表于 2025-3-10 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67621913&amp;ptid=2209276" target="_blank">kuriri 发表于 2025-3-10 16:58</a>
+ 想问一下关于夏利亚和前夫哥聊到的17号殖民地（日文应该是“番地”大概）事件是什么事件，目前有任何材料吗 ...</blockquote>
+没有
+反正不是好事
+

@@ -15658,3 +15658,27 @@ kkr才是真的把大小姐当作身份点缀，而丰川资本就像mujica这�
 
 在我心中大祥和爱音的品位应该是一个档次的。。。
 
+
+*****
+
+####  联想会  
+##### 35454#       发表于 2025-3-10 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67621142&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-10 15:23</a>
+和小姨联姻能给老登带来财阀的继承人吗，能的话，老登就没理由反对</blockquote>
+小姨继承丰川家，祥继承若叶家<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">完美的结局
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  与太郎  
+##### 35455#       发表于 2025-3-10 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67621804&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-10 16:46</a>
+
+因为她喜欢灯的歌词
+
+而且青梅竹马已经出道了吧，一般也不会想着找已经当了代明星的人陪自己玩学生乐队吧 ...</blockquote>
+喵梦是假装0基础吧，更不用说声优本人是职业级
+
