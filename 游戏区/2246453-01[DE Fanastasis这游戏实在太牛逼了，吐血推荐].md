@@ -3907,3 +3907,11 @@ https://bgm.tv/subject/topic/33083
 目前只拿到大圣堂的记忆珠，其 ...</blockquote>
 目前只看到卡农最cs地图的投票<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lastrei  
+##### 346#       发表于 2025-3-10 21:37
+
+死刑执行所到底从那条路过去？已经打了校长室和大雪原的魔女，到了医疗所，但是通往左边和下面的门都是锁着的。。。
+
