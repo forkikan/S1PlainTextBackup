@@ -14523,3 +14523,47 @@ mygo!!!!!可能过两年就解散不是十本在采访里开的玩笑嘛，还�
 
 看起来邦里哪怕是超人jk搞商业运作还是强度太大了。
 
+
+*****
+
+####  thisisaspider  
+##### 35347#       发表于 2025-3-10 11:32
+
+在第10集后再分析这些太边角料了。只能作为二创素材了。
+
+*****
+
+####  与太郎  
+##### 35348#       发表于 2025-3-10 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67619290&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-10 11:25</a>
+
+狗里祥子还是正常上学的。
+
+到鸡里因为鸡的一堆事倒是搞得不去了。</blockquote>
+#7之前还是正常去的，后面睦门立雪以及#8为了照顾睦才暂停，#9不是还特意写了拐去睦家了，吃了闭门羹所以晚去学校找爱灯么
+
+但是祥子都自学数Ⅱ了，可以认为她自学进度比课纲快一年，那停一下也不算什么了
+
+*****
+
+####  凉良  
+##### 35349#       发表于 2025-3-10 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67619249&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-3-10 11:20</a>
+
+有一说一，这五个神人也不像是有空去上学的主，本来初华就不怎么去了，迟到早退，木头不去后祥子也开始不去 ...</blockquote>
+祥子和海玲上学还是很多的。
+
+*****
+
+####  adretyu67.  
+##### 35350#       发表于 2025-3-10 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67619236&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-10 11:20</a>
+
+即使开完了live，初华的囚禁12创作动机（爱意来源）还在藏。故事结构已经决定了。 ...</blockquote>
+也没剩几话了，
+
+包寿司就包，包芥末味寿司如包，不包也是个选择。
+
