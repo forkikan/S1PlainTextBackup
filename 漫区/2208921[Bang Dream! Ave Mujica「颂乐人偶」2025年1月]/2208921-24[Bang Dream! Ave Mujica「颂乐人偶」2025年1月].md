@@ -16166,3 +16166,52 @@ i want you后面加了个句号表示断句。
 大祥现在这个状态，虽然组建母鸡卡很痛苦，但也是她唯一能享受掌控别人命运的舞台了吧？而且按照第一集表现 ...</blockquote>
 姑且当救命稻草吧，特别是这第二次组建，几乎完全告诉我们是老登支持或默许的（对比初华的待遇），然后舅舅又在暗示下面要斗财阀，所以独角兽和蚀本这些神人脑子在想什么可说不好<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  半年  
+##### 35501#       发表于 2025-3-10 20:29
+
+<img src="https://img.saraba1st.com/forum/202503/10/202913eqfsebpssup4anun.jpg" referrerpolicy="no-referrer">
+
+<strong>GlrDxU-aAAAb2MP.jpg</strong> (200.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-10 20:29 上传
+
+[https://x.com/tatama_1/status/1899045449061060923/photo/1](https://x.com/tatama_1/status/1899045449061060923/photo/1)
+
+*****
+
+####  蜜瓜包  
+##### 35502#       发表于 2025-3-10 20:30
+
+大祥老师要说恨的话也应该是mygo不是ccc吧，mujica成立的导火索就是mygo演奏春日影，我觉得这逻辑是挺清晰的。话又说回来了，你都能成立mujica了，当初为什么非要退出ccc不可呢，都是大祥老师自找的。
+
+
+*****
+
+####  联想会  
+##### 35503#       发表于 2025-3-10 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67623318&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-10 20:17</a>
+祥子其实皱眉是因为发现语法错误不知道该不该给小姨改
+
+走的时候差点瞎JB负责的责任心大爆发准备去小姨家 ...</blockquote>
+要把第八集的木箱教培也消解掉吗<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+三角初音，太可怕了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  aptx8285144  
+##### 35504#       发表于 2025-3-10 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67621472&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2025-3-10 16:08</a>
+
+对，这个是最糟糕的，【大小姐过家家】相当于半官方下的定性，如果剧情内没有人用行动反驳的话（因为语言 ...</blockquote>
+无论下面三话的如何行动，前面的赔偿金与天降迈巴赫，初华与大象巨大的待遇反差，就已经把大小姐过家家按在鸡团脑门上了，现在基本上就和第五话否定了前四话大部分的价值一样，<strong>最后三话要不要否定9,10话的很多东西？剧本完全是进退失据的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer"></strong>
+
