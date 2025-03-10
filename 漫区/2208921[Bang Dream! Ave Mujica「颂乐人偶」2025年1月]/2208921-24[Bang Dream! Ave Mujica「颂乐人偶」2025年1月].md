@@ -16143,3 +16143,26 @@ i want you后面加了个句号表示断句。
 
 属于是认定krkr持有者。
 
+
+*****
+
+####  z-hunter  
+##### 35499#       发表于 2025-3-10 20:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67623197&amp;ptid=2208921" target="_blank">人又如何 发表于 2025-3-10 20:00</a>
+
+大祥现在这个状态，虽然组建母鸡卡很痛苦，但也是她唯一能享受掌控别人命运的舞台了吧？而且按照第一集表现 ...</blockquote>
+睦死后（算死了吗？现在还不知道“若叶睦”这个个体目前是什么状态，大祥确实觉得自己只剩下mujica的所谓“责任”了。
+
+然后下一集因为私生女初音，这个mujica2.0又死了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 35500#       发表于 2025-3-10 20:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67623197&amp;ptid=2208921" target="_blank">人又如何 发表于 2025-3-10 20:00</a>
+
+大祥现在这个状态，虽然组建母鸡卡很痛苦，但也是她唯一能享受掌控别人命运的舞台了吧？而且按照第一集表现 ...</blockquote>
+姑且当救命稻草吧，特别是这第二次组建，几乎完全告诉我们是老登支持或默许的（对比初华的待遇），然后舅舅又在暗示下面要斗财阀，所以独角兽和蚀本这些神人脑子在想什么可说不好<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
