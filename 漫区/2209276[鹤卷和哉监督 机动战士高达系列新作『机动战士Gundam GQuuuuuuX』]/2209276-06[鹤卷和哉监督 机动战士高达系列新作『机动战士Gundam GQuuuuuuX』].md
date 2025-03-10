@@ -11573,3 +11573,16 @@ GQX陆战应该是喷射移动的，类似大魔。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  xwz  
+##### 8322#       发表于 2025-3-10 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67621437&amp;ptid=2209276" target="_blank">kuriri 发表于 2025-3-10 16:04</a>
+
+克隆人是个很好用的设定，但我会觉得有点土诶
+
+就是zz用过了，eva用过了，oo是不是也用过？尤其是之前水魔 ...</blockquote>
+不一样，水魔用克隆人的设定确实是老土，但如果是UC背景下用克隆人的设定就正好……
+
