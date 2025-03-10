@@ -583,3 +583,14 @@ mygo第十一话开头有个庄周梦蝶
 
 不就只能沉迷写人偶小剧场了吗。
 
+
+*****
+
+####  堆雪若叶  
+##### 35570#       发表于 2025-3-11 01:42
+
+得不到爱是mygo13母鸡卡初次小剧场就出现的台词，被问到什么是人偶之死的时候睦对应的回答就是
+<img src="https://p.sda1.dev/22/389c3b2f4f49fa18fbc414cb5d87f07d/_Nekomoe kissaten_LoliHouse_ BanG Dream! It_s MyGO!!!!! - 13 _WebRip 1080p HEVC-10bit AAC ASSx2_.mkv_001706.056.jpg" referrerpolicy="no-referrer">
+
+死亡是得不到爱，可能当时就已经喵睦捆绑了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
