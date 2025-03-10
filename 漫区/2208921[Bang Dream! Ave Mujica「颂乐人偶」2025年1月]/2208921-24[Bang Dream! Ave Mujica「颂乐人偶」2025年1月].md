@@ -15087,3 +15087,13 @@ mujica还在纠结ccc，就成了这股阴魂不散的白饭粒和蚊子血。�
 
 不如指望pico弄个地狱战神出来。
 
+
+*****
+
+####  有钱多买小人  
+##### 35400#       发表于 2025-3-10 14:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67619977&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-3-10 12:52</a>
+跑龙套也和大家说，真的很努力</blockquote>
+一季度出演了两部临近结尾口碑与开播前出现反转的片子<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

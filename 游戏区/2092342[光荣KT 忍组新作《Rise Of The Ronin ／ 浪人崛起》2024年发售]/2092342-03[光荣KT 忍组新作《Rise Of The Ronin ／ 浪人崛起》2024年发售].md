@@ -123,3 +123,11 @@ ucg说的是笔记本残血版30702k中等画质可以60帧，贴吧有人4060dl
 
 还有某些流派的石火判定帧还挺短的，开帧生成真不会有影响么……
 
+
+*****
+
+####  廖化  
+##### 3415#       发表于 2025-3-10 14:31
+
+艹我预购了才看到优化成这个狗屎样子，MD暗荣误我<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
