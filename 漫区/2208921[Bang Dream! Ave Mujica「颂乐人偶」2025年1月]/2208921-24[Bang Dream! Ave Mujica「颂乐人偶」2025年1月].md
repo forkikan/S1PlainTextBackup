@@ -15188,3 +15188,84 @@ Imprisoned和诗超绊最大的区别也就在这。饶了这么多的远路度�
 
 2025-3-10 15:06 上传
 
+
+*****
+
+####  adretyu67.  
+##### 35408#       发表于 2025-3-10 15:10
+
+7话的ccclive有多烂呢。
+
+你把独白删了，我这种完全没去过音乐会不懂乐理和发声的外行人都能一下听出来羊叫的程度。
+
+配到这份上只能说是就是这么要求
+
+*****
+
+####  aptx8285144  
+##### 35409#       发表于 2025-3-10 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67620969&amp;ptid=2208921" target="_blank">聋与唬 发表于 2025-3-10 15:03</a>
+
+这还不简单，祥子是大女主啊，老登也绕着祥子转。祥子不想组母鸡卡，老登就不许任何人组母鸡卡。祥子想组 ...</blockquote>
+那大祥万一因为初音是私生女之类的事情再去违抗老登的话就有一些讽刺，爱都给了你，你还要家庭私事违抗我<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  与太郎  
+##### 35410#       发表于 2025-3-10 15:11
+
+[https://tieba.baidu.com/p/9496447166](https://tieba.baidu.com/p/9496447166)
+[https://tieba.baidu.com/p/9561568208](https://tieba.baidu.com/p/9561568208)
+
+对#7和#10live演出的批评
+
+*****
+
+####  cxj649  
+##### 35411#       发表于 2025-3-10 15:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我在贴吧看见一个地域笑话
+
+就是部分观众到现在认知：又哈气！！！！！！！快点放弃过去，珍惜现在的人啊！！！！！！！！
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然没什么不对，但观众认知错位还是有的233
+
+
+*****
+
+####  qlipho  
+##### 35412#       发表于 2025-3-10 15:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  联想会  
+##### 35413#       发表于 2025-3-10 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67621043&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-10 15:11</a>
+那大祥万一因为初音是私生女之类的事情再去违抗老登的话就有一些讽刺，爱都给了你，你还要家庭私事违抗我 ...</blockquote>
+违抗老登是指祥子想和小姨在一起被老登阻止，还是老登要祥和小姨联姻祥不愿意呀<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  老贝  
+##### 35414#       发表于 2025-3-10 15:15
+
+ 本帖最后由 老贝 于 2025-3-10 15:17 编辑 
+
+灯哭到唱都快唱不下去的难听歌声能够让祥子流下幸福的泪水，初音包含情感的美妙歌声却只能让祥子闭目不对视和获得一个偷偷流露出的淡然表情。
+
+可能这就是所谓的终极侮辱吧，不管是对角色还是对观众。<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 35415#       发表于 2025-3-10 15:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就像寒蝉业卒里古手女士一样，哪怕去毒制式性格的巡版古手女士也不喜欢待在雏见泽233
+
+但观众们非要以为她喜欢留在雏见泽不然就是神人233
+
