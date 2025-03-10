@@ -308,3 +308,14 @@ CelticWhite：
 
 <img src="https://img.saraba1st.com/forum/202503/10/111534jrz5xtkttlvxtxvo.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  csolfans  
+##### 1549#       发表于 2025-3-11 06:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67580283&amp;ptid=2201887" target="_blank">一心而用 发表于 2025-3-5 15:44</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">本来去了现地想买本场刊，当时排场贩绕了一大圈想着场刊这玩意应该不急，就去隔壁代代木公园走走和去原宿看圣地，结果没想到东京两天把场贩全切了。淦
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
