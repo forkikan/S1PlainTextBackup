@@ -13918,3 +13918,39 @@ kkr才是真的把大小姐当作身份点缀，而丰川资本就像mujica这�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  595505568  
+##### 35292#       发表于 2025-3-10 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67618476&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-3-10 10:06</a>
+原案那个设定就是ppp+roselia
+相当于原案灯=狗灯+爱音
+原案爱音=猫</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开朗灯 吉他英雄爱音全是之前吐槽的概念神…不会人均概念神吧（太超模来）
+
+*****
+
+####  老贝  
+##### 35293#       发表于 2025-3-10 10:19
+
+之前不是有分析几个mv就是mygo初设吗，尤其是碧天伴走里明显比较阳光的灯和阴郁的爱音。
+
+
+*****
+
+####  syndrome2032  
+##### 35294#       发表于 2025-3-10 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67618579&amp;ptid=2208921" target="_blank">595505568 发表于 2025-3-10 10:17</a>
+开朗灯 吉他英雄爱音全是之前吐槽的概念神…不会人均概念神吧（太超模来） ...</blockquote>
+差不多，原案爱音是在英国接触摇滚觉得很coooool，所以回国找队友。进邦邦时候被认为太像六花了，所以改成了现在狗版本的设定
+
+*****
+
+####  Wwwwwater  
+##### 35295#       发表于 2025-3-10 10:21
+
+原案可以在碧天伴奏的pv里看出一点端倪，开朗灯和小哭包爱音
+
