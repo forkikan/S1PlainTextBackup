@@ -15837,3 +15837,14 @@ mujica动画的主题终于是明白了，完全没有邦味的黑暗乐队，�
 
 柿本在mygo完结的时候就说祥子组mujoca是为了忘记ccc，现在又说恨mygo是不是双重人格
 
+
+*****
+
+####  ads147147  
+##### 35471#       发表于 2025-3-10 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67622631&amp;ptid=2208921" target="_blank">古明地雷 发表于 2025-3-10 18:28</a>
+
+柿本在mygo完结的时候就说祥子组mujoca是为了忘记ccc，现在又说恨mygo是不是双重人格 ...</blockquote>
+憎恨ccc是原案，被改掉了。
+

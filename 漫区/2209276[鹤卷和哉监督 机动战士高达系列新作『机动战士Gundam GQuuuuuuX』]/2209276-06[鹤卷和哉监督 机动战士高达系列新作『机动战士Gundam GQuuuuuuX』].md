@@ -11544,3 +11544,16 @@ GQX陆战应该是喷射移动的，类似大魔。
 
 一脸懵逼的新人观众：所以我们是什么假想敌吗？真谢谢你们这帮老登嗷（
 
+
+*****
+
+####  赤黑的假面  
+##### 8320#       发表于 2025-3-10 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67622512&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-3-10 18:06</a>
+
+没想到吧，这是出自同一部电影的人物
+
+昭和铁血老登时代剧封面和令和潮哥创新三人关系性，这就是我们Khara的 ...</blockquote>
+昭和时代剧和令和三个火枪手
+
