@@ -16347,3 +16347,13 @@ ring的堕落！
 
 还是多看动画少看假药，明显有假弹的镜头，mujica2.0也明确说了弹不了就演，舞台只能打半吊子光就半吊子。牢祥现在是只需要绑定人生，音乐性演出追求都可以不要的状态。
 
+
+*****
+
+####  thisisaspider  
+##### 35516#       发表于 2025-3-10 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67623632&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-10 21:08</a>
+还是多看动画少看假药，明显有假弹的镜头，mujica2.0也明确说了弹不了就演，舞台只能打半吊子光就半吊子。 ...</blockquote>
+那个是装吊灯吧。装吊灯真能勉强livehouse搞这么吗。我觉得这里推不出这么多东西。
+
