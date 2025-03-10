@@ -60,3 +60,13 @@
 
 评价是你急也没用，慢慢玩呗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Niu  
+##### 18216#       发表于 2025-3-11 01:01
+
+我基本上不把聖遺物放在心上。
+
+只當作偶爾可以增加TA率的補助。
+
