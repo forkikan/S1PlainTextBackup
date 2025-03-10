@@ -15269,3 +15269,57 @@ Imprisoned和诗超绊最大的区别也就在这。饶了这么多的远路度�
 
 但观众们非要以为她喜欢留在雏见泽不然就是神人233
 
+
+*****
+
+####  cxj649  
+##### 35416#       发表于 2025-3-10 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67621072&amp;ptid=2208921" target="_blank">老贝 发表于 2025-3-10 15:15</a>
+
+灯哭到唱都快唱不下去的难听歌声能够让祥子流下幸福的泪水，初音包含情感的美妙歌声却只能让祥子闭目不对视 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然但是就是“包含情感”才吓人啊233
+
+*****
+
+####  qlipho  
+##### 35417#       发表于 2025-3-10 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67621072&amp;ptid=2208921" target="_blank">老贝 发表于 2025-3-10 15:15</a>
+
+灯哭到唱都快唱不下去的难听歌声能够让祥子流下幸福的泪水，初音包含情感的美妙歌声却只能让祥子闭目不对视 ...</blockquote>
+睦似了，不能要求蓝章鱼太多<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 35418#       发表于 2025-3-10 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67621072&amp;ptid=2208921" target="_blank">老贝 发表于 2025-3-10 15:15</a>
+灯哭到唱都快唱不下去的难听歌声能够让祥子流下幸福的泪水，初音包含情感的美妙歌声却只能让祥子闭目不对视 ...</blockquote>
+这个没办法没办法，春日影和超诗祥对于大祥老师主观观感上确有不同，我特别能理解<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  aptx8285144  
+##### 35419#       发表于 2025-3-10 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67621068&amp;ptid=2208921" target="_blank">联想会 发表于 2025-3-10 15:15</a>
+
+违抗老登是指祥子想和小姨在一起被老登阻止，还是老登要祥和小姨联姻祥不愿意呀
+
+—— 来自 鹅球 v3.4.98 ...</blockquote>
+和小姨联姻能给老登带来财阀的继承人吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 35420#       发表于 2025-3-10 15:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">观众所认知的饺子是对主角的最大不幸
+
+这类作品还有多少？
+
