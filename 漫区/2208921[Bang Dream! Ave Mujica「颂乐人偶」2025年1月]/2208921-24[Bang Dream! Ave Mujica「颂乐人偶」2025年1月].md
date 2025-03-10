@@ -14787,3 +14787,47 @@ Mujica 2.0这套以成员苦痛和互相折磨为卖点，但是在台上永远�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  thisisaspider  
+##### 35372#       发表于 2025-3-10 12:09
+
+mygo中初海的形象可以在混活时回来。他们在mujica以外的地方重新带上面具。初再变回原来的知心大姐。海再变回可靠的贝斯手。甚至祥子也学会带上白祥的面具了。
+
+*****
+
+####  thisisaspider  
+##### 35373#       发表于 2025-3-10 12:12
+
+全员人格面具一旦接受了这个设定太爽了。
+
+
+*****
+
+####  UNISONIA  
+##### 35374#       发表于 2025-3-10 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67619194&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-3-10 11:16</a>
+
+因为恨mygo才组mujica其实挺好圆回去的：大祥当上大明星上了武道馆回去找soyo炫耀，发现别人老婆孩子热炕头 ...</blockquote>
+其实ARG时代（早于MyGO动画开播）也有暗示mujica是主打非主流年轻人的玩票乐队，不是非常讲求音乐性，现场的中二暗黑小剧场内容也是重要的吸引观客的一环——这一点还是和依靠老登的力量才组了这个商业乐队的这条从初设就开始沿用下来的设定对的上的
+
+甚至这个演出内容的音乐性上是不如柿本访谈里明确承认参考了的Sound Horizon和MALICE MIZER的，SH和恶悲的大部分乐队成员都有邦摇上级实力，虽然团里也有短板存在
+
+当然大祥本人初设还是对音乐有追求的，否则就不会取Ave Mujica这种团名了，破防的原因估计也有这一条
+
+*****
+
+####  UNISONIA  
+##### 35375#       发表于 2025-3-10 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67619400&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-10 11:37</a>
+
+鸡团的出道时间到上武道馆时间基本集中在暑假。
+
+巧妙地避开了不登校地问题。</blockquote>
+剧中Mujica武道馆LIVE"Nostri Noctis"是8月下旬的某个休日（可能是8月23日）
+
+9月20日（解散那天）是LIVE TOUR "Continuatio Festi"福岡，全国巡演似乎都是在周日进行的（参照后面取消掉的那场东京千秋是10月4日）
+
