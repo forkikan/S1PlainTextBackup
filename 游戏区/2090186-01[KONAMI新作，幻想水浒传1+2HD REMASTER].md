@@ -3339,3 +3339,19 @@ PSP版就修了
 
 一个更详细的psp版攻略，应该也能用在这版吧
 
+
+*****
+
+####  月光乱舞  
+##### 357#       发表于 2025-3-10 20:59
+
+先把1代通关了，最后特别鸣谢里看到村山吉隆还是有点感慨，也是让自己和留下的出色作品让全世界的玩家永远记住了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202503/10/205855vfpp3qurz33zpi2t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (40.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-10 20:58 上传
+
