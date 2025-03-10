@@ -805,3 +805,13 @@ SteamDeck需要安装运行库吗？</blockquote>
 
 前两张给你留下的印象只有律师宅、感情迟钝的印象，其它别的都没有，那我只能说要么你阅读理解有障碍，要么玩的时候是快进吧。要是我前几章要是对他的印象只有这样，确实第五章不会感到突兀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑夜守望者  
+##### 77#       发表于 2025-3-10 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67622119&amp;ptid=2248036" target="_blank">Dashuaibi 发表于 2025-3-10 17:21</a>
+逆转检事的某黑手的“变脸”对比他之前形象不也是180度，有人喷吗</blockquote>
+你对比一下就知道了啊，逆检的那个前尘往事来龙去脉全给你挖出来了，番轰三和这位有吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
