@@ -635,3 +635,26 @@ https://www.animatetimes.com/news/details.php?id=1741242390&amp;p=3
 
 如果动画里最后真的使用了Symbol I : △这首米泽茜自信的“世界级”作品，那么喵梦某种意义上就是在真实系作品里达到了超级系角色（虹夏）的出力了
 
+
+*****
+
+####  凉良  
+##### 35574#       发表于 2025-3-11 02:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67624976&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-3-11 02:26</a>
+
+喵梦问为什么看中她，大祥说长相和数字，喵梦“啊”了一下然后开启最高夹子音，说明心底里是不太爽这个回 ...</blockquote>
+这动画真别分析这种东西……万字解析抠细节都被打脸多少了
+
+*****
+
+####  与太郎  
+##### 35575#       发表于 2025-3-11 02:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67624976&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-3-11 02:26</a>
+
+喵梦问为什么看中她，大祥说长相和数字，喵梦“啊”了一下然后开启最高夹子音，说明心底里是不太爽这个回 ...</blockquote>
+主要是剧中的很多台词其实是有不小解读空间的，不看场外解说的话，祥子劝诱喵梦时说“当然你打鼓还得多练”，究竟是就事论事还是习惯性打压话术？
+
+现在我们都知道这里就是说喵梦技术还差得远，那么和后面的发展结合，就是喵梦1个月从爱音变立希，如果后面还要演奏Symbol I : △，那就是3个月从样子货变全日本最强女鼓手（可能都不用加JK这个限定范围了）<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
