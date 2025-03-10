@@ -658,3 +658,14 @@ https://www.animatetimes.com/news/details.php?id=1741242390&amp;p=3
 
 现在我们都知道这里就是说喵梦技术还差得远，那么和后面的发展结合，就是喵梦1个月从爱音变立希，如果后面还要演奏Symbol I : △，那就是3个月从样子货变全日本最强女鼓手（可能都不用加JK这个限定范围了）<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sauron.j  
+##### 35576#       发表于 2025-3-11 02:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67624985&amp;ptid=2208921" target="_blank">凉良 发表于 2025-3-11 02:39</a>
+
+这动画真别分析这种东西……万字解析抠细节都被打脸多少了</blockquote>
+喵梦已经是很好看透很有规律的角色了，对轻度观众唯一迷惑点就是十句假话掺一句真话。说真心话的时候就完全不夹（如第3集与睦头独处），越假就越夹
+
