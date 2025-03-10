@@ -14044,3 +14044,103 @@ mygo在废案里大概率不是现在的喝茶聊天乐队
 
 結果就變成了陰濕小人因為女女關係性而要打壓MyGo
 
+
+*****
+
+####  syndrome2032  
+##### 35304#       发表于 2025-3-10 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67618700&amp;ptid=2208921" target="_blank">凉良 发表于 2025-3-10 10:31</a>
+mygo一开始的宣传图和现在的气质完全不一样 再加上mujica废案是组来打mygo的
+
+mygo在废案里大概率不是现在的 ...</blockquote>
+喝茶聊天这点其实主要是随着版本更新实力肯定会慢慢膨胀的。
+
+r团当年搞live为了效果还要寻思各种卖票舞台设计歌单顺序。直接把ppp说晕了。
+
+到狗里直接速成框架了，半天排练熬夜制作服装。
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 35305#       发表于 2025-3-10 10:48
+
+现在看来CCC分手炮这段一定是因为要卖live的商业原因塞进去的，不加这段soyo因为祥子对不起睦头迅速出脑就显得很连贯了。
+
+*****
+
+####  adretyu67.  
+##### 35306#       发表于 2025-3-10 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67617950&amp;ptid=2208921" target="_blank">UNISONIA 发表于 2025-3-10 09:03</a>
+
+那个是TV动画的合同企划展的标题和描述吧，『あつめた一瞬、閉じ込めた永遠』
+
+以及
+
+一瞬一瞬を積み重ねて ...</blockquote>
+嗯，应该是这个。
+
+但是封闭在虚伪的永远里实在太哀了。
+
+
+*****
+
+####  Mr姜  
+##### 35307#       发表于 2025-3-10 10:50
+
+<img src="https://img.saraba1st.com/forum/202503/10/105011ledd5oaxuc7eu1kk.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_343770303299328.jpg</strong> (70.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-10 10:50 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  adretyu67.  
+##### 35308#       发表于 2025-3-10 10:51
+
+ccc和解当晚就是鸡狗合同ccc，过了2天就是春日影上tft<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+干成这样只能说是完完全全的炒作了。
+
+*****
+
+####  老贝  
+##### 35309#       发表于 2025-3-10 10:51
+
+MyGO早期的宣传图给人感觉就是几个大学生打拼的乐队，和后面高中生放学后喝茶的气质差别确实太大了。
+真要按原案来的话，Mujica要干的可能就是跑人家演出上拆台砸场了。
+
+不过讨论换原案会不会比现在更好确实意义不大，本来就是觉得不好写才会放弃。
+
+*****
+
+####  ape-apple  
+##### 35310#       发表于 2025-3-10 10:54
+
+原案鸡狗概念神吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">mygo本来就是社会人该做的事安到jk身上，一开始就有这种撕裂感，真不如独立做企划了
+
+*****
+
+####  厚乳果珍爽  
+##### 35311#       发表于 2025-3-10 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67618919&amp;ptid=2208921" target="_blank">老贝 发表于 2025-3-10 10:51</a>
+
+MyGO早期的宣传图给人感觉就是几个大学生打拼的乐队，和后面高中生放学后喝茶的气质差别确实太大了。
+
+真要 ...</blockquote>
+按原案写不就是gbc咯？！
+
+*****
+
+####  老贝  
+##### 35312#       发表于 2025-3-10 10:55
+
+这点其实目前三次元MyGO单独live的宣传图还是那个风格。只要不涉及到和其他乐队合作的话，一直都是由shuzuku担当宣传图画师，Ave Mujica倒是3rd开始和动画越来越同步了。
+
