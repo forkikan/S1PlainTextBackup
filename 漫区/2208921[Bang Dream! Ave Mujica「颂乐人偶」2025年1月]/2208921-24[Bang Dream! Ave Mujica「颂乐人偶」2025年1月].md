@@ -15394,3 +15394,64 @@ Imprisoned和诗超绊最大的区别也就在这。饶了这么多的远路度�
 
 把观众的体验和角色的感受甚至剧情发展刻意制造冲突对立，让你觉得好的展开对角色而言却是剧毒，这不是菜而是真的坏。<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  影伴光生  
+##### 35428#       发表于 2025-3-10 15:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在想来，9集结尾让鸡狗两团10个人同框，大概只是为了避免最后一集共演的时候出现有些人完全没碰过面的问题吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  聋与唬  
+##### 35429#       发表于 2025-3-10 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67618198&amp;ptid=2208921" target="_blank">油画布 发表于 2025-3-10 09:35</a>
+kkr才是真的把大小姐当作身份点缀，而丰川资本就像mujica这个房子里的一头大象，可以无视它，但无视不了不 ...</blockquote>
+我觉得，可以批评延伸，但没有意义，这只是人物形象塑造的一环，不是剧本的核心表达。是一个客观中性的存在。
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+*****
+
+####  NEWROMANCER  
+##### 35430#       发表于 2025-3-10 15:44
+
+鉴于这片敢让剧中角色连续两次点出大小姐过家家，让路人预判一大堆观众感受，我有理由怀疑最后一集live前后会再让喵梦或者无关路人，或者下两集老登说出一些我们现在在吐槽的内容。
+
+*****
+
+####  巴裘拉  
+##### 35431#       发表于 2025-3-10 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67621247&amp;ptid=2208921" target="_blank">老贝 发表于 2025-3-10 15:37</a>
+
+精心设计的让你绕了一大圈却什么都没有做到，和叙事能力不行讲了半天等于没讲是两码事，在这片上我倾向于是 ...</blockquote>
+更可能是二者兼有，又坏又菜<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">从访谈就很明显的能看有人出对motis和喵梦跃然纸上的偏爱了
+
+*****
+
+####  qlipho  
+##### 35432#       发表于 2025-3-10 15:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer"> 327啤酒烧烤国服，唉已经准备鸡血馒头了，我才是初音
+
+*****
+
+####  ntrntr1  
+##### 35433#       发表于 2025-3-10 15:48
+
+<blockquote>聋与唬 发表于 2025-3-10 15:32
+不是，本作都说了是黑暗向的最狂少女乐队了。
+
+祥子形象就是一个任性的，傲慢的，自我意识过剩的，但遇到 ...</blockquote>
+没魅力啊
+
+负面人格爆表表现得很有魅力的反派多了去了
+
+现在除了24k纯正祥嬷现在祥子的魅力就纯在外表和二创里吧...
+
