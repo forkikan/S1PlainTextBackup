@@ -2959,3 +2959,13 @@ live有活，其他-2
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  童贞阿龙  
+##### 333#       发表于 2025-3-10 15:57
+
++2，神作啊必须神作，只看了1  2 3 10这四集的话
+
+—— 来自 motorola XT2201-2, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
