@@ -753,3 +753,16 @@ SteamDeck需要安装运行库吗？</blockquote>
 
 推理游戏能自圆其说没有bug不喂屎就已经算佳作了，属于是矮子里挑高个的程度<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，这游戏算不错的了
 
+
+*****
+
+####  blueelf  
+##### 72#       发表于 2025-3-10 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67619688&amp;ptid=2248036" target="_blank">黑夜守望者 发表于 2025-3-10 12:15</a>
+
+前几章一副完全不认同冯为代表的贵族的自命不凡的样子，冯说女友坏话会发怒，觉得女友不喜欢自己会暗自神 ...</blockquote>
+你可能没明白我的意思，我是说游戏在3，4章对王子这个角色并没有深入去描写，他就没怎么牵扯进这两个案件，连一次证人台都没上过，玩家对他的印象实际上很表面，尽管有情绪探测这个金手指，对他的了解也不深
+
+所谓黑化，指的是一个很熟悉的人暴露出来完全不同的另一面，反过来说，如果本来对这个人就不是那么熟，那就谈不上黑化了
+
