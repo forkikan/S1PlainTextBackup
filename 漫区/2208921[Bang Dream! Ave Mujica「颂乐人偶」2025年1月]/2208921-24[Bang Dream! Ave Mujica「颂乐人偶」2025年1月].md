@@ -14567,3 +14567,54 @@ mygo!!!!!可能过两年就解散不是十本在采访里开的玩笑嘛，还�
 
 包寿司就包，包芥末味寿司如包，不包也是个选择。
 
+
+*****
+
+####  adretyu67.  
+##### 35351#       发表于 2025-3-10 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67619364&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-3-10 11:32</a>
+
+#7之前还是正常去的，后面睦门立雪以及#8为了照顾睦才暂停，#9不是还特意写了拐去睦家了，吃了闭门羹所以 ...</blockquote>
+鸡团的出道时间到上武道馆时间基本集中在暑假。
+
+巧妙地避开了不登校地问题。
+
+不过武道馆是9月20日还是开学了的。
+
+但是感觉快要被压坏了的工作强度，虽然没表现，但是感觉9月应该是没怎么去上。
+
+*****
+
+####  联想会  
+##### 35352#       发表于 2025-3-10 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67619070&amp;ptid=2208921" target="_blank">油画布 发表于 2025-3-10 11:04</a>
+实锤祥子组建mujica是纯粹恨mygo还挺让我失落的，虽然说的通，但我本希望这个动机更加复杂，包含寻找自我的 ...</blockquote>
+这个不是废弃的原设嘛<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+如果按这个原设拍，也不会是现在的废物小章鱼<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  老贝  
+##### 35353#       发表于 2025-3-10 11:40
+
+Mujica 2.0这套以成员苦痛和互相折磨为卖点，但是在台上永远能贡献完美演出打造的乐队其实上限确实挺高的，但是苦痛的来源却没写好。
+睦/墨提斯内部的割裂与互依存，喵梦对于睦墨演技的扭曲追求和爱而不得，祥子对于ccc的渴望与亲手摧毁它后的封闭与隔离，没一个能说还行的。
+
+这其中最狗屎的就是ccc。明明作为无论如何都可以说是两个企划中最重要的，仅有一次的再结成，它居然给你在春日影里放大段大段的角色内心独白。柿本也是有脸说从MyGO开始对角色内心描写解禁，解完你就写成这个样子的？
+ccc的观感一拉胯，让人没法感觉到她的美好珍贵、不可替代与对摧毁她主谋的怨愤，那后面所有对于Mujica这个用来对Crychic/MyGO，不管是原案中的复仇工具还是动画中替代品的描写，就都变成笑话了。
+
+
+*****
+
+####  swessia  
+##### 35354#       发表于 2025-3-10 11:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">睦莫融合了啊，咋第十集演的跟殉情一样
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
