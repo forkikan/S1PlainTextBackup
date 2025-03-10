@@ -84,3 +84,82 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  结衣小比取  
+##### 35528#       发表于 2025-3-10 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67619009&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-3-10 10:59</a>
+
+...（开头睦来羽丘找祥子，二人羽沢珈琲店见面时，祥子一瞬激昂然后喝咖啡又软化这个真有点典了） ...</blockquote>
+坛友把MyGO动画第二话和第六话记混了，「开头睦来羽丘找祥子，二人羽沢珈琲店见面时」剧情出现在第二话15:13起，「祥子一瞬激昂然后喝咖啡又软化」则出现在第六话13:54起
+
+*****
+
+####  结衣小比取  
+##### 35529#       发表于 2025-3-10 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67622223&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-3-10 17:32</a>
+
+好像还真是
+
+但是和爱音不一样，她在剧中应该也是被夸赞有职业级实力的（没有说爱音很差的意思） ...</blockquote>
+建议还要同时参考动画实际表现，MyGO动画祥子笼络若麦的时候描述过她的演奏特点，所以这个“0基础”肯定不是在祥子找她的时候是0基础，个人推测可能是爱音看她买了电子鼓那个视频的时候是0基础，参考坛友考据的时间表，这之间至少差了3天以上
+[https://www.bilibili.com/opus/1003716032993427506](https://www.bilibili.com/opus/1003716032993427506)
+
+
+*****
+
+####  钦念以忱  
+##### 35530#       发表于 2025-3-10 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67624149&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-10 22:45</a>
+
+其实有考据但是太分散而且片段了。大喵很早之说单独和睦组乐队都可以。可以被看成是庸人对于天才者的爱恨 ...</blockquote>
+但这些喵梦对睦头的单向互动全都着眼在了演技上，突然一转情欲，有点弯转得太快闪了腰的感觉
+
+还是说女女关系性圈子就是这样的？
+
+*****
+
+####  huxiaopao163  
+##### 35531#       发表于 2025-3-10 22:53
+
+ 本帖最后由 huxiaopao163 于 2025-3-10 22:57 编辑 
+
+喵睦的的留白太多，再加上多重人格问题，就有各种各样不同的解释。
+
+有说喵爱的是小睦，所以莫决定将这份爱传递给将要死去的小睦，因为莫自己也是爱着小睦的（什么三角恋）
+
+有说喵爱的是莫，所以莫释怀了，放弃了一辈子扮演小睦来活下去的想法。因为爱她的喵梦讨厌这样。
+
+有说喵爱的是整体的若叶睦，演技也可以属于若叶睦，而不再是想要切割掉的父母的恩赐，所以莫睦可以融合了。
+
+当然几种说法也可以相互融合，因为喵梦其实也搞不太清谁是谁，睦的多重人格到底怎么回事也说不准<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 35532#       发表于 2025-3-10 22:56
+
+ 本帖最后由 adretyu67. 于 2025-3-10 22:57 编辑 
+
+大猫唐突的那段我觉得是为了引入最后那句，爱着爱着却怎么也无法爱上。
+
+相当于把象征爱的amoris给收了。
+
+*****
+
+####  是谁的书画  
+##### 35533#       发表于 2025-3-10 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67624192&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-10 22:53</a>
+但这些喵梦对睦头的单向互动全都着眼在了演技上，突然一转情欲，有点弯转得太快闪了腰的感觉
+
+还是说女女 ...</blockquote>
+可能这就是这部剧里大多女人真是的面貌吧，如果五个人都是疯狂的，那其实也算和谐的平衡了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+要不然同样也没办法解释初华为何也会如此疯狂，我现在看她感觉是被祥子盯一眼估计就会 ⭕️ 的那种变态了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
