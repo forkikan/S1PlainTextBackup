@@ -14423,3 +14423,103 @@ mygo!!!!!可能过两年就解散不是十本在采访里开的玩笑嘛，还�
 
 因为恨mygo才组mujica其实挺好圆回去的：大祥当上大明星上了武道馆回去找soyo炫耀，发现别人老婆孩子热炕头平平淡淡才是真，自己这边家里废物老爹团里4个神人，结果自己破大防了。这么写想想就乐。
 
+
+*****
+
+####  thisisaspider  
+##### 35338#       发表于 2025-3-10 11:17
+
+要痛苦才能创造极致的艺术。太符合我的xp了。<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 35339#       发表于 2025-3-10 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67619186&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-10 11:15</a>
+
+哪怕不是要叫你失望了可能还真是永恒轮回无尽地狱了
+
+運命をも手玉に取り、彼女たちだけの箱庭で偽りの永 ...</blockquote>
+包括imprisoned xii也是这个意思，但是点出来的时机太早了。
+
+*****
+
+####  ads147147  
+##### 35340#       发表于 2025-3-10 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67619186&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-10 11:15</a>
+
+哪怕不是要叫你失望了可能还真是永恒轮回无尽地狱了
+
+運命をも手玉に取り、彼女たちだけの箱庭で偽りの永 ...</blockquote>
+那倒也不失望，也就是取得缔造迷宫的神最终也会成为迷宫的一部分这样挺希腊古典设计的故事，其实光看大墨老师的弑父娶母设计大概也知道会走古典流派，只是觉得这样写不是不行，但是你打造的太粗糙了，没有扭曲美感。
+
+*****
+
+####  厚乳果珍爽  
+##### 35341#       发表于 2025-3-10 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67619012&amp;ptid=2208921" target="_blank">庸necro 发表于 2025-3-10 10:59</a>
+
+她费这么大劲搞这一出不如直接装病不来，或者直接和祥子聊。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">矛盾点不就是聊不动吗？睦头本来就是不喜欢说话的选手，第三集也是想去说话，结果被祥子哈气。
+
+装病可以稍微解决一下问题，但是能病多久呢？
+
+最终结果不就是睦头向天祈祷，最后回应他的是小时候的自己（被抛弃的演技与口才）
+
+而且演一个mo老师，可以甩开炸团的责任，还能在后续剧情里做出第二次矛盾的爆发。
+
+*****
+
+####  厚乳果珍爽  
+##### 35342#       发表于 2025-3-10 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67619060&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-10 11:03</a>
+
+错误的，哪怕是原案也没不登校
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是mujica里确实不登校了
+
+*****
+
+####  thisisaspider  
+##### 35343#       发表于 2025-3-10 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67619212&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-10 11:17</a>
+包括imprisoned xii也是这个意思，但是点出来的时机太早了。</blockquote>
+即使开完了live，初华的囚禁12创作动机（爱意来源）还在藏。故事结构已经决定了。
+
+*****
+
+####  ads147147  
+##### 35344#       发表于 2025-3-10 11:20
+
+有一说一，这五个神人也不像是有空去上学的主，本来初华就不怎么去了，迟到早退，木头不去后祥子也开始不去，大喵和海玲还算正常点，但是这两个完全是当做成年人写的，去学校更多只是一个由头。。。
+
+
+*****
+
+####  aptx8285144  
+##### 35345#       发表于 2025-3-10 11:23
+
+<blockquote>綺々羅々ヴィヴ 发表于 2025-3-10 10:41
+祥子喜欢装逼是ccc解散之后的事情了，看完mygo春日影后进一步恶化。mygo漫画和CCC解散之前的白祥还是很平易 ...</blockquote>
+比起喜欢装逼，更糟糕的是母鸡卡剧情里即没有领导魅力或者杀伐果决，也无法弥和团队矛盾，团队整一个心怀鬼胎，即使强行包了寿司，以后也会破
+
+*****
+
+####  adretyu67.  
+##### 35346#       发表于 2025-3-10 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67619249&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-3-10 11:20</a>
+
+有一说一，这五个神人也不像是有空去上学的主，本来初华就不怎么去了，迟到早退，木头不去后祥子也开始不去 ...</blockquote>
+狗里祥子还是正常上学的。
+
+到鸡里因为鸡的一堆事倒是搞得不去了。
+
+看起来邦里哪怕是超人jk搞商业运作还是强度太大了。
+

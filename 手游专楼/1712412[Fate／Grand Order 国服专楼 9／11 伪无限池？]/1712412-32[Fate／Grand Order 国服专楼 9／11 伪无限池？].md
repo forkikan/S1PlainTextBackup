@@ -175,3 +175,14 @@
 不知不觉为紫伯攒的井已经为武尊犯错、为梅林犯错、为夏露露犯错完了……… ...</blockquote>
 1井3个5星，可以了。
 
+
+*****
+
+####  啪嗒啪嗒嘭  
+##### 47053#       发表于 2025-3-10 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67619074&amp;ptid=1712412" target="_blank">khxooo 发表于 2025-3-10 11:04</a>
+
+1井3个5星，可以了。</blockquote>
+其实不止一井了中间为了抽正雪还认了五十多抽……月底就up紫伯了手里只剩20抽，只能说看命了，不行就明年再续前缘（如果中途不再犯错的话
+
