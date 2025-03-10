@@ -16037,3 +16037,19 @@ i want you后面加了个句号表示断句。
 —— 来自 鹅球 v3.3.96</blockquote>
 其实就是know前面少一个主语，日语经常省略主语的。
 
+
+*****
+
+####  adretyu67.  
+##### 35490#       发表于 2025-3-10 19:55
+
+ 本帖最后由 adretyu67. 于 2025-3-10 19:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67623095&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-3-10 19:44</a>
+
+其实加了to后整个句子意思变了，从“你知道我想要你”变成了“我想要你知道”。 ...</blockquote>
+看了下祥子晚上作曲那一幕有歌词虽然只有前半但还是一样的错了。
+
+但是中文翻译已经是“我想要你知道”了
+
+应该是初华写错了。
+
