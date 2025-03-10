@@ -3837,3 +3837,21 @@ https://bgm.tv/subject/topic/33083
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  大空魔术  
+##### 339#       发表于 2025-3-10 11:48
+
+猛玩了快30小时，真好啊真好，就是岔路太多了想回头探索都会忘记一些地方。<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+目前只拿到大圣堂的记忆珠，其他三个还不知道何时找到<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+另外这游戏里有些近道确实味道很对，第一次找到王国联络处可以直接连接隐藏山谷、罪人坑道和代达罗斯魔工坊的时候确实惊到我了，确实也和剧情紧密关联上，感觉好酷。另外就是找到魔法钥匙进了卡农之棺才发现有暗门可以不用钥匙直接进来<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  红魔馆的糖  
+##### 340#       发表于 2025-3-10 11:52
+
+赶紧火吧，等个全收集攻略再玩<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">强迫症玩的我异常痛苦，不折磨自己了
+

@@ -14618,3 +14618,84 @@ ccc的观感一拉胯，让人没法感觉到她的美好珍贵、不可替代�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Lawliet.L  
+##### 35355#       发表于 2025-3-10 11:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67619462&amp;ptid=2208921" target="_blank">swessia 发表于 2025-3-10 11:45</a>
+
+睦莫融合了啊，咋第十集演的跟殉情一样
+
+—— 来自 鹅球 v3.3.96</blockquote>
+致敬海猫吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 35356#       发表于 2025-3-10 11:49
+
+完全体睦头应该也不会一直赖着祥子了，这下祥子四条舔狗里就剩下初华了。
+
+*****
+
+####  秋月孝三  
+##### 35357#       发表于 2025-3-10 11:50
+
+超兵融合的结局是变成电池<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  半年  
+##### 35358#       发表于 2025-3-10 11:50
+
+<img src="https://img.saraba1st.com/forum/202503/10/115023by03ys0770uy7pv3.jpg" referrerpolicy="no-referrer">
+
+<strong>Glm1thCbAAAQaaX.jpg</strong> (279.31 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-10 11:50 上传
+
+[https://x.com/Cki121_cc/status/1898748514181796189/photo/1](https://x.com/Cki121_cc/status/1898748514181796189/photo/1)
+
+*****
+
+####  zhoujin8584  
+##### 35359#       发表于 2025-3-10 11:50
+
+融合即双死，这么表现挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  595505568  
+##### 35360#       发表于 2025-3-10 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67619517&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-10 11:50</a>
+融合即双死，这么表现挺好的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又想起了素世早年丧父丧夫现在丧女…一回头还没到17岁…我突然发现素世现在是前脚走出了C团的阴雨天，一脚踩进丧女的暴雨天了，太惨烈了
+
+
+*****
+
+####  是谁的书画  
+##### 35361#       发表于 2025-3-10 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67619432&amp;ptid=2208921" target="_blank">老贝 发表于 2025-3-10 11:40</a>
+Mujica 2.0这套以成员苦痛和互相折磨为卖点，但是在台上永远能贡献完美演出打造的乐队其实上限确实挺高的， ...</blockquote>
+说句实话，哪怕是功力不计只能放独白来解释。他吗的只放go团三个人的独白是个啥意思，为了方便第九集大祥大睦回旋吗，那不是根本就没完了。
+哪这个ccc为了mujica究竟演了个啥啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  adretyu67.  
+##### 35362#       发表于 2025-3-10 11:54
+
+有个观点是。
+
+初华/爱音就是给祥子/灯设计出来的连体人，
+
