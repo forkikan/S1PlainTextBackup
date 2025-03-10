@@ -14997,3 +14997,59 @@ Mujica 2.0这套以成员苦痛和互相折磨为卖点，但是在台上永远�
 睦和祥子聊，祥子：真是高高在上呢</blockquote>
 祥子对睦不会说谎有偏执。睦想骗祥子百分百过检查。
 
+
+*****
+
+####  595505568  
+##### 35391#       发表于 2025-3-10 13:07
+
+谁能把这几个积极营业的人换个当人的甲方企划啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，wsd真不配拥有李子 弄弄 邦梦蜜柑 akane吧
+
+*****
+
+####  大户爱  
+##### 35392#       发表于 2025-3-10 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67619432&amp;ptid=2208921" target="_blank">老贝 发表于 2025-3-10 11:40</a>
+Mujica 2.0这套以成员苦痛和互相折磨为卖点，但是在台上永远能贡献完美演出打造的乐队其实上限确实挺高的， ...</blockquote>
+ccc本来就没什么好写的，组成时间才几周不到的过家家乐队，说破天也就那点事。
+
+mygo对ccc的白月光已经描写很多了，在常理看都用力过猛了。但mygo作为青春期少女的舞台很小，也没那么突兀。
+
+mujica还在纠结ccc，就成了这股阴魂不散的白饭粒和蚊子血。点到为止，最后稍微花点笔墨写个和解就OK了。
+
+当然，这个企划从c团开始，主创感觉都先入为主，忘记他们后面在写什么呢。
+
+*****
+
+####  钦念以忱  
+##### 35393#       发表于 2025-3-10 13:13
+
+现在我理解C团和解回为什么要放中间，还拍烂了
+
+鸡团不同于狗团，设定里就是鸡团不如C团的，所以不能到结局了再去和C团和解，然后又要拍的让观众看到C团多么多么美好，恰好这片的主角是母鸡卡是祥子睦头，但同时C团又不能超越狗团，要显示出对灯素希来说，C团已经过去了，狗团不比C团差甚至更好。
+
+本来这种不同视角的认知偏差，也不是就一定拍不好，但狗团作为配角，戏份被砍完了，这季制作能力又显著下滑，最后就拍成了7话的灾难。
+
+而且为了鸡团的悲剧性，就要充分让祥睦以及观众感知到C团的美好，让祥睦去为了复活C团努力，然后最终失败，（变成小丑），最后只能“沦落”到去选择ave mujica
+
+
+*****
+
+####  一心而用  
+##### 35394#       发表于 2025-3-10 13:15
+
+喵睦的Revue
+<img src="https://p.sda1.dev/22/a89b459463e0bd481be559c1f7f882ae/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/bb34010cb36e4774ecff3936e49d9a15/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 35395#       发表于 2025-3-10 13:17
+
+终极侮辱
+<img src="https://p.sda1.dev/22/7b6ce9d52bfc3bb7f0eb157c7e57290f/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/f94ff4a404fcd1137507a8575c82b77c/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/f09628f9020bbd0b417ae09020c3e6a5/image.jpg" referrerpolicy="no-referrer">
+
