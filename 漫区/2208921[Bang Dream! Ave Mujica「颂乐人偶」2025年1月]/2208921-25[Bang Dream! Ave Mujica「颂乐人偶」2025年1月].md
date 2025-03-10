@@ -236,3 +236,72 @@ mygo第十一话开头有个庄周梦蝶
 
 —— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
+
+*****
+
+####  钦念以忱  
+##### 35540#       发表于 2025-3-10 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67624223&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-10 22:58</a>
+
+可能这就是这部剧里大多女人真是的面貌吧，如果五个人都是疯狂的，那其实也算和谐的平衡了
+
+要不然同样也 ...</blockquote>
+初华摆明了还有后续剧情的，可以再观望观望，喵梦看着就这样了不会有后续了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 35541#       发表于 2025-3-10 23:21
+
+值得一提的是，睦如果对大喵展现真实，那估计就是一具会呼吸的尸体。大喵估计一定会觉得这老寄吧性感了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+恰好大祥被初华狠狠♀♀的样子估计也是一具会呼吸的尸体。
+太对偶了，有设计的，两具尸体和两个能对尸体起星欲的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  ntrntr1  
+##### 35542#       发表于 2025-3-10 23:24
+
+<blockquote>是谁的书画 发表于 2025-3-10 23:21
+值得一提的是，睦如果对大喵展现真实，那估计就是一具会呼吸的尸体。大喵估计一定会觉得这老寄吧性感了吧
+
+ ...</blockquote>
+乡下妹勇闯东京偶遇高演技艳尸拼尽全力无法压抑xp
+
+*****
+
+####  thisisaspider  
+##### 35543#       发表于 2025-3-10 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67624192&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-10 22:53</a>
+但这些喵梦对睦头的单向互动全都着眼在了演技上，突然一转情欲，有点弯转得太快闪了腰的感觉
+
+还是说女女 ...</blockquote>
+这里应该是没有篇幅给展开，本质和初华目前的表现一样。单相思，目光移不开，遇到事情就想起对方，畸形的爱。可以脑补每天上课练习，晚上做梦都是睦的演技。
+
+*****
+
+####  huxiaopao163  
+##### 35544#       发表于 2025-3-10 23:27
+
+主要是大猫看了莫扮演睦这段觉得恶心，至少没有以前那么牛了，所以她才能不再那么恐惧，逐渐释怀。
+如果喵梦不认双重人格的话，她为啥觉得莫扮演睦这段比较不一样呢。
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  刑部姬真可爱  
+##### 35545#       发表于 2025-3-10 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67624308&amp;ptid=2208921" target="_blank">聋与唬 发表于 2025-3-10 23:11</a>
+
+不是，指责一个不会弹吉他的纸片人假弹是不是有点太严格了？
+
+—— 来自 vivo V2361GA, Android 14上的 S1N ...</blockquote>
+这和严格无关，而是这件事从根本上脱离了邦多利世界观的底层逻辑
+
