@@ -15717,3 +15717,26 @@ mujica动画的主题终于是明白了，完全没有邦味的黑暗乐队，�
 喵梦是假装0基础吧，更不用说声优本人是职业级</blockquote>
 别管场外实际上mujica的曲子鼓谱被写得有多变态，米泽自己多有实力，在剧内设定上喵梦就是从0学起的努力家
 
+
+*****
+
+####  z-hunter  
+##### 35459#       发表于 2025-3-10 17:23
+
+最后祥子被老登这样一叫初音，这表情是都整懵了吧，这不是明显不知道初华的身份么。。。
+
+还有经典的双子诡叙说，现在初华初音谁是真私生女（小姨）还不好说，接下来2集还是有期待的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这对CP能不能吃就看这追妻剧场演得咋样了。素世沉迷CCC也是有各种补充说明的
+
+*****
+
+####  6030sylar  
+##### 35460#       发表于 2025-3-10 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67621734&amp;ptid=2208921" target="_blank">巨馍蘸酱 发表于 2025-3-10 16:38</a>
+话说当初大祥为什么不邀请初音加入CCC呢？我重看才发现CCC那唯一一次LIVE初音还在台下看，还一脸欣慰的样子 ...</blockquote>
+因为大象就是见一个爱一个的渣女，初华就是钟无艳，有事△初华无事高松灯<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，也就睦这个真姐妹的甩不掉，装死一个月还是不得不上门去哄
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

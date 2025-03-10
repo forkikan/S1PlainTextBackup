@@ -11402,3 +11402,37 @@ B站偷跑了一个55分钟各路盗摄混剪的版本，感觉光是看盗摄�
 真正去地球打陆战，我最担心的是GQX那个脚（</blockquote>
 GQX陆战应该是喷射移动的，类似大魔。
 
+
+*****
+
+####  YU_JI  
+##### 8308#       发表于 2025-3-10 17:20
+
+龟龟，原案资料啊，这可是重量级道具，但是现在放出来也证明里面的情节是不会出现在正片了吧
+
+*****
+
+####  kuriri  
+##### 8309#       发表于 2025-3-10 17:21
+
+主战场肯定是宇宙呀，真要去地球打也要等到第二季正好换新机体
+
+*****
+
+####  刺客ares  
+##### 8310#       发表于 2025-3-10 17:23
+
+封面紫婆这么大一颗头比夏利亚还大了，正片肯定还会出场吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Toby_dak  
+##### 8311#       发表于 2025-3-10 17:24
+
+ 本帖最后由 Toby_dak 于 2025-3-10 18:25 编辑 
+
+冲着松原的封面也要去看第4次啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+

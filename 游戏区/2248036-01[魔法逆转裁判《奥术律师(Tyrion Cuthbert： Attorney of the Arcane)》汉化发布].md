@@ -787,3 +787,21 @@ SteamDeck需要安装运行库吗？</blockquote>
 我的意思是这样的转变不算突兀，倒不是纠结某个词语
 假如没打第五章，你真的很了解王子是个什么样的人吗？无非就是那些标签化的感情迟钝，律师宅这样的浅层印象吧
 
+
+*****
+
+####  Dashuaibi  
+##### 75#       发表于 2025-3-10 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67621941&amp;ptid=2248036" target="_blank">黑夜守望者 发表于 2025-3-10 17:01</a>
+
+原来你是纠结“黑化”这个词用得对不对，那好我不用“黑化”了，我说变脸总行了吧，180℃变脸然后呢，改个 ...</blockquote>
+逆转检事的某黑手的“变脸”对比他之前形象不也是180度，有人喷吗
+
+*****
+
+####  黑夜守望者  
+##### 76#       发表于 2025-3-10 17:22
+
+前两张给你留下的印象只有律师宅、感情迟钝的印象，其它别的都没有，那我只能说要么你阅读理解有障碍，要么玩的时候是快进吧。要是我前几章要是对他的印象只有这样，确实第五章不会感到突兀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
