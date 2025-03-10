@@ -3915,3 +3915,14 @@ https://bgm.tv/subject/topic/33083
 
 死刑执行所到底从那条路过去？已经打了校长室和大雪原的魔女，到了医疗所，但是通往左边和下面的门都是锁着的。。。
 
+
+*****
+
+####  发条之心  
+##### 347#       发表于 2025-3-10 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67623798&amp;ptid=2246453" target="_blank">lastrei 发表于 2025-3-10 21:37</a>
+
+死刑执行所到底从那条路过去？已经打了校长室和大雪原的魔女，到了医疗所，但是通往左边和下面的门都是锁着 ...</blockquote>
+自警团B1的隐藏通道
+
