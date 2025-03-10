@@ -101,3 +101,15 @@ ucg说的是笔记本残血版30702k中等画质可以60帧，贴吧有人4060dl
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  手铐君  
+##### 3413#       发表于 2025-3-10 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67617535&amp;ptid=2092342" target="_blank">慕容断月 发表于 2025-3-10 07:22</a>
+咋都还玩上了，不是明早9点吗
+
+—— 来自 鹅球 v3.3.96</blockquote>
+光荣给一部分主播特别版提前开玩了，有人把key在闲鱼上卖了
+
