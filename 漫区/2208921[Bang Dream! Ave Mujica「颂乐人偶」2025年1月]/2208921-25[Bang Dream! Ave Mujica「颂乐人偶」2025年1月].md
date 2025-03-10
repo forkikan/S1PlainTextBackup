@@ -305,3 +305,62 @@ mygo第十一话开头有个庄周梦蝶
 —— 来自 vivo V2361GA, Android 14上的 S1N ...</blockquote>
 这和严格无关，而是这件事从根本上脱离了邦多利世界观的底层逻辑
 
+
+*****
+
+####  adretyu67.  
+##### 35546#       发表于 2025-3-10 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67624416&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-3-10 23:27</a>
+
+主要是大猫看了莫扮演睦这段觉得恶心，至少没有以前那么牛了，所以她才能不再那么恐惧，逐渐释怀。
+
+如果喵 ...</blockquote>
+人没法表演自己吧。
+
+
+*****
+
+####  thisisaspider  
+##### 35547#       发表于 2025-3-10 23:34
+
+喵梦第一次说莫表演睦的时候是，恶心，很像，简直完美。但回头则是，半吊子，称不上怪物。说实话看不懂。需要在其他地方找信息解读。但没啥意义。
+
+*****
+
+####  adretyu67.  
+##### 35548#       发表于 2025-3-10 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67624417&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-3-10 23:27</a>
+
+这和严格无关，而是这件事从根本上脱离了邦多利世界观的底层逻辑</blockquote>
+鸡为了剧情需要破坏邦底层逻辑已经是不差这一条了。
+
+*****
+
+####  非建政专用号  
+##### 35549#       发表于 2025-3-10 23:35
+
+冰恋角度太变态了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  thisisaspider  
+##### 35550#       发表于 2025-3-10 23:36
+
+冰恋太过了，实际上只是歌词里的折翼堕临。
+
+*****
+
+####  adretyu67.  
+##### 35551#       发表于 2025-3-10 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67624470&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-10 23:34</a>
+
+喵梦第一次说莫表演睦的时候是，恶心，很像，简直完美。但回头则是，半吊子，称不上怪物。说实话看不懂。需 ...</blockquote>
+大猫就是被鸡2话木头那个断线瘫吓疯了。
+
+那个就是她理解里的完美。莫头的所有演技在她看来都比不上那一瞬。
+
