@@ -15948,3 +15948,38 @@ mujica动画的主题终于是明白了，完全没有邦味的黑暗乐队，�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  adretyu67.  
+##### 35482#       发表于 2025-3-10 19:18
+
+i want you后面加了个句号表示断句。
+
+下面是know how much又没有主语。
+
+
+*****
+
+####  z-hunter  
+##### 35483#       发表于 2025-3-10 19:23
+
+ 本帖最后由 z-hunter 于 2025-3-10 19:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67622781&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-3-10 18:55</a>
+
+当然初音是，不然一个情妇和接盘侠生的孩子，老登有什么资格让她离孙女远点呢
+
+打完字我自己都想笑啊，这 ...</blockquote>
+看初音进丰川大宅和对祥子的那副卑微样，小姨身份其实跑不掉
+
+就看双子诡叙能给初祥CP加多少分了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  联想会  
+##### 35484#       发表于 2025-3-10 19:23
+
+侄女对文盲小姨的爱<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
