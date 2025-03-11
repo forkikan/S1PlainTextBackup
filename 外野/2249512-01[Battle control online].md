@@ -1,0 +1,401 @@
+﻿
+*****
+
+####  火星後繼者  
+##### 1#       楼主       发表于 2025-3-11 16:03
+
+ 本帖最后由 火星後繼者 于 2025-3-11 16:22 编辑 
+
+消息称YKW计划在五角大楼军事基地造金属精炼设施以提高美国内关键矿产产量
+
+财联社3月11日电，路透社11日报道称，两名政府高级官员透露，美国总统YKW计划在五角大楼军事基地建造金属精炼设施，以作为提高美国国内关键矿产产量和与中国在全球关键矿产市场竞争的一部分。YKW可能最快于当地时间12日签署一些行政命令，而此举是其中之一。ykw曾于上周向美国国会表示，将“采取历史性行动，大幅扩大美国本土关键矿产和稀土生产”.
+
+Battle control online
+
+New construction ready...
+
+Building...construction complete
+
+微信图片_20250311160530.jpg
+(140.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-11 16:05 上传
+
+<img src="https://img.saraba1st.com/forum/202503/11/160557zaamdp2xj0wxuu0p.jpg" referrerpolicy="no-referrer">
+
+微信图片_20250311162151.png
+(58.34 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-11 16:22 上传
+
+<img src="https://img.saraba1st.com/forum/202503/11/162214fjwv5c91nj1111wl.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 5战斗力 +5
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 斯卡文分则能成| + 1|欢乐多|
+| madbird023| + 1|欢乐多|
+| 佐佐木春日| + 1|欢乐多|
+| 星花| + 1|思路广|
+| thoroughwort| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  zhuoqiu  
+##### 2#       发表于 2025-3-11 16:04
+
+算我一个，为世界和平出一份力
+
+*****
+
+####  翎羽  
+##### 3#       发表于 2025-3-11 16:06
+
+看不到图？
+
+*****
+
+####  火星後繼者  
+##### 4#         楼主| 发表于 2025-3-11 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67628822&amp;ptid=2249512" target="_blank">翎羽 发表于 2025-3-11 16:06</a>
+
+看不到图？</blockquote>
+修改了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 翎羽| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  鸟耶稣  
+##### 5#       发表于 2025-3-11 16:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">矿石精炼器造出来马上断电的
+
+*****
+
+####  claymorep  
+##### 6#       发表于 2025-3-11 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67628860&amp;ptid=2249512" target="_blank">鸟耶稣 发表于 2025-3-11 16:11</a>
+矿石精炼器造出来马上断电的</blockquote>
+矿石断电器<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  thoroughwort  
+##### 7#       发表于 2025-3-11 16:15
+
+Establishing battlefield control, standby.
+
+啥时候把爱因斯坦喊起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lt.EvaLee  
+##### 8#       发表于 2025-3-11 16:15
+
+Battle control online.
+
+*****
+
+####  妄想騎士  
+##### 9#       发表于 2025-3-11 16:17
+
+造出来没用啊，牢美怎么应对满屏幕的恐怖机器人<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 鱼丈人| + 1|思路广|
+
+查看全部评分
+
+*****
+
+####  Sakaiyuki  
+##### 10#       发表于 2025-3-11 16:17
+
+接下来应该是 on hold 
+
+cancel
+
+*****
+
+####  humphrey  
+##### 11#       发表于 2025-3-11 16:17
+
+low power~
+
+*****
+
+####  枯风瘦雪  
+##### 12#       发表于 2025-3-11 16:17
+
+啊？可以建精炼厂，但是在五角大楼建是不是有点扯淡了
+
+*****
+
+####  ackroyd  
+##### 13#       发表于 2025-3-11 16:19
+
+图放错了，金属精炼厂不是矿厂，是那个加钱的建筑吧
+
+*****
+
+####  wlhlz  
+##### 14#       发表于 2025-3-11 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67628926&amp;ptid=2249512" target="_blank">枯风瘦雪 发表于 2025-3-11 16:17</a>
+啊？可以建精炼厂，但是在五角大楼建是不是有点扯淡了</blockquote>
+所以需要超时空矿车啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yanghuangu  
+##### 15#       发表于 2025-3-11 16:19
+
+这不成军队经商了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  geosucks!  
+##### 16#       发表于 2025-3-11 16:20
+
+你这图也不是矿石精炼器啊 就是一普通矿场
+
+*****
+
+####  shilhouette  
+##### 17#       发表于 2025-3-11 16:22
+
+玉虚宫里面的炼丹炉？谁来配个图<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+你还说你不是恶毒的蒸汁银鱼<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星花  
+##### 18#       发表于 2025-3-11 16:23
+
+不像大国新闻。
+
+*****
+
+####  泰坦失足  
+##### 19#       发表于 2025-3-11 16:24
+
+东厂马不就是爱因斯坦的同位体吗
+
+*****
+
+####  ryj  
+##### 20#       发表于 2025-3-11 16:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你这只是普通矿场，也不是精炼厂啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  草牛  
+##### 21#       发表于 2025-3-11 16:25
+
+抽象玩上瘾了
+
+*****
+
+####  cd3066  
+##### 22#       发表于 2025-3-11 16:28
+
+联想到，前几天在nga看到的消息，“沈阳海关截获美企盗版稀土离心机”。
+
+该消息后被用飞机航线图证明是个假消息。
+
+*****
+
+####  朔方原的星  
+##### 23#       发表于 2025-3-11 16:31
+
+unit ready
+new construction options
+
+*****
+
+####  天人五衰  
+##### 24#       发表于 2025-3-11 16:35
+
+“这个时候嘞，我们就先打他的电厂。电厂一断电，他的巨炮就哑了。”
+
+*****
+
+####  人生オワタ  
+##### 25#       发表于 2025-3-11 16:39
+
+美帝终于开始产能爬坡造振金和艾德曼合金了吗！
+
+*****
+
+####  aithinkso  
+##### 26#       发表于 2025-3-11 16:42
+
+碘石精炼器
+
+—— 来自 Xiaomi 22127RK46C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  dogman  
+##### 27#       发表于 2025-3-11 16:44
+
+五角大楼里有天元鼎，此事在全球票房第五的电影中亦有记载
+
+*****
+
+####  ackroyd  
+##### 28#       发表于 2025-3-11 16:52
+
+说起来红警里最抽象的是尤里电厂，能放小兵进去发电
+
+*****
+
+####  nexus1  
+##### 29#       发表于 2025-3-11 16:54
+
+这玩意，大概就是 20 亿下去，地基还没整理好，换驴上台的节奏吧
+
+*****
+
+####  海德菲尔德  
+##### 30#       发表于 2025-3-11 16:56
+
+unit lost…
+
+*****
+
+####  东窗下的鸟  
+##### 31#       发表于 2025-3-11 17:11
+
+为什么让美军来搞，这是霉菌擅长的事吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  劳动改造归来  
+##### 32#       发表于 2025-3-11 17:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67629206&amp;ptid=2249512" target="_blank">ackroyd 发表于 2025-3-11 16:52</a>
+
+说起来红警里最抽象的是尤里电厂，能放小兵进去发电</blockquote>
+人体发电不是很正常吗？你没看过黑客帝国？
+
+*****
+
+####  madbird023  
+##### 33#       发表于 2025-3-11 17:29
+
+Low power<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+mission fail<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  neptunehs  
+##### 34#       发表于 2025-3-11 17:31
+
+任务一 炸毁五角大楼
+任务二 炸毁五角大楼隔壁的矿石精炼器
+
+*****
+
+####  我是大鲨鱼1453  
+##### 35#       发表于 2025-3-11 17:43
+
+只能感叹美国的工业化完成得太早了。就连ykw这种八十岁老人，也没见识过一个完整的工业体系是如何运转的。他们可能真的以为矿产从地底下冒出来，然后魔法师挥一下魔杖，就变成了超市货架上的商品吧？
+
+*****
+
+####  和平保卫者  
+##### 36#       发表于 2025-3-11 18:04
+
+一堆老家伙都蹦出来了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  月灵银羽  
+##### 37#       发表于 2025-3-11 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67629206&amp;ptid=2249512" target="_blank">ackroyd 发表于 2025-3-11 16:52</a>
+说起来红警里最抽象的是尤里电厂，能放小兵进去发电</blockquote>
+最抽象的不是发了电的小兵还能活着出来吗？你尤里还怪人道的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Ny  
+##### 38#       发表于 2025-3-11 18:26
+
+<img src="https://img.saraba1st.com/forum/202503/11/182558ki9zdhjg9sys6kvg.jpg" referrerpolicy="no-referrer">
+
+<strong>123.jpg</strong> (192.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-11 18:25 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  变老的大二  
+##### 39#       发表于 2025-3-11 18:27
+
+大炼稀土
+
+*****
+
+####  acg_gyanc  
+##### 40#       发表于 2025-3-11 18:49
+
+这翻译对么，在军事基地建金属精炼设施有什么意义<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  红茶MKVI  
+##### 41#       发表于 2025-3-11 18:54
+
+ore miner is under attack<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

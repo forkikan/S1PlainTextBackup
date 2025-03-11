@@ -393,3 +393,21 @@ pc版我反正不买了，忍组吃屎去吧<img src="https://static.saraba1st.c
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">一到横滨帧数骤降……还玩个屁
 
+
+*****
+
+####  手铐君  
+##### 3444#       发表于 2025-3-11 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67629991&amp;ptid=2092342" target="_blank">Sopp 发表于 2025-3-11 18:43</a>
+
+一到横滨帧数骤降……还玩个屁</blockquote>
+可以把npc改少，不知道你有没有开120帧，有开也关掉。120帧有bug，野外还行，到了横滨直接开始慢动作
+
+*****
+
+####  千秋难诉  
+##### 3445#       发表于 2025-3-11 18:55
+
+忍组太有诚意啦，这下买cdk的冤大头是遭重了
+
