@@ -1789,3 +1789,18 @@ mujica的银河战舰水平没必要质疑吧，就算武道馆靠背景上的�
 
 鸡剧中看起来武道馆LIVE肯定是半开坐席，而且就第一话看起来两侧视角不好的地方也是空着的，实际上只有扇形区域是真开放的坐席。至于要抽选不等于票卖空这点，我上一条已经解释过了
 
+
+*****
+
+####  thisisaspider  
+##### 35666#       发表于 2025-3-11 13:18
+
+战力厨ssw<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 35667#       发表于 2025-3-11 13:21
+
+还是来看看关系性能不能进游戏以后更加一团乱麻吧，不会我要真的作为素/柑推吃素世作为链接者没有主CP的苦吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，那真的弱化版Lisa姐了，身边连YKN都没有，自己emo得自己消化了（）
+
