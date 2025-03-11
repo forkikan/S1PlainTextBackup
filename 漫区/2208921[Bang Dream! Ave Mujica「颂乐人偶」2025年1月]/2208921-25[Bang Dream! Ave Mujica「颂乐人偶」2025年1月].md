@@ -3239,3 +3239,14 @@ soyo:只要我把祥子拉回来，小睦就自动跟随了
 —— 来自 鹅球 v3 ...</blockquote>
   卑女其实是卑鄙擅长偷跑的女人的意思，不是卑微的笨女人哟
 
+
+*****
+
+####  sauron.j  
+##### 35799#       发表于 2025-3-12 01:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67631889&amp;ptid=2208921" target="_blank">Delicatus545 发表于 2025-3-12 00:51</a>
+
+反正都是工具人，当初为什么不让初华来当mujica复辟者是为了平衡戏份吗</blockquote>
+这是一个前脚现场看完C团live还打招呼，后脚对方一整年没音讯就真的一年没敢主动发消息，比灯还要卑微被动十倍的人
+
