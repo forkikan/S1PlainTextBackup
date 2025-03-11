@@ -1127,3 +1127,139 @@ cv们肯定只能说场面话啊。总不能拆自己工作吧。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">找到了当年看mygo时看到的怪图，万万没想到母鸡卡里面这2人真的被“超市”了，哎……
 
+
+*****
+
+####  595505568  
+##### 35613#       发表于 2025-3-11 10:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以访谈确定了 你 是 多 首 的 怪物
+这段话里有三个人看到的东西不一样是吧
+你
+首
+怪物
+
+*****
+
+####  adretyu67.  
+##### 35614#       发表于 2025-3-11 10:56
+
+168e案有个有趣的假药过程是。
+
+祥妈葬礼上中登对小祥表示爸爸会努力的。
+
+然后优点是真诚，商业能力天天被老登痛骂的中登就努力出了168e案<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 35615#       发表于 2025-3-11 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67626485&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-11 10:56</a>
+168e案有个有趣的假药过程是。
+
+祥妈葬礼上中登对小祥表示爸爸会努力的。</blockquote>
+然后诈骗犯光速被抓<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不好说吧，反正作为背景和事件显得太奇怪了
+
+
+*****
+
+####  堀内爱里衣  
+##### 35616#       发表于 2025-3-11 11:02
+
+ 本帖最后由 堀内爱里衣 于 2025-3-11 11:04 编辑 
+
+<strong>#11</strong><strong> Te ustus amem.</strong>
+
+<img src="https://img.saraba1st.com/forum/202503/11/110404nw8iinqoninienig.png" referrerpolicy="no-referrer">
+
+<strong>e33fca313793b512aab726edbb09e5b71459104794.png</strong> (600.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-11 11:04 上传
+
+<img src="https://img.saraba1st.com/forum/202503/11/110147tuarll88pmpuuu4f.png" referrerpolicy="no-referrer">
+
+<strong>①-1.png</strong> (1.11 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-11 11:01 上传
+
+――これからご覧にいれますのは、秘密を抱えた、彼女の話。
+
+脚本：後藤 みどり
+
+絵コンテ：山之口 創、柿本 広大、岡 こずえ
+
+演出：山之口 創
+
+CGディレクター：山之口 創
+[https://anime.bang-dream.com/avemujica/story/](https://anime.bang-dream.com/avemujica/story/)
+[https://t.bilibili.com/1042919422896898048](https://t.bilibili.com/1042919422896898048)
+
+*****
+
+####  UNISONIA  
+##### 35617#       发表于 2025-3-11 11:03
+
+看起来只有最终话有綾奈了
+
+*****
+
+####  adretyu67.  
+##### 35618#       发表于 2025-3-11 11:04
+
+第一话旁白总算回来了吗。
+
+看访谈意思是这回把初华透干净
+
+*****
+
+####  cherryjia12  
+##### 35619#       发表于 2025-3-11 11:04
+
+第一次见三个分镜。。这片制作现场绝对出问题了吧
+
+*****
+
+####  是谁的书画  
+##### 35620#       发表于 2025-3-11 11:04
+
+损失168e能指名道姓的让一个人接盘这件事本身就有种阴谋味儿了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AveMujica  
+##### 35621#         楼主| 发表于 2025-3-11 11:05
+
+#11 Te ustus amem.
+――これからご覧にいれますのは、秘密を抱えた、彼女の話。
+脚本：後藤 みどり
+絵コンテ：山之口 創、柿本 広大、岡 こずえ
+演出：山之口 創
+CGディレクター：山之口 創
+<img src="https://p.sda1.dev/22/c7ad737cc4cc7cafeaa29e61a6e7aaf5/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/1a2a272e1a576ecd5b83dbf892b98d70/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 35622#       发表于 2025-3-11 11:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67626546&amp;ptid=2208921" target="_blank">cherryjia12 发表于 2025-3-11 11:04</a>
+第一次见三个分镜。。这片制作现场绝对出问题了吧</blockquote>
+这种可能是十本觉得分镜画的不好自己改过一遍才会这样。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  xyion  
+##### 35623#       发表于 2025-3-11 11:05
+
+几原写企鹅罐，第一话告诉你大哥骨科，第二话告诉你苹果跟踪狂，绝对不让观众产生不正确的预期。哦还有“这是个关于爱的故事为什么不懂”。
+
+柿本哪怕要藏祥子承担别人人生的无自觉欲望，起码也得鸡1.0炸之前把五个人的阴暗心思说明白，甚至mygo期间就该写明白祥子组鸡“并不道德”。
+
