@@ -568,3 +568,11 @@ ore miner is under attack<img src="https://static.saraba1st.com/image/smiley/fac
 
 —— 来自 Xiaomi 24129PN74C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  jojog  
+##### 60#       发表于 2025-3-11 23:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">low power
+
