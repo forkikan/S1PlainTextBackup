@@ -340,3 +340,14 @@ pc版我反正不买了，忍组吃屎去吧<img src="https://static.saraba1st.c
 看隔壁帖子，忍组游戏pc都上几个了，优化差就算了，怎么还有这个缺解码器过场和招式演示就放不出的问题 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这个可能是一脉传承的，隔壁起源也有缺解码器有些CG播不了
 
+
+*****
+
+####  廖化  
+##### 3438#       发表于 2025-3-11 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67629016&amp;ptid=2092342" target="_blank">kalavinka 发表于 2025-3-11 16:28</a>
+
+看隔壁帖子，忍组游戏pc都上几个了，优化差就算了，怎么还有这个缺解码器过场和招式演示就放不出的问题 ...</blockquote>
+这待遇，只能说弃子都算不上，隔壁垃圾桶养的了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

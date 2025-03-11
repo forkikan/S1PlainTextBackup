@@ -1983,3 +1983,47 @@ https://b23.tv/U5fTBxq<img src="https://p.sda1.dev/22/097a63a28eb68704301eb83fab
 
 在我看来这种才能算是5人间“沉重的爱”，可惜柿本写成了一坨狗矢<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Yugao  
+##### 35682#       发表于 2025-3-11 16:56
+
+初华这个symbol系列的歌词解析就是：姦
+
+
+*****
+
+####  595505568  
+##### 35683#       发表于 2025-3-11 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67629232&amp;ptid=2208921" target="_blank">Yugao 发表于 2025-3-11 16:56</a>
+初华这个symbol系列的歌词解析就是：姦</blockquote>
+草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 35684#       发表于 2025-3-11 17:04
+
+symbol是人偶们创造新世界后开始试图制造新生命<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  老贝  
+##### 35685#       发表于 2025-3-11 17:05
+
+爱献给空气，不懂如何付出也没有回馈更绝望更悲剧一点，毕竟这个故事基调怎么看都更偏向于恶意，或者说所谓的命运一点。
+
+喵梦折腾半天，演艺事业基本没有未来。爱着睦的演技从而选择直面睦，但爱意传达给的是Mortis而非睦。现在两个人融合了，也不知道传没传到或者还记不记得这事；
+
+海铃折腾半天，又是教Mortis假弹又是退了一堆队，最后喵梦在内的其他人好像也没一个能信任她的；
+
+睦/Mortis折腾半天，祥子人碎得差不多了，睦更被“意外”推下去了。爱着的人没一个好过的，然后无畏死亡最后自己跳了；
+
+祥子折腾半天，不想结束的Crychic结束了，付出这么多的爹和Ave Mujica都没能救下。现在不想玩乐队了又被责任拉着回来重新搞，一点热情也提不起来。
+
+就差你了初华。
+
+无论怎么爱，付出的爱都不够，也没有能收获到爱。<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
