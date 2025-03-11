@@ -81,3 +81,11 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  牙狼GARO  
+##### 280#       发表于 2025-3-11 14:16
+
+我陆陆续续看到8话了，这片现在就是到处谜语人，独特的人设（看习惯了还挺可爱的）加上奇怪的演出（有点跳脱和电波）再加上铺开很慢的设定，搞的平时一股诡异的味道，偶尔前世3D结果串戏xbx，真的。。。。还挺有意思的<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+

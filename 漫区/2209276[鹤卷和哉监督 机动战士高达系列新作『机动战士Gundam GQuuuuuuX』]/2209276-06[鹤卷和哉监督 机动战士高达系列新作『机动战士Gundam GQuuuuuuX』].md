@@ -12050,3 +12050,35 @@ UC20250404
 
 跨时真没啥问题，甚至可以说翻的不错，就是添个啥不好添个“之战”，土味一下就上来了（）
 
+
+*****
+
+####  hsyg  
+##### 8371#       发表于 2025-3-11 14:09
+
+叫G跨跨就行，新潮又好打
+
+*****
+
+####  YU_JI  
+##### 8372#       发表于 2025-3-11 14:10
+
+<blockquote>Gysumitka 发表于 2025-3-11 14:06
+预计清明档期</blockquote>
+那不差不多和TV同时上吗？本着能捞一点是一点的心态上国内的吧
+
+
+*****
+
+####  AvenueIII  
+##### 8373#       发表于 2025-3-11 14:12
+
+xx之战就是大陆版的神鬼xx，当时史茅革之战给我恶心坏了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  WallHrolf  
+##### 8374#       发表于 2025-3-11 14:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">直接音译不适合营销吧（比如夸克斯、跨科丝什么的排列组合太多了也很容易打错）
+
