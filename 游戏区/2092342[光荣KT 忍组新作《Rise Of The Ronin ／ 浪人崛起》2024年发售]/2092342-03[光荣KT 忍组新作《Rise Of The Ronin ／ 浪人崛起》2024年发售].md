@@ -454,3 +454,24 @@ pc版我反正不买了，忍组吃屎去吧<img src="https://static.saraba1st.c
 当初预购卧龙豪华版被狠狠背刺后，不预购忍组任何作品是明智选择</blockquote>
 连续预购了卧龙豪华版和浪人豪华版的表示希望忍组早点解散，不会做游戏就别做了，把资产素材啥的丢给隔壁无双组，让牢庄整点活算了。
 
+
+*****
+
+####  Sopp  
+##### 3451#       发表于 2025-3-11 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67630046&amp;ptid=2092342" target="_blank">手铐君 发表于 2025-3-11 18:53</a>
+
+可以把npc改少，不知道你有没有开120帧，有开也关掉。120帧有bug，野外还行，到了横滨直接开始慢动作 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">还有这种事，晚点我试试
+
+*****
+
+####  慕容断月  
+##### 3452#       发表于 2025-3-11 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67628987&amp;ptid=2092342" target="_blank">wtyrambo 发表于 2025-3-11 16:25</a>
+
+PS5跑起来都没啥问题，PC能炸了，那就真的是忍者组技术不行了</blockquote>
+因为ps5版糊啊，画面糊成一坨了
+
