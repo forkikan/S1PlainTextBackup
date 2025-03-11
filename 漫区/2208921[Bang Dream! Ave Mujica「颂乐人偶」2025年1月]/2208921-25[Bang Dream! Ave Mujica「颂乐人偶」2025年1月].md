@@ -2727,3 +2727,24 @@ earth有 you are my reason to be<img src="https://static.saraba1st.com/image/smi
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  yaneis  
+##### 35753#       发表于 2025-3-11 23:26
+
+虽然肯定没有二次炸团，但就这样和解成团了也太恶心了，我到现在还是无法理解丰川祥子到底是个什么精神状态
+
+*****
+
+####  zhoujin8584  
+##### 35754#       发表于 2025-3-11 23:27
+
+<img src="https://img.saraba1st.com/forum/202503/11/232723up9696ie8ee5zow6.jpg" referrerpolicy="no-referrer">
+
+<strong>A3E5AF79FD716B2896C684F042320C1E.jpg</strong> (212.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-11 23:27 上传
+

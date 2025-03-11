@@ -611,3 +611,31 @@ bro以为自己是卡表xz多这都敢端上来吗i😅😅😅
 
 4080高特效加dlss性能档 第一章只有50帧太变态了
 
+
+*****
+
+####  cherry__  
+##### 3467#       发表于 2025-3-11 23:15
+
+预购奖励在哪里领啊
+
+*****
+
+####  wtyrambo  
+##### 3468#       发表于 2025-3-11 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67630420&amp;ptid=2092342" target="_blank">慕容断月 发表于 2025-3-11 20:03</a>
+
+因为ps5版糊啊，画面糊成一坨了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我是没觉得多糊，开的分辨率模式，因为帧数模式真的没流畅多少
+
+
+*****
+
+####  drx66  
+##### 3469#       发表于 2025-3-11 23:22
+
+PC版宣传特性：120帧高帧率&amp;更高的画质。<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+实际：官方不建议玩家开启高画质和120帧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
