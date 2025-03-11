@@ -629,3 +629,11 @@ spacex拿kerbal模拟，这灾难性的失败简直是板上钉钉的
 
 不然呢，不然为什么20多w，60度400v到今天还能卖得出去这么多，这还有别的解释么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  闷吸  
+##### 69#       发表于 2025-3-11 11:26
+
+就兴你乔布斯有粉，我马斯克就有不得？
+

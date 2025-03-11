@@ -205,3 +205,11 @@ pc版我反正不买了，忍组吃屎去吧<img src="https://static.saraba1st.c
 
 起源也谈不上优化好，毕竟画面就是ps4水平，方天画戟的武艺带红光的，我的4070ti风扇就狂转，红光结束，就不转了，莫名其妙
 
+
+*****
+
+####  liaowangww  
+##### 3424#       发表于 2025-3-11 11:23
+
+迟早进会员库的玩意，等白嫖就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
