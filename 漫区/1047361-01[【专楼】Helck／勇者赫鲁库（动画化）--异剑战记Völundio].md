@@ -148,3 +148,16 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  azbhg1  
+##### 1215#       发表于 2025-3-11 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67629047&amp;ptid=1047361" target="_blank">eilot 发表于 2025-3-11 16:33</a>
+
+被捉後居然能找回原路找回琥珀
+
+但感覺這個琥珀是否真是琥珀的身體，還是錯手抱了其他兒童... ...</blockquote>
+被乌鸦啃完过几个月都没烂，还能不是吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

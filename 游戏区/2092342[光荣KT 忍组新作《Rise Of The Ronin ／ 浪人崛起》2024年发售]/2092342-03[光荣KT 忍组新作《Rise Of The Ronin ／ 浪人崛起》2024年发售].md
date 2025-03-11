@@ -351,3 +351,11 @@ pc版我反正不买了，忍组吃屎去吧<img src="https://static.saraba1st.c
 看隔壁帖子，忍组游戏pc都上几个了，优化差就算了，怎么还有这个缺解码器过场和招式演示就放不出的问题 ...</blockquote>
 这待遇，只能说弃子都算不上，隔壁垃圾桶养的了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  liva  
+##### 3439#       发表于 2025-3-11 17:18
+
+1070可以跑顺畅，就是画质得低，战斗挺爽快，暗杀比刺客信条好玩多了
+

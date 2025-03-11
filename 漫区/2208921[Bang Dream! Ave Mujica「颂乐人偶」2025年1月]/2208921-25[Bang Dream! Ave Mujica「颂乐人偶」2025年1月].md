@@ -2061,3 +2061,67 @@ symbol是人偶们创造新世界后开始试图制造新生命<img src="https:/
 
 ccc还在的时候也没见初华/音 这么颠啊，哦，我知道了，说不定祥爹被人骗了168亿这件事就是初华/音设的局，目的是让大祥老师一无所有，她可以趁虚而入，果然高明<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  GBLMikuHatsune  
+##### 35690#       发表于 2025-3-11 17:16
+
+恰恰相反，我觉得对于mujica的5人来说，爱了之后能不能得到并不重要<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+正如mygo的团魂“迷子でもいい、迷子でも進め”所表现一样，mujica这5个神人因为各自的原因和缺陷，在mujica的13集动画中迸发出激烈的、对爱的渴求，和对其他人/事的疯狂的献爱才更加精彩。
+
+如果仅仅以奉献出爱并得到了回报为目标，那5人就没有足够堕落的空间了。既然初华（音）和睦都已经设定的这么“重”量级，那不如让她们在mujica里褪去所有的伪装，拉着祥子永远的沉沦下去
+
+想想都精彩口牙<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 35691#       发表于 2025-3-11 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67627097&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-11 12:12</a>
+
+狗12 回的黃瓜事變就是素姐又風濕發作了
+
+我到現在也不知道為什麼她要暴怒</blockquote>
+NGA拉前女友看MyGO的帖子有个“当事人”给了她的答案：soyo说到底还是不想让c团就这样过去的，所以睦对她告别过去向前走的祝福激怒了她
+
+我个人当时的想法是soyo并不想断掉和睦靠c团建立起来的联系，她觉得自己和睦是在c团解散后抱团取暖互相依恋的，而睦“背叛”了
+
+*****
+
+####  ddy2811  
+##### 35692#       发表于 2025-3-11 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67627578&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-3-11 13:27</a>
+
+初华身世之谜解开了(
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+感觉ksar配初华的symbol也挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  北条早苗  
+##### 35693#       发表于 2025-3-11 17:23
+
+母鸡卡就是对少女乐队这个题材的解构，不再靠krkrdkdk来推动剧情，但是并没有重建出让人信服的东西，只能说柿本和绫奈闹麻了
+
+*****
+
+####  半年  
+##### 35694#       发表于 2025-3-11 17:23
+
+[https://x.com/Slug10000/status/1899365222009417798/photo/1](https://x.com/Slug10000/status/1899365222009417798/photo/1)
+
+image.png
+(1.59 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-11 17:21 上传
+
+<img src="https://img.saraba1st.com/forum/202503/11/172120yp9s5p9y5d5sa9q5.png" referrerpolicy="no-referrer">
+
