@@ -603,3 +603,11 @@ bro以为自己是卡表xz多这都敢端上来吗i😅😅😅
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">官推说抱歉了，补丁会做的
 
+
+*****
+
+####  dddyghr  
+##### 3466#       发表于 2025-3-11 22:56
+
+4080高特效加dlss性能档 第一章只有50帧太变态了
+
