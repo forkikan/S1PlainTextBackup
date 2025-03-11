@@ -269,3 +269,11 @@ pc版我反正不买了，忍组吃屎去吧<img src="https://static.saraba1st.c
 
 优化一般般，4k勉强能玩<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  中野梓  
+##### 3431#       发表于 2025-3-11 15:30
+
+2K玩的很顺畅，画面色彩确实丑
+

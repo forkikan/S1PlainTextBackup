@@ -1879,3 +1879,24 @@ https://b23.tv/U5fTBxq<img src="https://p.sda1.dev/22/097a63a28eb68704301eb83fab
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  与太郎  
+##### 35674#       发表于 2025-3-11 15:29
+
+<blockquote>三角初華/ドロリス
+
+元CRYCHICメンバーであるMyGO!!!!!の高松燈が書いた歌詞を読んだ初華は、祥子を奪われる焦燥感から自分の祥子への想いを歌詞にしたためる。消去すべきか悩む初華をよそに、にゃむはメンバー全員に共有してしまう</blockquote>
+初华写完歌词就是在犹豫要不要删掉，被喵梦抢去发mujica群里了
+
+感觉wsd应该会在最后一话放出灯的完整歌词，就是不知道会让哪几个人来演出
+
+*****
+
+####  一心而用  
+##### 35675#       发表于 2025-3-11 15:30
+
+<img src="https://p.sda1.dev/22/1bc4e7cb1ba100b4e4ef968781e4481f/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/7423236a1c62b16c7262822d6cacf827/image.jpg" referrerpolicy="no-referrer">
+
