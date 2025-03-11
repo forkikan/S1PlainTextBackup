@@ -645,3 +645,11 @@ spacex拿kerbal模拟，这灾难性的失败简直是板上钉钉的
 
 抱歉对网络特斯拉车主的刻板印象就是粉圈买明星周边支持马割割
 
+
+*****
+
+####  尼曼兔  
+##### 71#       发表于 2025-3-11 11:38
+
+之前一直说tsl进有些单位受限制，但是我每次去这些地方停车场一溜的大鼠标<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
