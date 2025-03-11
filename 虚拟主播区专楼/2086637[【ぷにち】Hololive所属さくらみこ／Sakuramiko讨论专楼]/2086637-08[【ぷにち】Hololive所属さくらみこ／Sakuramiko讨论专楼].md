@@ -2042,3 +2042,26 @@ geekjack给了充足的200份而且每人限2份，这个点还有60%没卖出�
 
 感觉SC6一万年没播了
 
+
+*****
+
+####  holofan  
+##### 10908#       发表于 2025-3-11 03:57
+
+<img src="https://img.saraba1st.com/forum/202503/11/035714mlc0olb37033g7p7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (10.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-11 03:57 上传
+
+*****
+
+####  rs5621  
+##### 10909#       发表于 2025-3-11 08:51
+
+又死一个，这下是排队毕业了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
