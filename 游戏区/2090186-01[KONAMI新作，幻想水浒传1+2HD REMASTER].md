@@ -3375,3 +3375,27 @@ PSP版就修了
 
 1代真是难受，战斗大部分都在平砍，像素粗糙，2代感觉各方面都精细很多
 
+
+*****
+
+####  缺德猫  
+##### 360#       发表于 2025-3-12 04:37
+
+看来不是我印象流，PC版小人精细度比新版高，新版用的PSP版底子....翻译也超级烂...老繁中的翻译读起来很舒服，新翻译纯糊弄，更别提人名、地名这些了。
+
+<img src="https://img.saraba1st.com/forum/202503/12/043728l8nd5o6454osh6hi.jpg" referrerpolicy="no-referrer">
+
+<strong>20240318042531_1.jpg</strong> (57.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-12 04:37 上传
+
+<img src="https://img.saraba1st.com/forum/202503/12/043658ztcuctc3tuw8d99d.jpg" referrerpolicy="no-referrer">
+
+<strong>20250312041245_1.jpg</strong> (176.37 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-12 04:36 上传
+
