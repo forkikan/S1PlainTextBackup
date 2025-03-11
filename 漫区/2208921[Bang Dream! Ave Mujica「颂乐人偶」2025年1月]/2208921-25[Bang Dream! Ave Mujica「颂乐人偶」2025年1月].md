@@ -2413,3 +2413,52 @@ XX年未有之⭐压抑企划
 
 2025-3-11 19:47 上传
 
+
+*****
+
+####  北条早苗  
+##### 35723#       发表于 2025-3-11 19:50
+
+真到手游里，睦头作为怕死怕累单推人肯定会和pareo有互动吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厉飞雨  
+##### 35724#       发表于 2025-3-11 19:52
+
+<img src="https://img.saraba1st.com/forum/202503/11/195238j3296asdsw2oia4x.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3942.jpeg</strong> (119.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-11 19:52 上传
+
+其他歌也不太对劲
+
+*****
+
+####  zhoujin8584  
+##### 35725#       发表于 2025-3-11 19:54
+
+<blockquote>凉良 发表于 2025-3-11 19:37
+现在又不是商业乐队 哪来的日程表</blockquote>
+有的，大祥直接发号施令了，召集成员、live要在哪一天办，舞台细节也跟在旁边， 都交给海铃安排，海铃唯一的真心笑容就是发现她还是mujica大总管的时候<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">演出前卖的就是海祥事业组，初祥爱情组，喵睦女同性恨组
+
+
+*****
+
+####  595505568  
+##### 35726#       发表于 2025-3-11 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67630359&amp;ptid=2208921" target="_blank">北条早苗 发表于 2025-3-11 19:50</a>
+真到手游里，睦头作为怕死怕累单推人肯定会和pareo有互动吧</blockquote>
+所以当初C团第一次团建玩什么素世会点PP仍然是一个谜，睦是PP粉丝，素世你啥情况（
+
+*****
+
+####  adretyu67.  
+##### 35727#       发表于 2025-3-11 19:55
+
+转了一圈海铃还是混了个立希位<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
