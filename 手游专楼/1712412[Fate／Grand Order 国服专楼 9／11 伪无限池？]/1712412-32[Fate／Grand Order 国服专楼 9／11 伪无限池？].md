@@ -232,3 +232,16 @@
 旧剑那个池子才有</blockquote>
 有没有说是几号开？
 
+
+*****
+
+####  Yidam  
+##### 47058#       发表于 2025-3-12 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67630657&amp;ptid=1712412" target="_blank">lcn 发表于 2025-3-11 20:53</a>
+
+有没有说是几号开？</blockquote>
+[https://game.bilibili.com/fgo/news.html#!news/0/1/15238](https://game.bilibili.com/fgo/news.html#!news/0/1/15238)
+
+27号到4月3号伯爵池，四星礼装极恶非道，就是金方块可以换的那张
+
