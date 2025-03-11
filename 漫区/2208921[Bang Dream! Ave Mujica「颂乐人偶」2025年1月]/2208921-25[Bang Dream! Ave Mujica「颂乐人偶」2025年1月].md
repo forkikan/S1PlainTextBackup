@@ -1804,3 +1804,13 @@ mujica的银河战舰水平没必要质疑吧，就算武道馆靠背景上的�
 
 还是来看看关系性能不能进游戏以后更加一团乱麻吧，不会我要真的作为素/柑推吃素世作为链接者没有主CP的苦吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，那真的弱化版Lisa姐了，身边连YKN都没有，自己emo得自己消化了（）
 
+
+*****
+
+####  6030sylar  
+##### 35668#       发表于 2025-3-11 13:27
+
+<img src="https://p.sda1.dev/22/d2d09dc111a3831bb66a2b74c013d9bf/image.jpg" referrerpolicy="no-referrer">初华身世之谜解开了(
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
