@@ -475,3 +475,15 @@ pc版我反正不买了，忍组吃屎去吧<img src="https://static.saraba1st.c
 PS5跑起来都没啥问题，PC能炸了，那就真的是忍者组技术不行了</blockquote>
 因为ps5版糊啊，画面糊成一坨了
 
+
+*****
+
+####  隔壁老黄  
+##### 3453#       发表于 2025-3-11 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67626315&amp;ptid=2092342" target="_blank">blueeyesww 发表于 2025-3-11 10:39</a>
+以主机平台为基础开发的游戏PC优化差这几年不是常态吗，更别说光荣这种没啥技术力的公司
+
+起源也谈不上优化 ...</blockquote>
+起源那同屏人数浪人能吃到尾气吗？更不用说起源画面也比浪人强得多
+

@@ -2479,3 +2479,17 @@ XX年未有之⭐压抑企划
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  大户爱  
+##### 35730#       发表于 2025-3-11 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67630485&amp;ptid=2208921" target="_blank">万书言 发表于 2025-3-11 20:19</a>
+每次进这个楼就有种看克苏鲁作品的感觉。明明动画已经不可名状无法理解了，这里的大家还在积极讨论交流。想 ...</blockquote>
+你应该去战吧**看看那个神人楼，
+
+我开始奔着找乐子去视奸的，结果看的真掉san了。
+
+我第一次看见看动画能看出一个邪教的。
+
