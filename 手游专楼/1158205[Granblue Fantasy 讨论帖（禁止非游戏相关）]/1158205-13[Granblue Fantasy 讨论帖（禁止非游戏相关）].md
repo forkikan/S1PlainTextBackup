@@ -84,3 +84,11 @@
 
 2技能影响感觉不会很大，反而是3技能一些机制可能会对玩法有影响。（比如3妹1t开3动）
 
+
+*****
+
+####  aribayuuki  
+##### 18218#       发表于 2025-3-11 22:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">是刀
+
