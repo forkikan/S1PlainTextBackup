@@ -653,3 +653,18 @@ spacex拿kerbal模拟，这灾难性的失败简直是板上钉钉的
 
 之前一直说tsl进有些单位受限制，但是我每次去这些地方停车场一溜的大鼠标<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  chivalry  
+##### 72#       发表于 2025-3-11 11:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">这种弱智帖都能钓这么多鱼，现在外野真的连打窝都不用了呀
+
+*****
+
+####  Eliodoros  
+##### 73#       发表于 2025-3-11 11:51
+
+其实都是射箭画靶，什么群体里面都有一小撮奇葩
+
