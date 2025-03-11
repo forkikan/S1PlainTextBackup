@@ -693,3 +693,15 @@ PC版宣传特性：120帧高帧率&amp;更高的画质。<img src="https://stat
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  虚无连斩  
+##### 3475#       发表于 2025-3-12 01:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玩了6小时，虽然捏人就捏了一小时
+
+体验还行吧，虽然画面是真的烂，起码帧数比荒野稳定
+
+荒野大本营经常莫名其妙能掉40多帧
+
