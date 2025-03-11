@@ -12206,3 +12206,13 @@ xx之战就是大陆版的神鬼xx，当时史茅革之战给我恶心坏了<img
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67629325&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-3-11 17:07</a></blockquote>
 王牌怎么有种姨感，而且长得有点像舰长
 
+
+*****
+
+####  RE㐅ia  
+##### 8389#       发表于 2025-3-11 17:54
+
+<blockquote>Kasuga_Mirai 发表于 2025-3-11 17:23
+印象里之前好像有漏油发过群宣，但现在找不着了，请问有漏油能再发一下吗 ...</blockquote>
+zsbd 769240605
+
