@@ -2265,7 +2265,7 @@
     "lastedit": 1741689960,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1804478": {
     "totalreply": 1242,
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 151221,
+    "totalreply": 151222,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1741719010,
+    "lastedit": 1741720208,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -10620,10 +10620,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 97975,
+    "totalreply": 97977,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1741719368,
+    "lastedit": 1741720567,
     "category": "漫区",
     "active": true,
     "update": false
@@ -16070,7 +16070,7 @@
     "newtitle": "[【中年大叔转生反派千金／悪役令嬢転生おじさん】竹内哲也 2025年1月]",
     "lastedit": 1741460656,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2249050": {
@@ -17424,10 +17424,10 @@
     "update": false
   },
   "2249535": {
-    "totalreply": 77,
+    "totalreply": 78,
     "title": "[丘成桐：现在国内的应试教育模式难以教育出有创造力的学生]",
     "newtitle": "[丘成桐：现在国内的应试教育模式难以教育出有创造力的学生]",
-    "lastedit": 1741718891,
+    "lastedit": 1741720689,
     "category": "外野",
     "active": true,
     "update": false
