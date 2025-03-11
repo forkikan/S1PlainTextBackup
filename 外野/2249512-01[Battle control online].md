@@ -558,3 +558,13 @@ ore miner is under attack<img src="https://static.saraba1st.com/image/smiley/fac
 
 是不是造成功了the pentagon就可以飞起来然后躲到地图边边上再落下来
 
+
+*****
+
+####  苇原雪道  
+##### 59#       发表于 2025-3-11 22:54
+
+我记得这玩意老费电了，但是给矿多，一块钱能当2块用。。。
+
+—— 来自 Xiaomi 24129PN74C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+

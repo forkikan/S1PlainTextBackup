@@ -587,3 +587,19 @@ bro以为自己是卡表xz多这都敢端上来吗i😅😅😅
 躲过了卧龙这坨屎还是躲不过浪人，栽光荣手里了，这垃圾优化真好意思一百多个g端上来 ...</blockquote>
 只要你还是光荣凯子，那你躲得了初一躲不了十五<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  彩虹肥宅  
+##### 3464#       发表于 2025-3-11 22:47
+
+有一说一，这游戏当你玩到江户的时候会觉得画面好起来了（可能是习惯了）
+
+
+*****
+
+####  木架穷奇  
+##### 3465#       发表于 2025-3-11 22:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">官推说抱歉了，补丁会做的
+
