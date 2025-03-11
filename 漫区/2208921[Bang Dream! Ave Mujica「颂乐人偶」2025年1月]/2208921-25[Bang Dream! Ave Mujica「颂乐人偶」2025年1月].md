@@ -1955,3 +1955,31 @@ https://b23.tv/U5fTBxq<img src="https://p.sda1.dev/22/097a63a28eb68704301eb83fab
 破防底下是狗团模式的素世啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，真的会很好笑吗（跑）
 我能贷款一个跨团的kyn吗（跑）
 
+
+*****
+
+####  GBLMikuHatsune  
+##### 35681#       发表于 2025-3-11 16:48
+
+通过喵睦的台上告白来揭示爱而不得的主旨挺好的。如果深入分析是可以理解这种互为爱慕对象、互相弥补却又无法相加于自身的醍醐感的<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+但问题在于这个“爱”在动画中表现得太隐晦、太单薄、太浅显。
+
+我觉得以mujica的预想风格，这种“爱”应该是强烈的、忘我的、舍弃一切的。
+
+以这点来说最符合的确实是大金毛主唱。但这种“爱”的成因和基础却又因为编剧想藏个大的把它放在快结尾，观众只能一头雾水看着剧中的角色进行ooc式的发癫。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+而除了金毛以外，其他角色的“爱”则表现得既不热烈、也不疯狂。
+
+牢莫在整季前半的塑造是有些疯狂感的，她对睦的底层逻辑就是“爱”，正是因为她爱着睦所以才会想要保护睦。但可惜的是睦也如同金毛一样被塑造成了一个假惺惺“爱”着祥子的单薄形象，导致牢莫的爱全献给了不存在的空气。本来能够写成一个完美的自爱水仙剧情，却因为刻板的祥睦半身戏变成了小丑。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+而海玲也一样，雇佣兵在30个队里的时候没有“爱”可言，而当所有队伍都退掉只剩下mujica时，她不得不对这个乐队倾注自己真正的“爱”，如同抓着最后一根救命稻草一样。但是这过程中是一定需要冲突的，需要有扭曲、绝境、背叛、伤痛来让海玲变得疯狂，变得非mujica不可。可惜的是不论是篇幅还是编剧的能力，都让她一转 成了个小哭包<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+我们的大女主小祥就更不用说了。在我看来她可以没有对初华的爱，可以没有对睦的爱，也可以没有对海玲和喵梦的爱，但是她必须爱着mujica，这是她不应该也不能放弃的东西。不论是第一季听到春日影后破防狠下心组建mujica，还是演出时那句“复权的时刻”，正是她对mujica的“爱”支撑着这一切，这份“爱”可以是因ccc爱而生狠、可以是“我只有mujica”的绝望之爱、也可以是为了对mygo复仇的黑暗之爱，但无论如何，都不能不爱mujica。
+
+就我个人喜好而言，这一切的“爱”归根结底都可以是对ccc包括灯扭曲的爱，不论是嫉妒也好憧憬也罢。
+
+但是当灯素希成为mygo的一员后，祥子也会切实的意识到她真的如喵梦对睦说那样“愛しても、愛しても、愛しきれない、愛されない”，曾经她爱着的故人即便会为她驻足、为她分担，却再也不会陪她一起走下去。而这个时间点的mujica、这个充满了扭曲之爱、黑暗之爱，如同泥沼一般的mujica才是自己的归宿。
+
+在我看来这种才能算是5人间“沉重的爱”，可惜柿本写成了一坨狗矢<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
