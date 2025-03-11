@@ -3301,3 +3301,24 @@ soyo:只要我把祥子拉回来，小睦就自动跟随了
 
 2025-3-12 01:59 上传
 
+
+*****
+
+####  结衣小比取  
+##### 35804#       发表于 2025-3-12 02:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67632042&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-12 01:41</a>
+
+海希下团前对话是在学校的，睦变身以后还给了在校反应。初华的暗中观察情报位和只能等祥子临幸的人设还是 ...</blockquote>
+刚才检查了一下第2-5话，从祥子暂留初华家开始，祥子再次穿上羽丘制服已经是第5话08:13了
+
+顺带一提第3话，若麦也去过学校
+
+<img src="https://img.saraba1st.com/forum/202503/12/023133mvffg5sccl0wftug.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-03-12_02-28-54.jpg</strong> (96.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-12 02:31 上传
+
