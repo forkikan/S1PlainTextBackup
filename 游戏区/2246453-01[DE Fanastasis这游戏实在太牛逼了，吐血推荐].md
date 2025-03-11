@@ -4027,3 +4027,11 @@ https://bgm.tv/subject/topic/33083
 拿完四个记忆了，直接出门的假结局看了一遍。现在去拿真相珠子，想问下玛姬山镇小教堂的那个女巫是必须要杀 ...</blockquote>
 必须杀，不杀进不了本篇真结局
 
+
+*****
+
+####  缤纷如落絮  
+##### 358#       发表于 2025-3-12 01:27
+
+龙息算什么类型的伤害啊，墓地里那只腐龙打不过<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

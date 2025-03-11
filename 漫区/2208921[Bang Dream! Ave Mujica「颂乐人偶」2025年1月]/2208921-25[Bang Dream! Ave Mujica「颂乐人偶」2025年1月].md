@@ -3262,3 +3262,16 @@ soyo:只要我把祥子拉回来，小睦就自动跟随了
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  结衣小比取  
+##### 35801#       发表于 2025-3-12 01:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67631899&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-12 00:53</a>
+
+其实初华明显知道，同居不可能不上课，而初华作为私生子连祥子家在哪都知道。
+
+而知道的代价就是行动力deb ...</blockquote>
+刚才重新看了坛友制作的[前五话时间线](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=2208921&amp;pid=67321236)，借住初华家正好覆盖巡演期间，考虑到连海玲都有请假，以及祥子工作量暴增的情况，或许这段时间真的没去上课
+
