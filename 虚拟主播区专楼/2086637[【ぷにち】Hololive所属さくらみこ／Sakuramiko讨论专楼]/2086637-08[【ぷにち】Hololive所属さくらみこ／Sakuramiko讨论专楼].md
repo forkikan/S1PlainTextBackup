@@ -2065,3 +2065,42 @@ geekjack给了充足的200份而且每人限2份，这个点还有60%没卖出�
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  holofan  
+##### 10910#       发表于 2025-3-11 11:41
+
+不仅是不错
+
+第一个，特装版的周边送实体卡牌非常有收藏价值
+
+第二个还有一个特别的背景知识，做花牌是任天堂本业<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以很有意思
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| rs5621| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  holofan  
+##### 10911#       发表于 2025-3-11 17:25
+
+<img src="https://img.saraba1st.com/forum/202503/11/172500hu59ur68zfpp5n9o.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (23.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-11 17:25 上传
+
+呸
+

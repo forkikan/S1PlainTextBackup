@@ -2125,3 +2125,28 @@ image.png
 
 <img src="https://img.saraba1st.com/forum/202503/11/172120yp9s5p9y5d5sa9q5.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adretyu67.  
+##### 35695#       发表于 2025-3-11 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67629458&amp;ptid=2208921" target="_blank">北条早苗 发表于 2025-3-11 17:23</a>
+
+母鸡卡就是对少女乐队这个题材的解构，不再靠krkrdkdk来推动剧情，但是并没有重建出让人信服的东西，只能说 ...</blockquote>
+还是浪费时间太多了，应该早日让金毛独占欲爆炸搞出监禁12点名主旨直接把团炸散的。
+
+*****
+
+####  qlipho  
+##### 35696#       发表于 2025-3-11 17:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">直白点说就是眼红啤酒烧烤和哭
+
+*****
+
+####  Yugao  
+##### 35697#       发表于 2025-3-11 17:31
+
+二次元偶像届的星空，最尊重陶德的一集
+
