@@ -990,3 +990,15 @@ https://www.animatetimes.com/news/details.php?id=1741242390&amp;p=3
 
 [https://x.com/nideaneng/status/1899171920383496384/photo/1](https://x.com/nideaneng/status/1899171920383496384/photo/1)
 
+
+*****
+
+####  aptx8285144  
+##### 35602#       发表于 2025-3-11 10:24
+
+<blockquote>与太郎 发表于 2025-3-11 09:51
+声优访谈还在宣传mujica高潮、伏笔回收、「彼女」是谁这种问题，真能逆转吗mujica
+
+立希那句话完整的应该是 ...</blockquote>
+主创们理解的“伏笔回收”，估计和大家理解的根本不是一个东西(
+
