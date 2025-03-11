@@ -566,3 +566,24 @@ PS5跑起来都没啥问题，PC能炸了，那就真的是忍者组技术不行
 1k可以，2k降到低能玩</blockquote>
 bro以为自己是卡表xz多这都敢端上来吗i😅😅😅
 
+
+*****
+
+####  慕容断月  
+##### 3462#       发表于 2025-3-11 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67630940&amp;ptid=2092342" target="_blank">stair楼梯 发表于 2025-3-11 21:47</a>
+
+这马上20号gust的开放世界arpg工作室也要出了，让我们看看kt还有哪个组不会用武士刀引擎的，嘻嘻 ...</blockquote>
+热知识，莱莎1好像就是katana了
+
+*****
+
+####  慕容断月  
+##### 3463#       发表于 2025-3-11 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67630860&amp;ptid=2092342" target="_blank">ae云岚 发表于 2025-3-11 21:31</a>
+
+躲过了卧龙这坨屎还是躲不过浪人，栽光荣手里了，这垃圾优化真好意思一百多个g端上来 ...</blockquote>
+只要你还是光荣凯子，那你躲得了初一躲不了十五<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
