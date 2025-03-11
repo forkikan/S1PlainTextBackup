@@ -12016,3 +12016,37 @@ GQuuuuuuX念法是ジ-クアクス，和时空跨越（じくうこえつ）发�
 Animage 4月号
 <img src="https://p.sda1.dev/22/2b682be1e2e56d25ef87520232c65edd/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  youjishiwu  
+##### 8367#       发表于 2025-3-11 14:01
+
+UC20250404
+
+*****
+
+####  Toby_dak  
+##### 8368#       发表于 2025-3-11 14:02
+
+ジークアクス音译不好翻，怎么变成这样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过说完「ときが見える」，就从0079跳到0085，也不是不行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  Gysumitka  
+##### 8369#       发表于 2025-3-11 14:06
+
+预计清明档期<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/1f6947e0be9a783185de04ba266031c9/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 8370#       发表于 2025-3-11 14:06
+
+跨时真没啥问题，甚至可以说翻的不错，就是添个啥不好添个“之战”，土味一下就上来了（）
+

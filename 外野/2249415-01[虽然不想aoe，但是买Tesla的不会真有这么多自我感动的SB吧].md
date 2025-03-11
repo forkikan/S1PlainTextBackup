@@ -729,3 +729,11 @@ spacex拿kerbal模拟，这灾难性的失败简直是板上钉钉的
 
 别说这个了，真有人信中国电车起来了是因为马斯克开源<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Moltres.lv70  
+##### 80#       发表于 2025-3-11 14:01
+
+有一说一，现在买Y是割韭菜，但是新3确实是同价位电车里操控最好最均衡的选择了吧
+
