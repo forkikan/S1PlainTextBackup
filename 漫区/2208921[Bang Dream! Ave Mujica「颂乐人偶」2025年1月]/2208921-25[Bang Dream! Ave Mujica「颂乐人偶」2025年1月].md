@@ -2382,3 +2382,34 @@ XX年未有之⭐压抑企划
 真白 ...</blockquote>
 真白：还好有个主治医师在
 
+
+*****
+
+####  凉良  
+##### 35720#       发表于 2025-3-11 19:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">最阴湿还是祥子先作曲初华再填词成香草小祥之歌。 然后在live唱出来 
+
+
+*****
+
+####  595505568  
+##### 35721#       发表于 2025-3-11 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67630318&amp;ptid=2208921" target="_blank">凉良 发表于 2025-3-11 19:42</a>
+最阴湿还是祥子先作曲初华再填词成香草小祥之歌。 然后在live唱出来</blockquote>
+有种作词和作曲在搞黄色的感觉（
+
+*****
+
+####  木板春香  
+##### 35722#       发表于 2025-3-11 19:47
+
+<img src="https://img.saraba1st.com/forum/202503/11/194711y9w6lalh5a3a5zfg.png" referrerpolicy="no-referrer">
+
+<strong>[IT7BOY4{8[07%~NI[HM8BC_tmb.png</strong> (1.7 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-11 19:47 上传
+
