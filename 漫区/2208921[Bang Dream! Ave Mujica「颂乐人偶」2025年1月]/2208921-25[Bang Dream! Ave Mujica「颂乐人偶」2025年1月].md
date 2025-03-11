@@ -2526,3 +2526,74 @@ earth有 you are my reason to be<img src="https://static.saraba1st.com/image/smi
 我开始奔着找乐子去视奸的，结果看的真掉san了。</blockquote>
 神人楼刚发不久的时候，我看到回帖都在吹捧，我就去看了看他的前一个主贴，看了感觉也没啥啊，不知道为啥捧成这样，再之后神人楼的回帖数就多到了我无法理解的数量。
 
+
+*****
+
+####  南宮凝香  
+##### 35734#       发表于 2025-3-11 21:18
+
+重看了李子小姐唱歌
+
+有一說一，
+
+莫睦殉情是挺悽美的
+
+……如果我沒有看了十集母雞卡 + 初音在唱香草祥子之歌的話
+
+現在我只想問你們這次是真死嗎？
+
+*****
+
+####  huxiaopao163  
+##### 35735#       发表于 2025-3-11 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67630686&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-11 20:59</a>
+
+神人楼刚发不久的时候，我看到回帖都在吹捧，我就去看了看他的前一个主贴，看了感觉也没啥啊，不知道为啥 ...</blockquote>
+一开始还是看楼主的分析，但是后面的疯狂和楼主已经没啥关系了，只是楼友借人家楼主的地方写各自的分析，甚至用来发疯哈哈
+
+*****
+
+####  大户爱  
+##### 35736#       发表于 2025-3-11 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67630686&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-11 20:59</a>
+神人楼刚发不久的时候，我看到回帖都在吹捧，我就去看了看他的前一个主贴，看了感觉也没啥啊，不知道为啥 ...</blockquote>
+本质是一起共振啦，最开始的楼主提供了“剧本说”这么一个基点。后面的人把基点当真理，在这基础上自己发展成完全看不懂的概念。
+
+确实是宗教的诞生。唯一的疑问是，母鸡卡这番，就算加上mygo邦邦，有这么蛊惑人心嘛<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  钦念以忱  
+##### 35737#       发表于 2025-3-11 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67630795&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-3-11 21:19</a>
+
+一开始还是看楼主的分析，但是后面的疯狂和楼主已经没啥关系了，只是楼友借人家楼主的地方写各自的分析， ...</blockquote>
+那难怪，我点了只看楼主<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 35738#       发表于 2025-3-11 21:22
+
+“充满肮脏欲望的歌词”
+<img src="https://p.sda1.dev/22/1312617d043ff20741eefdec8eb08830/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  6030sylar  
+##### 35739#       发表于 2025-3-11 21:24
+
+<img src="https://img.saraba1st.com/forum/202503/11/212428zalvfwwxv90oaw0w.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>fe6e5858d5bff6ce9e52226e0530ee4d.jpeg</strong> (112.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-11 21:24 上传
+
+你们老登噶够了
+

@@ -65,3 +65,33 @@
 不知道会不会找豪哥来给圣写solo</blockquote>
 果然是<img src="https://static.saraba1st.com/image/smiley/face2017/266.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wfhtony  
+##### 6950#       发表于 2025-3-11 21:21
+
+ 本帖最后由 wfhtony 于 2025-3-11 21:23 编辑 
+
+<img src="https://img.saraba1st.com/forum/202503/11/212114gxtqbcd6bxc161z2.png" referrerpolicy="no-referrer">
+
+<strong>111.png</strong> (203.49 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-11 21:21 上传
+
+管馬仕的新曲《ヴヴヴ》將於近日上線（應該會在下週六（3/22）LIVE前上線）。
+
+<img src="https://img.saraba1st.com/forum/202503/11/212114q2vsepeg2k5282vs.png" referrerpolicy="no-referrer">
+
+<strong>222.png</strong> (648.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-11 21:21 上传
+
+1st LIVE也將於一週後於地上波播出該公演的<strong>剪輯版</strong>（TOKYO MX 深夜檔），MX播送後會在TVer上推出VOD（慣例的免費），AP的二次會也將在3/30（地上波播送後）開播。
+
+PS：3/22當天沒有線上觀賞券賣，即<strong>當天沒有轉播</strong>。
+
