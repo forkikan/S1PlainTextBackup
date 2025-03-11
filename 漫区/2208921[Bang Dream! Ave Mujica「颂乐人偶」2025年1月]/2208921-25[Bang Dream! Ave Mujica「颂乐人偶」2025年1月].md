@@ -923,3 +923,46 @@ https://www.animatetimes.com/news/details.php?id=1741242390&amp;p=3
 
 喵姆下定决心不再逃避若叶睦／莫提斯。在Ave Mujica演唱会开场前，她向莫提斯倾吐了自己对睦的嫉妒与爱怜交织的情感。正式演出时，尽管怀揣着对睦的恐惧，她依然完美演绎了「阿莫里斯」这一角色。
 
+
+*****
+
+####  油画布  
+##### 35597#       发表于 2025-3-11 09:59
+
+既要走负面塑造路线又兼顾扩圈娱乐性，能够完美维持这个平衡的 我能想到的少之又少且都是t0级别的作品 其他大多数优秀作品要么是负面且晦涩的作品，要么就是明亮基调的**作品。柿本既要又要 ，也不掂掂自己几斤几两
+
+*****
+
+####  半年  
+##### 35598#       发表于 2025-3-11 10:02
+
+<img src="https://img.saraba1st.com/forum/202503/11/100242a44lxcrv4y44yyse.jpg" referrerpolicy="no-referrer">
+
+<strong>GlrVjG6aEAAIuLx.jpg</strong> (177.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-11 10:02 上传
+
+[h](https://x.com/littleeefire/status/1899069342156988457/photo/1)[ttps://x.com/littleeefire/status/1899069342156988457/photo/1](https://x.com/littleeefire/status/1899069342156988457/photo/1)
+
+<img src="https://img.saraba1st.com/forum/202503/11/100314fvm6bjmoujn6gmju.jpg" referrerpolicy="no-referrer">
+
+<strong>Glr8uj1a8AAEjng.jpg</strong> (248.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-11 10:03 上传
+
+[https://x.com/46_UnknownLor/status/1899113013694652477/photo/1](https://x.com/46_UnknownLor/status/1899113013694652477/photo/1)
+
+*****
+
+####  qlipho  
+##### 35599#       发表于 2025-3-11 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67625965&amp;ptid=2208921" target="_blank">油画布 发表于 2025-3-11 09:59</a>
+
+既要走负面塑造路线又兼顾扩圈娱乐性，能够完美维持这个平衡的 我能想到的少之又少且都是t0级别的作品 其 ...</blockquote>
+柿本哥哥的亲女儿不是大受好评，在这个奇美拉制作组已经算石上雕花了
+

@@ -11634,3 +11634,14 @@ GQX陆战应该是喷射移动的，类似大魔。
 
 殖民地夜晚建筑的灯光在环形结构下变成了可以仰头观看的星星，这作的宇宙殖民地美术设计真的一绝
 
+
+*****
+
+####  g救世主高达  
+##### 8326#       发表于 2025-3-11 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67615228&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-3-9 19:51</a>
+
+83哪来可以直接塞进高达里还可以不改变整机尺寸的无线塞可缪系统，更别说79了，而且到 新安洲/独角兽 之前 ...</blockquote>
+整体水平没太大变化<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">？钢加农肩膀上扛着的照射大炮在正史只有钢弹四号机有同等水平的，四号机射一发就要自爆了，gux的钢加农压根就没副作用，同是魔改uc的雷霆宙域也只只给高达装了个高出力光束炮，照射想都不敢想
+
