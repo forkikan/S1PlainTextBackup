@@ -11739,3 +11739,31 @@ msv也有主教这种17m装塞克谬的ms，正史爆改一下塞进高达里也
 
 微博认证：电影《机动战士高达跨时之战》官方微博
 
+
+*****
+
+####  oi99o  
+##### 8334#       发表于 2025-3-11 11:58
+
+呃…QuuuuuuX=跨时？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  千恋万花  
+##### 8335#       发表于 2025-3-11 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67627004&amp;ptid=2209276" target="_blank">oi99o 发表于 2025-3-11 11:58</a>
+
+呃…QuuuuuuX=跨时？</blockquote>
+应该是为了简单好传播而起的一个中文名？
+
+*****
+
+####  ads147147  
+##### 8336#       发表于 2025-3-11 12:05
+
+有种假面骑士时王的味道
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
