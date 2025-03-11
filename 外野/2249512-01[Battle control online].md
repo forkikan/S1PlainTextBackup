@@ -500,3 +500,27 @@ ore miner is under attack<img src="https://static.saraba1st.com/image/smiley/fac
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">川之炼金术士
 
+
+*****
+
+####  mhss  
+##### 52#       发表于 2025-3-11 20:37
+
+搞不好不是<img src="https://p.sda1.dev/22/39b333200624f3affed625bab9ddb775/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  提肛喝水拉屎  
+##### 53#       发表于 2025-3-11 20:40
+
+这可是断电精炼器啊，踩一车矿等于别人踩两车，真不错<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  bonnwang  
+##### 54#       发表于 2025-3-11 20:43
+
+不修重工修精炼厂
+
