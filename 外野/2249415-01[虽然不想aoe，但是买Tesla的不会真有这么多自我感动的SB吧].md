@@ -711,3 +711,13 @@ spacex拿kerbal模拟，这灾难性的失败简直是板上钉钉的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  RookieTnT  
+##### 78#       发表于 2025-3-11 13:37
+
+有钱全款买 但是有免息为什么不免息呢 把钱存定期吃利息不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
