@@ -1900,3 +1900,16 @@ https://b23.tv/U5fTBxq<img src="https://p.sda1.dev/22/097a63a28eb68704301eb83fab
 <img src="https://p.sda1.dev/22/1bc4e7cb1ba100b4e4ef968781e4481f/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/22/7423236a1c62b16c7262822d6cacf827/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cxj649  
+##### 35676#       发表于 2025-3-11 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67627069&amp;ptid=2208921" target="_blank">老贝 发表于 2025-3-11 12:08</a>
+
+大概是因为诗超绊的时候底下也是一个Mujica成员都没有吧。
+
+念诗的时候安排两个路人疑惑灯的汉字怎么念，Mu ...</blockquote>
+有睦头人啊
+
