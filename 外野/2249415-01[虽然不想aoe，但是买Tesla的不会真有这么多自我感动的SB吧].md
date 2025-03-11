@@ -721,3 +721,11 @@ spacex拿kerbal模拟，这灾难性的失败简直是板上钉钉的
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  最后的要塞  
+##### 79#       发表于 2025-3-11 13:47
+
+别说这个了，真有人信中国电车起来了是因为马斯克开源<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

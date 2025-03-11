@@ -237,3 +237,19 @@ pc版我反正不买了，忍组吃屎去吧<img src="https://static.saraba1st.c
 
 想知道steamdeck能玩吗<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  busuji  
+##### 3428#       发表于 2025-3-11 13:51
+
+有人试过steamdeck玩这个流畅吗？出来就预购了，别给我掉链子啊
+
+<img src="https://img.saraba1st.com/forum/202503/11/135017clqq984qsyh8glz4.jpg" referrerpolicy="no-referrer">
+
+<strong>148292609553cf7f486a2137a2724e1c.jpg</strong> (230.93 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-11 13:50 上传
+

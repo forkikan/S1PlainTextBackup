@@ -11990,3 +11990,29 @@ GQuuuuuuX念法是ジ-クアクス，和时空跨越（じくうこえつ）发�
 
 也不是不行吧，这种标题要强行翻中文只能自己现编，没辙
 
+
+*****
+
+####  Kasuga_Mirai  
+##### 8364#       发表于 2025-3-11 13:50
+
+跨时还好，跨时之战就有点…
+
+
+*****
+
+####  gnihton314  
+##### 8365#       发表于 2025-3-11 13:53
+
+不行咱还是纯音译吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Gysumitka  
+##### 8366#       发表于 2025-3-11 13:55
+
+<img src="https://p.sda1.dev/22/9e24df1cd8f8e83df0639377b059f1bd/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/74ddfb7f5ad358473a55ea2b29b5c529/image.jpg" referrerpolicy="no-referrer">
+Animage 4月号
+<img src="https://p.sda1.dev/22/2b682be1e2e56d25ef87520232c65edd/image.jpg" referrerpolicy="no-referrer">
+
