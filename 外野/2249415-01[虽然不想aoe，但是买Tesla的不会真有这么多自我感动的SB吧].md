@@ -512,3 +512,13 @@ spacex拿kerbal模拟，这灾难性的失败简直是板上钉钉的
 同意所有品牌粉本质都一样的最好是真的同意“所有品牌”而不是“楼里出现的我不喜欢的品牌”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 别到自己头上的时候就那能一样吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  littlecloud  
+##### 56#       发表于 2025-3-11 09:41
+
+特斯拉已经类似苹果手机，超出使用价值本身了，外带了时尚单品的属性
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
