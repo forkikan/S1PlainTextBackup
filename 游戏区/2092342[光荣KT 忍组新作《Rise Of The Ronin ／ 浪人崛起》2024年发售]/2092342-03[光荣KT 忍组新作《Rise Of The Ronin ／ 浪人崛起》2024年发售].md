@@ -261,3 +261,11 @@ pc版我反正不买了，忍组吃屎去吧<img src="https://static.saraba1st.c
 
 听说PC稀烂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  寂长无星夜  
+##### 3430#       发表于 2025-3-11 14:39
+
+优化一般般，4k勉强能玩<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
