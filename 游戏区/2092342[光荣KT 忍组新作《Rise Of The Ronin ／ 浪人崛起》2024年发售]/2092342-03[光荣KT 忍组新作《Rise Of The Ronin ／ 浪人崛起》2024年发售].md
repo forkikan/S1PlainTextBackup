@@ -426,3 +426,11 @@ pc版我反正不买了，忍组吃屎去吧<img src="https://static.saraba1st.c
 
 当初预购卧龙豪华版被狠狠背刺后，不预购忍组任何作品是明智选择<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  慕容断月  
+##### 3448#       发表于 2025-3-11 19:26
+
+好玩，但必须dlss，否则4090都扛不住4K最高特效，但确实好玩，有个好的战斗系统就算是罐头又怎样？一周目爽游不错了
+
