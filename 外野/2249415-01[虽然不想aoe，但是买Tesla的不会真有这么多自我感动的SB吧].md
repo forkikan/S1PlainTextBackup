@@ -586,3 +586,30 @@ spacex拿kerbal模拟，这灾难性的失败简直是板上钉钉的
 
       而且与京东相比，特斯拉掉头可彻底的多。它原来的顾客群体是全球主义者，现在真的180度掉头奔向新纳粹了。
 
+
+*****
+
+####  liy30dlys  
+##### 64#       发表于 2025-3-11 10:48
+
+你去dy搞个新号，然后高强度刷马圣吹的视频
+
+因为我就是在电梯里听外放听到过<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+就不带重样的
+
+
+*****
+
+####  yokuu  
+##### 65#       发表于 2025-3-11 10:51
+
+在路上看到相当一部特斯拉车主是女的，尤其是model3，大红色或者改个闪膜，用户画像感觉都能想象出来。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  drodchang  
+##### 66#       发表于 2025-3-11 10:55
+
+特斯拉确实是电车先行者，和奔驰在油车中差不多地位，现在奔驰还有不少人卖呢，何况特斯拉。
+
