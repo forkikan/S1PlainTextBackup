@@ -532,3 +532,21 @@ ore miner is under attack<img src="https://static.saraba1st.com/image/smiley/fac
 
 怪不得毛子经济还没破产，红场上建了制造工厂是吧
 
+
+*****
+
+####  fc874  
+##### 56#       发表于 2025-3-11 21:41
+
+哦买了买了卡
+
+*****
+
+####  这次是十块钱  
+##### 57#       发表于 2025-3-11 21:44
+
+这不断电？<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+另外说起来这玩意是不是没啥用啊，我看高手玩基本上不会出
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
