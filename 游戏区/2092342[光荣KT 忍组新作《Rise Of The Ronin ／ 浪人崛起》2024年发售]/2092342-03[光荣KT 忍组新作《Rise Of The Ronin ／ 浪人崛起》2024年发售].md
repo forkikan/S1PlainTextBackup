@@ -359,3 +359,21 @@ pc版我反正不买了，忍组吃屎去吧<img src="https://static.saraba1st.c
 
 1070可以跑顺畅，就是画质得低，战斗挺爽快，暗杀比刺客信条好玩多了
 
+
+*****
+
+####  Lorraine_Kinney  
+##### 3440#       发表于 2025-3-11 17:42
+
+这优化无敌了，想给忍组一拳
+
+120帧bug，如果锁120，会有补帧效果，角色动作特别特别慢
+
+
+*****
+
+####  Yugao  
+##### 3441#       发表于 2025-3-11 17:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有没有和我一样4060＋7945配置的，我游戏一直闪退打不开，没办法退款了
+

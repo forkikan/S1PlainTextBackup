@@ -2150,3 +2150,25 @@ image.png
 
 二次元偶像届的星空，最尊重陶德的一集
 
+
+*****
+
+####  与何人说  
+##### 35698#       发表于 2025-3-11 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67629458&amp;ptid=2208921" target="_blank">北条早苗 发表于 2025-3-11 17:23</a>
+
+母鸡卡就是对少女乐队这个题材的解构，不再靠krkrdkdk来推动剧情，但是并没有重建出让人信服的东西，只能说 ...</blockquote>
+也还好吧，JB乱和家庭纠葛也是动机的一种，而且更现实
+
+
+*****
+
+####  ntrntr1  
+##### 35699#       发表于 2025-3-11 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67626475&amp;ptid=2208921" target="_blank">肛之练筋士 发表于 2025-3-11 10:55</a>
+
+找到了当年看mygo时看到的怪图，万万没想到母鸡卡里面这2人真的被“超市”了，哎…… ...</blockquote>
+哪天被砸了凶手是谁一目了然
+
