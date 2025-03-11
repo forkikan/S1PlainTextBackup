@@ -481,3 +481,14 @@ ore miner is under attack<img src="https://static.saraba1st.com/image/smiley/fac
 
 堪比放加州水库的操作<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 50#       发表于 2025-3-11 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67630024&amp;ptid=2249512" target="_blank">acg_gyanc 发表于 2025-3-11 18:49</a>
+
+这翻译对么，在军事基地建金属精炼设施有什么意义</blockquote>
+如果是收二手充电头回来炼稀土满足部分高精尖设备的维护需求说不定还是够的<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
