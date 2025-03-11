@@ -377,3 +377,11 @@ pc版我反正不买了，忍组吃屎去吧<img src="https://static.saraba1st.c
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有没有和我一样4060＋7945配置的，我游戏一直闪退打不开，没办法退款了
 
+
+*****
+
+####  nancygreenlife  
+##### 3442#       发表于 2025-3-11 18:10
+
+好烂的画面，好低的帧数，退款，退款
+

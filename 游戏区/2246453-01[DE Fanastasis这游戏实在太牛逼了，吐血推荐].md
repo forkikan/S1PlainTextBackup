@@ -3990,3 +3990,14 @@ https://bgm.tv/subject/topic/33083
 
 主角一直都是奶爸吗，毫无战斗力啊，后期有没有加强
 
+
+*****
+
+####  blueelf  
+##### 354#         楼主| 发表于 2025-3-11 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67629638&amp;ptid=2246453" target="_blank">麦吉卡 发表于 2025-3-11 17:48</a>
+
+主角一直都是奶爸吗，毫无战斗力啊，后期有没有加强</blockquote>
+没有，不过他也是队伍不可或缺的，全游戏能够稳定加血的就他一个，眼镜妹偏预防的，加血量远不如他
+

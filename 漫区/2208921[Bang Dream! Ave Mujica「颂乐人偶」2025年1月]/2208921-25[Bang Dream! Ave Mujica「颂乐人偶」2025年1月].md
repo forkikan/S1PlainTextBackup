@@ -2197,3 +2197,26 @@ image.png
 
 起码这套扭曲爱的结论比起假药推测后续剧情更让我感觉接近原来角色的模样，只是氛围怪怪的，有种误入色孽中心的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  syndrome2032  
+##### 35703#       发表于 2025-3-11 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67629778&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-11 18:06</a>
+起码这套扭曲爱的结论比起假药推测后续剧情更让我感觉接近原来角色的模样，只是氛围怪怪的，有种误入色孽中 ...</blockquote>
+色虐搞艺术的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 35704#       发表于 2025-3-11 18:13
+
+應該讓初音在Sumimi 的直播上唱監禁的
+
+在Live House 唱還是不夠陰濕
+
+在全國直播跟（不知情的）搭擋一起唱香草祥子之歌，
+
+把祥子震得回去重組母雞卡才合邦邦之世
+
