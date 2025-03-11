@@ -1496,3 +1496,57 @@ Imprisoned Ⅻ也是得不到睦这个“天使”回馈的mortis单相思的故
 
 对于MyGO，单纯当棋子的处理方式不太令人满意，以及前面露脸那么多次最后live怎么又不让她们在现场出现了，总不能是因为2000円门票吧
 
+
+*****
+
+####  老贝  
+##### 35644#       发表于 2025-3-11 12:08
+
+大概是因为诗超绊的时候底下也是一个Mujica成员都没有吧。
+
+
+*****
+
+####  南宮凝香  
+##### 35645#       发表于 2025-3-11 12:12
+
+狗12 回的黃瓜事變就是素姐又風濕發作了
+
+我到現在也不知道為什麼她要暴怒
+
+女人心海底針
+
+素祥兩人的思路都是屬於我完全理解不了的
+
+*****
+
+####  半年  
+##### 35646#       发表于 2025-3-11 12:12
+
+<img src="https://img.saraba1st.com/forum/202503/11/121211gy2i2py9cy2029y2.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250311121122.jpg</strong> (51.11 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-11 12:12 上传
+
+<img src="https://img.saraba1st.com/forum/202503/11/121211qvwbopk4m9vgmpis.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250311121118.jpg</strong> (171.68 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-11 12:12 上传
+
+*****
+
+####  595505568  
+##### 35647#       发表于 2025-3-11 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67627097&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-11 12:12</a>
+狗12 回的黃瓜事變就是素姐又風濕發作了
+
+我到現在也不知道為什麼她要暴怒</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -11767,3 +11767,21 @@ msv也有主教这种17m装塞克谬的ms，正史爆改一下塞进高达里也
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  伊川  
+##### 8337#       发表于 2025-3-11 12:07
+
+这部和0079关系大吗？看之前需不需要重刷一遍<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+*****
+
+####  兔狐子  
+##### 8338#       发表于 2025-3-11 12:11
+
+这个起名……对………对吗？<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
