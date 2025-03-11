@@ -11674,3 +11674,16 @@ msv也有主教这种17m装塞克谬的ms，正史爆改一下塞进高达里也
 
 <img src="https://img.saraba1st.com/forum/202503/11/101547m90v0uvmdo5nd29v.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  纪寞  
+##### 8328#       发表于 2025-3-11 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67625966&amp;ptid=2209276" target="_blank">g救世主高达 发表于 2025-3-11 10:00</a>
+
+整体水平没太大变化？钢加农肩膀上扛着的照射大炮在正史只有钢弹四号机有同等水平的，四号机射一发就要自 ...</blockquote>
+主要是这个gqx的元祖有个画面给了数据，结果和正史元祖基本没太大差别，除了出力1400(甚至写了是推定)外其他基本一样，那就是gqx的元祖相比正史元祖除了早期因为设计问题的核心战机变形死重问题外性能基本一样(甚至死重问题解决后性能还一样结果看起来还倒退了)。
+
+那钢加农按剧中定位也不太可能让他超元祖，元祖卡那了，那钢加农我也只认为他也卡那了。
+

@@ -1263,3 +1263,64 @@ CGディレクター：山之口 創
 
 柿本哪怕要藏祥子承担别人人生的无自觉欲望，起码也得鸡1.0炸之前把五个人的阴暗心思说明白，甚至mygo期间就该写明白祥子组鸡“并不道德”。
 
+
+*****
+
+####  凉良  
+##### 35624#       发表于 2025-3-11 11:06
+
+记得有人说这集是超级意识流的表现 所以一张图都不能透？
+
+*****
+
+####  ads147147  
+##### 35625#       发表于 2025-3-11 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67626552&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-11 11:04</a>
+损失168e能指名道姓的让一个人接盘这件事本身就有种阴谋味儿了</blockquote>
+老头看赘婿不爽找个由头让人滚蛋已经很仁慈了，连姓氏都没回收，中登还有存款喝酒。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  是谁的书画  
+##### 35626#       发表于 2025-3-11 11:08
+
+能有多意识流，致敬机器人吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+话说楼主的头像换了啊，乐
+
+
+*****
+
+####  595505568  
+##### 35627#       发表于 2025-3-11 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67626560&amp;ptid=2208921" target="_blank">xyion 发表于 2025-3-11 11:05</a>
+几原写企鹅罐，第一话告诉你大哥骨科，第二话告诉你苹果跟踪狂，绝对不让观众产生不正确的预期。哦还有“这 ...</blockquote>
+理论上需要最早就把睦对自己身份的大众镜头曝光有恐惧提前拉出来处理<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，告诉你拉睦组喝茶乐队以外的任何商业乐队都不道德才行
+
+*****
+
+####  老贝  
+##### 35628#       发表于 2025-3-11 11:12
+
+MyGO时期对祥子组Mujica的批判本来就不少吧，什么第七话CPart那个眼神是在嫉妒初华出头了但自己却沦落了，想把她拉下水。以及后面吵到Mujica动画的睦还没同意入队就拿她照片拉拢喵梦这事。
+
+只不过上面这些虽然都是对祥子的批判，但和现在这个局面不是一个事就是了。<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  与太郎  
+##### 35629#       发表于 2025-3-11 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67626558&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-3-11 11:05</a>
+
+这种可能是十本觉得分镜画的不好自己改过一遍才会这样。。。
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+以三次元的制作流程来说，分镜稿本身的完成度不重要，旁边的备注标注如何表现更重要，柿本自己画分镜本就比较粗糙，他自己不也说更多依赖三次元员工发挥吗
+
+所以究竟是什么问题导致需要三个人画分镜
+

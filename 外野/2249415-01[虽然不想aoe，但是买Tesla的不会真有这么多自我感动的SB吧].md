@@ -621,3 +621,11 @@ spacex拿kerbal模拟，这灾难性的失败简直是板上钉钉的
 
 有的不买特斯拉的也念马总的好啊，还真以之为人类之光了，中国人为啥要念着美国好啊？感觉就是种慕强心态吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  沧海nog  
+##### 68#       发表于 2025-3-11 11:10
+
+不然呢，不然为什么20多w，60度400v到今天还能卖得出去这么多，这还有别的解释么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
