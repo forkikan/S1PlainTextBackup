@@ -4001,3 +4001,11 @@ https://bgm.tv/subject/topic/33083
 主角一直都是奶爸吗，毫无战斗力啊，后期有没有加强</blockquote>
 没有，不过他也是队伍不可或缺的，全游戏能够稳定加血的就他一个，眼镜妹偏预防的，加血量远不如他
 
+
+*****
+
+####  大空魔术  
+##### 355#       发表于 2025-3-11 23:43
+
+拿完四个记忆了，直接出门的假结局看了一遍。现在去拿真相珠子，想问下玛姬山镇小教堂的那个女巫是必须要杀吗<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
