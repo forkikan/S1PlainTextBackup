@@ -1775,3 +1775,17 @@ mujica的银河战舰水平没必要质疑吧，就算武道馆靠背景上的�
 坑和祝福是对应的，素世希望睦帮她重组C团，但睦没帮忙甚至还帮了倒忙（素视角），后来加入狗团也有睦的 ...</blockquote>
 说了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，第十一话的灯素练习室
 
+
+*****
+
+####  UNISONIA  
+##### 35665#       发表于 2025-3-11 13:07
+
+ 本帖最后由 UNISONIA 于 2025-3-11 13:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67627408&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-3-11 12:59</a>
+
+mujica的银河战舰水平没必要质疑吧，就算武道馆靠背景上的，满座和路人看个双重人格发癫就觉得要复活的狂热 ...</blockquote>
+作为参考，wsd自己花钱都能把D4DJ砸进武道馆（虽然现在看起来LIVE是要推迟了），邦这边的ppp、Roselia和RAS也很明显是没必要非得在半开武道馆LIVE的，周年倒是另说。同样，鸡狗对邦也没必要找K-Arena横滨这样大的场子开的，这点有看别的艺人的受众已经有吐槽过了
+
+鸡剧中看起来武道馆LIVE肯定是半开坐席，而且就第一话看起来两侧视角不好的地方也是空着的，实际上只有扇形区域是真开放的坐席。至于要抽选不等于票卖空这点，我上一条已经解释过了
+
