@@ -161,3 +161,16 @@
 但感覺這個琥珀是否真是琥珀的身體，還是錯手抱了其他兒童... ...</blockquote>
 被乌鸦啃完过几个月都没烂，还能不是吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 1216#       发表于 2025-3-11 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67629470&amp;ptid=1047361" target="_blank">azbhg1 发表于 2025-3-11 17:24</a>
+
+被乌鸦啃完过几个月都没烂，还能不是吗</blockquote>
+合流後2人也驗證了沒有抱錯，某程度可以放心
+
+被騙了，軟軟的真是太好了
+

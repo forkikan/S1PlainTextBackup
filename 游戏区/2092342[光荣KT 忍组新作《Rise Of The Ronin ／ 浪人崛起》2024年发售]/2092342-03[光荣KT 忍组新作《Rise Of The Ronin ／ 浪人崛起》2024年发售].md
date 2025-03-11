@@ -385,3 +385,11 @@ pc版我反正不买了，忍组吃屎去吧<img src="https://static.saraba1st.c
 
 好烂的画面，好低的帧数，退款，退款
 
+
+*****
+
+####  Sopp  
+##### 3443#       发表于 2025-3-11 18:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">一到横滨帧数骤降……还玩个屁
+
