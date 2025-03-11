@@ -503,3 +503,12 @@ spacex拿kerbal模拟，这灾难性的失败简直是板上钉钉的
 
 科技圈子也一样
 
+
+*****
+
+####  凯尔薇斯  
+##### 55#       发表于 2025-3-11 09:33
+
+同意所有品牌粉本质都一样的最好是真的同意“所有品牌”而不是“楼里出现的我不喜欢的品牌”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+别到自己头上的时候就那能一样吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
