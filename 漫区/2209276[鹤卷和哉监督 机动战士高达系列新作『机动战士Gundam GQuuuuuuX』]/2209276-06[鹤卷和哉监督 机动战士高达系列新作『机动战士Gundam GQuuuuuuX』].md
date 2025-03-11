@@ -12320,3 +12320,14 @@ GQX时间线靠哈罗狠赚一笔的阿姆罗<img src="https://static.saraba1st.
 
 <img src="https://static.saraba1st.com/image/smiley/bundam2017/037.png" referrerpolicy="no-referrer">这会引进总结觉得奇怪
 
+
+*****
+
+####  赤黑的假面  
+##### 8399#       发表于 2025-3-11 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67630863&amp;ptid=2209276" target="_blank">qb0079 发表于 2025-3-11 21:31</a>
+
+这会引进总结觉得奇怪</blockquote>
+奇怪的点在哪，说说
+

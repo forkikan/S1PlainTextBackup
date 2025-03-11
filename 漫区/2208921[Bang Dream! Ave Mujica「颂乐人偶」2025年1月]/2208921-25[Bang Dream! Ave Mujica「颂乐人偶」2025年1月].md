@@ -2629,3 +2629,19 @@ earth有 you are my reason to be<img src="https://static.saraba1st.com/image/smi
 “充满肮脏欲望的歌词”</blockquote>
 倒也很真诚<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ape-apple  
+##### 35743#       发表于 2025-3-11 22:07
+
+说得直白点，萌战吧有一群人把自己训练成与mujica挂钩了，就类似于bdsm里的唤起法，只要把某种感觉和sex共同作用，之后就可以通过这种感觉唤起M的反应，萌战吧是真觉得他们在每部吧番上都有很高的艺术水准
+
+
+*****
+
+####  刑部姬真可爱  
+##### 35744#       发表于 2025-3-11 22:15
+
+说起来，噶（ga）这个发音是不是在某些方言中有“杀”或者“死”的意思？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

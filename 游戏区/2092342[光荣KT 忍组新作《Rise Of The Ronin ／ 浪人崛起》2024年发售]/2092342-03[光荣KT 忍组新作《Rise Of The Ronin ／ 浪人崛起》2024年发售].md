@@ -555,3 +555,14 @@ PS5跑起来都没啥问题，PC能炸了，那就真的是忍者组技术不行
 
 我把画面尽量调低了，跑倒是能跑，特么梦回PS2时代……
 
+
+*****
+
+####  KENN  
+##### 3461#       发表于 2025-3-11 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67630845&amp;ptid=2092342" target="_blank">萌萌地镜头 发表于 2025-3-11 21:28</a>
+
+1k可以，2k降到低能玩</blockquote>
+bro以为自己是卡表xz多这都敢端上来吗i😅😅😅
+
