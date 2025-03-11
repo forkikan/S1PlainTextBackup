@@ -2513,3 +2513,16 @@ earth有 you are my reason to be<img src="https://static.saraba1st.com/image/smi
 “祥子，我想把我的人生全部给你，都给你”
 这个台词也很不对劲，尤其是看了p站上一个初华监禁爆炒祥子的文之后，就感觉更不能直视了
 
+
+*****
+
+####  钦念以忱  
+##### 35733#       发表于 2025-3-11 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67630550&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-3-11 20:32</a>
+
+你应该去战吧**看看那个神人楼，
+
+我开始奔着找乐子去视奸的，结果看的真掉san了。</blockquote>
+神人楼刚发不久的时候，我看到回帖都在吹捧，我就去看了看他的前一个主贴，看了感觉也没啥啊，不知道为啥捧成这样，再之后神人楼的回帖数就多到了我无法理解的数量。
+

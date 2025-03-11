@@ -12299,3 +12299,16 @@ GQX时间线靠哈罗狠赚一笔的阿姆罗<img src="https://static.saraba1st.
 
 [https://www.bilibili.com/video/BV1T9R5YvEQV](https://www.bilibili.com/video/BV1T9R5YvEQV)
 
+
+*****
+
+####  纪寞  
+##### 8397#       发表于 2025-3-11 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67630502&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-3-11 20:21</a>
+
+说了涂在他家里就是在他家，而且就那点画面就走进去带她们看红高达，后面集数也会继续出现他家啊
+
+设定集刚 ...</blockquote>
+知道是在他家，只是目前看到的墙壁都没发现到，全都是画A，但这个特典却详细介绍了不一样的图案，目前看的切片也不知道有没有漏看的地方。剩下的这些图案不知道是不是画在更隐蔽和深入的地方<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
