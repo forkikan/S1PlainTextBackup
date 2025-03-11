@@ -11785,3 +11785,14 @@ msv也有主教这种17m装塞克谬的ms，正史爆改一下塞进高达里也
 
 这个起名……对………对吗？<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿尔巴尼亚  
+##### 8339#       发表于 2025-3-11 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67626801&amp;ptid=2209276" target="_blank">自演乙. 发表于 2025-3-11 11:29</a>
+
+周末看完之后看了一圈各种假药，感觉日本那边传的那个mav战术有假的假药不太靠谱（当然其他很多就更离谱了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">怎么越传越像杰刚大战大青椒啊，希望别搞巴上帝那一套
+

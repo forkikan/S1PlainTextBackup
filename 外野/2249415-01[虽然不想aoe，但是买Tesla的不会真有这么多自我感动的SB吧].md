@@ -668,3 +668,16 @@ spacex拿kerbal模拟，这灾难性的失败简直是板上钉钉的
 
 其实都是射箭画靶，什么群体里面都有一小撮奇葩
 
+
+*****
+
+####  ryanz  
+##### 74#       发表于 2025-3-11 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67623986&amp;ptid=2249415" target="_blank">刘黄书 发表于 2025-3-10 22:16</a>
+
+前苏州特斯拉店长说过，苏州大部分购买特斯拉的平均家庭收入不到10W，贷款5年比例很高。
+
+【孙少军，特斯拉 ...</blockquote>
+虽然但是，特斯拉五年免息我这个不买特的人都知道，有利息不吃合着人人富家公子是吧。
+

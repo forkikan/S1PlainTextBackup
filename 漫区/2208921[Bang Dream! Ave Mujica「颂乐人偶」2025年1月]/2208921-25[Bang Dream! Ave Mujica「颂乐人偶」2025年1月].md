@@ -1550,3 +1550,101 @@ Imprisoned Ⅻ也是得不到睦这个“天使”回馈的mortis单相思的故
 我到現在也不知道為什麼她要暴怒</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adretyu67.  
+##### 35648#       发表于 2025-3-11 12:17
+
+狗里素对黄瓜不就是突出一个pua。
+
+都是睦的错哦。
+
+不是的
+
+都是睦的错哦
+
+不是的
+
+12话退黄瓜算是一个总爆发了
+
+*****
+
+####  与太郎  
+##### 35649#       发表于 2025-3-11 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67627069&amp;ptid=2208921" target="_blank">老贝 发表于 2025-3-11 12:08</a>
+
+大概是因为诗超绊的时候底下也是一个Mujica成员都没有吧。</blockquote>
+唉，对偶
+
+RiNG作为MyGO的“地盘”，没有反应也太刻意了，希望下一话好歹给个爱音/soyo知道这一茬的镜头吧，mujica这种细节刻画不佳+头重脚轻的感觉太让人难受了
+
+说到RiNG，感觉日本人好像没有谈论凛々子神之一推这个事实有多恐怖的
+
+*****
+
+####  与太郎  
+##### 35650#       发表于 2025-3-11 12:18
+
+人偶后面初祥回应该会提吧，不过也很有可能作为“初华初音双子线索”而被随意回收
+
+关于MyGO12的黄瓜，复读一下我之前的思考 <blockquote>琢磨了一下MyGO#12live之后的对白
+
+「ライブ、どうだった」
+
+「よかったね」
+
+「睦ちゃんにだけは言われたくない」「これ、いらないから」
+
+soyo问话时，视线向左下方漂，因为她心虚同时也还没死心
+
+然后睦的回答戳中了soyo的g点，这个ne是确认的意思，也就是说，soyo的话被睦解读为“演出很好吧（期待承认）”，于是睦回答“是的，很好呢”
+
+然而soyo面对c团前队友，也是曾经想要拉拢着重组c团的睦，睦这样以一种无关人士的态度说出的认可并不是她所期望的
+
+（还有一种过度解读，那就是「よかったね」不仅仅指演出本身，还指soyo和现在MyGO成员的关系重归于好，这个除非能看到台本的ト書き怎么写的不然只能算纯脑补了）
+
+睦本身当然只是发自内心地称赞soyo，但在soyo看来这甚至可以称得上一种怜悯了，于是soyo将某种程度上代表c团关系的黄瓜退回去，也可以说此时的soyo终于对复活c团死心了</blockquote>
+
+
+*****
+
+####  钦念以忱  
+##### 35651#       发表于 2025-3-11 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67627097&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-11 12:12</a>
+
+狗12 回的黃瓜事變就是素姐又風濕發作了
+
+我到現在也不知道為什麼她要暴怒</blockquote>
+素姐觉得睦坑了她，结果现在还给自己送礼祝福
+
+*****
+
+####  z-hunter  
+##### 35652#       发表于 2025-3-11 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67627108&amp;ptid=2208921" target="_blank">595505568 发表于 2025-3-11 12:13</a>
+
+，就很奇怪的风湿；但又感觉能理解，你这人希望C团就算作为乐队不复活，也希望1个月短暂的小家的每一个人 ...</blockquote>
+素世本来就重<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她就希望大家都把C团当小家去怀念去喜欢，那样证明她为C团的贡献是正确的，她是”被需要“的
+
+你看狗12话灯在台上CM，感谢她为乐队做的事一下就把她击沉了。鸡6话听到小莫说睦其实很喜欢C团，她就决定旷课陪莫了
+
+*****
+
+####  595505568  
+##### 35653#       发表于 2025-3-11 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67627157&amp;ptid=2208921" target="_blank">z-hunter 发表于 2025-3-11 12:21</a>
+素世本来就重她就希望大家都把C团当小家去怀念去喜欢，那样证明她为C团的贡献是正确的，她是”被需要“的 ...</blockquote>
+所以睦那段话基本上是抛弃了这层关系性啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，素世怒也很正常吧（）
+
+*****
+
+####  qlipho  
+##### 35654#       发表于 2025-3-11 12:25
+
+睦头觉得素世有新乐队了祝福下，素世就风湿犯了。仔细一想，爽姐也挺爱哈气的，唉素祥
+
