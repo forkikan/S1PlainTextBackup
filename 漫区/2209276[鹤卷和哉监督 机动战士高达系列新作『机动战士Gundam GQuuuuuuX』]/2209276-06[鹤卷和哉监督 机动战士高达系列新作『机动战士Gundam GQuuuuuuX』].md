@@ -12146,3 +12146,21 @@ xx之战就是大陆版的神鬼xx，当时史茅革之战给我恶心坏了<img
 
 如果3月23号也没有提0079那部分怎么安排，剧场版还是很有意义的，不单去电影院补体验，而且也还能赶上在GQ的第2集播出之前，比之前预计五一档好太多倍了
 
+
+*****
+
+####  kuriri  
+##### 8382#       发表于 2025-3-11 16:01
+
+高达跨跨跨跨跨跨世<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿尔巴尼亚  
+##### 8383#       发表于 2025-3-11 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67628742&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-3-11 15:55</a>
+
+如果3月23号也没有提0079那部分怎么安排，剧场版还是很有意义的，不单去电影院补体验，而且也还能赶上在GQ ...</blockquote>
+今年清明早一些在4.4，应该一集都还没播相当于提前点映了
+
