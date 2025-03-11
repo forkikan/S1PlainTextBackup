@@ -660,3 +660,16 @@ PC版宣传特性：120帧高帧率&amp;更高的画质。<img src="https://stat
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  真田源次郎信繁  
+##### 3472#       发表于 2025-3-11 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67631455&amp;ptid=2092342" target="_blank">wtyrambo 发表于 2025-3-11 23:16</a>
+
+我是没觉得多糊，开的分辨率模式，因为帧数模式真的没流畅多少</blockquote>
+你是pro吧
+
+普通ps5分辨率模式没清楚多少，帧数是立竿见影地下降了
+
