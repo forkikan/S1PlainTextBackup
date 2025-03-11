@@ -229,3 +229,11 @@ pc版我反正不买了，忍组吃屎去吧<img src="https://static.saraba1st.c
 
 要求空间150G吗，下载100G，有这么大容量吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  忧蓝  
+##### 3427#       发表于 2025-3-11 12:56
+
+想知道steamdeck能玩吗<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
