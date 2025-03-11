@@ -492,3 +492,11 @@ ore miner is under attack<img src="https://static.saraba1st.com/image/smiley/fac
 这翻译对么，在军事基地建金属精炼设施有什么意义</blockquote>
 如果是收二手充电头回来炼稀土满足部分高精尖设备的维护需求说不定还是够的<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  马虎  
+##### 51#       发表于 2025-3-11 20:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">川之炼金术士
+
