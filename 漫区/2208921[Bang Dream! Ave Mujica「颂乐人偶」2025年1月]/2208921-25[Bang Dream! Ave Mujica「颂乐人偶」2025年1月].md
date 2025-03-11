@@ -1850,3 +1850,22 @@ https://b23.tv/U5fTBxq<img src="https://p.sda1.dev/22/097a63a28eb68704301eb83fab
 
 狗8时候见到了祥，但是祥已经开始筹划鸡团了。
 
+
+*****
+
+####  z-hunter  
+##### 35672#       发表于 2025-3-11 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67627539&amp;ptid=2208921" target="_blank">595505568 发表于 2025-3-11 13:21</a>
+
+还是来看看关系性能不能进游戏以后更加一团乱麻吧，不会我要真的作为素/柑推吃素世作为链接者没有主CP的苦 ...</blockquote>
+不怕的，就算没有主CP，素灯素爱素希写起来也是很有意思的。
+
+素这孩子主打一个别扭，现在在狗团就是一个躺平，非常享受你有事来求我我才来帮忙的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我”被需要“了嘛
+
+发展下去还是会回到知心大姐姐（妈妈）的角色的。所以弱化版莉莎确实没错
+
+还能期待她被香澄透子莉莎这些社牛破防了之后，现出本性本音的时刻。特别是透子，也是月之森的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+至于和鸡团成员的互动，还要看这动画完结之后狗鸡团会是什么状态<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
