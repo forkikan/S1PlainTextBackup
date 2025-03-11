@@ -1869,3 +1869,13 @@ https://b23.tv/U5fTBxq<img src="https://p.sda1.dev/22/097a63a28eb68704301eb83fab
 
 至于和鸡团成员的互动，还要看这动画完结之后狗鸡团会是什么状态<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  非建政专用号  
+##### 35673#       发表于 2025-3-11 15:20
+
+怎么一听感觉大素老师应该去母鸡卡一脚把大象踢死，往地上一躺就对着四个神人说来扣我吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
