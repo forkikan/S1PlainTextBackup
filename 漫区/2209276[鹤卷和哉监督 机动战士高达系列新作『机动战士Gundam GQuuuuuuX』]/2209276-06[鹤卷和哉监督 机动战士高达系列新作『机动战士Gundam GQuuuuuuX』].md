@@ -11645,3 +11645,32 @@ GQX陆战应该是喷射移动的，类似大魔。
 83哪来可以直接塞进高达里还可以不改变整机尺寸的无线塞可缪系统，更别说79了，而且到 新安洲/独角兽 之前 ...</blockquote>
 整体水平没太大变化<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">？钢加农肩膀上扛着的照射大炮在正史只有钢弹四号机有同等水平的，四号机射一发就要自爆了，gux的钢加农压根就没副作用，同是魔改uc的雷霆宙域也只只给高达装了个高出力光束炮，照射想都不敢想
 
+
+*****
+
+####  g救世主高达  
+##### 8327#       发表于 2025-3-11 10:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67615228&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-3-9 19:51</a>
+
+83哪来可以直接塞进高达里还可以不改变整机尺寸的无线塞可缪系统，更别说79了，而且到 新安洲/独角兽 之前 ...</blockquote>
+msv也有主教这种17m装塞克谬的ms，正史爆改一下塞进高达里也不是不可能，再说正史uc联邦村雨84年就搞出来ntx这种塞克谬高达了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+720px-战斗行动主教_立绘.png
+(490.93 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-11 10:15 上传
+
+<img src="https://img.saraba1st.com/forum/202503/11/101545f9a251p1a6khbara.png" referrerpolicy="no-referrer">
+
+250px-RX-78NT-XNT-X.jpg
+(23.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-11 10:15 上传
+
+<img src="https://img.saraba1st.com/forum/202503/11/101547m90v0uvmdo5nd29v.jpg" referrerpolicy="no-referrer">
+

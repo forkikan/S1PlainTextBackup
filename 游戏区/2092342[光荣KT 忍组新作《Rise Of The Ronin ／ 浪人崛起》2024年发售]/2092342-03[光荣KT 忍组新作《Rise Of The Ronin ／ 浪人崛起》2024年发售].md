@@ -175,3 +175,13 @@ pc版我反正不买了，忍组吃屎去吧<img src="https://static.saraba1st.c
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">预载都没有啊
 
+
+*****
+
+####  woshenc  
+##### 3421#       发表于 2025-3-11 10:22
+
+是今天发售，不是22号啊？
+
+不过看了你们的优化评价，我的3070不一定带的动，还是再等等算了
+
