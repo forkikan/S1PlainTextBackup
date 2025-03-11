@@ -222,3 +222,13 @@
 
 青子到糖果藤蔓连发啊
 
+
+*****
+
+####  lcn  
+##### 47057#       发表于 2025-3-11 20:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67599677&amp;ptid=1712412" target="_blank">khxooo 发表于 2025-3-7 16:45</a>
+旧剑那个池子才有</blockquote>
+有没有说是几号开？
+

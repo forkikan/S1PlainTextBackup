@@ -2504,3 +2504,12 @@ XX年未有之⭐压抑企划
 其他歌也不太对劲</blockquote>
 earth有 you are my reason to be<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ape-apple  
+##### 35732#       发表于 2025-3-11 20:55
+
+“祥子，我想把我的人生全部给你，都给你”
+这个台词也很不对劲，尤其是看了p站上一个初华监禁爆炒祥子的文之后，就感觉更不能直视了
+
