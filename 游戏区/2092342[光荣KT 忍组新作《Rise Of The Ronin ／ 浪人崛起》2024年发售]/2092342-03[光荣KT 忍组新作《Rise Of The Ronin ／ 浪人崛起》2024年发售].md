@@ -515,3 +515,21 @@ PS5跑起来都没啥问题，PC能炸了，那就真的是忍者组技术不行
 
 刚买还没打开，4060ti+12400能不能玩
 
+
+*****
+
+####  萌萌地镜头  
+##### 3456#       发表于 2025-3-11 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67630808&amp;ptid=2092342" target="_blank">KENN 发表于 2025-3-11 21:21</a>
+刚买还没打开，4060ti+12400能不能玩</blockquote>
+1k可以，2k降到低能玩
+
+
+*****
+
+####  ae云岚  
+##### 3457#       发表于 2025-3-11 21:31
+
+躲过了卧龙这坨屎还是躲不过浪人，栽光荣手里了，这垃圾优化真好意思一百多个g端上来<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+

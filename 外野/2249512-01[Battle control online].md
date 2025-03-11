@@ -524,3 +524,11 @@ ore miner is under attack<img src="https://static.saraba1st.com/image/smiley/fac
 
 不修重工修精炼厂
 
+
+*****
+
+####  露综bot一号机  
+##### 55#       发表于 2025-3-11 21:35
+
+怪不得毛子经济还没破产，红场上建了制造工厂是吧
+

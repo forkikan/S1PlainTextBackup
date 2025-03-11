@@ -12312,3 +12312,11 @@ GQX时间线靠哈罗狠赚一笔的阿姆罗<img src="https://static.saraba1st.
 设定集刚 ...</blockquote>
 知道是在他家，只是目前看到的墙壁都没发现到，全都是画A，但这个特典却详细介绍了不一样的图案，目前看的切片也不知道有没有漏看的地方。剩下的这些图案不知道是不是画在更隐蔽和深入的地方<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qb0079  
+##### 8398#       发表于 2025-3-11 21:31
+
+<img src="https://static.saraba1st.com/image/smiley/bundam2017/037.png" referrerpolicy="no-referrer">这会引进总结觉得奇怪
+
