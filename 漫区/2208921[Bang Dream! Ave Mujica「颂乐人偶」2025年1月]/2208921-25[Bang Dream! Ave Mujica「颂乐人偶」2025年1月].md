@@ -2292,3 +2292,26 @@ XX年未有之⭐压抑企划
  ...</blockquote>
 尸体半身 还是漏油会抠糖
 
+
+*****
+
+####  梅杜莎  
+##### 35711#       发表于 2025-3-11 19:12
+
+<img src="https://img.saraba1st.com/forum/202503/11/191207igf6yvwuyc6wgmf3.jpg" referrerpolicy="no-referrer">
+
+<strong>ff8d53cd86ff6f609bada2d482b028f911039355.jpg</strong> (357.51 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-11 19:12 上传
+
+*****
+
+####  z-hunter  
+##### 35712#       发表于 2025-3-11 19:12
+
+听了好几遍Imprisoned，歌真是好歌，李子唱得也好。
+
+看了下歌词似乎更适合献给魔圆叛逆物语的粉黑，放在mujica太浪费了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

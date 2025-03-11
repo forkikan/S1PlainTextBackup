@@ -411,3 +411,18 @@ pc版我反正不买了，忍组吃屎去吧<img src="https://static.saraba1st.c
 
 忍组太有诚意啦，这下买cdk的冤大头是遭重了
 
+
+*****
+
+####  真蓝眼红Z  
+##### 3446#       发表于 2025-3-11 19:08
+
+上手玩和去年看实机演示的感受一样，视角太烂了
+
+*****
+
+####  ネロ  
+##### 3447#       发表于 2025-3-11 19:08
+
+当初预购卧龙豪华版被狠狠背刺后，不预购忍组任何作品是明智选择<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

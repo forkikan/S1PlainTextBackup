@@ -446,3 +446,30 @@ ore miner is under attack<img src="https://static.saraba1st.com/image/smiley/fac
 
 2025-3-11 19:05 上传
 
+
+*****
+
+####  巨魔已被忠诚  
+##### 46#       发表于 2025-3-11 19:08
+
+规模上不去，搁这儿造10级英雄单位决胜兵器呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  武川日玄  
+##### 47#       发表于 2025-3-11 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67628982&amp;ptid=2249512" target="_blank">泰坦失足 发表于 2025-3-11 16:24</a>
+
+东厂马不就是爱因斯坦的同位体吗</blockquote>
+明明是尤里，总统的顾问。
+
+*****
+
+####  泥鳅化石  
+##### 48#       发表于 2025-3-11 19:10
+
+看来老中卡稀土卡的自由世界飞机军舰雷达没法量产是真的难受，问题搞出来这点量够几个史密斯专员分钱啊？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
