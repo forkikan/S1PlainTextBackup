@@ -925,3 +925,13 @@ mygo里看春日影哭着跑出去的时候给初华打的电话吧，我感觉�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">不变态还不喜欢，看完第九集第十集转型初华激推了
 
+
+*****
+
+####  Licheus  
+##### 91#       发表于 2025-3-11 16:22
+
+感觉一个变态的都没有。全给写成简单又无聊的角色了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

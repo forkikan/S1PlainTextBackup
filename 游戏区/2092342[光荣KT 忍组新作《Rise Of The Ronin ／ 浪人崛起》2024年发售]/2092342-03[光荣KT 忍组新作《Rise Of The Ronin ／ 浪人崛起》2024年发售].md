@@ -304,3 +304,28 @@ pc版我反正不买了，忍组吃屎去吧<img src="https://static.saraba1st.c
 
 2025-3-11 16:09 上传
 
+
+*****
+
+####  chm007  
+##### 3434#       发表于 2025-3-11 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67610613&amp;ptid=2092342" target="_blank">病態極端 发表于 2025-3-8 23:56</a>
+
+看來優化不如怪獵荒野</blockquote>
+荒野你配置拉满，画面是相当精细的，浪人你配置拉满，画面也就那样
+
+*****
+
+####  wtyrambo  
+##### 3435#       发表于 2025-3-11 16:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">PS5跑起来都没啥问题，PC能炸了，那就真的是忍者组技术不行了
+
+*****
+
+####  kalavinka  
+##### 3436#       发表于 2025-3-11 16:28
+
+看隔壁帖子，忍组游戏pc都上几个了，优化差就算了，怎么还有这个缺解码器过场和招式演示就放不出的问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

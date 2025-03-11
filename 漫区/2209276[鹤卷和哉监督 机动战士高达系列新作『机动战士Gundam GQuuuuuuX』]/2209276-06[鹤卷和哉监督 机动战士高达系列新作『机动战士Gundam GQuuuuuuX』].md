@@ -12172,3 +12172,13 @@ xx之战就是大陆版的神鬼xx，当时史茅革之战给我恶心坏了<img
 
 夏亚：我只说我看见了时间，没说跨过去啊，是夏利亚听错了么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 8385#       发表于 2025-3-11 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67628787&amp;ptid=2209276" target="_blank">阿尔巴尼亚 发表于 2025-3-11 16:02</a>
+今年清明早一些在4.4，应该一集都还没播相当于提前点映了</blockquote>
+就是离第1集的播出时间太近了才说在第2集播出之前，电影的是2集的量
+
