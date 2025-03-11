@@ -639,3 +639,14 @@ PC版宣传特性：120帧高帧率&amp;更高的画质。<img src="https://stat
 
 实际：官方不建议玩家开启高画质和120帧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  captoon  
+##### 3470#       发表于 2025-3-11 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67631449&amp;ptid=2092342" target="_blank">cherry__ 发表于 2025-3-11 23:15</a>
+
+预购奖励在哪里领啊</blockquote>
+剧情要推进一大段后，你有自己的小屋才能领
+
