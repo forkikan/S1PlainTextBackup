@@ -221,3 +221,11 @@ pc版我反正不买了，忍组吃屎去吧<img src="https://static.saraba1st.c
 
 荒野实在没啥刷的了，还是当凯子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  千千千千鸟  
+##### 3426#       发表于 2025-3-11 12:37
+
+要求空间150G吗，下载100G，有这么大容量吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

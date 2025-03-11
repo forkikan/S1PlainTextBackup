@@ -691,3 +691,23 @@ spacex拿kerbal模拟，这灾难性的失败简直是板上钉钉的
 
 —— 来自 OnePlus LE2100, Android 14, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
 
+
+*****
+
+####  十点半  
+##### 76#       发表于 2025-3-11 12:38
+
+十年前一个同学因为粉罗永浩买了锤子手机，一问连罗永浩原本是英语老师都不知道。
+
+
+*****
+
+####  我来组成头部  
+##### 77#       发表于 2025-3-11 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67626474&amp;ptid=2249415" target="_blank">drodchang 发表于 2025-3-11 10:55</a>
+特斯拉确实是电车先行者，和奔驰在油车中差不多地位，现在奔驰还有不少人卖呢，何况特斯拉。 ...</blockquote>
+啥先行，保时捷做电车时马斯克还不在他爹卵子里呢
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

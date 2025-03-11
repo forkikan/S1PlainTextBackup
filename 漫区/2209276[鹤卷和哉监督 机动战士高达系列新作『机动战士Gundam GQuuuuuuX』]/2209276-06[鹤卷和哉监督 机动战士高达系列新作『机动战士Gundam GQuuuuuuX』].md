@@ -11833,3 +11833,47 @@ msv也有主教这种17m装塞克谬的ms，正史爆改一下塞进高达里也
 
 主角机统一译名，就叫跨时高达了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿尔巴尼亚  
+##### 8345#       发表于 2025-3-11 12:36
+
+感觉跨时动词作名词不是很好，而且也不是正常的组词
+
+*****
+
+####  AvenueIII  
+##### 8346#       发表于 2025-3-11 12:37
+
+有可能想表达前后半跨越时间上演且谐音qux吧
+
+*****
+
+####  巴尔干炮  
+##### 8347#       发表于 2025-3-11 12:37
+
+噗，还不如直接叫新高达
+
+
+*****
+
+####  虛無迴廊  
+##### 8348#       发表于 2025-3-11 12:42
+
+叫做新高达那以后不新了怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿尔巴尼亚  
+##### 8349#       发表于 2025-3-11 12:44
+
+新机动战士高达w，，，
+
+*****
+
+####  Gysumitka  
+##### 8350#       发表于 2025-3-11 12:45
+
+跨时之战这听着就没有什么观看欲望<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
