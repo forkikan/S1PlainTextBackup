@@ -399,3 +399,50 @@ mission fail<img src="https://static.saraba1st.com/image/smiley/face2017/067.png
 
 ore miner is under attack<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starwarszjm  
+##### 42#       发表于 2025-3-11 18:58
+
+ 本帖最后由 starwarszjm 于 2025-3-11 19:00 编辑 
+
+真玩红警呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  哌啶  
+##### 43#       发表于 2025-3-11 19:02
+
+ 本帖最后由 哌啶 于 2025-3-11 19:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67629886&amp;ptid=2249512" target="_blank">月灵银羽 发表于 2025-3-11 18:24</a>
+
+最抽象的不是发了电的小兵还能活着出来吗？你尤里还怪人道的
+
+论坛助手,iPhone ...</blockquote>
+所以其实是小兵在里面骑自行车发电<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/79def1e0c976b68e86ab436cb622656e/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  这是闹球甚  
+##### 44#       发表于 2025-3-11 19:05
+
+缺精炼厂吗？缺的是超时空矿车啊，矿都运不回去要精炼厂有卵用<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  用户名已注册  
+##### 45#       发表于 2025-3-11 19:05
+
+<img src="https://img.saraba1st.com/forum/202503/11/190509vwr3jbas99719sk9.jpg" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2025-03-11_19-03-04.jpg</strong> (77.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-11 19:05 上传
+
