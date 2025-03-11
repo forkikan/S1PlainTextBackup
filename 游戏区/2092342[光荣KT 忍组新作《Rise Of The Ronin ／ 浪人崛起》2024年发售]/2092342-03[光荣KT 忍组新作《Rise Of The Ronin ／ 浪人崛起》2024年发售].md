@@ -288,3 +288,19 @@ pc版我反正不买了，忍组吃屎去吧<img src="https://static.saraba1st.c
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  Redimercia  
+##### 3433#       发表于 2025-3-11 16:09
+
+能让team ninja老屁股都绷不住的神人优化
+
+<img src="https://img.saraba1st.com/forum/202503/11/160922y86azfcar7afbcbf.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2025-03-11 160849.png</strong> (37.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-11 16:09 上传
+
