@@ -576,3 +576,17 @@ ore miner is under attack<img src="https://static.saraba1st.com/image/smiley/fac
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">low power
 
+
+*****
+
+####  auraria  
+##### 61#       发表于 2025-3-12 07:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67629348&amp;ptid=2249512" target="_blank">东窗下的鸟 发表于 2025-3-11 17:11</a>
+为什么让美军来搞，这是霉菌擅长的事吗
+
+—— 来自 S1Fun</blockquote>
+美军最擅长花100亿交几张PPT上去还不怕国会追查<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI GRL-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+

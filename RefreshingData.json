@@ -2265,7 +2265,7 @@
     "lastedit": 1741689960,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1804478": {
     "totalreply": 1242,
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 151231,
+    "totalreply": 151232,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1741734729,
+    "lastedit": 1741735574,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -11484,10 +11484,10 @@
     "update": false
   },
   "2246209": {
-    "totalreply": 5067,
+    "totalreply": 5069,
     "title": "[俄乌专楼-2025年2月版]",
     "newtitle": "[俄乌专楼-2025年2月版]",
-    "lastedit": 1741732811,
+    "lastedit": 1741735449,
     "category": "外野",
     "active": true,
     "update": false
@@ -17406,10 +17406,10 @@
     "update": false
   },
   "2249512": {
-    "totalreply": 60,
+    "totalreply": 61,
     "title": "[Battle control online]",
     "newtitle": "[Battle control online]",
-    "lastedit": 1741706174,
+    "lastedit": 1741735209,
     "category": "外野",
     "active": true,
     "update": false
