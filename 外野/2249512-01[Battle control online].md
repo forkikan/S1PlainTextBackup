@@ -622,3 +622,11 @@ ore miner is under attack<img src="https://static.saraba1st.com/image/smiley/fac
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67629897&amp;ptid=2249512" target="_blank">Ny 发表于 2025-3-11 18:26</a></blockquote>
 这红警五角大楼干啥用的？
 
+
+*****
+
+####  刑部姬真可爱  
+##### 65#       发表于 2025-3-12 10:03
+
+曾经以为红警2系列是魔幻科幻，没想到是预测未来<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
