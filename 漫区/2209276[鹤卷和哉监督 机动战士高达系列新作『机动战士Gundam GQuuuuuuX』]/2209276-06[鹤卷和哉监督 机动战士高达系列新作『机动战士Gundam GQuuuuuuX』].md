@@ -12952,3 +12952,13 @@ G跨时蛮好的，干嘛加个之战
 
 话说国内最近今年引进的日本片里有这种tv先行版电影的吗，感觉路人观众看完要连续懵逼两次。不知道到时候国内咋宣发<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  YU_JI  
+##### 8454#       发表于 2025-3-12 23:47
+
+【【中日字幕/爆笑配音】高达GQuuuuuuX 阿姆罗的5种结局-哔哩哔哩】 https://b23.tv/beNtU51
+
+所以这作究竟会不会提到骡子呢？还是真的从头到尾会查无此人
+

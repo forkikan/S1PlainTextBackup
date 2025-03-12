@@ -907,3 +907,20 @@ PC版宣传特性：120帧高帧率&amp;更高的画质。<img src="https://stat
 玩了一小时，太久没玩忍组的游戏了
 咋感觉按键设置那么逆天
 
+
+*****
+
+####  nage560  
+##### 3497#       发表于 2025-3-12 23:49
+
+安田表态没有DLC计划了，看来浪人的确亏大钱了，卧龙都能出3个DLC，你安田号称浪人是近年最大野心之作连个DLC都没有<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Booorunestud  
+##### 3498#       发表于 2025-3-12 23:54
+
+石火不同难度下判定时机长度不同，不同流派的动作的判定时机也不同，公认的轮椅之一就是立身流的石火，很简单，另外流派克制状况也影响石火长度
+我挺讨厌这设定的<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
