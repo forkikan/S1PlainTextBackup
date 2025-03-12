@@ -12873,3 +12873,34 @@ G跨时蛮好的，干嘛加个之战
 
 这次不搞百合的话，可以引进TV了吧
 
+
+*****
+
+####  patema  
+##### 8447#       发表于 2025-3-12 21:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">便宜儿子
+
+
+*****
+
+####  灵魂收割机  
+##### 8448#       发表于 2025-3-12 21:02
+
+ 本帖最后由 灵魂收割机 于 2025-3-12 21:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67638035&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-3-12 19:14</a>
+
+虽然大家的理由是觉得宣传就应该是开播期间整而不是作品结束了再整，反正也快到23号了看怎么样
+
+ ...</blockquote>
+这是什么联动，有无链接？
+
+搜到了：[https://recommend.jr-central.co.jp/oshi-tabi/gundam45/](https://recommend.jr-central.co.jp/oshi-tabi/gundam45/)
+
+*****
+
+####  岸浪白野  
+##### 8449#       发表于 2025-3-12 21:04
+
+想着联动还没有GQ那边的图所以没有发
+

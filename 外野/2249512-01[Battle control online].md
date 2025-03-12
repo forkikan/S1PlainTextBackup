@@ -694,3 +694,11 @@ building infiltrated，cash stolen</blockquote>
 说起来红警里最抽象的是尤里电厂，能放小兵进去发电</blockquote>
 心灵能量科技嘛，都可以让物体漂浮起来了，而且不止尤里新兵，只要是用尤里心灵感应控制的敌方步兵都能扔进去
 
+
+*****
+
+####  Andariel  
+##### 72#       发表于 2025-3-12 21:02
+
+第二句是new construction options吧.....
+
