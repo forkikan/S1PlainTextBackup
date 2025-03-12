@@ -4448,3 +4448,36 @@ mygo也是故事决定了角色，这就是绫奈的创作方式了，她访谈�
 素睦挺好的，优点缺点都很明显，优点就是两个人明明没有必要在一起的理由，总是会想着去建立联系，缺点是只 ...</blockquote>
 兜底也很好了，这也是一种被需要<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  钦念以忱  
+##### 35897#       发表于 2025-3-12 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67635522&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-12 14:23</a>
+我不喜欢双子说。因为目前我看不到任何必须使用双子说才能表达的内容。双子说隐藏了真相。但这个真相是否又 ...</blockquote>
+从让祥子失去一切的角度，双子还是有意义的，祥子美好童年回忆里的真初华已经没了
+
+—— 来自 HUAWEI HLK-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  qlipho  
+##### 35898#       发表于 2025-3-12 15:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">看完柿本访谈后还能对鸡保有感情或期待 是挺神人的
+
+*****
+
+####  thisisaspider  
+##### 35899#       发表于 2025-3-12 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67635945&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-12 15:12</a>
+
+从让祥子失去一切的角度，双子还是有意义的，祥子美好童年回忆里的真初华已经没了
+
+—— 来自 HUAWEI HLK ...</blockquote>
+那要表达什么？不就是凹人设。是说祥子失去一切后重新站起来，还是说失去一切的祥子最后会怎么样？
+
+双子说要破坏的是整个故事的底层，但是目前找不到符合的主题。
+

@@ -327,3 +327,15 @@ CelticWhite：
 
 希望下次巡演能在日多玩几天，结束就跑机场赶回国内太难绷了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 1551#       发表于 2025-3-12 15:08
+
+「LOVELIVE」 Liella 首个冠名电视节目『Liella!のちゅーとりえら!!』2025年4月3日开始，连续5周放送决定！
+
+电视节目，会搞什么。。这个资源拉的是真厉害。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
