@@ -279,3 +279,21 @@
 
 突发奇想，狂那因为np不够，那换呆毛王不就行了，宝具后置20充能，但是一张指令卡伤害不够，需要两张，好在龙心染色无论发到什么卡都行，但是确实就是需要两张，一宝也够
 
+
+*****
+
+####  khxooo  
+##### 47063#       发表于 2025-3-13 00:49
+
+5加成，5宝铃鹿+3宝飞嫂+找C呆+胜雪。其中铃鹿被动2要10级，飞嫂带100级弗莉多礼装，我宁愿5加成都不想自己出奥伯龙/C呆<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 47064#       发表于 2025-3-13 00:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67639423&amp;ptid=1712412" target="_blank">朝仓和美 发表于 2025-3-12 22:54</a>
+
+我选的咕哒子是扮演女主，咕哒夫的话是什么剧情？</blockquote>
+国服Skip了，但是依稀记得咕哒夫就是女装，然后扮演女主<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
