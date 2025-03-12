@@ -3535,3 +3535,23 @@ soyo:只要我把祥子拉回来，小睦就自动跟随了
 
 声优还能说啥 声优谈感想在我这现在和放屁没区别了已经<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天空塔书记官  
+##### 35820#       发表于 2025-3-12 09:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  真爱与热情  
+##### 35821#       发表于 2025-3-12 09:26
+
+我觉得不能以冲国人的思维来看声优访谈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这毕竟是给霓虹人看的，所以不见得是声优对剧情不满意
+
