@@ -5359,3 +5359,11 @@ CV吃这碗饭没办法,只能捏着鼻子找补,蚀本太变态了
 
 事到如今，不如出第三季吧，主线就是ccc的重建了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  老贝  
+##### 35974#       发表于 2025-3-13 01:35
+
+Crychic的第二次正式演出绝对值一个剧场版，tv有点太憋屈了。<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
