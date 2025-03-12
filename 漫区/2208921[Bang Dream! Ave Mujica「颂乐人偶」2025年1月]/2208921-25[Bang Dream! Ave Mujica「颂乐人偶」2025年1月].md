@@ -4320,3 +4320,43 @@ mygo也是故事决定了角色，这就是绫奈的创作方式了，她访谈�
 
 我推睦祥到现在还没平复下来
 
+
+*****
+
+####  adretyu67.  
+##### 35884#       发表于 2025-3-12 14:08
+
+实际上我觉得关于监禁12的评价分化问题其实挺奇葩的。
+
+监禁12的创作逻辑其实是非常邦多利的作品（初华虽然谁都能看的出来重的要死，但是为什么重一直没说）。
+
+但是现在已经成了星压抑神曲<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 35885#       发表于 2025-3-12 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67635335&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-12 14:00</a>
+太惨了，那个up转推睦祥破防就把暗恋哭墙关了
+
+这很mujica，倾尽全力比不过天赋怪举手投足间的演技张力 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就真的最后看着他们换哭墙也有点心情复杂，有种老素本素的感觉，夹在中间没有自己的归处
+
+*****
+
+####  thisisaspider  
+##### 35886#       发表于 2025-3-12 14:12
+
+我已经不对一般观众对这部剧有正确认识抱有期望了。他们爱怎么理解就怎么评论咯。反正，有问题的一定不是我。对吧，WSD。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 35887#       发表于 2025-3-12 14:15
+
+其实这一看，小姨子反而是设计的最正常的关系性。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
