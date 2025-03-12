@@ -12857,3 +12857,11 @@ G跨时蛮好的，干嘛加个之战
 
 之前就有消息说是季番，反正我现在也接受了<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Steel.Haze  
+##### 8445#       发表于 2025-3-12 20:26
+
+然后我突然回忆起来高达出现180度扭头机炮攻击然后转身，是V高达的战斗镜头，庵野果然忘不了高达V！
+
