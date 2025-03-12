@@ -4077,3 +4077,11 @@ https://bgm.tv/subject/topic/33083
 
 查看全部评分
 
+
+*****
+
+####  莫名奇妙封ID  
+##### 361#       发表于 2025-3-12 18:18
+
+顶着卡顿玩了 20 多个小时，才发现是字体的原因导致的…安装好字体就不再卡了，让自己眼睛辛苦了这么长时间<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
