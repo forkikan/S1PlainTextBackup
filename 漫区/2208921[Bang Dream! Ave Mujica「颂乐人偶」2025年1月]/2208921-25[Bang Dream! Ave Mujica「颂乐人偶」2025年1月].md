@@ -4815,3 +4815,57 @@ mygo也是故事决定了角色，这就是绫奈的创作方式了，她访谈�
 x：gM4zFiJCWbz3G4y
 <img src="https://p.sda1.dev/22/1ccde286d69c45e7a6c2e09fe15ba863/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhoujin8584  
+##### 35928#       发表于 2025-3-12 17:50
+
+赶人是肯定的，初祥真没几个粉，都说睦祥二人转，确实2.5企划大女主的收视率靠的就是顶流顶番，官配二人转，一超多强。
+
+还有攻决定上限，受决定下限。
+
+睦祥垫了素睦，大概周末过200万的水平
+
+初祥线周末能到200万算是祥厨已经结晶了。<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  z-hunter  
+##### 35929#       发表于 2025-3-12 17:54
+
+话说老登为什么现在要赶人？mujica1.0的时候不赶？老登没有看过mujica1.0和sumimi，不知道初音在东京的工作？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wyjbnb  
+##### 35930#       发表于 2025-3-12 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67637419&amp;ptid=2208921" target="_blank">z-hunter 发表于 2025-3-12 17:54</a>
+
+话说老登为什么现在要赶人？mujica1.0的时候不赶？老登没有看过mujica1.0和sumimi，不知道初音在东京的工作 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">估计是真不知道孙女跟小姨混一起去了吧
+
+*****
+
+####  ntrntr1  
+##### 35931#       发表于 2025-3-12 17:56
+
+ 本帖最后由 ntrntr1 于 2025-3-12 17:57 编辑 
+<blockquote>595505568 发表于 2025-3-12 17:22
+感人不感人先不提，不要赶人就可以了</blockquote>
+
+现在留着的都是等着看的。
+
+爱看。小姨搞快点。
+
+*****
+
+####  ntrntr1  
+##### 35932#       发表于 2025-3-12 17:57
+
+老师我们大祥一定要当0吗
+
+支持大祥幡然悔悟游泳跨海一次扣两个两个的人生都交给我
+
