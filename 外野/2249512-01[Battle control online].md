@@ -647,3 +647,13 @@ ore miner is under attack<img src="https://static.saraba1st.com/image/smiley/fac
 
 building infiltrated，cash stolen
 
+
+*****
+
+####  ljy524197227  
+##### 68#       发表于 2025-3-12 16:06
+
+断电精炼器启动
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
