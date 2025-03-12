@@ -3469,3 +3469,20 @@ soyo:只要我把祥子拉回来，小睦就自动跟随了
 一代初华和祥姥姥都先后去世</blockquote>
 再这样下去，就要变成初华才是真正的丰川祥子了
 
+
+*****
+
+####  adw667  
+##### 35813#       发表于 2025-3-12 08:48
+
+<blockquote>喵梦并非随意发送，而是为了凝聚AveMujica而深思熟虑后的行动</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  南宮凝香  
+##### 35814#       发表于 2025-3-12 08:56
+
+聲優訪談就是開盾+洗白自角+賣CP
+
