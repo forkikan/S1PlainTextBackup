@@ -735,3 +735,13 @@ PC版宣传特性：120帧高帧率&amp;更高的画质。<img src="https://stat
 
 对了，你们开局选什么职业？是不是最后那个最废的一无所有最好？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  手铐君  
+##### 3479#       发表于 2025-3-12 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67633541&amp;ptid=2092342" target="_blank">woshenc 发表于 2025-3-12 10:34</a>
+对了，你们开局选什么职业？是不是最后那个最废的一无所有最好？</blockquote>
+没啥区别，和rpg加点那种不太一样
+
