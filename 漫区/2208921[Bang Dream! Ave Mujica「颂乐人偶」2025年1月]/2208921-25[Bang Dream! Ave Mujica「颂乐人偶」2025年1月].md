@@ -5084,3 +5084,14 @@ mana看到初华下车只感觉浑身轻松，轻轻的叹了口气，
 
 谁能伺候好小女儿，谁就有赏<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Q.R.O.W  
+##### 35949#       发表于 2025-3-12 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67630882&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-3-11 21:35</a>
+
+笑死，怎么弄弄自己也是一脸南蚌的表情，现在终于知道和自己做节目的隔壁那个兔子多让人南蚌吧（大西还会 ...</blockquote>
+有点先入为主了吧兄弟，仔细看下原live，所谓表情是一个连续的过程，在李子唱到副歌高潮的部分时对歌曲中投入的情感有一种理解、届到的回应，只用一张截图来以偏概全不太对。
+

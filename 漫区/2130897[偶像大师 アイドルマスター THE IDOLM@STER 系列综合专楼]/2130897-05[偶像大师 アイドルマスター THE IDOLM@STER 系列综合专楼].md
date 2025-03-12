@@ -103,3 +103,35 @@ PS：3/22當天沒有線上觀賞券賣，即<strong>當天沒有轉播</strong>
 
 EGO的伴奏够劲
 
+
+*****
+
+####  wfhtony  
+##### 6952#       发表于 2025-3-12 19:39
+
+本家BEST系列的後兩張SACD即日起開賣（之前沒有任何販賣相關的消息/通知，[通稿](https://av.watch.impress.co.jp/docs/news/1669455.html)是今天才出）。
+
+<img src="https://img.saraba1st.com/forum/202503/12/193724pot0vq5jd0q5qz59.png" referrerpolicy="no-referrer">
+
+<strong>THE_IDOLM@STER__ステレオサウンドストア_和其他_15_個頁面_-_Main_-_Mi_2025-03-12_1.png</strong> (261 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-12 19:37 上传
+
+<img src="https://img.saraba1st.com/forum/202503/12/193846h96n18iiv885l88n.jpg" referrerpolicy="no-referrer">
+
+<strong>idolmaster_4.jpg</strong> (123.79 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-12 19:38 上传
+
+<img src="https://img.saraba1st.com/forum/202503/12/193846e4bb47tbq5woodb4.jpg" referrerpolicy="no-referrer">
+
+<strong>SSMS-079080_jacket.jpg</strong> (135.79 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-12 19:38 上传
+
