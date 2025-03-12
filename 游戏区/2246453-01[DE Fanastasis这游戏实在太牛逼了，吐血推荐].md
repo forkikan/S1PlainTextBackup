@@ -4101,3 +4101,14 @@ https://bgm.tv/subject/topic/33083
 
 通关啦。好意犹未尽
 
+
+*****
+
+####  siriii  
+##### 364#       发表于 2025-3-12 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67637792&amp;ptid=2246453" target="_blank">kerbad 发表于 2025-3-12 18:44</a>
+
+其实免费版是没有那条水路的，DE版坐木筏的地方在免费版直接通往大圣堂的 ...</blockquote>
+我草，做了一整张完全物理连通的地图，最后还能引导玩家回到起点，这么牛逼的事情包不能放过的好吧，DE版加上加上<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
