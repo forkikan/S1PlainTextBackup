@@ -12675,3 +12675,29 @@ UC的NT和强化也有中间形态。
 我只看过0079三个剧场版，感觉紫婆虽然知道夏亚身份但对他很放心，甚至有种若隐若现的爱怜，戒备什么的完 ...</blockquote>
 79里紫婆不是没提防夏亚，是她没想到夏亚直接玩物理爆头。就像瘦子也没想到紫婆也玩现场爆头一样。
 
+
+*****
+
+####  xwz  
+##### 8427#       发表于 2025-3-12 16:51
+
+ 本帖最后由 xwz 于 2025-3-12 16:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67636452&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-3-12 16:09</a>
+
+紫婆大体上还是对鸭很放心的，而且原作和小说版都是被鸭暗算的一方，除非这回的新作倒反天罡。
+
+另外这楼不 ...</blockquote>
+种命里议长和螃蟹舰长<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+PS：说起来，这部里基连是谁配的？也换人了吗？
+
+
+*****
+
+####  王留美  
+##### 8428#       发表于 2025-3-12 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67636822&amp;ptid=2209276" target="_blank">xwz 发表于 2025-3-12 16:51</a>
+ 种命里议长和螃蟹舰长  PS：说起来，这部里基连是谁配的？也换人了吗？ </blockquote>
+还没出场
+
