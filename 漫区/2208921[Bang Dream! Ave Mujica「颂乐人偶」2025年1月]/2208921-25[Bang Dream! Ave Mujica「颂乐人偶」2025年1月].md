@@ -3931,3 +3931,61 @@ MyGO时期他说立希是「燈さえいればいい」只要有灯就好
 
 做不到的（摇手指），有能耐的人根本不会把自己逼到这个地步
 
+
+*****
+
+####  天空塔书记官  
+##### 35848#       发表于 2025-3-12 11:57
+
+也许可能会有神反转，但这一切值得吗？
+
+合着活了十集面啊，这是
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  GBLMikuHatsune  
+##### 35849#       发表于 2025-3-12 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67634278&amp;ptid=2208921" target="_blank">聋与唬 发表于 2025-3-12 11:44</a>
+
+战吧神人楼我看了。
+
+理论上说剧本说确实仍有翻盘的可能。人物逻辑变化，剧情突然转折，双重人格，各种不合 ...</blockquote>
+按照柿本这个采访那基本不可能有这种大反转了
+
+这类叙事诡计肯定是写剧本时最先确定也最不会去动的东西，但是柿本自己说他是一边做一遍改角色来推动剧情发展，那大反转的剧本从一开始就不可能存在了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 35850#       发表于 2025-3-12 12:01
+
+十本没这种能力，有这种能力的人大概率不会把剧本写到这一步。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  UNISONIA  
+##### 35851#       发表于 2025-3-12 12:02
+
+圆脸那会儿没舅舅所以有翻盘可能性（何况圆脸其实3~9的风评并不差）
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鸡这种早就全集做完的而且看完了的关系者众多的，棺材板都钉死了
+
+*****
+
+####  老贝  
+##### 35852#       发表于 2025-3-12 12:02
+
+柿本和这片最神奇的地方，就是在挑拨粉丝G点和惹怒观众上的坚持。很多时候有些东西你不讲出来，不描写观众可能还好受点，但他就是要非常执念的在动画里表现出来，访谈里还详细解说。
+
+典型的就是大小姐过家家。路人讲过几遍不提，喵梦这集都要再重复一遍。感觉像是生怕观众不知道，这件事就是我们给她们之前搞出的闹剧下的结论一样。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+还有第十集祥子对初华的态度与Imprisoned里祥子看初华的表情。不是特别喜欢姬恋直be的一般观众，看完这个会是什么感受，直接看现在的二创和角色风评就知道了吧。<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
