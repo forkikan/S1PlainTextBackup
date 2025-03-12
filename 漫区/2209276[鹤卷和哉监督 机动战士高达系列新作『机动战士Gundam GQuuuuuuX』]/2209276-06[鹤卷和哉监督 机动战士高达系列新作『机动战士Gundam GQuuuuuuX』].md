@@ -12962,3 +12962,18 @@ G跨时蛮好的，干嘛加个之战
 
 所以这作究竟会不会提到骡子呢？还是真的从头到尾会查无此人
 
+
+*****
+
+####  pokemon最爱  
+##### 8455#       发表于 2025-3-13 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67639654&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-3-12 23:47</a>
+
+【【中日字幕/爆笑配音】高达GQuuuuuuX 阿姆罗的5种结局-哔哩哔哩】 https://b23.tv/beNtU51
+
+所以这作究竟 ...</blockquote>
+鸭子给了那么重的戏份作为鸭子对立面的骡子要是一点不提也很怪吧。
+
+总之奶一个G跨时是骡子开发的机体<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
