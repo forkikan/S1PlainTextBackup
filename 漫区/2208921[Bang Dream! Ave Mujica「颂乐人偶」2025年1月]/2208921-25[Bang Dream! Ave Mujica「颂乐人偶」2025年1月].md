@@ -3457,3 +3457,15 @@ soyo:只要我把祥子拉回来，小睦就自动跟随了
 
 声优访谈更是爆笑（
 
+
+*****
+
+####  Yugao  
+##### 35812#       发表于 2025-3-12 08:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67632395&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-12 08:09</a>
+老登的钱都是一代初华带来的
+
+一代初华和祥姥姥都先后去世</blockquote>
+再这样下去，就要变成初华才是真正的丰川祥子了
+

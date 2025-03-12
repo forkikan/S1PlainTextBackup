@@ -49,3 +49,11 @@
 签名居然变了，而且没看出来是什么梗</blockquote>
 自然是当红炸子母鸡（卡）
 
+
+*****
+
+####  灼眼的夏娜酱  
+##### 2089#       发表于 2025-3-12 08:28
+
+脑袋短路了，没反应过来<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
