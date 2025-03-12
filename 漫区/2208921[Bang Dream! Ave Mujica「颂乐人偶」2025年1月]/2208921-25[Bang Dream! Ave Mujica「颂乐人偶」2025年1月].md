@@ -4096,3 +4096,40 @@ mygo也是故事决定了角色，这就是绫奈的创作方式了，她访谈�
 
 别拿魔圆来比了，到第10集那个节点除了当作噱头的学姐，其他角色的变化都是符合剧本逻辑的，母鸡卡这个角色一集一个人设的真的存在什么逻辑吗
 
+
+*****
+
+####  595505568  
+##### 35863#       发表于 2025-3-12 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67634461&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-12 12:04</a>
+一個沒魔幻背景的世界就現有東西來說怎反轉？
+
+反轉了能讓小祥對初華跟睦的臭臉變沒有嗎？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zhoujin8584  
+##### 35864#       发表于 2025-3-12 12:31
+
+下两集摆明了是初祥二人转。
+
+能在13集有点海睦师徒和喵睦踩奶的互动就不错了
+
+*****
+
+####  半年  
+##### 35865#       发表于 2025-3-12 12:32
+
+<img src="https://img.saraba1st.com/forum/202503/12/123234u7ivigocpypw0gop.jpg" referrerpolicy="no-referrer">
+
+<strong>Glz8UWrbIAAnXgP.jpg</strong> (288.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-12 12:32 上传
+
+[https://x.com/xuserpost/status/1899670649117000129/photo/1](https://x.com/xuserpost/status/1899670649117000129/photo/1)
+
