@@ -12603,3 +12603,11 @@ UC的NT和强化也有中间形态。
 不过说回另一点，紫婆早就知道夏 ...</blockquote>
 所以我们有机会看到完整版的奇美拉部队咯？设定上他们就是紫婆用OT超级王牌们搭配最新技术组合出来的对NT底牌。
 
+
+*****
+
+####  灵魂收割机  
+##### 8421#       发表于 2025-3-12 15:33
+
+番茄脑袋这么圆肯定是纯自然的，最多用点蛋白粉<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
