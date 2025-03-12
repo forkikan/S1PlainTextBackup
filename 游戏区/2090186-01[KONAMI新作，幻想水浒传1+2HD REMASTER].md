@@ -3473,3 +3473,14 @@ PSP版就修了
 
 但大地图移动加速还是要带上他
 
+
+*****
+
+####  等等等灯等灯  
+##### 365#       发表于 2025-3-13 02:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67634382&amp;ptid=2090186" target="_blank">ztkong 发表于 2025-3-12 11:54</a>
+
+打完了w白金撒花。</blockquote>
+游戏要求全程hard通关 是指1代还是2代还是都要hard
+
