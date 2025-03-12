@@ -4093,3 +4093,11 @@ https://bgm.tv/subject/topic/33083
 
 其实免费版是没有那条水路的，DE版坐木筏的地方在免费版直接通往大圣堂的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  best32167  
+##### 363#       发表于 2025-3-12 23:01
+
+通关啦。好意犹未尽
+
