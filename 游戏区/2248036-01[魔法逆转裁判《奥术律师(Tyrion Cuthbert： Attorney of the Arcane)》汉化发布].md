@@ -894,3 +894,17 @@ SteamDeck需要安装运行库吗？</blockquote>
 
 —— 来自 OPPO PCKM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  国家免检虎B  
+##### 85#         楼主| 发表于 2025-3-12 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67635195&amp;ptid=2248036" target="_blank">zyj174 发表于 2025-3-12 13:43</a>
+这游戏如果真出了重制版还会汉化吗
+
+—— 来自 OPPO PCKM00, Android 10上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+重制的动静这八字没一撇呢，着啥急，要出也是先出第二部
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

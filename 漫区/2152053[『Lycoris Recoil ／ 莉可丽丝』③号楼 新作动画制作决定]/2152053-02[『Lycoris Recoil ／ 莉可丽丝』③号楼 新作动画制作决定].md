@@ -101,3 +101,14 @@
 
 连个金毛和黑毛都没有，联想都联想不到一块儿吧
 
+
+*****
+
+####  osore  
+##### 2094#       发表于 2025-3-12 14:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67634430&amp;ptid=2152053" target="_blank">Saber琪 发表于 2025-3-12 12:00</a>
+
+这仨只有一个是天文部的吧（）这又是什么△</blockquote>
+有图有真相，说明这个二设（?）已经深入人心了
+
