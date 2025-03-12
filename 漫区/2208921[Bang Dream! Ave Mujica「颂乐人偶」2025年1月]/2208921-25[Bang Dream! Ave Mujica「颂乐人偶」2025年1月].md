@@ -5009,3 +5009,23 @@ mana看到初华下车只感觉浑身轻松，轻轻的叹了口气，
 希望剩下几集不要再有“人”被编剧按在楼梯上滚来滚去了</blockquote>
 被这些神人编辑大手按着说话是百分之99概率的事情，是不是“滚来滚去”就不知道了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhoujin8584  
+##### 35944#       发表于 2025-3-12 19:13
+
+<blockquote>adretyu67. 发表于 2025-3-12 18:58
+其实挺难想象娱乐圈里大猫这种过气艺人敢对当红sumimi成员这么玩。</blockquote>
+所以说甜甜圈本质友情营业，真把初华当朋友，一巴掌就扇过去了
+
+*****
+
+####  adretyu67.  
+##### 35945#       发表于 2025-3-12 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67638025&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-12 19:13</a>
+
+所以说甜甜圈本质友情营业，真把初华当朋友，一巴掌就扇过去了</blockquote>
+第10话那个场景甜甜圈没在吧。
+
