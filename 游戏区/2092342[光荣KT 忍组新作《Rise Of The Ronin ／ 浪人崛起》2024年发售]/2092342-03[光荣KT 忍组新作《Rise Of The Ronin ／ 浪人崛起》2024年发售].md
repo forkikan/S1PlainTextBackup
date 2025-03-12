@@ -775,3 +775,14 @@ PC版宣传特性：120帧高帧率&amp;更高的画质。<img src="https://stat
 浪人一周目中毒性很强的，战斗爽快又不太高压，资源不会短缺，据点传送方便，不断解锁新流派招式的奖励也持续吸引，以至于近年来唯一一次通宵<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 但二周目开始在据点堆boss和忍组惯例刷子模式，配合石火训狗就令人厌倦了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  慕容断月  
+##### 3483#       发表于 2025-3-12 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67634283&amp;ptid=2092342" target="_blank">zqqwe 发表于 2025-3-12 11:45</a>
+
+浪人一周目中毒性很强的，战斗爽快又不太高压，资源不会短缺，据点传送方便，不断解锁新流派招式的奖励也 ...</blockquote>
+是的，所以我对这个的定位就是老ac那样的一周目爽游，反正不为难自己不跟自己过不去这游戏就非常好玩
+

@@ -884,3 +884,13 @@ SteamDeck需要安装运行库吗？</blockquote>
 
 另外吐槽一点，4大家族当家年纪都很高，而2代基本上都很年轻，差不多都是40多才出生的，除了法律家。而根据二代的婚约来看，都是20多就有了婚约，没有什么晚婚晚育风俗，不知道是不是有坑在里面
 
+
+*****
+
+####  zyj174  
+##### 84#       发表于 2025-3-12 13:43
+
+这游戏如果真出了重制版还会汉化吗<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PCKM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
