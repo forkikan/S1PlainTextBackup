@@ -12502,3 +12502,14 @@ g复国的g是不一样的 有自己，元气，地球，重力之类的含义�
 
 啊不过我不喜欢这个设定，我希望小番茄是自然的nt。
 
+
+*****
+
+####  Gysumitka  
+##### 8413#       发表于 2025-3-12 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67634291&amp;ptid=2209276" target="_blank">kuriri 发表于 2025-3-12 11:46</a>
+对的，所以甚至可以猜麻球其实是强化人来的，脑子里被植入了什么东西所以会说“自由”之类的怪话，也解释 ...</blockquote>
+我觉得是自然nt，不过是困在时间循环能力越来越强。毕竟85的故事如plazma歌词所说都太巧合了
+纯假药，没有多少证据<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
