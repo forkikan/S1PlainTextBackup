@@ -5095,3 +5095,29 @@ mana看到初华下车只感觉浑身轻松，轻轻的叹了口气，
 笑死，怎么弄弄自己也是一脸南蚌的表情，现在终于知道和自己做节目的隔壁那个兔子多让人南蚌吧（大西还会 ...</blockquote>
 有点先入为主了吧兄弟，仔细看下原live，所谓表情是一个连续的过程，在李子唱到副歌高潮的部分时对歌曲中投入的情感有一种理解、届到的回应，只用一张截图来以偏概全不太对。
 
+
+*****
+
+####  zhoujin8584  
+##### 35950#       发表于 2025-3-12 19:48
+
+<blockquote>adretyu67. 发表于 2025-3-12 19:14
+第10话那个场景甜甜圈没在吧。</blockquote>
+我是说初华同样在甜甜圈和喵梦面前玩手机，真想做些什么，肯定是狠狠上分。初华和甜甜圈在人后其实都没有过直接的身体接触的
+
+*****
+
+####  一心而用  
+##### 35951#       发表于 2025-3-12 19:49
+
+佐佐木李子收到了B站的10万粉奖牌，推特和微博照片还不一样。
+<img src="https://p.sda1.dev/22/985555c4214299dbdfd4e72472a8dfe3/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/6c6f5a476b23b7e2fb0016f203752c4b/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/2fafeac66ce6dfa6d183585d6c3f4571/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/795172f94decea15ab68e7e3ee181406/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/6c724c4ca1d91d20fff5cc94ec6fb04f/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/e2344c21c4dbe9dd43c95fd17f5d10a5/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/90f5f2e072e5ca0342ec293af8ee6a2a/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/023357aadbdd18ac3973011f9447745a/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/152aa04ce82b8796b88524b5b2605e2e/image.jpg" referrerpolicy="no-referrer">
+
