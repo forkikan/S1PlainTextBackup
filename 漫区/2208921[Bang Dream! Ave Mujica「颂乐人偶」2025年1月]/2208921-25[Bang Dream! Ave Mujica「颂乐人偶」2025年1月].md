@@ -5244,3 +5244,29 @@ CV吃这碗饭没办法,只能捏着鼻子找补,蚀本太变态了
 
 我觉得不是强制soulmate，你们两多少就是soulmate
 
+
+*****
+
+####  zhoujin8584  
+##### 35962#       发表于 2025-3-12 22:08
+
+从cp脑来说，只要睦祥解绑，就不会有黑刀之夜、为什么要弹奏春日影、由不会弹吉他但爱说爱笑的莫来保住乐队、为了我重组ccc
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  MASKA-1  
+##### 35963#       发表于 2025-3-12 22:11
+
+睦莫是对的，可惜睦莫已经结束了。
+
+
+*****
+
+####  天空塔书记官  
+##### 35964#       发表于 2025-3-12 22:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
