@@ -4161,3 +4161,15 @@ mygo也是故事决定了角色，这就是绫奈的创作方式了，她访谈�
 
 素莫也是
 
+
+*****
+
+####  595505568  
+##### 35869#       发表于 2025-3-12 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67634781&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-12 12:45</a>
+素睦💊的主因不是因為睦似了嗎？
+
+素莫也是</blockquote>
+那天之弱要换人唱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
