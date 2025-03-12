@@ -4185,3 +4185,25 @@ mygo也是故事决定了角色，这就是绫奈的创作方式了，她访谈�
 
 —— 来自 HUAWEI HLK-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  K·os  
+##### 35871#       发表于 2025-3-12 13:18
+
+搞这么多访谈本身属于宣传的一种，而大家现在每周都在看柿本说话，主要还是因为独角兽不说话了
+
+我觉得柿本聊这个聊那个访谈本身已经有点发散了
+
+
+*****
+
+####  thisisaspider  
+##### 35872#       发表于 2025-3-12 13:21
+
+看了一个解读
+
+【纯逻辑无假药，在终幕揭晓之前，一个视频看懂mujica成员的人设和动机】 [https://www.bilibili.com/video/BV1CdRJYBEs9/](https://www.bilibili.com/video/BV1CdRJYBEs9/)
+
+后面能这么写，确实又让剧本丰富了一层。剧本难度高成这样，我只能说真的又菜又爱玩。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
