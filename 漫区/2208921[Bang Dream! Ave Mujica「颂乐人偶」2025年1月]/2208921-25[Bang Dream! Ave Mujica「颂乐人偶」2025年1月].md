@@ -5121,3 +5121,23 @@ mana看到初华下车只感觉浑身轻松，轻轻的叹了口气，
 <img src="https://p.sda1.dev/22/023357aadbdd18ac3973011f9447745a/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/22/152aa04ce82b8796b88524b5b2605e2e/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  YF29  
+##### 35952#       发表于 2025-3-12 20:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以喵梦到底是真只剩了mujica还是阴阳怪气牢祥啊，社区一直都是后者为主的理解吧，怎么茜姨出来钦定坚毅的眼神了：
+
+“与Ave mujica相遇后成长的喵梦”.jpg
+
+“已能坚定对祥子宣告[现在的我，只剩ave mujica]了”.jpg
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">也挺难为声优的了说实话。
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 35953#       发表于 2025-3-12 20:45
+
+李子真是小只啊
+
