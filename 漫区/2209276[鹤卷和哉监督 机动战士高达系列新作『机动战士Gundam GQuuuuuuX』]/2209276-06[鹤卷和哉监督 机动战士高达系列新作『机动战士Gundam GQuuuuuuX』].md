@@ -12525,3 +12525,16 @@ g复国的g是不一样的 有自己，元气，地球，重力之类的含义�
 纯假药，没 ...</blockquote>
 别到最后是夏日重现啊
 
+
+*****
+
+####  Steel.Haze  
+##### 8415#       发表于 2025-3-12 14:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67634291&amp;ptid=2209276" target="_blank">kuriri 发表于 2025-3-12 11:46</a>
+
+对的，所以甚至可以猜麻球其实是强化人来的，脑子里被植入了什么东西所以会说“自由”之类的怪话，也解释 ...</blockquote>
+UC的NT和强化也有中间形态。
+
+普璐、邱尼、巴纳吉都是高NT感度情况下强化诱导的成果。是自然NT也可以被“强化”，或者说早期NT被选中强化的可能更高。因为早期强化技术并不成熟。效果好的就是NT感度催熟+肉体强化。
+
