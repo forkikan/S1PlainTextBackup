@@ -3594,3 +3594,56 @@ MyGO时期他说立希是「燈さえいればいい」只要有灯就好
 
 当然两次访谈的侧重点不同，前者针对MyGO，后者针对CRYCHIC
 
+
+*****
+
+####  zhoujin8584  
+##### 35825#       发表于 2025-3-12 09:52
+
+<blockquote>与太郎 发表于 2025-3-12 09:38
+说起来，柿本访谈有一处疑似吃书的地方
+
+MyGO时期他说立希是「燈さえいればいい」只要有灯就好
+
+现在他又说『 ...</blockquote>
+成长性吧，mygo立希确实是被素世嘴这句话哑口无言，现在已经不是了，团魂立希<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhoujin8584  
+##### 35826#       发表于 2025-3-12 09:55
+
+高尾＆羊
+
+<img src="https://img.saraba1st.com/forum/202503/12/095426hivlghuwurmmm4iv.jpg" referrerpolicy="no-referrer">
+
+<strong>1741739462154.jpg</strong> (442.64 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-12 09:54 上传
+
+<img src="https://img.saraba1st.com/forum/202503/12/095437l76bkiek86x7e7kx.jpg" referrerpolicy="no-referrer">
+
+<strong>1741739469324.jpg</strong> (682.04 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-12 09:54 上传
+
+<img src="https://img.saraba1st.com/forum/202503/12/095500htxyunuo4ntp8yuu.jpg" referrerpolicy="no-referrer">
+
+<strong>1741739474490.jpg</strong> (640.21 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-12 09:55 上传
+
+<img src="https://img.saraba1st.com/forum/202503/12/095516kegrrhej11rg45ep.jpg" referrerpolicy="no-referrer">
+
+<strong>1741739479072.jpg</strong> (570.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-12 09:55 上传
+

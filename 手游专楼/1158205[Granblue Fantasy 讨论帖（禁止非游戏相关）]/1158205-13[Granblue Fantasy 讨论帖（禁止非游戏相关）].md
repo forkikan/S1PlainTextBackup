@@ -92,3 +92,11 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">是刀
 
+
+*****
+
+####  克苏鲁系青骑士  
+##### 18219#       发表于 2025-3-12 09:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">LM卷出了个现在用的上的但还是得等转盘结束才敢突…
+
