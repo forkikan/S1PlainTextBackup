@@ -4784,3 +4784,34 @@ mygo也是故事决定了角色，这就是绫奈的创作方式了，她访谈�
 感人不感人先不提，不要赶人就可以了</blockquote>
 现在都不是赶人了，现在是赖着不走<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  595505568  
+##### 35925#       发表于 2025-3-12 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67637238&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-3-12 17:35</a>
+现在都不是赶人了，现在是赖着不走</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那确实哦，无言以对（
+
+*****
+
+####  wyjbnb  
+##### 35926#       发表于 2025-3-12 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67636018&amp;ptid=2208921" target="_blank">结衣小比取 发表于 2025-3-12 15:20</a>
+
+稍微截了几张睦在LIVE中的表现，考虑到还有初华这种台上台下形象反差极大的，真是期待全新的睦，以及她和其 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个睦应该是节约的逆输入吧？
+
+我看第一眼感觉就是对着中之人live上k的
+
+
+*****
+
+####  一心而用  
+##### 35927#       发表于 2025-3-12 17:46
+
+x：gM4zFiJCWbz3G4y
+<img src="https://p.sda1.dev/22/1ccde286d69c45e7a6c2e09fe15ba863/image.jpg" referrerpolicy="no-referrer">
+
