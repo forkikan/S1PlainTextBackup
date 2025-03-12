@@ -12663,3 +12663,15 @@ UC的NT和强化也有中间形态。
 
 另外这楼不是有人YY过吗，让她在鸭子的国葬上穿丧服假哭，扮CP<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adretyu67.  
+##### 8426#       发表于 2025-3-12 16:42
+
+ 本帖最后由 adretyu67. 于 2025-3-12 16:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67635991&amp;ptid=2209276" target="_blank">kuriri 发表于 2025-3-12 15:17</a>
+
+我只看过0079三个剧场版，感觉紫婆虽然知道夏亚身份但对他很放心，甚至有种若隐若现的爱怜，戒备什么的完 ...</blockquote>
+79里紫婆不是没提防夏亚，是她没想到夏亚直接玩物理爆头。就像瘦子也没想到紫婆也玩现场爆头一样。
+
