@@ -2146,3 +2146,34 @@ geekjack给了充足的200份而且每人限2份，这个点还有60%没卖出�
 
 怎么观众水平这么菜的，不过是随机匹配可能有些不是观众就是
 
+
+*****
+
+####  holofan  
+##### 10916#       发表于 2025-3-12 11:44
+
+这个月开始有风真，okayo，星街3个人都要休2个月，看起来这两个月要办箱企划很难
+
+不过下半年搞不好第二届GTA要来了，前两天直播里看到chiha连叫
+
+*****
+
+####  holofan  
+##### 10917#       发表于 2025-3-12 17:16
+
+<img src="https://img.saraba1st.com/forum/202503/12/171602nai69cxa64u45z4i.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (606.21 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-12 17:16 上传
+
+<img src="https://img.saraba1st.com/forum/202503/12/171532lj1vcahw5a1wcccf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (14.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-12 17:15 上传
+
