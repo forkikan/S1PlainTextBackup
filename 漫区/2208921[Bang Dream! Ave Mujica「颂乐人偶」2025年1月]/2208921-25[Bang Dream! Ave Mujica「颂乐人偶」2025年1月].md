@@ -4481,3 +4481,28 @@ mygo也是故事决定了角色，这就是绫奈的创作方式了，她访谈�
 
 双子说要破坏的是整个故事的底层，但是目前找不到符合的主题。
 
+
+*****
+
+####  结衣小比取  
+##### 35900#       发表于 2025-3-12 15:20
+
+稍微截了几张睦在LIVE中的表现，考虑到还有初华这种台上台下形象反差极大的，真是期待全新的睦，以及她和其他人的互动<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+<img src="https://s2.loli.net/2025/03/12/5YBgO6y2TKifzv8.gif" referrerpolicy="no-referrer">
+<img src="https://s2.loli.net/2025/03/12/exHfBF4y5sh9bTL.gif" referrerpolicy="no-referrer">
+<img src="https://s2.loli.net/2025/03/12/ObeaHXN9U26hoMZ.gif" referrerpolicy="no-referrer">
+<img src="https://s2.loli.net/2025/03/12/cg9AWtBSkh3VaPX.gif" referrerpolicy="no-referrer">
+<img src="https://s2.loli.net/2025/03/12/Lw5QZ1mTBuRj4Hv.gif" referrerpolicy="no-referrer">
+<img src="https://s2.loli.net/2025/03/12/lFUZv4Gk8LcDfXw.gif" referrerpolicy="no-referrer">
+<img src="https://s2.loli.net/2025/03/12/VjALZFTtqpPSR3C.gif" referrerpolicy="no-referrer">
+<img src="https://s2.loli.net/2025/03/12/368S4Bum7IJHg92.gif" referrerpolicy="no-referrer">
+<img src="https://s2.loli.net/2025/03/12/d1hobeDVPiMx6nR.gif" referrerpolicy="no-referrer">
+<img src="https://s2.loli.net/2025/03/12/QKbrnTJyHs2fGFu.gif" referrerpolicy="no-referrer">
+<img src="https://s2.loli.net/2025/03/12/IOWsqzcwfQiy1EN.gif" referrerpolicy="no-referrer">
+<img src="https://s2.loli.net/2025/03/12/CQxn1Rv7aYP3tr4.gif" referrerpolicy="no-referrer">
+<img src="https://s2.loli.net/2025/03/12/7kMXw1Knis2CzQL.gif" referrerpolicy="no-referrer">
+<img src="https://s2.loli.net/2025/03/12/JezcRId85bF1asi.gif" referrerpolicy="no-referrer">
+<img src="https://s2.loli.net/2025/03/12/hcYKDXTta2VG3vB.gif" referrerpolicy="no-referrer">
+<img src="https://s2.loli.net/2025/03/12/1ntSlxJwiF9PUzO.gif" referrerpolicy="no-referrer">
+<img src="https://s2.loli.net/2025/03/12/1U85aNZDq93neTo.gif" referrerpolicy="no-referrer">
+
