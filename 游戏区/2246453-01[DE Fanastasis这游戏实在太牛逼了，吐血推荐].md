@@ -4085,3 +4085,11 @@ https://bgm.tv/subject/topic/33083
 
 顶着卡顿玩了 20 多个小时，才发现是字体的原因导致的…安装好字体就不再卡了，让自己眼睛辛苦了这么长时间<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kerbad  
+##### 362#       发表于 2025-3-12 18:44
+
+其实免费版是没有那条水路的，DE版坐木筏的地方在免费版直接通往大圣堂的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
