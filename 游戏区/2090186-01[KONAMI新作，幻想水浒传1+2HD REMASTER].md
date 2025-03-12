@@ -3399,3 +3399,14 @@ PSP版就修了
 
 2025-3-12 04:36 上传
 
+
+*****
+
+####  ds2324ds2  
+##### 361#       发表于 2025-3-12 09:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67626076&amp;ptid=2090186" target="_blank">Mephisto 发表于 2025-3-11 10:13</a>
+
+1代真是难受，战斗大部分都在平砍，像素粗糙，2代感觉各方面都精细很多</blockquote>
+菜刀队才是这游戏的终极解，你玩二代最高效率的战斗依然是连砍加怒。
+

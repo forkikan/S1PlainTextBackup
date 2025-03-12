@@ -3486,3 +3486,44 @@ soyo:只要我把祥子拉回来，小睦就自动跟随了
 
 聲優訪談就是開盾+洗白自角+賣CP
 
+
+*****
+
+####  刑部姬真可爱  
+##### 35815#       发表于 2025-3-12 09:01
+
+反过来想，声优对于自己角色的看法，与剧里表现令观众感到不同的地方，其实是声优在婉转的表达对mujica剧情不满的方法<img src="https://static.saraba1st.com/image/smiley/carton2017/467.png" referrerpolicy="no-referrer">
+
+*****
+
+####  swessia  
+##### 35816#       发表于 2025-3-12 09:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">坐等节约的访谈熟肉，倒要看看双重人格这一坨到底要演成啥
+
+*****
+
+####  与太郎  
+##### 35817#       发表于 2025-3-12 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67632384&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-12 08:06</a>
+
+茜</blockquote>
+烤箱手是什么鬼，是open hand也就是非交叉手法
+
+而且这里写反了，说的是米泽<strong>不是交叉手法</strong>而是非交叉手法，后者才是非常规手法
+
+*****
+
+####  UNISONIA  
+##### 35818#       发表于 2025-3-12 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67630297&amp;ptid=2208921" target="_blank">梅杜莎 发表于 2025-3-11 19:37</a>
+
+前几天Muse木棉花-TW搞的那个全集马拉松直播，有坛友知道在哪里可以回看或者下载的吗？
+
+就是“俗气LOGO、楷 ...</blockquote>
+[https://www.youtube.com/live/demSSDkkIrM](https://www.youtube.com/live/demSSDkkIrM) 
+
+进度条应该是可以拖动的，但是不能回到太远的地方
+
