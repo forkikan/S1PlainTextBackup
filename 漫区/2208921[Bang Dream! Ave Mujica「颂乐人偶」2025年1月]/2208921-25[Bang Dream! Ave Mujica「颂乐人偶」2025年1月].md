@@ -5367,3 +5367,15 @@ CV吃这碗饭没办法,只能捏着鼻子找补,蚀本太变态了
 
 Crychic的第二次正式演出绝对值一个剧场版，tv有点太憋屈了。<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  航母掉头  
+##### 35975#       发表于 2025-3-13 07:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67636308&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-12 15:53</a>
+看访谈里李子的说法是初华的情况是严重到只剩祥子了。被赶回小岛可能是家里只剩1个人应该也准备自杀了。
+
+ ...</blockquote>
+那甜甜圈女士算啥
+
