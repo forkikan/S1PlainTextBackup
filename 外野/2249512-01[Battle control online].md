@@ -630,3 +630,12 @@ ore miner is under attack<img src="https://static.saraba1st.com/image/smiley/fac
 
 曾经以为红警2系列是魔幻科幻，没想到是预测未来<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  griffonz  
+##### 66#       发表于 2025-3-12 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67630136&amp;ptid=2249512" target="_blank">用户名已注册 发表于 2025-3-11 19:05</a></blockquote>
+仿佛听见声音了
+

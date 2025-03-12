@@ -753,3 +753,25 @@ PC版宣传特性：120帧高帧率&amp;更高的画质。<img src="https://stat
 
 没了dlc还是挺可惜的。
 
+
+*****
+
+####  东方定助  
+##### 3481#       发表于 2025-3-12 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67633389&amp;ptid=2092342" target="_blank">慕容断月 发表于 2025-3-12 10:20</a>
+
+昨天一口气打了七八个小时，我只觉得这游戏比刺客信条还像刺客信条，既有老刺客的一击必杀（所以潜行暗杀是 ...</blockquote>
+其实刺客信条就是除了画面全方位都垮了，战斗一如既往的手感稀烂，动作设计拖泥带水，跑酷越来越无脑，骑马没有速度感也没有对马岛那种代入感也没有大表哥那种细腻的反馈，演出站桩摆烂，剧情白开水加屎。
+
+
+*****
+
+####  zqqwe  
+##### 3482#       发表于 2025-3-12 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67633389&amp;ptid=2092342" target="_blank">慕容断月 发表于 2025-3-12 10:20</a>
+昨天一口气打了七八个小时，我只觉得这游戏比刺客信条还像刺客信条，既有老刺客的一击必杀（所以潜行暗杀是 ...</blockquote>
+浪人一周目中毒性很强的，战斗爽快又不太高压，资源不会短缺，据点传送方便，不断解锁新流派招式的奖励也持续吸引，以至于近年来唯一一次通宵<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+但二周目开始在据点堆boss和忍组惯例刷子模式，配合石火训狗就令人厌倦了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+

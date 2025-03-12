@@ -2129,3 +2129,20 @@ geekjack给了充足的200份而且每人限2份，这个点还有60%没卖出�
 
 草
 
+
+*****
+
+####  holofan  
+##### 10914#       发表于 2025-3-11 22:31
+
+喷射玩家的民度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holofan  
+##### 10915#       发表于 2025-3-12 11:42
+
+就这都能赢30场
+
+怎么观众水平这么菜的，不过是随机匹配可能有些不是观众就是
+

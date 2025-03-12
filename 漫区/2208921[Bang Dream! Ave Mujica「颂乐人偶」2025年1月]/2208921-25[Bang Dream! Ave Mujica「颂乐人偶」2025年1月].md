@@ -3887,3 +3887,28 @@ MyGO时期他说立希是「燈さえいればいい」只要有灯就好
 
 而就是这样的柿本，对于初华却是一种完全不同的态度，即是故事决定了角色。初华的身份这个核心gimmick究竟是谁的主意呢？
 
+
+*****
+
+####  曼彻斯特联  
+##### 35844#       发表于 2025-3-12 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67634143&amp;ptid=2208921" target="_blank">GBLMikuHatsune 发表于 2025-3-12 11:30</a>
+
+扫了一眼柿本的访谈，是我对“原创动画”的概念理解有问题还是他的理解有问题。。。
+
+“我的监督作品中剧本 ...</blockquote>
+其实就类似于写作里的园丁型创作者吧，水平有限的人玩这套很容易写出雷作。
+
+
+*****
+
+####  老贝  
+##### 35845#       发表于 2025-3-12 11:42
+
+最令粉丝恨得牙痒痒的就是柿本这幅真的对自己创作非常自豪，还要全部讲出来给你了解了解，高高在上的态度了吧。<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+到这种程度，你怎么再骂他都只会感觉拳头打在棉花上了。更何况这个问题明显是出在以根本为首的总指挥上的，可以说是从顶层和根上就订好了是这个方向，后面会觉得这个故事越歪越离谱太正常了。
+
+但不得不说，柿本他作为系列前后两部动画的监督，苦思冥想后的产物却能够和不少纯粹不喜欢某位人物，或者角色关系的黑子想看的东西对上这点，真的挺幽默的。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

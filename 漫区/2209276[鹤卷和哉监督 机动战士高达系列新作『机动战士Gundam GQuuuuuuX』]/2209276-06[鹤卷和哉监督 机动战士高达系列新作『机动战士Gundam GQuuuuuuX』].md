@@ -12460,3 +12460,30 @@ g复国的g是不一样的 有自己，元气，地球，重力之类的含义�
 收枪感觉只是因为麻球走到侧面为了不让她看见手枪的动作，真正让安琪放下警惕感觉还是那句“宇宙是自由的 ...</blockquote>
 如果换成其他身份可疑的人，大姐头应该早拔枪不让他入侵了。比如尼娅安，一眼看出她俩不是一伙
 
+
+*****
+
+####  kuriri  
+##### 8409#       发表于 2025-3-12 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67633960&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-3-12 11:11</a>
+
+收枪感觉只是因为麻球走到侧面为了不让她看见手枪的动作，真正让安琪放下警惕感觉还是那句“宇宙是自由的 ...</blockquote>
+“宇宙是自由的吗”这句话真的很奇怪，有种对上暗号的感觉，说完哈罗就投怀送抱了
+
+*****
+
+####  Gysumitka  
+##### 8410#       发表于 2025-3-12 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67634186&amp;ptid=2209276" target="_blank">kuriri 发表于 2025-3-12 11:34</a>
+“宇宙是自由的吗”这句话真的很奇怪，有种对上暗号的感觉，说完哈罗就投怀送抱了 ...</blockquote>
+这句话哈罗和大姐头同时有了反应<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 8411#       发表于 2025-3-12 11:39
+
+“宇宙居民永远不会获得自由”也是安琪说出来的话，如果安琪真是希姆斯或者别的吉翁老兵的话，离开吉翁多半也是因为对吉翁胜利之后宇宙的改变彻底失望了
+
