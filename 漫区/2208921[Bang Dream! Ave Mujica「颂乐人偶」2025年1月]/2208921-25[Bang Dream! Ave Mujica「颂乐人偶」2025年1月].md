@@ -4173,3 +4173,15 @@ mygo也是故事决定了角色，这就是绫奈的创作方式了，她访谈�
 素莫也是</blockquote>
 那天之弱要换人唱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  钦念以忱  
+##### 35870#       发表于 2025-3-12 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67634820&amp;ptid=2208921" target="_blank">595505568 发表于 2025-3-12 12:51</a>
+那天之弱要换人唱了</blockquote>
+我看到说现在素睦厨就聚集在一个天之弱的素睦amv视频下抱团取暖互相安慰
+
+—— 来自 HUAWEI HLK-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

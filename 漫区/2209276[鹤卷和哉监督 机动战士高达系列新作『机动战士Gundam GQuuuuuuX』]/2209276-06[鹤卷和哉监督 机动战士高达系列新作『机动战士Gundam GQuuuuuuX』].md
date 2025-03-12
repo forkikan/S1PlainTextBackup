@@ -12513,3 +12513,15 @@ g复国的g是不一样的 有自己，元气，地球，重力之类的含义�
 我觉得是自然nt，不过是困在时间循环能力越来越强。毕竟85的故事如plazma歌词所说都太巧合了
 纯假药，没有多少证据<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kuriri  
+##### 8414#       发表于 2025-3-12 13:14
+
+<blockquote>Gysumitka 发表于 2025-3-12 12:19
+我觉得是自然nt，不过是困在时间循环能力越来越强。毕竟85的故事如plazma歌词所说都太巧合了
+
+纯假药，没 ...</blockquote>
+别到最后是夏日重现啊
+
