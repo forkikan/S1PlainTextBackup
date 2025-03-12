@@ -924,3 +924,34 @@ PC版宣传特性：120帧高帧率&amp;更高的画质。<img src="https://stat
 石火不同难度下判定时机长度不同，不同流派的动作的判定时机也不同，公认的轮椅之一就是立身流的石火，很简单，另外流派克制状况也影响石火长度
 我挺讨厌这设定的<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  碎镜子  
+##### 3499#       发表于 2025-3-13 00:03
+
+流派克制只影响动摇积蓄和回精吧，判定时间不影响看动作模组。
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  碎镜子  
+##### 3500#       发表于 2025-3-13 00:04
+
+这游戏要是有mod把解决流派克制回精和判定时间的套装改到一周目可以考虑再打一编<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  zqqwe  
+##### 3501#       发表于 2025-3-13 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67639674&amp;ptid=2092342" target="_blank">Booorunestud 发表于 2025-3-12 23:54</a>
+石火不同难度下判定时机长度不同，不同流派的动作的判定时机也不同，公认的轮椅之一就是立身流的石火，很简 ...</blockquote>
+宣传时的多流派系统=丰富的可玩性
+实际加上克制关系=高难度只能固定流派应对
+
+后面更新的烈风后无视克制关系还是要刷的套装技能，完全没动力玩了
+
