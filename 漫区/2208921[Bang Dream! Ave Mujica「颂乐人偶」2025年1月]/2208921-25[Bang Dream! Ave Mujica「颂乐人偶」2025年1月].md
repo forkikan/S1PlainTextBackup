@@ -5174,3 +5174,18 @@ mana看到初华下车只感觉浑身轻松，轻轻的叹了口气，
 <img src="https://tiebapic.baidu.com/forum/pic/item/d88f6ef40ad162d90f62a33757dfa9ec8b13cd92.jpg?tbpicau=2025-03-23-05_b95da931120d4023f9c121f8def6e6bb" id="aimg_HjZl3" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 <img src="https://tiebapic.baidu.com/forum/pic/item/b606950a19d8bc3e3495c7e1c48ba61ea9d34580.jpg?tbpicau=2025-03-23-05_354751f4a69733e2e0d2863e3dda2cc5" id="aimg_RGCcG" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
+
+*****
+
+####  YF29  
+##### 35957#       发表于 2025-3-12 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67638958&amp;ptid=2208921" target="_blank">曼彻斯特联 发表于 2025-3-12 21:23</a>
+
+祥子说只剩mujica这句话时喵梦不在场，作为阴阳怪气来解释不太合理。
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+牢莫酒店之战的时候说了，不过我是觉得凭牢莫一句话直接推到牢祥身上不合理，但是大伙也就是跟聊大小姐觉悟那段一样默认喵梦拿剧本当阴阳怪气正论放出机了，也没人深究。
+
+但大伙聊了这么久，坚毅的眼神这个钦定一出来还是很难崩。<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
