@@ -39,3 +39,13 @@
 
 2025-3-11 22:39 上传
 
+
+*****
+
+####  osore  
+##### 2088#       发表于 2025-3-12 07:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67631268&amp;ptid=2152053" target="_blank">灼眼的夏娜酱 发表于 2025-3-11 22:35</a>
+签名居然变了，而且没看出来是什么梗</blockquote>
+自然是当红炸子母鸡（卡）
+
