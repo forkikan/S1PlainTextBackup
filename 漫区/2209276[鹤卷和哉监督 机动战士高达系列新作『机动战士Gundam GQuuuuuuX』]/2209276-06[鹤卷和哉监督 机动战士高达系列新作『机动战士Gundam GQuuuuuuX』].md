@@ -12904,3 +12904,15 @@ G跨时蛮好的，干嘛加个之战
 
 想着联动还没有GQ那边的图所以没有发
 
+
+*****
+
+####  kuriri  
+##### 8450#       发表于 2025-3-12 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67638833&amp;ptid=2209276" target="_blank">灵魂收割机 发表于 2025-3-12 21:02</a>
+这是什么联动，有无链接？
+
+搜到了：[https://recommend.jr-central.co.jp/oshi-tabi/gundam45/](https://recommend.jr-central.co.jp/oshi-tabi/gundam45/) ...</blockquote>
+这样看感觉是稳稳两季啊，正好是两季之间宣传
+
