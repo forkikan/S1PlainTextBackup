@@ -3783,3 +3783,11 @@ MyGO时期他说立希是「燈さえいればいい」只要有灯就好
 
 闹了半天连梦以都不知道海铃为什么押注mujica<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 35834#       发表于 2025-3-12 10:36
+
+声优访谈更像是丢设定丢原案，充分展现了一个导演的无能能带来什么样的灾难。。。
+
