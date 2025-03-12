@@ -5232,3 +5232,15 @@ CV吃这碗饭没办法,只能捏着鼻子找补,蚀本太变态了
 
 然后刚好这句话正中牢祥好球区，甚至我都怀疑大祥铁暗恋大猫，重组前的回忆杀给了大猫最多的镜头。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adretyu67.  
+##### 35961#       发表于 2025-3-12 21:50
+
+大祥搞黑刀之夜炸了CCC
+
+大猫上武道馆摘面具点爆鸡1.0
+
+我觉得不是强制soulmate，你们两多少就是soulmate
+

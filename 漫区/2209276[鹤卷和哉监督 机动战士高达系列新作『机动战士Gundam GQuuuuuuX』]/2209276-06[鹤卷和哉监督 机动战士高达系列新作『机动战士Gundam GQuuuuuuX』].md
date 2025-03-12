@@ -12916,3 +12916,31 @@ G跨时蛮好的，干嘛加个之战
 搜到了：[https://recommend.jr-central.co.jp/oshi-tabi/gundam45/](https://recommend.jr-central.co.jp/oshi-tabi/gundam45/) ...</blockquote>
 这样看感觉是稳稳两季啊，正好是两季之间宣传
 
+
+*****
+
+####  xwr  
+##### 8451#       发表于 2025-3-12 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67638035&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-3-12 19:14</a>
+
+虽然大家的理由是觉得宣传就应该是开播期间整而不是作品结束了再整，反正也快到23号了看怎么样
+
+ ...</blockquote>
+这是要分割放送么，七月正好第一季播完，中间搞搞活动维持热度。
+
+*****
+
+####  岸浪白野  
+##### 8452#       发表于 2025-3-12 21:48
+
+[X 上的 智瀬 といろ：“マチュ [url]https://t.co/AntKnz5A7D](https://x.com/toiro_kinoruru/status/1899747442737762473)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202503/12/214842gizp3tc6ye66sh63.jpg" referrerpolicy="no-referrer">
+
+<strong>GlxHV4VbAAAruad.jpg</strong> (1.07 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-12 21:48 上传
+
