@@ -4964,3 +4964,48 @@ mana看到初华下车只感觉浑身轻松，轻轻的叹了口气，
 
 汽车驶入隧道，仿佛天黑了眼。
 
+
+*****
+
+####  半年  
+##### 35941#       发表于 2025-3-12 18:57
+
+<img src="https://img.saraba1st.com/forum/202503/12/185751uxttqy7tcn3tgccd.jpg" referrerpolicy="no-referrer">
+
+<strong>Gl1IGauawAAlzdP.jpg</strong> (234.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-12 18:57 上传
+
+<img src="https://img.saraba1st.com/forum/202503/12/185752jfwysz66lop248xc.jpg" referrerpolicy="no-referrer">
+
+<strong>Gl1IGbRWgAAqkaL.jpg</strong> (250.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-12 18:57 上传
+
+[https://x.com/karas_manga/status/1899753915597672580/photo/2](https://x.com/karas_manga/status/1899753915597672580/photo/2)
+
+*****
+
+####  adretyu67.  
+##### 35942#       发表于 2025-3-12 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67637824&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-12 18:47</a>
+
+看到喵梦第十集的操作，我更加确信了甜甜圈人形迈巴赫学</blockquote>
+其实挺难想象娱乐圈里大猫这种过气艺人敢对当红sumimi成员这么玩。
+
+
+*****
+
+####  aptx8285144  
+##### 35943#       发表于 2025-3-12 19:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67637604&amp;ptid=2208921" target="_blank">师傅没水了 发表于 2025-3-12 18:19</a>
+
+希望剩下几集不要再有“人”被编剧按在楼梯上滚来滚去了</blockquote>
+被这些神人编辑大手按着说话是百分之99概率的事情，是不是“滚来滚去”就不知道了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
