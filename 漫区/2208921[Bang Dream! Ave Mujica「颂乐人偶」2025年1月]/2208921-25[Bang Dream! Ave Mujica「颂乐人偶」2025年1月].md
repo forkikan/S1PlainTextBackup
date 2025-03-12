@@ -5281,3 +5281,16 @@ CV吃这碗饭没办法,只能捏着鼻子找补,蚀本太变态了
 所以喵梦到底是真只剩了mujica还是阴阳怪气牢祥啊，社区一直都是后者为主的理解吧，怎么茜姨出来钦定坚毅的 ...</blockquote>
 突然想起来，还有传说中让人绷不住的大瞄”暗恋“大祥，不知道接下来三话会不会端上来<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  凉良  
+##### 35966#       发表于 2025-3-12 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67638705&amp;ptid=2208921" target="_blank">YF29 发表于 2025-3-12 20:43</a>
+
+所以喵梦到底是真只剩了mujica还是阴阳怪气牢祥啊，社区一直都是后者为主的理解吧，怎么茜姨出来钦定坚毅的 ...</blockquote>
+日本人根本不知道会有人觉得是阴阳怪气吧
+
+都明着拍了演员主播一起出问题的剧情。
+
