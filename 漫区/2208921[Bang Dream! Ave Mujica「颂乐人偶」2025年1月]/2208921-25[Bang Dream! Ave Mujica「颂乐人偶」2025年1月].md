@@ -4438,3 +4438,13 @@ mygo也是故事决定了角色，这就是绫奈的创作方式了，她访谈�
 
 斗财阀我记得被舅舅否认的啊  说只是家族戏
 
+
+*****
+
+####  595505568  
+##### 35896#       发表于 2025-3-12 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67635174&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-12 13:41</a>
+素睦挺好的，优点缺点都很明显，优点就是两个人明明没有必要在一起的理由，总是会想着去建立联系，缺点是只 ...</blockquote>
+兜底也很好了，这也是一种被需要<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
