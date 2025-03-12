@@ -32,3 +32,11 @@ ChroNoiR 1st Mini Album 15232，没抽选好低
 
 甲斐田的1st没抽选也是1w5，劳伦focus on也差不多这个数字，可以得出过了人气线的虹男有抽选都能6w没抽选都是1w5的结论吗，甚至不因人数产生差距，真是同一批人在买
 
+
+*****
+
+####  渡鸦骑士  
+##### 1038#       发表于 2025-3-12 08:36
+
+平均四倍拉中奖率，也挺合理<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
