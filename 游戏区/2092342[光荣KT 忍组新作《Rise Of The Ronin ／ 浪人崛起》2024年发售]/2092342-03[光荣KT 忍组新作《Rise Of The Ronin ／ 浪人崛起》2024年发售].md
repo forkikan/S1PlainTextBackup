@@ -727,3 +727,11 @@ PC版宣传特性：120帧高帧率&amp;更高的画质。<img src="https://stat
 
 只能说游戏好不好玩跟罐头无关，跟能长期吸引人玩的部分极强关联，只要有个极其优秀的战斗系统，给个2009年刺客2同款的罐头又怎样？完全没影响
 
+
+*****
+
+####  woshenc  
+##### 3478#       发表于 2025-3-12 10:34
+
+对了，你们开局选什么职业？是不是最后那个最废的一无所有最好？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
