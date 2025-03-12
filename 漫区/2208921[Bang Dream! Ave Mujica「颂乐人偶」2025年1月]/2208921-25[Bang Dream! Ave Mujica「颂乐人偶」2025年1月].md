@@ -4207,3 +4207,15 @@ mygo也是故事决定了角色，这就是绫奈的创作方式了，她访谈�
 
 后面能这么写，确实又让剧本丰富了一层。剧本难度高成这样，我只能说真的又菜又爱玩。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  595505568  
+##### 35873#       发表于 2025-3-12 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67634954&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-12 13:09</a>
+我看到说现在素睦厨就聚集在一个天之弱的素睦amv视频下抱团取暖互相安慰
+
+—— 来自 HUAWEI HLK-AL00, An ...</blockquote>
+原来是另外一个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，都叫哭墙了，只能说弱势到这个水平没谁了
+
