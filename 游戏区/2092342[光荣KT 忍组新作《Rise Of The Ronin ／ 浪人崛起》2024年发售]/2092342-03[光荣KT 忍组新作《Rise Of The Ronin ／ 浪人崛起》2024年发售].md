@@ -814,3 +814,11 @@ PC版宣传特性：120帧高帧率&amp;更高的画质。<img src="https://stat
 
 进横滨前的传送点开了必崩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  廖化  
+##### 3487#       发表于 2025-3-12 18:10
+
+啊啊啊啊啊啊石火我抓不到时机啊跟卧龙不是一套机制吗！！！<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
