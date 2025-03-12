@@ -822,3 +822,32 @@ PC版宣传特性：120帧高帧率&amp;更高的画质。<img src="https://stat
 
 啊啊啊啊啊啊石火我抓不到时机啊跟卧龙不是一套机制吗！！！<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  隔壁老黄  
+##### 3488#       发表于 2025-3-12 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67637543&amp;ptid=2092342" target="_blank">廖化 发表于 2025-3-12 18:10</a>
+啊啊啊啊啊啊石火我抓不到时机啊跟卧龙不是一套机制吗！！！</blockquote>
+差远了，石火是一套动作，不像卧龙可以瞎按
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 3489#       发表于 2025-3-12 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67637543&amp;ptid=2092342" target="_blank">廖化 发表于 2025-3-12 18:10</a>
+啊啊啊啊啊啊石火我抓不到时机啊跟卧龙不是一套机制吗！！！</blockquote>
+建议先低难度，等拿到几个强力流派再调高难度
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  匿名用户  
+##### 3490#       发表于 2025-3-12 18:37
+
+有人能传个进了横滨城的存档吗？试试帧数如何，看是否需要及时退款。
+
