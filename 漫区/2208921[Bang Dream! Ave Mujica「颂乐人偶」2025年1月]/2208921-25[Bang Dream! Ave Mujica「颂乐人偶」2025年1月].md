@@ -4721,3 +4721,31 @@ mygo也是故事决定了角色，这就是绫奈的创作方式了，她访谈�
 
 -〉 找心理醫生
 
+
+*****
+
+####  595505568  
+##### 35919#       发表于 2025-3-12 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67636957&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-12 17:05</a>
+祥子哈氣人不就是老三樣：
+
+馬希洛看見母雞卡進展不順關心祥子</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">素世：“祥酱，不要给我找活了，我谢谢你”
+因为病情加重和孢子粉效果，导致真白和睦共享了一个新的主治医师
+真白现在有五个医生在管（指素世被拉来干医师）
+睦现在有一个医生在管（不得不管）
+建议祥子还是少哈气，医生已经不够用了（）
+
+
+*****
+
+####  zhoujin8584  
+##### 35920#       发表于 2025-3-12 17:15
+
+答案是带入祥子的相方。
+
+阴暗的生长环境，滋养出阴暗的品质，即使我是这样的人，甚至不是人，虚假的土壤也结出了真实的情感，也值得被爱。
+
+这就是初祥啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
