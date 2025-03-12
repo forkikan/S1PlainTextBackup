@@ -4360,3 +4360,65 @@ mygo也是故事决定了角色，这就是绫奈的创作方式了，她访谈�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  595505568  
+##### 35888#       发表于 2025-3-12 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67635448&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-3-12 14:15</a>
+其实这一看，小姨子反而是设计的最正常的关系性。。。
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+那…确实吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  GBLMikuHatsune  
+##### 35889#       发表于 2025-3-12 14:19
+
+什么小姨子折中方案<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 35890#       发表于 2025-3-12 14:20
+
+我还是不喜欢小姨说。
+
+不过现在重要的是双子，双子本身就是隐藏真相。
+
+
+*****
+
+####  凉良  
+##### 35891#       发表于 2025-3-12 14:23
+
+我就希望有人线下给mggm狠狠上上压力了
+
+*****
+
+####  thisisaspider  
+##### 35892#       发表于 2025-3-12 14:23
+
+我不喜欢双子说。因为目前我看不到任何必须使用双子说才能表达的内容。双子说隐藏了真相。但这个真相是否又是重拿轻放，最后是否会毫无意义。
+
+但因为还没到结局或者我的理解不到位。暂时先这样。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  黑色蘑菇  
+##### 35893#       发表于 2025-3-12 14:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">小姨说成真的话，jk斗财阀的故事估计没有了。
+
+老登就是长大后的祥。。
+
+劝切割中登的时候，和祥子切割ccc一模一样。
+
+老登估计年轻时一样喜欢到处背负别人人生，最后和大象老师一样搞出鸡团一样搞出初华了，对初华的态度更祥一样摆烂扔一边了。
+
+年轻时老登贵公子过家家，祥大小姐过家家
+
+如果制作组让人没有信心，还是能搞出祥和老登的对偶的。。。
+
