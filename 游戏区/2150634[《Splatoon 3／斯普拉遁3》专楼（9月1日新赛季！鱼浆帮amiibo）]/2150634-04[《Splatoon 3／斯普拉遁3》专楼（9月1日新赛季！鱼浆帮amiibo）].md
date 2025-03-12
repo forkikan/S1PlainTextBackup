@@ -41,3 +41,13 @@
 
 额，我发图我自己看不见
 
+
+*****
+
+####  秋月孝三  
+##### 5628#       发表于 2025-3-12 11:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">双枪走射判定回来了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
