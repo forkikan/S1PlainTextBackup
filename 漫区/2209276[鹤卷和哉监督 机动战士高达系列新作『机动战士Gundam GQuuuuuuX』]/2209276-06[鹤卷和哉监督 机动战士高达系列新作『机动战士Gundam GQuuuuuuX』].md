@@ -12611,3 +12611,33 @@ UC的NT和强化也有中间形态。
 
 番茄脑袋这么圆肯定是纯自然的，最多用点蛋白粉<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kuriri  
+##### 8422#       发表于 2025-3-12 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67636145&amp;ptid=2209276" target="_blank">灵魂收割机 发表于 2025-3-12 15:33</a>
+
+番茄脑袋这么圆肯定是纯自然的，最多用点蛋白粉</blockquote>
+但你看小番茄这个发尾QQ弹弹的感觉好像那种切花刀然后下锅炸的章鱼香肠哦🐙
+
+1741765294103.jpg
+(12.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-12 15:41 上传
+
+<img src="https://img.saraba1st.com/forum/202503/12/154159wchochjcff7eo5u5.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Steel.Haze  
+##### 8423#       发表于 2025-3-12 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67635991&amp;ptid=2209276" target="_blank">kuriri 发表于 2025-3-12 15:17</a>
+
+我只看过0079三个剧场版，感觉紫婆虽然知道夏亚身份但对他很放心，甚至有种若隐若现的爱怜，戒备什么的完 ...</blockquote>
+紫婆自己的NT军用化研究所、奇美拉部队、乃至让麦克贝这种人对夏亚有竞争程度，都是她的制衡手段。她的确很珍惜夏亚，不过她的心狠手辣和斗争手段也是必然的。她对夏亚不直接戒备，是认为夏亚既然这么折腾，就不是过来逞匹夫之勇的，她暂时不担心夏亚正面对抗。
+

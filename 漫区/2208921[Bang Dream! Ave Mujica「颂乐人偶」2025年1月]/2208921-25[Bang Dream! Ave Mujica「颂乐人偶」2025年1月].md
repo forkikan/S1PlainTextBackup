@@ -4524,3 +4524,40 @@ mygo也是故事决定了角色，这就是绫奈的创作方式了，她访谈�
 
 最后选择服从命运，在丰川家和自己打造的庭院度过虚假的永远。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 35902#       发表于 2025-3-12 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67636097&amp;ptid=2208921" target="_blank">老贝 发表于 2025-3-12 15:27</a>
+双重人格和双子，确实是很方便的把睦和初华从祥子身边带走的方式。
+
+童年会笑会说的睦，并非如今陪在祥子身 ...</blockquote>
+主要是这样写写的好就很古典，很有宿命感。有点怀疑十本改剧本的时候就差没明着说让脚本写祥子来一句to be or not to be，然后奔向自我毁灭之路。。。
+
+问题是这不是莎士比亚，是莎比
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ntrntr1  
+##### 35903#       发表于 2025-3-12 15:40
+
+<blockquote>Yugao 发表于 2025-3-12 08:35
+再这样下去，就要变成初华才是真正的丰川祥子了</blockquote>
+拉达冈就是玛丽卡，回归性原理
+
+
+*****
+
+####  thisisaspider  
+##### 35904#       发表于 2025-3-12 15:43
+
+ 本帖最后由 thisisaspider 于 2025-3-12 15:45 编辑 
+
+新古典金属乐队故事结局也要古典是吧，来点新的。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+听起来也不像啊。
+

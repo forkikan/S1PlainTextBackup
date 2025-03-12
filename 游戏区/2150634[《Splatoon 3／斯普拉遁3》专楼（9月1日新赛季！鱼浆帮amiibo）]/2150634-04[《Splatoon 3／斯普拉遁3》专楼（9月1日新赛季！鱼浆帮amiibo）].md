@@ -86,3 +86,13 @@
 
 感觉加特林和伞都退环境了一样<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KBAC  
+##### 5633#       发表于 2025-3-12 15:41
+
+锤子变成投掷型鲨鱼了
+
+但是锤子投掷出去后就会变成副武器判定，会像副武器一样被其他大招消掉
+
