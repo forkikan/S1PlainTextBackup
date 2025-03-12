@@ -602,3 +602,14 @@ ore miner is under attack<img src="https://static.saraba1st.com/image/smiley/fac
 
 —— 来自 Xiaomi 2211133C, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  体制  
+##### 63#       发表于 2025-3-12 09:47
+
+那我必须推荐红警2最棒的mod心灵终结了，有官中，有史诗级音乐，史诗级的战役，今年即将更新3.3.7出焚风反抗军的剧情，新单位，新cg。
+喜欢pvp也能排到人，T3科技不再无用，平衡性比原版好很多，除了我们我们欧盟玩家更擅长以绝对的操作碾压对手<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2211133C, Android 14, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
