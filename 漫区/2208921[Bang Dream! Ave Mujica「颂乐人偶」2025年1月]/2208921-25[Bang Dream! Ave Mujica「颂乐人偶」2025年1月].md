@@ -3359,3 +3359,93 @@ soyo:只要我把祥子拉回来，小睦就自动跟随了
 
 2025-3-12 08:03 上传
 
+
+*****
+
+####  zhoujin8584  
+##### 35808#       发表于 2025-3-12 08:06
+
+茜
+
+<img src="https://img.saraba1st.com/forum/202503/12/080530cv34dqvzvvittdtd.jpg" referrerpolicy="no-referrer">
+
+<strong>1741737096992.jpg</strong> (646.32 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-12 08:05 上传
+
+<img src="https://img.saraba1st.com/forum/202503/12/080547qrpkjrlrdgket39j.jpg" referrerpolicy="no-referrer">
+
+<strong>1741737253538.jpg</strong> (577.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-12 08:05 上传
+
+<img src="https://img.saraba1st.com/forum/202503/12/080609bb9k575kd0zrsbkk.jpg" referrerpolicy="no-referrer">
+
+<strong>1741737326470.jpg</strong> (577.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-12 08:06 上传
+
+<img src="https://img.saraba1st.com/forum/202503/12/080626z3zo7lazzl121rgg.jpg" referrerpolicy="no-referrer">
+
+<strong>1741737491631.jpg</strong> (483.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-12 08:06 上传
+
+*****
+
+####  zhoujin8584  
+##### 35809#       发表于 2025-3-12 08:08
+
+李子
+
+<img src="https://img.saraba1st.com/forum/202503/12/080742hueqnc7c89ccx2vt.jpg" referrerpolicy="no-referrer">
+
+<strong>1741737498244.jpg</strong> (603.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-12 08:07 上传
+
+<img src="https://img.saraba1st.com/forum/202503/12/080800nnn3punyrtdpphy2.jpg" referrerpolicy="no-referrer">
+
+<strong>1741737580140.jpg</strong> (449.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-12 08:08 上传
+
+<img src="https://img.saraba1st.com/forum/202503/12/080817esziyndse1z9tdms.jpg" referrerpolicy="no-referrer">
+
+<strong>1741737640237.jpg</strong> (449.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-12 08:08 上传
+
+*****
+
+####  ntrntr1  
+##### 35810#       发表于 2025-3-12 08:09
+
+<blockquote>huxiaopao163 发表于 2025-3-12 04:32
+话说初音这个名字，要是念成Hanon就好了，可以和海猫对上
+
+初华是真名，初音是作为佣人的名字 ...</blockquote>
+会让人怀疑老登的钱都是一代初华带来的
+
+一代初华和祥姥姥都先后去世
+
+老登和二代初华生了三角初音
+
+这样祥子六年没回岛上突然追上岛也很合理了。
+
+就是感觉回不去了。
+
