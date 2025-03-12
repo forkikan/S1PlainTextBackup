@@ -3728,3 +3728,58 @@ MyGO时期他说立希是「燈さえいればいい」只要有灯就好
 
 你说立希女士堵素食，素食切割之后找海铃替补，到底是为了灯还是为了mygo，可能两个都有，怎么说她是不愿意切割爱音跟野猫的，只是为了灯也说得通
 
+
+*****
+
+####  zhoujin8584  
+##### 35831#       发表于 2025-3-12 10:18
+
+柿本、词曲Diggy-MO'
+
+<img src="https://img.saraba1st.com/forum/202503/12/101724vhn4g7v2miihh5f5.jpg" referrerpolicy="no-referrer">
+
+<strong>1741745015466.jpg</strong> (622.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-12 10:17 上传
+
+<img src="https://img.saraba1st.com/forum/202503/12/101736ccm7o4od1d7c31od.jpg" referrerpolicy="no-referrer">
+
+<strong>1741745021362.jpg</strong> (440.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-12 10:17 上传
+
+<img src="https://img.saraba1st.com/forum/202503/12/101817v55igpao5uhzopii.jpg" referrerpolicy="no-referrer">
+
+<strong>1741745030527.jpg</strong> (508.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-12 10:18 上传
+
+<img src="https://img.saraba1st.com/forum/202503/12/101830e40mzmjg1gw12l4h.jpg" referrerpolicy="no-referrer">
+
+<strong>1741745035595.jpg</strong> (213.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-12 10:18 上传
+
+*****
+
+####  zhoujin8584  
+##### 35832#       发表于 2025-3-12 10:20
+
+素世厨看得还是挺准的，那一转身的回头的违和感，贝斯和鼓的夫妻组的她们已经是mygo的形状了
+
+
+*****
+
+####  曼彻斯特联  
+##### 35833#       发表于 2025-3-12 10:26
+
+闹了半天连梦以都不知道海铃为什么押注mujica<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

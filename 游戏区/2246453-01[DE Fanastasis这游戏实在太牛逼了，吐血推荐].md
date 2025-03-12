@@ -4035,3 +4035,14 @@ https://bgm.tv/subject/topic/33083
 
 龙息算什么类型的伤害啊，墓地里那只腐龙打不过<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  发条之心  
+##### 359#       发表于 2025-3-12 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67631646&amp;ptid=2246453" target="_blank">siriii 发表于 2025-3-11 23:53</a>
+
+打完了，在通关前传送到伊修托鲁，坐着小木筏经历了整个游戏里最悠闲的一段探索后，最终居然漂流到了海岸洞 ...</blockquote>
+我其实到现在都没理解阿尔弗雷德为什么决定自杀/自我救赎，感觉和他后篇一路杀杀杀的行为不太相符。请问能详细说说你对阿尔弗雷德赴死的理解吗？
+
