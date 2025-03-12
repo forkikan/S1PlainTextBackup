@@ -3460,3 +3460,16 @@ PSP版就修了
 
 问个问题，为啥一代能战斗加速到3级，二代只能加速到2级
 
+
+*****
+
+####  Ny  
+##### 364#       发表于 2025-3-12 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67639290&amp;ptid=2090186" target="_blank">ds2324ds2 发表于 2025-3-12 22:27</a>
+
+问个问题，为啥一代能战斗加速到3级，二代只能加速到2级</blockquote>
+游戏中期收了史塔利恩之后就有4X战斗加速了, 不用带他就能开4X
+
+但大地图移动加速还是要带上他
+
