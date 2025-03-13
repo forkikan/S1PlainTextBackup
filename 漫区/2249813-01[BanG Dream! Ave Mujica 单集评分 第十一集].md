@@ -2305,3 +2305,40 @@ tm的初音根本就没见过几回祥子啊，见了第一面就立下了想扣
 
 +2 愉快，太愉快了，我很久没有看动画这么开心了哈哈哈哈哈哈哈哈哈
 
+
+*****
+
+####  风畔鹤  
+##### 249#       发表于 2025-3-14 01:17
+
+Mujika高能回，柿本广大献给闪彩动画的一封情书<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  风真人  
+##### 250#       发表于 2025-3-14 01:20
+
+太dark了，太雷雨了，太有财阀了
+这集前我以为不能再烂了，每周花20分钟坐牢折磨自己也快看到头了，没想到还能再创新高，烂成这样真的很有创意，十本什么时候能被线下真实也体会下观众mindfuck的感受<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kurihayn  
+##### 251#       发表于 2025-3-14 01:21
+
+<blockquote>雪菜碧池 发表于 2025-3-14 01:14
+姐妹感情好喷了，只能说没那么差，区别对待还是有的
+
+</blockquote>
+所以爹死了亲生女儿死命撕养女是什么逻辑你理清楚了？
+
+
+*****
+
+####  江口夕  
+##### 252#       发表于 2025-3-14 01:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">财阀乱伦这东西一眼是独角兽的
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
