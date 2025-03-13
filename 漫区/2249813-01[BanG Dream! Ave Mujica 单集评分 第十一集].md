@@ -2655,3 +2655,21 @@ Ave Mujica也算是传奇耐复活王了，在反复横跳了这么多次的情�
 
 不过感觉不如直接把小初华写死，这样初音补完自己半身的动力也能更强，还能进一步避免现代信息社会找人对身份的风险性。
 
+
+*****
+
+####  yakee  
+##### 285#       发表于 2025-3-14 07:30
+
+乐子人也乐不动了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  一心而用  
+##### 286#       发表于 2025-3-14 07:35
+
+<img src="https://p.sda1.dev/22/b5ab05c5abcb09ab244678c93d43c32d/image.jpg" referrerpolicy="no-referrer">
+
