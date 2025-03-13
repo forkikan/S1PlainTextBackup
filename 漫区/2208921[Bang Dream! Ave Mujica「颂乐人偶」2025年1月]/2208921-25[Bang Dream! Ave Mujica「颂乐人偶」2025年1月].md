@@ -15312,3 +15312,187 @@ Mujica动画给人感觉很看重的一点就是对她人的情感错位。
 我猜这集母鸡卡会用几乎一整集讲初音初华的过去</blockquote>
 这么低调？
 
+
+*****
+
+####  木板春香  
+##### 36878#       发表于 2025-3-14 02:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649915&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-14 02:49</a>
+
+好感这事应该已经确定了。
+
+祥子说初华像太阳，初音像月亮。</blockquote>
+十本这么作践角色的演出，我真怕到最后他想再搞鸡团一次，再把CCC拉出来恶心大家一下，现在这个时间点阁楼之月只是证明现在的祥子是在意初音的，甚至可以说是在暗示初音身份，但后面要怎么搞，我很虚。
+
+*****
+
+####  老贝  
+##### 36879#       发表于 2025-3-14 02:54
+
+这故事折腾这么久，终于完成了把丰川祥子身边离她最近的两个女人形象给替换掉的壮举。
+
+睦已经人格合一，呆在那里的睦现在对祥子到底是什么感情都还未知。
+初音则是表示自己是盗用妹妹身份，通过爱丰川祥子这个理想中幸福自我的行为，来享受自己作为被对比的悲剧女主角形象的一个人。
+
+敢通过这么个东西确实是需要不小魄力的，挺好奇这么搞最后的商业结果会是怎么样。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  易筋经  
+##### 36880#       发表于 2025-3-14 02:54
+
+我现在就在思考一个问题，有些编剧写的东西不如月租3000日元的AI，那她的存在价值到底是什么？她是制作人突然劈腿生出来的私生女吗？制作人必须给她发工资养着她？
+
+
+*****
+
+####  adretyu67.  
+##### 36881#       发表于 2025-3-14 02:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649920&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-3-14 02:53</a>
+
+十本这么作践角色的演出，我真怕到最后他想再搞鸡团一次，再把CCC拉出来恶心大家一下，现在这个时间点阁 ...</blockquote>
+不就鸡狗合邦10人春日影吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+13话歌单的名额还够吗。
+
+*****
+
+####  真爱与热情  
+##### 36882#       发表于 2025-3-14 02:56
+
+这片子爆点一个接一个，好像就没看到过她们组乐队什么时候开心过，EP10最后甚至没给观众看看她们最后的表情
+
+真就EP7的大祥有点开心的迹象，她们真的能在最后一集开心演奏个曲子吗
+
+*****
+
+####  沙坪坝沙耶香  
+##### 36883#       发表于 2025-3-14 02:56
+
+小祥是继承人，搞女同丰川家就要绝后了，所以才不让初华靠近小祥，诶，丰川家太黑暗了
+
+*****
+
+####  adretyu67.  
+##### 36884#       发表于 2025-3-14 02:58
+
+本来以为祥妈病逝是c团起点，168e是扭曲的根源。
+
+结果绕了一圈最后真成了初华：全是我干的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+这锅有点揽的可怕了。
+
+*****
+
+####  木板春香  
+##### 36885#       发表于 2025-3-14 03:02
+
+  根据前面那么多次错位演出炒作，我觉得这些锅应该会用误会去消解，但初音形象有点剧烈损毁，推木头和满地爬行都可以说成是脑内妄想，但传播GIF的时候就不会想那么多了，还有2集的空间去把这11集的炒作再反转的。
+
+*****
+
+####  ntrntr1  
+##### 36886#       发表于 2025-3-14 03:03
+
+让我们分析一下，真初华从小梦想就是成为爱抖露，那岛上肯定不至于闭塞到电视都没得看的，那么偶像爱好者妹妹看到娱乐圈当红乐队素咪咪这肯定是铁板钉钉钉的事情
+
+但真初华和三角妈从来没来东京甚至都没给试图打个电话给事务所找过初音，这肯定是被丰川家的大手摁住了，丰川大手就这么毁了一个花季少女偶像梦！
+
+*****
+
+####  maritimus  
+##### 36887#       发表于 2025-3-14 03:05
+
+我服了，祥子确实是冰，什么一见祥子误终生
+
+*****
+
+####  岬开斗  
+##### 36888#       发表于 2025-3-14 03:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648837&amp;ptid=2208921" target="_blank">戏谑二次元 发表于 2025-3-13 23:54</a>
+就丰川家女系这个寿命，怎么组一辈子乐队</blockquote>
+短命是跟男人生孩子导致的。
+如果祥子跟灯或者初华或者睦头或者以上全部结婚，就不会短命了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  蓮華  
+##### 36889#       发表于 2025-3-14 03:18
+
+看到现在还在认真分析剧情的我都想笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ntrntr1  
+##### 36890#       发表于 2025-3-14 03:25
+
+不是假装正经分析找编剧的草台漏洞吗（）
+
+*****
+
+####  qlipho  
+##### 36891#       发表于 2025-3-14 03:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649946&amp;ptid=2208921" target="_blank">岬开斗 发表于 2025-3-14 03:10</a>
+
+短命是跟男人生孩子导致的。
+
+如果祥子跟灯或者初华或者睦头或者以上全部结婚，就不会短命了。</blockquote>
+厨厨编剧都这样了，祥老师要背负丰川的责任哒（都被责任拷打两季了还不懂
+
+*****
+
+####  联想会  
+##### 36892#       发表于 2025-3-14 03:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649946&amp;ptid=2208921" target="_blank">岬开斗 发表于 2025-3-14 03:10</a>
+短命是跟男人生孩子导致的。
+如果祥子跟灯或者初华或者睦头或者以上全部结婚，就不会短命了。</blockquote>
+初是小姨不合适生，睦生第一个灯生第二个<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  岬开斗  
+##### 36893#       发表于 2025-3-14 03:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649967&amp;ptid=2208921" target="_blank">联想会 发表于 2025-3-14 03:31</a>
+初是小姨不合适生，睦生第一个灯生第二个
+
+—— 来自 鹅球 v3.4.98</blockquote>
+正确的。
+丰川家女儿短命都是因为自己生，所以只要让灯和睦头来生孩子的话祥子就不会短命了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  鱼丈人  
+##### 36894#       发表于 2025-3-14 03:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648090&amp;ptid=2208921" target="_blank">zzs2338645 发表于 2025-3-13 23:03</a>
+那这一切的问题元凶岂不是还是祥子祥子不去岛上，就不会见到初音，初音就不会来东京，祥爹就不会被赶出来， ...</blockquote>
+什么牛家村惨案
+
+*****
+
+####  鱼丈人  
+##### 36895#       发表于 2025-3-14 03:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67646805&amp;ptid=2208921" target="_blank">DARK_HGCG 发表于 2025-3-13 21:46</a>
+我猜这集母鸡卡会用几乎一整集讲初音初华的过去</blockquote>
+这么低调？
+
+*****
+
+####  ape-apple  
+##### 36896#       发表于 2025-3-14 05:30
+
+我就问一句，日本人喜欢吗 喜欢的话当我没说
+
