@@ -1425,3 +1425,11 @@ GIIdsQCbUAAO84K.jpg
 
 好缺钱啊，随便买点东西都要几千块，玩到现在10小时才攒了5万块，不舍得花啊
 
+
+*****
+
+####  nancygreenlife  
+##### 3547#       发表于 2025-3-14 00:00
+
+这游戏似乎设计初衷是让玩家一边玩着它一边玩手机，打开地图选个点设置自动前进，然后拿起手机刷刷微博贴吧看个短视频啥的，到地开砍，砍完打开地图再选个点……循环往复<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

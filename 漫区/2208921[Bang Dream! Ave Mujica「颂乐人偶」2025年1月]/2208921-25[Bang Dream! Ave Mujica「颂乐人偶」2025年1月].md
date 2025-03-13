@@ -11547,3 +11547,278 @@ mggm 你还不能代表官方谁能啊？</blockquote>
 
 当年爽姐消息轰炸被无视，现在大祥信息轰炸也被无视。难怪急了
 
+
+*****
+
+####  zxtree  
+##### 36547#       发表于 2025-3-13 23:58
+
+这剧情跟音乐有啥关系呢，玩金属能解决吗
+
+放黑魂里用+10黑暗剑挺合适的
+
+*****
+
+####  everdream  
+##### 36548#       发表于 2025-3-13 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648837&amp;ptid=2208921" target="_blank">戏谑二次元 发表于 2025-3-13 23:54</a>
+就丰川家女系这个寿命，怎么组一辈子乐队</blockquote>
+看中登那么能喝和祥子剧内战力表现，明显基因改良这一代出成果，说不定真能长寿
+
+*****
+
+####  大户爱  
+##### 36549#       发表于 2025-3-13 23:58
+
+确实，中登也挺蠢的。
+你老丈人的丑闻你知道也就算了。
+和老登挑明，你私生女我知道了，说我们有点人情味，一起暗地里多关照下你私生女也行。
+
+非和老登吵上桌，你必须和我一起把这丑闻爆了。
+
+中登缺心眼到这种程度，怪不得被骗168亿。
+
+*****
+
+####  cxj649  
+##### 36550#       发表于 2025-3-13 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648525&amp;ptid=2208921" target="_blank">戏谑二次元 发表于 2025-3-13 23:28</a>
+
+祥子肯定要招赘婿的，丰川之血。有孩子之后估计祥子也要英年早逝吧
+
+反正感觉丰川家女人都死的早 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也是40岁左右吧
+
+*****
+
+####  adretyu67.  
+##### 36551#       发表于 2025-3-13 23:59
+
+这话木头就一个镜头，但是眼睛莫名像莫头，抱着吉他的动作像睦头<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  dqtql  
+##### 36552#       发表于 2025-3-13 23:59
+
+wsd能让李子的live在新宿的大屏幕上播出，但是代价呢？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 36553#       发表于 2025-3-14 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648866&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-3-13 23:58</a>
+
+确实，中登也挺蠢的。
+
+你老丈人的丑闻你知道也就算了。
+
+和老登挑明，你私生女我知道了，说我们有点人情味， ...</blockquote>
+毕竟优点是真诚。可能祥妈没给他补过家族知识。
+
+*****
+
+####  是谁的书画  
+##### 36554#       发表于 2025-3-14 00:00
+
+ 本帖最后由 是谁的书画 于 2025-3-14 00:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648739&amp;ptid=2208921" target="_blank">清江望月 发表于 2025-3-13 23:44</a>
+
+正经私生子都不好进家族，赘婿私生子更是不管在哪个位面也没有进族谱的理由啊，初音说白了和丰川家族就没 ...</blockquote>
+不需要进入家族啊，三角初音作为完全不是又丰川家血脉诞生的孩子，足够作为老登复仇家族的动机了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+只要让丰川祥子和三角初音在东京见面，那么在暗中推动事情的进展就好。
+
+纵看老登，
+
+他默许了初音进京
+
+给初音安排了sumimi，让她成为偶像，在资格上更近一步
+
+没有阻止mujica结成，并且暗中给足资源
+
+mujica解散之后火速把祥子接回家，却没有阻止她与外人接触
+
+mujica的再度结成也没有进行阻挠，初华就这样带着那五件舞台服离开事务所
+
+老登刺激祥子，间接导致祥子开始担心初华的行迹
+
+可以预见的下一集更不会阻扰祥子追妻，人到机场跑了真没人拦吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+这都是老登的大棋，目的就是让祥子和初华在一起，让这个血缘中断
+
+过去他做不成的事情，就交给他女儿去做了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+（纯假药啊，编着玩的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">）
+
+*****
+
+####  zhoujin8584  
+##### 36555#       发表于 2025-3-14 00:00
+
+<blockquote>Delicatus545 发表于 2025-3-13 23:43
+女系短命估计是染色体方面的疾病吧</blockquote>
+但是拥有女系繁荣的家族必然也是需要长寿守业的，只是说动画不会再往更深的阴谋去扒了。
+
+毕竟他们刚把美奈美的“竞争心”中性化，回撤成只是害怕而逃避但很高兴有人能顶上自己的缺位。
+
+*****
+
+####  ntrntr1  
+##### 36556#       发表于 2025-3-14 00:00
+
+我觉得初音多半有点被害妄想症的
+
+初华对她说的那些多半也是她脑补的
+
+*****
+
+####  thisisaspider  
+##### 36557#       发表于 2025-3-14 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648814&amp;ptid=2208921" target="_blank">暴走的包子 发表于 2025-3-13 23:52</a>
+
+我的意思是老登这么搞完全就是**啊，想巩固自己地位不应该早就把初音处理好么，不管是扔东京湾还是按在岛 ...</blockquote>
+剧里没表现老登要巩固自己的地位吧。只是说按实力来看，丰川家对抗狗仔队应该没什么问题的。
+
+*****
+
+####  zhoujin8584  
+##### 36558#       发表于 2025-3-14 00:01
+
+泥漏开始共情老登了，我先撤了
+
+*****
+
+####  cxj649  
+##### 36559#       发表于 2025-3-14 00:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">即使祥妈也是大祥14岁死的，所以大祥即使遗传也有20年寿命啊
+
+*****
+
+####  adretyu67.  
+##### 36560#       发表于 2025-3-14 00:02
+
+可能中登优良了祥子的基因吧。
+
+毕竟是啤酒战神还只是颓废。
+
+
+*****
+
+####  thisisaspider  
+##### 36561#       发表于 2025-3-14 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648823&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-3-13 23:53</a>
+
+剧情编排就是有问题，这集不如直接接在祥子回忆后面</blockquote>
+同意，一直藏着信息，让人无法理解前面的剧情。直到最后连后面的揭幕也变得无法理解了。
+
+*****
+
+####  半年  
+##### 36562#       发表于 2025-3-14 00:03
+
+鸡团正常人的精神稳定值全点在mana上了
+
+*****
+
+####  6030sylar  
+##### 36563#       发表于 2025-3-14 00:03
+
+<img src="https://img.saraba1st.com/forum/202503/14/000050ikns29u05zs4vh2t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (83.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 00:00 上传
+
+乱码肯定还有藏，但这值得吗（but at what cost）
+
+*****
+
+####  真爱与热情  
+##### 36564#       发表于 2025-3-14 00:03
+
+前面9集，再怎么玩庞氏骗局，用大的爆点来盖小爆点，还是死死扣住乐队跟音乐主题的，就算做的很拙劣。
+
+mygo这么操作的也不少，立希跟野猫的塑造就跟闹着玩一样，糊弄观众但是也没有糊弄动画主题
+
+这集直接不演了，就像是明牌告诉观众，你看她们都这么惨了，就顺着她吧，真是遭不住。
+
+下集不要告诉我mujica4人组直接读了下mygo时期的存档，秒变正常人了
+
+*****
+
+####  厄神之息  
+##### 36565#       发表于 2025-3-14 00:03
+
+草草草，怎么就默认丰川家女都是短命鬼了，真来御阿礼之子是吧？
+
+
+*****
+
+####  江口夕  
+##### 36566#       发表于 2025-3-14 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648535&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-13 23:29</a>
+我大概猜到了一点所谓的秘密是什么。
+
+如果说老登可以为了初音妈离开初华家，我是不是可以假设理解成老登和 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">初音在家族正常化就意味着他有夺权的可能，你外性可以当打工人是因为你这天血脉里有丰川的血（祥子）。有大祥在，老登可以安枕无忧。
+要是让初音继承去了，家族就不姓丰川，改老登姓了，家族肯定忍不了，这时候老登就g了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  zhoujin8584  
+##### 36567#       发表于 2025-3-14 00:04
+
+另外就是对于明显的导演大手最好顺从
+
+比如说之前莫第八集的“其他角色都消失了”，就是字面意义上的第九集真能肘死。
+
+这里初华把她的夺走祥子的好父亲和168亿联系到一起，以后mujica再有tgw赞助，也只是老登在赎罪了，甚至跟老登都没关系。
+
+毕竟“我可是丰川祥子啊”，谁才是TGW集团真正的掌权人，老登中登连性别都不对。
+
+*****
+
+####  Hchan  
+##### 36568#       发表于 2025-3-14 00:05
+
+看这部番最大的遗憾还是被提前剧透了初华小姨这个设定，真想知道在完全没有被剧透的前提下看这一集时的自己的表情<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sephal  
+##### 36569#       发表于 2025-3-14 00:06
+
+怎么感觉真初华有点多余的样子，编剧会不会已经她写死了
+
+*****
+
+####  草化木  
+##### 36570#       发表于 2025-3-14 00:06
+
+剧情演到现在，像是经过打磨的样子吗，主打一个编剧说什么就是什么，毫无讨论逻辑的必要。
+
+不会有什么幕后黑手，不会有什么JK斗财阀。
+
+*****
+
+####  zhoujin8584  
+##### 36571#       发表于 2025-3-14 00:08
+
+<blockquote>adretyu67. 发表于 2025-3-14 00:02
+可能中登优良了祥子的基因吧。
+
+毕竟是啤酒战神还只是颓废。</blockquote>
+其实烂人有一点真心就很容易原谅，也可能是我心软。祥子摆烂回出租屋之后，我发现中登会把祥子的起居空间收拾干净，就感觉这饺子已经半熟了。
+
