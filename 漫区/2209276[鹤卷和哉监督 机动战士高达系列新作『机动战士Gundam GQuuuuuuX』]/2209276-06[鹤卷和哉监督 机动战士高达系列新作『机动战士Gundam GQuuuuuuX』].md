@@ -13167,3 +13167,48 @@ G跨时蛮好的，干嘛加个之战
 
 不对，我好像连他这个姿势怎么进入驾驶舱都没想到
 
+
+*****
+
+####  岸浪白野  
+##### 8475#       发表于 2025-3-13 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67646385&amp;ptid=2209276" target="_blank">ads147147 发表于 2025-3-13 20:50</a>
+
+这个设计挺坦克的，v是哪一集用这个，完全忘掉了。。</blockquote>
+
+第6集就有
+
+<img src="https://img.saraba1st.com/forum/202503/13/222954qva9ti9kharvin4y.png" referrerpolicy="no-referrer">
+
+<strong>%KH8{G6A_NIQ{MM[@}M`}G1.png</strong> (588.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 22:29 上传
+
+*****
+
+####  岸浪白野  
+##### 8476#       发表于 2025-3-13 22:31
+
+ 本帖最后由 岸浪白野 于 2025-3-13 22:35 编辑 
+
+“如果是活到UC153年的玛秋”
+
+<img src="https://img.saraba1st.com/forum/202503/13/223104l6i3plg2vqpz2cpq.jpg" referrerpolicy="no-referrer">
+
+<strong>597UG$I_RR[SYHB1I_9{S.jpg</strong> (146.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 22:31 上传
+
+<img src="https://img.saraba1st.com/forum/202503/13/223530z93omzwcy1zn3y89.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (91.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 22:35 上传
+

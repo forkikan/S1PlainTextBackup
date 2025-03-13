@@ -7632,3 +7632,481 @@ wait，祥爹欠168亿还能翻案的吗<img src="https://static.saraba1st.com/i
 中登也是个SB啊，三角初音和丰川家一点血缘关系都没，接回丰川家是什么脑回路，中登不知道老登跟他一样是入 ...</blockquote>
 可能老登太会装吧，估计中登也没想到老登在丰川家族混了几十年，一点地位都没有
 
+
+*****
+
+####  阿卡拉兰斯  
+##### 36170#       发表于 2025-3-13 22:28
+
+18分40秒的初华独角戏，某种意义上真不如广播剧嘞
+说起来我最近两个星期沉迷游戏都没看剧透，也没看楼，现在版本还和两个星期前一样吗
+
+*****
+
+####  戏谑二次元  
+##### 36171#       发表于 2025-3-13 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647325&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-13 22:27</a>
+看完只想问
+
+你们签合同都不看身份证的吗</blockquote>
+问就是丰川家的大手
+
+*****
+
+####  长日留痕  
+##### 36172#       发表于 2025-3-13 22:28
+
+其实如果不是热度太高的话 母鸡卡各方面还挺符合“冷门神作”的特质的<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI JAD-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0
+
+*****
+
+####  yone0000  
+##### 36173#       发表于 2025-3-13 22:28
+
+舞台少女三角初华，结尾得配fly me to the star<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  拉达  
+##### 36174#       发表于 2025-3-13 22:28
+
+比我想象中还变态，下一集估计真的是所有人大团圆寿司了
+
+绝对是独角兽整出来的活
+
+*****
+
+####  sephal  
+##### 36175#       发表于 2025-3-13 22:28
+
+李子辛苦了
+
+觉得独角戏这形式很屌的staff很low
+
+*****
+
+####  NEWROMANCER  
+##### 36176#       发表于 2025-3-13 22:28
+
+所以这集为什么能三个分镜？
+
+*****
+
+####  Bieaeml  
+##### 36177#       发表于 2025-3-13 22:28
+
+感觉11集才是原本剧本的主轴，柿本一看你写的什么玩意让爷来秀，然后浪费了10集给大家拉一坨。当然双子+女铜小姨这种设定一准是独角兽干的，只能说人人有锅<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mkntoil  
+##### 36178#       发表于 2025-3-13 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647325&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-13 22:27</a>
+看完只想问
+
+你们签合同都不看身份证的吗</blockquote>
+日本人还真没身份证这玩意<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 36179#       发表于 2025-3-13 22:28
+
+海林这电话的发言笑死人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 36180#       发表于 2025-3-13 22:28
+
+只能说，这个演出真的是我十五年未见的不适
+
+确实是新奇的体验
+
+*****
+
+####  tjshibc21  
+##### 36181#       发表于 2025-3-13 22:29
+
+13集塞了这么多内容也是难为了 应该拍24集的
+
+*****
+
+####  asion617  
+##### 36182#       发表于 2025-3-13 22:29
+
+异父同母姐妹长得分不出来? 还是说继父其实被老登绿了
+
+*****
+
+####  戏谑二次元  
+##### 36183#       发表于 2025-3-13 22:29
+
+小姨这是原剧本吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hyde999  
+##### 36184#       发表于 2025-3-13 22:29
+
+女同动画里搞老爷**佣人这种戏码，也是突破业界下限了
+
+*****
+
+####  syndrome2032  
+##### 36185#       发表于 2025-3-13 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647325&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-13 22:27</a>
+看完只想问
+
+你们签合同都不看身份证的吗</blockquote>
+日本没有户口制度。
+
+这样伪造身份还真的可行。
+
+*****
+
+####  tuatha  
+##### 36186#       发表于 2025-3-13 22:29
+
+所以丰川家到底谁说了算？
+
+*****
+
+####  6030sylar  
+##### 36187#       发表于 2025-3-13 22:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">感觉像没钱硬让初华念一集独白
+
+难道其实是发现做完后其实篇幅是够祥子过去演3集而不用压到一集里
+
+*****
+
+####  yuanlaishizheya  
+##### 36188#       发表于 2025-3-13 22:30
+
+我到底看了个什么东西<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  南宮凝香  
+##### 36189#       发表于 2025-3-13 22:30
+
+日你媽，退錢！
+
+豐川家的黑暗就是老中小三登都是廢物嗎？！！
+
+另外， 初音小姐你幾歲了
+
+能分清生父養父， 那初華出生時至少也三歲了吧
+
+祥子是個連眼前人大了三歲也分不清的弱智？
+
+广初音小姐你18歲來上高一？
+
+*****
+
+####  nt2013  
+##### 36190#       发表于 2025-3-13 22:30
+
+这独角戏里面 台下无观众 看的人才是观众吧？ 
+
+*****
+
+####  cyanwow  
+##### 36191#       发表于 2025-3-13 22:30
+
+显然是那晚上看星星时候牢祥和三角女士被天上不干净的东西附身了，牢祥变成魅魔克死牢妈和祥爹。
+
+只有三角女士的养父长期接触深海发现了她的不对劲，死于深海眷族的攻击。
+
+最后一集是所有人一起变成鱼人的傀儡。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pliee  
+##### 36192#       发表于 2025-3-13 22:30
+
+好无聊的一集<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  leommoo  
+##### 36193#       发表于 2025-3-13 22:30
+
+烂出天际咯，把设定念一集以为自己演出很棒？人设崩的人继续崩<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+*****
+
+####  翼宿一  
+##### 36194#       发表于 2025-3-13 22:31
+
+如何挽救其他角色的风评？那当然是让老登爆炸 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+甚至连祥父的形象都挽回了一点，变成了老登给他穿小鞋。但最大的未解之谜果然还是，为什么初音和祥子玩一天就中毒这么深，虽然说搞炸祥父可能有负罪感吧，但就玩过一次的小朋友真的值得自己一个人跑到东京去吗？
+
+*****
+
+####  yaziqaq  
+##### 36195#       发表于 2025-3-13 22:31
+
+好笑吗？我只看到害三十个乐队失去贝斯手的元凶在谈自己的信用
+
+*****
+
+####  ntrntr1  
+##### 36196#       发表于 2025-3-13 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647377&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-3-13 22:29</a>
+
+日本没有户口制度。
+
+这样伪造身份还真的可行。</blockquote>
+但也不可能完全没户籍证明吧
+
+连绝叫骗保都还要假结婚再鲨人呢 
+
+啥都不看那岂不是偷渡过去随便编个名字就能上班了
+
+*****
+
+####  Mika-S  
+##### 36197#       发表于 2025-3-13 22:31
+
+祥子这是不是人形虎符咒，靠近她的人都分裂了，越早靠近的两个青梅竹马分裂地最彻底<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  俾斯麥  
+##### 36198#       发表于 2025-3-13 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647380&amp;ptid=2208921" target="_blank">tuatha 发表于 2025-3-13 22:29</a>
+
+所以丰川家到底谁说了算？</blockquote>
+根据现有情报，也就是说丰川家还有上家<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  紫苑寺美琴  
+##### 36199#       发表于 2025-3-13 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647361&amp;ptid=2208921" target="_blank">asion617 发表于 2025-3-13 22:29</a>
+
+异父同母姐妹长得分不出来? 还是说继父其实被老登绿了</blockquote>
+合理推论，继父出海不归也是丰川家的大手<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TAQ  
+##### 36200#       发表于 2025-3-13 22:32
+
+这集独白内心戏这么多我还以为是独角兽负责的单集，结果还不是
+
+
+*****
+
+####  gammatau  
+##### 36201#       发表于 2025-3-13 22:32
+
+ 本帖最后由 gammatau 于 2025-3-13 22:33 编辑 
+
+等一下 我可能发现了老登良苦用心
+
+瑞士是可以同性结婚的
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| cxj649| + 2|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  澜沫  
+##### 36202#       发表于 2025-3-13 22:32
+
+感觉粉丝会很喜欢这种，说表情很美味。
+我没看11但抠群疯传的爬行动图太猎奇了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2020, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  厚乳果珍爽  
+##### 36203#       发表于 2025-3-13 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647325&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-13 22:27</a>
+
+看完只想问
+
+你们签合同都不看身份证的吗</blockquote>
+11区有身份证吗？
+
+*****
+
+####  ntrntr1  
+##### 36204#       发表于 2025-3-13 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647350&amp;ptid=2208921" target="_blank">Mkntoil 发表于 2025-3-13 22:28</a>
+
+日本人还真没身份证这玩意</blockquote>
+没身份证但也不可能啥都不看啊
+
+不然留学生打工时限咋来的，一开始就说自己是日本土著那不是可以无限制打工了
+
+*****
+
+####  downnote  
+##### 36205#       发表于 2025-3-13 22:33
+
+ 本帖最后由 downnote 于 2025-3-13 22:35 编辑 
+
+真初华和剧情没啥关系，就跟真夏亚一样。出不出来也无所谓了吧
+
+还有就是，真初华和初音是不是就姓三角？看这集的意思是用了初华的名字，但没有说本来是姓三角的吧。所以也只是个代号而已也不算完全借用了名字？
+
+*****
+
+####  6030sylar  
+##### 36206#       发表于 2025-3-13 22:33
+
+要不是我去看过初步举证这独角戏还真看不下去
+
+*****
+
+####  油画布  
+##### 36207#       发表于 2025-3-13 22:34
+
+<blockquote>TAQ 发表于 2025-3-13 22:32
+这集独白内心戏这么多我还以为是独角兽负责的单集，结果还不是</blockquote>
+但这集大纲可能没改过，感觉到了独角兽的大手
+
+*****
+
+####  轮太  
+##### 36208#       发表于 2025-3-13 22:34
+
+我看这丰川家虽然比不上隔壁弦卷是正牌基因原体
+
+估计也是个祖孙三代灵能者家庭
+
+等过几年弦卷心出发加入大远征的时候，大象老师说不定还能混个智库干部当当。
+
+*****
+
+####  老贝  
+##### 36209#       发表于 2025-3-13 22:34
+
+柿本一定觉得自己MyGO动画正数第三集以第一人称视角，主角的身份体验故事，和Mujica动画倒数第三集以第三人称视角，观众的身份观赏故事的点子简直是天才。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+心情一好，还花心思想了几个更能体现初音卑微悲惨的狗爬镜头进去。<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xuziang111  
+##### 36210#       发表于 2025-3-13 22:34
+
+要是没看过剧透感觉看到这集还挺乐的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 36211#       发表于 2025-3-13 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647429&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-13 22:31</a>
+但也不可能完全没户籍证明吧
+
+连绝叫骗保都还要假结婚再鲨人呢 </blockquote>
+有一些能证明自己身份的证件，比如医保和驾驶证。
+
+但是真的没有身份证这东西。
+
+*****
+
+####  wsuFish  
+##### 36212#       发表于 2025-3-13 22:34
+
+之前“大金毛”只是性格和人设，真像狗一样满地爬也太抽象了。而且为什么妹妹阳光就自卑，祥子阳光就上瘾了
+
+初音的妈也喜欢丰川定治的妻子，这设定我绝对之前见人说过。连这都能预见到的真是樱花中年厕妹的原教旨主义soulmate
+
+*****
+
+####  beta10  
+##### 36213#       发表于 2025-3-13 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647325&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-13 22:27</a>
+
+看完只想问
+
+你们签合同都不看身份证的吗</blockquote>
+这部分呢
+
+11区没有本朝这种身份证……
+
+就是他们想推广的my number都是一泡污……
+
+*****
+
+####  seki_m  
+##### 36214#       发表于 2025-3-13 22:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">额真的是背黑锅，显得更无聊了
+
+*****
+
+####  qiyu1234  
+##### 36215#       发表于 2025-3-13 22:35
+
+ 本帖最后由 qiyu1234 于 2025-3-13 22:36 编辑 
+
+最后一集看完不会破口大骂就是我个人对这片的最后期望了
+
+*****
+
+####  秋月孝三  
+##### 36216#       发表于 2025-3-13 22:35
+
+<img src="https://img.saraba1st.com/forum/202503/13/223458rhhwze4csh7nmz7h.jpg" referrerpolicy="no-referrer">
+
+<strong>Gl7USkmbYAYTn_t.jpg</strong> (37.72 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 22:34 上传
+
+*****
+
+####  ntrntr1  
+##### 36217#       发表于 2025-3-13 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647455&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-3-13 22:32</a>
+
+11区有身份证吗？</blockquote>
+没身份证但有驾照户籍之类的吧
+
+有本有名的推理小说绝叫，虽然因为户籍漏洞可以无限骗保，但每次换了身份都得假结婚
+
+啥证件都不看那三和大神说自己是日本土著岂不是都能当爱抖露了
+
+*****
+
+####  聋与唬  
+##### 36218#       发表于 2025-3-13 22:36
+
+不是，初音用初华的名字是怎么瞒住其他人的？这也是丰川家的大手？难道星探也是丰川家的大手？
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+

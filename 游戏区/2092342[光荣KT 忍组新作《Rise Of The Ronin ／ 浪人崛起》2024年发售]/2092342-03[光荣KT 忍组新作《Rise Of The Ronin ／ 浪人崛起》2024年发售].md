@@ -1379,3 +1379,14 @@ GIIdsQCbUAAO84K.jpg
 
 这byd优化，前15小时还好好的，现在玩半小时就变ppt了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  千千千千鸟  
+##### 3542#       发表于 2025-3-13 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67646834&amp;ptid=2092342" target="_blank">cherry__ 发表于 2025-3-13 21:51</a>
+
+我觉得不石火也能玩吧，后面解锁的派生很多大部分并不依赖石火</blockquote>
+那太好了哇<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
