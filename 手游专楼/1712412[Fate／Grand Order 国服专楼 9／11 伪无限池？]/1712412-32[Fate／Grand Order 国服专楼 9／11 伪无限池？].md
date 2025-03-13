@@ -318,3 +318,14 @@
 我选的咕哒子是扮演女主，咕哒夫的话是什么剧情？</blockquote>
 新宿用过的传统女装手艺，玉玉配音，再加无名caster的魔术掩饰
 
+
+*****
+
+####  marxel  
+##### 47067#       发表于 2025-3-13 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67640627&amp;ptid=1712412" target="_blank">啪嗒啪嗒嘭 发表于 2025-3-13 08:43</a>
+
+选咕哒演罗克珊有超绝夏露露告白剧情……又犯错了然后烟哥礼装满破其他无事发生（三十抽想发生什么事情啊！ ...</blockquote>
+没到6绊开不出被动，我已经摆了，6T瞎几把打，反正一天四把而已
+
