@@ -11420,3 +11420,130 @@ mggm 你还不能代表官方谁能啊？</blockquote>
 
 这部剧叫《Ave Mujica》所以我觉得Sumimi Crychic MyGo可以合并 名字我都想好了 就叫CSGO
 
+
+*****
+
+####  victorws  
+##### 36534#       发表于 2025-3-13 23:48
+
+感觉staff确实想在演出形式上整点东西的，奈何剧本拉大垮了，实际观感就很滑稽
+
+*****
+
+####  lucasxp  
+##### 36535#       发表于 2025-3-13 23:50
+
+所以一开始关照初音的其实是祥爹？不然我看不懂为啥初音会认为是自己害的祥子
+
+*****
+
+####  DeltaStriker  
+##### 36536#       发表于 2025-3-13 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648770&amp;ptid=2208921" target="_blank">油画布 发表于 2025-3-13 23:47</a>
+可能下集就是 你是变态没关系，咱们都是变态，mujica就是一群变态的归宿，然后包一锅黑暗饺 ...</blockquote>
+难道现在不是吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  莱茵哈鲁特  
+##### 36537#       发表于 2025-3-13 23:51
+
+本集评价：
+
+白看一集
+
+*****
+
+####  暴走的包子  
+##### 36538#       发表于 2025-3-13 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648671&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-13 23:39</a>
+按设定来看，连国民级大明星和当红偶像都在他们集团里，有没有可能确实能一手遮天。不如亡于家族内斗。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我的意思是老登这么搞完全就是**啊，想巩固自己地位不应该早就把初音处理好么，不管是扔东京湾还是按在岛上，就这么大刺刺出道组乐队就算了，现在跑过来说不要再接近大祥老师又是几个意思
+
+—— 來自 samsung SM-F9460, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ntrntr1  
+##### 36539#       发表于 2025-3-13 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648792&amp;ptid=2208921" target="_blank">lucasxp 发表于 2025-3-13 23:50</a>
+
+所以一开始关照初音的其实是祥爹？不然我看不懂为啥初音会认为是自己害的祥子 ...</blockquote>
+关照她的肯定是老登，她报的老登名字 
+
+中登是她都出道了初音自己跑去自爆的 
+
+可能中登和初音都是爱买水晶的，就傻不拉几的跑去上报要丰川集团给初音一个名分 被丰川大手报复了
+
+*****
+
+####  6030sylar  
+##### 36540#       发表于 2025-3-13 23:53
+
+剧情编排就是有问题，这集不如直接接在祥子回忆后面
+
+*****
+
+####  adretyu67.  
+##### 36541#       发表于 2025-3-13 23:53
+
+大猫海铃路人了。
+
+睦头沉迷吉他
+
+结果鸡团就是大祥给自家主唱开的精神治疗室吗。
+
+
+*****
+
+####  戏谑二次元  
+##### 36542#       发表于 2025-3-13 23:54
+
+就丰川家女系这个寿命，怎么组一辈子乐队<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  油画布  
+##### 36543#       发表于 2025-3-13 23:54
+
+<blockquote>DeltaStriker 发表于 2025-3-13 23:50
+难道现在不是吗
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+下集追初音是大祥主场，她终于要承认自己是变态了，再不喊就没机会了
+
+*****
+
+####  ntrntr1  
+##### 36544#       发表于 2025-3-13 23:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648837&amp;ptid=2208921" target="_blank">戏谑二次元 发表于 2025-3-13 23:54</a>
+
+就丰川家女系这个寿命，怎么组一辈子乐队</blockquote>
+你就说是不是一辈子吧 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+可能丰川家的疾病是凝血不正常之类的，怀孕这种大出血容易诱导（没学过医瞎编的）
+
+搞女同组乐队就不用怀孕， 我们小祥体魄多好前几集已经证明看，能搞乐队到100岁。
+
+*****
+
+####  莱茵哈鲁特  
+##### 36545#       发表于 2025-3-13 23:57
+
+这演出真的是省钱到极致了。
+
+*****
+
+####  adretyu67.  
+##### 36546#       发表于 2025-3-13 23:57
+
+突然发现，这话大祥也喜提爽姐待遇了。
+
+当年爽姐消息轰炸被无视，现在大祥信息轰炸也被无视。难怪急了
+
