@@ -5533,3 +5533,18 @@ Crychic的第二次正式演出绝对值一个剧场版，tv有点太憋屈了�
 
 [https://x.com/ssami0617/status/1899889243612446942/photo/1](https://x.com/ssami0617/status/1899889243612446942/photo/1)
 
+
+*****
+
+####  Lawliet.L  
+##### 35989#       发表于 2025-3-13 09:54
+
+又到疯狂星期四了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  GBLMikuHatsune  
+##### 35990#       发表于 2025-3-13 09:55
+
+玛德李神真是太搞了，越来越觉得是那种网络巨魔的类型<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

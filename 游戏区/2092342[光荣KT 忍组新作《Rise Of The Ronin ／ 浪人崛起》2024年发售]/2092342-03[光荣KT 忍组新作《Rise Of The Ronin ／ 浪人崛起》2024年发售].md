@@ -1030,3 +1030,13 @@ PC版宣传特性：120帧高帧率&amp;更高的画质。<img src="https://stat
 
 浪人其实把光影色调改进下画面就很不错了，其实在一些过场里，忍组是做了强化的光影的，可惜这些就局限在过场里<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zqqwe  
+##### 3509#       发表于 2025-3-13 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67639892&amp;ptid=2092342" target="_blank">慕兰 发表于 2025-3-13 00:52</a>
+不知道是不是我记忆美化了，感觉仁王卧龙到浪人，捏脸一个比一个不行，浪人头发上的多边形折痕感觉都糊我脸 ...</blockquote>
+对比仁王2，浪人的肤质劣化很明显，可能就是为了那狗屎写实感
+
