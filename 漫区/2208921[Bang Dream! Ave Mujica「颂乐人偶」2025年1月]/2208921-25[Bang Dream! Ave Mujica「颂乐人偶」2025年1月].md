@@ -5734,3 +5734,63 @@ Ave Mujica形式上模仿了Ave Maria，Mujica中亦有提到Fortuna和lacrima�
 
 《沉默》中费雷拉的两名弟子分别选择了殉教和弃教，不知道下一话会不会在这上面有一些隐喻
 
+
+*****
+
+####  UNISONIA  
+##### 36000#       发表于 2025-3-13 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67641716&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-3-13 10:37</a>
+
+关于Crucifix Ⅹ歌词的考察，参考https://note.com/m23_53/n/n295eaf4adac8
+
+首先标题可以指塔罗牌命运之轮 ...</blockquote>
+Lacrima在Ave Mujica同名的歌词里应该是意指“基督之泪”
+
+
+*****
+
+####  天空塔书记官  
+##### 36001#       发表于 2025-3-13 10:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  虚无缥缈的分身  
+##### 36002#       发表于 2025-3-13 10:58
+
+想想今晚估计会有真初华出场，想想就激动
+
+
+*****
+
+####  一心而用  
+##### 36003#       发表于 2025-3-13 11:02
+
+11话 Fanart 與田
+
+<img src="https://img.saraba1st.com/forum/202503/13/110208arqxdddf1xiimtxx.png" referrerpolicy="no-referrer">
+
+<strong></strong> (58.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 11:02 上传
+
+*****
+
+####  刑部姬真可爱  
+##### 36004#       发表于 2025-3-13 11:02
+
+艹，什么开膛手初华<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhoujin8584  
+##### 36005#       发表于 2025-3-13 11:05
+
+神雕侠侣是吧
+
