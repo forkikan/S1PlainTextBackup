@@ -15237,3 +15237,19 @@ Mujica动画给人感觉很看重的一点就是对她人的情感错位。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  蓮華  
+##### 36871#       发表于 2025-3-14 03:18
+
+看到现在还在认真分析剧情的我都想笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ntrntr1  
+##### 36872#       发表于 2025-3-14 03:25
+
+不是假装正经分析找编剧的草台漏洞吗（）
+
