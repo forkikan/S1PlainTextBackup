@@ -400,3 +400,13 @@ cy你他m去死吧
 
 我的鸭梨纱变黑皮男了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  哈尔路尼亚  
+##### 93#       发表于 2025-3-14 01:44
+
+通篇下来，感觉最大的改动是主战者buff被限死4个了<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
