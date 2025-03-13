@@ -2342,3 +2342,27 @@ Mujika高能回，柿本广大献给闪彩动画的一封情书<img src="https:/
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  Licheus  
+##### 253#       发表于 2025-3-14 01:29
+
+ 本帖最后由 Licheus 于 2025-3-14 01:32 编辑 
+
+丰川家那些破事儿理应是醋，作为饺子的初华（？）小姐的纠结还算可以品一品
+
+这回反而是需要演出强上的时候，结果选择这种半吊子的取巧方式。怎么着也该有mygo第三话那种待遇吧。那么喜欢回收这个回收那个，灯的第一人称视角不回收一下吗？
+
+可惜啦！
+
+
+*****
+
+####  liekong  
+##### 254#       发表于 2025-3-14 01:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">这集评分楼前排这么多加扣鹅大战啊.....
+
++1了，只能说中规中矩，给一点勇于实验的分数吧
+
