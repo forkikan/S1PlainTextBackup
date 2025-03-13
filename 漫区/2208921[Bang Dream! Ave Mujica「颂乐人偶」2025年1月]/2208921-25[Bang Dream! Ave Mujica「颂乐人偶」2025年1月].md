@@ -10360,3 +10360,470 @@ soyo也是🦄本来剧本里写着要藏，没想到第二集拍出来完全没
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  thisisaspider  
+##### 36437#       发表于 2025-3-13 23:18
+
+这集还加了一个设定：丰川家似乎是女性是正统继承人。
+
+所以祥子可以是在家族内部权力比老登还高。这下可以祥子登基无双老登了。
+
+*****
+
+####  雪菜碧池  
+##### 36438#       发表于 2025-3-13 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648156&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-3-13 23:07</a>
+
+老登说“你不知道丰川家的黑暗”，明摆着掌控不住全部家族势力，再结合之前说“运气不好”，中登被流放跟他 ...</blockquote>
+可能根本没交涉，就是有人借着祥子妈去世搞中登，中登被踢出去就是搞老登了
+
+然后以祥子监护人的身份掌控丰川家的控制权
+
+*****
+
+####  老贝  
+##### 36439#       发表于 2025-3-13 23:18
+
+真初华要是被拉出来代初音组sumimi，那这片确实算是升华到另一个台阶了。<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  厄神之息  
+##### 36440#       发表于 2025-3-13 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648130&amp;ptid=2208921" target="_blank">Victorino 发表于 2025-3-13 23:06</a>
+
+真初华又没写超诗祥，歌词是初音写的，巡演和live也都是初音开的，而初华只在童年玩了几天而已 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“一日玩伴百日恩啊达令~你不念在我被姐姐偷了身份也该念我是你玩伴暖你一夏天捞姐妹一把口牙~”
+
+
+*****
+
+####  是谁的书画  
+##### 36441#       发表于 2025-3-13 23:18
+
+丰川家的女人恐怖如斯。
+
+丰川老登的妻子间接害的老登晚节不保
+
+丰川中登的妻子间接害的中登再起不能
+
+丰川祥子害了全剧mygo加mujica的9个人
+
+丰川家的黑暗秘密就是丰川女人的将头，靠近便会变得不幸，还会传染不幸
+
+因果论武器了属于是
+
+*****
+
+####  fsfs_freeze  
+##### 36442#       发表于 2025-3-13 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648267&amp;ptid=2208921" target="_blank">Q.R.O.W 发表于 2025-3-13 23:14</a>
+
+现在风气一面倒，能说出不一样的看法很难得</blockquote>
+我其实ep4的时候就觉得mujica有些地方表现形式很新奇，不过ep4ep5都还比较常规，到了mortis与睦的对手戏算是顶点，估计也只有3d能做出来这个效果了
+
+*****
+
+####  猫执事  
+##### 36443#       发表于 2025-3-13 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648304&amp;ptid=2208921" target="_blank">Mika-S 发表于 2025-3-13 23:16</a>
+
+你祥怕是也没几年活头了，根据这个丰川家只能生女的代代单传来看，上上代丰川女能活到女儿长大结婚，上代丰 ...</blockquote>
+那就让祥子从了初音吧，百合无限好，就是生不了，至少老登还能有个活的外孙女
+
+*****
+
+####  adretyu67.  
+##### 36444#       发表于 2025-3-13 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648311&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-13 23:16</a>
+
+至少剧情到这里还没问题。但还不安心。</blockquote>
+这一段应该是初华内心的挣扎。
+
+前面有一句我安慰着哭泣的初华，应该是没事。
+
+*****
+
+####  Ty_cc  
+##### 36445#       发表于 2025-3-13 23:20
+
+太bt了 我后台挂着都忍不住切过去暂停了三四次<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Delicatus545  
+##### 36446#       发表于 2025-3-13 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648257&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-13 23:13</a>
+
+这是初华自己的理解吧，她看到祥子和中登落魄，以为都是因为自己。
+
+我的理解是和第八集一个套路的误解 ...</blockquote>
+这一集明显是编剧借初音这个角色在抛设定啊，难道初音真的在舞台上发电？所以说出来的内容应该都是编剧的观点
+
+*****
+
+####  半年  
+##### 36447#       发表于 2025-3-13 23:20
+
+<img src="https://img.saraba1st.com/forum/202503/13/232025h6qaxggsu5fe94cu.jpg" referrerpolicy="no-referrer">
+
+<strong>Gl7g2RMaAAA-Cry.jpg</strong> (128.05 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 23:20 上传
+
+[https://x.com/peso727/status/1900203325091701087/photo/1](https://x.com/peso727/status/1900203325091701087/photo/1)
+
+*****
+
+####  szzyf7  
+##### 36448#       发表于 2025-3-13 23:20
+
+另外就剩两集了  甜甜圈这角色到底是干嘛用的  本来以为铁定要演个初华为了祥子背叛苏咪咪的戏码 争个挺王玩玩  现在看就一纯路人  戏份全删了也无所谓那种  感觉是原来的戏份被改没了 九很诡异
+
+—— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  怀沙汨罗  
+##### 36449#       发表于 2025-3-13 23:20
+
+想想后面海岛姐妹戏、留学追逐战以及jk斗财阀的戏码我就兴奋得发抖，真期待柿本广大能贡献出更多名场面<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">这才是不可预测的命运舞台啊！
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  ntrntr1  
+##### 36450#       发表于 2025-3-13 23:20
+
+其实老登没道理陷害中登的 
+
+中登要是还在丰川集团，那多少要看他脸色
+
+真把他排挤走了，中登万一破罐子破摔到处找小记者贴大字报，尤其中登这天天喝酒的，随便找个酒馆酒后吐真言一下岂不是满大街都知道了
+
+但按照这个逻辑全丰川集团也没任何理由要把中登排挤走
+
+所以你非要按照逻辑讲，中登被诈骗只是因为他和初华一样没心眼，整个集团不知道这事 ，初华根本不和集团接触，本能觉得自己那点女高中心事全丰川家都关心  
+
+但这剧是不讲逻辑的，所以怎么都好的
+
+*****
+
+####  aptx8285144  
+##### 36451#       发表于 2025-3-13 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648314&amp;ptid=2208921" target="_blank">takerest 发表于 2025-3-13 23:16</a>
+
+日本搞分家庶流不是很正常？把初音接回来当早坂爱一样培养成祥子忠心的仆人，不分财产又有谁能挑出毛病来 ...</blockquote>
+但是按照初华自己的说法，她妈不愿意，似乎想远离丰川家，后面就是命运舞台各凭本事了，当然了，现在命运舞台四个字打出来感觉是独角兽和蚀本不配这四个字<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 36452#       发表于 2025-3-13 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648349&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-13 23:18</a>
+
+这集还加了一个设定：丰川家似乎是女性是正统继承人。
+
+所以祥子可以是在家族内部权力比老登还高。这下可以 ...</blockquote>
+只是因为没有男性吧
+
+*****
+
+####  油画布  
+##### 36453#       发表于 2025-3-13 23:21
+
+ 本帖最后由 油画布 于 2025-3-13 23:24 编辑 
+<blockquote>钦念以忱 发表于 2025-3-13 23:16
+soyo也是🦄本来剧本里写着要藏，没想到第二集拍出来完全没藏</blockquote>
+
+soyo没完全藏但也没完全暴露 ，初音第九集那个演出我觉得比十一集还要骇人 到这里已经没怀疑她是个阴角了，但既没有惊讶，也没有共情理解，暴露了个啥啊到底是
+
+*****
+
+####  厄神之息  
+##### 36454#       发表于 2025-3-13 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648170&amp;ptid=2208921" target="_blank">cayon 发表于 2025-3-13 23:08</a>
+
+mana5年冠军是想说初音是躺赢狗吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你别说，初音靠报老登名号上来的，是正正宗宗的3.0躺赢狗
+
+*****
+
+####  秦南心  
+##### 36455#       发表于 2025-3-13 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648076&amp;ptid=2208921" target="_blank">zxtree 发表于 2025-3-13 23:02</a>
+
+后面两集演什么？老登看演唱会感动大团圆吗</blockquote>
+初音身份正式曝光，老登被撸掉人间蒸发，祥爹复用，帮助祥子飞往瑞士，祥子日剧跑集齐5个同伴开演，漆黑屋子角落里老登阴暗爬行泪流满面对着屏幕上的初音忏悔
+
+*****
+
+####  thisisaspider  
+##### 36456#       发表于 2025-3-13 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648351&amp;ptid=2208921" target="_blank">雪菜碧池 发表于 2025-3-13 23:18</a>
+
+可能根本没交涉，就是有人借着祥子妈去世搞中登，中登被踢出去就是搞老登了
+
+然后以祥子监护人的身份掌控 ...</blockquote>
+真能这么写吗，虽然一点都不少女乐队，但挺期待的。
+
+*****
+
+####  kenqqex  
+##### 36457#       发表于 2025-3-13 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648349&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-13 23:18</a>
+
+这集还加了一个设定：丰川家似乎是女性是正统继承人。
+
+所以祥子可以是在家族内部权力比老登还高。这下可以 ...</blockquote>
+木谷高明推特刚写的，就是女系家族
+
+*****
+
+####  ashero  
+##### 36458#       发表于 2025-3-13 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648397&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-13 23:20</a>
+
+但是按照初华自己的说法，她妈不愿意，似乎想远离丰川家，后面就是命运舞台各凭本事了，当然了，现在命运 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">根本没远离 上集给开门那个管理人就是她妈 不会有别人了 特意给了个意味深长的镜头  你想在宅子里认识初音而且知道初音是私生女的还会有别人吗
+
+*****
+
+####  kk霖洞九  
+##### 36459#       发表于 2025-3-13 23:23
+
+只要kkr肘赢柿本一切都会好起来的 
+时刻复习高祖古训:要krkr dkdk
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  qq2007ssy  
+##### 36460#       发表于 2025-3-13 23:23
+
+其实写神人乐队因为每个人各自欲望发癫相互捆绑我觉得没啥，甚至金属乐队就该配这种大纲。但写的实在太烂了，而且十三集不是没写完的可能。但结果就是4-9集几乎相当于剧情零进展，除了搞噱头完全就是mortis无意义的左右拉扯，然后所有人人设退回mygo组建前。反而显得初华这条线算是比较完整的线了。
+
+*****
+
+####  戏谑二次元  
+##### 36461#       发表于 2025-3-13 23:24
+
+讲道理，祥子可是真正的丰川之血，未来要招赘婿的丰川家主，你们居然敢流放在外面一年？居然让转学了？居然让soyo和未来家主在校门口拉拉扯扯？
+丰川家的大手呢？
+
+
+*****
+
+####  cazedor  
+##### 36462#       发表于 2025-3-13 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648304&amp;ptid=2208921" target="_blank">Mika-S 发表于 2025-3-13 23:16</a>
+
+你祥怕是也没几年活头了，根据这个丰川家只能生女的代代单传来看，上上代丰川女能活到女儿长大结婚，上代丰 ...</blockquote>
+什么女娲灵族传人
+
+*****
+
+####  6030sylar  
+##### 36463#       发表于 2025-3-13 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648359&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-13 23:18</a>
+
+丰川家的女人恐怖如斯。
+
+丰川老登的妻子间接害的老登晚节不保
+
+丰川中登的妻子间接害的中登再起不能</blockquote>
+悲剧的舞台装置
+
+*****
+
+####  厚乳果珍爽  
+##### 36464#       发表于 2025-3-13 23:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我提前几天猜到了老登也是入赘的。
+
+看了一下预告，大概率是翔爹要振作了。
+
+翔爹真能在一集里洗白吗？
+
+*****
+
+####  zhigui  
+##### 36465#       发表于 2025-3-13 23:25
+
+mana真王朝了吧
+
+邦多利世界观五冠王
+
+这个概念太变态了
+
+有没有懂的人说一下在邦多利现在这么多团里算不算超大杯上
+
+*****
+
+####  ntrntr1  
+##### 36466#       发表于 2025-3-13 23:25
+
+ 本帖最后由 ntrntr1 于 2025-3-13 23:27 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">根据剧透。。。  
+
+下一集祥子到了机场突然不走了改去小岛
+
+甚至因为身上没钱还被拒载了 ，自己跑了很长一段路
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">但我寻思俺也在欧村留过学，咱们欧村要入境海关是有几率检查你身上有没有现金没有不许进的，好吧日本出租车司机不收瑞士法郎那没事了，但日本出租车也不是不能刷卡啊，大小姐你没信用卡你留啥学，再不济APPLE PAY总是有的吧
+
+*****
+
+####  kk霖洞九  
+##### 36467#       发表于 2025-3-13 23:25
+
+所以再过几年祥子也要招婿吗<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  aptx8285144  
+##### 36468#       发表于 2025-3-13 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648392&amp;ptid=2208921" target="_blank">szzyf7 发表于 2025-3-13 23:20</a>
+
+另外就剩两集了  甜甜圈这角色到底是干嘛用的  本来以为铁定要演个初华为了祥子背叛苏咪咪的戏码 争个挺王 ...</blockquote>
+A 老登的另一个私生女
+
+b 财阀家的顶级密探
+
+C 享受一切而单纯的音乐天才，蚀本钦定的舞台工具人
+
+祝她是C<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  油画布  
+##### 36469#       发表于 2025-3-13 23:26
+
+我现在竟然有点期待十二集祥子了，颓了这么久 总该支棱点了吧
+
+*****
+
+####  thisisaspider  
+##### 36470#       发表于 2025-3-13 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648405&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-13 23:21</a>
+
+只是因为没有男性吧</blockquote>
+如果一个家族一直以来就是这样，那么就容易从惯性变成族规，尤其是在以前封建迷信的时候。
+
+当然，现在这个展开已经是编剧想怎么写就怎么写了。所以还是直接等下集好了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 36471#       发表于 2025-3-13 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648476&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-13 23:25</a>
+
+根据剧透。。。  
+
+下一集祥子到了机场突然不走了改去小岛</blockquote>
+应该是就没上去瑞士的飞机，直接就去小岛了。
+
+*****
+
+####  zhzij111  
+##### 36472#       发表于 2025-3-13 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648396&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-13 23:20</a>
+其实老登没道理陷害中登的 
+
+中登要是还在丰川集团，那多少要看他脸色</blockquote>
+丰川集团还是有理由的吧，老登干了这么多年都掌握不了实权，说明赘婿在丰川家就是路边一条。
+
+中登要是真诚地跑去要求幕后黑手把初音加进家族，幕后黑手觉得赘婿管的还挺多把他当条狗流放也不是不行。
+
+至于私生子传出去丰川家族又不怕，怕的是老登，老登续弦初妈的话就不是丰川家女婿了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  afsd109  
+##### 36473#       发表于 2025-3-13 23:27
+
+其实私生女这是很好理解，就算老登是真丰川而不是赘婿，一把年纪突然被爆出过去刚死了老婆就跟佣人搞出小孩要从外面接回来，对名声也是很大打击，背后一直都会被人碎嘴，要是公开了起码会在媒体上炒个好一段时间，对品牌形象的影响不可估量，更何况还是入赘的。其实老登当初说要直接接回来一起住倒是正确选择，无论是当成佣人孩子还是公开是私生女都要比现在好。不过考虑到片子里其实没多少逻辑，制作组爱怎么写就怎么写吧。
+
+*****
+
+####  雪菜碧池  
+##### 36474#       发表于 2025-3-13 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648433&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-13 23:23</a>
+
+真能这么写吗，虽然一点都不少女乐队，但挺期待的。</blockquote>
+中登跟老登是不是利益一致？老登搞中登的理由是什么，他没有理由啊，废物就废物了，至少还会因为岳父身份站自己这边
+
+当然这剧情跟少女乐队就没什么关系，除非13话live能解释回来
+
+*****
+
+####  kenqqex  
+##### 36475#       发表于 2025-3-13 23:27
+
+<img src="https://img.saraba1st.com/forum/202503/13/232718r88gqiqz2aiisnqy.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (33.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 23:27 上传
+
+<img src="https://img.saraba1st.com/forum/202503/13/232728go9s9oegg5lshk8e.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (48.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 23:27 上传
+
+mggm 你还不能代表官方谁能啊？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  油画布  
+##### 36476#       发表于 2025-3-13 23:28
+
+<blockquote>qq2007ssy 发表于 2025-3-13 23:23
+其实写神人乐队因为每个人各自欲望发癫相互捆绑我觉得没啥，甚至金属乐队就该配这种大纲。但写的实在太烂了 ...</blockquote>
+4到9集差不多也是睦的双重人格发威的时间段，所以（）
+
+*****
+
+####  fsfs_freeze  
+##### 36477#       发表于 2025-3-13 23:28
+
+看到开头的舞台剧时我还为这种独特的表现形式感到惊奇，但一集的绝大部分都是这种就让本集沦为了过渡回，矛盾未解决的ep11还搞过渡回真挺抽象。再思考一下如果不让本集成为过渡，那就需要换一种表现形式，所以这集的舞台剧反而变成了一种弄巧成拙。<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+

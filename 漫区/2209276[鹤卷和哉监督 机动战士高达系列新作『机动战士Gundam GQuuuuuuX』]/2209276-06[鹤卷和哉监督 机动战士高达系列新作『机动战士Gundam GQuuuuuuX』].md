@@ -13220,3 +13220,16 @@ G跨时蛮好的，干嘛加个之战
 
 狂犬老太<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉是小年轻主角最害怕的类型
 
+
+*****
+
+####  Steel.Haze  
+##### 8478#       发表于 2025-3-13 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67642463&amp;ptid=2209276" target="_blank">赤黑的假面 发表于 2025-3-13 11:50</a>
+
+搜了下阿涅利家族，感觉扎比家自己当公王太扯了，他继续投吉翁戴肯怎么也比自己当公王划算 ...</blockquote>
+老扎是这么想的，而且按照GTO前传的设定。最早他是大学校长，戴肯是他学校的教授，他还在庇护被联邦追捕的戴肯。
+
+不过估计吉连不想等了，以及可能他认为戴肯不敢直接宣布独立和联邦正面对抗，所以干掉戴肯自己把新人类和太空殖民地独立的大旗用于战争。
+
