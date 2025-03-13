@@ -40,3 +40,11 @@ ChroNoiR 1st Mini Album 15232，没抽选好低
 
 平均四倍拉中奖率，也挺合理<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  渡鸦骑士  
+##### 1039#       发表于 2025-3-13 16:43
+
+你虹怎么突然涨停了？
+
