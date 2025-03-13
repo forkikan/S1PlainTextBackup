@@ -13137,3 +13137,281 @@ MUJICA开重金属演唱会震塌小岛承重导致来开家族会议的老登�
 
 —— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  真爱与热情  
+##### 36685#       发表于 2025-3-14 00:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649354&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-14 00:43</a>
+
+你都怎么说了，说明你现在已经不在意这是不是一个“少女乐队动画”了，搞成mujica在别的频道可能不算什么 ...</blockquote>
+我就是非常在意这是个少女乐队啊，所以才不能理解为啥要这么干。。。
+
+我寻思着把笔给你的话，你会这么写吗。。就非要把少女乐队牵连财阀斗争吗。。
+
+说到底就是在催眠自己啊
+
+*****
+
+####  蜜瓜包  
+##### 36686#       发表于 2025-3-14 00:47
+
+初音养父只是出海失踪了，不是死了，一般小说设定的出海失踪基本都是没死的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 36687#       发表于 2025-3-14 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649366&amp;ptid=2208921" target="_blank">蜜瓜包 发表于 2025-3-14 00:44</a>
+
+还有啊，这一集海玲打电话真是越看越小丑，不如说mujica现在全员都是小丑，真是烂完了 ...</blockquote>
+应该不是小丑。应该是觉得海铃天天说信用很有趣<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+属于完全get不到的冷幽默了
+
+*****
+
+####  是谁的书画  
+##### 36688#       发表于 2025-3-14 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649386&amp;ptid=2208921" target="_blank">真爱与热情 发表于 2025-3-14 00:46</a>
+
+我就是非常在意这是个少女乐队啊，所以才不能理解为啥要这么干。。。
+
+我寻思着把笔给你的话，你会这么写 ...</blockquote>
+那怎么办，mggm自己发推拉的屎，我只是单纯的跟在后面吃屎而已啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+难不成我照着他说的话胡乱口嗨还是我的错了
+
+*****
+
+####  黑圆桌  
+##### 36689#       发表于 2025-3-14 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648837&amp;ptid=2208921" target="_blank">戏谑二次元 发表于 2025-3-13 23:54</a>
+
+就丰川家女系这个寿命，怎么组一辈子乐队</blockquote>
+嘶……要不咱还是去岛上别墅度假然后去黄金乡算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DeltaStriker  
+##### 36690#       发表于 2025-3-14 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649383&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-3-14 00:45</a>
+可惜不能更狗血一点，应该让素世爸也姓三角。这样就变成传奇三姐妹了
+
+—— 来自 Xiaomi 23113RKC6C, Andro ...</blockquote>
+让大象老师爸原姓一之濑就行
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  adretyu67.  
+##### 36691#       发表于 2025-3-14 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649388&amp;ptid=2208921" target="_blank">蜜瓜包 发表于 2025-3-14 00:47</a>
+
+初音养父只是出海失踪了，不是死了，一般小说设定的出海失踪基本都是没死的 ...</blockquote>
+SD剧场版给宫城哥哥的设定也是出海钓鱼没回来，也没见他打赢复活赛。
+
+只能说渔民身份就是惨。
+
+*****
+
+####  tuatha  
+##### 36692#       发表于 2025-3-14 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649244&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-3-14 00:34</a>
+初音这么写其实动机蛮丰满的，本质上来说她爱的不是祥子，而是丰川祥子。
+
+正统的丰川继承人，卑微私生女梦 ...</blockquote>
+我只能看见星宇
+
+*****
+
+####  最强惠酱  
+##### 36693#       发表于 2025-3-14 00:49
+
+代入留不下后代又惨死的绿奴渔夫爹了，全剧最惨<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qratosones1337  
+##### 36694#       发表于 2025-3-14 00:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649287&amp;ptid=2208921" target="_blank">猫执事 发表于 2025-3-14 00:38</a>
+这剧情要是把最后两集交给以前的大河内来写，怕不是初音最后跟老登同归于尽，把名字和梦想还给妹妹。 ...</blockquote>
+显然初音能出道成功跟艺名叫初华没有任何关系，真初华完全也可以用初音当名字出道，假如真的有能力和执行力的话
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  thisisaspider  
+##### 36695#       发表于 2025-3-14 00:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649409&amp;ptid=2208921" target="_blank">最强惠酱 发表于 2025-3-14 00:49</a>
+
+代入留不下后代又惨死的绿奴渔夫爹了，全剧最惨</blockquote>
+初华不就是渔夫的孩子吗
+
+*****
+
+####  是谁的书画  
+##### 36696#       发表于 2025-3-14 00:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649409&amp;ptid=2208921" target="_blank">最强惠酱 发表于 2025-3-14 00:49</a>
+
+代入留不下后代又惨死的绿奴渔夫爹了，全剧最惨</blockquote>
+初华就是渔夫爹的亲女儿啊<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  蜜瓜包  
+##### 36697#       发表于 2025-3-14 00:50
+
+现在还有个问题是，真初华怎么说，总不能一笔带过吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  thisisaspider  
+##### 36698#       发表于 2025-3-14 00:51
+
+真初华现在什么状态还不知道呢。希望不是什么太重磅的东西。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  大户爱  
+##### 36699#       发表于 2025-3-14 00:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649319&amp;ptid=2208921" target="_blank">油画布 发表于 2025-3-14 00:40</a>
+但真正爱上的还是一起看星星的祥子吧？不过我也觉得她的爱没那么纯粹，混杂着自卑 愧疚 盲目 ，这种爱反 ...</blockquote>
+扪心自问，如果不掺杂丰川的因素。
+
+初音现在这个共渡一天一夜就朝思暮想，不惜离家出走，丢下母亲妹妹的爱正常吗？一起看星星有这么大魔力吗？
+
+我觉得像灯对祥子的爱就是合乎逻辑的，爱的是拯救我，让我成为人类的祥子。而初华爱的就是丰川家大小姐这个幻想中的符号，祥子只是这个符号的寄托。
+
+祥子换一个性格，换一个人设，初华的爱也是照样的。
+
+*****
+
+####  哈曼的YY  
+##### 36700#       发表于 2025-3-14 00:51
+
+<blockquote>烂片雷达 发表于 2025-3-14 00:45
+我不禁怀疑丰川家女性的死亡是什么形式的死亡
+
+丰川家血脉的女性从生下来体内就存在着另一个意志，到了一定 ...</blockquote>
+沙丘是吧
+
+*****
+
+####  油画布  
+##### 36701#       发表于 2025-3-14 00:52
+
+<blockquote>真爱与热情 发表于 2025-3-14 00:46
+我就是非常在意这是个少女乐队啊，所以才不能理解为啥要这么干。。。
+
+我寻思着把笔给你的话，你会这么写 ...</blockquote>
+话是这么说 你看楼里谈起财阀斗争狗血剧兴致勃勃的样子 mujica播到现在观众已经筛完了
+
+*****
+
+####  g救世主高达  
+##### 36702#       发表于 2025-3-14 00:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649424&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-14 00:50</a>
+
+初华就是渔夫爹的亲女儿啊</blockquote>
+照样杰尼龟阿，老婆和有钱人绿了自己连个屁都不敢放，还帮着养女儿，说实话这种设定真有点恶心人了
+
+
+*****
+
+####  大户爱  
+##### 36703#       发表于 2025-3-14 00:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649337&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-14 00:41</a>
+加上吉他睦，是真的为祥子的幸福着想，可惜soyo当年夺舍大计都不成功，自己现在屏蔽黑泥强行招魂也坚持不 ...</blockquote>
+还不知道这个融合睦怎么想的呢。下一集应该没有她的镜头，只能等到饺子回了。
+
+*****
+
+####  cxj649  
+##### 36704#       发表于 2025-3-14 00:53
+
+<img src="https://img.saraba1st.com/forum/202503/14/005148xx9nm97275mp7mhn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (9.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 00:51 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实这逻辑反而不通了，按这逻辑再前几代寿命正常了好么
+
+*****
+
+####  最强惠酱  
+##### 36705#       发表于 2025-3-14 00:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649422&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-14 00:50</a>
+
+初华不就是渔夫的孩子吗</blockquote>
+不同爹又长得一样的双胞胎，她说真的信得过吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑圆桌  
+##### 36706#       发表于 2025-3-14 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648923&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-3-14 00:03</a>
+
+乱码肯定还有藏，但这值得吗（but at what cost）</blockquote>
+为什么我进这个网址就没乱码，要怎样才能看得到？
+
+想试试解码一下，感觉可能是UTF8和Shift-JIS的转换
+
+*****
+
+####  6030sylar  
+##### 36707#       发表于 2025-3-14 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649425&amp;ptid=2208921" target="_blank">蜜瓜包 发表于 2025-3-14 00:50</a>
+现在还有个问题是，真初华怎么说，总不能一笔带过吧</blockquote>
+初音其实死了，你是你妹
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  thisisaspider  
+##### 36708#       发表于 2025-3-14 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649430&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-3-14 00:51</a>
+
+扪心自问，如果不掺杂丰川的因素。
+
+初音现在这个共渡一天一夜就朝思暮想，不惜离家出走，丢下母亲妹妹的 ...</blockquote>
+她如果不是真心喜欢祥子就不会去约祥子看星星了吧。
+
+也不会被祥子最后和初华的约定给伤害到了。这里面还是有关系性的。
+
+至少初音嫉妒祥子和初华的关系。
+
+*****
+
+####  久井路路  
+##### 36709#       发表于 2025-3-14 00:55
+
+说起来，我就当初音是看新闻知道祥爹落魄了的
+
+那她是怎么知道小祥和爹住的地方很破、以及小祥冒雨送报、还因为祥爹的事情和C团闹僵了之类的场景的（
+
+你到底还知道多少我以为你不知道的事情啊（
+
