@@ -1103,3 +1103,11 @@ GIIdsQCbUAAO84K.jpg
 
 <img src="https://img.saraba1st.com/forum/202503/13/111633sb3hu5bjs9bzt3zw.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  全装甲夏亚  
+##### 3514#       发表于 2025-3-13 11:28
+
+也就第一章有新鲜感，第二章第三章我就开始打吐了，全是公式化据点，公式化找猫找宝箱，第三章精英怪一个比一个恶心，红光反一套只要最后一下没反到就全白搭，直到领悟战技复读换血放弃交互
+

@@ -5824,3 +5824,21 @@ fanart上的初华美丽又强大。
 
 这稿约的多少有点巨魔了
 
+
+*****
+
+####  aptx8285144  
+##### 36009#       发表于 2025-3-13 11:29
+
+ 本帖最后由 aptx8285144 于 2025-3-13 11:31 编辑 
+
+<img src="https://img.saraba1st.com/forum/202503/13/112755cy1x3b3zyf1sz1fy.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250313_113009.jpg</strong> (305.56 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 11:27 上传
+
+母鸡卡何德何能让战吧开个专楼不说 竟然还禁止对角色进行“人身攻击"<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">，这种人均神人的团，把她们的疯狂讲一遍就是人身攻击了吧
+
