@@ -6069,3 +6069,18 @@ fanart上的初华美丽又强大。
 
 过分了 又不是没写 mujica才引入的设定有什么问题吗
 
+
+*****
+
+####  是谁的书画  
+##### 36029#       发表于 2025-3-13 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67643637&amp;ptid=2208921" target="_blank">DARK_HGCG 发表于 2025-3-13 14:26</a>
+
+上周母鸡卡节奏榜我没看到
+
+求</blockquote>
+[https://bbs.saraba1st.com/2b/for ... 84&amp;pid=67598499](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=2248984&amp;pid=67598499)
+
+你指的是这个嘛？
+

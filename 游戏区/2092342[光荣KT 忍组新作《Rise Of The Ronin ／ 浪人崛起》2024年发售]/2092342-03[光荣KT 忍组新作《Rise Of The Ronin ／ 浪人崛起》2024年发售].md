@@ -1179,3 +1179,16 @@ GIIdsQCbUAAO84K.jpg
 光荣能不能出个补丁，让仁王里那些， ...</blockquote>
 第二章有几个不错的妹子，也就这样了
 
+
+*****
+
+####  wtyrambo  
+##### 3521#       发表于 2025-3-13 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67643572&amp;ptid=2092342" target="_blank">woshenc 发表于 2025-3-13 14:17</a>
+
+我大致看了下，这游戏女性角色很少啊，重要的更少，连女boss都没几个
+
+光荣能不能出个补丁，让仁王里那些， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">后面不单有妹子，还能八艘跳，跳完了有个妹子甚至会知道你劈腿后会黄牌警告，不和其他人都分手了直接再找她，就跟你分了
+
