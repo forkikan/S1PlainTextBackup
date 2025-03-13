@@ -4112,3 +4112,16 @@ https://bgm.tv/subject/topic/33083
 其实免费版是没有那条水路的，DE版坐木筏的地方在免费版直接通往大圣堂的 ...</blockquote>
 我草，做了一整张完全物理连通的地图，最后还能引导玩家回到起点，这么牛逼的事情包不能放过的好吧，DE版加上加上<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  best32167  
+##### 365#       发表于 2025-3-13 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67639463&amp;ptid=2246453" target="_blank">best32167 发表于 2025-3-12 23:01</a>
+
+通关啦。好意犹未尽</blockquote>
+这游戏后劲好大，近期应该完全禁玩其他RM游戏
+
+不然总对着花花草草猛按XXX
+
