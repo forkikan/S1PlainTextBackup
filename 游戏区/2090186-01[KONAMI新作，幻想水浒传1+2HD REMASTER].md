@@ -3605,3 +3605,24 @@ PSP版就修了
 
 多谢楼上二位，想想也是，不如多拿个经验球增加通关效率了，开局送了5万，第一个村口稍微赌赌就跟开了金手指一样财务自由了
 
+
+*****
+
+####  牧月萌  
+##### 377#       发表于 2025-3-13 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67645161&amp;ptid=2090186" target="_blank">李小狼 发表于 2025-3-13 17:53</a>
+多谢楼上二位，想想也是，不如多拿个经验球增加通关效率了，开局送了5万，第一个村口稍微赌赌就跟开了金手 ...</blockquote>
+钱花不完可以给2代继续出场的人打打武器<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+（打到10级以上2代出场时武器会额外升级，打到16级+3）
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  ds2324ds2  
+##### 378#       发表于 2025-3-13 18:33
+
+问个问题，有哪里能看到二代所有的侦探调查资料啊。这个东西感觉一个个弄太费时间了。
+

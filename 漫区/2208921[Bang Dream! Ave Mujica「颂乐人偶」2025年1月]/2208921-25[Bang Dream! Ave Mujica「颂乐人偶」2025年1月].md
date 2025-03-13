@@ -6479,3 +6479,13 @@ fanart上的初华美丽又强大。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  天空塔书记官  
+##### 36057#       发表于 2025-3-13 18:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
