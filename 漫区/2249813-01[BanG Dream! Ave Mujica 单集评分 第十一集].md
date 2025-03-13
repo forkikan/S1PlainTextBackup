@@ -2430,3 +2430,58 @@ Mujika高能回，柿本广大献给闪彩动画的一封情书<img src="https:/
 
 就这集如此垃圾的演出水平还能给正分的是连后期蝈蝈都无法相比的粪海狂蛆啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  雪菜碧池  
+##### 262#       发表于 2025-3-14 02:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649646&amp;ptid=2249813" target="_blank">kurihayn 发表于 2025-3-14 01:21</a>
+
+所以爹死了亲生女儿死命撕养女是什么逻辑你理清楚了？</blockquote>
+不好意思真的见过，同父异母葬礼撕逼
+
+*****
+
+####  もも的洞洞鞋  
+##### 263#       发表于 2025-3-14 02:41
+
+0分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
++2给李子
+
+-2给弱智剧情
+
+*****
+
+####  路人庚  
+##### 264#       发表于 2025-3-14 02:42
+
+-2
+
+有种上班快迟到但是早饭还差一点没吃完赶紧塞几口到嘴里使劲嚼了吞的美感
+
+
+*****
+
+####  鱼丈人  
+##### 265#       发表于 2025-3-14 02:43
+
+在我看来午间狗血肥皂剧还是比空降人格分裂强多了的，不至于和迷家坐一桌（或者说不配和迷家一桌？），这集我不给-2
+
+*****
+
+####  kimmmmmm  
+##### 266#       发表于 2025-3-14 02:44
+
+这集一口气看完还挺流畅，但是看完越想越不对劲<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  鱼丈人  
+##### 267#       发表于 2025-3-14 02:45
+
+还有娘死了小姨疯狂舔侄女的呢，有啥奇怪的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
