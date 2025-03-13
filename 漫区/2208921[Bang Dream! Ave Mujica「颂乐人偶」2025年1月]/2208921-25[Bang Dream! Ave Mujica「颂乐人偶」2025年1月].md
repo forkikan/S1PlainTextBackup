@@ -6599,3 +6599,110 @@ ptsd这不是还没治好吗，没治好的时候确实也没法演戏，所以�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  结衣小比取  
+##### 36067#       发表于 2025-3-13 20:02
+
+ 本帖最后由 结衣小比取 于 2025-3-13 20:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67644474&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-13 16:24</a>
+
+喵梦打鼓方面有没有才能有多少才能，对剧情起不到什么作用
+
+而大书特书的演技呢，其实也还是没什么作用，最 ...</blockquote>
+若麦第一话确实展示过演技，不过是在后台
+
+祥子当时正在背诵台词
+
+<img src="https://img.saraba1st.com/forum/202503/13/195657ujst4v4mzm24ep4t.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-03-13_19-17-43.jpg</strong> (170.4 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 19:56 上传
+
+若麦一时兴起
+
+<img src="https://img.saraba1st.com/forum/202503/13/195656qg9wnnj35aktigax.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-03-13_19-18-11.jpg</strong> (124 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 19:56 上传
+
+<img src="https://img.saraba1st.com/forum/202503/13/200413x40vt4w813go861r.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-03-13_19-27-57.jpg</strong> (140.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 20:04 上传
+
+这里说的话配合肢体动作表演感很强，若麦在即兴发挥接祥子的台词演出
+
+一方面是在表现她对于自身表演能力的自信，另一方面也是对于祥子所说「完美笑容」开玩笑的挑畔
+
+<img src="https://img.saraba1st.com/forum/202503/13/195706gd7bsfjd7kubbafb.gif" referrerpolicy="no-referrer">
+
+<strong>若麦转身.gif</strong> (2.89 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 19:57 上传
+
+但是祥子没有接上“戏”，而是挑眉冰冷的注视着若麦
+
+<img src="https://img.saraba1st.com/forum/202503/13/195719hh37u7zugmyyypzs.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-03-13_19-28-21.jpg</strong> (141.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 19:57 上传
+
+若麦只好一摊手，抱怨了一句「无聊的台本」转身上台
+
+<img src="https://img.saraba1st.com/forum/202503/13/195725jxjkjr4kxx55d25q.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-03-13_19-28-50.jpg</strong> (124.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 19:57 上传
+
+顺带一提，祥子这里被打断背诵台词的地方，正好也是台上若麦临场发挥打断祥子的地方
+
+<img src="https://img.saraba1st.com/forum/202503/13/195819d222v4es2en3a3e9.jpg" referrerpolicy="no-referrer">
+
+<strong>打断2处(1).jpg</strong> (387.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 19:58 上传
+
+另外第五话展示过的若麦宿舍书架，可以看得出全是演技相关的书籍
+
+<img src="https://img.saraba1st.com/forum/202503/13/195828r33g26zlbbfe3n3l.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-03-13_18-52-05.jpg</strong> (268.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 19:58 上传
+
+最左侧的几本都是很厚的大部头书籍，摸着就是几百页起步，主要都是靠自已的主观能动性才能啃完的，老师是不可能教完的
+
+*****
+
+####  油画布  
+##### 36068#       发表于 2025-3-13 20:05
+
+<blockquote>玖羽 发表于 2025-3-13 19:09
+这个逻辑其实是有的，喵梦因为PTSD整天想着睦，想着想着发现自己已经爱上了睦
+
+为什么炸团的时候还没有这 ...</blockquote>
+我对喵逐渐爱上睦的大方针没有意见，但是我怀疑拿“演技”来做关系性基础是否行的通。“表演”这设定就好像为“人格分裂”兜底的配套产品。整线充分展现了什么叫“暗恋是一个人的兵荒马乱”（除了第十集），几乎没有对这睦的人物线产生影响（除了第十集）双方的关系性也完全没有建立（除了第十集）这个效率是不是过于低了。演技这个设定除了喵梦无人在意，包括观众，它也不涉及任何主角的中心矛盾，包括睦，于是呈现出来就是这个样子。这种边缘设定就算给它增加笔墨，也不一定能有多大改观。
+
