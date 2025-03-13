@@ -13590,3 +13590,188 @@ SD剧场版给宫城哥哥的设定也是出海钓鱼没回来，也没见他打
 初音和大祥玩了一天就疯成这样，只能说大祥的货太纯了
 这拍出来的东西居然是mygo的续作，这才是最惊悚的地方，柿本也是多重人格了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大户爱  
+##### 36725#       发表于 2025-3-14 01:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649516&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-14 01:01</a>
+啊，假如编剧一定要说一见钟情呢</blockquote>
+第一，编剧说过的屁话多了去了。
+第二，连屁话都没说，就先贷款说也挺变态的。
+
+这集虽然狗血，初音的心理描写还是蛮流畅的。蛮符合mujica想写一点心理关系又写得很变态的样子。
+
+自己想磕糖，也请有点逻辑自己分析，不要贷款给编剧。
+
+*****
+
+####  thisisaspider  
+##### 36726#       发表于 2025-3-14 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649548&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-3-14 01:06</a>
+
+第一，编剧说过的屁话多了去了。
+
+第二，连屁话都没说，就先贷款说也挺变态的。</blockquote>
+啊，那我说初音对祥子一见钟情了。
+
+*****
+
+####  adretyu67.  
+##### 36727#       发表于 2025-3-14 01:08
+
+初音和大祥抓的是蝴蝶。这就是为啥狗12还是狗13来一段莫名其妙的庄周梦蝶吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  leghorn00  
+##### 36728#       发表于 2025-3-14 01:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649515&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-14 01:01</a>
+那渔夫能和女仆生出来个几乎一摸一样的
+
+只能说渔夫和老登多少也有点关系 ...</blockquote>
+初华八成也是老登的种，渔夫才是绿油油的那个，不然日本那么大为什么非要找个有丰川家别墅的岛养孩子
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  adretyu67.  
+##### 36729#       发表于 2025-3-14 01:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649546&amp;ptid=2208921" target="_blank">北条早苗 发表于 2025-3-14 01:06</a>
+
+一切的问题都可以用编剧的大手来解决，初音在母鸡卡解散后大祥回羽丘天天迈巴赫了都不知道，但是知道大祥和 ...</blockquote>
+初音极度自卑成那样子吸完蓝冰再被养父的死直接逼疯了也正常。
+
+比较神奇的是这先天自卑圣体怎么养出来的。父亲和妹妹对她应该都没什么问题。
+
+母亲天天追着她灌你是私生女吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蜜瓜包  
+##### 36730#       发表于 2025-3-14 01:11
+
+接下来的剧情是不是mujica剩下4个人去岛上把初音带回来，然后包个饺子，第13集开个live，结束。这剧情也太烂了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  聊nsy专用号  
+##### 36731#       发表于 2025-3-14 01:11
+
+不懂为什么这么在意真初华，这个角色就是用来塑造初音的，对祥子而言不过就是个可以利用的人脉，所以她才会对初音从同居到情诗的种种超过朋友情谊的越界行为那么戒备，我认为她对真初华就没有超越朋友的感情也不存在非真初华不可（虽然从剧透看完被打脸了）
+
+*****
+
+####  huxiaopao163  
+##### 36732#       发表于 2025-3-14 01:12
+
+渔夫哥发现自己和老婆生的孩子，居然和家里的拖油瓶长得非常像，应该会很痛苦吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  YF29  
+##### 36733#       发表于 2025-3-14 01:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649532&amp;ptid=2208921" target="_blank">黑圆桌 发表于 2025-3-14 01:04</a>
+
+那如果祥子或者初音初华她们任何人还活着的话以后生活要艰难死了
+
+除非真的直接送出国改名换姓整容之类的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">黄金绑腿上一起沉了得了。
+
+在这部狗屎动画里，角色活着就是要被柿本广大无限往脸上拉屎。
+
+*****
+
+####  thisisaspider  
+##### 36734#       发表于 2025-3-14 01:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649569&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-14 01:11</a>
+
+初音极度自卑成那样子吸完蓝冰再被养父的死直接逼疯了也正常。
+
+比较神奇的是这先天自卑圣体怎么养出来的 ...</blockquote>
+我一开始认为私生女加上扭曲的家庭环境就完全足够塑造一个自卑圣体的初音来了。
+
+特别就希望有初音母亲一直给她灌输身份卑劣的情节。没看到可惜了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大户爱  
+##### 36735#       发表于 2025-3-14 01:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649573&amp;ptid=2208921" target="_blank">聊nsy专用号 发表于 2025-3-14 01:11</a>
+不懂为什么这么在意真初华，这个角色就是用来塑造初音的，对祥子而言不过就是个可以利用的人脉，所以她才会 ...</blockquote>
+不会的，真初华连建模都不会有的，确实是单纯想背景板。
+
+剧透也要有自己分辨力，何况那个剧透有人承认自己填加自己理解了。
+
+*****
+
+####  厄神之息  
+##### 36736#       发表于 2025-3-14 01:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">说真的，非要死一个的话，那我真宁愿是初华死了。那样初音继承妹妹遗愿去当偶像也还算合理了。现在搞个死个老实人老爹，让姐姐妹妹一起发疯，让这动画的主唱成了个顾影自怜的大畜悲剧控，把自己侄女当理想中的自己疯狂玩水仙是真难评。。。
+
+*****
+
+####  YF29  
+##### 36737#       发表于 2025-3-14 01:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">柿本广大在毁角色上确实是有一套的，这下初音也要被封畜完了。
+
+他确实是懂得怎么去伤害二偶企划受众的。
+
+*****
+
+####  adretyu67.  
+##### 36738#       发表于 2025-3-14 01:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649581&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-14 01:13</a>
+
+我一开始认为私生女加上扭曲的家庭环境就完全足够塑造一个自卑圣体的初音来了。
+
+特别就希望有初音母亲一 ...</blockquote>
+如果是要隐藏秘密的话，考虑到年龄因素完全根本不需要提。
+
+只能说能想出这种妈的设定的人着实是有点病。
+
+*****
+
+####  zhoujin8584  
+##### 36739#       发表于 2025-3-14 01:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67576058&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-5 00:48</a>
+
+三角初华，她处处是下位的劣等替代品，也处处成为虚假物。奄美渡口初相遇，一见祥子误终身。想要靠近，却只 ...</blockquote>
+带一下之前奶对的初祥拼图，太阳一般的恒星照亮永恒的极夜——爱恨交织的镜像双子——一起下地狱的幻梦结局。这集把真初华的形象带出来了，感觉初音赢面又大了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+ps:喵睦也套了镜像的爱恨，难怪也在我磕点上。
+
+健康的恋爱固然重要，但扭曲的关系实在精彩。
+
+*****
+
+####  最强惠酱  
+##### 36740#       发表于 2025-3-14 01:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649506&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-14 01:00</a>
+
+服了，我不想再截图了。能不能看一遍原剧。</blockquote>
+双胞胎比较顺口描述错了，姐姐口吻说明差了几岁，不过2个爹同一个长相真当观众弱智吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 36741#       发表于 2025-3-14 01:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">初音问题不就是自己名分问题和正式认老登当爹么。大祥当次任家主就能解决了，爱咋搞咋搞
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
