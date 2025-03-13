@@ -12164,3 +12164,283 @@ JK斗财阀肯定没了。
 比如初华是初音的幻想？猎户座夏天看不到？全都是初音的剧本？初华是初音想象中的完美 ...</blockquote>
 让祥子演好就是这集的极限了 ，像你说的这么演才真是烂完了 又不是推理悬疑剧本
 
+
+*****
+
+####  adretyu67.  
+##### 36601#       发表于 2025-3-14 00:16
+
+不会有家族会议的，要加人脸浪费时间。
+
+*****
+
+####  ashero  
+##### 36602#       发表于 2025-3-14 00:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">两个双重人格是吧
+
+*****
+
+####  ntrntr1  
+##### 36603#       发表于 2025-3-14 00:17
+
+这片是真的很反音乐性。。。
+
+你主唱出道被星探挖掘是因为有个牛逼的爹，还有个脸很牛逼的妈。。。  爱好抓虫看星星对唱歌毫无兴趣只是惦记自己的侄女。。。
+
+*****
+
+####  thisisaspider  
+##### 36604#       发表于 2025-3-14 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648999&amp;ptid=2208921" target="_blank">油画布 发表于 2025-3-14 00:11</a>
+
+直接接在后面等于把初音的雷在第二集引爆了，至少得到第七集吧</blockquote>
+事实上，这东西在剧中只需要用于揭示角色的身份和动机。
+
+毕竟主题真不是要解决家庭问题吧。倒不如因为藏到后面了，导致看起来问题很重，不得不去解决。
+
+*****
+
+####  adretyu67.  
+##### 36605#       发表于 2025-3-14 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649058&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-14 00:17</a>
+
+这片是真的很反音乐性。。。
+
+你主唱出道被星探挖掘是因为有个牛逼的爹，还有个脸很牛逼的妈。。。  爱好抓 ...</blockquote>
+sumimi主唱不是初华，是mana
+
+*****
+
+####  Yugao  
+##### 36606#       发表于 2025-3-14 00:18
+
+别到最后初华这个人真的不存在，那就要变成阿卡姆乐队了
+
+*****
+
+####  Nealyun  
+##### 36607#       发表于 2025-3-14 00:18
+
+其实我觉得祥爹这条线收得还行
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  黑圆桌  
+##### 36608#       发表于 2025-3-14 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647884&amp;ptid=2208921" target="_blank">septemsky 发表于 2025-3-13 22:52</a>
+
+我懂了，
+
+祥子立马上岛→he
+
+祥子6年后上岛→黄金乡</blockquote>
+不是在黄金乡放下恩仇过节和和气气团圆
+
+而是舍身封印锁妖塔了属于是(
+
+*****
+
+####  ntrntr1  
+##### 36609#       发表于 2025-3-14 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649063&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-14 00:17</a>
+
+sumimi主唱不是初华，是mana</blockquote>
+意思是片里担当主唱这个位置的，对音乐0兴趣（
+
+一般搞乐队的就算畸形点不热爱音乐好歹意识得到自己擅长唱歌吧
+
+*****
+
+####  adretyu67.  
+##### 36610#       发表于 2025-3-14 00:19
+
+初华如果是初音幻想出来指责自己的人格也有可能。
+
+毕竟最后一幕看海只有一个人怎么也说不过去，母亲总还在岛上吧。
+
+*****
+
+####  xyion  
+##### 36611#       发表于 2025-3-14 00:19
+
+没看懂为啥祥爷在鸡1.0时没动作，这个时候跳出来把初音赶回去。总不能真是怕小姨上了侄女吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+而且柿本和独角兽是默认丰川家还是比较传统的家族，所以祥爷作为入赘地位不稳吗？那放祥子离家一年这心太大吧，这不应该立马抓回家关起来。
+
+然后现在又关起来送瑞士了，难道画外的设定是现在斗争开始激烈吗。这片片内逻辑太稀碎了。
+
+*****
+
+####  adretyu67.  
+##### 36612#       发表于 2025-3-14 00:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649079&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-14 00:18</a>
+
+意思是片里担当主唱这个位置的，对音乐0兴趣（
+
+一般搞乐队的就算畸形点不热爱音乐好歹意识得到自己擅长 ...</blockquote>
+你好，在mujica有的。可以让祥子给自己发病写的阴暗歌词作曲。
+
+*****
+
+####  huxiaopao163  
+##### 36613#       发表于 2025-3-14 00:20
+
+参考一下海猫的话，未来的家主还是祥子招的赘婿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+捕获14.PNG
+(241.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 00:17 上传
+
+<img src="https://img.saraba1st.com/forum/202503/14/001727ksqlpzsr2l22ul9i.png" referrerpolicy="no-referrer">
+
+*****
+
+####  油画布  
+##### 36614#       发表于 2025-3-14 00:20
+
+<blockquote>thisisaspider 发表于 2025-3-14 00:17
+事实上，这东西在剧中只需要用于揭示角色的身份和动机。
+
+毕竟主题真不是要解决家庭问题吧。倒不如因为藏 ...</blockquote>
+
+大概就是soyo的动机和背景在mygo第二集爆了的观感吧，你想像一下吧 不赘述了
+
+*****
+
+####  江口夕  
+##### 36615#       发表于 2025-3-14 00:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">牢爹还真就一句老登也没血缘直接救回来了。都不用努力了本来就在一条船上。还还什么168亿，老登欠牢爹168亿还差不多
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  黑圆桌  
+##### 36616#       发表于 2025-3-14 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648090&amp;ptid=2208921" target="_blank">zzs2338645 发表于 2025-3-13 23:03</a>
+
+那这一切的问题元凶岂不是还是祥子祥子不去岛上，就不会见到初音，初音就不会来东京，祥爹就不会被赶出来， ...</blockquote>
+战人：欢迎，来坐一桌
+
+大祥：What can I say
+
+
+*****
+
+####  缺陷电气杨永信  
+##### 36617#       发表于 2025-3-14 00:22
+
+在第一晚 奉上钥匙选中六名活祭→avemujica解散
+
+在第二晚 余下的人啊撕碎紧靠着的两人→sumimi貌合神离
+
+在第三晚 余下的人啊赞颂吾高贵之名→TGW group~
+
+在第四五六七八晚→给库来西裤盖上棺
+
+在第九晚 魔女复苏 无人生还←现在在这里
+
+在第十晚 旅途结束 终至黄金之乡
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 零壹贰叁| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  adretyu67.  
+##### 36618#       发表于 2025-3-14 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649087&amp;ptid=2208921" target="_blank">xyion 发表于 2025-3-14 00:19</a>
+
+没看懂为啥祥爷在鸡1.0时没动作，这个时候跳出来把初音赶回去。总不能真是怕小姨上了侄女吧
+
+而且柿本和独 ...</blockquote>
+逻辑稀碎没错。
+
+但是把祥子送到瑞士意思就是保护她肯定没错。
+
+有可能是初华身份最终还是曝光了，老登要面对家族大战了。所以live后急着见面
+
+先把孙女送出去保个安全。
+
+但是这个下一话应该不会提。
+
+*****
+
+####  ntrntr1  
+##### 36619#       发表于 2025-3-14 00:22
+
+舅舅确实该死，不敢想象这集开幕唐突自爆小姨子观众的精神状态
+
+没被剧透的霓虹人看日本雷雨有何感想，不会被感动了吧<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 36620#       发表于 2025-3-14 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649087&amp;ptid=2208921" target="_blank">xyion 发表于 2025-3-14 00:19</a>
+
+没看懂为啥祥爷在鸡1.0时没动作，这个时候跳出来把初音赶回去。总不能真是怕小姨上了侄女吧
+
+而且柿本和独 ...</blockquote>
+因为他需要mijica能成，他其实需要初音和祥子接触
+
+如果动机上他还想毁灭（脱离）丰川家的话，至少现在动机是成立的
+
+他的妻子，女儿，孩子，都因为丰川家的血脉遭受不幸<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kenqqex  
+##### 36621#       发表于 2025-3-14 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649036&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-3-14 00:15</a>
+
+点一下华字还是会变</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202503/14/002239x3dbddds2ms3z3n5.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (163.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 00:22 上传
+
+换成jis 保存一下再转utf 8就好了
+
+和原来意思一样的 没意思 (
+
+*****
+
+####  adretyu67.  
+##### 36622#       发表于 2025-3-14 00:25
+
+寻思了下，初华这话炸完就是个超级加强版小白。
+
+一个小白都得蝶团四个妈哄着。
+
+鸡团这疯人院怎么抗
+
