@@ -6763,3 +6763,19 @@ ptsd这不是还没治好吗，没治好的时候确实也没法演戏，所以�
 我对喵逐渐爱上睦的大方针没有意见，但是我怀疑拿“演技”来做关系性基础是否行的通。“表演”这设定就好 ...</blockquote>
 就是因为除了喵梦无人在意演技这回事，所以其他人都无法拯救睦，只有喵梦拯救了睦，在喵梦的告白后睦的两个人格终于合二为一而变得完整，吉他无法唱歌的问题从live画面看应该也是直接解决了。
 
+
+*****
+
+####  6030sylar  
+##### 36074#       发表于 2025-3-13 20:36
+
+<img src="https://img.saraba1st.com/forum/202503/13/203605sajna6tsnvvij7dj.png" referrerpolicy="no-referrer">
+
+<strong>S}~_{(I_X@K~C7RSAH0G3.png</strong> (218.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 20:36 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">你们干了什么
+
