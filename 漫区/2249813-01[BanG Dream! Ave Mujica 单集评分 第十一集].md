@@ -1109,3 +1109,153 @@ AveMujica高能回，柿猛干献给初步举证的情书
 
 为李子演出加一分
 
+
+*****
+
+####  雪菜碧池  
+##### 115#       发表于 2025-3-13 22:56
+
+不错，可惜前面几集太拉了，如果第三话就这么疯就好了
+
+*****
+
+####  d79bd7b34f39d3c  
+##### 116#       发表于 2025-3-13 22:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">直到看之前1s我还在哄骗自己那个剧透是假的
+
+演出就不说了，神金<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  聂宝楽楽  
+##### 117#       发表于 2025-3-13 22:57
+
+-2伟大无需多言
+
+*****
+
+####  zhzij111  
+##### 118#       发表于 2025-3-13 22:57
+
+这集真比前面几集好点吧，可以±0。就是最后海铃这一嗓子实在没绷住-1，给个-1吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  nt2013  
+##### 119#       发表于 2025-3-13 22:59
+
+本来-2 但是给1分给5连冠的甜甜圈
+
+甜甜圈是mvp 初音是躺赢狗<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  零壹贰叁  
+##### 120#       发表于 2025-3-13 22:59
+
+ 本帖最后由 零壹贰叁 于 2025-3-13 23:00 编辑 
+
++2
+感觉比第七集第九集有趣
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这下真是给海猫的情书了
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">我早就是李噶了
+
+
+*****
+
+####  AnnieLeonhart  
+##### 121#       发表于 2025-3-13 22:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">玩的还挺特别
+
+-2
+
+*****
+
+####  operatbig  
+##### 122#       发表于 2025-3-13 23:00
+
+-2 太闷了
+
+*****
+
+####  真爱与热情  
+##### 123#       发表于 2025-3-13 23:00
+
+这集的意思是想让观众同情下初音/华，所以不要再计较剧情的问题了是吧，放过mujica这5人，让她们好好组乐队吗
+
+我寻思着把初华的身世讲的烂一万倍也跟组乐队没啥关系啊
+
+*****
+
+####  太太  
+##### 124#       发表于 2025-3-13 23:01
+
+灾难演出-2，李神+2人机海玲+1，就这样吧
+
+食之无味弃之可惜了已经<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  airline114514  
+##### 125#       发表于 2025-3-13 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647530&amp;ptid=2249813" target="_blank">老贝 发表于 2025-3-13 22:35</a>
+
++2
+
+这集还真挺有那种什么冷门小众实验性动画的意思，婆罗门估计很喜欢吧。</blockquote>
+这集还真有点那种氛围，虽然确实是二次元雷雨
+
+*****
+
+####  Eapip  
+##### 126#       发表于 2025-3-13 23:02
+
+-2
+
+看过业物语6.5，这就是零几年视觉小说的贫瘠表现力。
+
+
+*****
+
+####  LinkerWeg  
+##### 127#       发表于 2025-3-13 23:02
+
+战吧还堵得住嘴吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  塞西菜恩  
+##### 128#       发表于 2025-3-13 23:03
+
+-2，喜欢看这个的短视频网站神剧更适合你，那个制作和剧本精细度比这玩意儿强多了
+
+*****
+
+####  Augusty  
+##### 129#       发表于 2025-3-13 23:04
+
+各种意义上的，神人剧情
+
+-2
+
+*****
+
+####  downnote  
+##### 130#       发表于 2025-3-13 23:04
+
++0吧，没啥意思
+
+但是想问一下为什么到处看到说不好的理由是“和剧透一样”？这个毒点在哪里，我不是很能get到。是因为剧透的剧情比较low，动画真的这样做了所以low吗。如果事先不知道剧透的话评价是一样还是会更好还是会更差？
+
+*****
+
+####  fsfs_freeze  
+##### 131#       发表于 2025-3-13 23:04
+
++0 一如既往的变态剧情配上出乎意料的表现形式，舞台剧像是弄巧成拙
+

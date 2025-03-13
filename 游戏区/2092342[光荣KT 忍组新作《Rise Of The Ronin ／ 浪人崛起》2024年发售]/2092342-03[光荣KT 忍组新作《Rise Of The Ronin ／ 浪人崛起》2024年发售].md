@@ -1390,3 +1390,12 @@ GIIdsQCbUAAO84K.jpg
 我觉得不石火也能玩吧，后面解锁的派生很多大部分并不依赖石火</blockquote>
 那太好了哇<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KENN  
+##### 3543#       发表于 2025-3-13 22:59
+
+我勒个开放世界，玩困了
+打起来还不如卧龙爽😅😅
+
