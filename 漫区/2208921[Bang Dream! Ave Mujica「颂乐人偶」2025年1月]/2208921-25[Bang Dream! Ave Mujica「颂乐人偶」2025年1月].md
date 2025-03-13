@@ -8110,3 +8110,498 @@ wait，祥爹欠168亿还能翻案的吗<img src="https://static.saraba1st.com/i
 
 —— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
+
+*****
+
+####  香草味图书  
+##### 36219#       发表于 2025-3-13 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647394&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-13 22:30</a>
+日你媽，退錢！
+
+豐川家的黑暗就是老中小三登都是廢物嗎？！！</blockquote>
+是初音和祥子同岁，初华反而小一些，虽也解释不了为什么小一些的初华和祥子在记忆里能看起来岁数差不多而且还是和初音依然长的一模一样。
+
+—— 来自 HUAWEI HBN-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.97
+
+*****
+
+####  有钱多买小人  
+##### 36220#       发表于 2025-3-13 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647377&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-3-13 22:29</a>
+日本没有户口制度。
+
+这样伪造身份还真的可行。</blockquote>
+日本当然也有类似户口的管理系统，也是以家庭单位管理。
+
+小姨这会大概还是未成年，按理说还要监护人书面证明和同意。只能说都是丰川家的大手。
+
+*****
+
+####  seki_m  
+##### 36221#       发表于 2025-3-13 22:36
+
+致敬传奇主唱livehouse念经
+
+*****
+
+####  ads147147  
+##### 36222#       发表于 2025-3-13 22:37
+
+这集，哎，不说了。
+
+好的故事能让观众察觉到自己是什么样的人，而你的故事我只能看到写这个故事的人是什么样的人。
+
+十本和独角兽，你们开心了吗？
+
+这次独角戏真的好几次转折都特别生硬，完全无法理解。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  秦南心  
+##### 36223#       发表于 2025-3-13 22:37
+
+一脸懵逼，为啥因为初音来找祥子，所以祥爹就被丰川家撤掉，怎么个说法？？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 36224#       发表于 2025-3-13 22:37
+
+应该能实锤是mygo之后完工的那个版本被推翻重新拍了一次，工期不够了。
+
+*****
+
+####  FanFun  
+##### 36225#       发表于 2025-3-13 22:37
+
+是怎么个夺走祥爸的逻辑，看不懂啊
+
+*****
+
+####  downnote  
+##### 36226#       发表于 2025-3-13 22:38
+
+还有个问题，祥子妈祥子外婆都早死，恐怕祥子和初音也命不久矣<img src="https://static.saraba1st.com/image/smiley/carton2017/481.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 36227#       发表于 2025-3-13 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647377&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-3-13 22:29</a>
+
+日本没有户口制度。
+
+这样伪造身份还真的可行。</blockquote>
+问题这是当公开的偶像，要想长时间玩下去不露馅，还是丰川大手在支持更合理<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  单脚着地  
+##### 36228#       发表于 2025-3-13 22:38
+
+亲妈死后，亲爹为了维护自己祖父欠下的孽债被赶出家门，这还是自己小姨自私的行为导致的，过上穷苦生活打工养家后还要坚持自己的音乐梦想，结果遇人不淑招来的鼓手背刺自己，自己的青梅竹马玩人格吃鸡捅娄子一个接一个，自己还要帮她顶键帽弹劾的压力，结果回头一看她只会阿吧阿坝，绷住了开喷，从此以后在观众嘴里落下一个哈基祥的美称
+
+场内被各种捅刀，场外被观众喷菜喷÷喷只会哈气，拔剑四顾自己周围没一个像人的，就这还不准大象大老师哈气
+
+换个人带入到大象老师，别说哈气了，估计忍不住一刀一个剐了这些宰总<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  厄神之息  
+##### 36229#       发表于 2025-3-13 22:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">哈哈哈哈哈初音女士你自责你毁了素未谋面的小祥之前，是不是应该先自责一下自己窃取了妹妹的名字和身份？剥夺了她成为偶像的人生？
+
+*****
+
+####  香草味图书  
+##### 36230#       发表于 2025-3-13 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647561&amp;ptid=2208921" target="_blank">秦南心 发表于 2025-3-13 22:37</a>
+一脸懵逼，为啥因为初音来找祥子，所以祥爹就被丰川家撤掉，怎么个说法？？ ...</blockquote>
+看跳了吧？是中登找老登，要他承认并接回私生女。老登认为会影响自己地位，放逐了中登。
+
+—— 来自 HUAWEI HBN-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.97
+
+*****
+
+####  oyss  
+##### 36231#       发表于 2025-3-13 22:39
+
+爹不一样是如何生出来这种情况的
+
+*****
+
+####  tuatha  
+##### 36232#       发表于 2025-3-13 22:39
+
+还是黑祥白祥一键切换的低劣操作啊，上集结尾还对初音爱答不理这集独角戏演完就白了的祥子你是在独角戏现场吗
+
+*****
+
+####  الطائر  
+##### 36233#       发表于 2025-3-13 22:39
+
+所以丰川家的大手到底是谁的手？
+
+*****
+
+####  syndrome2032  
+##### 36234#       发表于 2025-3-13 22:39
+
+老登也是入赘的，初音不是丰川家的人。
+
+如果中登独走直接说了出来，老登就完蛋了。
+所以老登直接提前做了中登。
+
+*****
+
+####  cxj649  
+##### 36235#       发表于 2025-3-13 22:39
+
+顺便
+
+大祥理论上才是丰川家家主233
+
+*****
+
+####  aptx8285144  
+##### 36236#       发表于 2025-3-13 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647426&amp;ptid=2208921" target="_blank">翼宿一 发表于 2025-3-13 22:31</a>
+
+如何挽救其他角色的风评？那当然是让老登爆炸 
+
+甚至连祥父的形象都挽回了一点，变成了老登给他穿小鞋。但最 ...</blockquote>
+我看广播剧这个吐槽点也是这么想的，大祥这蛊惑能力过于惊人，以至于没有什么实触感
+
+*****
+
+####  秦南心  
+##### 36237#       发表于 2025-3-13 22:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么就“你根本就不知道丰川家多哈人”了，丰川家除了祥子还有哪些活人都不知道权力结构也没展现
+
+*****
+
+####  seki_m  
+##### 36238#       发表于 2025-3-13 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647568&amp;ptid=2208921" target="_blank">FanFun 发表于 2025-3-13 22:37</a>
+
+是怎么个夺走祥爸的逻辑，看不懂啊</blockquote>
+中登顶撞老登所以被扣黑锅赶出家门了
+
+*****
+
+####  sakatta  
+##### 36239#       发表于 2025-3-13 22:40
+
+我只好奇一点，爹都不同怎么会生出来一模一样<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  与何人说  
+##### 36240#       发表于 2025-3-13 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647580&amp;ptid=2208921" target="_blank">downnote 发表于 2025-3-13 22:38</a>
+
+还有个问题，祥子妈祥子外婆都早死，恐怕祥子和初音也命不久矣</blockquote>
+寿命据说受线粒体影响比较大，线粒体是在X染色体遗传的。短命的大概是祥子，不是初音。
+
+
+*****
+
+####  everdream  
+##### 36241#       发表于 2025-3-13 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647596&amp;ptid=2208921" target="_blank">oyss 发表于 2025-3-13 22:39</a>
+爹不一样是如何生出来这种情况的</blockquote>
+除非真初华的亲爹（接盘侠）是定治兄弟？不然这生物学不存在了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pokemon最爱  
+##### 36242#       发表于 2025-3-13 22:41
+
+一个想法啊，不一定对，不会之后妹妹（初华）会被老登接来东京顶替姐姐（借初华名义出道的初音）在Sumimi中的位置吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qiyu1234  
+##### 36243#       发表于 2025-3-13 22:41
+
+整个片里都合的部分太多已经无所谓合理性了
+
+更重要的是还有2话完结的情况下，完全放弃了鸡团作为一个整体重新捏合的塑造时间
+
+这团跟解散前有什么根本性区别吗？就剩2话了，还是看不出鸡团有什么重组的必要
+
+下一话起码给其他三人一点表现空间，别变成祥子独角戏好吗
+
+*****
+
+####  ads147147  
+##### 36244#       发表于 2025-3-13 22:41
+
+算了，放弃讨论丰川家的设计了，十本你说啥就是啥吧。
+
+所以说初华你早就知道祥子什么情况了，然后就那么看着？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  RStocking  
+##### 36245#       发表于 2025-3-13 22:41
+
+这一切都是祥子的梦吧，才会这么混乱，没有逻辑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  清江望月  
+##### 36246#       发表于 2025-3-13 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647499&amp;ptid=2208921" target="_blank">wsuFish 发表于 2025-3-13 22:34</a>
+
+之前“大金毛”只是性格和人设，真像狗一样满地爬也太抽象了。而且为什么妹妹阳光就自卑，祥子阳光就上瘾了 ...</blockquote>
+谁能预见两个没出场的人物的剧情，你见过纯是因为舅舅的剧透里写过这个关系性，看过剧透的人顺口说出来了而已。<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Ferrari  
+##### 36247#       发表于 2025-3-13 22:42
+
+最后两集从头live到尾有救
+至于剧情去尼玛的<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 36248#       发表于 2025-3-13 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647561&amp;ptid=2208921" target="_blank">秦南心 发表于 2025-3-13 22:37</a>
+
+一脸懵逼，为啥因为初音来找祥子，所以祥爹就被丰川家撤掉，怎么个说法？？ ...</blockquote>
+中登是不是因为这个而被亏损168亿，这都是模棱两可的，<strong>反正这话各种意义上在致敬闪彩</strong><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  borrowface  
+##### 36249#       发表于 2025-3-13 22:42
+
+这意识流太拙劣了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">初华跪地爬也太TM变态了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  是谁的书画  
+##### 36250#       发表于 2025-3-13 22:42
+
+初音喜欢的是祥子吗？
+
+不，本质上她喜欢的是初华，那个拥有她所没有的一切的女人，想要抢走她的一切。
+
+这是半身水仙。
+
+沟槽的水仙啊啊啊啊啊啊啊啊啊啊<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ntrntr1  
+##### 36251#       发表于 2025-3-13 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647635&amp;ptid=2208921" target="_blank">everdream 发表于 2025-3-13 22:41</a>
+
+除非真初华的亲爹（接盘侠）是定治兄弟？不然这生物学不存在了</blockquote>
+都是工具人，工具人之间的兄弟情
+
+而且初音瞳色是紫色的和老登一样
+
+祥子眼睛没瞎的话，初华眼睛多半也是紫色的。。。
+
+嗯。。。一定是因为老登从这岛出来的大家都一样
+
+*****
+
+####  cxj649  
+##### 36252#       发表于 2025-3-13 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647568&amp;ptid=2208921" target="_blank">FanFun 发表于 2025-3-13 22:37</a>
+
+是怎么个夺走祥爸的逻辑，看不懂啊</blockquote>
+祥爸宣告祥爷有2私生子，然后祥爷也是入赘的233
+
+*****
+
+####  clamp1010  
+##### 36253#       发表于 2025-3-13 22:43
+
+怎么克蕾尔读剧本都抄啊，真就对海猫的拙劣模仿呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秋月孝三  
+##### 36254#       发表于 2025-3-13 22:43
+
+<img src="https://img.saraba1st.com/forum/202503/13/224305v1569z9j134itp9t.jpg" referrerpolicy="no-referrer">
+
+<strong>square.jpg</strong> (41.87 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 22:43 上传
+
+三角初スクエア
+
+*****
+
+####  卡卡布鲁根  
+##### 36255#       发表于 2025-3-13 22:43
+
+什么狗屎玩意
+连身为动画监督的自尊都不要了吗
+
+—— 来自 vivo V2307A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 36256#       发表于 2025-3-13 22:43
+
+真觉得自己宁可再去看一遍星2的夏美回都比这个逻辑顺畅。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  6030sylar  
+##### 36257#       发表于 2025-3-13 22:43
+
+<img src="https://img.dexbug.com/i/2025/03/13/112c5wn.gif" referrerpolicy="no-referrer">
+<img src="https://img.dexbug.com/i/2025/03/13/112fg3y.gif" referrerpolicy="no-referrer">
+
+原如，我懂了
+
+*****
+
+####  聊nsy专用号  
+##### 36258#       发表于 2025-3-13 22:43
+
+没想到初华假药里最不可能的骗祥爹168亿竟然成真了
+
+*****
+
+####  迷路的石头  
+##### 36259#       发表于 2025-3-13 22:44
+
+<blockquote>qiyu1234 发表于 2025-3-13 22:35
+最后一集看完不会破口大骂就是我个人对这片的最后期望了</blockquote>
+舅舅爆料最后一集全是live
+
+*****
+
+####  南宮凝香  
+##### 36260#       发表于 2025-3-13 22:44
+
+中登是沒了工作，
+
+不是似了
+
+誰家是這樣滅口的
+
+小祥分不清差了幾歲的異父姐妹
+
+老登幾十年還會因為外遇就被人推倒
+
+中登連養外室女也不會
+
+三代智商加起來可能勉強過百吧
+
+*****
+
+####  师傅没水了  
+##### 36261#       发表于 2025-3-13 22:44
+
+这集除了祥哐哐打电话呼叫初音和初音叭叭满地爬比较魔怔外，其它地方我感觉好像还可以啊，就是人物性格太戏剧话了，不过如果以这种舞台剧演出的话反而又很合适
+
+*****
+
+####  哩子ayil  
+##### 36262#       发表于 2025-3-13 22:44
+
+祥子已经是编剧按一下按钮就切换的人偶了，从四集开始老实说祥子就已经没什么看头了
+
+*****
+
+####  半年  
+##### 36263#       发表于 2025-3-13 22:44
+
+<img src="https://img.saraba1st.com/forum/202503/13/224451wude060gz10t0y03.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20250313224334.png</strong> (1.16 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 22:44 上传
+
+*****
+
+####  The_Ether_  
+##### 36264#       发表于 2025-3-13 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647455&amp;ptid=2208921" target="_blank">厚乳果珍爽 发表于 2025-3-13 22:32</a>
+
+11区有身份证吗？</blockquote>
+现在有了，mynumbercard
+
+*****
+
+####  cayon  
+##### 36265#       发表于 2025-3-13 22:45
+
+既然中登是被老登搞走的，那你tm砸啤酒瓶干嘛呀
+
+*****
+
+####  AveMujica  
+##### 36266#         楼主| 发表于 2025-3-13 22:45
+
+<img src="https://p.sda1.dev/22/b2d95ce800a01566db48e679d10b8a55/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 36267#       发表于 2025-3-13 22:45
+
+丰川家女系都死得早，那祥子……
+
+*****
+
+####  霸王向小受  
+##### 36268#       发表于 2025-3-13 22:45
+
+评价为对《异度装甲》的拙劣模仿
+
+人家什么剧情你母鸡卡什么剧情？还学人家坐小板凳放PPT？
+
+人家是预算不够的神作，你母鸡卡又是个什么东西？纯心摆烂的垃圾玩意？
+
+*****
+
+####  ads147147  
+##### 36269#       发表于 2025-3-13 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647704&amp;ptid=2208921" target="_blank">师傅没水了 发表于 2025-3-13 22:44</a>
+这集除了祥哐哐打电话呼叫初音和初音叭叭满地爬比较魔怔外，其它地方我感觉好像还可以啊，就是人物性格太戏 ...</blockquote>
+我觉得十本应该特别自豪自己搞了一集第三人称独角戏，完全没觉得这里头台词打磨全是问题么。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
