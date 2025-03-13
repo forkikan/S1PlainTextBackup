@@ -3571,3 +3571,17 @@ PSP版就修了
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  牧月萌  
+##### 374#       发表于 2025-3-13 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67643243&amp;ptid=2090186" target="_blank">李小狼 发表于 2025-3-13 13:37</a>
+请问下一代一开始拿的金运球和特典送的一个可以叠加吗？
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+我印象里是可的，因为后边还有怪物能掉这玩意<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
