@@ -5859,3 +5859,26 @@ fanart上的初华美丽又强大。
 
 纸片人都没有人身，何来人身攻击<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  huxiaopao163  
+##### 36012#       发表于 2025-3-13 11:49
+
+喵梦说莫演的不好这段，也没说的很清楚，可以理解成不同的情况
+我是当做莫平时演的都很完美，只有扮演睦这次不够完美，这是睦莫水仙自己的问题，但是也让喵梦通过这次机会得以和心中的恐怖和解。
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Victorino  
+##### 36013#       发表于 2025-3-13 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67642115&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-3-13 11:15</a>
+
+喵梦的问题主要是柿本犯病，非要把她设定成“天才堆里的凡人”，然后给她“凡人因才能的差距而痛苦”的剧本 ...</blockquote>
+评价为对隔壁片场的东云绘名的拙劣模仿
+
+东云姐能写成人气top line是有两把刷子的
+
