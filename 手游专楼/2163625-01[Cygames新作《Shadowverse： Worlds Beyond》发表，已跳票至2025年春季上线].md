@@ -215,3 +215,56 @@
 
 cy你他m去死吧
 
+
+*****
+
+####  岸浪白野  
+##### 80#         楼主| 发表于 2025-3-13 18:48
+
+<img src="https://img.saraba1st.com/forum/202503/13/184742e2dddo7g2i5iiika.png" referrerpolicy="no-referrer">
+
+<strong>Y6$](U}ALY8N{(10[GVYR.png</strong> (1.52 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 18:47 上传
+
+<img src="https://img.saraba1st.com/forum/202503/13/184749r4aopptm4jjkkppz.png" referrerpolicy="no-referrer">
+
+<strong>IMTZ((J(_0`J382SB~[{LGW.png</strong> (1.4 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 18:47 上传
+
+<img src="https://img.saraba1st.com/forum/202503/13/184758g2vs3va1thv1qumi.png" referrerpolicy="no-referrer">
+
+<strong>Z1BO9TMM@`]~)0E68CXIVV8.png</strong> (1.36 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 18:47 上传
+
+<img src="https://img.saraba1st.com/forum/202503/13/184812ds0l1ri1f491fs1i.png" referrerpolicy="no-referrer">
+
+<strong>1}6(AAZ@L(SHHZ~N6%VX))I.png</strong> (1.34 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 18:48 上传
+
+
+*****
+
+####  仓鼠吃火锅  
+##### 81#       发表于 2025-3-13 18:51
+
+几处都在暗示福利下调，估计要对标炉石赚卡钱了
+
+*****
+
+####  Meiien  
+##### 82#       发表于 2025-3-13 18:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有什么byd的必要吗，为了这个停了游戏一年，我佛了
+

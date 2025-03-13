@@ -3641,3 +3641,19 @@ PSP版就修了
 
 当年只草草通过2代，错过了1
 
+
+*****
+
+####  牧月萌  
+##### 380#       发表于 2025-3-13 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67645480&amp;ptid=2090186" target="_blank">李小狼 发表于 2025-3-13 18:35</a>
+这游戏除了能收一代主角居然还有这种联动吗？
+
+当年只草草通过2代，错过了1 ...</blockquote>
+等级也是可以加算的，只不过等级99才有最大加成比较难练就是了
+
+最直观就是2代弗利克维克多一开始加入，继承了存档等级就要高一些
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
