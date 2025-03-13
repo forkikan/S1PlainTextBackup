@@ -3524,3 +3524,22 @@ PSP版就修了
 
 奖杯而已
 
+
+*****
+
+####  ztkong  
+##### 370#       发表于 2025-3-13 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67640770&amp;ptid=2090186" target="_blank">等等等灯等灯 发表于 2025-3-13 09:03</a>
+
+请问1代我选了normal了会损失什么</blockquote>
+损失一个奖杯或者成就。。。不在乎的话也没啥
+
+<img src="https://img.saraba1st.com/forum/202503/13/101641h107caaz5zqthhs6.png" referrerpolicy="no-referrer">
+
+<strong>{B67C2B7C-423A-4b7e-BF9A-574BAA18EFA7}.png</strong> (23.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 10:16 上传
+
