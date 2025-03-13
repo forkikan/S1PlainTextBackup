@@ -2086,3 +2086,28 @@ wsd能让李子的live在新宿的大屏幕上播出，但是代价呢？<img sr
 
 现在我想到之前专楼里有段时间突然对着中登和老登大聊特聊假药，结果被正义坛友骂“我们这是少女乐队动画，这么喜欢聊老男人是不是自我代入了？”，如今看ep11很难绷得住。
 
+
+*****
+
+####  LLLLLuB  
+##### 227#       发表于 2025-3-14 00:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">bangdream的项目负责人就该拉出去打靶，没有正常的剧本和角色审美，还搞啥卖角色的企划呀，看完这动画，谁还有心思去捧鸡狗团的场
+
+*****
+
+####  fuochai  
+##### 228#       发表于 2025-3-14 00:32
+
+爽 这就是我想看的<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  白面馒头233  
+##### 229#       发表于 2025-3-14 00:35
+
+继人格分裂后又是病娇小姨爱上我，后面还要斗财阀，这是邦邦世界观下的故事吗？鸡团还要不要进游戏了？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

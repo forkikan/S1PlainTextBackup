@@ -12444,3 +12444,337 @@ sumimi主唱不是初华，是mana</blockquote>
 
 鸡团这疯人院怎么抗
 
+
+*****
+
+####  sauron.j  
+##### 36623#       发表于 2025-3-14 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648912&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-14 00:02</a>
+
+同意，一直藏着信息，让人无法理解前面的剧情。直到最后连后面的揭幕也变得无法理解了。 ...</blockquote>
+这片剧情编排的逻辑就是以编剧默认观众会愿意去前面的内容复盘 为前提吧，比如本集看完还要去回顾酒店大战、星象馆破防、阁楼不认识人偶等奇怪举动
+
+甚至她在若叶家突然神隐现在也能有新假药了，在美奈美谈及两家的亲密关系后怕被指认出来？
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| thisisaspider| + 1|美奈美家可能还真有点意思|
+
+查看全部评分
+
+*****
+
+####  梅杜莎  
+##### 36624#       发表于 2025-3-14 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648978&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-3-14 00:09</a>
+
+李子的推特，第一个秘密？无人能听懂的独白？
+
+难道真有反转？</blockquote>
+没翻译对吧，应该是“首次”、“初次”或者“第一次”
+
+*****
+
+####  钦念以忱  
+##### 36625#       发表于 2025-3-14 00:26
+
+结果🦄的初华双子小姨故事也没多少内容啊，这集讲的这么啰嗦也很快就讲完了，没多少新东西，是被删完了还是？多重人格也是新加的，C团复活是大手，所以ave mujica本来就没故事啊。
+
+*****
+
+####  6030sylar  
+##### 36626#       发表于 2025-3-14 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649127&amp;ptid=2208921" target="_blank">kenqqex 发表于 2025-3-14 00:23</a>
+
+换成jis 保存一下再转utf 8就好了
+
+和原来意思一样的 没意思 (</blockquote>
+这烂炒值得吗（
+
+*****
+
+####  バーチャルS1er  
+##### 36627#       发表于 2025-3-14 00:27
+
+等过一两话祥子变成丰川家主就包饺子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 36628#       发表于 2025-3-14 00:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649155&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-3-14 00:26</a>
+
+这片剧情编排的逻辑就是以编剧默认观众会愿意去前面的内容复盘 为前提吧，比如本集看完还要去回顾酒店大 ...</blockquote>
+睦妈实质也是丰川家的人（葬礼上睦和祥子一桌），她肯定是躲远点好。
+
+*****
+
+####  厄神之息  
+##### 36629#       发表于 2025-3-14 00:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648923&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-3-14 00:03</a>
+
+乱码肯定还有藏，但这值得吗（but at what cost）</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">唉，我草，我好像大概能知道这乱码会是啥了。。。。八成是说小祥童年白月光其实就是她，相比于太阳初华，仅见过一面给她星座报菜名的月亮初音才是打动她心一见钟情的白月光啥的。。。。
+
+*****
+
+####  烂片雷达  
+##### 36630#       发表于 2025-3-14 00:28
+
+素妈线也该收了，最后素妈勇斗财阀拯救公主喜迎娇妻
+素世喜提后妈<img src="https://static.saraba1st.com/image/smiley/face2017/058.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kenqqex  
+##### 36631#       发表于 2025-3-14 00:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649176&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-3-14 00:27</a>
+
+唉，我草，我好像大概能知道这乱码会是啥了。。。。八成是说小祥童年白月光其实就是她，相比于太阳初华， ...</blockquote>
+看我36621楼
+
+*****
+
+####  厄神之息  
+##### 36632#       发表于 2025-3-14 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649182&amp;ptid=2208921" target="_blank">kenqqex 发表于 2025-3-14 00:28</a>
+
+看我36621楼</blockquote>
+那没事了（
+
+*****
+
+####  真爱与热情  
+##### 36633#       发表于 2025-3-14 00:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649125&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-14 00:23</a>
+
+因为他需要mijica能成，他其实需要初音和祥子接触
+
+如果动机上他还想毁灭（脱离）丰川家的话，至少现在动 ...</blockquote>
+这是啥意思，祥爷推一把想搞成mujica跟家族斗争有啥关系。搞成mujica能给他积攒什么资本吗
+
+*****
+
+####  adretyu67.  
+##### 36634#       发表于 2025-3-14 00:30
+
+ 本帖最后由 adretyu67. 于 2025-3-14 00:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649162&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-14 00:26</a>
+
+结果🦄的初华双子小姨故事也没多少内容啊，这集讲的这么啰嗦也很快就讲完了，没多少新东西，是被删完了还是 ...</blockquote>
+小姨现在看来是用来写负罪感，强烈的负罪感与自卑是初音的底色。
+
+为了从强烈的负罪感和自卑中解脱，初音选择将爱祥子作为目标。
+
+*****
+
+####  qiyu1234  
+##### 36635#       发表于 2025-3-14 00:31
+
+实际不存在真初华这个角色反而比较容易自圆其说，大不了就是实锤又一个精神病
+
+不然光一集恐怕很难交代清她跟初音祥子之间的纠葛，以及被人顶号这么多年到底发生了什么
+
+*****
+
+####  g救世主高达  
+##### 36636#       发表于 2025-3-14 00:31
+
+有个疑问，丰川家是生不出儿子吗，就算生不出儿子也得多生几个好防绝嗣吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猫执事  
+##### 36637#       发表于 2025-3-14 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649111&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-14 00:22</a>
+
+逻辑稀碎没错。
+
+但是把祥子送到瑞士意思就是保护她肯定没错。</blockquote>
+把祥子送出去实际上是防止竞争对手抢走吧，挟祥子以令诸侯。竞争对手的大人就像镰仓殿时期一样，主公的几个孩子会认各自的乳母，乳母家族作为赞助商，参与到以后得夺嫡大战。
+
+*****
+
+####  蜜瓜包  
+##### 36638#       发表于 2025-3-14 00:32
+
+按这个设定，丰川家真正的主人应该是大祥老师才对，问题是站在家族角度，大祥老师实在没有做错过什么啊，搞女同算么
+
+
+*****
+
+####  thisisaspider  
+##### 36639#       发表于 2025-3-14 00:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649220&amp;ptid=2208921" target="_blank">蜜瓜包 发表于 2025-3-14 00:32</a>
+
+按这个设定，丰川家真正的主人应该是大祥老师才对，问题是站在家族角度，大祥老师实在没有做错过什么啊，搞 ...</blockquote>
+没有作为继承人的自觉
+
+这不就回旋镖来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qratosones1337  
+##### 36640#       发表于 2025-3-14 00:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649210&amp;ptid=2208921" target="_blank">qiyu1234 发表于 2025-3-14 00:31</a>
+实际不存在真初华这个角色反而比较容易自圆其说，大不了就是实锤又一个精神病
+
+不然光一集恐怕很难交代清她 ...</blockquote>
+别又是人格分裂吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  adretyu67.  
+##### 36641#       发表于 2025-3-14 00:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649229&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-14 00:33</a>
+
+没有作为继承人的自觉
+
+这不就回旋镖来了</blockquote>
+老登应该也不想她有自觉的。
+
+有自觉就轮到老登可能被架空了。
+
+*****
+
+####  猫执事  
+##### 36642#       发表于 2025-3-14 00:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649220&amp;ptid=2208921" target="_blank">蜜瓜包 发表于 2025-3-14 00:32</a>
+
+按这个设定，丰川家真正的主人应该是大祥老师才对，问题是站在家族角度，大祥老师实在没有做错过什么啊，搞 ...</blockquote>
+最后大祥老师龙王归位，以后左拥右抱两个初华<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  g救世主高达  
+##### 36643#       发表于 2025-3-14 00:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649220&amp;ptid=2208921" target="_blank">蜜瓜包 发表于 2025-3-14 00:32</a>
+
+按这个设定，丰川家真正的主人应该是大祥老师才对，问题是站在家族角度，大祥老师实在没有做错过什么啊，搞 ...</blockquote>
+丰川家做错的唯一地方就是代代只生一个，总不可能每代丰川家女人都是拉拉，所以才只生一个吧？现实那些有钱人财团只生一个的是真数的过来阿
+
+*****
+
+####  大户爱  
+##### 36644#       发表于 2025-3-14 00:34
+
+初音这么写其实动机蛮丰满的，本质上来说她爱的不是祥子，而是丰川祥子。
+
+正统的丰川继承人，卑微私生女梦想中的自己。虽然没见面，就爱上了。
+
+不过这种狗血剧情放在少女乐队里，真是独角兽私货吧。
+
+反过来祥子也是惨，初华也不是真心爱她。鸡团一群妖魔鬼怪，真心爱祥子的，还真是mygo里的灯，附带一点soyo。
+
+*****
+
+####  南宮凝香  
+##### 36645#       发表于 2025-3-14 00:34
+
+唉，豐川家的大手
+
+問： 你們十一集過去，看過多少個豐川家的成員？
+
+難不成下一集還能虛空生怪，
+
+拖幾個大中小登出來背鍋嗎？
+
+*****
+
+####  油画布  
+##### 36646#       发表于 2025-3-14 00:34
+
+<blockquote>qiyu1234 发表于 2025-3-14 00:31
+实际不存在真初华这个角色反而比较容易自圆其说，大不了就是实锤又一个精神病
+
+不然光一集恐怕很难交代清她 ...</blockquote>
+虽然更容易自圆其说，但是初音的自卑感来源会削弱很多，有点反高潮
+
+*****
+
+####  零壹贰叁  
+##### 36647#       发表于 2025-3-14 00:34
+
+我感觉因为初音并不是和祥子知り合い
+所以名字变了这部分事实就变成乱码了
+本质上是作抹除而不是还藏了什么
+
+*****
+
+####  蜜瓜包  
+##### 36648#       发表于 2025-3-14 00:35
+
+假设存在一个凌驾于老登之上的丰川家族元老会，会让老登这样一个赘婿迫害大祥老师么
+
+*****
+
+####  ntrntr1  
+##### 36649#       发表于 2025-3-14 00:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649239&amp;ptid=2208921" target="_blank">g救世主高达 发表于 2025-3-14 00:33</a>
+
+丰川家做错的唯一地方就是代代只生一个，总不可能每代丰川家女人都是拉拉，所以才只生一个吧？现实那些有 ...</blockquote>
+硬要找补就是得了子宫方面的遗传病再多生一次真要噶了   
+
+虽然有钱人找个纯科技DY好像是稀疏平常的 
+
+哎。善良。
+
+*****
+
+####  大户爱  
+##### 36650#       发表于 2025-3-14 00:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649239&amp;ptid=2208921" target="_blank">g救世主高达 发表于 2025-3-14 00:33</a>
+丰川家做错的唯一地方就是代代只生一个，总不可能每代丰川家女人都是拉拉，所以才只生一个吧？现实那些有 ...</blockquote>
+没说只生一个啊，老登还要被家族会议掣肘。
+说明丰川家分家还是不少的，主家这几年人丁凋零而已。
+
+*****
+
+####  zhoujin8584  
+##### 36651#       发表于 2025-3-14 00:36
+
+<blockquote>Nealyun 发表于 2025-3-14 00:18
+其实我觉得祥爹这条线收得还行
+
+—— 来自 S1Fun</blockquote>
+祥爹我能接受，毕竟前期一直在塑造祥子中登一贯的父女像，接受这个没苦硬吃的哈基祥可以滑坡到根本不需要包中登饺子，毕竟只是能力差点，现在回撤到能力并非真差，毕竟有钱人钱只会越花越多，是被现实击碎了对于真诚信仰的坚持。
+
+那问题就只缩圈到老登了。
+
+*****
+
+####  thisisaspider  
+##### 36652#       发表于 2025-3-14 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649244&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-3-14 00:34</a>
+
+初音这么写其实动机蛮丰满的，本质上来说她爱的不是祥子，而是丰川祥子。
+
+正统的丰川继承人，卑微私生女梦 ...</blockquote>
+不用分得这么清楚<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
