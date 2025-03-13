@@ -3484,3 +3484,14 @@ PSP版就修了
 打完了w白金撒花。</blockquote>
 游戏要求全程hard通关 是指1代还是2代还是都要hard
 
+
+*****
+
+####  ztkong  
+##### 366#       发表于 2025-3-13 08:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67640040&amp;ptid=2090186" target="_blank">等等等灯等灯 发表于 2025-3-13 02:45</a>
+
+游戏要求全程hard通关 是指1代还是2代还是都要hard</blockquote>
+1代2代都要hard通关。
+
