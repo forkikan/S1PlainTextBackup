@@ -6489,3 +6489,26 @@ fanart上的初华美丽又强大。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Victorino  
+##### 36058#       发表于 2025-3-13 18:37
+
+<blockquote>油画布 发表于 2025-3-13 17:46
+我是觉得为了突破演技瓶颈而面对睦，和与睦组乐队宣言“我只有mujica了”，完全是两码事，但动画强行把这 ...</blockquote>
+ptsd这不是还没治好吗，没治好的时候确实也没法演戏，所以除了组乐队（而且必须是跟睦组乐队）也没别的事能做，**视频都录不出来了
+
+当然我觉得这个地方的刻画严重缺乏逻辑论证，而且一看就能看出来是为了醋而强行包饺子，导致给人的观感就是很烂
+
+
+*****
+
+####  huxiaopao163  
+##### 36059#       发表于 2025-3-13 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67645119&amp;ptid=2208921" target="_blank">油画布 发表于 2025-3-13 17:46</a>
+
+我是觉得为了突破演技瓶颈而面对睦，和与睦组乐队宣言“我只有mujica了”，完全是两码事，但动画强行把这 ...</blockquote>
+“我只有mujica了”也只是个中间步骤，最终是要表达“我爱你”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
