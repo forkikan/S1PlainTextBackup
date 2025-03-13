@@ -2576,3 +2576,24 @@ Mujika高能回，柿本广大献给闪彩动画的一封情书<img src="https:/
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  h33  
+##### 277#       发表于 2025-3-14 05:20
+
++2
+最近几集最有趣的一集，声优表现也很到位<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+可惜剧情不够有病，我有一计，让祥子带着四个乐队去六轩岛上别墅玩的时候祖父突发急病身亡后略，揭开三位一体双子（✓）的秘密
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  Abelfufu  
+##### 278#       发表于 2025-3-14 05:20
+
+多么新奇的表现手法啊。。多么不可预测的命运之舞台。。
+
+好吧，早剧透光了
+
