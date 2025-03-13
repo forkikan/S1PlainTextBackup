@@ -1111,3 +1111,21 @@ GIIdsQCbUAAO84K.jpg
 
 也就第一章有新鲜感，第二章第三章我就开始打吐了，全是公式化据点，公式化找猫找宝箱，第三章精英怪一个比一个恶心，红光反一套只要最后一下没反到就全白搭，直到领悟战技复读换血放弃交互
 
+
+*****
+
+####  陆久舟  
+##### 3515#       发表于 2025-3-13 14:00
+
+捏人确实还是仁王二最好，卧龙有种油腻感，浪人感觉很毛糙。
+
+*****
+
+####  廖化  
+##### 3516#       发表于 2025-3-13 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67642125&amp;ptid=2092342" target="_blank">东方定助 发表于 2025-3-13 11:16</a>
+
+确实写实</blockquote>
+这老头居然是可以攻略的？暗荣你们的XP到底是些什么狗屎<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
