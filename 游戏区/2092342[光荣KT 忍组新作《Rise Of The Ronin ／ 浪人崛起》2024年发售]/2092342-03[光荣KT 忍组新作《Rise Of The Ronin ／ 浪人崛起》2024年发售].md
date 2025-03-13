@@ -1129,3 +1129,14 @@ GIIdsQCbUAAO84K.jpg
 确实写实</blockquote>
 这老头居然是可以攻略的？暗荣你们的XP到底是些什么狗屎<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  全装甲夏亚  
+##### 3517#       发表于 2025-3-13 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67643464&amp;ptid=2092342" target="_blank">廖化 发表于 2025-3-13 14:04</a>
+
+这老头居然是可以攻略的？暗荣你们的XP到底是些什么狗屎</blockquote>
+第三章正常做支线会有美少年冲田总司跟你告白，这个是不是更靠谱一点<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
