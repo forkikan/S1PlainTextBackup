@@ -11822,3 +11822,345 @@ mygo这么操作的也不少，立希跟野猫的塑造就跟闹着玩一样，�
 毕竟是啤酒战神还只是颓废。</blockquote>
 其实烂人有一点真心就很容易原谅，也可能是我心软。祥子摆烂回出租屋之后，我发现中登会把祥子的起居空间收拾干净，就感觉这饺子已经半熟了。
 
+
+*****
+
+####  油画布  
+##### 36572#       发表于 2025-3-14 00:08
+
+<blockquote>ntrntr1 发表于 2025-3-14 00:00
+我觉得初音多半有点被害妄想症的
+
+初华对她说的那些多半也是她脑补的</blockquote>
+这出戏里几句有意思的台词，指责初音不是喜欢祥子 喜欢的是故作被伤害的自己
+
+*****
+
+####  adretyu67.  
+##### 36573#       发表于 2025-3-14 00:08
+
+ 本帖最后由 adretyu67. 于 2025-3-14 00:09 编辑 
+
+JK斗财阀肯定没了。
+
+祥子就是那个最大的财阀，老登的地位必须依赖祥子。
+
+你见过有人自己斗自己吗
+
+*****
+
+####  零壹贰叁  
+##### 36574#       发表于 2025-3-14 00:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">剧情想一出写一出不早就是被实锤了的事吗
+现在还期待有什么好剧情不如期待大角老师和大柿老师后面会有什么新活吧
+不过大概率就是无聊的包饺子了
+
+*****
+
+####  南宮凝香  
+##### 36575#       发表于 2025-3-14 00:08
+
+這話倒是解決了母雞卡資金的來源
+
+不是老登背後偷偷用TGW給的
+
+TGW 下任總帥用TGW 的資源推自己樂隊，
+
+大概是PPT還沒拿進去， 對面就在打腹稿看能怎吹這計劃書
+
+*****
+
+####  huxiaopao163  
+##### 36576#       发表于 2025-3-14 00:09
+
+李子的推特，第一个秘密？无人能听懂的独白？
+
+难道真有反转？
+
+screenshot-1741882079571.png
+(145.68 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 00:08 上传
+
+<img src="https://img.saraba1st.com/forum/202503/14/000857mdddtvtgllh3f30x.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  真爱与热情  
+##### 36577#       发表于 2025-3-14 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648960&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-14 00:08</a>
+
+其实烂人有一点真心就很容易原谅，也可能是我心软。祥子摆烂回出租屋之后，我发现中登会把祥子的起居空间 ...</blockquote>
+这里有个问题，大祥走的时候没整理自己的地方吗。怎么就能得到这个结论的
+
+*****
+
+####  江口夕  
+##### 36578#       发表于 2025-3-14 00:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">后面估计大祥当家主，老登下台。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  Суслов  
+##### 36579#       发表于 2025-3-14 00:10
+
+确实是二流都市情感电视剧剧情，看过剧透后内心毫无波澜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可惜我还想看现在的小睦是个什么情况呢
+丰川家的大手荣升新一集的工具人，用不上时就是坐视祥子吃苦老登只手遮天，用得上时就是让老登都恐惧的存在，后面要是真有斗财阀的情节估计也是两三句话的事，跟这片讲逻辑真是毫无必要<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+还有人夸这集演出手法好，就这直接在背景放ppt的舞台剧也能叫好吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">全集唯一值得夸的是李子的配音，真是苦了她配这种神人了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  是谁的书画  
+##### 36580#       发表于 2025-3-14 00:10
+
+起码这样胡乱分析比接受编剧想一出是一出骗骗你的呀，来着有意思多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+重新在这集里收获了些微快乐
+
+*****
+
+####  zhoujin8584  
+##### 36581#       发表于 2025-3-14 00:11
+
+<blockquote>sephal 发表于 2025-3-14 00:06
+怎么感觉真初华有点多余的样子，编剧会不会已经她写死了</blockquote>
+真初华有点以假初华为乐的样子。
+
+幻视那句“你又不是crychic的，你懂什么”了
+
+*****
+
+####  老贝  
+##### 36582#       发表于 2025-3-14 00:11
+
+“你以为我是谁，我可是丰川祥子啊”这话要是真的，那这片古典的虚无味道可真是浓到爆表了。
+
+什么对自身命运的投降屈服与反抗斗争的全盘否定，这就是Ave Mujica在属于自己的庭院里演绎虚假的永恒吗。<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  油画布  
+##### 36583#       发表于 2025-3-14 00:11
+
+<blockquote>thisisaspider 发表于 2025-3-14 00:02
+同意，一直藏着信息，让人无法理解前面的剧情。直到最后连后面的揭幕也变得无法理解了。 ...</blockquote>
+直接接在后面等于把初音的雷在第二集引爆了，至少得到第七集吧
+
+*****
+
+####  adretyu67.  
+##### 36584#       发表于 2025-3-14 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648985&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-3-14 00:10</a>
+
+后面估计大祥当家主，老登下台。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+老登不过是大祥正式继承前代管
+
+*****
+
+####  kenqqex  
+##### 36585#       发表于 2025-3-14 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648923&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-3-14 00:03</a>
+
+乱码肯定还有藏，但这值得吗（but at what cost）</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202503/14/001220xldod8dqq5kvk11q.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (1.38 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 00:12 上传
+
+  已经改过来了
+
+*****
+
+####  聋与唬  
+##### 36586#       发表于 2025-3-14 00:12
+
+12集能一集翻盘吗？
+比如初华是初音的幻想？猎户座夏天看不到？全都是初音的剧本？初华是初音想象中的完美形象？初音也是双重人格？
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 36587#       发表于 2025-3-14 00:12
+
+最后海玲的歇斯底里特别有狗血电视剧的味
+
+*****
+
+####  adretyu67.  
+##### 36588#       发表于 2025-3-14 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648996&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-14 00:11</a>
+
+真初华有点以假初华为乐的样子。
+
+幻视那句“你又不是crychic的，你懂什么”了 ...</blockquote>
+没吧。第11话就没有出现过真初华的话。
+
+那些挖苦假初华的话应该是她自己内心的内斗
+
+*****
+
+####  ntrntr1  
+##### 36589#       发表于 2025-3-14 00:13
+
+ 本帖最后由 ntrntr1 于 2025-3-14 00:14 编辑 
+
+初音说自己一来东京就被星探发现了，结果后面说那是MANA，不会在她心中MANA就是帮助她偷妹妹梦想的工具人星探吧
+
+其实这个就很都合了，乡下妹一下船就被当红童星街头一见钟情拉去当代明星<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+大街上也不可能唐突唱歌，只能说三角妈确实美若天仙害老登犯了全世界男人都会犯的错
+
+*****
+
+####  zhoujin8584  
+##### 36590#       发表于 2025-3-14 00:13
+
+<blockquote>Суслов 发表于 2025-3-14 00:10
+确实是二流都市情感电视剧剧情，看过剧透后内心毫无波澜母鸡卡另外三人看来后面是没啥戏份了，人物也定型了 ...</blockquote>
+融合就等于接受两个都是自己，继承所有关系性，点亮社交科技，解除演技封印，获得吉他颠佬成就，承认过往条约为真心签署，如“祥子以后就交给初华你了”
+
+*****
+
+####  梅杜莎  
+##### 36591#       发表于 2025-3-14 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648933&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-14 00:04</a>
+
+另外就是对于明显的导演大手最好顺从
+
+比如说之前莫第八集的“其他角色都消失了”，就是字面意义上的第九集 ...</blockquote>
+时间上太近了，初华又是个喜欢多想的阴角
+
+估计她视角就是清告真诚的听取了自己的事情，说不定还义愤填膺了几句，结果马上被连着女儿一起赶出家
+
+*****
+
+####  俾斯麥  
+##### 36592#       发表于 2025-3-14 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648924&amp;ptid=2208921" target="_blank">真爱与热情 发表于 2025-3-14 00:03</a>
+
+前面10集，再怎么玩庞氏骗局，用大的爆点来盖小爆点，还是死死扣住乐队跟音乐主题的，就算做的很拙劣。
+
+myg ...</blockquote>
+MYGO的操作至少还保留在邦邦的框架里，毕竟动画只是个宣传片，撑死算序章，角色的塑造不是十几集就讲完的，后续进游戏没有个一两年拿不下来，但还是那句话，MYGO还保留在邦邦的框架里，那种KIRAKIRADOKIDOKI的少女乐队感还在，母鸡卡这是都不知道跑到哪里去了，游戏编剧估计要骂娘，我他妈要怎么顺着这坨屎往下续啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑圆桌  
+##### 36593#       发表于 2025-3-14 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647649&amp;ptid=2208921" target="_blank">RStocking 发表于 2025-3-13 22:41</a>
+
+这一切都是祥子的梦吧，才会这么混乱，没有逻辑</blockquote>
+发烧做的噩梦了属于是
+
+只是如果醒来发现身边睡着俩穿着很少布的“青梅”的话她会不会直接再吓晕过去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 36594#       发表于 2025-3-14 00:14
+
+ 本帖最后由 江口夕 于 2025-3-14 00:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648965&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-14 00:08</a>
+JK斗财阀肯定没了。
+
+祥子就是那个最大的财阀，老登的地位必须依赖祥子。</blockquote>
+这斗财阀肯定是都有丰川血的那边，老登不就是祥子手下打工的么<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+这下都不用努力了，直接逆转了，什么还钱，老登欠钱还差不多
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  qratosones1337  
+##### 36595#       发表于 2025-3-14 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649013&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-14 00:13</a>
+初音说自己一来东京就被星探发现了，结果后面说那是MANA，不会在她心中MANA就是帮助她偷妹妹梦想的工具人星 ...</blockquote>
+不过u1s1，出道靠的是老登，这个肯定轮不到真初华
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  kenqqex  
+##### 36596#       发表于 2025-3-14 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648978&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-3-14 00:09</a>
+
+李子的推特，第一个秘密？无人能听懂的独白？
+
+难道真有反转？</blockquote>
+如果真的有反转，那么只有一个可能性
+
+这13集动画和ms08小队一样
+
+是剧中剧
+
+可是这样太扯了........
+
+*****
+
+####  adretyu67.  
+##### 36597#       发表于 2025-3-14 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649021&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-3-14 00:14</a>
+
+这斗财阀肯定是都有丰川血的那边，老登不就是祥子手下打工的么
+
+—— 来自 Xiaomi 23113RKC6C, Android 1 ...</blockquote>
+所以不用讲了啊。
+
+斗大手那是老登的活，反正大旗在这里。
+
+*****
+
+####  6030sylar  
+##### 36598#       发表于 2025-3-14 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649003&amp;ptid=2208921" target="_blank">kenqqex 发表于 2025-3-14 00:12</a>
+
+已经改过来了</blockquote>
+点一下华字还是会变
+
+*****
+
+####  Delicatus545  
+##### 36599#       发表于 2025-3-14 00:15
+
+不会还要有家族会议的戏份吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  油画布  
+##### 36600#       发表于 2025-3-14 00:15
+
+<blockquote>聋与唬 发表于 2025-3-14 00:12
+12集能一集翻盘吗？
+
+比如初华是初音的幻想？猎户座夏天看不到？全都是初音的剧本？初华是初音想象中的完美 ...</blockquote>
+让祥子演好就是这集的极限了 ，像你说的这么演才真是烂完了 又不是推理悬疑剧本
+

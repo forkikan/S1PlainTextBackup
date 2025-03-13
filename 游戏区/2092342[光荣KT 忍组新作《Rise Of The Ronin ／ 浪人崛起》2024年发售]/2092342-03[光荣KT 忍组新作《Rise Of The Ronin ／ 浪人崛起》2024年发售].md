@@ -1433,3 +1433,14 @@ GIIdsQCbUAAO84K.jpg
 
 这游戏似乎设计初衷是让玩家一边玩着它一边玩手机，打开地图选个点设置自动前进，然后拿起手机刷刷微博贴吧看个短视频啥的，到地开砍，砍完打开地图再选个点……循环往复<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sopp  
+##### 3548#       发表于 2025-3-14 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648888&amp;ptid=2092342" target="_blank">nancygreenlife 发表于 2025-3-14 00:00</a>
+
+这游戏似乎设计初衷是让玩家一边玩着它一边玩手机，打开地图选个点设置自动前进，然后拿起手机刷刷微博贴吧 ...</blockquote>
+AC神话三部曲的路子，太像了
+
