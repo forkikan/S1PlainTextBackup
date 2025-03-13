@@ -13243,3 +13243,13 @@ G跨时蛮好的，干嘛加个之战
 狂犬老太感觉是小年轻主角最害怕的类型</blockquote>
 还不如死了成鬼算了，定格在永远的17岁（
 
+
+*****
+
+####  AvenueIII  
+##### 8480#       发表于 2025-3-14 04:25
+
+狂犬老太不是最酷的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+最好拿个双枪
+
