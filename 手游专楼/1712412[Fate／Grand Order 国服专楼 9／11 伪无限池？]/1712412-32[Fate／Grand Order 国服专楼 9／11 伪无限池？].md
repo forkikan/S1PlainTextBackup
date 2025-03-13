@@ -348,3 +348,31 @@
 
 这回参考了攻略，剑R+双奥宝+RBA
 
+
+*****
+
+####  HoleInTheSun  
+##### 47070#       发表于 2025-3-13 18:55
+
+抽卡罗兰出得多的话90++还是比较好打的，
+
+一个5不换4加成从者(水吹最低1宝90加狂树)，
+
+一个6不换全加成从者3-4t(一面暴击三面补刀，可以稍微点点剑树增加3t概率)
+
+<img src="https://img.saraba1st.com/forum/202503/13/184924oq5bxlczyf4efv5l.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_7244.jpg</strong> (752.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 18:49 上传
+
+<img src="https://img.saraba1st.com/forum/202503/13/184925gjl9dqf2y8m889mx.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_7245.jpg</strong> (749.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 18:49 上传
+

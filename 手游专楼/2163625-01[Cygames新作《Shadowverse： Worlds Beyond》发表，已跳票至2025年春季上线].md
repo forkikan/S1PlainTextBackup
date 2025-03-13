@@ -268,3 +268,59 @@ cy你他m去死吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有什么byd的必要吗，为了这个停了游戏一年，我佛了
 
+
+*****
+
+####  老贝  
+##### 83#       发表于 2025-3-13 18:57
+
+就是1代屎山维护不了所以重启了吧，一个回合外检索都做不出来。
+
+*****
+
+####  岸浪白野  
+##### 84#         楼主| 发表于 2025-3-13 18:57
+
+ 本帖最后由 岸浪白野 于 2025-3-13 18:58 编辑 
+
+难以评价
+
+<img src="https://img.saraba1st.com/forum/202503/13/185713vb50ddj5hhjhx0dh.png" referrerpolicy="no-referrer">
+
+<strong>AV`[X9@PZK)DD{2Y845%6Z8.png</strong> (550.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 18:57 上传
+
+
+*****
+
+####  岸浪白野  
+##### 85#         楼主| 发表于 2025-3-13 19:03
+
+梦回2005
+
+<img src="https://img.saraba1st.com/forum/202503/13/190307ozww961mgm0j9fku.png" referrerpolicy="no-referrer">
+
+<strong>`6UKA@YWM%YLN4~BO_7J@7G.png</strong> (737.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 19:03 上传
+
+<img src="https://img.saraba1st.com/forum/202503/13/190315dcb1511wedieng1g.png" referrerpolicy="no-referrer">
+
+<strong>GRLDOZIYK36]PMKOF]H$D.png</strong> (751.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 19:03 上传
+
+*****
+
+####  凉良  
+##### 86#       发表于 2025-3-13 19:05
+
+不知道都重写了为啥还不做墓地
+
