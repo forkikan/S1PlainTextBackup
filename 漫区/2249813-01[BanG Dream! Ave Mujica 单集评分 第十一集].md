@@ -1578,3 +1578,115 @@ AveMujica高能回，柿猛干献给初步举证的情书
 
 说不好的，你们真的不懂艺术，欣赏水平不高
 
+
+*****
+
+####  kongxian  
+##### 169#       发表于 2025-3-13 23:28
+
+喷了，真来小姨啊<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">，谁要看啊艹
+
+既然弄成这样，制作组最好把丰川家族有多可怕这点说清楚，那还能原谅<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  天王寺凯伊姆  
+##### 170#       发表于 2025-3-13 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648439&amp;ptid=2249813" target="_blank">白愁帝皇 发表于 2025-3-13 23:23</a>
+
+就目前而言还是不如macross7只能说新压抑女女关系性这块确实无敌了</blockquote>
+我是想不到这里会有人提到巴神的
+
+*****
+
+####  格林达姆  
+##### 171#       发表于 2025-3-13 23:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">其实这集虽然狗血但是大体上没啥问题
+
+但是放到一个两季度乐队动画的倒数前几集就很怪了
+
+*****
+
+####  denpaSi  
+##### 172#       发表于 2025-3-13 23:29
+
++2，李神登神回，没有李神我不知道要怎样看下去
+
+*****
+
+####  borrowface  
+##### 173#       发表于 2025-3-13 23:29
+
+我能接受小姨双子，但能不能不要搁这给我演独角戏自我感动<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+-2
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  影伴光生  
+##### 174#       发表于 2025-3-13 23:31
+
+-2
+李神尽力了，剧情cjb
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ky刃  
+##### 175#       发表于 2025-3-13 23:32
+
+好变态啊哈哈哈
+
+*****
+
+####  白愁帝皇  
+##### 176#       发表于 2025-3-13 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648532&amp;ptid=2249813" target="_blank">天王寺凯伊姆 发表于 2025-3-13 23:28</a>
+我是想不到这里会有人提到巴神的</blockquote>
+   就狂气本意来说巴萨拉确实是很狂气的人啊，母鸡卡感觉完全不能说什么狂气，宣传语就写错了
+
+*****
+
+####  rs5621  
+##### 177#       发表于 2025-3-13 23:32
+
++2
+
+舞台剧演出形式不太行，痴女初音和祥子的爱恨情仇，总算把剧情圆回来一点了，最后祥子你真的是行走的魅魔，到底害了多少人。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  modkingr  
+##### 178#       发表于 2025-3-13 23:33
+
+这集我也要-2了，之前除了07都是正分来着
+
+这集除了初音解释自己为什么一直在欺骗、自己多爱祥子算是有效信息以外，其他基本全是经不起细想的无效内容，演出又一塌糊涂，等于说除了女同以外不剩什么了。除了第七集以外观感最糟糕的一集
+
+希望最后初音能给祥子关起来抠死吧，这真初华感觉也没什么好找的了
+
+
+*****
+
+####  Anley  
+##### 179#       发表于 2025-3-13 23:34
+
+-1
+
+剧本烂活-2但是李神很c+1（李神本来可以加更多但是剧本实在太烂了补不了一点
+
+*****
+
+####  一个陆仁贾  
+##### 180#       发表于 2025-3-13 23:37
+
+懂了，丰川家族是建工集团高家人的手下<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

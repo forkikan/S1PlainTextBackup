@@ -10827,3 +10827,335 @@ mggm 你还不能代表官方谁能啊？<img src="https://static.saraba1st.com/
 
 看到开头的舞台剧时我还为这种独特的表现形式感到惊奇，但一集的绝大部分都是这种就让本集沦为了过渡回，矛盾未解决的ep11还搞过渡回真挺抽象。再思考一下如果不让本集成为过渡，那就需要换一种表现形式，所以这集的舞台剧反而变成了一种弄巧成拙。<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  戏谑二次元  
+##### 36478#       发表于 2025-3-13 23:28
+
+祥子肯定要招赘婿的，丰川之血。有孩子之后估计祥子也要英年早逝吧
+反正感觉丰川家女人都死的早<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 36479#       发表于 2025-3-13 23:29
+
+我大概猜到了一点所谓的秘密是什么。
+
+如果说老登可以为了初音妈离开初华家，我是不是可以假设理解成老登和中登一样，本质是入赘到丰川家的。
+
+因为初音这个人的存在，会害的丰川家族（特别是家族的女性）蒙羞。相当于是一个外人生下了一个完全没有“丰川”血缘的孩子。<strong>丰川的孩子必须诞生在丰川血脉女性身体里</strong>。
+
+所以初音不可以存在，也不可以让未来真正的继承人丰川祥子知道，家里存在一个毫无血缘的女性。
+
+祥子拥有丰川家的正统性和绝对性。
+
+*****
+
+####  阿卡拉兰斯  
+##### 36480#       发表于 2025-3-13 23:29
+
+我回去看了一下，对，回去看了一下
+老登必包饺子好吧，本来打算让初音和她妈在东京生活的，但是初音她妈带着初音走了
+虽然这饺子估计包得和第七集有得一拼估计
+
+
+*****
+
+####  6030sylar  
+##### 36481#       发表于 2025-3-13 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648434&amp;ptid=2208921" target="_blank">kenqqex 发表于 2025-3-13 23:23</a>
+
+木谷高明推特刚写的，就是女系家族</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">小明guna，现在出来是给柿本擦屁股是吧
+
+*****
+
+####  参考消息  
+##### 36482#       发表于 2025-3-13 23:29
+
+这集从头笑到尾，瑞士那儿都快笑疝气了……
+
+*****
+
+####  莉缇娅  
+##### 36483#       发表于 2025-3-13 23:29
+
+有一说一啊，这一话我看完感觉还行，但是说不变态的是不是有点分不清世界观了。
+
+这是要进二偶手游让你抽卡的动画啊，这么塑造角色还不够变态吗。
+
+*****
+
+####  thisisaspider  
+##### 36484#       发表于 2025-3-13 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648515&amp;ptid=2208921" target="_blank">雪菜碧池 发表于 2025-3-13 23:27</a>
+
+中登跟老登是不是利益一致？老登搞中登的理由是什么，他没有理由啊，废物就废物了，至少还会因为岳父身份 ...</blockquote>
+实际上，老登只说过“他运气不好，不要再管他了，他已经不是丰川家的人了”。应该没有刻意针对中登。
+
+可能只是断尾自保。
+
+*****
+
+####  半年  
+##### 36485#       发表于 2025-3-13 23:30
+
+<img src="https://p.sda1.dev/22/2f4759cbe18a2951a721d80b128fcfeb/QQ图片20250313232922.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 36486#       发表于 2025-3-13 23:30
+
+看不懂，初音和祥爸见过面和祥爸落魄有什么关系？
+
+*****
+
+####  AP0rt_  
+##### 36487#       发表于 2025-3-13 23:30
+
+相信祥爹力挽狂澜好吧<img src="https://static.saraba1st.com/image/smiley/face2017/058.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/f512adb253b75b24b7ba56874213082f/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  白愁帝皇  
+##### 36488#       发表于 2025-3-13 23:30
+
+  不往女女关系性来想初音对祥子很像一种本来初音应该拥有美好人生的追求，但讲道理你又很难不往这方面想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ntrntr1  
+##### 36489#       发表于 2025-3-13 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648525&amp;ptid=2208921" target="_blank">戏谑二次元 发表于 2025-3-13 23:28</a>
+
+祥子肯定要招赘婿的，丰川之血。有孩子之后估计祥子也要英年早逝吧
+
+反正感觉丰川家女人都死的早 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">没有喵梦的编剧大手，母鸡卡就这么解散了，初音就这么怂怂的一路看着小祥结婚，病逝，最后终于有一天忍不住和同样深爱的小祥的赘婿。。。
+
+哎，好一次轮回<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 36490#       发表于 2025-3-13 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648470&amp;ptid=2208921" target="_blank">zhigui 发表于 2025-3-13 23:25</a>
+
+mana真王朝了吧
+
+邦多利世界观五冠王
+
+这个概念太变态了</blockquote>
+歌唱比赛五冠王说明声音很好，但是没有证据证明她作词能力怎么样。
+
+大概就是和某种乐器的天才差不多的级别。
+
+但是邦多利乐队的核心竞争力是作词。
+
+*****
+
+####  aptx8285144  
+##### 36491#       发表于 2025-3-13 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648560&amp;ptid=2208921" target="_blank">Dai-Dai-Dai-Dai 发表于 2025-3-13 23:30</a>
+
+看不懂，初音和祥爸见过面和祥爸落魄有什么关系？</blockquote>
+纯属猜测，中登想揭开初音的事情，然后被丰川家的其他人搞了，当然你如果问初音怎么知道这些内幕的，别问我我也不知道<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厚乳果珍爽  
+##### 36492#       发表于 2025-3-13 23:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">母系家族-络新妇之理-蜘蛛-初华是蜘蛛侠。
+
+连上了
+
+*****
+
+####  kk霖洞九  
+##### 36493#       发表于 2025-3-13 23:32
+
+越来越期待手游和pico编剧怎么擦屁股了  
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  bird-lay  
+##### 36494#       发表于 2025-3-13 23:32
+
+一个女性掌权找赘婿的家族几个女的都早早就死了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  油画布  
+##### 36495#       发表于 2025-3-13 23:33
+
+初华代替初音进sumimi，mana真不一定能察觉，真要这么写就有点搞笑了
+
+*****
+
+####  adretyu67.  
+##### 36496#       发表于 2025-3-13 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648598&amp;ptid=2208921" target="_blank">bird-lay 发表于 2025-3-13 23:32</a>
+
+一个女性掌权找赘婿的家族几个女的都早早就死了</blockquote>
+还有旁系的。就是现在掌家的这一支是一子独传。
+
+*****
+
+####  sauron.j  
+##### 36497#       发表于 2025-3-13 23:34
+
+从柿本的访谈看，感觉霓虹人写剧本爱刻板钻牛角尖的锅也很大。在写大纲时常常过分关注“会发生什么”而不是“将会表达什么”，执意将剧情引导向某个物理性结果，结果就是人物工具化
+
+和那些翻车原创一样，给我看出一种文艺界昭核大本营战报的美
+
+*****
+
+####  plok201  
+##### 36498#       发表于 2025-3-13 23:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果是什么八点档剧，祥子没苦硬吃的时候，乱混整了个渣男回来还把肚子搞大了就好笑了
+
+大祥老师她知道自己家族以女为尊么
+
+
+*****
+
+####  是谁的书画  
+##### 36499#       发表于 2025-3-13 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648535&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-13 23:29</a>
+
+我大概猜到了一点所谓的秘密是什么。
+
+如果说老登可以为了初音妈离开初华家，我是不是可以假设理解成老登和 ...</blockquote>
+丰川祥子的未来是必须寻找一个入赘的男性，剩下一个带有丰川血脉的女儿，继承丰川家的秘密。
+
+而初音这个不存在于丰川家的丰川人会在未来让丰川家的传承结束。
+
+*****
+
+####  aptx8285144  
+##### 36500#       发表于 2025-3-13 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648539&amp;ptid=2208921" target="_blank">阿卡拉兰斯 发表于 2025-3-13 23:29</a>
+
+我回去看了一下，对，回去看了一下
+
+老登必包饺子好吧，本来打算让初音和她妈在东京生活的，但是初音她妈带 ...</blockquote>
+是的，这集仔细品味老登说话的语气，并不黑，感觉和中登都是软弱的飞舞<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 36501#       发表于 2025-3-13 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648516&amp;ptid=2208921" target="_blank">kenqqex 发表于 2025-3-13 23:27</a>
+
+mggm 你还不能代表官方谁能啊？</blockquote>
+小明又出来搅浑水
+
+*****
+
+####  戏谑二次元  
+##### 36502#       发表于 2025-3-13 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648573&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-13 23:31</a>
+没有喵梦的编剧大手，母鸡卡就这么解散了，初音就这么怂怂的一路看着小祥结婚，病逝，最后终于有一天忍不 ...</blockquote>
+小祥生的肯定也是女儿<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">对女特攻
+这算啥，祖传女铜体制却必须要招赘婿，这家族遗传太可怕了。
+这么说，小祥动不动哈气，自闭，完全是不想太亲密了导致女铜们未来无法接受自己英年早逝嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  暴走的包子  
+##### 36503#       发表于 2025-3-13 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648396&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-13 23:20</a>
+其实老登没道理陷害中登的 
+
+中登要是还在丰川集团，那多少要看他脸色</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以整个家族的设定就很都合啊，放别的冻鳗里老登这样让私生女出道组乐队我还以为他是家族里说一不二的人，结果你跟我说背后还有大手？那就不怕狗仔队查到私生女让你身败名裂下台？比小孩子过家家还儿戏，设定就是想起来了就有用，想不起来了就没用
+
+—— 來自 samsung SM-F9460, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  江口夕  
+##### 36504#       发表于 2025-3-13 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648560&amp;ptid=2208921" target="_blank">Dai-Dai-Dai-Dai 发表于 2025-3-13 23:30</a>
+看不懂，初音和祥爸见过面和祥爸落魄有什么关系？</blockquote>
+祥爸想让初音有个正常的家庭想把初音身份在家族里正常化，但是初音是老登和佣人生的。老登自己也是赘婿，也就是说初音没有半点丰川血统。
+老登让想爸滚蛋就是封口，并且让有血缘的祥子尽快当正式继承人，好稳固老登位置。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  ntrntr1  
+##### 36505#       发表于 2025-3-13 23:36
+
+其实想了下，丰川集团驱逐中登的逻辑 
+
+老登一个赘婿恬不知耻生了私生女还妄图姓丰川分家产  
+
+中登也是丧偶赘婿，怕他也搞个私生子出来，赶快趁他还没来得及搞出来先开除丰川籍了 
+
+*****
+
+####  NEWROMANCER  
+##### 36506#       发表于 2025-3-13 23:36
+
+话说猎户座和夏季大三角究竟是怎么在日本的夏天夜晚同时出现的？
+
+*****
+
+####  leader01234  
+##### 36507#       发表于 2025-3-13 23:36
+
+不管设定有多变态家族戏有多狗血演出有多刻奇至少这集把一个角色情感动机写完了，那我觉得这集确实比前面不知所谓的双重人格展开强<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Bieaeml  
+##### 36508#       发表于 2025-3-13 23:37
+
+从11集整集抛设定还挺能看出”对偶“:
+
+1.初华初音双子——墨提斯/睦
+
+2.太阳一样开朗，活泼的初华/月亮一样温柔，沉默内敛的初音——墨提斯/睦
+
+*****
+
+####  聋与唬  
+##### 36509#       发表于 2025-3-13 23:37
+
+猎户座不是冬季星座吗？怎么看到的？
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  是谁的书画  
+##### 36510#       发表于 2025-3-13 23:37
+
+再假药一点：
+
+初音是这个家族诅咒的终结者，是老登10多年来准备的掀翻家族的武器，所以老登必须保持这样既暗中提供帮助，又明面不允许的状态。
+
+其实走到这一步，都在老登的大棋里<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

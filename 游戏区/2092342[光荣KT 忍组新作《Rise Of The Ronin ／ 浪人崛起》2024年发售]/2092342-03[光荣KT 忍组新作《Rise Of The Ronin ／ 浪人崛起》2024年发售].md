@@ -1407,3 +1407,13 @@ GIIdsQCbUAAO84K.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">搭档在房子里绕着柱子闪转腾挪搭配上这个视角，有点头晕了
 
+
+*****
+
+####  虚无连斩  
+##### 3545#       发表于 2025-3-13 23:35
+
+手残石火总是按不出来，不过手枪处决是真的厉害啊，一枪下去好多血
+
+第一次打搭档全靠手枪处决，最后拼血过的
+
