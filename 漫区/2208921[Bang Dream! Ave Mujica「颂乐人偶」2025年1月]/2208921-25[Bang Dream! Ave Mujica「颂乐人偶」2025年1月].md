@@ -14826,3 +14826,121 @@ mygo的口碑全部毁完，我还是忘不了看完mygo满怀期待地点开muj
 
  就感觉编剧脑子里想好了各种自己想融进去的段子，但编排台词和人物动机的时候都没想好前后对应，每个人分几集就自己发挥去了
 
+
+*****
+
+####  adretyu67.  
+##### 36832#       发表于 2025-3-14 02:16
+
+都深夜了还一个人看海，基本可以确定是独居吧。
+
+*****
+
+####  大户爱  
+##### 36833#       发表于 2025-3-14 02:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649838&amp;ptid=2208921" target="_blank">YF29 发表于 2025-3-14 02:12</a>
+主唱大人还是能靠一人论救一下，从来就没有真初华，初音和初华就是一个人，舞台剧全是小姨内心戏。
+
+证据是1 ...</blockquote>
+各种叙诡，编剧骗观众的假药都要回答一个问题。
+为什么要骗，场外编剧莫名其妙骗观众一下很有意思吗？ 场内母鸡卡再多一个精神病很有意思吗？
+
+本质还是挽尊骗自己。
+
+*****
+
+####  老贝  
+##### 36834#       发表于 2025-3-14 02:18
+
+Mujica动画给人感觉很看重的一点就是对她人的情感错位。
+
+连面都没见过，只是听妹妹和对方玩就喜欢上并且嫉妒起妹妹，这感觉已经是有点爱上理想化的自我，水仙的那种感觉了。
+
+*****
+
+####  联想会  
+##### 36835#       发表于 2025-3-14 02:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649842&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-14 02:12</a>
+重点：明明去了南方神秘小岛
+
+但是没有泳装回</blockquote>
+第十一集泳装福利回，第十二集泳装live百合婚，自有豚豚和肉体厨为鸡汴京<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  影伴光生  
+##### 36836#       发表于 2025-3-14 02:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649844&amp;ptid=2208921" target="_blank">路人庚 发表于 2025-3-14 02:12</a>
+最后为啥要安排初音又溜回小岛的戏码，岛上的亲妈和妹妹看到这位养父葬礼直接开润的养女会有什么好脸色吗（ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">亲爹让回去，但是没指定到底回哪里去，感觉就有点自顾自地跑路了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ntrntr1  
+##### 36837#       发表于 2025-3-14 02:22
+
+还有个细节，大喵带着初音去找祥子的时候，丰川家开门的监控明显是看到初音的脸才给开门的
+
+但理论上这大宅应该0人知道这个私生女。。。
+
+
+*****
+
+####  adretyu67.  
+##### 36838#       发表于 2025-3-14 02:23
+
+ 本帖最后由 adretyu67. 于 2025-3-14 02:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649866&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-14 02:22</a>
+
+还有个细节，大喵带着初音去找祥子的时候，丰川家开门的监控明显是看到初音的脸才给开门的
+
+但理论上这大宅 ...</blockquote>
+老仆人应该知道老登出轨的事。不过可能没见过本人，但是见过三角妈。
+
+看到长得和三角妈很像的初华本人就知道了。
+
+*****
+
+####  木板春香  
+##### 36839#       发表于 2025-3-14 02:23
+
+总不能管家以及相关的人都认识初音小姐，大家都在陪着演戏假装不认识初音吧？
+
+*****
+
+####  akiomn  
+##### 36840#       发表于 2025-3-14 02:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好幽默的演出，膜海猫魔怔了，可惜这帮人因为对角色没有爱，不存在黄金乡结局
+真是幽默烂片啊
+
+
+*****
+
+####  大户爱  
+##### 36841#       发表于 2025-3-14 02:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649866&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-14 02:22</a>
+还有个细节，大喵带着初音去找祥子的时候，丰川家开门的监控明显是看到初音的脸才给开门的
+
+但理论上这大宅 ...</blockquote>
+大宅子的老仆知道点大家族里的隐秘很正常。
+
+而且初音妈本来就是丰川家的佣人，nga有人说，初妈生了两个异父的女儿还长得一摸一样，说明她本人长的就是1000%的金毛初华～
+
+*****
+
+####  adretyu67.  
+##### 36842#       发表于 2025-3-14 02:25
+
+10话开头甜甜圈上断头台说早知道当初听母亲的话。
+
+结果就是为了回旋镖这话初音不听妈的话导致了这些吧。
+
