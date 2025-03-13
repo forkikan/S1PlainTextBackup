@@ -1690,3 +1690,110 @@ AveMujica高能回，柿猛干献给初步举证的情书
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  それは奇跡です  
+##### 181#       发表于 2025-3-13 23:38
+
++2
+
+就凭这集给我的情绪价值（指看乐子，不是指这集好），我愿意给它+2<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 182#       发表于 2025-3-13 23:39
+
++2，还有两个礼拜，这今后周四的乐子谁给我补啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  郁田はるき  
+##### 183#       发表于 2025-3-13 23:39
+
+和闪耀色彩动画和解了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 猫兔同笼| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  moras2694  
+##### 184#       发表于 2025-3-13 23:41
+
+采用全程舞台剧的演出方式吗，虽然可以理解，毕竟又不想建模也没有2d作画支撑，但我个人真不喜欢，还是更想看动画。
+剧情。。初华以及祥爷祥父这条线吧，虽然狗血，但确实逻辑是理得顺的，但是代价呢？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 
+性压抑、私生女、双子、小姨、丰川家的黑暗，这是要干嘛啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，剧透全对吧。作为少女乐队动画，你的“少女”和“乐队”如何呢？祥子这集照样是个猜谜角色，上集的那些表情接这集的行为，到底心里在想啥？睦现在什么情况？海玲真就彻底搞笑角色了，bpart打电话说的都是什么台词啊，继喵梦演技魔怔人后，又来个信任魔怔人了，经典复读台词，笑死我了。初祥这对cp是讲的最明白的，但我觉得没啥意思。后面还要斗财阀吧，很难评。-2
+
+*****
+
+####  红鲤鱼与黑化肥  
+##### 185#       发表于 2025-3-13 23:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">如果这不是邦我还挺吃初华初音这种设定的
+
+*****
+
+####  kuhailz  
+##### 186#       发表于 2025-3-13 23:42
+
+终于解释了为什么初华爱祥子，但没有什么说服力，两个字就是矫情
+
+*****
+
+####  leleq  
+##### 187#       发表于 2025-3-13 23:42
+
+这独角戏的演出太tm掉了是谁给十本的勇气？<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+这种演出新房几原来了都只敢演3分钟还要加大量其他演出和音乐，你哪怕插点歌呢你不是tm的乐队动画吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  dengwl  
+##### 188#       发表于 2025-3-13 23:43
+
+海猫的拙劣模仿
+
+*****
+
+####  伊贺栖寅  
+##### 189#       发表于 2025-3-13 23:43
+
+-2，太变态了。
+
+*****
+
+####  shinoverse  
+##### 190#       发表于 2025-3-13 23:44
+
+闹斯特麻麻
+
+
+*****
+
+####  diectt  
+##### 191#       发表于 2025-3-13 23:45
+
+不行，海铃一出声我就笑了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tokimon  
+##### 192#       发表于 2025-3-13 23:45
+
+-2 孩子们，舅舅说的都是真的
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

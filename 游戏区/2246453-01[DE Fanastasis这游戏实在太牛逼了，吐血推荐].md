@@ -4133,3 +4133,14 @@ https://bgm.tv/subject/topic/33083
 
 通关啦，太爽了，十分独特的体验<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cym887  
+##### 367#       发表于 2025-3-13 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67637602&amp;ptid=2246453" target="_blank">莫名奇妙封ID 发表于 2025-3-12 18:18</a>
+
+顶着卡顿玩了 20 多个小时，才发现是字体的原因导致的…安装好字体就不再卡了，让自己眼睛辛苦了这么长时间 ...</blockquote>
+什么字体？ 我装群里那个萝莉体 也是玩着玩着就卡了
+

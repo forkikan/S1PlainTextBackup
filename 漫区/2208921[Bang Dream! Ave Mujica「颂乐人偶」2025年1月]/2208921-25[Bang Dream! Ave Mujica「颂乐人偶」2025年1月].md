@@ -11159,3 +11159,264 @@ mggm 你还不能代表官方谁能啊？</blockquote>
 
 其实走到这一步，都在老登的大棋里<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  千千千千鸟  
+##### 36511#       发表于 2025-3-13 23:38
+
+中登应该等祥子死了把木头操了才符合这个动画片的逻辑<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+看到群友这句话的瞬间爆笑，剩下两集就该拍这个
+
+*****
+
+####  qratosones1337  
+##### 36512#       发表于 2025-3-13 23:38
+
+等会，又是瑞士又是迈巴赫的，别到最后丰川家其实是朝总联的白手套吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  thisisaspider  
+##### 36513#       发表于 2025-3-13 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648637&amp;ptid=2208921" target="_blank">暴走的包子 发表于 2025-3-13 23:35</a>
+
+所以整个家族的设定就很都合啊，放别的冻鳗里老登这样让私生女出道组乐队我还以为他是家族里说一不二的人 ...</blockquote>
+按设定来看，连国民级大明星和当红偶像都在他们集团里，有没有可能确实能一手遮天。不如亡于家族内斗。
+
+*****
+
+####  08df1258c5ed098  
+##### 36514#       发表于 2025-3-13 23:39
+
+不是，老登是赘婿这一块还有逻辑吗？
+
+祥子当祥妈的女儿不比当老登的女儿更有继承权吗？
+
+这可是第一集亲口说的设定，怎么还能自己打自己脸的
+
+*****
+
+####  ads147147  
+##### 36515#       发表于 2025-3-13 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648641&amp;ptid=2208921" target="_blank">NEWROMANCER 发表于 2025-3-13 23:36</a>
+话说猎户座和夏季大三角究竟是怎么在日本的夏天夜晚同时出现的？</blockquote>
+靠近赤道附近的小岛确实有可能在夏季看到猎户座。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ads147147  
+##### 36516#       发表于 2025-3-13 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648672&amp;ptid=2208921" target="_blank">08df1258c5ed098 发表于 2025-3-13 23:39</a>
+不是，老登是赘婿这一块还有逻辑吗？
+
+祥子当祥妈的女儿不比当老登的女儿更有继承权吗？
+
+这可是第一集亲口说 ...</blockquote>
+其实是老登要靠祥子的血脉巩固自己的地位吧。
+
+干，这狗吧设计讨论他做什么，十本说啥就是啥呗。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zhoujin8584  
+##### 36517#       发表于 2025-3-13 23:41
+
+<blockquote>bird-lay 发表于 2025-3-13 23:32
+一个女性掌权找赘婿的家族几个女的都早早就死了</blockquote>
+所以说虽然初音劣完了，但是这一代能女女生女真是神明大人赐下的礼物了。女主人招赘折寿的噩运轮回该打破了，放晋江这种背景真得有家族秘幸。起码写10万字弑父上位的剧情
+
+*****
+
+####  有钱多买小人  
+##### 36518#       发表于 2025-3-13 23:41
+
+海玲的信任要跑掉啦<img src="https://p.sda1.dev/22/41617df4107f41f3ebf95b6ab895ca84/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  huxiaopao163  
+##### 36519#       发表于 2025-3-13 23:41
+
+ 本帖最后由 huxiaopao163 于 2025-3-13 23:43 编辑 
+
+真要按海猫来的话，初音初华是一个人，很多事只是她自我安慰的脑补，正好初华人都没出现。下集祥子登岛发现真相？
+
+虽然感觉都到这个时候已经没啥意义了，随便吧。
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  是谁的书画  
+##### 36520#       发表于 2025-3-13 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648633&amp;ptid=2208921" target="_blank">戏谑二次元 发表于 2025-3-13 23:35</a>
+
+小祥生的肯定也是女儿对女特攻
+
+这算啥，祖传女铜体制却必须要招赘婿，这家族遗传太可怕了。
+
+这么说，小祥 ...</blockquote>
+错误的，必须要解除女铜才可以保证祥子不会英年早逝，越早生下孩子越早会完蛋。
+
+所以丰川家的血脉诅咒再潜意识里阻止祥子变成同<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  adretyu67.  
+##### 36521#       发表于 2025-3-13 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648685&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-3-13 23:40</a>
+
+其实是老登要靠祥子的血脉巩固自己的地位吧。
+
+干，这狗吧设计讨论他做什么，十本说啥就是啥呗。</blockquote>
+然后老登就整了把自己手上最大的棋丢在外面一年的活。
+
+我已经不知道这该怎么圆了
+
+*****
+
+####  zhoujin8584  
+##### 36522#       发表于 2025-3-13 23:42
+
+创业者是赘婿这一块是不是可以代某为啊，祥子介于孟姚之间？
+
+*****
+
+####  Delicatus545  
+##### 36523#       发表于 2025-3-13 23:43
+
+女系短命估计是染色体方面的疾病吧
+
+*****
+
+####  ntrntr1  
+##### 36524#       发表于 2025-3-13 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648660&amp;ptid=2208921" target="_blank">千千千千鸟 发表于 2025-3-13 23:38</a>
+
+中登应该等祥子死了把木头操了才符合这个动画片的逻辑
+
+看到群友这句话的瞬间爆笑，剩下两集就该拍这个 ...</blockquote>
+其实SOYO上门那天中登就酒喝多了。。。
+
+后面SOYO怀孕，SOYO妈震怒开始反抗丰川家    
+
+喵梦作为网红开密谈直播打响丰川大手第一炮
+
+没想到自己心心念念的小睦待在祥子身边的原因竟然是缺乏父爱的她从小仰慕祥子的父亲。。。
+
+*****
+
+####  adretyu67.  
+##### 36525#       发表于 2025-3-13 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648704&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-3-13 23:41</a>
+
+真要按海猫来说的话，初音初华是一个人，只是她的脑补，正好人都没出现。下集祥子登岛发现真相？
+
+虽然感觉 ...</blockquote>
+这话有个很神奇的点。
+
+初华把自己和祥子玩的细节都说给了初音听。
+
+也就是说，最早以为的双子误差初华抓的独角仙，初音抓的蜘蛛是不对的。
+
+都是真初华抓的。
+
+
+*****
+
+####  清江望月  
+##### 36526#       发表于 2025-3-13 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648648&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-13 23:37</a>
+
+再假药一点：
+
+初音是这个家族诅咒的终结者，是老登10多年来准备的掀翻家族的武器，所以老登必须保持这样既 ...</blockquote>
+正经私生子都不好进家族，赘婿私生子更是不管在哪个位面也没有进族谱的理由啊，初音说白了和丰川家族就没关系。
+
+*****
+
+####  真爱与热情  
+##### 36527#       发表于 2025-3-13 23:44
+
+一个二刺螈乐队偶像动画，讲那么多跟乐队无关的东西干嘛，这集的身世介绍能起到mygo ep9那样的效果吗。
+
+同样的身世介绍，mygo ep9介绍素食从小缺乏家庭温暖，所以把对家庭的渴望寄托在哭团身上，解释了素食对哭团5人组的执着
+
+这集讲初音的身世，除了让观众觉得她确实变态的情有可原之外，跟mujica可有一毛钱的关系不成
+
+*****
+
+####  今城果天  
+##### 36528#       发表于 2025-3-13 23:46
+
+我现在看初……音这演出服下摆简直看成狗尾
+这也是早有伏笔吗（）
+
+*****
+
+####  ntrntr1  
+##### 36529#       发表于 2025-3-13 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648735&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-13 23:44</a>
+
+这话有个很神奇的点。
+
+初华把自己和祥子玩的细节都说给了初音听。</blockquote>
+擅长抓虫，暗示了初音以后会成为程序员
+
+靠科技的力量掀翻丰川家的统治
+
+*****
+
+####  紫瞳零女推广员  
+##### 36530#       发表于 2025-3-13 23:47
+
+应该是这样的吧，就初音来了报了个老登名字就平步青云了，然后和中登一说就泄密了，然后好多人就都以老登私生子的名字来蹭，一下子就赔了168亿，所以中登要背锅
+
+*****
+
+####  油画布  
+##### 36531#       发表于 2025-3-13 23:47
+
+<blockquote>真爱与热情 发表于 2025-3-13 23:44
+一个二刺螈乐队偶像动画，讲那么多跟乐队无关的东西干嘛，这集的身世介绍能起到mygo ep9那样的效果吗。
+
+同 ...</blockquote>
+可能下集就是 你是变态没关系，mujica就是一群变态的归宿，然后包一锅黑暗饺
+
+*****
+
+####  plok201  
+##### 36532#       发表于 2025-3-13 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648741&amp;ptid=2208921" target="_blank">真爱与热情 发表于 2025-3-13 23:44</a>
+
+一个二刺螈乐队偶像动画，讲那么多跟乐队无关的东西干嘛，这集的身世介绍能起到mygo ep9那样的效果吗。
+
+同 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这个团只有神人能进来，这集初音全力证明了自己，让人不得不祝福她们5个人永远绑在一起，现在没人质疑为啥你是主唱了
+
+*****
+
+####  Yugao  
+##### 36533#       发表于 2025-3-13 23:48
+
+这部剧叫《Ave Mujica》所以我觉得Sumimi Crychic MyGo可以合并 名字我都想好了 就叫CSGO
+
