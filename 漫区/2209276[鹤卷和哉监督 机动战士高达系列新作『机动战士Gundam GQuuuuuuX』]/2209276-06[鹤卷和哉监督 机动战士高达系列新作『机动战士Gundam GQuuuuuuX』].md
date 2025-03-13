@@ -13032,3 +13032,33 @@ G跨时蛮好的，干嘛加个之战
 分割放送那鹤卷之前说的“在赶最后一集的演出”是指 part 1 还是 part 2</blockquote>
 真分割的话应该是part2吧，如果还在赶part1最终话，那part2不知道猴年马月才端上来哦
 
+
+*****
+
+####  嘉峪君  
+##### 8462#       发表于 2025-3-13 15:15
+
+内地能不能清明节极限定档
+
+*****
+
+####  纪寞  
+##### 8463#       发表于 2025-3-13 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67643666&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-3-13 14:30</a>
+
+真分割的话应该是part2吧，如果还在赶part1最终话，那part2不知道猴年马月才端上来哦 ...</blockquote>
+但是鹤卷是同时说在赶op分镜和最终话，感觉是在说同一季的事<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+说到底有part1就在全话制作，结果part2就边做边播的先例吗？
+
+另外其实现在op感觉就已经是事件结束后，众人回顾的意向了，还带点分别的意思
+
+
+*****
+
+####  古怪山庄士大夫  
+##### 8464#       发表于 2025-3-13 15:20
+
+别想了，卡哈基本养老，先保底季番吧
+
