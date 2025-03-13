@@ -208,3 +208,33 @@ and拼图版
 手游周年倒计时
 <img src="https://p.sda1.dev/22/60e10418ddd438daf922aa376c75fd69/Image_102887077215593.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CyDiablo  
+##### 27053#       发表于 2025-3-13 21:45
+
+周年八团混活
+<img src="https://p.sda1.dev/22/f3a82b4dde5c1313f7851a534cb12e5d/1741872786182.jpg" referrerpolicy="no-referrer">
+
+卡池（花后）
+FES
+<img src="https://p.sda1.dev/22/70c95521b6e0cf5343d691d19586bac9/1741872789970.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/7920830ce3178f30d7157251eaff752a/1741872792779.jpg" referrerpolicy="no-referrer">
+
+五⭐
+<img src="https://p.sda1.dev/22/c6a854ba687c90efcd2fff3938063d9a/1741872814327.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/73c6092548a6d7b010b4f808a2c178b2/1741872817232.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/2334fee00496505e7c2fb16559a45363/1741872819985.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/45b2aaf07cbaca85e5721049089e98b7/1741872825831.jpg" referrerpolicy="no-referrer">
+
+四⭐
+<img src="https://p.sda1.dev/22/8d67a9278673ca5abb1117c3fdfab1e7/1741872810611.jpg" referrerpolicy="no-referrer">
+
+活动赠送三⭐
+<img src="https://p.sda1.dev/22/29e024d4bfa376ac9f71097bee33a409/IMG_20250313_213612.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/3cce750d090420c5ef65908915bb0f22/IMG_20250313_213622.jpg" referrerpolicy="no-referrer">
+
+周年直播
+<img src="https://p.sda1.dev/22/4eca17c7069bc5c655d9886f8242b653/Image_160262436858166.png" referrerpolicy="no-referrer">
+
