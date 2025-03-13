@@ -12778,3 +12778,362 @@ sumimi主唱不是初华，是mana</blockquote>
 正统的丰川继承人，卑微私生女梦 ...</blockquote>
 不用分得这么清楚<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ntrntr1  
+##### 36653#       发表于 2025-3-14 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649254&amp;ptid=2208921" target="_blank">蜜瓜包 发表于 2025-3-14 00:35</a>
+
+假设存在一个凌驾于老登之上的丰川家族元老会，会让老登这样一个赘婿迫害大祥老师么 ...</blockquote>
+国家队，国家队.jpg
+
+*****
+
+####  adretyu67.  
+##### 36654#       发表于 2025-3-14 00:36
+
+这种情况老登是元老会的一员，可能是丰川家几个分支里最强的一支所以是当主，但是如果其他家联合起来造老登的反老登也吃不消。
+
+祥子就是老登地位的后盾，初音就是反老登的旗子。
+
+*****
+
+####  6030sylar  
+##### 36655#       发表于 2025-3-14 00:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649244&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-3-14 00:34</a>
+
+初音这么写其实动机蛮丰满的，本质上来说她爱的不是祥子，而是丰川祥子。
+
+正统的丰川继承人，卑微私生女梦 ...</blockquote>
+要是八点档，初华就是爱的是丰川祥子这个位置，死都想要成为丰川祥子的女反派了
+
+*****
+
+####  江口夕  
+##### 36656#       发表于 2025-3-14 00:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649199&amp;ptid=2208921" target="_blank">真爱与热情 发表于 2025-3-14 00:30</a>
+这是啥意思，祥爷推一把想搞成mujica跟家族斗争有啥关系。搞成mujica能给他积攒什么资本吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以这么猜，作为同辈的继承人，为了证明祥子是孩子辈里水平最高的
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  g救世主高达  
+##### 36657#       发表于 2025-3-14 00:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649257&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-3-14 00:35</a>
+
+没说只生一个啊，老登还要被家族会议掣肘。
+
+说明丰川家分家还是不少的，主家这几年人丁凋零而已。 ...</blockquote>
+说的就是主家阿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猫执事  
+##### 36658#       发表于 2025-3-14 00:38
+
+这剧情要是把最后两集交给以前的大河内来写，怕不是初音最后跟老登同归于尽，把名字和梦想还给妹妹。
+
+*****
+
+####  ntrntr1  
+##### 36659#       发表于 2025-3-14 00:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649273&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-3-14 00:37</a>
+
+要是八点档，初华就是爱的是丰川祥子这个位置，死都想要成为丰川祥子的女反派了 ...</blockquote>
+所以三角妈因为倾慕丰川大小姐转而和丰川大小姐老公睡觉的理由是她本来倾慕的就是大小姐位置、
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">哎呀，这就是遗传
+
+*****
+
+####  thisisaspider  
+##### 36660#       发表于 2025-3-14 00:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649283&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-3-14 00:37</a>
+
+可以这么猜，作为同辈的继承人，为了证明祥子是孩子辈里水平最高的
+
+—— 来自 Xiaomi 23113RKC6C, Andro ...</blockquote>
+是要写几季？什么狂赌之祥子<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  huxiaopao163  
+##### 36661#       发表于 2025-3-14 00:39
+
+这故事还有一个戏份很多的反派是谁，对就是睦妈，肯定她是丰川家的分家，准备篡权<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+哦，好像她也只生了一个女儿，那没事了
+
+*****
+
+####  g救世主高达  
+##### 36662#       发表于 2025-3-14 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649287&amp;ptid=2208921" target="_blank">猫执事 发表于 2025-3-14 00:38</a>
+
+这剧情要是把最后两集交给以前的大河内来写，怕不是初音最后跟老登同归于尽，把名字和梦想还给妹妹。 ...</blockquote>
+老登顶多就是和初音妈管不住裤裆，犯不着刀人吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，养父对这个姐妹也挺好的没让他们少一点爱阿
+
+*****
+
+####  真爱与热情  
+##### 36663#       发表于 2025-3-14 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649244&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-3-14 00:34</a>
+
+初音这么写其实动机蛮丰满的，本质上来说她爱的不是祥子，而是丰川祥子。
+
+正统的丰川继承人，卑微私生女梦 ...</blockquote>
+她的动机其实更像是逆反，嫉妒那个可以不受限制自由生活的半身
+
+对大祥的无下限跪舔是被压抑过去的偿还
+
+所以她是真的不懂大祥啊
+
+*****
+
+####  是谁的书画  
+##### 36664#       发表于 2025-3-14 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649199&amp;ptid=2208921" target="_blank">真爱与热情 发表于 2025-3-14 00:30</a>
+
+这是啥意思，祥爷推一把想搞成mujica跟家族斗争有啥关系。搞成mujica能给他积攒什么资本吗 ...</blockquote>
+我的想法根本就不是老登为了保证自己的地位而去做这种事，而是恰恰相反的想要摧毁丰川家。
+
+这也是为什么老登会和中登说“你不了解丰川家的黑暗”。
+
+试问，如果你甘愿牵扯沦落其中，你会称之其为黑暗吗？
+
+*****
+
+####  ntrntr1  
+##### 36665#       发表于 2025-3-14 00:39
+
+我们海猫除了黄金，还有炸药呢
+
+支持最后一集突然甩出168吨炸药直接把丰川元老全引小岛开会一堆老登全炸了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刑部姬真可爱  
+##### 36666#       发表于 2025-3-14 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649244&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-3-14 00:34</a>
+
+初音这么写其实动机蛮丰满的，本质上来说她爱的不是祥子，而是丰川祥子。
+
+正统的丰川继承人，卑微私生女梦 ...</blockquote>
+半身，沉默了（此时应有罐头笑声<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
+*****
+
+####  油画布  
+##### 36667#       发表于 2025-3-14 00:40
+
+ 本帖最后由 油画布 于 2025-3-14 00:41 编辑 
+<blockquote>大户爱 发表于 2025-3-14 00:34
+初音这么写其实动机蛮丰满的，本质上来说她爱的不是祥子，而是丰川祥子。
+
+正统的丰川继承人，卑微私生女梦 ...</blockquote>
+
+但真正爱上的还是一起看星星的祥子吧？不过我也觉得她的爱没那么纯粹，混杂着自卑 愧疚 盲目 ，这种爱反而让两人无法互相理解
+
+*****
+
+####  真爱与热情  
+##### 36668#       发表于 2025-3-14 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649309&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-14 00:39</a>
+
+我的想法根本就不是老登为了保证自己的地位而去做这种事，而是恰恰相反的想要摧毁丰川家。
+
+这也是为什么 ...</blockquote>
+对啊，搞成mujica能对祥爷摧毁邪恶的丰川家积攒什么资本吗
+
+*****
+
+####  xyion  
+##### 36669#       发表于 2025-3-14 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649111&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-14 00:22</a>
+
+逻辑稀碎没错。
+
+但是把祥子送到瑞士意思就是保护她肯定没错。</blockquote>
+家族大战还是太假了，下一话祥子要去追初华，岂不祥爷的安排都打水漂，这是不提然后直接告诉你打赢吗
+
+*****
+
+####  江口夕  
+##### 36670#       发表于 2025-3-14 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649286&amp;ptid=2208921" target="_blank">g救世主高达 发表于 2025-3-14 00:38</a>
+说的就是主家阿，打个比方就是织田信长一脉代代只生一个，然后独生子没了，让织田信胜吃了桃子当继承人， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">生之前有血脉的已经挂了，再生也生不出丰川血了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  adretyu67.  
+##### 36671#       发表于 2025-3-14 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649244&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-3-14 00:34</a>
+
+初音这么写其实动机蛮丰满的，本质上来说她爱的不是祥子，而是丰川祥子。
+
+正统的丰川继承人，卑微私生女梦 ...</blockquote>
+初音是为了让自己从负罪和自卑中解脱出来选择爱祥子。
+
+*****
+
+####  zhoujin8584  
+##### 36672#       发表于 2025-3-14 00:41
+
+<blockquote>大户爱 发表于 2025-3-14 00:34
+初音这么写其实动机蛮丰满的，本质上来说她爱的不是祥子，而是丰川祥子。
+
+正统的丰川继承人，卑微私生女梦 ...</blockquote>
+加上吉他睦，是真的为祥子的幸福着想，可惜soyo当年夺舍大计都不成功，自己现在屏蔽黑泥强行招魂也坚持不下去了。也不能无视这么多人被mujica毁掉的人生，融合完看乐子。
+
+不过初祥这条线我认为还是会扣上“虚伪的土壤结出真实的情感之果”这个主题的
+
+
+*****
+
+####  ntrntr1  
+##### 36673#       发表于 2025-3-14 00:42
+
+ 本帖最后由 ntrntr1 于 2025-3-14 00:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649326&amp;ptid=2208921" target="_blank">真爱与热情 发表于 2025-3-14 00:41</a>
+
+对啊，搞成mujica能对祥爷摧毁邪恶的丰川家积攒什么资本吗</blockquote>
+MUJICA开重金属演唱会震塌小岛承重导致来开家族会议的老登们集体死光<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+为什么要唐突祥子给睦补课呢，其实是为了埋下祥子是大学霸的伏笔，提前自学了大量数学物理的祥子，通过作曲和调整各种乐器的频率，引发了小岛共震，最后成功击杀了丰川家所有老登
+
+*****
+
+####  哈曼的YY  
+##### 36674#       发表于 2025-3-14 00:42
+
+这怎么又独角兽私货了
+
+赶紧润出这种家族去女女生女可保长命
+
+*****
+
+####  北条早苗  
+##### 36675#       发表于 2025-3-14 00:42
+
+垃圾豪门家庭戏剧本再加上搞实验性演出，确实无法理解制作组的脑回路<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蜜瓜包  
+##### 36676#       发表于 2025-3-14 00:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649327&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-3-14 00:41</a>
+
+生之前有血脉的已经挂了，再生也生不出丰川血了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 S1Next- ...</blockquote>
+你看，这不是还有大祥老师和她妈么。。。。。。。。。。。。。。
+
+*****
+
+####  是谁的书画  
+##### 36677#       发表于 2025-3-14 00:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649326&amp;ptid=2208921" target="_blank">真爱与热情 发表于 2025-3-14 00:41</a>
+
+对啊，搞成mujica能对祥爷摧毁邪恶的丰川家积攒什么资本吗</blockquote>
+你都怎么说了，说明你现在已经不在意这是不是一个“少女<strong>乐队</strong>动画”了，搞成mujica在别的频道可能不算什么，但是在这个动画里就不好说了
+
+*****
+
+####  猫执事  
+##### 36678#       发表于 2025-3-14 00:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649304&amp;ptid=2208921" target="_blank">g救世主高达 发表于 2025-3-14 00:39</a>
+
+老登顶多就是和初音妈管不住裤裆，犯不着刀人吧，养父对这个姐妹也挺好的没让他们少一点爱阿 ...</blockquote>
+结合我前面的假药，老登是为了挟祥子以令诸侯。这足以驱动初音了吧
+
+回到原本的剧情（还有必要么），初华的台词差不多就是那种“我不应该被生下来”的套路，加上前面漏油说的被害妄想。容易走向自我毁灭的结局。
+
+*****
+
+####  蜜瓜包  
+##### 36679#       发表于 2025-3-14 00:44
+
+还有啊，这一集海玲打电话真是越看越小丑，不如说mujica现在全员都是小丑，真是烂完了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  g救世主高达  
+##### 36680#       发表于 2025-3-14 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649327&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-3-14 00:41</a>
+
+生之前有血脉的已经挂了，再生也生不出丰川血了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 S1Next- ...</blockquote>
+问题来了，为什么老登不吸取教训，让祥子妈和啤酒仙人丰川家发多生几个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，也不至于出不起养胎费和多生子女抚养费吧
+
+
+*****
+
+####  adretyu67.  
+##### 36681#       发表于 2025-3-14 00:44
+
+老登挟祥子以令诸侯其实第一话就能想得到。
+
+不然没必要表明说当女儿。
+
+但是没想到是打得是大手，而不是剧中出现的某个角色。
+
+*****
+
+####  大户爱  
+##### 36682#       发表于 2025-3-14 00:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649286&amp;ptid=2208921" target="_blank">g救世主高达 发表于 2025-3-14 00:38</a>
+说的就是主家阿，打个比方就是织田信长一脉代代只生一个，然后独生子没了，让织田信胜吃了桃子当继承人， ...</blockquote>
+正常啊，你真看日本战国史，就会发现。
+像织田家这么能生的绝对不算多数。 
+德川家主家绝嗣换代多少次了，到幕末御三家都不够用了。
+
+像上衫什么的绝嗣，塞了一堆德川继承家门的更是数不胜数。
+
+这还是一夫多妻的情况下。人丁单薄太正常了。
+
+*****
+
+####  烂片雷达  
+##### 36683#       发表于 2025-3-14 00:45
+
+我不禁怀疑丰川家女性的死亡是什么形式的死亡
+
+丰川家血脉的女性从生下来体内就存在着另一个意志，到了一定年龄这个意志就会完全苏醒取原人格而代之，这时会为原人格举行一个葬礼，身体和体内的意志将会隐入黑暗操控丰川家的一切，这就是所谓的丰川家的黑暗面
+
+这个意志即是祝福也是诅咒，它保证了丰川家永远的繁荣兴胜，也诅咒着丰川家的女性令她们世世代代只能生出女性作为这个意志的容器
+
+*****
+
+####  江口夕  
+##### 36684#       发表于 2025-3-14 00:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可惜不能更狗血一点，应该让素世爸也姓三角。这样就变成传奇三姐妹了
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

@@ -1444,3 +1444,15 @@ GIIdsQCbUAAO84K.jpg
 这游戏似乎设计初衷是让玩家一边玩着它一边玩手机，打开地图选个点设置自动前进，然后拿起手机刷刷微博贴吧 ...</blockquote>
 AC神话三部曲的路子，太像了
 
+
+*****
+
+####  液体显微隧道  
+##### 3549#       发表于 2025-3-14 00:43
+
+ 本帖最后由 液体显微隧道 于 2025-3-14 00:45 编辑 
+
+清据点倒是挺好玩的，一到打人形boss只剩麻木和窝火，没有任何正面情绪<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
