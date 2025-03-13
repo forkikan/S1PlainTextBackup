@@ -6920,3 +6920,104 @@ ptsd这不是还没治好吗，没治好的时候确实也没法演戏，所以�
 
 <img src="https://s2.loli.net/2025/03/13/orPN5fZEsAH8lUa.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  秋月孝三  
+##### 36086#       发表于 2025-3-13 22:00
+
+ 本帖最后由 秋月孝三 于 2025-3-13 22:02 编辑 
+
+开头直接op还行
+好像有新cut
+然后无缝连接cm是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  kenqqex  
+##### 36087#       发表于 2025-3-13 22:00
+
+op!<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 36088#       发表于 2025-3-13 22:02
+
+小姨了          
+
+*****
+
+####  cxj649  
+##### 36089#       发表于 2025-3-13 22:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥爸洗白了，初音的锅
+
+
+*****
+
+####  ghostdio  
+##### 36090#       发表于 2025-3-13 22:04
+
+这演出确实让我想起了海猫ep7 不过没有威尔
+
+*****
+
+####  有钱多买小人  
+##### 36091#       发表于 2025-3-13 22:05
+
+真是双子小姨啊
+
+*****
+
+####  木板春香  
+##### 36092#       发表于 2025-3-13 22:05
+
+哎 看的我土拨鼠尖叫
+
+*****
+
+####  凉良  
+##### 36093#       发表于 2025-3-13 22:05
+
+这什么叫只有我不是家人？ 没看懂初音在纠结什么
+
+*****
+
+####  aptx8285144  
+##### 36094#       发表于 2025-3-13 22:05
+
+草，真的还有一个叫初华的妹妹，她妹妹完全不看新闻的吗，自己的名字被用有何感想<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  半年  
+##### 36095#       发表于 2025-3-13 22:05
+
+令人窒息！！
+
+*****
+
+####  影伴光生  
+##### 36096#       发表于 2025-3-13 22:06
+
+所以真想断绝关系，直接搬到其他岛上不就可以了。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 36097#       发表于 2025-3-13 22:08
+
+这种讲述方式，看似是戏剧，但怎么感觉像是省钱<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 36098#       发表于 2025-3-13 22:08
+
+別再BB旁白， 快點開扣
+
