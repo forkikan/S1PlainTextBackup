@@ -13415,3 +13415,178 @@ SD剧场版给宫城哥哥的设定也是出海钓鱼没回来，也没见他打
 
 你到底还知道多少我以为你不知道的事情啊（
 
+
+*****
+
+####  adretyu67.  
+##### 36710#       发表于 2025-3-14 00:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649459&amp;ptid=2208921" target="_blank">久井路路 发表于 2025-3-14 00:55</a>
+
+说起来，我就当初音是看新闻知道祥爹落魄了的
+
+那她是怎么知道小祥和爹住的地方很破、以及小祥冒雨送报、还 ...</blockquote>
+这些基本就是编剧摁头了。
+
+初华应该不知道中登住在赤羽的公寓里的事
+
+*****
+
+####  g救世主高达  
+##### 36711#       发表于 2025-3-14 00:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649422&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-14 00:50</a>
+
+初华不就是渔夫的孩子吗</blockquote>
+不照样被绿了，养父这种已经可以说算龟了，再怎么温柔都不可能对被绿的孩子一视同仁吧<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  takerest  
+##### 36712#       发表于 2025-3-14 00:58
+
+<blockquote>aptx8285144 发表于 2025-3-13 23:20
+但是按照初华自己的说法，她妈不愿意，似乎想远离丰川家，后面就是命运舞台各凭本事了，当然了，现在命运 ...</blockquote>
+纯角色和监督一起犯➗了，11集开头想接回去，结尾又在撇清关系，纯自己打自己脸
+
+*****
+
+####  thisisaspider  
+##### 36713#       发表于 2025-3-14 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649436&amp;ptid=2208921" target="_blank">g救世主高达 发表于 2025-3-14 00:52</a>
+
+照样杰尼龟阿，老婆和有钱人绿了自己连个屁都不敢放，还帮着养女儿，说实话这种设定真有点恶心人了 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202503/14/005743grvxii0xzjic7huc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (95.31 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 00:57 上传
+
+在意一个连脸都没出现过的角色情感关系没有什么意义。但这里实际上没有绿。
+
+*****
+
+####  蜜瓜包  
+##### 36714#       发表于 2025-3-14 00:59
+
+养父是在初音出生之后再和初音妈结婚的啊，你可以说他接盘侠，但是应该算不上绿吧，其实就单纯的找个带娃的女的结婚不是很正常。
+
+*****
+
+####  大户爱  
+##### 36715#       发表于 2025-3-14 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649456&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-14 00:54</a>
+她如果不是真心喜欢祥子就不会去约祥子看星星了吧。
+
+也不会被祥子最后和初华的约定给伤害到了。这里面还 ...</blockquote>
+什么叫真心喜欢呢。
+初音可是面的都没见，听初华描述就嫉妒得发狂了。
+
+说喜欢完全空穴来风也不是，但她和祥子的联系再怎么说也不过一起玩了一天一夜，而对祥子的喜欢，明显远远超乎这个程度。
+
+那这种喜欢，多少是对祥子本人的喜欢，多少是自己感情的投射不是一清二楚吗？
+
+*****
+
+####  NEWROMANCER  
+##### 36716#       发表于 2025-3-14 01:00
+
+第二集制造了两个信息差，初华以为祥子叫自己忘记一切是因为家母离世；以及初华不知道祥子为什么睡事务所，信了祥子说的为了工作方便。
+这集下来不仅没填第二个坑，反而显得第一个坑莫名其妙——初华如果连祥子搬家和打工这种事情都知道，那她为什么不知道祥子家母离世。
+
+*****
+
+####  thisisaspider  
+##### 36717#       发表于 2025-3-14 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649445&amp;ptid=2208921" target="_blank">最强惠酱 发表于 2025-3-14 00:53</a>
+
+不同爹又长得一样的双胞胎，她说真的信得过吗</blockquote>
+服了，我不想再截图了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">能不能看一遍原剧。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 36718#       发表于 2025-3-14 01:01
+
+那渔夫能和女仆生出来个几乎一摸一样的
+
+只能说渔夫和老登多少也有点关系<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  thisisaspider  
+##### 36719#       发表于 2025-3-14 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649498&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-3-14 01:00</a>
+
+什么叫真心喜欢呢。
+
+初音可是面的都没见，听初华描述就嫉妒得发狂了。</blockquote>
+啊，假如编剧一定要说一见钟情呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  影伴光生  
+##### 36720#       发表于 2025-3-14 01:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649500&amp;ptid=2208921" target="_blank">NEWROMANCER 发表于 2025-3-14 01:00</a>
+第二集制造了两个信息差，初华以为祥子叫自己忘记一切是因为家母离世；以及初华不知道祥子为什么睡事务所， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">一切以当集为准吧，这部自相矛盾的地方也不止这一处了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  黑圆桌  
+##### 36721#       发表于 2025-3-14 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649311&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-14 00:39</a>
+
+我们海猫除了黄金，还有炸药呢
+
+支持最后一集突然甩出168吨炸药直接把丰川元老全引小岛开会一堆老登全炸了 ...</blockquote>
+那如果祥子或者初音初华她们任何人还活着的话以后生活要艰难死了
+
+除非真的直接送出国改名换姓整容之类的……
+
+*****
+
+####  g救世主高达  
+##### 36722#       发表于 2025-3-14 01:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649515&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-14 01:01</a>
+
+那渔夫能和女仆生出来个几乎一摸一样的
+
+只能说渔夫和老登多少也有点关系 ...</blockquote>
+同母异父的姐妹长得一模一样，这设定也太带派了，快进到渔夫祖上和老登也有关系，合着都几把一家子阿<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xyion  
+##### 36723#       发表于 2025-3-14 01:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649430&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-3-14 00:51</a>
+
+扪心自问，如果不掺杂丰川的因素。
+
+初音现在这个共渡一天一夜就朝思暮想，不惜离家出走，丢下母亲妹妹的 ...</blockquote>
+她这个一人芝居里说祥子是舞台装置，虽然按扮演的角色，这句话是真初华说的，但演出成分过高，也不知道是不是实际是初音自己的独白。是的话，她自己倒是对这种爱有自觉。
+
+*****
+
+####  北条早苗  
+##### 36724#       发表于 2025-3-14 01:06
+
+一切的问题都可以用编剧的大手来解决，初音在母鸡卡解散后大祥回羽丘天天迈巴赫了都不知道，但是知道大祥和中登一起住破房子天天打工
+初音和大祥玩了一天就疯成这样，只能说大祥的货太纯了
+这拍出来的东西居然是mygo的续作，这才是最惊悚的地方，柿本也是多重人格了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
