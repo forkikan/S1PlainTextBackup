@@ -2637,3 +2637,11 @@ Ave Mujica也算是传奇耐复活王了，在反复横跳了这么多次的情�
 
 看得出来这集想对标 mygo ep3 的先锋演出，但观众第一反应还是这都不算动画了，唉，每每就在想，这 mujica 就是对着 mygo 抄也不至于这样（
 
+
+*****
+
+####  adw667  
+##### 283#       发表于 2025-3-14 06:59
+
+每集一嚎：你们乐子人不要再+2了好不好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

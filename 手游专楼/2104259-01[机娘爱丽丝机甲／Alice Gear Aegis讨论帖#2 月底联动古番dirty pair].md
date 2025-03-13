@@ -80,3 +80,11 @@
 
 票要爆了十连果然蓝天白云
 
+
+*****
+
+####  wilkyway  
+##### 1412#       发表于 2025-3-14 07:06
+
+体验任务试了一下感觉微妙的还变弱了？虽然射击原来手感也挺微妙的,但是派生不给补点机动能力反而给了个站桩输出 那个没多高火力的aoe还是蓄力+ta双倍的墨迹,<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
