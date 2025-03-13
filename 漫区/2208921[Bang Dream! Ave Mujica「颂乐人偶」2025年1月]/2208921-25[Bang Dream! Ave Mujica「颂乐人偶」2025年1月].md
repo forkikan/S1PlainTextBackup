@@ -6266,3 +6266,113 @@ fanart上的初华美丽又强大。
 
 2025-3-13 16:42 上传
 
+
+*****
+
+####  6030sylar  
+##### 36045#       发表于 2025-3-13 16:57
+
+土味情话王
+
+*****
+
+####  Victorino  
+##### 36046#       发表于 2025-3-13 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67644254&amp;ptid=2208921" target="_blank">油画布 发表于 2025-3-13 15:51</a>
+
+可以没那么喜欢音乐…但她为什么喜欢演戏，这个可不可以在基于喵梦自身展开一下？
+
+现在看该设定在故事进 ...</blockquote>
+9和10还是有稍微解释了一点的，喵梦因为睦的存在产生了演戏ptsd，所以试镜不顺，要想继续演戏就必须解决这个ptsd心魔才可以，而解决心魔的办法只有直面古神，也就是和睦产生更多接触
+
+想组avemujiuca的发起人是海铃不是喵梦，喵梦只是为了自己的私心而答应了海铃的邀约，这种程度
+
+这个逻辑说实话不是很现实，描写得也不好，但确实是这么演出来了，这就是主创想表达的
+
+*****
+
+####  是谁的书画  
+##### 36047#       发表于 2025-3-13 17:00
+
+戴眼镜会降智的角色确实不多
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  一心而用  
+##### 36048#       发表于 2025-3-13 17:01
+
+<img src="https://img.saraba1st.com/forum/202503/13/170006aa377wk8113v7j68.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (70.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 17:00 上传
+
+<img src="https://img.saraba1st.com/forum/202503/13/170019v0k7ns8k8h80ut8s.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (92.68 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 17:00 上传
+
+<img src="https://img.saraba1st.com/forum/202503/13/170025rx9yqizk88i93p99.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (67.44 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 17:00 上传
+
+<img src="https://img.saraba1st.com/forum/202503/13/170031dhjtsi5si831m5ji.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (77.21 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 17:00 上传
+
+<img src="https://img.saraba1st.com/forum/202503/13/170045kqxj4oyxft9t3qqd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (71.31 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 17:00 上传
+
+<img src="https://img.saraba1st.com/forum/202503/13/170054gxh5y14wrl1140kf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (66.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 17:00 上传
+
+<img src="https://img.saraba1st.com/forum/202503/13/170059ju8u4nlu8l28qwlu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (82.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 17:00 上传
+
+<img src="https://img.saraba1st.com/forum/202503/13/170104tabbaeqe0k5qv8lv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (65.4 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 17:01 上传
+
+<img src="https://img.saraba1st.com/forum/202503/13/170110o1ycm95mrccmmzrk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (69.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 17:01 上传
+

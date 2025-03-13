@@ -56,3 +56,13 @@ ChroNoiR 1st Mini Album 15232，没抽选好低
 
 这个财报效果这么好的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Harunoharu  
+##### 1041#       发表于 2025-3-13 16:59
+
+不会官方版的虹杏甲子园对抗赛要来了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
