@@ -2485,3 +2485,44 @@ Mujika高能回，柿本广大献给闪彩动画的一封情书<img src="https:/
 
 还有娘死了小姨疯狂舔侄女的呢，有啥奇怪的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  最终兵器狂战  
+##### 268#       发表于 2025-3-14 02:46
+
+哈哈哈哈哈。。我tm这一周都等了些什么
+-2
+
+*****
+
+####  鱼丈人  
+##### 269#       发表于 2025-3-14 02:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647402&amp;ptid=2249813" target="_blank">吉吉国王 发表于 2025-3-13 22:30</a>
+这是动画吗？和广播剧有什么区别？</blockquote>
+从另一个角度讲，母鸡卡是备战舞台剧广播剧赛道配置最奢华的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AshPenguin  
+##### 270#       发表于 2025-3-14 02:48
+
+剧情很蠢-2
+哪怕很蠢前因后果终于讲明白了+1
+舞台剧中规中矩 +0
+一以贯之的精神分裂+1
+🐘又玩消失-1
+海玲给我看笑了+1
+李神的机能太强了+1
+
+
+*****
+
+####  名津流  
+##### 271#       发表于 2025-3-14 02:55
+
+初华是不是初音精神分裂想象出来的人？
+
+否则你冒名顶替去东京出道当偶像了，原本的初华就没一点反应？
+

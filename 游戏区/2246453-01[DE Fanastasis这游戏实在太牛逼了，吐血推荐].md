@@ -4144,3 +4144,18 @@ https://bgm.tv/subject/topic/33083
 顶着卡顿玩了 20 多个小时，才发现是字体的原因导致的…安装好字体就不再卡了，让自己眼睛辛苦了这么长时间 ...</blockquote>
 什么字体？ 我装群里那个萝莉体 也是玩着玩着就卡了
 
+
+*****
+
+####  PigMourne  
+##### 368#       发表于 2025-3-14 02:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67646574&amp;ptid=2246453" target="_blank">best32167 发表于 2025-3-13 21:12</a>
+
+这游戏后劲好大，近期应该完全禁玩其他RM游戏
+
+不然总对着花花草草猛按XXX ...</blockquote>
+不光是RM，最近玩逸剑灵兽这种unity武侠游戏也忍不住日墙日地板，恰好这些游戏也有很多不规则房间陈设、空一格的花草等等（虽然日不出什么隐藏）
+
+劲儿太大了<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+

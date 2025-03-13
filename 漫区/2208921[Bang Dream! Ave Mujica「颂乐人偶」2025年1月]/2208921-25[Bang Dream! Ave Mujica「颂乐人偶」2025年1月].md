@@ -15080,3 +15080,104 @@ Mujica动画给人感觉很看重的一点就是对她人的情感错位。
 
 下集预告里的中登见老登，中登还穿着西服，感觉应该是回忆而不是现在时点的事。
 
+
+*****
+
+####  帆前  
+##### 36856#       发表于 2025-3-14 02:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649891&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-3-14 02:36</a>
+
+初音是爱自己，通过爱“丰川祥子”这个符号的行为，享受扮演虐主文主角的满足感 ...</blockquote>
+可能，不确定，但确实挺魔怔的
+
+*****
+
+####  岬开斗  
+##### 36857#       发表于 2025-3-14 02:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647966&amp;ptid=2208921" target="_blank">szzyf7 发表于 2025-3-13 22:57</a>
+不是 初音妈迷恋祥子外婆这又事啥操作 就单纯老登睡佣人这个设定不够吗
+
+—— 来自 OnePlus LE2100, Androi ...</blockquote>
+独角兽看西泽保彦导致的。
+没让初华妈因爱生恨把夫人杀了是独角兽最后的仁慈。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  adretyu67.  
+##### 36858#       发表于 2025-3-14 02:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649794&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-3-14 01:57</a>
+
+财阀不用太斗吧，她自己就是最纯血的丰川家主，只等成年了，她需要去面对的就是自己的内心，她想要确定自 ...</blockquote>
+好感这事应该已经确定了。
+
+祥子说初华像太阳，初音像月亮。
+
+但是鸡团最后用的是阁楼之月（现在不明是什么动力源）
+
+从意象对应来说，如果祥子想和真初华组乐队那也该是C团，因为只有C团是春日影
+
+*****
+
+####  qlipho  
+##### 36859#       发表于 2025-3-14 02:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">重力女真是太碍事了，祥老师想开点就有龙王if了
+
+
+*****
+
+####  木板春香  
+##### 36860#       发表于 2025-3-14 02:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649915&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-14 02:49</a>
+
+好感这事应该已经确定了。
+
+祥子说初华像太阳，初音像月亮。</blockquote>
+十本这么作践角色的演出，我真怕到最后他想再搞鸡团一次，再把CCC拉出来恶心大家一下，现在这个时间点阁楼之月只是证明现在的祥子是在意初音的，甚至可以说是在暗示初音身份，但后面要怎么搞，我很虚。
+
+*****
+
+####  老贝  
+##### 36861#       发表于 2025-3-14 02:54
+
+这故事折腾这么久，终于完成了把丰川祥子身边离她最近的两个女人形象给替换掉的壮举。
+
+睦已经人格合一，呆在那里的睦现在对祥子到底是什么感情都还未知。
+初音则是表示自己是盗用妹妹身份，通过爱丰川祥子这个理想中幸福自我的行为，来享受自己作为被对比的悲剧女主角形象的一个人。
+
+敢通过这么个东西确实是需要不小魄力的，挺好奇这么搞最后的商业结果会是怎么样。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  易筋经  
+##### 36862#       发表于 2025-3-14 02:54
+
+我现在就在思考一个问题，有些编剧写的东西不如月租3000日元的AI，那她的存在价值到底是什么？她是制作人突然劈腿生出来的私生女吗？制作人必须给她发工资养着她？
+
+*****
+
+####  adretyu67.  
+##### 36863#       发表于 2025-3-14 02:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649920&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-3-14 02:53</a>
+
+十本这么作践角色的演出，我真怕到最后他想再搞鸡团一次，再把CCC拉出来恶心大家一下，现在这个时间点阁 ...</blockquote>
+不就鸡狗合邦10人春日影吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+13话歌单的名额还够吗。
+
+*****
+
+####  真爱与热情  
+##### 36864#       发表于 2025-3-14 02:56
+
+这片子爆点一个接一个，好像就没看到过她们组乐队什么时候开心过，EP10最后甚至没给观众看看她们最后的表情
+
+真就EP7的大祥有点开心的迹象，她们真的能在最后一集开心演奏个曲子吗
+
