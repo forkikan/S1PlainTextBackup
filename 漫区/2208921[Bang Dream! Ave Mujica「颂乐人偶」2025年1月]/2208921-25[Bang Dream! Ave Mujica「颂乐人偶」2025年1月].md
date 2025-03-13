@@ -8605,3 +8605,505 @@ wait，祥爹欠168亿还能翻案的吗<img src="https://static.saraba1st.com/i
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  厄神之息  
+##### 36270#       发表于 2025-3-13 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647625&amp;ptid=2208921" target="_blank">seki_m 发表于 2025-3-13 22:40</a>
+
+中登顶撞老登所以被扣黑锅赶出家门了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是吗？我咋觉得是被丰川家的大手给收拾了呢？至于你说是谁那我也不知道啊，反正不像老登，他俩倒像什么一条线上的蚂蚱之类的
+
+*****
+
+####  十九号大侠  
+##### 36271#       发表于 2025-3-13 22:46
+
+动画片的事情不要想那么多啊，长得像很意外吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lucho  
+##### 36272#       发表于 2025-3-13 22:46
+
+好一封写给天鹰战士的情书
+
+*****
+
+####  秦南心  
+##### 36273#       发表于 2025-3-13 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647593&amp;ptid=2208921" target="_blank">香草味图书 发表于 2025-3-13 22:38</a>
+
+看跳了吧？是中登找老登，要他承认并接回私生女。老登认为会影响自己地位，放逐了中登。
+
+—— 来自 HUAW ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">老登一脸“你把握不住，丰川家很可怕”不是纯唬人的吧
+
+按编剧这么个说法，祥爹老登是赘婿联盟，纯纯没权力只当门面的俩fw，
+
+咋感觉这编剧是想写，老登放逐祥爹是为了保护他不遭丰川家大手抹除，给祥子保留一个完整的爹地，所以随着初音的身世浮出水面，老登要被处理掉，而祥爹重新启用狠狠吃老登遗产为mujica保驾护航
+
+*****
+
+####  thisisaspider  
+##### 36274#       发表于 2025-3-13 22:46
+
+虽然，但是初音和祥子同岁
+
+<img src="https://img.saraba1st.com/forum/202503/13/224625jqcvvsii0xqswpc2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (20.69 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 22:46 上传
+
+*****
+
+####  油画布  
+##### 36275#       发表于 2025-3-13 22:46
+
+初音阴了这么多集 现在也没啥感觉了
+
+在这集前应该让她多装装阳角，偶尔流露一下阴暗面，跟soyo一样藏一下
+
+怎么到这里柿本就不愿意遮掩了，不过想想前面初音戏份也被抢完了也写不出什么积极的戏，算了…
+
+*****
+
+####  nt2013  
+##### 36276#       发表于 2025-3-13 22:47
+
+回看发现甜甜圈在荧幕上是看不见脸的 合着初音女士一直当甜甜圈是工具人<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  半年  
+##### 36277#       发表于 2025-3-13 22:47
+
+最惨的是真初华啊！本来把开心的事分享给姐姐，谁能想到姐姐一开始就夺舍身份抱着抢朋友取的
+
+*****
+
+####  钦念以忱  
+##### 36278#       发表于 2025-3-13 22:47
+
+这集太先锋艺术了，二偶动画为什么会拍成这样
+
+*****
+
+####  6030sylar  
+##### 36279#       发表于 2025-3-13 22:47
+
+<img src="https://img.saraba1st.com/forum/202503/13/224658fl20llxa0xqx8b8a.png" referrerpolicy="no-referrer">
+
+<strong>]NG2Y[6NV9}D}JX0M{K~D4B.png</strong> (44.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 22:46 上传
+
+还是不要太纠结细节，都明说了是舞台装置了
+
+*****
+
+####  yy19  
+##### 36280#       发表于 2025-3-13 22:47
+
+<blockquote>downnote 发表于 2025-3-13 22:38
+还有个问题，祥子妈祥子外婆都早死，恐怕祥子和初音也命不久矣</blockquote>
+初音（真初华的姐姐）又没有丰川家的血统。还不如小小担心下睦子米呢😅
+
+
+*****
+
+####  adretyu67.  
+##### 36281#       发表于 2025-3-13 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647635&amp;ptid=2208921" target="_blank">everdream 发表于 2025-3-13 22:41</a>
+
+除非真初华的亲爹（接盘侠）是定治兄弟？不然这生物学不存在了</blockquote>
+黄油里这种情况挺常见的。
+
+异父同母的姐妹长得很像。
+
+*****
+
+####  曼彻斯特联  
+##### 36282#       发表于 2025-3-13 22:47
+
+bro以为自己是庵野秀明，最后让真嗣坐椅子上放PPT讲故事<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">，而且演出和表达效果甚至不如万策尽的TV版最后两话。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 36283#       发表于 2025-3-13 22:48
+
+我看到前十集都觉得还好，这集一出来我真的佩服根本贵雄的胆子，一个长线运营的企划这么玩儿都能拍板过了。
+
+*****
+
+####  aptx8285144  
+##### 36284#       发表于 2025-3-13 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647654&amp;ptid=2208921" target="_blank">Ferrari 发表于 2025-3-13 22:42</a>
+
+最后两集从头live到尾有救
+
+至于剧情去尼玛的</blockquote>
+不可能一直开live<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  septemsky  
+##### 36285#       发表于 2025-3-13 22:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">搞这种舞**角戏的演出，已经贴脸致敬海猫了吧
+
+*****
+
+####  adretyu67.  
+##### 36286#       发表于 2025-3-13 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647728&amp;ptid=2208921" target="_blank">cayon 发表于 2025-3-13 22:45</a>
+
+既然中登是被老登搞走的，那你tm砸啤酒瓶干嘛呀</blockquote>
+中登没想到吧。还以为是自己傻逼了。结果没想到是老登下的套。
+
+毕竟优点是真诚
+
+*****
+
+####  ntrntr1  
+##### 36287#       发表于 2025-3-13 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647582&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-13 22:38</a>
+
+问题这是当公开的偶像，要想长时间玩下去不露馅，还是丰川大手在支持更合理 ...</blockquote>
+而且还成功上学了。。。
+
+没父母同意就能随便上高中，那厕妹买张机票就能偷走樱花妹的JK人生了
+
+*****
+
+####  DARK_HGCG  
+##### 36288#       发表于 2025-3-13 22:48
+
+<img src="https://img.saraba1st.com/forum/202503/13/224854hpzzilii33ui843w.gif" referrerpolicy="no-referrer">
+
+<strong>-2762e5822c5edf8e.gif</strong> (588.59 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 22:48 上传
+
+*****
+
+####  零壹贰叁  
+##### 36289#       发表于 2025-3-13 22:49
+
+草，我意外还蛮喜欢这集
+什么海猫
+但是后面又翘排练我有点绷不住了，mujica存在的意义是啥啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，刚组起来又崩是吧
+李神发挥真无敌吧
+
+*****
+
+####  aptx8285144  
+##### 36290#       发表于 2025-3-13 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647625&amp;ptid=2208921" target="_blank">seki_m 发表于 2025-3-13 22:40</a>
+
+中登顶撞老登所以被扣黑锅赶出家门了</blockquote>
+我到是感觉更像老登在暗示丰川家有更大的黑手<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qratosones1337  
+##### 36291#       发表于 2025-3-13 22:49
+
+还特么不如让真初华直接无了呢……这样看起来观感还没那么离谱
+
+*****
+
+####  聋与唬  
+##### 36292#       发表于 2025-3-13 22:49
+
+看完母11卡，我只想立刻发动地鸣
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  是谁的书画  
+##### 36293#       发表于 2025-3-13 22:49
+
+我真的很难想象一个片子可以拍成这样，这已经不是少女不少女乐队的问题了。
+
+这是打从一开始就不打算做一个正常的动画了。
+
+这逼东西换成其他任何什么别的题材也是一样的逆天<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  扶桑洛槿  
+##### 36294#       发表于 2025-3-13 22:50
+
+ 本帖最后由 扶桑洛槿 于 2025-3-13 22:51 编辑 
+<blockquote>downnote 发表于 2025-3-13 22:38
+还有个问题，祥子妈祥子外婆都早死，恐怕祥子和初音也命不久矣</blockquote>
+
+初音又没丰川家血统，没有debuff
+
+*****
+
+####  ntrntr1  
+##### 36295#       发表于 2025-3-13 22:50
+
+还不如再烂俗一点初音失手把初华从楼梯推下去<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">、
+
+为什么你这么熟练啊<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 36296#       发表于 2025-3-13 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647796&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-13 22:48</a>
+
+而且还成功上学了。。。
+
+没父母同意就能随便上高中，那厕妹买张机票就能偷走樱花妹的JK人生了</blockquote>
+至少必须要有公开的监护人，就像毛利父女和柯南那种关系还能蒙混过关，初音的监护人，我想来想去只有老登一种可能<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Victorino  
+##### 36297#       发表于 2025-3-13 22:50
+
+不行啊，我还是不理解啊
+
+老登难道这是刚刚才知道初华是初音吗？
+
+不是sumimi刚出道就知道了吗？
+
+那为啥他能允许avemujica上武道馆啊？
+
+mygo13集的live不是tgw赞助了吗？？
+
+那个时候一点也没有觉得不对劲，avemujica重新结成后突然就开始发力不让初音出来了？为什么会有这种区别啊？
+
+而且森美奈美不是跟老登很熟吗，为啥海睦喵三个人还能正常在若叶家集合啊？
+
+*****
+
+####  BebopEin  
+##### 36298#       发表于 2025-3-13 22:50
+
+讲真前面初音大段独白观感还真比后面海铃打电话犯ptsd的样子好那么一点点<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  plok201  
+##### 36299#       发表于 2025-3-13 22:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下集小岛追人包饺子，最后一集开个大的LIVE斗财团？
+
+话说以后讨论三角姐妹是不是会很麻烦，大伙代称乱糟糟的
+
+*****
+
+####  qratosones1337  
+##### 36300#       发表于 2025-3-13 22:51
+
+所以老登突然出来单纯就是因为初音在LIVE上唱了超诗祥？
+
+*****
+
+####  黄昏现白骨  
+##### 36301#       发表于 2025-3-13 22:52
+
+这杰宝剧情写的乱七八糟的，你这mujica也没一个似人
+
+*****
+
+####  木板春香  
+##### 36302#       发表于 2025-3-13 22:52
+
+ 初音，你不可以草祥子，不可以的啊！
+
+
+*****
+
+####  ykyin09  
+##### 36303#       发表于 2025-3-13 22:52
+
+就预告撒玫瑰那段我都感觉真初华已经没了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  聋与唬  
+##### 36304#       发表于 2025-3-13 22:52
+
+不是，演了一集初华，那我的睦这个问题要怎么解决呢？我请问了。
+看得我只想立刻发动地鸣
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  onlv星骸  
+##### 36305#       发表于 2025-3-13 22:52
+
+直到祥子爹出来之前都感觉还行， 祥子爹这个事圆到初华头上实在太莫名其妙了。
+
+*****
+
+####  afsd109  
+##### 36306#       发表于 2025-3-13 22:52
+
+与其说是模仿舞台剧，但我看这背景服装啥都没有，纯粹几个投影镜头点缀下的单人朗诵表演，没钱可以搞一些意识流的图像充数都比现在这种演出（如果有的话）要好。作为导演我觉得已经放弃了自己对动画的热爱和对自己能力的尊严，存粹是为了填充时间搞得一段莫名其妙的东西。做得烂我还会骂骂，这种自我放弃了的就算了吧。
+
+*****
+
+####  septemsky  
+##### 36307#       发表于 2025-3-13 22:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我懂了，
+祥子立马上岛→he
+祥子6年后上岛→黄金乡
+
+*****
+
+####  是谁的书画  
+##### 36308#       发表于 2025-3-13 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647844&amp;ptid=2208921" target="_blank">Victorino 发表于 2025-3-13 22:50</a>
+
+不行啊，我还是不理解啊
+
+老登难道这是刚刚才知道初华是初音吗？
+
+不是sumimi刚出道就知道了吗？</blockquote>
+别太在意逻辑了，这老头的思维模式已经是用脚后跟都解释不了了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 36309#       发表于 2025-3-13 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647844&amp;ptid=2208921" target="_blank">Victorino 发表于 2025-3-13 22:50</a>
+
+不行啊，我还是不理解啊
+
+老登难道这是刚刚才知道初华是初音吗？
+
+不是sumimi刚出道就知道了吗？</blockquote>
+按照楼里前面开玩笑的解释就是，老登出于内疚（虽然按照初音她妈的想法是主动离开，当然也可能是不想靠近丰川家族，毕竟黑暗面贝）一直在支持初音，然后发现初音真想雷普了大祥，就赶紧把她赶走<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，好了，这些也就是随便说说，现在是放空脑子先看下去（
+
+*****
+
+####  adretyu67.  
+##### 36310#       发表于 2025-3-13 22:54
+
+初华在岛上晚上走出来就一个人，估计是妹妹和母亲都没了吧。
+
+就剩她一个人了。
+
+*****
+
+####  m99999  
+##### 36311#       发表于 2025-3-13 22:54
+
+说真的，这集不是挺好的吗。虽然之前的剧透和假药让人很无力，但演的还不错。要是不是第十一集而是第九集就没毛病了
+
+*****
+
+####  油画布  
+##### 36312#       发表于 2025-3-13 22:54
+
+其实我觉得这集还行。
+
+到现在感觉只有123集和11集在按着故事主线在走。
+
+*****
+
+####  阿卵真是牛逼  
+##### 36313#       发表于 2025-3-13 22:54
+
+下礼拜木谷高明要不还是别来了吧，我在真心诚意地为你的人身安全着想<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厄神之息  
+##### 36314#       发表于 2025-3-13 22:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lyuhiu  
+##### 36315#       发表于 2025-3-13 22:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有好坛友说下最新的舅舅党是啥，现在不禁剧透了，我只记得看过的版本是最后一话祥子要和真初华在岛上在一起，但这怎么也脑补不出来
+
+*****
+
+####  刑部姬真可爱  
+##### 36316#       发表于 2025-3-13 22:55
+
+独白戏虽然很无聊但至少还能看小丑表演，尤其是和后边海铃打电话那几秒的剧情对比，确实是会有居然能接受的错觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  安娜导函数  
+##### 36317#       发表于 2025-3-13 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647877&amp;ptid=2208921" target="_blank">聋与唬 发表于 2025-3-13 22:52</a>
+不是，演了一集初华，那我的睦这个问题要怎么解决呢？我请问了。
+看得我只想立刻发动地鸣</blockquote>
+啊？不都用镜头语言告诉你睦头和墨提斯合体了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oyss  
+##### 36318#       发表于 2025-3-13 22:55
+
+真初华还在岛上捞鱼呢?
+
+*****
+
+####  ntrntr1  
+##### 36319#       发表于 2025-3-13 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647877&amp;ptid=2208921" target="_blank">聋与唬 发表于 2025-3-13 22:52</a>
+
+不是，演了一集初华，那我的睦这个问题要怎么解决呢？我请问了。
+
+看得我只想立刻发动地鸣</blockquote>
+祥子：我看小睦弹弹吉他弹得挺开心的啊
+
+下一话我安抚一下初音，初音开心了，小睦自己舞台上转转也挺开心的，喵梦。。。祝她成功吧，海铃不用说了，这人就爱傻乐，等我们五姐妹重聚了她多买点包包肯定贼开心 
+
+嗨呀，我们母鸡卡真是蒸蒸日上啊
+
+*****
+
+####  adretyu67.  
+##### 36320#       发表于 2025-3-13 22:56
+
+有一说一，中登知道情况还敢和老登争吵是真对自己地位一无所知<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+这责任严格来说不能算初华的吧。不还是老登自己的问题。
+
