@@ -1213,3 +1213,41 @@ GIIdsQCbUAAO84K.jpg
 妹子漂亮不，不会是伪娘大佬吧</blockquote>
 都挺漂亮的，反正都比第一章那个花魁强
 
+
+*****
+
+####  寂长无星夜  
+##### 3524#       发表于 2025-3-13 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67644013&amp;ptid=2092342" target="_blank">woshenc 发表于 2025-3-13 15:15</a>
+妹子漂亮不，不会是伪娘大佬吧</blockquote>
+都挺好看的啊，我最喜欢笃姬了
+<img src="https://p.sda1.dev/22/be10278d49f754eb7059512ef56a8b69/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  woshenc  
+##### 3525#       发表于 2025-3-13 15:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67644227&amp;ptid=2092342" target="_blank">寂长无星夜 发表于 2025-3-13 15:48</a>
+
+都挺好看的啊，我最喜欢笃姬了</blockquote>
+哇，这个捏得还不错嘛
+
+虽然比不上仁王1的和服玛利亚，但感觉比我自己捏的幕末第一美少女好看了
+
+
+*****
+
+####  真田源次郎信繁  
+##### 3526#       发表于 2025-3-13 15:54
+
+笃姬长得难道不是女装版德川庆喜吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zqqwe  
+##### 3527#       发表于 2025-3-13 15:55
+
+我觉得最好看是大剑姐，但居然不给攻略<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
