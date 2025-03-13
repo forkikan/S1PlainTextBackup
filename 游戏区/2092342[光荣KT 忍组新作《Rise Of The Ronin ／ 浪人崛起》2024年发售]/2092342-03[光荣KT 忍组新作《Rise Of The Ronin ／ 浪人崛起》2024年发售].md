@@ -1040,3 +1040,40 @@ PC版宣传特性：120帧高帧率&amp;更高的画质。<img src="https://stat
 不知道是不是我记忆美化了，感觉仁王卧龙到浪人，捏脸一个比一个不行，浪人头发上的多边形折痕感觉都糊我脸 ...</blockquote>
 对比仁王2，浪人的肤质劣化很明显，可能就是为了那狗屎写实感
 
+
+*****
+
+####  woshenc  
+##### 3510#       发表于 2025-3-13 10:00
+
+我昨天玩了3小时
+
+打完序章后进入开放世界，第一块小地图叫本牧好像，梦回刺客信条了
+
+话说英灵殿玩吐了之后我就没玩过开放世界3A大作（老头环不算！），时隔多年，再次捡到一个开放世界游戏，突然有些不适应，又有些感动
+
+战斗什么的我慢慢研究吧，第一个地图上，海边小岛上有个通缉犯找不到，说是要推进任务后会出现，是不是要等以后再来的？
+
+
+*****
+
+####  手铐君  
+##### 3511#       发表于 2025-3-13 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67639892&amp;ptid=2092342" target="_blank">慕兰 发表于 2025-3-13 00:52</a>
+不知道是不是我记忆美化了，感觉仁王卧龙到浪人，捏脸一个比一个不行，浪人头发上的多边形折痕感觉都糊我脸 ...</blockquote>
+这作人物都应该偏写实了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">捏人对比前几作差，包括女性npc大部分都不是很好看
+
+*****
+
+####  手铐君  
+##### 3512#       发表于 2025-3-13 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67641323&amp;ptid=2092342" target="_blank">woshenc 发表于 2025-3-13 10:00</a>
+我昨天玩了3小时
+
+打完序章后进入开放世界，第一块小地图叫本牧好像，梦回刺客信条了
+
+话说英灵殿玩吐了之后 ...</blockquote>
+这游戏有一部分敌人和据点要推进支线和主线才能解锁
+

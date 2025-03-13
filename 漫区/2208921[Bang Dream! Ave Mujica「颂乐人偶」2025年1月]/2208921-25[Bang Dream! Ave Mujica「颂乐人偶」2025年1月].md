@@ -5548,3 +5548,16 @@ Crychic的第二次正式演出绝对值一个剧场版，tv有点太憋屈了�
 
 玛德李神真是太搞了，越来越觉得是那种网络巨魔的类型<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  航母掉头  
+##### 35991#       发表于 2025-3-13 09:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67640773&amp;ptid=2208921" target="_blank">yaneis 发表于 2025-3-13 09:03</a>
+
+喵梦线最脑瘫的地方不是散，而是她ptsd了半天的什么演技表演天赋根本没人在乎吗？最后自我感动表白上搞得人 ...</blockquote>
+你选的世界观嘛，偶像
+
+从C团到鸡团就试中二祥处到处口嗨闯祸的历史
+
