@@ -1077,3 +1077,29 @@ PC版宣传特性：120帧高帧率&amp;更高的画质。<img src="https://stat
 话说英灵殿玩吐了之后 ...</blockquote>
 这游戏有一部分敌人和据点要推进支线和主线才能解锁
 
+
+*****
+
+####  东方定助  
+##### 3513#       发表于 2025-3-13 11:16
+
+确实写实
+
+Commodore_Matthew_Calbraith_Perry.png
+(61.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 11:16 上传
+
+<img src="https://img.saraba1st.com/forum/202503/13/111633ts6xo99acsac2v8v.png" referrerpolicy="no-referrer">
+
+GIIdsQCbUAAO84K.jpg
+(349.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 11:16 上传
+
+<img src="https://img.saraba1st.com/forum/202503/13/111633sb3hu5bjs9bzt3zw.jpg" referrerpolicy="no-referrer">
+
