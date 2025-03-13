@@ -14462,3 +14462,152 @@ ps:喵睦也套了镜像的爱恨，难怪也在我磕点上。
 
 如果十三集是留给双团live所有人的饺子，那么十二集祥子要斗财阀，找初音，团结mujica，她能做到吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adretyu67.  
+##### 36803#       发表于 2025-3-14 01:57
+
+ 本帖最后由 adretyu67. 于 2025-3-14 01:58 编辑 
+
+重新捋了一下三角爹去世的台词。
+
+真初华应该只有第一句“初音不是爸爸的孩子所以不悲伤”指责了父亲去世缺哭不出来的初音（只有这句话李子是换了音调）。
+
+剩下的台词都是初华内心斗争最后决定离家出走去东京找祥子。
+
+*****
+
+####  木板春香  
+##### 36804#       发表于 2025-3-14 01:57
+
+ 财阀不用太斗吧，她自己就是最纯血的丰川家主，只等成年了，她需要去面对的就是自己的内心，她想要确定自己想要见的是记忆里只见过数面的初华，还是后续陪着自己前行的初音，甚至会不会自己有好感的其实也是初音，初华觉得自己偷来的幸福就是属于她自己的这种。
+
+*****
+
+####  zhoujin8584  
+##### 36805#       发表于 2025-3-14 01:59
+
+<blockquote>大户爱 发表于 2025-3-14 01:49
+大祥是编辑手里的单线程，前面几集从初华家跑出来，把初华当空气。一心为了睦，我要重组c团。
+
+这两集， ...</blockquote>
+没法去关心了，只认一个睦叠加睦莫一体的底设已经是大毒点了。其实祥睦早该认清她们当年不是素世搞事情也一年没联系，已经随时间变成了需要外物绑定的关系了。不必那么上心了
+
+*****
+
+####  北条早苗  
+##### 36806#       发表于 2025-3-14 01:59
+
+最后一集对邦也是一件很变态的事情，你这正篇里主唱像狗一样在地面爬的乐队，真的能进邦邦祖庙吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  seki_m  
+##### 36807#       发表于 2025-3-14 01:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649747&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-3-14 01:43</a>
+夏天靠赤道附近的小岛可以看到猎户吧，符合编剧脑补的神秘避暑海岛</blockquote>
+去赤道避暑是否有点
+
+*****
+
+####  thisisaspider  
+##### 36808#       发表于 2025-3-14 01:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649792&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-14 01:57</a>
+
+重新捋了一下三角爹去世的台词。
+
+真初华应该只有第一句“初音不是爸爸的孩子所以不悲伤”指责了父亲去世缺 ...</blockquote>
+这句反而印证了"初音没有被当作家人"。但前面描写就没有这种感觉。
+
+*****
+
+####  木板春香  
+##### 36809#       发表于 2025-3-14 02:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649798&amp;ptid=2208921" target="_blank">seki_m 发表于 2025-3-14 01:59</a>
+
+去赤道避暑是否有点</blockquote>
+是否有点傻逼呢，我也是这么认为的，就是一个远离日本本土的设定吧
+
+*****
+
+####  ntrntr1  
+##### 36810#       发表于 2025-3-14 02:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649753&amp;ptid=2208921" target="_blank">聋与唬 发表于 2025-3-14 01:44</a>
+
+站在初华视角，这初音也太变态了。
+
+看到自己亲妈天天教育养女姐姐你不是爸爸的孩子，看到自己亲爹把养女比 ...</blockquote>
+也没说拿了多少钱吧
+
+只能说编剧大手让她一去东京就火速被星探发掘包吃包住
+
+按照现实估计就是从露宿街头到大久保公园
+
+
+*****
+
+####  真爱与热情  
+##### 36811#       发表于 2025-3-14 02:03
+
+大祥跟初音最大的情感联系是那歌词，问题是大祥似乎不是被歌词感动到开始谱曲子的。
+
+剩下就是大祥对mujica的责任感，实在是非常难绷
+
+*****
+
+####  adretyu67.  
+##### 36812#       发表于 2025-3-14 02:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649803&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-14 02:00</a>
+
+也没说拿了多少钱吧
+
+只能说编剧大手让她一去东京就火速被星探发掘包吃包住</blockquote>
+说的是自己的零用钱。
+
+不过邦多利世界jk们的零用钱存一存+家里出钱都够购几十万yen的吉他。
+
+如果在东京很快站住了脚跟+老登暗中提携应该是没问题。
+
+*****
+
+####  ntrntr1  
+##### 36813#       发表于 2025-3-14 02:04
+
+日本最靠近赤道的是冲绳的离岛吧 
+
+有一说一冲绳夏天至少体感是比东京凉快很多的，有钱人夏天爱去海边大别野也正常
+
+能不能看到猎户座我就不知道了
+
+*****
+
+####  北条早苗  
+##### 36814#       发表于 2025-3-14 02:04
+
+sumimi的演艺公司就是tgw的，怕不是前脚初音离家出走，后脚老登的电话就响了。这甜甜圈女士又有建模又给她叠战力，还要作为guest线下登场，结果就只是老登给女儿玩偶像游戏的，下一集sumimi解散都不知道能不能捞到戏份<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ntrntr1  
+##### 36815#       发表于 2025-3-14 02:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649811&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-14 02:04</a>
+
+说的是自己的零用钱。
+
+不过邦多利世界jk们的零用钱存一存+家里出钱都够购几十万yen的吉他。</blockquote>
+主要大金毛确实是会去买水晶的样子<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  L-JoeW  
+##### 36816#       发表于 2025-3-14 02:05
+
+不是说年度第一原创番吗哥，这是个啥啊<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
