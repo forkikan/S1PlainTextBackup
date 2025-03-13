@@ -7239,3 +7239,396 @@ win wing production很明显是tgw旗下附属公司的程度，而且mana也很
 
 真初华呢！<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  油画布  
+##### 36127#       发表于 2025-3-13 22:18
+
+买紫水晶还真是回旋镖啊？？
+
+*****
+
+####  影伴光生  
+##### 36128#       发表于 2025-3-13 22:18
+
+真就在深夜动画给大家放一整集晨间剧的内容啊。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  航母掉头  
+##### 36129#       发表于 2025-3-13 22:18
+
+艹，老登你也是入赘的啊
+
+*****
+
+####  扶桑洛槿  
+##### 36130#       发表于 2025-3-13 22:19
+
+老登好菜啊，60+在家族还站不稳，和中登有的一拼啊。
+
+中登究竟是被骗了，还是说替老登顶锅还是被老登害的啊。
+
+话说老登你个臭入赘的，家族也地位不够硬，还让大祥当你女儿是打算干什么？
+
+合着丰川家的黑暗就是老登太菜导致的？
+
+*****
+
+####  紫苑寺美琴  
+##### 36131#       发表于 2025-3-13 22:20
+
+原来整季都是丰川家的大手啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+祥子爹就因为这事背锅没了？过于幽默了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+一句“你不知道丰川家有多可怕”就把底层逻辑解释了，太会编剧了柿本<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+海玲当个传话筒还要复读信任信任。唉，信任，唉，乐队雇佣兵<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  半年  
+##### 36132#       发表于 2025-3-13 22:20
+
+<img src="https://img.saraba1st.com/forum/202503/13/222018n206p29rxlgmm67y.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250313221948.jpg</strong> (212.79 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 22:20 上传
+
+*****
+
+####  aptx8285144  
+##### 36133#       发表于 2025-3-13 22:20
+
+这自己演双胞胎姐妹的演出也许本意是想让人震撼，但是为何我只想笑？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 36134#       发表于 2025-3-13 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647181&amp;ptid=2208921" target="_blank">紫苑寺美琴 发表于 2025-3-13 22:20</a>
+
+原来整季都是丰川家的大手啊
+
+祥子爹就因为这事背锅没了？过于幽默了
+
+一句“你不知道丰川家有多可怕”就把底 ...</blockquote>
+海玲这个还比较正常，毕竟有PTSD
+
+*****
+
+####  DeltaStriker  
+##### 36135#       发表于 2025-3-13 22:21
+
+年轻人的第一款二刺猿雷雨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| cc37| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  木板春香  
+##### 36136#       发表于 2025-3-13 22:21
+
+ 祥子就是最纯血的丰川魔女了，笑死了
+
+*****
+
+####  AP0rt_  
+##### 36137#       发表于 2025-3-13 22:21
+
+wait，祥爹欠168亿还能翻案的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  琉璃苑軒風  
+##### 36138#       发表于 2025-3-13 22:21
+
+我当时要是只看了mygo该多好<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  清江望月  
+##### 36139#       发表于 2025-3-13 22:22
+
+还有，它的确应该叫三角初音，而不是丰川初音。
+
+*****
+
+####  最弱败者  
+##### 36140#       发表于 2025-3-13 22:23
+
+满地乱爬笑死我了
+
+*****
+
+####  Litccc  
+##### 36141#       发表于 2025-3-13 22:23
+
+祥爹就这样洗白了？
+
+*****
+
+####  Liza  
+##### 36142#       发表于 2025-3-13 22:23
+
+突破新的下限
+
+*****
+
+####  operatbig  
+##### 36143#       发表于 2025-3-13 22:23
+
+快进看完，好没意思的一集，剩下两集能让我看到喵睦互动吗？
+
+*****
+
+####  有钱多买小人  
+##### 36144#       发表于 2025-3-13 22:23
+
+等等，小姨你怎么知道大祥搬家搬到哪和在打工的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 36145#       发表于 2025-3-13 22:23
+
+狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！狂欢！
+
+*****
+
+####  凉良  
+##### 36146#       发表于 2025-3-13 22:23
+
+真想不出十本怎么想的故意把初音画成狗一样 
+
+太TM神人了
+
+*****
+
+####  紫苑寺美琴  
+##### 36147#       发表于 2025-3-13 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647235&amp;ptid=2208921" target="_blank">最弱败者 发表于 2025-3-13 22:23</a>
+
+满地乱爬笑死我了</blockquote>
+满地乱爬真有大金毛那味儿了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  doas9  
+##### 36148#       发表于 2025-3-13 22:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">真播15分钟PPT。太牛逼了。太变态了。我实在是不清楚哪些+2的人心理有多么变态了。神人共振。
+
+木柜子看到最后原来是棒子伦理剧我笑出声。
+
+
+*****
+
+####  gammatau  
+##### 36149#       发表于 2025-3-13 22:24
+
+你怎么又担心起初音来了
+
+*****
+
+####  Huiiii  
+##### 36150#       发表于 2025-3-13 22:24
+
+快快快，快开评分楼！我已经-2到不行了！
+
+阴暗爬行.gif
+(1.75 MB, 下载次数: 7)
+
+下载附件
+
+2025-3-13 22:24 上传
+
+<img src="https://img.saraba1st.com/forum/202503/13/222413ww8g32fs5t7tb2s8.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  人又如何  
+##### 36151#       发表于 2025-3-13 22:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">头一次这么感谢舅舅剧透，否则我的大脑真受不了
+
+*****
+
+####  清江望月  
+##### 36152#       发表于 2025-3-13 22:24
+
+中登也是个SB啊，三角初音和丰川家一点血缘关系都没，接回丰川家是什么脑回路，中登不知道老登跟他一样是入赘的？
+
+*****
+
+####  是谁的书画  
+##### 36153#       发表于 2025-3-13 22:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+这是个啥啊啊啊啊啊啊啊啊啊啊啊啊
+
+*****
+
+####  十九号大侠  
+##### 36154#       发表于 2025-3-13 22:25
+
+这下李子的台词量一下子就上来了
+
+*****
+
+####  刑部姬真可爱  
+##### 36155#       发表于 2025-3-13 22:25
+
+怪不得这集柿本亲自上呢，原来是因为基本没有场景变化啊<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+海铃就那么几秒的出场也还要复读自己的人设太敬业了，睦现在啥情况也不说，“丰川家的黑暗”呃呃<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+女女“性”关系太变态了太变态了太变态了太变态了太变态了，这就是祥压抑吗<img src="https://static.saraba1st.com/image/smiley/carton2017/483.png" referrerpolicy="no-referrer">
+
+*****
+
+####  snhz1029  
+##### 36156#       发表于 2025-3-13 22:26
+
+满地乱爬真给我看笑了
+
+*****
+
+####  6030sylar  
+##### 36157#       发表于 2025-3-13 22:26
+
+<img src="https://img.saraba1st.com/forum/202503/13/222542hl7d7jofgf77dz67.gif" referrerpolicy="no-referrer">
+
+<strong>%8)~WD7JFK1XY[POPK}E_)M.gif</strong> (1.75 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 22:25 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qiyu1234  
+##### 36158#       发表于 2025-3-13 22:26
+
+初音和初华为什么几乎一模一样的原因没有很好的解释啊
+
+养父跟丰川定治是亲戚？
+
+另外这集数根本不够讲完，烂尾几乎是确定的结果了
+
+*****
+
+####  k1no  
+##### 36159#       发表于 2025-3-13 22:27
+
+前面几集还能看个乐子，这集就纯折磨
+
+*****
+
+####  油画布  
+##### 36160#       发表于 2025-3-13 22:27
+
+所以初华对祥子那么好果然还是因为有愧，和最开始的主流猜测其实差不多，就是实现方式很颠，他爸的问题连带一起解决了。
+
+这集确实有点独角兽的感觉了
+
+
+*****
+
+####  loserm  
+##### 36161#       发表于 2025-3-13 22:27
+
+真好啊，本集弥补了前几集丰川初音戏份不足的问题，这集90%都是她在自言自语
+
+—— 来自 OPPO PHT110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  椎名mahuyo  
+##### 36162#       发表于 2025-3-13 22:27
+
+看完只觉得李神c得真好，但是摊上个这么无语的剧情<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3708, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  堆雪若叶  
+##### 36163#       发表于 2025-3-13 22:27
+
+表记有个“一人芝居”，这独角戏还是专门设计的
+
+*****
+
+####  与何人说  
+##### 36164#       发表于 2025-3-13 22:27
+
+真 金毛大狗<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ntrntr1  
+##### 36165#       发表于 2025-3-13 22:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">看完只想问
+
+你们签合同都不看身份证的吗
+
+*****
+
+####  k45oo  
+##### 36166#       发表于 2025-3-13 22:28
+
+纯纯的路边一条啊我看是
+
+*****
+
+####  qwased  
+##### 36167#       发表于 2025-3-13 22:28
+
+这种完全靠口述的表达方式还是动画吗？完全不及格了啊<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+再说内容，放进二创假药都算烂的，还真堂而皇之放进正式作品里面了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  有钱多买小人  
+##### 36168#       发表于 2025-3-13 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647258&amp;ptid=2208921" target="_blank">gammatau 发表于 2025-3-13 22:24</a>
+你怎么又担心起初音来了</blockquote>
+大祥底层逻辑：白祥诱惑，黑祥压力，压力完把对方搞坏了再一转白祥“为了她什么的愿意”
+
+*****
+
+####  扶桑洛槿  
+##### 36169#       发表于 2025-3-13 22:28
+
+<blockquote>清江望月 发表于 2025-3-13 22:24
+中登也是个SB啊，三角初音和丰川家一点血缘关系都没，接回丰川家是什么脑回路，中登不知道老登跟他一样是入 ...</blockquote>
+可能老登太会装吧，估计中登也没想到老登在丰川家族混了几十年，一点地位都没有
+
