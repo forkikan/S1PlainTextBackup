@@ -15293,3 +15293,22 @@ Mujica动画给人感觉很看重的一点就是对她人的情感错位。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  鱼丈人  
+##### 36876#       发表于 2025-3-14 03:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648090&amp;ptid=2208921" target="_blank">zzs2338645 发表于 2025-3-13 23:03</a>
+那这一切的问题元凶岂不是还是祥子祥子不去岛上，就不会见到初音，初音就不会来东京，祥爹就不会被赶出来， ...</blockquote>
+什么牛家村惨案
+
+*****
+
+####  鱼丈人  
+##### 36877#       发表于 2025-3-14 03:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67646805&amp;ptid=2208921" target="_blank">DARK_HGCG 发表于 2025-3-13 21:46</a>
+我猜这集母鸡卡会用几乎一整集讲初音初华的过去</blockquote>
+这么低调？
+
