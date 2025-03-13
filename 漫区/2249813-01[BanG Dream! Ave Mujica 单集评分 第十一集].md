@@ -2609,3 +2609,13 @@ Mujika高能回，柿本广大献给闪彩动画的一封情书<img src="https:/
 
 第一季真的折磨，第二季现在每次出声能让我笑出来
 
+
+*****
+
+####  plazum  
+##### 280#       发表于 2025-3-14 06:07
+
+Ave Mujica也算是传奇耐复活王了，在反复横跳了这么多次的情况下，上一集才刚说这次要组一辈子，不准擅自退出，是契约什么的，这集就又光速出问题了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR FRI-AN00, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
