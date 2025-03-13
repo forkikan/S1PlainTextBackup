@@ -14298,3 +14298,167 @@ ps:喵睦也套了镜像的爱恨，难怪也在我磕点上。
 全母鸡卡就喵梦一个学过表演的纯菜鸡</blockquote>
 我现在信大祥是真钝感了，青梅睦变成吉他睦也没认出来，如果大莫不是没理解角色演技烂，祥莫也就这么一辈子了
 
+
+*****
+
+####  thisisaspider  
+##### 36793#       发表于 2025-3-14 01:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649753&amp;ptid=2208921" target="_blank">聋与唬 发表于 2025-3-14 01:44</a>
+
+站在初华视角，这初音也太变态了。
+
+看到自己亲妈天天教育养女姐姐你不是爸爸的孩子，看到自己亲爹把养女比 ...</blockquote>
+初华到底知道多少很难说。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 36794#       发表于 2025-3-14 01:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649753&amp;ptid=2208921" target="_blank">聋与唬 发表于 2025-3-14 01:44</a>
+站在初华视角，这初音也太变态了。
+看到自己亲妈天天教育养女姐姐你不是爸爸的孩子，看到自己亲爹把养女比 ...</blockquote>
+后爸亲妈养大至此还觉得自己不是家里的人物，那怎么办吗，从小就脑子不正常，老惦记个虚无缥缈的亲爹和别人有的东西，别人的梦想
+强欲成病了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  大户爱  
+##### 36795#       发表于 2025-3-14 01:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649761&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-14 01:45</a>
+我现在信大祥是真钝感了，青梅睦变成吉他睦也没认出来，如果大莫不是没理解角色演技烂，祥莫也就这么一辈 ...</blockquote>
+大祥是编辑手里的单线程，前面几集从初华家跑出来，把初华当空气。一心为了睦，我要重组c团。
+
+这两集，睦真死去活来，她又不关心了。开始惦记初华了。
+
+*****
+
+####  plok201  
+##### 36796#       发表于 2025-3-14 01:50
+
+大祥肯定认不出来啊，她连莫提斯和睦都分不清，你让她去分清萍水相逢？
+
+*****
+
+####  [皆神孝介]  
+##### 36797#       发表于 2025-3-14 01:50
+
+刚刚继哔哩哔哩版、巴哈版又把刚出的喵萌版也看了，每次都感觉只过了五分钟，随便打几句
+
+喜欢月光中祥子<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202503/14/014001fqi69v8ifjnr9nnq.jpg" referrerpolicy="no-referrer">
+
+<strong>32tase4f43g.jpg</strong> (188.21 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 01:40 上传
+
+<img src="https://img.saraba1st.com/forum/202503/14/014002qyqezhvqhag93vgg.jpg" referrerpolicy="no-referrer">
+
+<strong>4t3tgws3a45ytg.jpg</strong> (147.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 01:40 上传
+
+感觉初华的情况应该是母亲把丰川家公主这个形象描绘得太美好了
+
+这里出现全名而不是「祥ちゃん」就觉得有点不对劲，初华好像在见到祥子前就爱上了丰川家公主「丰川祥子」，并且期待公主大人来关心、喜欢自己<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202503/14/014040k0oznbnozh1moo20.jpg" referrerpolicy="no-referrer">
+
+<strong>434tg5tg34.jpg</strong> (128.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 01:40 上传
+
+<img src="https://img.saraba1st.com/forum/202503/14/014106tkn5n9w5y1d4nwls.jpg" referrerpolicy="no-referrer">
+
+<strong>34t345t34.jpg</strong> (110.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 01:41 上传
+
+<img src="https://img.saraba1st.com/forum/202503/14/014120as2xs1sp001js8ca.jpg" referrerpolicy="no-referrer">
+
+<strong>456yu45y43w5.jpg</strong> (198.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 01:41 上传
+
+<img src="https://img.saraba1st.com/forum/202503/14/014133z9jk8z5z8fchij88.jpg" referrerpolicy="no-referrer">
+
+<strong>w4y5yw435yw34.jpg</strong> (120.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 01:41 上传
+
+本来想吐槽一下猎户座应该不会在夏天出现，就看到这个，初华尽力想话题了，反正对面可能不知道<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202503/14/014930kj4vku2ugb9jb2uq.jpg" referrerpolicy="no-referrer">
+
+<strong>234r2r.jpg</strong> (142.05 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 01:49 上传
+
+呃，回忆中某几个画面不截了，初华真的跟踪过祥子吧<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  adretyu67.  
+##### 36798#       发表于 2025-3-14 01:50
+
+鸡团现在应该是征用了睦头家的地下室直接当排练场所了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  真爱与热情  
+##### 36799#       发表于 2025-3-14 01:51
+
+很难想象大祥的心境啊，这是真无人接近过的领域了。
+
+她自己都要怀疑下自己，如果只认面前这个初华，那还有个初华该抱着什么心态去面对。
+
+就算只认现在这个初华，把小岛那个当不存在。似乎也只能让大祥被初音的歌词感动开始主动包初音的饺子，这也太变态了
+
+
+*****
+
+####  天空塔书记官  
+##### 36800#       发表于 2025-3-14 01:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649656&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-3-14 01:24</a>
+所以市一出于怎样的脑回路才会选择不把真初华写死…
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+因为李子真有个妹妹，谁知道呢<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  堆雪若叶  
+##### 36801#       发表于 2025-3-14 01:54
+
+睦莫问题的再演而已，祥子连自己认识的是哪个睦都没搞清人就都嗝屁了，初华妹端上来大概率也是在劫难逃。
+
+*****
+
+####  风真人  
+##### 36802#       发表于 2025-3-14 01:54
+
+如果十三集是留给双团live所有人的饺子，那么十二集祥子要斗财阀，找初音，团结mujica，她能做到吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
