@@ -324,3 +324,13 @@ cy你他m去死吧
 
 不知道都重写了为啥还不做墓地
 
+
+*****
+
+####  仓鼠吃火锅  
+##### 87#       发表于 2025-3-13 19:08
+
+结果一共就端出来这点东西，甚至超进化卡面都舍不得多画，token卡面还是本体老图，和本体大版本更新新机制没区别
+
+因为唐逗人和屎山就把玩家多年积累全埋了<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">
+
