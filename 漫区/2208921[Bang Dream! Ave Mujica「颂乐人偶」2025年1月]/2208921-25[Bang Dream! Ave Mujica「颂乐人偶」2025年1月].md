@@ -6208,3 +6208,22 @@ fanart上的初华美丽又强大。
 
 之后ave mujica的小剧场就一直是睦头主导了，喵梦演技高点低点，有没有演技追求，都不怎么能影响到剧情，于是喵梦的这个演技，就只剩下和睦头组CP这一功能了，就太工具化了点
 
+
+*****
+
+####  ntrntr1  
+##### 36041#       发表于 2025-3-13 16:31
+
+大喵：祥子你一来就叫我小爱爱，素不素想和我组CP呀<img src="https://static.saraba1st.com/image/smiley/carton2017/489.png" referrerpolicy="no-referrer">
+
+祥子：不是，最后我要去追小姨子，你帮我爱下睦头人<img src="https://static.saraba1st.com/image/smiley/carton2017/482.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 36042#       发表于 2025-3-13 16:33
+
+大猫就剩个家人侠的点没回收了吧。
+
+总不能家人侠意义就是说“若麦不怕践踏”这个吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
