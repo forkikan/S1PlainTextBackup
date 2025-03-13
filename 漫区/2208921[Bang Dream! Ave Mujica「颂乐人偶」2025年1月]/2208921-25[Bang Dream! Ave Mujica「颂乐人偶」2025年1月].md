@@ -15253,3 +15253,43 @@ Mujica动画给人感觉很看重的一点就是对她人的情感错位。
 
 不是假装正经分析找编剧的草台漏洞吗（）
 
+
+*****
+
+####  qlipho  
+##### 36873#       发表于 2025-3-14 03:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649946&amp;ptid=2208921" target="_blank">岬开斗 发表于 2025-3-14 03:10</a>
+
+短命是跟男人生孩子导致的。
+
+如果祥子跟灯或者初华或者睦头或者以上全部结婚，就不会短命了。</blockquote>
+厨厨编剧都这样了，祥老师要背负丰川的责任哒（都被责任拷打两季了还不懂
+
+*****
+
+####  联想会  
+##### 36874#       发表于 2025-3-14 03:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649946&amp;ptid=2208921" target="_blank">岬开斗 发表于 2025-3-14 03:10</a>
+短命是跟男人生孩子导致的。
+如果祥子跟灯或者初华或者睦头或者以上全部结婚，就不会短命了。</blockquote>
+初是小姨不合适生，睦生第一个灯生第二个<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  岬开斗  
+##### 36875#       发表于 2025-3-14 03:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649967&amp;ptid=2208921" target="_blank">联想会 发表于 2025-3-14 03:31</a>
+初是小姨不合适生，睦生第一个灯生第二个
+
+—— 来自 鹅球 v3.4.98</blockquote>
+正确的。
+丰川家女儿短命都是因为自己生，所以只要让灯和睦头来生孩子的话祥子就不会短命了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
