@@ -1152,3 +1152,30 @@ GIIdsQCbUAAO84K.jpg
 
 不然只能玩看着幕末阿秀一个人寂寞的旅行了
 
+
+*****
+
+####  隔壁老黄  
+##### 3519#       发表于 2025-3-13 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67641323&amp;ptid=2092342" target="_blank">woshenc 发表于 2025-3-13 10:00</a>
+
+我昨天玩了3小时
+
+打完序章后进入开放世界，第一块小地图叫本牧好像，梦回刺客信条了
+
+话说英灵殿玩吐了之后 ...</blockquote>
+没记错是解锁滑翔翼后就会出来
+
+*****
+
+####  隔壁老黄  
+##### 3520#       发表于 2025-3-13 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67643572&amp;ptid=2092342" target="_blank">woshenc 发表于 2025-3-13 14:17</a>
+
+我大致看了下，这游戏女性角色很少啊，重要的更少，连女boss都没几个
+
+光荣能不能出个补丁，让仁王里那些， ...</blockquote>
+第二章有几个不错的妹子，也就这样了
+
