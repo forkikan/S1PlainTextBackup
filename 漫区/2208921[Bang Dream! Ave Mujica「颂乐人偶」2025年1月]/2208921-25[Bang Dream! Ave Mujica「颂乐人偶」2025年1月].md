@@ -5602,3 +5602,135 @@ Mujica是祥子用来把其他人的人生锁住的工具。
 从C团到鸡团就试中二祥处到处口嗨闯祸的历史</blockquote>
 我说逆天的是喵梦线，坚持演技到无人在乎，批评大小姐过家家最后去找大小姐让她过家家，这东西写来干嘛的
 
+
+*****
+
+####  ads147147  
+##### 35996#       发表于 2025-3-13 10:32
+
+强制soulmate，不是说的很清楚么，只不过不是大祥做的，而是十本做的，大祥：我TM怎么知道你单飞后事事不顺，我还么找你拆队的麻烦呢。
+
+*****
+
+####  半年  
+##### 35997#       发表于 2025-3-13 10:32
+
+<img src="https://img.saraba1st.com/forum/202503/13/103233r0y17t211t2z7283.jpg" referrerpolicy="no-referrer">
+
+<strong>Glw9_Kla0AA2TeN.jpg</strong> (342.18 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 10:32 上传
+
+[https://x.com/Jutsu_Shiro_/status/1899763045494083765/photo/1](https://x.com/Jutsu_Shiro_/status/1899763045494083765/photo/1)
+
+*****
+
+####  plusSharp  
+##### 35998#       发表于 2025-3-13 10:35
+
+况且演员这种个性化程度很高的职业，演技虽然有用但又不是唯一的，被选上可以有很多种理由，演技不好也不代表没机会。喵梦搞得就像是“因为有睦，所以其他人都不配演”了一样，比睦的“吉他无法唱歌”更不可理喻
+
+*****
+
+####  与太郎  
+##### 35999#       发表于 2025-3-13 10:37
+
+<blockquote>あぁ、私を辱めた
+
+あなたのメロディはいまだ
+
+猛り狂うのか
+
+戦慄のカテドラル
+
+抗う心臓
+
+焼けてゆく後ろ髪のない
+
+フォルトゥーナ
+
+Still alive, 命の歯車が
+
+So, still alive, 回り出す
+
+振り切る己をゆく
+
+Still alive? ロゴスの誘いは
+
+So, still alive? まだ見えない
+
+汚れてく異教徒たちの涙
+
+(Yes) So, we got to face this
+
+(Face) We got to face
+
+(Face) 繰り返す 疎外
+
+虚勢 絶望
+
+鎮まらぬ魂
+
+人は何故
+
+Still alive, 誰かの歯車が
+
+So, still alive, 狂い出す
+
+忌まわしい鐘楼が鳴る
+
+Still alive?「来るべき世界」は
+
+So, still alive? 求めている
+
+処刑台の終わりなき犠牲者
+
+Never die, 歴史の血の河を
+
+I never die, 掻い潜り
+
+彷徨える 我が十字架
+
+Still alive, 命の歯車が
+
+So, still alive, 回り出す
+
+振り切る己をゆく
+
+Still alive? ロゴスの誘いは
+
+So, still alive? まだ見えない
+
+汚れてく異教徒たちの涙
+
+月の下 顔のない Maria</blockquote>
+关于Crucifix Ⅹ歌词的考察，参考[https://note.com/m23_53/n/n295eaf4adac8](https://note.com/m23_53/n/n295eaf4adac8)
+
+首先标题可以指塔罗牌命运之轮，这个与歌词中的Fortuna命运女神及命运的齿轮之类的歌词对应
+
+其次还可以指十字架，歌词里也有逻各斯（圣经「初めに言(ロゴス)があった」In the beginning was the Word），「異教徒」和「顔のないMaria」可能是指德川幕府时期的隐匿基督徒
+
+Ave Mujica形式上模仿了Ave Maria，Mujica中亦有提到Fortuna和lacrima（泪）
+
+所以开头的melody可能不是指诗超绊、春日影之类c团或go团的歌，而是指Ave Mujica这首出道曲
+
+祥子开启mujica的理由对初华来说混合了羞辱与欺瞒，叫同名歌「私を辱めた」似乎也很合理
+
+这个歌词可能影射了远藤周作[《沉默》](https://baike.baidu.com/item/%E6%B2%89%E9%BB%98/2690936)（说实话，我都怕祥子下一话又掏出这本书来读扉页了）
+
+<img src="https://img.saraba1st.com/forum/202503/13/101336ocgmsj5ugkhw4mmm.jpg" referrerpolicy="no-referrer">
+
+<strong>Honeyview_videoframe_1282540.jpg</strong> (309.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 10:13 上传
+
+《沉默》中有两种对立的立场，传统意义上信仰坚定无所畏惧的殉教者，及基督教不愿提及的软弱的背信者
+
+那被神吸引的信徒在向神祈祷时却只得到了沉默，信徒因此处在在殉教与弃教的矛盾中
+
+《沉默》中费雷拉的两名弟子分别选择了殉教和弃教，不知道下一话会不会在这上面有一些隐喻
+

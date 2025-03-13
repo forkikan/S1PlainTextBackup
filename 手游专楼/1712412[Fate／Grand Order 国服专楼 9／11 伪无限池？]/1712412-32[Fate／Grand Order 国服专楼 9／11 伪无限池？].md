@@ -307,3 +307,14 @@
 
 摸了个稳定4t的一宝夏露露六加成队，暴击 爽！
 
+
+*****
+
+####  ·Mephisto·  
+##### 47066#       发表于 2025-3-13 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67639423&amp;ptid=1712412" target="_blank">朝仓和美 发表于 2025-3-12 22:54</a>
+
+我选的咕哒子是扮演女主，咕哒夫的话是什么剧情？</blockquote>
+新宿用过的传统女装手艺，玉玉配音，再加无名caster的魔术掩饰
+

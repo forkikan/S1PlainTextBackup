@@ -112,3 +112,13 @@
 这仨只有一个是天文部的吧（）这又是什么△</blockquote>
 有图有真相，说明这个二设（?）已经深入人心了
 
+
+*****
+
+####  IWS2000  
+##### 2095#       发表于 2025-3-13 10:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67621736&amp;ptid=2152053" target="_blank">osore 发表于 2025-3-10 16:39</a>
+出那么多汗</blockquote>
+鼓大包了，是男娘吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
