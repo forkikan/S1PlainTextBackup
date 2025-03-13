@@ -3505,3 +3505,14 @@ PSP版就修了
 
 ----发送自 [Xiaomi 23049RAD8C,Android 14](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  等等等灯等灯  
+##### 368#       发表于 2025-3-13 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67640510&amp;ptid=2090186" target="_blank">ztkong 发表于 2025-3-13 08:27</a>
+
+1代2代都要hard通关。</blockquote>
+请问1代我选了normal了会损失什么
+
