@@ -5842,3 +5842,20 @@ fanart上的初华美丽又强大。
 
 母鸡卡何德何能让战吧开个专楼不说 竟然还禁止对角色进行“人身攻击"<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">，这种人均神人的团，把她们的疯狂讲一遍就是人身攻击了吧
 
+
+*****
+
+####  ykyin09  
+##### 36010#       发表于 2025-3-13 11:42
+
+战吧给讨论度高的番每话开专楼都是传统了吧
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  shinoverse  
+##### 36011#       发表于 2025-3-13 11:44
+
+纸片人都没有人身，何来人身攻击<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
