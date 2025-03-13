@@ -15224,3 +15224,16 @@ Mujica动画给人感觉很看重的一点就是对她人的情感错位。
 
 我服了，祥子确实是冰，什么一见祥子误终生
 
+
+*****
+
+####  岬开斗  
+##### 36870#       发表于 2025-3-14 03:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648837&amp;ptid=2208921" target="_blank">戏谑二次元 发表于 2025-3-13 23:54</a>
+就丰川家女系这个寿命，怎么组一辈子乐队</blockquote>
+短命是跟男人生孩子导致的。
+如果祥子跟灯或者初华或者睦头或者以上全部结婚，就不会短命了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

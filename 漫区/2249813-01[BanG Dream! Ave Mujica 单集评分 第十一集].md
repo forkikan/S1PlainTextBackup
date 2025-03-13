@@ -2526,3 +2526,32 @@ Mujika高能回，柿本广大献给闪彩动画的一封情书<img src="https:/
 
 否则你冒名顶替去东京出道当偶像了，原本的初华就没一点反应？
 
+
+*****
+
+####  鱼丈人  
+##### 272#       发表于 2025-3-14 03:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647573&amp;ptid=2249813" target="_blank">对羟基笨甲酸 发表于 2025-3-13 22:37</a>
+后面金毛还仰头喊了一下，去掉声音真的就是一条狗
+
+但我喜欢狗，看爽了  ...</blockquote>
+仰头这里确实，很难不是故意的吧
+
+*****
+
+####  鱼丈人  
+##### 273#       发表于 2025-3-14 03:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647563&amp;ptid=2249813" target="_blank">秋月孝三 发表于 2025-3-13 22:37</a>
+以前懒得投票，11话看完感觉就是一帮中登献给90年代~本世纪初所有颠佬界泰斗们的情书，+2了 ...</blockquote>
+你日二次元产业何尝没有一股老鼠上桌味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  maritimus  
+##### 274#       发表于 2025-3-14 03:14
+
+可惜被剧透了，不然面对小姨论应该感觉更好笑一点的。mujica是怎么做到的，每一集怎么都像和整个番完全没关系一样
+
