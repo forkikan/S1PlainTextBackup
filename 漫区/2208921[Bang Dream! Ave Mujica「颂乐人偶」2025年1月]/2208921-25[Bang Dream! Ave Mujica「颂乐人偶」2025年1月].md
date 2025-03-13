@@ -5494,3 +5494,42 @@ Crychic的第二次正式演出绝对值一个剧场版，tv有点太憋屈了�
 莫演睦确实浮夸，效果很差，但也还没差到让喵梦指指点点的地步，毕竟她连单纯的流畅说出台词都做不到 ...</blockquote>
 不至于啦，第一集的时候喵梦甚至可以背大祥的词，被刺激到导致水平下降又不是一直都是这个状态。
 
+
+*****
+
+####  半年  
+##### 35986#       发表于 2025-3-13 09:39
+
+<img src="https://img.saraba1st.com/forum/202503/13/093955ebah5qikz7kg5aq5.jpg" referrerpolicy="no-referrer">
+
+<strong>Gl2kMiBa0AAGHCX.jpg</strong> (79.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 09:39 上传
+
+[https://x.com/kk19940324/status/1899855171049668995/photo/1](https://x.com/kk19940324/status/1899855171049668995/photo/1)
+
+*****
+
+####  ads147147  
+##### 35987#       发表于 2025-3-13 09:40
+
+说起来，最近p站刷图真的看了不少画祥子的会刻意把她抹成爱音一个档的，把人画大的ooc我见过，故意把人画平板的ooc我倒是第一次见。。
+
+
+*****
+
+####  半年  
+##### 35988#       发表于 2025-3-13 09:42
+
+<img src="https://img.saraba1st.com/forum/202503/13/094232nuc1wl6198k03x9u.jpg" referrerpolicy="no-referrer">
+
+<strong>Gl3DMaqbYAAen9e.jpg</strong> (215.34 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 09:42 上传
+
+[https://x.com/ssami0617/status/1899889243612446942/photo/1](https://x.com/ssami0617/status/1899889243612446942/photo/1)
+

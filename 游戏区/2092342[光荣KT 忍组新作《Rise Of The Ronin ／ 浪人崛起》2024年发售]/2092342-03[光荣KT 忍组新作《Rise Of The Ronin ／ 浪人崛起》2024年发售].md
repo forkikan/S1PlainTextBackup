@@ -1022,3 +1022,11 @@ PC版宣传特性：120帧高帧率&amp;更高的画质。<img src="https://stat
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  彩虹肥宅  
+##### 3508#       发表于 2025-3-13 09:44
+
+浪人其实把光影色调改进下画面就很不错了，其实在一些过场里，忍组是做了强化的光影的，可惜这些就局限在过场里<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
