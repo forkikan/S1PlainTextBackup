@@ -6743,3 +6743,23 @@ ptsd这不是还没治好吗，没治好的时候确实也没法演戏，所以�
 
 什么爱你与你无关，到头来几个人之间没一个做到把自己的真情传达给她人的，想真正意义上重新开始都做不到。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 36072#       发表于 2025-3-13 20:21
+
+<img src="https://p.sda1.dev/22/563cc5e41cdde43175242ce6917e3260/image.jpg" referrerpolicy="no-referrer">难绷差分来了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  huxiaopao163  
+##### 36073#       发表于 2025-3-13 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67646076&amp;ptid=2208921" target="_blank">油画布 发表于 2025-3-13 20:05</a>
+
+我对喵逐渐爱上睦的大方针没有意见，但是我怀疑拿“演技”来做关系性基础是否行的通。“表演”这设定就好 ...</blockquote>
+就是因为除了喵梦无人在意演技这回事，所以其他人都无法拯救睦，只有喵梦拯救了睦，在喵梦的告白后睦的两个人格终于合二为一而变得完整，吉他无法唱歌的问题从live画面看应该也是直接解决了。
+
