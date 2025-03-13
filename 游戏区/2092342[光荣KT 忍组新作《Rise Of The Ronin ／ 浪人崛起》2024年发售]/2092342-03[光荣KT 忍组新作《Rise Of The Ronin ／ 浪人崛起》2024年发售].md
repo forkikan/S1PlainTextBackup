@@ -1140,3 +1140,15 @@ GIIdsQCbUAAO84K.jpg
 这老头居然是可以攻略的？暗荣你们的XP到底是些什么狗屎</blockquote>
 第三章正常做支线会有美少年冲田总司跟你告白，这个是不是更靠谱一点<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  woshenc  
+##### 3518#       发表于 2025-3-13 14:17
+
+我大致看了下，这游戏女性角色很少啊，重要的更少，连女boss都没几个
+
+光荣能不能出个补丁，让仁王里那些，玛利亚啊，雪女火车什么的都换个皮乱入下啊！<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+不然只能玩看着幕末阿秀一个人寂寞的旅行了
+

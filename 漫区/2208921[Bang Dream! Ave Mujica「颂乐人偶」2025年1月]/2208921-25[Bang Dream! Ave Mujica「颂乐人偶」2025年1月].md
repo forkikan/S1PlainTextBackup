@@ -6003,3 +6003,14 @@ fanart上的初华美丽又强大。
 
 本来别人实力就有啊
 
+
+*****
+
+####  Victorino  
+##### 36024#       发表于 2025-3-13 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67642607&amp;ptid=2208921" target="_blank">油画布 发表于 2025-3-13 12:08</a>
+
+喵梦按现实标准妥妥的天才，高一把网红事业经营的有声有色 打鼓专业度武道馆水平，她对演技的执着有点莫 ...</blockquote>
+不能因为这里是乐队高武世界观，就默认50人全员唯一热爱音乐吧，喵梦的底层逻辑就是喜欢演戏，这就是跟其他人显出不同的地方
+
