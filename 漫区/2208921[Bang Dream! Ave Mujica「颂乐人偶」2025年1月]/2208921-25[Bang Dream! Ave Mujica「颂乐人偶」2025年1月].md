@@ -6813,3 +6813,62 @@ ptsd这不是还没治好吗，没治好的时候确实也没法演戏，所以�
 —— 来自 鹅球 v3.4.98</blockquote>
 吉他支架人<img src="https://static.saraba1st.com/image/smiley/carton2017/485.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 36078#       发表于 2025-3-13 21:29
+
+<img src="https://img.saraba1st.com/forum/202503/13/212927sxx4p2pupl2cvx40.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (82.34 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 21:29 上传
+
+寡妇学坏了
+
+*****
+
+####  6030sylar  
+##### 36079#       发表于 2025-3-13 21:30
+
+<img src="https://img.saraba1st.com/forum/202503/13/213030jdwfvnf4mdyffdmp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (92.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 21:30 上传
+
+*****
+
+####  钦念以忱  
+##### 36080#       发表于 2025-3-13 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67646050&amp;ptid=2208921" target="_blank">结衣小比取 发表于 2025-3-13 20:02</a>
+
+若麦第一话确实展示过演技，不过是在后台
+
+祥子当时正在背诵台词</blockquote>
+演技书籍我也看到了的，主要有人演技好，有人演技差点，有人追求演技。如果要重视这个演技，就得编排一下因此产生的故事，并和乐队挂上钩，比如祥子的小剧场，大家演出的时候有人上戏有人有困难，之类的。
+
+实际上片中演技相关，基本都是睦头的双重人格独角戏、喵梦的PTSD独角戏，和乐队几乎没有挂钩
+
+当然，这片到现在也没多少和乐队运作有关的正经剧情
+
+
+*****
+
+####  6030sylar  
+##### 36081#       发表于 2025-3-13 21:35
+
+<img src="https://img.saraba1st.com/forum/202503/13/213521e97t55ruitigg759.png" referrerpolicy="no-referrer">
+
+<strong>}I5(Z{T]@2DKD(PEWC]OE.png</strong> (40.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 21:35 上传
+
