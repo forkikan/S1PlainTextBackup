@@ -13003,3 +13003,22 @@ G跨时蛮好的，干嘛加个之战
 
 搜了下阿涅利家族，感觉扎比家自己当公王太扯了，他继续投吉翁戴肯怎么也比自己当公王划算
 
+
+*****
+
+####  Toby_dak  
+##### 8459#       发表于 2025-3-13 12:43
+
+现在听到高达要分割放送都快有点PTSD了<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+前有铁血后有水魔，也就ReRise能绷住。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
+
+*****
+
+####  AvenueIII  
+##### 8460#       发表于 2025-3-13 12:50
+
+分割放送那鹤卷之前说的“在赶最后一集的演出”是指 part 1 还是 part 2
+
