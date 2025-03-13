@@ -6800,3 +6800,16 @@ ptsd这不是还没治好吗，没治好的时候确实也没法演戏，所以�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  ntrntr1  
+##### 36077#       发表于 2025-3-13 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67646301&amp;ptid=2208921" target="_blank">联想会 发表于 2025-3-13 20:39</a>
+
+你又不会弹吉他，什么吉他工具人
+
+—— 来自 鹅球 v3.4.98</blockquote>
+吉他支架人<img src="https://static.saraba1st.com/image/smiley/carton2017/485.png" referrerpolicy="no-referrer">
+
