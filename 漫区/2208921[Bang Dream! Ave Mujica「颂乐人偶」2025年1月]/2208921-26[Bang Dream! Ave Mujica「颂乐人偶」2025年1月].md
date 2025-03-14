@@ -4493,3 +4493,11 @@ X最早封面像是肺部X光片。
 
 —— 来自 nubia NX733J, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  Delicatus545  
+##### 37405#       发表于 2025-3-15 00:38
+
+什么，已经有先进的法律支持杀死长命人给短命人器官移植了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
