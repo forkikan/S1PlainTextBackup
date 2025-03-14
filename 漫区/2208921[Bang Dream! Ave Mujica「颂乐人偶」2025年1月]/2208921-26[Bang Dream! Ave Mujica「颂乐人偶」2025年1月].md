@@ -4501,3 +4501,21 @@ X最早封面像是肺部X光片。
 
 什么，已经有先进的法律支持杀死长命人给短命人器官移植了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xyion  
+##### 37406#       发表于 2025-3-15 00:46
+
+又看了一遍11话，其实在初音去东京前的独角戏挺不错的，可惜经历了前10话，要求观众不出脑太难。
+
+去东京后的逻辑连不上就实在没法看了。初音这部分剧情按理来说没有被动过，最多是削减，不知道下一话独角兽敢不敢自己来写。
+
+
+*****
+
+####  dicktt  
+##### 37407#       发表于 2025-3-15 00:52
+
+早知道还是高达，洛克昂都回来了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
