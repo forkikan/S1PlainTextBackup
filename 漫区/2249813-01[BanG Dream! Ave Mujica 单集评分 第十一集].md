@@ -2728,3 +2728,11 @@ Ave Mujica也算是传奇耐复活王了，在反复横跳了这么多次的情�
 
 +2！<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  downnote  
+##### 293#       发表于 2025-3-14 08:35
+
+真初华……如果真有这么个人而不是脑内妹妹的话，小时候想当偶像并不一定长大了也这么执着吧，阳角一般都爱好广泛嘛。
+

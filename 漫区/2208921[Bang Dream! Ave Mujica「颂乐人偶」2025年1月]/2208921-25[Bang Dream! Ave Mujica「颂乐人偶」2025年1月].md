@@ -15573,3 +15573,133 @@ Mujica动画给人感觉很看重的一点就是对她人的情感错位。
 
 如果原故事是这样我会觉得合理很多，另外如果要让初音阴暗揭露达到最好效果，前面就不能把她写的那么阴暗消极事事等待，最好是让初音表现的像go里点拨灯那样积极的推动鸡团重建，树立一个外在可靠内在阴暗的人物，这种层次感类似于soyo，是角色厨可以接受范畴
 
+
+*****
+
+####  ads147147  
+##### 36905#       发表于 2025-3-14 08:27
+
+十本真的太喜欢多重人格了。。。几次给他找补是演技非不要，非要说是精神分裂，你又不是拍jojo。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  qlipho  
+##### 36906#       发表于 2025-3-14 08:28
+
+<blockquote>油画布 发表于 2025-3-14 08:17
+现在观感是第123和11是基本照着独角兽原案走的，第10集这个炸团后第一次live应该也存在，但因为前面双重人 ...</blockquote>
+不行 那柿本哥哥的亲女儿怎么办
+
+*****
+
+####  my707776310  
+##### 36907#       发表于 2025-3-14 08:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67650285&amp;ptid=2208921" target="_blank">扶桑洛槿 发表于 2025-3-14 08:11</a>
+
+好在这破事在一集里面自我完结，没对其他登场角色人设造成伤害。双重人格这破事拖了半季时间，故事外还能 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">其他角色人设还有啥能伤害的…
+
+*****
+
+####  ads147147  
+##### 36908#       发表于 2025-3-14 08:31
+
+这一集唯一让我笑出来的就是海玲又说了一句我不值得信任吗。。。。wuli信赖母鸡鸡～！
+
+*****
+
+####  油画布  
+##### 36909#       发表于 2025-3-14 08:32
+
+<blockquote>qlipho 发表于 2025-3-14 08:28
+不行 那柿本哥哥的亲女儿怎么办</blockquote>
+他真整他那个人格分裂也不是不行，做在两集内结束战斗同时引入其他鸡团角色塑造，观感会比现在好很多
+
+
+*****
+
+####  ads147147  
+##### 36910#       发表于 2025-3-14 08:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67650416&amp;ptid=2208921" target="_blank">油画布 发表于 2025-3-14 08:32</a>
+
+他真整他那个人格分裂也不是不行，做在两集内结束战斗同时引入其他鸡团角色塑造，观感会比现在好很多 ...</blockquote>
+重点一直是菜，而不是设定不行。。。
+
+*****
+
+####  my707776310  
+##### 36911#       发表于 2025-3-14 08:33
+
+跟着独角兽原案走，意思微博骂的那个拿声优真实经历搞剧本的除圣是独角兽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 36912#       发表于 2025-3-14 08:33
+
+ 本帖最后由 syndrome2032 于 2025-3-14 08:35 编辑 
+
+明白的说，即使有人格分裂也就是2-3话就能收掉。
+哪怕是实际上睦头反复拉扯的部分。
+鸡动画人格矛盾激化是8话结尾，互杀是9话，和解是10话live。
+
+在2–3话的长度内收掉一个人的剧情线是基本功。
+
+*****
+
+####  南宮凝香  
+##### 36913#       发表于 2025-3-14 08:35
+
+現在的問題是連13 話雞狗對邦的邏輯也包不圓了
+
+母雞4/5 人需要爆米，不會再在Ring 開了 （WSD差異化的需求也讓雞狗需要分開舞台）
+
+那難道MyGO 作為嘉賓最速上武道館嗎？
+
+*****
+
+####  syndrome2032  
+##### 36914#       发表于 2025-3-14 08:37
+
+ring作为bang宇宙第二中心只有狗一支队伍常驻不太合理吧。鸡应该也是回ring常驻。
+
+老团主要集中在circle。
+
+*****
+
+####  ykyin09  
+##### 36915#       发表于 2025-3-14 08:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67650446&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-14 08:35</a>
+現在的問題是連13 話雞狗對邦的邏輯也包不圓了
+
+母雞4/5 人需要爆米，不會再在Ring 開了 （WSD差異化的需求 ...</blockquote>
+第一集爱音不是对灯说以后go也有机会在大场地开live<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，在这埋伏笔呢
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  ads147147  
+##### 36916#       发表于 2025-3-14 08:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67650446&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-14 08:35</a>
+
+現在的問題是連13 話雞狗對邦的邏輯也包不圓了
+
+母雞4/5 人需要爆米，不會再在Ring 開了 （WSD差異化的需求 ...</blockquote>
+现在对邦的理由都消磨掉了。。。
+
+有种和初音未来对邦都更合理的感觉。。
+
+*****
+
+####  dicktt  
+##### 36917#       发表于 2025-3-14 08:37
+
+这集至少完整交代了很多事情，回看4到9所有剧情信息量低的让人恶心，一股没活的感觉写在脸上，只剩下各种爆爆爆…不管怎么说用现在补全的初华设定去回看狗的灯华初见和忘记一切都更有回味空间了…当然我理解很多人心中已经下意识把鸡狗切割了，那这里有没有call back其实也意义不大就是了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+

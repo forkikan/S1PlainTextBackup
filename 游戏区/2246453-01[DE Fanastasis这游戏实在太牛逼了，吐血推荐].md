@@ -4159,3 +4159,13 @@ https://bgm.tv/subject/topic/33083
 
 劲儿太大了<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  莫名奇妙封ID  
+##### 369#       发表于 2025-3-14 08:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648703&amp;ptid=2246453" target="_blank">cym887 发表于 2025-3-13 23:41</a>
+什么字体？ 我装群里那个萝莉体 也是玩着玩着就卡了</blockquote>
+我也是装了这个字体，没有安装之前在大地图上明显感觉掉帧，装了之后反而特别流畅了。
+
