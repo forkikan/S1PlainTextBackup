@@ -116,3 +116,13 @@ v甲是第二届了，原始宣称不说五五开，大福至少也有4成吧
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  Devi_Lito  
+##### 1047#       发表于 2025-3-14 13:06
+
+不敢想象这次活动两边能出多少周边卖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+能不能多出点不太难看的棒球帽
+
