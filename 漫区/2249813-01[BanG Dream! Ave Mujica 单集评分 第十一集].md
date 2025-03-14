@@ -2864,3 +2864,31 @@ Ave Mujica也算是传奇耐复活王了，在反复横跳了这么多次的情�
 
 下集要上岛了是吧，记得买了炒面趁热吃，现在去租直升机还来得及吗？
 
+
+*****
+
+####  朝霧春嘉  
+##### 307#       发表于 2025-3-14 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647917&amp;ptid=2249813" target="_blank">Cortana 发表于 2025-3-13 22:54</a>
+无与伦比的神回，终于有超越第七集live的演出了。9.5-10分，不会再变动了。
+
+空荡剧场中的独角戏，完美表现 ...</blockquote>
+有意思，讲的不错。
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  saglork  
+##### 308#       发表于 2025-3-14 10:03
+
+丰川祥子这人估计是个galgame玩家，脑子里永远都只能顾得上一个人和一条路线，专注刷好感走剧情，问题是没有sl系统<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  单脚着地  
+##### 309#       发表于 2025-3-14 10:05
+
+还几把在拐大象老师，不知道以为她是三峡大坝呢
+

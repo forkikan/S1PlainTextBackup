@@ -16358,3 +16358,94 @@ ep11的身世倒是能解释掉mygo跟mujica前期的一些不合理的地方，
 
 —— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
+
+*****
+
+####  刑部姬真可爱  
+##### 36981#       发表于 2025-3-14 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67651207&amp;ptid=2208921" target="_blank">聋与唬 发表于 2025-3-14 09:54</a>
+
+初华是初音剧情推动和祥子构筑关系性的核心，你告诉我不重要？
+
+—— 来自 vivo V2361GA, Android 14上的 ...</blockquote>
+确实不重要，不然不会连丰川中登的待遇都不如
+
+*****
+
+####  是谁的书画  
+##### 36982#       发表于 2025-3-14 09:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67651199&amp;ptid=2208921" target="_blank">真爱与热情 发表于 2025-3-14 09:53</a>
+
+ep11的身世倒是能解释掉mygo跟mujica前期的一些不合理的地方，比如mygo ep10真就是背后推一把灯，好让她远 ...</blockquote>
+应该是这一集舞台上的初音应该是作为上位视角下的故事阐述者，是高维层面的戏中戏，编剧的嘴替和影子，手上拿着的剧本就是所有的安排。
+
+*****
+
+####  蓮華  
+##### 36983#       发表于 2025-3-14 09:59
+
+俩赘婿闹麻了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  刑部姬真可爱  
+##### 36984#       发表于 2025-3-14 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67651266&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-14 09:58</a>
+
+应该是这一集舞台上的初音应该是作为上位视角下的故事阐述者，是高维层面的戏中戏，编剧的嘴替和影子，手 ...</blockquote>
+感觉不如。。。若叶睦 著<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 36985#       发表于 2025-3-14 10:00
+
+如果不搞睦莫那堆烂活，或许下一集大祥登岛发现三角家只有一个叫初华的女儿算好活
+初音无法接受继父的爱分裂出户籍名的初华人格，初音无法和大祥相见所以只能让初华人格上，因为继父的死导致初华人格崩坏
+但是留给母鸡卡的时间只有一集了，不可能再让真初华搞出什么逆转了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wyjbnb  
+##### 36986#       发表于 2025-3-14 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67650452&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-3-14 08:37</a>
+
+ring作为bang宇宙第二中心只有狗一支队伍常驻不太合理吧。鸡应该也是回ring常驻。
+
+老团主要集中在circle。 ...</blockquote>
+破琵琶不是ring的staff吗？他们不是常驻ring的？
+
+*****
+
+####  是谁的书画  
+##### 36987#       发表于 2025-3-14 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67651281&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-3-14 10:00</a>
+
+感觉不如。。。若叶睦 著</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">要是真能够让古神说落实的话，那说不定还好点
+
+*****
+
+####  刑部姬真可爱  
+##### 36988#       发表于 2025-3-14 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67651285&amp;ptid=2208921" target="_blank">wyjbnb 发表于 2025-3-14 10:00</a>
+
+破琵琶不是ring的staff吗？他们不是常驻ring的？</blockquote>
+打工在ring打，乐队可能更多是在circle表演
+
+*****
+
+####  天空塔书记官  
+##### 36989#       发表于 2025-3-14 10:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
