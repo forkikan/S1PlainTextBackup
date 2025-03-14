@@ -3657,3 +3657,22 @@ PSP版就修了
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  等等等灯等灯  
+##### 381#       发表于 2025-3-14 16:08
+
+一代在据点传送到边远村子，难道只能走回据点？
+
+
+*****
+
+####  ds2324ds2  
+##### 382#       发表于 2025-3-14 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67654731&amp;ptid=2090186" target="_blank">等等等灯等灯 发表于 2025-3-14 16:08</a>
+
+一代在据点传送到边远村子，难道只能走回据点？</blockquote>
+有个镜子可以回城。不过只能村庄外面用。
+
