@@ -978,3 +978,76 @@ wsd遗传学，有血缘长得不像，没血缘长得像
  ...</blockquote>
 这俩人关系是亲小姨，遗传学上是不适宜生子的
 
+
+*****
+
+####  聋与唬  
+##### 37089#       发表于 2025-3-14 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67652584&amp;ptid=2208921" target="_blank">岬开斗 发表于 2025-3-14 11:56</a>
+卖假药至少要看剧情吧，如果初华也是老登的种，为什么她妈只禁止初音去找祥子，初华却可以随便去啊？
+
+— ...</blockquote>
+你要让我从两个矛盾的信息中选一个，我宁可选更合理的那个。
+我接受不了祥子蠢到认不出差了几岁的同母异父的儿童。
+所以我只能认可初音初华是同胞姐妹
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  terminator1990  
+##### 37090#       发表于 2025-3-14 12:20
+
+看完下集预告心血来潮P了两张海报，随便配个BGM丢阿B了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202503/14/121929fngn5888gaanazej.jpg" referrerpolicy="no-referrer">
+
+<strong>MOH MUJICA.jpg</strong> (150.55 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 12:19 上传
+
+<img src="https://img.saraba1st.com/forum/202503/14/121934buuo8tezl2gjueg2.jpg" referrerpolicy="no-referrer">
+
+<strong>SAVING PRIVATE HATSUNE.jpg</strong> (98.55 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 12:19 上传
+
+
+*****
+
+####  AnnieLeonhart  
+##### 37091#       发表于 2025-3-14 12:23
+
+真的只能用三角岛在菲律宾，丰川家是朝总联马甲来解释这一切了
+
+*****
+
+####  remediosOlOOOO  
+##### 37092#       发表于 2025-3-14 12:23
+
+我已经不想思考小姨到底是不是独角兽的XP了，如果是的话那原案还挺好猜的，初华根本不认识祥子怎么会去找祥子玩呢，陪祥子玩的从一开始就一直是初音，吸了一个暑假当然印象深刻了，这样的话观感还能更河里一点
+
+*****
+
+####  暗示我7酱  
+##### 37093#       发表于 2025-3-14 12:23
+
+<img src="https://p.sda1.dev/22/e04063fa2115dbe3549fab4258108251/image.jpg" referrerpolicy="no-referrer">
+不知道有没有人水过，这下真日月同辉了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ykyin09  
+##### 37094#       发表于 2025-3-14 12:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">按这个剧情那还不如tv淡化初华这条线然后放到剧场版里细讲
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

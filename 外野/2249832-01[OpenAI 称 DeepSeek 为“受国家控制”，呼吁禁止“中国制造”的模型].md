@@ -668,3 +668,51 @@ OpenAI开口说：
 出生 死亡 危害美国国家安全
 <img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cube  
+##### 75#       发表于 2025-3-14 12:20
+
+马大督工死堆算力搞出来的GROK都比那closedAI对味啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+没活可以咬打火机。
+
+*****
+
+####  sjax001  
+##### 76#       发表于 2025-3-14 12:23
+
+<blockquote>w2131978 发表于 2025-3-14 09:04
+原文：https://openai.com/global-affairs/openai-proposals-for-the-us-ai-action-plan/
+
+差不多每段一句PR ...</blockquote>
+Ai的属性只分为两种
+
+能搞黄的和不能搞黄的
+
+
+*****
+
+####  sjax001  
+##### 77#       发表于 2025-3-14 12:26
+
+<blockquote>蛋爷 发表于 2025-3-14 08:32
+我只说一句
+
+Open AI的CEO是Gay</blockquote>
+我只说一句
+
+open ai的CEO雷普他妹
+
+靠属性判断人，你不还是一样在玩身份政治那坨屎，并没有因为你倒立玩就正确了。
+
+*****
+
+####  Steel.Haze  
+##### 78#       发表于 2025-3-14 12:28
+
+太瘘了。
+
+话说幻方未来一个季度内还要发布R2，你这个卷毛鱿豥还是研究下怎么给自己挖坟吧，美国股市上的AI概念现在好几万亿呢，全都药丸。
+
