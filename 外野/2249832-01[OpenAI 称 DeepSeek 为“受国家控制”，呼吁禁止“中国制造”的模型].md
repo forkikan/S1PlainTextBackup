@@ -659,3 +659,12 @@ OpenAI开口说：
 我觉得可以有一个爆论，凡是牢美公开反对的论调，都是他们正在台下偷偷干的事情 ...</blockquote>
 这算什么爆论，早就是共识了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赤角巨魔  
+##### 74#       发表于 2025-3-14 12:16
+
+出生 死亡 危害美国国家安全
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
