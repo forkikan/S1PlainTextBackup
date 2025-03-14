@@ -4394,3 +4394,45 @@ X最早封面像是肺部X光片。
 我也没太搞懂逻辑关系 ...</blockquote>
 我的理解是作为异教者的我们，在火刑中受到惩戒，又作为复活的死者归来，也将掀起毁灭世间的大火
 
+
+*****
+
+####  aptx8285144  
+##### 37397#       发表于 2025-3-14 23:44
+
+随便翻了一下，如果结合中登的说法，似乎是经纪公司为了讨好老登所以安排初音和甜甜圈一组的，<strong>不过随着时间的推移</strong>，这种公共场合的大明星要是没有老登的庇护，类似于毛利父女与柯南那种关系，虚假身份没有被记者们发觉有问题还是很魔幻的，不过我觉得独角兽和蚀本没想那么多罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 37398#       发表于 2025-3-14 23:49
+
+做那么有艺术感怎么满足十本侮辱初音的变态爱好
+
+
+*****
+
+####  极东  
+##### 37399#       发表于 2025-3-14 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67657814&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-14 23:44</a>
+随便翻了一下，如果结合中登的说法，似乎是经纪公司为了讨好老登所以安排初音和甜甜圈一组的，不过随着时间 ...</blockquote>
+怕不是真有狗仔偷dna去验
+然后结果被经纪公司花钱买断<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+太真实了母鸡卡
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Cortana  
+##### 37400#       发表于 2025-3-14 23:51
+
+<img src="https://img.saraba1st.com/forum/202503/14/235028bdtyzct4c46qf6qi.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>屏幕截图_14-3-2025_23502_x.com.jpeg</strong> (57.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 23:50 上传
+
