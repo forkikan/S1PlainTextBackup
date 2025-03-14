@@ -88,3 +88,19 @@
 
 （亚哈什么时候端上来啊，三地鼠也行）
 
+
+*****
+
+####  龙宫李奥义  
+##### 1107#       发表于 2025-3-14 21:54
+
+<img src="https://img.saraba1st.com/forum/202503/14/215223es33ur2trsqqz3ss.png" referrerpolicy="no-referrer">
+
+<strong>1973530_20250314214509_1.png</strong> (179.3 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 21:52 上传
+
+镜牢成就终于做完了，确实很恶心，有的任务不打六层以上几乎没法做，相当费时。那些编队任务也明显不是给新人做的，宝贵的人格碎片谁去换那些几乎不可能上场的淘汰老人格啊，下周怎么也该有追加任务了吧。<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
