@@ -736,3 +736,13 @@ open ai的CEO雷普他妹
 所以OpenAI是受国家控制的，对吧？</blockquote>
 不，它是梦想控制国家的
 
+
+*****
+
+####  kyomu  
+##### 81#       发表于 2025-3-14 14:21
+
+游说都一个说辞
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

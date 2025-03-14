@@ -1685,3 +1685,54 @@ DE}_2}A[1__WZT9GX@N)}W8.jpg
 
 我以为伏笔指的是祥子发音sakiko而非shouko这个伏笔。
 
+
+*****
+
+####  Hchan  
+##### 37154#       发表于 2025-3-14 14:18
+
+柿本的这段狗爬，想必和山本宽在wug里面的露内裤live一样，本人对这段处理感到相当满意自豪都快爱上自己了，周围人包括声优在内都感到魏大勋吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过我对这两段在欣赏的角度都很喜欢就是了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 37155#       发表于 2025-3-14 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67653837&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-3-14 14:18</a>
+
+等一下，mygo的伏笔在哪里？
+
+我以为伏笔指的是祥子发音sakiko而非shouko这个伏笔。 ...</blockquote>
+就是回忆里黄衣和紫衣两个版本
+
+*****
+
+####  aptx8285144  
+##### 37156#       发表于 2025-3-14 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67653844&amp;ptid=2208921" target="_blank">Hchan 发表于 2025-3-14 14:18</a>
+
+柿本的这段狗爬，想必和山本宽在wug里面的露内裤live一样，本人对这段处理感到相当满意自豪都快爱上自己了 ...</blockquote>
+其实还有一个大问题，邦邦历史上有类似这样🐶爬还演出来的主唱吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  DD-963  
+##### 37157#       发表于 2025-3-14 14:25
+
+话说在BANG的世界观里 音乐是必修课吧 连海岛上的孩子都会作词作曲。
+
+*****
+
+####  结衣小比取  
+##### 37158#       发表于 2025-3-14 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67653859&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-14 14:20</a>
+
+就是回忆里黄衣和紫衣两个版本</blockquote>
+真假三角初华，早在MyGO里就有暗示？
+[https://www.bilibili.com/video/BV1pGRMYuEXC](https://www.bilibili.com/video/BV1pGRMYuEXC)
+
