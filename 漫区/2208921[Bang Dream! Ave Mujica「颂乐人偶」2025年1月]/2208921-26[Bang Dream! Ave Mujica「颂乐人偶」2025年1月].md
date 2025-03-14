@@ -3487,3 +3487,53 @@ MV看了下，无颜的玛利亚原来是指戴上面具的鸡团吗。我还以
 
 感觉可以说超过愚神MV一大截了()
 
+
+*****
+
+####  油画布  
+##### 37313#       发表于 2025-3-14 19:38
+
+ 本帖最后由 油画布 于 2025-3-14 19:41 编辑 
+
+一直在谈寿命是在干什么 直到邦邦企划入土，祥子的年龄都不会超过20
+
+比起遗传病 ，祥子更可能死于柿本广大
+
+*****
+
+####  fufusako  
+##### 37314#       发表于 2025-3-14 19:41
+
+提前剧透的真该死啊，要是没有剧透，现在我应该刚补完11话，开始愉快地翻社区的反应、假药、打脸帖黑泥帖了，结果现在只能看到大量没营养的情绪输出内容，让人毫无浏览欲
+
+
+*****
+
+####  cxj649  
+##### 37315#       发表于 2025-3-14 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67656365&amp;ptid=2208921" target="_blank">油画布 发表于 2025-3-14 19:38</a>
+
+一直在谈寿命是在干什么 直到邦邦企划入土，祥子的年龄都不会超过20
+
+比起遗传病 ，祥子更可能死于柿本广大 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按他们理论，大祥甚至活不过20岁233
+
+他们好像一直压缩祥妈的结婚年龄2233
+
+*****
+
+####  ape-apple  
+##### 37316#       发表于 2025-3-14 19:45
+
+bro觉得没有剧透就能迎来美好未来<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 37317#       发表于 2025-3-14 19:47
+
+只要祥子脱离家族的命运，我相信通过邦世界的krkr魔法就可以让祥子长命百岁的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+我不要黄狗守大半辈子寡啊<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
