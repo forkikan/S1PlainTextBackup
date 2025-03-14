@@ -716,3 +716,13 @@ open ai的CEO雷普他妹
 
 话说幻方未来一个季度内还要发布R2，你这个卷毛鱿豥还是研究下怎么给自己挖坟吧，美国股市上的AI概念现在好几万亿呢，全都药丸。
 
+
+*****
+
+####  月灵银羽  
+##### 79#       发表于 2025-3-14 12:46
+
+建议在模型权重里植入点街头智慧，毕竟现实世界不只有帕罗奥图的天际线<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

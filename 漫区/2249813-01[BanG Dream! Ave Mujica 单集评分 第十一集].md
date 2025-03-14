@@ -3005,3 +3005,11 @@ c83d70cf3bc79f3d69ba6db3a8c0af14738b2944@f_auto.webp
 
 三角初华：这岛来了你就别想走了<img src="https://static.saraba1st.com/image/smiley/carton2017/167.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  默默摸鱼  
+##### 321#       发表于 2025-3-14 12:40
+
++1，一集补满之前初音的戏份，圆了下初华之前的行为逻辑。这独角戏看着观感好不知不觉大半集时间就过去了
+
