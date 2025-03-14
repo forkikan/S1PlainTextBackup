@@ -13663,3 +13663,21 @@ repo说是吉姆太对了，这个墨镜脸白头红身拿光束剑，但凡看�
 
 这个0085是和平年代，称不上收拾残局，渣比家内斗就够了，鸭子要么与自己和解要么是阶段性boss
 
+
+*****
+
+####  lickey  
+##### 8518#       发表于 2025-3-14 21:32
+
+现在最大看点和疑点难道不是官网主页介绍剧情时候那句“接着，世界迎向了新时代。”吗，都迎来了新时代了还能各回各家各找各妈吗，对此表示怀疑<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+*****
+
+####  纪寞  
+##### 8519#       发表于 2025-3-14 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67657049&amp;ptid=2209276" target="_blank">kuriri 发表于 2025-3-14 21:17</a>
+
+这个0085是和平年代，称不上收拾残局，渣比家内斗就够了，鸭子要么与自己和解要么是阶段性boss ...</blockquote>
+扎比家这种反人类的东西还能放着不管，鸭子这仇能和解我都不敢想这片风评会怎么样(虽然他原版79最后够想一出是一出了)
+
