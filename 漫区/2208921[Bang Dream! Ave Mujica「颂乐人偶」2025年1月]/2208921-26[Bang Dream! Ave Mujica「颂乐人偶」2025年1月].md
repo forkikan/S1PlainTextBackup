@@ -3621,3 +3621,37 @@ bro觉得没有剧透就能迎来美好未来<img src="https://static.saraba1st.
 
 主要是不知道12话还有live吗
 
+
+*****
+
+####  林登·万  
+##### 37326#       发表于 2025-3-14 20:11
+
+邦多利企划以来最大粪作   
+
+*****
+
+####  十九号大侠  
+##### 37327#       发表于 2025-3-14 20:11
+
+我就看大家发疯啊
+
+*****
+
+####  刑部姬真可爱  
+##### 37328#       发表于 2025-3-14 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67656514&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-14 20:05</a>
+
+12话也就透了个铁人三项、机场大战吧。
+
+主要是不知道12话还有live吗</blockquote>
+12话不会有live的，我倒是想知道12话会说现在的睦到底是什么情况吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kenqqex  
+##### 37329#       发表于 2025-3-14 20:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卧槽 这个十字架X 的mv 冲击力太强了
+
