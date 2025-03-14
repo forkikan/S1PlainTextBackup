@@ -1405,3 +1405,92 @@ mujica的动画把mujica主唱线淡化放逐到剧场版，还真是十五年�
 但是初华是双子的伏笔在mygo就有
 而且如果初音是精分，柿本就不会把睦是人格分裂这个点子是自己想出来的在访谈大书特书了
 
+
+*****
+
+####  结衣小比取  
+##### 37130#       发表于 2025-3-14 13:30
+
+发张MyGO动画截图
+
+<img src="https://img.saraba1st.com/forum/202503/14/132817xl5vietnjjisvj5l.jpg" referrerpolicy="no-referrer">
+
+<strong>观星.jpg</strong> (131.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 13:28 上传
+
+截图中只有右边在脸红，说明祥子在回家前对于这个幼驯染（初音+初华）的感情并不深厚<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  6030sylar  
+##### 37131#       发表于 2025-3-14 13:31
+
+<img src="https://img.saraba1st.com/forum/202503/14/132900ufh09kycc2narkrf.jpg" referrerpolicy="no-referrer">
+
+<strong>c45d36c0cc5df5955ae9c98581476363.jpg</strong> (46.17 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 13:29 上传
+
+<img src="https://img.saraba1st.com/forum/202503/14/132905ta65s52em52dez4d.jpg" referrerpolicy="no-referrer">
+
+<strong>b4088f952f12d00486cfba536b08d405.jpg</strong> (48.34 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 13:29 上传
+
+<img src="https://tiebapic.baidu.com/forum/pic/item/48229cd02f2eb938fca35ede93628535e4dd6f12.jpg?tbpicau=2025-03-25-05_74a7d0e378236ceaf47118cd51f914c8" id="aimg_hEIKj" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+
+*****
+
+####  takerest  
+##### 37132#       发表于 2025-3-14 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67652381&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-14 11:37</a>
+
+主要是初音本身就活在自己悲情女主角的世界里，即使这样祥子也编曲回了一点箭头，愿意好好相处的灯祥就很 ...</blockquote>
+别贷款了，蚀本笔下有健康的女女关系吗？
+
+*****
+
+####  天空塔书记官  
+##### 37133#       发表于 2025-3-14 13:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  聊nsy专用号  
+##### 37134#       发表于 2025-3-14 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67653055&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-14 12:46</a>
+然而原动画有大约30分钟左右的时间已经开启母鸡卡的剧情了，想切割两部动画几乎做不到，能切割的只有两个 ...</blockquote>
+狗两部剧场版几乎没有鸡的戏份，切割派可以买bd回去供起来
+
+*****
+
+####  DD-963  
+##### 37135#       发表于 2025-3-14 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67652612&amp;ptid=2208921" target="_blank">MuramasaSP 发表于 2025-3-14 11:59</a>
+
+现在的祥子和初华确实很配。
+
+两个人都是把自己想象成悲剧女主角。不同在于，初华想要的是别人的认可和救赎 ...</blockquote>
+祥子原本应该拯救睦，但睦的坏掉她自己也有责任，而且拯救失败，现在有喵梦接盘了。于是只能拯救自己觉得对她不亏欠的初华
+
+*****
+
+####  DD-963  
+##### 37136#       发表于 2025-3-14 13:37
+
+现在想想第一集，祥子和初华水边对话，祥子才是那个被骗买了假水晶的人
+

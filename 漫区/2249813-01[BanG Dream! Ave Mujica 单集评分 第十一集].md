@@ -3051,3 +3051,69 @@ c83d70cf3bc79f3d69ba6db3a8c0af14738b2944@f_auto.webp
 不是，祥子爹颓废是因为死了老婆加上被骗，跟你三角初音是祥子爷私生子有鸡毛关系啊，三角初音搁那嚎“是我夺走了祥子的父亲”是什么脑回路才能想出来的台词…跟祥子玩了一天就爱的欲生欲死的，除了祥子真是魅魔之外也没办法好解释了，那真初华怎么不杀出小岛横刀夺爱呢
         独角剧形式真先锋吗?…银河美少年快结局时那场星间飞行的话剧连带着交待背景跟承上启下开启最终决战不比这拙劣的站那框框补设定高多少个档次，玩别人玩剩下的也玩不好<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  雪菜碧池  
+##### 326#       发表于 2025-3-14 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67650338&amp;ptid=2249813" target="_blank">Victorino 发表于 2025-3-14 08:20</a>
+
+但是，和祥子初遇的那个时间段，有个台词明确说了姐姐初音的零食又多又是喜欢吃的，妹妹真初华的零食只是 ...</blockquote>
+不让初音靠近别墅也是区别对待啊
+
+因为我不是亲生的所以对我特别好
+
+因为我不是亲生的所以对我不好
+
+这两种想法都很常见
+
+或者就算很好我也想找到亲生父母
+
+*****
+
+####  rp1993  
+##### 327#       发表于 2025-3-14 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67652696&amp;ptid=2249813" target="_blank">sheshiro 发表于 2025-3-14 12:07</a>
+三角初华：这岛来了你就别想走了</blockquote>
+初音岛是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sheshiro  
+##### 328#       发表于 2025-3-14 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67653464&amp;ptid=2249813" target="_blank">rp1993 发表于 2025-3-14 13:30</a>
+
+初音岛是吧</blockquote>
+初音岛又名六轩岛，不仅有很多可爱的少女，邦多利的启动资金就来自于此<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  -SLSL-  
+##### 329#       发表于 2025-3-14 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67653419&amp;ptid=2249813" target="_blank">Mitiru 发表于 2025-3-14 13:23</a>
+
+不是，祥子爹颓废是因为死了老婆加上被骗，跟你三角初音是祥子爷私生子有鸡毛关系啊，三角初音搁那嚎“是我 ...</blockquote>
+都不用跟神话前夜比
+
+star driver ep.20 同样几乎整回独白，同样狗血剧情大爆特爆，表现力上就是甩了母鸡卡十万八千里
+
+*****
+
+####  chdhdhd  
+##### 330#       发表于 2025-3-14 13:37
+
+我没看这部动画，也没看其他同宇宙作品和相关讨论
+
+所以也没有投票污染统计结果
+
+但近期啊B首页推送了mv的全员奔跑和最新一集爬行的bb剧场
+
+对剧情一无所知的情况下，也能感觉到透出屏幕的感染力，能感觉到正统派的无厘头气质
+
+虽然不知道原本发的人是不是带着恶意，算是给我贡献了一小段微妙快乐时光
+
