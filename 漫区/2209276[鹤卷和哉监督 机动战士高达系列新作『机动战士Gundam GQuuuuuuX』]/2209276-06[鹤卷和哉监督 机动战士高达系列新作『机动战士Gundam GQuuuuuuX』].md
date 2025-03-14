@@ -13785,3 +13785,25 @@ GQuuuuuuX到底是什么意思
 扎比家这种反人类的东西还能放着不管，鸭子这仇能和解我都不敢想这片风评会怎么样(虽然他原版79最后够想 ...</blockquote>
 大部分人不会在乎扎比家怎么样，要说反人类逆袭的夏亚最反人类
 
+
+*****
+
+####  纪寞  
+##### 8525#       发表于 2025-3-14 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67657309&amp;ptid=2209276" target="_blank">kuriri 发表于 2025-3-14 22:08</a>
+
+大部分人不会在乎扎比家怎么样，要说反人类逆袭的夏亚最反人类</blockquote>
+鹤卷没那胆子去让夏亚和扎比家的事和解，这种东西只能让富野来写，访谈也说了他不敢变动夏亚的人设，他知道会有很多老粉炎上的，这比写烂主角3人故事更严重。
+
+*****
+
+####  童话与星空  
+##### 8526#       发表于 2025-3-14 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67657369&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-3-14 22:19</a>
+鹤卷没那胆子去让夏亚和扎比家的事和解，这种东西只能让富野来写，访谈也说了他不敢变动夏亚的人设，他知 ...</blockquote>
+其实可以让基连和紫婆同归于尽
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
