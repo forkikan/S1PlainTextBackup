@@ -2926,3 +2926,59 @@ chuchu大人/祥子对不起
 花冬的问题不全是志水是个废物吗，春的时候就能把女主角写成一个仿佛进入女校的童贞男，跟拳击手想做的属于 ...</blockquote>
 冬篇比较难绷的还是安排了老八和nln回来装逼，搞得像学校有什么黑幕把勾老师抓去喝中药了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  木板春香  
+##### 37265#       发表于 2025-3-14 17:38
+
+<img src="https://img.saraba1st.com/forum/202503/14/173843nhprpsh7yz6fzz3k.jpg" referrerpolicy="no-referrer">
+
+<strong>WWIKV7SCJT}{~JP]O2PZE]2_tmb.jpg</strong> (221.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 17:38 上传
+
+
+*****
+
+####  聋与唬  
+##### 37266#       发表于 2025-3-14 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67655166&amp;ptid=2208921" target="_blank">ziqing 发表于 2025-3-14 17:02</a>
+真初华说不定坟头草已经三米高了，又或者直接成背景板挖坑不埋
+
+—— 来自 Xiaomi 24129PN74C, Android 15 ...</blockquote>
+那这是什么狗屎都合剧情，为了让初华不给初音惹麻烦直接给写死？
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  天空塔书记官  
+##### 37267#       发表于 2025-3-14 17:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  聋与唬  
+##### 37268#       发表于 2025-3-14 17:45
+
+初华也到了可以当偶像了年纪了，为什么没有来东京？
+初华和初华母也在丰川的大手下不幸遇难了？
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  蓮華  
+##### 37269#       发表于 2025-3-14 17:47
+
+拳击手在搞花第一作的时候说想搞
+狂気に満ちた殺伐とした百合とかもやってみたいので
+来着
+
