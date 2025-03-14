@@ -4481,3 +4481,15 @@ X最早封面像是肺部X光片。
 
 这年头即使不是少女乐队也鲜有敢这么干的原创动画编剧
 
+
+*****
+
+####  哌啶  
+##### 37404#       发表于 2025-3-15 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67657917&amp;ptid=2208921" target="_blank">qiyu1234 发表于 2025-3-15 00:12</a>
+这剧最后如果真敢做 初音换心去世 初华替代入队 那我给这剧打+2</blockquote>
+心脏要逃走了
+
+—— 来自 nubia NX733J, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
