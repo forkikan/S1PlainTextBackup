@@ -13605,3 +13605,46 @@ repo说是吉姆太对了，这个墨镜脸白头红身拿光束剑，但凡看�
 
 这让我很高兴，因为当时并没有想到会有商品化的可能。
 
+
+*****
+
+####  纪寞  
+##### 8512#       发表于 2025-3-14 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67656893&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-3-14 20:54</a>
+
+父母都出场的骡子一定回归机械宅生活了吧？
+
+鸭子如果真融进红高，那他基本不可能取回肉体，那样丽塔和约 ...</blockquote>
+玛秋那个不一样，她的家庭很和谐，和骡子那个家庭完全不一样，而且没感觉会往那种氛围塑造。
+
+鸭子肯定是要回来的，不然谁打扎比家和收拾残局。而且塞可缪如果真没吃肉体的话，那我觉得我曾经说的灵魂交换也有可能。
+
+主角团肯定是有人要走的，哪怕op的plazma都是这样的感觉。
+
+*****
+
+####  YU_JI  
+##### 8513#       发表于 2025-3-14 21:03
+
+麻球这么个以“打破日常，寻求刺激”当驱动力的角色，如果忙活了12集无事发生一样回归日常，那我觉得我12集会看了个寂寞
+
+
+*****
+
+####  王留美  
+##### 8514#       发表于 2025-3-14 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67656427&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-3-14 19:53</a>
+ 确实是自护吉姆吧，那个脸还是能认出来的</blockquote>
+背包不像……
+
+*****
+
+####  王留美  
+##### 8515#       发表于 2025-3-14 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67656442&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-3-14 19:56</a>
+ 杂兵色那台应该是量产高达，领口部位的结构和79那个镜头差不多，但魔女这台好像稍微有点不一样，应该是和塞 ...</blockquote>
+两台从肩膀手臂看造型是一样的
+
