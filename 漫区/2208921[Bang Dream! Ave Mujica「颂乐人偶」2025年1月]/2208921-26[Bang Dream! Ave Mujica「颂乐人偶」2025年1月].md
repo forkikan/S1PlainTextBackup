@@ -2205,3 +2205,100 @@ DE}_2}A[1__WZT9GX@N)}W8.jpg
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  adretyu67.  
+##### 37200#       发表于 2025-3-14 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67654439&amp;ptid=2208921" target="_blank">影伴光生 发表于 2025-3-14 15:27</a>
+
+其实把甜甜圈抓过来就好了，ave mujica和sumimi的问题都解决了——至于初双子，祝她们幸福
+
+—— 来自 鹅 ...</blockquote>
+甜甜圈不会作词，不掌握核心科技啊
+
+
+*****
+
+####  Lyzers  
+##### 37201#       发表于 2025-3-14 15:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在还在大祥怎么怎么了真的有点几把搞笑了吧
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那大祥这里抽个时间问一句“睦头你怎么样啦，喝热水了吗“这一集就一下子正常了是吗？
+
+*****
+
+####  影伴光生  
+##### 37202#       发表于 2025-3-14 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67654447&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-14 15:28</a>
+甜甜圈不会作词，不掌握核心科技啊</blockquote>
+作词逮住企鹅人接着薅吧
+难不成接着给金毛的黑暗深邃幻想歌词作曲吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  adretyu67.  
+##### 37203#       发表于 2025-3-14 15:30
+
+大祥这话最搞笑的不是连是谁打来的电话都分不清吗。
+
+虽然手机上写的来电人丰川祥子，我打电话给我自己<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 37204#       发表于 2025-3-14 15:31
+
+11话节奏榜
+
+<img src="https://img.saraba1st.com/forum/202503/14/153144s4vvw34eujz74g8m.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (151.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 15:31 上传
+
+*****
+
+####  甲鱼  
+##### 37205#       发表于 2025-3-14 15:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202503/14/153116usz7nttuvovsuo2o.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1741936937583.png</strong> (17.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 15:31 上传
+
+*****
+
+####  是谁的书画  
+##### 37206#       发表于 2025-3-14 15:32
+
+只是剧本没说，你怎么可以假定mana这个人就心理纯洁了
+
+在这个片场，无论是谁都会走向痛苦，只不过聚光灯照不照的到罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  影伴光生  
+##### 37207#       发表于 2025-3-14 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67654471&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-14 15:32</a>
+只是剧本没说，你怎么可以假定mana这个人就心理纯洁了
+
+在这个片场，无论是谁都会走向痛苦，只不过聚光灯照 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">轮换到没有神人为止——看来是做不到了，那🐘还是做枕头公主去吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
