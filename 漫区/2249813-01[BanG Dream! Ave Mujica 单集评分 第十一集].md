@@ -2927,3 +2927,17 @@ c83d70cf3bc79f3d69ba6db3a8c0af14738b2944@f_auto.webp
 
 <img src="https://img.saraba1st.com/forum/202503/14/101346hixiobotttibs6v6.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  小妻水亚美  
+##### 313#       发表于 2025-3-14 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67651398&amp;ptid=2249813" target="_blank">IL282 发表于 2025-3-14 10:13</a>
+独角兽欺负日本人绝对不会看中国近代话剧，自己看完雷雨抄了人物关系准备打个信息差给日本人开开眼
+
+那么， ...</blockquote>
+把观众雷死了
+
+—— 来自 OPPO PGFM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
