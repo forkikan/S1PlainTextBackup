@@ -86,3 +86,13 @@ ChroNoiR 1st Mini Album 15232，没抽选好低
 后来被虹夺走搞成了虹甲
 该还原了
 
+
+*****
+
+####  zhrs456  
+##### 1044#       发表于 2025-3-14 10:09
+
+虹夺走的吗？那天开干嘛去当虹甲主催而不是HO甲呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
