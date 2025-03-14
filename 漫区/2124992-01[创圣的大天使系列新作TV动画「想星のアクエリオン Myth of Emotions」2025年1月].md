@@ -139,3 +139,13 @@
 
 展开总有点联想到noein 就是没那么狗血
 
+
+*****
+
+####  wolf1997  
+##### 286#       发表于 2025-3-15 02:03
+
+[AKINO from bless4 - 創聖のアクエリオン / THE FIRST TAKE](https://www.bilibili.com/video/BV1i7Q6Y5ESd)
+
+刚刚出的TFT版创圣，AKINO虽然老了，但还是听得很感动
+
