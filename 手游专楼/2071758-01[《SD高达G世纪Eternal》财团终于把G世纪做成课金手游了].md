@@ -101,3 +101,27 @@ DD前有个X-Ω
 
 起码把OG3出了后再死吧....等了多少年了
 
+
+*****
+
+####  plok201  
+##### 104#       发表于 2025-3-14 23:22
+
+官方更新了关于氪金的信息，3种用途，抽卡，回体力，还有个扩大仓库
+
+前2个没啥好说的，仓库是每个人有1000个位置，官方说法是高达45年历史太长咯，要出的机很多，服务器顶不住，只能给个限制了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+然后开发系统没有氪金要素，机体那边不会出现不氪金就用不了特定武器的情况，用的比喻是开发的自由和EX自由都有五彩
+
+初期普池EX14台
+
+<img src="https://img.saraba1st.com/forum/202503/14/231824an4e6vfqi4qqpqtt.png" referrerpolicy="no-referrer">
+
+<strong>434.png</strong> (118.18 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 23:18 上传
+
+有地形要素的话，那抽个自由开最稳？
+
