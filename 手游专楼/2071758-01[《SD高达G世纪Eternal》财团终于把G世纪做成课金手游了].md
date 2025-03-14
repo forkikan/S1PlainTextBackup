@@ -88,3 +88,16 @@ DD前有个X-Ω
 
 等具体上线时间了，这个拖得有够长
 
+
+*****
+
+####  森兰丸  
+##### 103#       发表于 2025-3-14 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67650957&amp;ptid=2071758" target="_blank">HEERO.W 发表于 2025-3-14 09:30</a>
+
+看看机战手游一个接一个，主机4年了还没新作公布，现在有了SD手游，以后你认识的SD可能永远的再见了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种事不要啊..........
+
+起码把OG3出了后再死吧....等了多少年了
+

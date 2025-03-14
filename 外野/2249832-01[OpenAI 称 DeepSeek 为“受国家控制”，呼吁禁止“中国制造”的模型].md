@@ -783,3 +783,14 @@ GROK可没有像opanai，谷歌，claude一样限制大陆，香港，澳门地�
 
 所以ds啊，你也要争点气，不要遵守openAI制定的规则了
 
+
+*****
+
+####  厚乳果珍爽  
+##### 86#       发表于 2025-3-14 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67652022&amp;ptid=2249832" target="_blank">chuchoselph 发表于 2025-3-14 11:06</a>
+
+这种反dei就大可不必了，厨子也是给，没见一天到晚像奥特曼一样犯贱</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">讲道理，ios就不恶心吗？
+
