@@ -2896,3 +2896,16 @@ chuchu大人/祥子对不起
 其实这一话出来很多人是吃这种写法的。</blockquote>
 觉得偷走妹妹名字的初音很懂事的这辈子有了，哪天高考被别人顶包了就老实了
 
+
+*****
+
+####  钦念以忱  
+##### 37262#       发表于 2025-3-14 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67655223&amp;ptid=2208921" target="_blank">秋月艾莉 发表于 2025-3-14 17:08</a>
+
+这狗爬第一眼就想起这个，日本人最爱的表现力，00:51起名场面
+
+如果不是前面翻得厉害观众出脑严重，应该是会 ...</blockquote>
+好歹找了个男人，没让主唱亲自爬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
