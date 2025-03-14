@@ -582,3 +582,34 @@ chatgpt又取消思考按钮了
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  シャル  
+##### 68#       发表于 2025-3-14 11:14
+
+<blockquote>ggghhtjjjfla 发表于 2025-3-14 09:02
+奥特曼雷普自己妹妹的官司打完了吗</blockquote>
+没打完吧
+
+这人真有病，从妹妹3岁起就开始
+
+*****
+
+####  Humpy  
+##### 69#       发表于 2025-3-14 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67650637&amp;ptid=2249832" target="_blank">wjxforever 发表于 2025-3-14 08:57</a>
+这货不会以为把deepseek禁了大家就会回去用他那个贵一百倍的gpt4.5了吧</blockquote>
+也不是，我认识的人里也有很多人宁可交钱也不用国产ai的。
+
+Openai还是能继续挣这些人的钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xell2alex  
+##### 70#       发表于 2025-3-14 11:22
+
+话说，closeAI之前说要开放成人内容的盘外招后来咋说了？怎么大家都在赞美马国师的GROK，没人在乎closeAI这那的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

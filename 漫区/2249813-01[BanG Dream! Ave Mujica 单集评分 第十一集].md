@@ -2971,3 +2971,11 @@ c83d70cf3bc79f3d69ba6db3a8c0af14738b2944@f_auto.webp
 
 — from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  thinter  
+##### 317#       发表于 2025-3-14 11:18
+
+其实我还是比较喜欢这集的剧情，给出了初华这么变态的原因，虽说来的太晚了。但这演出方式太烂了，前面的少女歌剧珠玉在前，抄都抄不明白。<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+

@@ -613,3 +613,73 @@
 
 [https://x.com/meu203/status/1896888525125288390/photo/1](https://x.com/meu203/status/1896888525125288390/photo/1)
 
+
+*****
+
+####  半年  
+##### 37053#       发表于 2025-3-14 11:17
+
+<img src="https://img.saraba1st.com/forum/202503/14/111657pjyjq5bhn3dyjnqy.jpg" referrerpolicy="no-referrer">
+
+<strong>Gl7xPJ3bYAAp9b2.jpg</strong> (297.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 11:16 上传
+
+[https://x.com/Gemini_mujou/status/1900221346434675075/photo/1](https://x.com/Gemini_mujou/status/1900221346434675075/photo/1)
+
+*****
+
+####  南宮凝香  
+##### 37054#       发表于 2025-3-14 11:19
+
+<blockquote>adretyu67. 发表于 2025-3-14 11:15
+老登把自己的合法性证明丢在外面一年不管。
+
+要么说明他心大的有点夸张，要么说明丰川家女人的基因确实厉害 ...</blockquote>
+還好小祥是女姛
+
+不然一年後回去就有個小登出現跟老中雙登組成廢物三人眾了
+
+*****
+
+####  蓮華  
+##### 37055#       发表于 2025-3-14 11:19
+
+我看这丰川集团真交到大祥手里也算是彻底完球了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ntrntr1  
+##### 37056#       发表于 2025-3-14 11:21
+
+<blockquote>syndrome2032 发表于 2025-3-14 08:49
+你们这是动画诶。11话搞个独角戏是什么新式动画实验吗。
+
+我最早还以为舞台剧怎么也是走马灯二人转，结果就 ...</blockquote>
+你就说有没有省到钱吧
+
+
+*****
+
+####  影伴光生  
+##### 37057#       发表于 2025-3-14 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67652178&amp;ptid=2208921" target="_blank">蓮華 发表于 2025-3-14 11:19</a>
+我看这丰川集团真交到大祥手里也算是彻底完球了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">吸引神人的体质不知道适合干哪行
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  takerest  
+##### 37058#       发表于 2025-3-14 11:25
+
+<blockquote>南宮凝香 发表于 2025-3-14 11:19
+還好小祥是女姛
+
+不然一年後回去就有個小登出現跟老中雙登組成廢物三人眾了 ...</blockquote>
+小祥是女同吗？你看她对初音那嫌弃的眼神再好好想想（乐）
+
