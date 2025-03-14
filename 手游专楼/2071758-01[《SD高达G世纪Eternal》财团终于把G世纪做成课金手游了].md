@@ -48,3 +48,16 @@
 
 这还是我认识的SD钢普拉吗..........
 
+
+*****
+
+####  HEERO.W  
+##### 99#       发表于 2025-3-14 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67640023&amp;ptid=2071758" target="_blank">森兰丸 发表于 2025-3-13 02:23</a>
+
+看到又是战斗力又是熟悉的5人配队这熟悉的手游界面麻了
+
+这还是我认识的SD钢普拉吗.......... ...</blockquote>
+看看机战手游一个接一个，主机4年了还没新作公布，现在有了SD手游，以后你认识的SD可能永远的再见了
+

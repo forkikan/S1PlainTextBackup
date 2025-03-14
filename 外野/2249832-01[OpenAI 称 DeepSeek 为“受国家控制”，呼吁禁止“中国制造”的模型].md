@@ -419,3 +419,21 @@ Close AI不让中国人用是因为他是土生土长的美国企业有一颗美
 Deepseek让美国人用显然就是因为他被邪恶的CN政府控制失去了中国心<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 别的不说，奥特曼逻辑确实是自洽的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  onezeron  
+##### 49#       发表于 2025-3-14 09:27
+
+我特别喜欢这种新闻，就是因为他展示了世界真实的一面，
+
+我最烦的就是一群臭傻逼跟我讲什么正义自由，自己却一坨屎
+
+
+*****
+
+####  dfbbymice  
+##### 50#       发表于 2025-3-14 09:30
+
+我觉得可以有一个爆论，凡是牢美公开反对的论调，都是他们正在台下偷偷干的事情<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
