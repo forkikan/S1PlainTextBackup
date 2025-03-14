@@ -96,3 +96,13 @@ ChroNoiR 1st Mini Album 15232，没抽选好低
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  poipanchao  
+##### 1045#       发表于 2025-3-14 11:04
+
+v甲是第二届了，原始宣称不说五五开，大福至少也有4成吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

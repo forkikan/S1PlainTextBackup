@@ -409,3 +409,121 @@
 哪怕是藏不住拖油瓶的身份，但是直接告诉初音亲爹是谁，还跑到有丰川家大豪斯的地方定居，还告诉初音你的同龄侄女大祥来岛上玩了，但是你不准见她
 初音妈这一串行为本身就很抽象，感觉比把女儿当怪物的美奈美还拟人
 
+
+*****
+
+####  adretyu67.  
+##### 37039#       发表于 2025-3-14 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67651910&amp;ptid=2208921" target="_blank">北条早苗 发表于 2025-3-14 10:54</a>
+
+哪怕是藏不住拖油瓶的身份，但是直接告诉初音亲爹是谁，还跑到有丰川家大豪斯的地方定居，还告诉初音你的同 ...</blockquote>
+初音妈应该是岛民，然后在丰川家的别墅工作。
+
+所以问题不是跑到，而是没离开。
+
+这一系列操作有点特意在火药桶边上点火了。
+
+*****
+
+####  摘星独角兽  
+##### 37040#       发表于 2025-3-14 10:57
+
+又幻想了，幻想自己是顶级财阀可以只手遮天，开着迈巴赫把私生女接回去享福，，，
+
+<img src="https://p.sda1.dev/22/fd75b7eed4996093224cefa6275d340a/Snipaste_2025-03-14_10-56-11.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  6030sylar  
+##### 37041#       发表于 2025-3-14 10:58
+
+ 本帖最后由 6030sylar 于 2025-3-14 11:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649449&amp;ptid=2208921" target="_blank">黑圆桌 发表于 2025-3-14 00:54</a>
+
+为什么我进这个网址就没乱码，要怎样才能看得到？
+
+想试试解码一下，感觉可能是UTF8和Shift-JIS的转换</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202503/14/105555iyq3515r55b3y6ww.png" referrerpolicy="no-referrer">
+
+<strong>55d7e1d7a637a02c3df244a1b8bf99bc.png</strong> (4.56 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 10:55 上传
+
+<img src="https://img.saraba1st.com/forum/202503/14/110001o0rffci4jjfrf4o6.png" referrerpolicy="no-referrer">
+
+<strong>bc0f6aca678a4f0191089c2bb65d11f0.png</strong> (2.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 11:00 上传
+
+*****
+
+####  半年  
+##### 37042#       发表于 2025-3-14 11:01
+
+<img src="https://img.saraba1st.com/forum/202503/14/110100gm8ld2smm2kr6smk.jpg" referrerpolicy="no-referrer">
+
+<strong>Gl7sPVUbYAQHcKQ.jpg</strong> (587.16 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 11:01 上传
+
+[https://x.com/Popstar88271370/status/1900215867591561289/photo/1](https://x.com/Popstar88271370/status/1900215867591561289/photo/1)
+
+*****
+
+####  老贝  
+##### 37043#       发表于 2025-3-14 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67651929&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-14 10:57</a>
+
+初音妈应该是岛民，然后在丰川家的别墅工作。
+
+所以问题不是跑到，而是没离开。</blockquote>
+
+初音自己描述父亲是有想过把母女接到东京去，但母亲拒绝了。
+
+明明是为了不给老登添麻烦但却没选择离开，感觉只有老登有手段不让母女走才能解释了。
+
+
+*****
+
+####  adretyu67.  
+##### 37044#       发表于 2025-3-14 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67651970&amp;ptid=2208921" target="_blank">老贝 发表于 2025-3-14 11:01</a>
+
+初音自己描述父亲是有想过把母女接到东京去，但母亲拒绝了。
+
+明明是为了不给老登添麻烦但却没选择离开， ...</blockquote>
+这些是事外逻辑，讨论起来有问题但是应该不会补了。
+
+*****
+
+####  Victorino  
+##### 37045#       发表于 2025-3-14 11:03
+
+初音在养父葬礼当天上京这件事，感觉要成为永远的角色黑点了
+
+仔细想想的话，当晚亲妈发现初音走了，应该就已经一个电话打给老登了吧，所以才会光速遇到win wing production的星探，光速遇到满级号mana当陪读，光速在有中登出席的仪式上出道
+
+感觉就算初音自己不说，中登也能自己早就料到她的真实身份是谁，老登怎么可能花这么大力气下这么多资源捧一个远方小岛上的太子伴读，除非这个「太子伴读」自己就是个亲生公主
+
+*****
+
+####  adretyu67.  
+##### 37046#       发表于 2025-3-14 11:04
+
+我觉得就目前中登傻白甜的定位，他可能真没想到。
+
+角色黑点就没办法了，鸡团几个有白的吗。
+
+这话镜头都抠成这样，12话会舍得给初音妈和真初音人设吗。
+
