@@ -295,3 +295,117 @@
 这难道不也是一种心理上追逐根本不存在的 ...</blockquote>
 你要是真的关注百合作品就能知道，豚豚称得上大败的并不多，从大面上看蒜反而引来更多观众看女女关系性，结尾烂那肯定没办法，但鸡是复合了热门+全女+彻底剧情崩坏，带来的影响我是觉得比其他作品要大的
 
+
+*****
+
+####  adretyu67.  
+##### 37031#       发表于 2025-3-14 10:47
+
+ 本帖最后由 adretyu67. 于 2025-3-14 10:50 编辑 
+
+小岛差不多可以当成日式乡村的变种产物。
+
+这种情况下初音的私生子身份是藏不住的，即使母亲不说邻里之间也会互相传。能藏住的最多只能到爹是谁。
+
+不过实际上爹是谁也没藏住。
+
+还是接受初音先天脑子有病好点吧。
+
+
+*****
+
+####  半年  
+##### 37032#       发表于 2025-3-14 10:50
+
+<img src="https://img.saraba1st.com/forum/202503/14/105050u9g7g41ua1xziquu.jpg" referrerpolicy="no-referrer">
+
+<strong>Gl8CpaqacAAoOS2.jpg</strong> (456.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 10:50 上传
+
+[https://x.com/zhanzhangzlw/status/1900240860387959247/photo/1](https://x.com/zhanzhangzlw/status/1900240860387959247/photo/1)
+
+*****
+
+####  半年  
+##### 37033#       发表于 2025-3-14 10:52
+
+<img src="https://img.saraba1st.com/forum/202503/14/105215caceabdx94b1g2ra.jpg" referrerpolicy="no-referrer">
+
+<strong>Gl7LIS6XwAA_89R.jpg</strong> (354.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 10:52 上传
+
+[https://x.com/ra661t_/status/1900179456142303296/photo/1](https://x.com/ra661t_/status/1900179456142303296/photo/1)
+
+*****
+
+####  adretyu67.  
+##### 37034#       发表于 2025-3-14 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67651737&amp;ptid=2208921" target="_blank">老贝 发表于 2025-3-14 10:42</a>
+
+初音妈好像真的从小就讲过这事了。
+
+一般正常来讲成年之前这种事都是尽量避开的。不过初音妈是丰川家佣人估 ...</blockquote>
+初音妈如果想远离这一切最好的办法就是搬家，留在岛上就是错的。
+
+*****
+
+####  半年  
+##### 37035#       发表于 2025-3-14 10:53
+
+<img src="https://img.saraba1st.com/forum/202503/14/105348sgvvdzkyawvf37vk.jpg" referrerpolicy="no-referrer">
+
+<strong>Gl7OoHbbYAQvaUC.jpg</strong> (98.64 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 10:53 上传
+
+<img src="https://img.saraba1st.com/forum/202503/14/105348lcvfoalsfgqh1c38.jpg" referrerpolicy="no-referrer">
+
+<strong>Gl7OoHYbYAIZbW6.jpg</strong> (108.53 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 10:53 上传
+
+[https://x.com/matuken76h/status/1900183286980501902/photo/2](https://x.com/matuken76h/status/1900183286980501902/photo/2)
+
+*****
+
+####  半年  
+##### 37036#       发表于 2025-3-14 10:54
+
+<img src="https://img.saraba1st.com/forum/202503/14/105420u54dxrjijjrp4ipl.jpg" referrerpolicy="no-referrer">
+
+<strong>Gl7DvqkXsAEON-L.jpg</strong> (198.32 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 10:54 上传
+
+[https://x.com/lunafeast/status/1900171320500875371/photo/1](https://x.com/lunafeast/status/1900171320500875371/photo/1)
+
+*****
+
+####  老贝  
+##### 37037#       发表于 2025-3-14 10:54
+
+初音自己的描述里，养父和母亲明显是有对初音补偿性质的偏爱的。零食给的都比初华多，零花钱也够初音攒下来一个人去东京。
+
+不过对于有成为悲情女主角情节的初音来说，更多的爱估计只会让她觉得自己更为可怜，更加向往享有幸福生活的丰川祥子了。
+
+*****
+
+####  北条早苗  
+##### 37038#       发表于 2025-3-14 10:54
+
+哪怕是藏不住拖油瓶的身份，但是直接告诉初音亲爹是谁，还跑到有丰川家大豪斯的地方定居，还告诉初音你的同龄侄女大祥来岛上玩了，但是你不准见她
+初音妈这一串行为本身就很抽象，感觉比把女儿当怪物的美奈美还拟人
+

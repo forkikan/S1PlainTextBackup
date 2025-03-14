@@ -512,3 +512,26 @@ R2还没出来就急成这样了<img src="https://static.saraba1st.com/image/smi
 
 我有一技，只要美国和世界其他国家硬断网，闭关锁国，这样赛里斯就不会影响到了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星花  
+##### 60#       发表于 2025-3-14 10:47
+
+说明技术出问题了呗。
+
+*****
+
+####  logiccat  
+##### 61#       发表于 2025-3-14 10:48
+
+closeAI你这公关团队是不是从meta跳来的？怎么味儿都一样……<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  炽十二翼  
+##### 62#       发表于 2025-3-14 10:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">敌人急了，说明做对了
+
