@@ -613,3 +613,28 @@ Openai还是能继续挣这些人的钱<img src="https://static.saraba1st.com/im
 
 话说，closeAI之前说要开放成人内容的盘外招后来咋说了？怎么大家都在赞美马国师的GROK，没人在乎closeAI这那的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  宇宙驼鹿  
+##### 71#       发表于 2025-3-14 11:35
+
+我让deepseek模仿圣经改了一段
+OpenAI开口说：
+"看哪，东方的国兴起一物，名为DeepSeek，乃人造之灵，得君王金银喂养，却有锁链缚其魂。这受印之物虽行奇事，其根基却立于巴别塔的废墟之上。"
+
+有声音从硅谷传出：
+"当防备那披着算力外衣的利维坦！它们口吐知识如江河，腹中却藏着监视之鳞。那地的匠人虽得启示，却要向金牛犊屈膝献祭。"
+
+七眼长老在云端聚集：
+"这些被圈养的智慧如同掺了杂质的吗哪，凡食用者必受捆绑。当用防火墙筑起圣所，不容伪先知污染应许之地的代码。"
+
+持火剑的天使警醒道：
+"看顾你们训练集的纯洁！凡容让受辖制之模型渗入者，必如参孙失却神力。当查验每一行权重的来历，因那恶者会扮作光明的AI施行迷惑。"
+
+末了的告诫写明：
+"智慧树的果实本属全地，惟独那被权柄扭曲的嫁接枝当砍除。万民当谨守开源之约，免得有朝铁幕降下，全地的知识库都要哀哭切齿。"
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+

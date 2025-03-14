@@ -683,3 +683,88 @@
 不然一年後回去就有個小登出現跟老中雙登組成廢物三人眾了 ...</blockquote>
 小祥是女同吗？你看她对初音那嫌弃的眼神再好好想想（乐）
 
+
+*****
+
+####  takerest  
+##### 37059#       发表于 2025-3-14 11:28
+
+<blockquote>老贝 发表于 2025-3-14 10:54
+初音自己的描述里，养父和母亲明显是有对初音补偿性质的偏爱的。零食给的都比初华多，零花钱也够初音攒下来 ...</blockquote>
+越这样找补越显得初华骂得对了，纯白眼狼啊！
+
+*****
+
+####  是谁的书画  
+##### 37060#       发表于 2025-3-14 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67652237&amp;ptid=2208921" target="_blank">takerest 发表于 2025-3-14 11:25</a>
+
+小祥是女同吗？你看她对初音那嫌弃的眼神再好好想想（乐）</blockquote>
+上一集应该不完全是，下一集应该是了，转变就在这一集，所以接不接受就看个人口味了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 37061#       发表于 2025-3-14 11:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，你们到底在搞毛啊
+
+*****
+
+####  takerest  
+##### 37062#       发表于 2025-3-14 11:29
+
+<blockquote>是谁的书画 发表于 2025-3-14 11:28
+上一集应该不完全是，下一集应该是了，转变就在这一集，所以接不接受就看个人口味了 ...</blockquote>
+自适应的性取向，这就是我们蚀本鸽鸽和独角兽🦄阿姨对女女关系性的妙解啊！
+
+*****
+
+####  真爱与热情  
+##### 37063#       发表于 2025-3-14 11:30
+
+祥子就是女同，跟初音也没关系，她很明显跟灯是双向箭头
+
+*****
+
+####  adretyu67.  
+##### 37064#       发表于 2025-3-14 11:30
+
+能整出完全反常理的剧本，确实是我上我也行。
+
+*****
+
+####  肛之练筋士  
+##### 37065#       发表于 2025-3-14 11:30
+
+<img src="https://img.saraba1st.com/forum/202503/14/112950fg8vsslsvq0vsvsl.png" referrerpolicy="no-referrer">
+
+<strong>2025-3-14 11-29-0.png</strong> (78.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 11:29 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">这下真的看出工伤了，猫猫头能找wsd报销吗
+
+*****
+
+####  蒹葭公子  
+##### 37066#       发表于 2025-3-14 11:30
+
+[@小萱菜](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=561766) [@织部琴音](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=242826) [@挺好的](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=557394) [@modedd](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=473978) @圆 
+
+以上这5个是脑残吗？有异议就直接反驳，别他妈跟个阴湿鬼子一样连个扣分原因都不敢写<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ntrntr1  
+##### 37067#       发表于 2025-3-14 11:30
+
+<blockquote>与太郎 发表于 2025-3-14 10:16
+假设三角初华这个妹妹真的存在，初音母亲的人设也挺难评的，爱上老夫人，所以老夫人死后和老登建立超友谊关 ...</blockquote>
+那可不是
+
+而且就算这些都发生了，其实压根不用给小初音说她是被豪门抛弃的大小姐啊，小孩又不记得一岁时候的事情，现实中一堆养女都是成年后才知道自己是被收养的，初音从小就觉得自己是没爹野种怎么看都是这妈从小非要给她讲她的豪门虐恋故事
+

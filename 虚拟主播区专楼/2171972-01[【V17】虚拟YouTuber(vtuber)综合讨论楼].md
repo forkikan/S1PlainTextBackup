@@ -106,3 +106,13 @@ v甲是第二届了，原始宣称不说五五开，大福至少也有4成吧
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Harunoharu  
+##### 1046#       发表于 2025-3-14 11:26
+
+真是交流赛<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">星川以前没当过监督吧也算是给虹甲铺垫了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
