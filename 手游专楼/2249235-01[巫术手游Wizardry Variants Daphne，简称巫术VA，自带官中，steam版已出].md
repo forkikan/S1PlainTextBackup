@@ -588,3 +588,18 @@ alt +回车就能窗口化，不过不能随便拉大小，还是自适应，想
 破魔武器都强化到+4了.....再往上没铁矿石强化不动</blockquote>
 可以考虑花3000买15个卷轴，僧法打单体可以撕卷轴，召唤物出来土法群攻伺候，前排注意防御时机
 
+
+*****
+
+####  森兰丸  
+##### 43#       发表于 2025-3-15 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67657759&amp;ptid=2249235" target="_blank">风浦可符香(P.N) 发表于 2025-3-14 23:29</a>
+
+可以考虑花3000买15个卷轴，僧法打单体可以撕卷轴，召唤物出来土法群攻伺候，前排注意防御时机 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">++刚刚一气之下直接把游戏删了....然后装回来后我这号又没了？？？
+
+都在steam上玩了账号不该是直接就和我steam号绑定的吗....怎么只是在steam上删除游戏后还能丢号的
+
+要我再刷一遍初始和再打一次1周目的奈落实在没这精力了....算了就这样吧
+
