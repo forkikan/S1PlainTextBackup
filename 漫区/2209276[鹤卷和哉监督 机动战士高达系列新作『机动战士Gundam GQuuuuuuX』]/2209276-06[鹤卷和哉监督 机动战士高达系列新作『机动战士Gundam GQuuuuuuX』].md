@@ -13483,3 +13483,38 @@ X 上的 竹：“マチュのニット帽 編んだ🐘https://t.co/ch68A0LrPc�
 
 repo说是吉姆太对了，这个墨镜脸白头红身拿光束剑，但凡看过0079第一反应都是吉姆。
 
+
+*****
+
+####  创始’’’天翔  
+##### 8502#       发表于 2025-3-14 19:58
+
+季番也可以了，毕竟卡拉产量就不算高
+
+*****
+
+####  岸浪白野  
+##### 8503#       发表于 2025-3-14 20:01
+
+ 本帖最后由 岸浪白野 于 2025-3-14 20:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67656416&amp;ptid=2209276" target="_blank">王留美 发表于 2025-3-14 19:51</a>
+这看着又不像鸡瘟量产敢达了</blockquote>
+就是同一型号，魔女开的就是之前说的红白配色，也是变相致敬了原版吉姆
+
+
+*****
+
+####  YU_JI  
+##### 8504#       发表于 2025-3-14 20:05
+
+所以另外一台自护吉姆是谁？魔女现在的MAV吗？
+
+*****
+
+####  岸浪白野  
+##### 8505#       发表于 2025-3-14 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67656429&amp;ptid=2209276" target="_blank">dreamill 发表于 2025-3-14 19:53</a>
+旁边这个小动物是不是I CAN FRIDAY BY DAY里的？</blockquote>
+就是
+

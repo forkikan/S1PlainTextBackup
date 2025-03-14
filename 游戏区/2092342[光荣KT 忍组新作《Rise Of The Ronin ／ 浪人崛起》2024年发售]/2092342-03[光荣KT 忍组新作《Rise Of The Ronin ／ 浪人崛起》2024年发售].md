@@ -1589,3 +1589,11 @@ Ver1.09.0.1 2025/03/14Steam®
 给家门口的狗子1万块有什么用吗</blockquote>
 回来之后会给你一些刷好感用的礼物，后期刷全员满好感必备
 
+
+*****
+
+####  cherry__  
+##### 3560#       发表于 2025-3-14 20:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">不杀任务好麻烦啊，主要几乎没有木头武器掉落，需要的时候还得特地去买
+
