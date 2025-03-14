@@ -135,3 +135,11 @@ DD前有个X-Ω
 
 但是这个强袭特装型也能混进开服池也太搞笑了
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 106#       发表于 2025-3-15 00:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">强袭特装还不如换成苍白骑士呢
+
