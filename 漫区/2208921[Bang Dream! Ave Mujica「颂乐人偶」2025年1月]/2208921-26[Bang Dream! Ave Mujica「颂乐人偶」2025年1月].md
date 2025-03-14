@@ -1826,3 +1826,105 @@ DE}_2}A[1__WZT9GX@N)}W8.jpg
 如果像是Z高达最后 ...</blockquote>
 然而真按丰川家大手黑暗设定，能当“囚犯”不错了，闹大了，小心家族大手让你稀里糊涂出车祸(
 
+
+*****
+
+####  ads147147  
+##### 37166#       发表于 2025-3-14 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67653923&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-3-14 14:29</a>
+
+别说在邦邦，放眼古今中外，一个JK一边叫着狂热对象的名字一边鬼畜狗爬的镜头那也是极具冲击力的画面 ...</blockquote>
+如果说古今中外的话倒也不至于。
+
+个人来说最富有冲击性的应该是王尔德的《莎乐美》，最后的结尾莎乐美抱着圣约翰的头发癫更有冲击性，莎乐美一边喊着约翰的名字一边亲他的头颅，连原本觊觎她美貌的继父都吓的跑路了。
+
+说到底，十本就是用了不少古典戏曲的框架，感觉自己能塞到少女乐队这个题材里，结果只能发现他是如此的无能。
+
+*****
+
+####  sauron.j  
+##### 37167#       发表于 2025-3-14 14:51
+
+假如两季动画的热度始终只有mygo开播时那种程度，而且没有剧透，这集在小圈子里得会有多炸裂，又在幻想了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lyzers  
+##### 37168#       发表于 2025-3-14 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67654041&amp;ptid=2208921" target="_blank">DD-963 发表于 2025-3-14 14:43</a>
+
+这集我觉得差评的地方在于这个独角戏只会影响到屏幕外的观众，对于剧情推动几乎为0。
+
+如果像是Z高达最后 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别想了，他们但凡真考虑过剧情推动这种东西，这动画就走不到现在这一步
+
+*****
+
+####  Lyzers  
+##### 37169#       发表于 2025-3-14 14:53
+
+之前我还吐槽说现在这动画是念说明书式演出，我当时只是说他们情节展开和塑造太生硬，没想到他们现在还真让人念了一整集的设定和背景
+
+*****
+
+####  一心而用  
+##### 37170#       发表于 2025-3-14 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67653885&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-14 14:23</a>
+
+其实还有一个大问题，邦邦历史上有类似这样🐶爬还演出来的主唱吗</blockquote>
+日本人文化是不是不觉得跪在地上爬来爬去以及被比作是狗有问题啊。
+
+*****
+
+####  ads147147  
+##### 37171#       发表于 2025-3-14 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67654114&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-3-14 14:51</a>
+
+假如两季动画的热度始终只有mygo开播时那种程度，而且没有剧透，这集在小圈子里得会有多炸裂，又在幻想了 ...</blockquote>
+这么差的填设定式的演出方式，最好的结果也就是美末2，一拨人变成尼尔大前辈的死忠粉到处出击觉得高尔夫拍的不好的人是sb。
+
+
+*****
+
+####  Lyzers  
+##### 37172#       发表于 2025-3-14 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67654088&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-3-14 14:48</a>
+
+如果说古今中外的话倒也不至于。
+
+个人来说最富有冲击性的应该是王尔德的《莎乐美》，最后的结尾莎乐美抱 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是，有更夸张的不代表现在这个就不夸张啊，而且就像你说的，你硬把严肃题材的情节塞到乐队动画里面本身就已经有够抽象了
+
+*****
+
+####  一心而用  
+##### 37173#       发表于 2025-3-14 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67654114&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-3-14 14:51</a>
+
+假如两季动画的热度始终只有mygo开播时那种程度，而且没有剧透，这集在小圈子里得会有多炸裂，又在幻想了 ...</blockquote>
+
+其实这一话出来很多人是吃这种写法的。
+
+<img src="https://img.saraba1st.com/forum/202503/14/145507c9skulzzah44db8i.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (34.04 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 14:55 上传
+
+*****
+
+####  aptx8285144  
+##### 37174#       发表于 2025-3-14 14:56
+
+<blockquote>一心而用 发表于 2025-3-14 14:53
+日本人文化是不是不觉得跪在地上爬来爬去以及被比作是狗有问题啊。</blockquote>
+问题是土下座或者对其他人哀求也就罢了，这样一个人演话剧再搞成这样就绝了
+
