@@ -16188,3 +16188,55 @@ gal老嗨都是要会写废萌的。
 
 不开玩笑，真要按丰川大手很黑角度来讲，老登要是想接初音回来，谁知道丰川家家族议会的有些人会不会想制造事故把初音灭了，毕竟这人和丰川家关系可疑<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  airline114514  
+##### 36967#       发表于 2025-3-14 09:37
+
+<blockquote>Yugao 发表于 2025-3-14 09:33
+仔细想想真的很虚之少女，小时候理人只知道和自己开一局的姑娘是理子，结果没想到是远房小姨妈，还有一个看 ...</blockquote>
+白富野还是黑富野
+
+*****
+
+####  k45oo  
+##### 36968#       发表于 2025-3-14 09:39
+
+制作组：我想要给故事加入新角色但又懒得搞新3D建模怎么办？
+
+多重人格，双子：什么，在想我的事
+
+
+*****
+
+####  qlipho  
+##### 36969#       发表于 2025-3-14 09:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">反正亏不了168亿日元，木谷老登随柿本哥哥造了
+
+*****
+
+####  ads147147  
+##### 36970#       发表于 2025-3-14 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67650984&amp;ptid=2208921" target="_blank">Yugao 发表于 2025-3-14 09:33</a>
+仔细想想真的很虚之少女，小时候理人只知道和自己开一局的姑娘是理子，结果没想到是远房小姨妈，还有一个看 ...</blockquote>
+祥子那个真嗣笑不是已经说明是庵野秀明结局吗<img src="https://static.saraba1st.com/image/smiley/carton2017/357.png" referrerpolicy="no-referrer">
+
+祥子和自己小姨一起同居。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  whzfjd  
+##### 36971#       发表于 2025-3-14 09:44
+
+<blockquote>syndrome2032 发表于 2025-3-14 09:35
+gal老嗨都是要会写废萌的。
+
+十本哥哥真的写的来废萌吗</blockquote>
+
+一个 mediamix 的驻场动画监督本来就看不上作坊式的 gal 公司吧？我柿本拨弄的可是多大的资金盘啊
+

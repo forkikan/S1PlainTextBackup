@@ -437,3 +437,37 @@ Deepseek让美国人用显然就是因为他被邪恶的CN政府控制失去了�
 
 我觉得可以有一个爆论，凡是牢美公开反对的论调，都是他们正在台下偷偷干的事情<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  カタカナジゴク  
+##### 51#       发表于 2025-3-14 09:37
+
+我在gpt-4o写多少**都没事，就不能骂他犹太爹一句，真就比女主的g点还敏感
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  万恶淫猥手  
+##### 52#       发表于 2025-3-14 09:39
+
+是熟悉的味道，熟悉的配方<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  SevenYuan23  
+##### 53#       发表于 2025-3-14 09:45
+
+R2还没出来就急成这样了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  水松涛木  
+##### 54#       发表于 2025-3-14 09:45
+
+丢人现眼啊
+
