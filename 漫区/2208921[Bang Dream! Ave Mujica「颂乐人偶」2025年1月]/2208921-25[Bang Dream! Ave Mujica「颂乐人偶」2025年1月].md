@@ -16043,3 +16043,46 @@ ring作为bang宇宙第二中心只有狗一支队伍常驻不太合理吧。鸡
 
 包袱抖出来 大家想看什么 看各方人反应 你拍成小祥查案都比李子念经好
 
+
+*****
+
+####  FACS  
+##### 36951#       发表于 2025-3-14 09:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拍的明白祥子查案吗，不得再拍10集
+
+*****
+
+####  航母掉头  
+##### 36952#       发表于 2025-3-14 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67650623&amp;ptid=2208921" target="_blank">qlipho 发表于 2025-3-14 08:56</a>
+睦头也有丰川之血吧 是因为纯度太低才变古神了吗（还是返祖</blockquote>
+有没可能纯度过高
+
+*****
+
+####  shinoverse  
+##### 36953#       发表于 2025-3-14 09:22
+
+十五年未有之大舞台装置
+
+*****
+
+####  厄神之息  
+##### 36954#       发表于 2025-3-14 09:23
+
+哎呦，所以整个鸡团故事合起来就是祥子和灯小两口本来郎情妾意。结果祥子被灯刺激了一下打翻了醋坛子决定也找人玩新乐队报复回去找了四个脑袋有问题的大姬佬
+
+*****
+
+####  小妻水亚美  
+##### 36955#       发表于 2025-3-14 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67650850&amp;ptid=2208921" target="_blank">FACS 发表于 2025-3-14 09:20</a>
+拍的明白祥子查案吗，不得再拍10集</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我感觉不如直接拍祥子查案吧
+第一集接老登喊初音回去。
+
+—— 来自 OPPO PGFM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

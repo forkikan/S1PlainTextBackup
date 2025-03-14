@@ -2774,3 +2774,24 @@ Ave Mujica也算是传奇耐复活王了，在反复横跳了这么多次的情�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">谢谢米奇律师让我找到真正的一月佳作，母鸡卡的表现配得上狗爬gif
 
+
+*****
+
+####  Keiji  
+##### 298#       发表于 2025-3-14 09:15
+
+初华呢<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小妻水亚美  
+##### 299#       发表于 2025-3-14 09:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649924&amp;ptid=2249813" target="_blank">名津流 发表于 2025-3-14 02:55</a>
+初华是不是初音精神分裂想象出来的人？
+
+否则你冒名顶替去东京出道当偶像了，原本的初华就没一点反应？ ...</blockquote>
+人均精神病现在找补才合理，但是不用想了，就是烂俗的双子剧本。
+
+—— 来自 OPPO PGFM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

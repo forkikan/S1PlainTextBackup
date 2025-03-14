@@ -409,3 +409,13 @@ CLOSEAI不愧是赛博索多玛啊
 
 真没活了，帖子里孝子都没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  钱如命  
+##### 48#       发表于 2025-3-14 09:20
+
+Close AI不让中国人用是因为他是土生土长的美国企业有一颗美国心
+Deepseek让美国人用显然就是因为他被邪恶的CN政府控制失去了中国心<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+别的不说，奥特曼逻辑确实是自洽的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
