@@ -3720,3 +3720,23 @@ bro觉得没有剧透就能迎来美好未来<img src="https://static.saraba1st.
 
 如果没有奉旨剧透，初音是小姨这个炸弹扔到战吧会是一种什么样的画面？<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  是谁的书画  
+##### 37336#       发表于 2025-3-14 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67656621&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-3-14 20:20</a>
+
+如果后面两集有这个MV的程度，我觉得还值得一看
+
+怎么说呢，剧透让11集完全没有信息量了，只让人感觉无聊， ...</blockquote>
+确实，要是在欺骗祥子（19：14开始到20：00）这段，像是MV一样展示初华像是蜡烛一样逐步溶解的过程，我觉得会很扭曲<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 37337#       发表于 2025-3-14 20:30
+
+这MV太潮了
+

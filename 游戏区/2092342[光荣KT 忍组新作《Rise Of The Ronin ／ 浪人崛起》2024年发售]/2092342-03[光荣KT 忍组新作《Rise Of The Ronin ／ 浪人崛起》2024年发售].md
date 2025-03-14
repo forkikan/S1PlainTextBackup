@@ -1597,3 +1597,11 @@ Ver1.09.0.1 2025/03/14Steam®
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">不杀任务好麻烦啊，主要几乎没有木头武器掉落，需要的时候还得特地去买
 
+
+*****
+
+####  cherry__  
+##### 3561#       发表于 2025-3-14 20:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这游戏有病吧，我明明开的离线模式，还是会每隔一段就提示我掉线了
+
