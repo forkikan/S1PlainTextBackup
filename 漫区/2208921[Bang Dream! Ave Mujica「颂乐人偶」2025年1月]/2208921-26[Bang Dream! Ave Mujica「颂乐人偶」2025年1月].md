@@ -2381,3 +2381,106 @@ mujica白泥楼 可能是吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">鸡团现在好像有实际成绩的都有点神经病，而且成绩越高病情越严重，像甜甜圈这集蹦出来一个五冠王设定我都不敢想他们要是真下笔墨描写会写个什么设定
 
+
+*****
+
+####  ntrntr1  
+##### 37216#       发表于 2025-3-14 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67654471&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-14 15:32</a>
+
+只是剧本没说，你怎么可以假定mana这个人就心理纯洁了
+
+在这个片场，无论是谁都会走向痛苦，只不过聚光灯照 ...</blockquote>
+mana：还好我戏份不多，哎呀，冠军，你们有几个？
+
+*****
+
+####  adretyu67.  
+##### 37217#       发表于 2025-3-14 16:00
+
+甜甜圈那个五冠王设定真的不要太在意。只能说明她嗓子很好，天生主唱圣体。
+
+不会作词不会作曲，不掌握乐队核心科技的主唱确实没法搞乐队。总不能空降pp吧。
+
+*****
+
+####  z-hunter  
+##### 37218#       发表于 2025-3-14 16:00
+
+话说这集过后，就个人来说，我对初音这个人物塑造还是可以理解的，她的自卑和爱慕、心理扭曲都说得通
+
+但鸡团的其他4个人我还是无法理解<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这集海铃的出场还是那个固定套路“信用”我就笑了，祥子也被抽陀螺抽得一集变一次
+
+如果最后真的初音也是二重人格，我觉得可以认可这个人物了。。。
+
+还是太追求舞台效果，自演舞台剧太长了，变又臭又长<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ntrntr1  
+##### 37219#       发表于 2025-3-14 16:01
+
+虚之少女我记得和魍魉之匣剧情几乎一模一样吧。。。
+
+可惜这两剧情如今我都不记得就记得玩的时候觉得好像魍魉之匣啊。。
+
+哦，还有超美的女主最后变人棍了。
+
+
+*****
+
+####  南宮凝香  
+##### 37220#       发表于 2025-3-14 16:04
+
+甜甜圈就跟初華組新世代PP
+
+*****
+
+####  ntrntr1  
+##### 37221#       发表于 2025-3-14 16:05
+
+是的其实看惯了日本扭曲味儿，这个剧本底层逻辑还行吧，比睦墨强。。。虽然小墨是比这三人加起来还可爱
+
+虽然神人很多，但好歹确实知道在说啥，非要设定双子是为了强化初音两个家庭都是局外人这种自卑，外加和祥子的对比剧情本身也可以比较有张力
+
+祥子的最大问题就是逼这什么丰川大小姐的自豪导致的满脑子都是自己和好表面面子，理论上这条线好好写应该蛮好看的
+
+睦墨就是。。。你们核心矛盾是啥呢我请问然后还稀里糊涂解决了 
+
+但这一集我只想笑<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Hchan  
+##### 37222#       发表于 2025-3-14 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67654673&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-14 16:01</a>
+
+虚之少女我记得和魍魉之匣剧情几乎一模一样吧。。。
+
+可惜这两剧情如今我都不记得就记得玩的时候觉得好像魍 ...</blockquote>
+你搞混了，致敬魍魉之匣剧情的是前作壳之少女，虚之少女是续作
+
+*****
+
+####  ntrntr1  
+##### 37223#       发表于 2025-3-14 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67654718&amp;ptid=2208921" target="_blank">Hchan 发表于 2025-3-14 16:07</a>
+
+你搞混了，致敬魍魉之匣剧情的是前作壳之少女，虚之少女是续作</blockquote>
+哦哦原来我没玩，那难怪毫无印象了
+
+*****
+
+####  厚乳果珍爽  
+##### 37224#       发表于 2025-3-14 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67654673&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-14 16:01</a>
+
+虚之少女我记得和魍魉之匣剧情几乎一模一样吧。。。
+
+可惜这两剧情如今我都不记得就记得玩的时候觉得好像魍 ...</blockquote>
+跟魍魉之匣一样的是壳之少女吧？
+
