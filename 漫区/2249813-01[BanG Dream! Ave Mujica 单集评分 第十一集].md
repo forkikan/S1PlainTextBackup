@@ -3412,3 +3412,13 @@ ep11演出只是单纯的效果不好 且不说在类似解谜篇的高信息量
 
 你敢想象这集有三个人负责分镜结果有限的镜头里还有严重的作画失误，原来不仅剧里所有人有病，连制作组做都发病了，还是武士道发不起工资了大家都摆烂了
 
+
+*****
+
+####  敏感词好多  
+##### 359#       发表于 2025-3-14 23:25
+
+每集都能烂出新下限，staff都自裁吧<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

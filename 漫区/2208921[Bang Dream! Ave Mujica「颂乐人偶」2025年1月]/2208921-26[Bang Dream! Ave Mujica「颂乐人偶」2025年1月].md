@@ -4381,3 +4381,16 @@ X最早封面像是肺部X光片。
 
 战吧发生什么了？吧民对管理层暴动了？
 
+
+*****
+
+####  是谁的书画  
+##### 37396#       发表于 2025-3-14 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67657643&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-14 23:09</a>
+
+人偶全程被当异教徒挂在十字架上，最后世界还是烧起来了
+
+我也没太搞懂逻辑关系 ...</blockquote>
+我的理解是作为异教者的我们，在火刑中受到惩戒，又作为复活的死者归来，也将掀起毁灭世间的大火
+
