@@ -3288,3 +3288,13 @@ ep11的演出在执行方面做得怎么样 你可以参考同样是山之口创
 —— 来自 鹅球 v3.3.96</blockquote>
 别看了，放过自己，去吃点好的<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  usodakedo  
+##### 347#       发表于 2025-3-14 18:12
+
+话说每一集都有人说观感变好了，剧情变好了，原来这是低开高走的神作吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJF110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
