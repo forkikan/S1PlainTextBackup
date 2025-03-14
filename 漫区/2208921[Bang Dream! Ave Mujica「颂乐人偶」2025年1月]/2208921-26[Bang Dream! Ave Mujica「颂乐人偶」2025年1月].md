@@ -2323,3 +2323,61 @@ mujica白泥楼 可能是吧
 主要是初音妈对丰川家大小姐这种一年只见到一次的人产生情感也很离谱</blockquote>
 她女儿只见过一天都能产生感情，不更离谱？谁知道她妈当时是怎么情况，说不定跟她女儿一样读作仰慕写作“这简直就是我！”呢
 
+
+*****
+
+####  Renes  
+##### 37210#       发表于 2025-3-14 15:47
+
+其实想想挺变态的，只有初音和祥子看过星星，也就是说初音每次去天文馆，都是一边幻想那一晚，一边扣。
+
+怪不得从天文馆出来的初音头脑那么清晰，因为兴宇被释放了，所以贤者了
+
+*****
+
+####  半年  
+##### 37211#       发表于 2025-3-14 15:51
+
+<img src="https://img.saraba1st.com/forum/202503/14/155118eec8gccq3kkgs3nk.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250314155013.jpg</strong> (265.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 15:51 上传
+
+*****
+
+####  Hchan  
+##### 37212#       发表于 2025-3-14 15:51
+
+社区基本上都说像海猫，明明更像IG社的虚之少女。尤其是女铜和夺走自己爱慕女性的男人生孩子，一明一暗非生理意义上的双子，其中自卑的一方偷偷顶替对方和命运之人相会，结尾金毛走向夜晚的大海也很有月狂病那味，什么教主<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+可惜母鸡卡不能像IG社那样整些R18G的狠活，当然我觉得他们主观上是想做的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能不能让独角兽来写IG的新作
+
+*****
+
+####  adretyu67.  
+##### 37213#       发表于 2025-3-14 15:53
+
+金毛要是有教主一半行动力，章鱼早被关在阁楼上抠脱水了。
+
+
+*****
+
+####  琉璃苑軒風  
+##### 37214#       发表于 2025-3-14 15:54
+
+<img src="https://p.sda1.dev/22/47fd00942b7dd2b17e545e5f54f1d001/image.jpg" referrerpolicy="no-referrer">
+
+如果未来是你的，证明给我看
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  Lyzers  
+##### 37215#       发表于 2025-3-14 15:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">鸡团现在好像有实际成绩的都有点神经病，而且成绩越高病情越严重，像甜甜圈这集蹦出来一个五冠王设定我都不敢想他们要是真下笔墨描写会写个什么设定
+
