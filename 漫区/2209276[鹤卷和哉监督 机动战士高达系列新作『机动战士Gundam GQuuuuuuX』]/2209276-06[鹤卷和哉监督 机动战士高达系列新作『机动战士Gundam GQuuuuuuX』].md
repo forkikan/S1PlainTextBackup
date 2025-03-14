@@ -13426,3 +13426,11 @@ G跨时蛮好的，干嘛加个之战
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  虛無迴廊  
+##### 8496#       发表于 2025-3-14 18:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这眼睛真简约啊，就只画了上眼皮跟瞳孔，不过隔着头盔看不出有没有眼白
+
