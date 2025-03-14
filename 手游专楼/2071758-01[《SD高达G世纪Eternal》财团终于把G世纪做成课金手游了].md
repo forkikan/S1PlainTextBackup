@@ -143,3 +143,15 @@ DD前有个X-Ω
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">强袭特装还不如换成苍白骑士呢
 
+
+*****
+
+####  发呆的龙虾  
+##### 107#       发表于 2025-3-15 07:40
+
+ 本帖最后由 发呆的龙虾 于 2025-3-15 07:42 编辑 
+
+全地形的话就OO系吧。不过我看主线除了要求地形好像还要求原作机体和技师。
+
+—— 来自 HUAWEI BRA-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
