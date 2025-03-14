@@ -3306,3 +3306,116 @@ CCC好歹大家还是初中生组了两 ...</blockquote>
 
 丰川中年短命论还一点逻辑
 
+
+*****
+
+####  墓地里的鱼  
+##### 37297#       发表于 2025-3-14 19:08
+
+所以初音演到一半戴上面具+双簧台词有没有什么说法
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  adretyu67.  
+##### 37298#       发表于 2025-3-14 19:09
+
+寿命论就算了，邦现在还没乐队成员年龄超过20岁呢。早得很
+
+*****
+
+####  聪明墨菲特  
+##### 37299#       发表于 2025-3-14 19:10
+
+我信初音初华是一个人的，俩人都不是一个爹咋能长一样，总不能养父当接盘侠还当绿奴吧。像初华这种爱幻想的人，人格分裂也是合情合理吧
+
+—— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  结衣小比取  
+##### 37300#       发表于 2025-3-14 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67656052&amp;ptid=2208921" target="_blank">MuramasaSP 发表于 2025-3-14 18:52</a>
+
+国家队ptsd又要犯了，初音对祥子好感的一个分界点就是祥子说的“像月亮一样”，联想到了ditf里一帮人为什么 ...</blockquote>
+这个「像月亮一样」联系前后文，是明明模仿着妹妹，但是却被祥子察觉出了不同，并文艺的表达了出来
+
+<img src="https://img.saraba1st.com/forum/202503/14/190849wc0g37a20cyw1ghz.jpg" referrerpolicy="no-referrer">
+
+<strong>初华模仿1.jpg</strong> (168.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 19:08 上传
+
+<img src="https://img.saraba1st.com/forum/202503/14/190849r47u04l7mtclrrmp.jpg" referrerpolicy="no-referrer">
+
+<strong>初华模仿2.jpg</strong> (263.93 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 19:08 上传
+
+*****
+
+####  cxj649  
+##### 37301#       发表于 2025-3-14 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67656159&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-14 19:09</a>
+
+寿命论就算了，邦现在还没乐队成员年龄超过20岁呢。早得很</blockquote>
+主要是寿命递减论，当丰川只三代是吧，按这理论大祥的太奶奶是正常寿命了
+
+
+*****
+
+####  猫执事  
+##### 37302#       发表于 2025-3-14 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67656067&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-14 18:53</a>
+
+中登被老登教育完应该是知道不能乱说了。
+
+只不过谁对中登动的手中登可能就不知道了。</blockquote>
+中登跟初华有接触 也是本剧无数多BUG之一了。 还不如把这集初华的独角戏切成片 以倒序插入前面10集。然后先造成中登是初华亲爹，也因此而被赶出去的烟雾弹。 最后的再揭露老登才是BOSS，达成一个反转的效果。
+
+*****
+
+####  ntrntr1  
+##### 37303#       发表于 2025-3-14 19:14
+
+<blockquote>聪明墨菲特 发表于 2025-3-14 19:10
+我信初音初华是一个人的，俩人都不是一个爹咋能长一样，总不能养父当接盘侠还当绿奴吧。像初华这种爱幻想的 ...</blockquote>
+那祥子青梅竹马人均did也是很有生活了。
+
+*****
+
+####  有钱多买小人  
+##### 37304#       发表于 2025-3-14 19:15
+
+【硬核分析丰川家的遗传病原理- 母鸡卡最惊人的隐藏设定！-哔哩哔哩】 https://b23.tv/mQRuNWN
+
+最新科研成果，丰川家可能是达农病。X连锁遗传性疾病，致死率高，男性20岁前发病，女性40岁左右发病。
+
+有一说一讲到心脏移植那里我突然意识到要是祥子4、50岁需要换心脏时，最可能、最相近、最年龄相符、最容易找到的配型不会是初音吧[捂眼]，再结合上集初音说的“愿意把我的一切都献给你”，卧槽，流冷汗了😰
+
+*****
+
+####  客服少女小祥  
+##### 37305#       发表于 2025-3-14 19:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了一眼新出的MV，有种误入小圆魔女结界的感觉 
+[YOUTUBE](https://www.youtube.com/watch?v=XP8al1l38Po)
+
+*****
+
+####  adretyu67.  
+##### 37306#       发表于 2025-3-14 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67656191&amp;ptid=2208921" target="_blank">猫执事 发表于 2025-3-14 19:14</a>
+
+中登跟初华有接触 也是本剧无数多BUG之一了。 还不如把这集初华的独角戏切成片 以倒序插入前面10集。然后 ...</blockquote>
+11话独角戏，到开始和丰川家中登开始就突然突出一个你怎么知道这些的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
