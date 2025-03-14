@@ -2238,3 +2238,25 @@ geekjack给了充足的200份而且每人限2份，这个点还有60%没卖出�
 
 脸画得有点崩就是了
 
+
+*****
+
+####  holofan  
+##### 10920#       发表于 2025-3-14 19:57
+
+电台音混入ASMR器材的问题团长之前就有了，说这个问题很危险有可能声音被盗听而且要因此搬家
+
+
+*****
+
+####  holofan  
+##### 10921#       发表于 2025-3-14 21:21
+
+<img src="https://img.saraba1st.com/forum/202503/14/212150vqgxyvw5fvy9xqyg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (23.94 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 21:21 上传
+
