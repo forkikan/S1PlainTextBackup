@@ -1511,3 +1511,77 @@ mujica的动画把mujica主唱线淡化放逐到剧场版，还真是十五年�
 
 祥子要死在27岁加入27club了，最摇滚的一集
 
+
+*****
+
+####  是谁的书画  
+##### 37139#       发表于 2025-3-14 13:48
+
+<img src="https://i.miji.bid/2025/03/14/34d0c11bf7b96e56dc9c1d3ec80b5456.png" referrerpolicy="no-referrer">
+<img src="https://i.miji.bid/2025/03/14/adb8c16d4f2ea928a0c53be4d31e3177.png" referrerpolicy="no-referrer">
+<img src="https://i.miji.bid/2025/03/14/a0c95715dd66b94201ed0a034a551b0b.png" referrerpolicy="no-referrer">
+<img src="https://i.miji.bid/2025/03/14/ba6f998232f4fa1d7fdb33bfa8a4c5d7.png" referrerpolicy="no-referrer">
+
+两个初华在舞台对谈到崩溃狗刨的这一段还是制作组有一定思考的，所以相对之下这个地方在整集里面的观感其实是最不错。
+
+这里通过两个初华的对话解释了一个问题，初华究竟是喜欢悲剧的自己，还是真的喜欢祥子。这说明编剧知道，在这里如果将初华设计成以为自是喜欢自虐自卑的水仙，对于提升初祥两者关系性并没有多大益处。
+
+确实诚然，祥子是这样一个带有自恋型自虐人格的角色，但是对于祥子的感情也并非完全出于其本人的自卑情结。
+
+祥子在初华心中象征着自我精神的释放，追逐祥子亦是追逐本我的真实。
+
+只有将祥子囚禁在自己的内心，其本人的另一半才算是完整。
+
+*****
+
+####  DD-963  
+##### 37140#       发表于 2025-3-14 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67651523&amp;ptid=2208921" target="_blank">蜜瓜包 发表于 2025-3-14 10:24</a>
+
+我是说有没有一种可能，其实是老登被绿了，初音初华都是渔夫的女儿，其实初音和大祥老师没有血缘关系 ...</blockquote>
+那就是小丑1了
+
+
+*****
+
+####  MASKA-1  
+##### 37141#       发表于 2025-3-14 13:54
+
+作为大豪斯里唯一有丰川血脉的人，祥子你要自信。
+
+*****
+
+####  zhoujin8584  
+##### 37142#       发表于 2025-3-14 13:57
+
+烂人真心吗？初祥
+
+<img src="https://img.saraba1st.com/forum/202503/14/135659ob3d4x3hpko5irq3.jpg" referrerpolicy="no-referrer">
+
+<strong>axw3Q2v-g6wwK2cT3cSsg-em.jpg</strong> (83.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 13:56 上传
+
+*****
+
+####  wwwttth  
+##### 37143#       发表于 2025-3-14 13:57
+
+<blockquote>是谁的书画 发表于 2025-3-14 01:01
+那渔夫能和女仆生出来个几乎一摸一样的
+
+只能说渔夫和老登多少也有点关系 ...</blockquote>
+这个世界就是母系血统强呗，符合女女关系性和丰川母系家族设定
+
+*****
+
+####  adretyu67.  
+##### 37144#       发表于 2025-3-14 13:57
+
+假面初华是把一切自卑、痛苦全部转化成爱祥子。
+
+素颜初华才是那个悲剧的女主角。
+
