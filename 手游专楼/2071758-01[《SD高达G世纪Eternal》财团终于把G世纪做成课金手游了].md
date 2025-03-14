@@ -69,3 +69,14 @@
 
 机战手游一个接一个？除了dd还有啥
 
+
+*****
+
+####  HEERO.W  
+##### 101#       发表于 2025-3-14 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67651466&amp;ptid=2071758" target="_blank">pire 发表于 2025-3-14 10:19</a>
+
+机战手游一个接一个？除了dd还有啥</blockquote>
+DD前有个X-Ω
+

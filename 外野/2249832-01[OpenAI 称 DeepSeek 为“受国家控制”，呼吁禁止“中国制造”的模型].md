@@ -479,3 +479,28 @@ R2还没出来就急成这样了<img src="https://static.saraba1st.com/image/smi
 
 出生,死亡,危害美国国家安全。
 
+
+*****
+
+####  Vladimeow  
+##### 56#       发表于 2025-3-14 10:30
+
+百试不爽
+
+
+*****
+
+####  星零影  
+##### 57#       发表于 2025-3-14 10:33
+
+啊对对对，你开心就好<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  神圣天使书记官  
+##### 58#       发表于 2025-3-14 10:35
+
+这就是典型的小孩子打架打不过叫家长的思路，幼稚且愚蠢<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

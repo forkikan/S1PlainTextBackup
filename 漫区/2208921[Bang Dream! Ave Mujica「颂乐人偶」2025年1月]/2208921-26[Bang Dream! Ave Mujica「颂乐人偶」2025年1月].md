@@ -89,3 +89,126 @@
 
 我是说有没有一种可能，其实是老登被绿了，初音初华都是渔夫的女儿，其实初音和大祥老师没有血缘关系<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oyss  
+##### 37010#       发表于 2025-3-14 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67648283&amp;ptid=2208921" target="_blank">oyss 发表于 2025-3-13 23:15</a>
+
+老登最早打算都接到东京的,意思就是打算放弃丰川家地位,跟母女这边过了. 就是滚出丰川家了.
+
+初音妈不同意, ...</blockquote>
+怎么这里楼还有一言不发专门扣分的？
+
+*****
+
+####  是谁的书画  
+##### 37011#       发表于 2025-3-14 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67651537&amp;ptid=2208921" target="_blank">oyss 发表于 2025-3-14 10:26</a>
+
+怎么这里楼还有一言不发专门扣分的？</blockquote>
+豚豚接受不了这种剧情，看到楼里兴致勃勃吃屎的样子只会感觉更崩溃罢了
+
+只是破防了，其实很能理解很可怜<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lawliet.L  
+##### 37012#       发表于 2025-3-14 10:29
+
+现在的母鸡卡是挺有早期同性文学那股扭曲感<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ape-apple  
+##### 37013#       发表于 2025-3-14 10:29
+
+兴致勃勃吃屎的样子难道不可怜吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">为了赢也是无所不用其极了
+
+
+*****
+
+####  6030sylar  
+##### 37014#       发表于 2025-3-14 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67651282&amp;ptid=2208921" target="_blank">北条早苗 发表于 2025-3-14 10:00</a>
+
+如果不搞睦莫那堆烂活，或许下一集大祥登岛发现三角家只有一个叫初华的女儿算好活
+
+初音无法接受继父的爱分 ...</blockquote>
+根本没人死，你是你妹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 37015#       发表于 2025-3-14 10:30
+
+<blockquote>蜜瓜包 发表于 2025-3-14 10:24
+我是说有没有一种可能，其实是老登被绿了，初音初华都是渔夫的女儿，其实初音和大祥老师没有血缘关系 ...</blockquote>
+再進一步
+
+初音是老登的種
+
+可是祥媽不是
+
+*****
+
+####  老贝  
+##### 37016#       发表于 2025-3-14 10:31
+
+初音那句抛弃了母亲抛弃了妹妹，到最后连自己的名字也舍弃了是真的能感觉到角色的狂气。甚至还有一点莫名的自豪，什么我为祥子能够做到这种地步。
+
+柿本在写这段的时候，是不是也为能想出这种剧情架构的自己感到自豪。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厄神之息  
+##### 37017#       发表于 2025-3-14 10:32
+
+<blockquote>zhoujin8584 发表于 2025-3-14 10:24
+认同，真初华葬礼那句话挺伤人的，初音终究是融不进这个重组家庭，考虑到是官配，祥子的gal线一直都是选 ...</blockquote>
+融不进还是不想融？我从她自白能听出来的只有不想融，她妹妹指责她妄想悲剧女主也没问题吧。毕竟是跟中登搭个话就能脑补出中登因为为自己发声被陷害沦落大戏的神人。
+
+*****
+
+####  是谁的书画  
+##### 37018#       发表于 2025-3-14 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67651573&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-3-14 10:29</a>
+
+兴致勃勃吃屎的样子难道不可怜吗为了赢也是无所不用其极了</blockquote>
+也没有为了赢，因为批评累了，已经评判1个多月了。想讨论的话，也全是屎。
+
+这动画就没给观众选择，那只会如此了
+
+赢在哪了？
+
+*****
+
+####  油画布  
+##### 37019#       发表于 2025-3-14 10:33
+
+都到11集就不要搞人设回撤了，讲不明白的。撑死把初祥关系性补一下
+
+*****
+
+####  ape-apple  
+##### 37020#       发表于 2025-3-14 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67651610&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-14 10:32</a>
+也没有为了赢，因为批评累了，已经评判1个多月了。想讨论的话，也全是屎。
+
+这动画就没给观众选择，那只会 ...</blockquote>
+最后一个喘气的是赢，最后一个说话的也是赢，人就是这样
+
+*****
+
+####  北条早苗  
+##### 37021#       发表于 2025-3-14 10:34
+
+悲剧女主角论有一个前提，就是初音妈从小就开始跟初音说你爹是丰川老登，这样初音看着幸福的三角一家和丰川大豪斯就会不平衡设想自己如果是丰川家的大小姐，爱上丰川祥子本质是爱上想象中的自己
+但是这样初音妈也太变态了
+
