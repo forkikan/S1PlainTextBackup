@@ -2848,3 +2848,51 @@ chuchu大人/祥子对不起
 </blockquote>
 方向没问题 ，不过要是像ras那样搞的轻飘飘，观众不会原谅的（虽然可能事到如今做什么都不会原谅了
 
+
+*****
+
+####  半年  
+##### 37258#       发表于 2025-3-14 17:08
+
+<img src="https://img.saraba1st.com/forum/202503/14/170827zeev9ftff0vnfrft.jpg" referrerpolicy="no-referrer">
+
+<strong>Gl-6fulW0AAKVtf.jpg</strong> (337.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 17:08 上传
+
+[https://x.com/Tetsu_ed/status/1900442629310959699/photo/1](https://x.com/Tetsu_ed/status/1900442629310959699/photo/1)
+
+*****
+
+####  秋月艾莉  
+##### 37259#       发表于 2025-3-14 17:08
+
+ 本帖最后由 秋月艾莉 于 2025-3-14 17:10 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这狗爬第一眼就想起这个，日本人最爱的表现力，00:51起名场面
+
+如果不是前面翻得厉害观众出脑严重，应该是会有不少人吃的
+
+【【传 世 经 典】家入レオXTAKAHIRO《この世界で》190215-哔哩哔哩】 [https://b23.tv/ISdDmh4](https://b23.tv/ISdDmh4)
+
+*****
+
+####  gammatau  
+##### 37260#       发表于 2025-3-14 17:10
+
+跟POTO比闹麻了，魅影是站着念了二十分钟无演唱无道具揭露自己悲惨身世的吗
+
+哦对，初音这也不是无道具，有个椅子，有本书
+
+
+*****
+
+####  takerest  
+##### 37261#       发表于 2025-3-14 17:15
+
+<blockquote>一心而用 发表于 2025-3-14 14:56
+其实这一话出来很多人是吃这种写法的。</blockquote>
+觉得偷走妹妹名字的初音很懂事的这辈子有了，哪天高考被别人顶包了就老实了
+

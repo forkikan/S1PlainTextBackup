@@ -1927,3 +1927,16 @@ PS5版半价了买了，然后和STEAM原价一个价
 
 联机成就确实是个问题，这游戏的pvp基本就是个胡逼小游戏，野排基本没人的
 
+
+*****
+
+####  windtrack_qh  
+##### 164#       发表于 2025-3-14 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67655077&amp;ptid=2200160" target="_blank">检索者 发表于 2025-3-14 16:50</a>
+
+他这个OST里除了安谢和rita的两首歌有完整版之外，其他曲子就是单纯给游戏里的循环版加了个开头和结尾的1 ...</blockquote>
+看了一下其他奖杯条件，全迷宫困难9 3杯
+
+奖杯获得率都不到1%...PSNPORFILE白金率不到3%，释然了，PVP奖杯没有就没有吧
+
