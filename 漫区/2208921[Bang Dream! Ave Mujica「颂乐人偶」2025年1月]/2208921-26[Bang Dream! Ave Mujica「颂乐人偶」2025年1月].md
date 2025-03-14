@@ -4189,3 +4189,35 @@ X最早封面像是肺部X光片。
 甚至 ...</blockquote>
 如果要这么写的话我认为更可能是初华和养父一起死了，初音在巨大打击下自我欺骗初华还活着。
 
+
+*****
+
+####  聪明墨菲特  
+##### 37377#       发表于 2025-3-14 22:42
+
+三角姐妹年龄血缘不一样长的一样，再加上中登给老登汇报他的女儿叫初华而不是初音的时候他也没有惊讶，说明从始至终只有初华一个人。想去东京当偶像的人和此前陪祥子玩的人都是她自己，不然咋能把别人的人生演那么好（也比一见钟情合理点），养父生的妹妹是幻想出来衬托自己这个没爸的悲剧女主的。妹妹和妈妈也不会任凭初音离家出走还冒充妹妹出道的，那么也只能是初华演的就是自己，并且妈妈和老登联系过了，答应在东京帮助初华的事业，所以才有落地被星探挖掘的事
+
+—— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  aptx8285144  
+##### 37378#       发表于 2025-3-14 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67657036&amp;ptid=2208921" target="_blank">Cortana 发表于 2025-3-14 21:14</a>
+
+你想错了，三角家对初音越好她越自卑。倒不如说恰恰是三角家把她教育的很好她才那么扭曲痛苦。 ...</blockquote>
+就算是这样，让普通观众有代入感，很难的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 37379#       发表于 2025-3-14 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67657062&amp;ptid=2208921" target="_blank">草化木 发表于 2025-3-14 21:21</a>
+
+突然想到，这部动画到目前为止，居然没有歌颂过任何一种美好的情感，又不愿意展现真正的丑恶。
+
+这种别扭的 ...</blockquote>
+因为最后要包寿司<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

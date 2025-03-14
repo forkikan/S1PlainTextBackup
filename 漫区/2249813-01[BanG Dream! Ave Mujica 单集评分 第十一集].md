@@ -3383,3 +3383,13 @@ ep11演出只是单纯的效果不好 且不说在类似解谜篇的高信息量
 
 事已至此唯有加二
 
+
+*****
+
+####  evangelina  
+##### 356#       发表于 2025-3-14 22:40
+
+初音唐突说我要成为人类，家具是吧
+
+谁能想到这片是写给龙骑士的情书啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
