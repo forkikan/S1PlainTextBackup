@@ -1494,3 +1494,20 @@ mujica的动画把mujica主唱线淡化放逐到剧场版，还真是十五年�
 
 现在想想第一集，祥子和初华水边对话，祥子才是那个被骗买了假水晶的人
 
+
+*****
+
+####  zhoujin8584  
+##### 37137#       发表于 2025-3-14 13:39
+
+<blockquote>takerest 发表于 2025-3-14 13:33
+别贷款了，蚀本笔下有健康的女女关系吗？</blockquote>
+我是在解释祥子本来也是姛<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  钦念以忱  
+##### 37138#       发表于 2025-3-14 13:39
+
+祥子要死在27岁加入27club了，最摇滚的一集
+

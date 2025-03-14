@@ -126,3 +126,15 @@ v甲是第二届了，原始宣称不说五五开，大福至少也有4成吧
 
 能不能多出点不太难看的棒球帽
 
+
+*****
+
+####  Ferrari  
+##### 1048#       发表于 2025-3-14 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67651356&amp;ptid=2171972" target="_blank">zhrs456 发表于 2025-3-14 10:09</a>
+虹夺走的吗？那天开干嘛去当虹甲主催而不是HO甲呢
+
+论坛助手,iPhone</blockquote>
+天开之前都快算半个虹人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">后来2434 network制度废除了
+
