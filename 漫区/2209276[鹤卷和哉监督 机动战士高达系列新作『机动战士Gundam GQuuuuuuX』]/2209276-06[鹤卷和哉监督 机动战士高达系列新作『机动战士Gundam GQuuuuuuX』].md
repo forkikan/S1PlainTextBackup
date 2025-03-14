@@ -13359,3 +13359,43 @@ G跨时蛮好的，干嘛加个之战
 
 又幻想了，这个Drama DEEP 的电视剧时段的slot，有40分钟吗（
 
+
+*****
+
+####  刺客ares  
+##### 8490#       发表于 2025-3-14 17:27
+
+真季番啊，那后期得来点超展开了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+能最后一集官宣gqx剧场版锐意制作中吗
+
+*****
+
+####  WallHrolf  
+##### 8491#       发表于 2025-3-14 17:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">虽然基本实锤了，还是希望至少是个分割的体量，一季度真不够啊
+
+*****
+
+####  岸浪白野  
+##### 8492#       发表于 2025-3-14 17:31
+
+[https://youtu.be/tp7quQv3q5w](https://youtu.be/tp7quQv3q5w)
+
+<img src="https://img.saraba1st.com/forum/202503/14/173112fvkkkv02nyz8zaa9.jpg" referrerpolicy="no-referrer">
+
+<strong>X2S~2AFISAENJLS)@_)QCBB.jpg</strong> (183.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 17:31 上传
+
+<img src="https://img.saraba1st.com/forum/202503/14/173122omjsmtgbedbpotbv.png" referrerpolicy="no-referrer">
+
+<strong>QK[C}YH8(@2`[}(P5D@HE6R.png</strong> (132.59 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 17:31 上传
+

@@ -2909,3 +2909,20 @@ chuchu大人/祥子对不起
 如果不是前面翻得厉害观众出脑严重，应该是会 ...</blockquote>
 好歹找了个男人，没让主唱亲自爬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Yugao  
+##### 37263#       发表于 2025-3-14 17:26
+
+杉菜水姬的巅峰是虚之少女，茅原雪子真的超级漂亮，希望大家都去玩，感受真正的ave mujica
+
+*****
+
+####  Yugao  
+##### 37264#       发表于 2025-3-14 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67654947&amp;ptid=2208921" target="_blank">野菜一日分 发表于 2025-3-14 16:36</a>
+花冬的问题不全是志水是个废物吗，春的时候就能把女主角写成一个仿佛进入女校的童贞男，跟拳击手想做的属于 ...</blockquote>
+冬篇比较难绷的还是安排了老八和nln回来装逼，搞得像学校有什么黑幕把勾老师抓去喝中药了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

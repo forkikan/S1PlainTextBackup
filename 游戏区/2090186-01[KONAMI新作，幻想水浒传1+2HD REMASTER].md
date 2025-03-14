@@ -3684,3 +3684,11 @@ PSP版就修了
 
 一代主人公的魂之纹章是不是除去门之纹章外系列中最强力的
 
+
+*****
+
+####  Dreammask  
+##### 384#       发表于 2025-3-14 17:31
+
+看到1代攻略有主角在泰德第一次入队后立马穿过虎狼山可以拿纹章的隐藏事件，问下潭友们除了练级外还有什么奇招能顺利逃过路上的一堆强敌<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
