@@ -2002,3 +2002,91 @@ DE}_2}A[1__WZT9GX@N)}W8.jpg
 就是能不能以后不要这么做了。</blockquote>
 以wsd这么多年的风格来看，绝对会的再有的。。。说到底，情节没问题，但是你怎么用这个情景，有问题。
 
+
+*****
+
+####  是谁的书画  
+##### 37180#       发表于 2025-3-14 15:10
+
+我觉得其他都还好，就是狗爬那段最后还顶一下屁股再最后喊一嗓子saki酱就感觉有点变态<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 37181#       发表于 2025-3-14 15:11
+
+觉得变态就对了，就是往那么塑造的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秦南心  
+##### 37182#       发表于 2025-3-14 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67654195&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-14 15:01</a>
+
+初华狗爬做的很合理?很震撼，也能理解为啥这么搞。
+
+就是能不能以后不要这么做了。</blockquote><blockquote>以防万一我再发一遍，魅影跟狗一样大家就说感觉
+
+他像条委屈小狗，初华跟狗一样大家就骂说是祥压
+
+抑幻想姐，是因为看歌剧魅影的文化程度比较高还
+
+是mujica观众里小孩太多？考虑到全国有14亿人：
+
+我认为这个问题是很好解答的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qratosones1337  
+##### 37183#       发表于 2025-3-14 15:13
+
+所以初音到底为啥知道大祥搬出去的……事后调查的？
+
+如果就是出bug了，那独角兽原案也能出这么大篓子？
+
+*****
+
+####  ape-apple  
+##### 37184#       发表于 2025-3-14 15:13
+
+当一个作品里一部分观众开始说没文化看不懂的时候，这部作品多半要烂，这么多年的经验之谈
+
+
+*****
+
+####  与太郎  
+##### 37185#       发表于 2025-3-14 15:15
+
+[https://www.zhihu.com/question/1 ... 1883719611167523406](https://www.zhihu.com/question/14272440919/answer/1883719611167523406)
+
+感觉这个分析有点道理，柿本在mujica里太想追求戏剧感，结果弄巧成拙
+
+*****
+
+####  聋与唬  
+##### 37186#       发表于 2025-3-14 15:15
+
+睦融合了之后大祥有关心过睦一次吗？墨呢？
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  大户爱  
+##### 37187#       发表于 2025-3-14 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67651420&amp;ptid=2208921" target="_blank">章文元 发表于 2025-3-14 10:15</a>
+神人楼？是哪里的神人楼？求个链接我去瞻仰下</blockquote>
+战吧的被删掉了，转移阵地去avemujica吧了。
+
+*****
+
+####  xyion  
+##### 37188#       发表于 2025-3-14 15:17
+
+我倒是觉得独角戏很多片段都不错，比如狗爬，但20分钟实在太单调。
+
+可以想想几原来拍怎么演出，或者你要剧场，那sh来首歌是啥样。
+
