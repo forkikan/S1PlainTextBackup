@@ -76,3 +76,13 @@ ChroNoiR 1st Mini Album 15232，没抽选好低
 
 你要虹杏的官方办对抗甲子园那虹杏的选手人数差别也太大了 除非杏把杏星也放进来不然根本组不起联赛 
 
+
+*****
+
+####  Ferrari  
+##### 1043#       发表于 2025-3-14 07:56
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">本来v甲第一届就是全员参与的
+后来被虹夺走搞成了虹甲
+该还原了
+
