@@ -3013,3 +3013,15 @@ chuchu大人/祥子对不起
 事到如今或许没人“在意"了，但是我必须提起，本话之后，初华是当初内鬼导致炸团的假药也彻底破产了，而且 ...</blockquote>
 还不如第四集就直接因为初华炸团呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  taiyangyou  
+##### 37273#       发表于 2025-3-14 18:02
+
+ 本帖最后由 taiyangyou 于 2025-3-14 18:05 编辑 
+
+越来越有美国肥皂剧的感觉了。就是追求每集都有爆点，每个人都有好几面，时而做好人时而扮坏人，但是来来回回就是这些人的纠葛和感情剧变来推动故事前进。
+
+#11 的自白，越来越有 黄金魔女的自白 的感觉了<img src="https://static.saraba1st.com/image/smiley/carton2017/291.gif" referrerpolicy="no-referrer">
+
