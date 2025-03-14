@@ -1631,3 +1631,15 @@ Ver1.09.0.1 2025/03/14Steam®
 硝烟弥漫的王城这关是不是有毛病？全是高架炮台？？？打几把啊打安田是不是**子痒 ...</blockquote>
 直接用火枪爆头啊
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 3565#       发表于 2025-3-15 07:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67656473&amp;ptid=2092342" target="_blank">cherry__ 发表于 2025-3-14 20:01</a>
+不杀任务好麻烦啊，主要几乎没有木头武器掉落，需要的时候还得特地去买</blockquote>
+佩里那边旁边有个铁匠，他卖木质武器
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
