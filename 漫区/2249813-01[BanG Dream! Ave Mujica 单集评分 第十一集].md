@@ -3393,3 +3393,14 @@ ep11演出只是单纯的效果不好 且不说在类似解谜篇的高信息量
 
 谁能想到这片是写给龙骑士的情书啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NOYURINOLIFE  
+##### 357#       发表于 2025-3-14 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67647411&amp;ptid=2249813" target="_blank">空气先生 发表于 2025-3-13 22:30</a>
+
++2，祥子他爹能吃到姐妹盖饭也是人生幸事</blockquote>
+笑死了看到你这儿我硬是楞了一分钟没想明白，丰川清告都要从剧里爬出来出来了：哥们你说的是我丈人吧？我真罪不至此，好不容易洗白了，可别再给我背锅了
+

@@ -13843,3 +13843,40 @@ GQuuuuuuX到底是什么意思
 
 我很期待这一点，也很期待大家如何填补这些空白
 
+
+*****
+
+####  岸浪白野  
+##### 8529#       发表于 2025-3-14 22:58
+
+ 本帖最后由 岸浪白野 于 2025-3-14 23:02 编辑 
+
+卖哈罗的大哥哥
+[ふたい (@futai21) / X](https://x.com/futai21)
+
+<img src="https://img.saraba1st.com/forum/202503/14/225653x6r7ffh6shz6pyr0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.9 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 22:56 上传
+
+<img src="https://img.saraba1st.com/forum/202503/14/225704yhysggusn0u1wjrl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.08 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 22:57 上传
+
+[X 上的 ふたい：“お題箱　ハロ屋さんやってるアムロ(GQX軸) [url]https://t.co/tawHML7ErM](https://x.com/futai21/status/1900476748376219747)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202503/14/225717m2rb0okli2b3ba13.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.55 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 22:57 上传
+
