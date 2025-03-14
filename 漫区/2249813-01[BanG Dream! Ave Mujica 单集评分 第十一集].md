@@ -2736,3 +2736,23 @@ Ave Mujica也算是传奇耐复活王了，在反复横跳了这么多次的情�
 
 真初华……如果真有这么个人而不是脑内妹妹的话，小时候想当偶像并不一定长大了也这么执着吧，阳角一般都爱好广泛嘛。
 
+
+*****
+
+####  Schwarzess  
+##### 294#       发表于 2025-3-14 08:40
+
+可以计入jk band这一细分领域史册中的一话。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  四月一日辻迁  
+##### 295#       发表于 2025-3-14 08:42
+
+-2 一集单口相声没什么好看的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
