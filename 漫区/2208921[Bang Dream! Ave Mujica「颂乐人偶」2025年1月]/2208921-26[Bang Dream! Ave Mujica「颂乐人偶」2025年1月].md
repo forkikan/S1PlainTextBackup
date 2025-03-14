@@ -1736,3 +1736,67 @@ DE}_2}A[1__WZT9GX@N)}W8.jpg
 真假三角初华，早在MyGO里就有暗示？
 [https://www.bilibili.com/video/BV1pGRMYuEXC](https://www.bilibili.com/video/BV1pGRMYuEXC)
 
+
+*****
+
+####  Lyzers  
+##### 37159#       发表于 2025-3-14 14:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别说在邦邦，放眼古今中外，一个JK一边叫着狂热对象的名字一边鬼畜狗爬的镜头那也是极具冲击力的画面
+
+*****
+
+####  是谁的书画  
+##### 37160#       发表于 2025-3-14 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67653885&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-14 14:23</a>
+
+其实还有一个大问题，邦邦历史上有类似这样🐶爬还演出来的主唱吗</blockquote>
+历史的先河需要一个伟大的开创者<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一心而用  
+##### 37161#       发表于 2025-3-14 14:35
+
+可怜的甜甜圈
+
+<img src="https://img.saraba1st.com/forum/202503/14/143457acmgkqd4xfqe84d8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (175.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 14:34 上传
+
+<img src="https://img.saraba1st.com/forum/202503/14/143522o6efzf0me599tax5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (397.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 14:35 上传
+
+*****
+
+####  Cortana  
+##### 37162#       发表于 2025-3-14 14:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649515&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-14 01:01</a>
+
+那渔夫能和女仆生出来个几乎一摸一样的
+
+只能说渔夫和老登多少也有点关系 ...</blockquote>
+姜文姜武
+
+*****
+
+####  Lawliet.L  
+##### 37163#       发表于 2025-3-14 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67653718&amp;ptid=2208921" target="_blank">stevenzero 发表于 2025-3-14 14:00</a>
+
+初音和初华一模一样有官方认定吗？我觉得姐妹小时候长差不多也不是很离谱。 ...</blockquote>
+双生意象在文艺作品中挺常见的
+
