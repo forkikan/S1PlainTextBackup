@@ -2982,3 +2982,34 @@ chuchu大人/祥子对不起
 狂気に満ちた殺伐とした百合とかもやってみたいので
 来着
 
+
+*****
+
+####  aptx8285144  
+##### 37270#       发表于 2025-3-14 17:49
+
+事到如今或许没人“在意"了，但是我必须提起，本话之后，初华是当初内鬼导致炸团的假药也彻底破产了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，而且她也是炸团的最大受害者之一，如果不是折腾一圈导致心理病严重而搞出变态歌词而被老登警觉，也许哪怕是过家家乐队也能维持到大喵和大祥矛盾激化那一天吧
+
+所以前四话存在的意义还在被解构<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 37271#       发表于 2025-3-14 17:55
+
+爹丢个啤酒罐都已经变了好几种解释了。
+
+说实话我觉得爹破防的原因不是说看到祥子上了武道馆，而是祥子和她小姨一起上了武道馆，这里的意味可太多了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  戏谑二次元  
+##### 37272#       发表于 2025-3-14 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67655563&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-14 17:49</a>
+事到如今或许没人“在意"了，但是我必须提起，本话之后，初华是当初内鬼导致炸团的假药也彻底破产了，而且 ...</blockquote>
+还不如第四集就直接因为初华炸团呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
