@@ -3655,3 +3655,68 @@ bro觉得没有剧透就能迎来美好未来<img src="https://static.saraba1st.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卧槽 这个十字架X 的mv 冲击力太强了
 
+
+*****
+
+####  aptx8285144  
+##### 37330#       发表于 2025-3-14 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67656263&amp;ptid=2208921" target="_blank">聋与唬 发表于 2025-3-14 19:23</a>
+
+给ai唠叨了一下，ai提出质疑。认为剧情漏洞严重，观众难以信服
+
+1.初音对养父去世冷漠。
+
+2.离家出走过于草率 ...</blockquote>
+很多东西勉强还能用老登还是有爱或者愧疚解释，还有初音和初华双簧大战里初音也提到养父对他如同亲生女儿一样非常好，但是说到底她那句是大祥把我变成人类太极端了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">，而且前面跟着“一无所有”（她自己都承认很感激养父家），这种过于悬殊的爱之对比会让我经常吐槽玛丽苏感过于严重且很难共情
+
+*****
+
+####  huxiaopao163  
+##### 37331#       发表于 2025-3-14 20:20
+
+如果后面两集有这个MV的程度，我觉得还值得一看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+怎么说呢，剧透让11集完全没有信息量了，只让人感觉无聊，这是最要命的。第十集好歹有个非常神秘的喵睦告白，之前也没被剧透过，让好多人一阵分析还挺有意思的。
+
+当然真的好剧情好演出是不怕剧透的
+
+*****
+
+####  aptx8285144  
+##### 37332#       发表于 2025-3-14 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67656499&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-14 20:04</a>
+
+沒奉旨劇透的
+
+木谷哥哥下星期就真要小心小命了</blockquote>
+就算有奉旨剧透，叔叔家本周再下降0.2分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，没奉旨剧透，这画面简直不敢想象是啥了
+
+
+*****
+
+####  adretyu67.  
+##### 37333#       发表于 2025-3-14 20:24
+
+11话就是很烂啊。独角戏念经是什么前卫艺术。
+
+三个作监但是总共就没几个新规。不知道监督了啥
+
+*****
+
+####  是谁的书画  
+##### 37334#       发表于 2025-3-14 20:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67656633&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-14 20:21</a>
+
+就算有奉旨剧透，叔叔家本周再下降0.2分，没奉旨剧透，这画面简直不敢想象是啥了 ...</blockquote>
+你将会见识到超乎你最狂野想象的米线山风暴<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 37335#       发表于 2025-3-14 20:27
+
+如果没有奉旨剧透，初音是小姨这个炸弹扔到战吧会是一种什么样的画面？<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
