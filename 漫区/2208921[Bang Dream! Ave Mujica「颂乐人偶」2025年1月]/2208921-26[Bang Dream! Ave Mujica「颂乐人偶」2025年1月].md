@@ -3980,3 +3980,27 @@ WSD 你們是在搞亞空間的東西吧？
 
 就有种大家都是神人别管谁欠谁了的感觉（
 
+
+*****
+
+####  my707776310  
+##### 37361#       发表于 2025-3-14 21:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了战吧的帖子,mujica果然是蟹脚片
+
+*****
+
+####  adretyu67.  
+##### 37362#       发表于 2025-3-14 21:46
+
+鸡团应该有点邪典味的，不过也不能真做cult吧
+
+*****
+
+####  zhzij111  
+##### 37363#       发表于 2025-3-14 21:47
+
+正片还是妥协了，要是也能做这么邪典那才是实验性动画，包没人黑的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

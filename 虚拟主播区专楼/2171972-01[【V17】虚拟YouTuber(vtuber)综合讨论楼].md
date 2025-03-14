@@ -138,3 +138,11 @@ v甲是第二届了，原始宣称不说五五开，大福至少也有4成吧
 论坛助手,iPhone</blockquote>
 天开之前都快算半个虹人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">后来2434 network制度废除了
 
+
+*****
+
+####  2L模仿47哥  
+##### 1049#       发表于 2025-3-14 21:43
+
+不太熟英雄组，3d同接为什么这么高
+
