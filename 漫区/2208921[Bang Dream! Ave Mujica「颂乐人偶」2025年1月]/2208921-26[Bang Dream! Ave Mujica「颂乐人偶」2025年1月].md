@@ -4559,3 +4559,18 @@ X最早封面像是肺部X光片。
 
 初华去了东京后，也许不是老登先帮她的，而是丰川家的其它势力和她达成了合作，而初华向诚实的祥父公布真相，也是反老登势力的一步棋<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  钦念以忱  
+##### 37413#       发表于 2025-3-15 02:12
+
+萌战吧名声在外的祥厨小吧引咎辞职了，还用的涉键政名义，好奇怪
+
+*****
+
+####  sauron.j  
+##### 37414#       发表于 2025-3-15 02:14
+
+10、11集播放后原本一直底边的初华玩偶销量显著上升了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
