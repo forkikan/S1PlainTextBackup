@@ -4305,3 +4305,64 @@ X最早封面像是肺部X光片。
 
 这mv不但串串烧断臂还疑似血鹰 肢体破坏有点大了 恨到畜来畜去的应该喜欢
 
+
+*****
+
+####  adretyu67.  
+##### 37388#       发表于 2025-3-14 23:09
+
+人偶全程被当异教徒挂在十字架上，最后世界还是烧起来了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+我也没太搞懂逻辑关系
+
+*****
+
+####  极东  
+##### 37389#       发表于 2025-3-14 23:11
+
+丰川老登是什么卡思嘉吗
+重力女同格里菲斯初妈通过卡思嘉老登来感受格斯祥姥
+怪不得金毛是大狗呢
+给这等着我呢
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  极东  
+##### 37390#       发表于 2025-3-14 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67657643&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-14 23:09</a>
+人偶全程被当异教徒挂在十字架上，最后世界还是烧起来了
+
+我也没太搞懂逻辑关系 ...</blockquote>
+奥特曼被挂着十字架上，操纵艾斯杀手的鸭脖人毁灭了地球<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zhzij111  
+##### 37391#       发表于 2025-3-14 23:12
+
+就是祥子中二世界观前传吧，人偶被刁民酷刑串串烧，然后复活了要报复世界，这mv还是挺尊重母鸡卡世界观的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  wwwttth  
+##### 37392#       发表于 2025-3-14 23:14
+
+艹，看到一个分析说丰川家族是遗传性心脏病，运气好可以通过换心手术来保命，而祥子身边最可能配型成功给她换心的人是初音。
+
+*****
+
+####  是谁的书画  
+##### 37393#       发表于 2025-3-14 23:17
+
+确实喜欢，这片子做出了一帮神人但就是缺少意象化的表达。
+
+如果是我的话，我会让初华的身体竖切开半空，黑漆漆的身体里用处污泥和蓝色的蝴蝶尸体，她只会害怕的尖叫着跪下抓起那片污秽往身体中填补，喊着“小祥，小祥，我好想见你”。这绝对比现在当条狗强。
+
