@@ -535,3 +535,50 @@ closeAI你这公关团队是不是从meta跳来的？怎么味儿都一样……
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">敌人急了，说明做对了
 
+
+*****
+
+####  你被巨魔了  
+##### 63#       发表于 2025-3-14 11:05
+
+路边一条
+
+*****
+
+####  chuchoselph  
+##### 64#       发表于 2025-3-14 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67650414&amp;ptid=2249832" target="_blank">蛋爷 发表于 2025-3-14 08:32</a>
+我只说一句
+
+Open AI的CEO是Gay</blockquote>
+这种反dei就大可不必了，厨子也是给，没见一天到晚像奥特曼一样犯贱
+
+*****
+
+####  Geronimo  
+##### 65#       发表于 2025-3-14 11:08
+
+开源了不就偷不了了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nukacolamania  
+##### 66#       发表于 2025-3-14 11:10
+
+你就说你答应好的开放搞黄色呢？
+
+扭扭捏捏又当又立，这也好意思说对面搞政治？
+
+—— 来自 motorola moto g stylus 5G (2022), Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  foolishman  
+##### 67#       发表于 2025-3-14 11:12
+
+chatgpt又取消思考按钮了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

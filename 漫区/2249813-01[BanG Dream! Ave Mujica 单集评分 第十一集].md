@@ -2959,3 +2959,15 @@ c83d70cf3bc79f3d69ba6db3a8c0af14738b2944@f_auto.webp
 
 让11追2可能性微存<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  朝霧春嘉  
+##### 316#       发表于 2025-3-14 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649362&amp;ptid=2249813" target="_blank">上班族 发表于 2025-3-14 00:44</a>
+我现在反而尊重监督了，真的敢这么玩，挑战“动画演出，亦或者动画究竟是什么”已经很有实验话剧的感觉了。 ...</blockquote>
+赞同，冲突和转折才是灵魂
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
