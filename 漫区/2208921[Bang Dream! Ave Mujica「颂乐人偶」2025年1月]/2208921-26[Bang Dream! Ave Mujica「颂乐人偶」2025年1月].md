@@ -1650,3 +1650,38 @@ DE}_2}A[1__WZT9GX@N)}W8.jpg
 
 狗团5人中 乐奈比其他人小一岁。  那么为了对偶，鸡团3.0（或者说正式版1.0）中有一个（真）初华比其他人也小一岁 不是很合理吗？
 
+
+*****
+
+####  半年  
+##### 37151#       发表于 2025-3-14 14:12
+
+<img src="https://p.sda1.dev/22/5ab8e186fa5601cf4aad9a0ddcaf81e7/QQ图片20250314141046.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一心而用  
+##### 37152#       发表于 2025-3-14 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67653335&amp;ptid=2208921" target="_blank">Vitiate 发表于 2025-3-14 13:14</a>
+
+这丰川家基因是不是有什么问题，只能生女的还总是短命
+
+🐘危</blockquote>
+此事在《仙剑奇侠传》中已有记载，女娲一族。
+
+*****
+
+####  一心而用  
+##### 37153#       发表于 2025-3-14 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67653361&amp;ptid=2208921" target="_blank">零壹贰叁 发表于 2025-3-14 13:16</a>
+
+但是初华是双子的伏笔在mygo就有
+
+而且如果初音是精分，柿本就不会把睦是人格分裂这个点子是自己想出来的在 ...</blockquote>
+等一下，mygo的伏笔在哪里？
+
+我以为伏笔指的是祥子发音sakiko而非shouko这个伏笔。
+
