@@ -4574,3 +4574,33 @@ X最早封面像是肺部X光片。
 
 10、11集播放后原本一直底边的初华玩偶销量显著上升了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kira1988  
+##### 37415#       发表于 2025-3-15 02:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67656194&amp;ptid=2208921" target="_blank">有钱多买小人 发表于 2025-3-14 19:15</a>
+
+【硬核分析丰川家的遗传病原理- 母鸡卡最惊人的隐藏设定！-哔哩哔哩】 https://b23.tv/mQRuNWN
+
+最新科研成 ...</blockquote>
+心脏要逃走了警告
+
+*****
+
+####  K的字母表  
+##### 37416#       发表于 2025-3-15 02:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67658243&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-3-15 02:14</a>
+
+10、11集播放后原本一直底边的初华玩偶销量显著上升了</blockquote>
+老实说我觉得wsd还是挺牛的，mygo还有前期的mujica初华给我的感觉就是长得好看的主唱，一点兴趣也没有，现在我是真的很怜爱她……
+
+*****
+
+####  K的字母表  
+##### 37417#       发表于 2025-3-15 02:23
+
+老祥是不是就没给soyo回过箭头，初音虽然这么舔看样子最后也是舔到了，soyo下跪可是完全无后续……
+
