@@ -1912,3 +1912,18 @@ PS5版半价了买了，然后和STEAM原价一个价<img src="https://static.sa
 
 不过每次打穿一个迷宫下一个迷宫就强行换机制有点不爽...
 
+
+*****
+
+####  检索者  
+##### 163#       发表于 2025-3-14 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67654928&amp;ptid=2200160" target="_blank">windtrack_qh 发表于 2025-3-14 16:35</a>
+
+PS5版半价了买了，然后和STEAM原价一个价
+
+打通了还挺好玩的，配置挺豪华的，打牌也还算有趣，歌也还不错， ...</blockquote>
+他这个OST里除了安谢和rita的两首歌有完整版之外，其他曲子就是单纯给游戏里的循环版加了个开头和结尾的1分多钟版本，有些还不如直接录个循环版听了。
+
+联机成就确实是个问题，这游戏的pvp基本就是个胡逼小游戏，野排基本没人的
+
