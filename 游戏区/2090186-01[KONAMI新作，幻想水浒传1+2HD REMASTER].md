@@ -3692,3 +3692,16 @@ PSP版就修了
 
 看到1代攻略有主角在泰德第一次入队后立马穿过虎狼山可以拿纹章的隐藏事件，问下潭友们除了练级外还有什么奇招能顺利逃过路上的一堆强敌<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  captoon  
+##### 385#       发表于 2025-3-15 01:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67655411&amp;ptid=2090186" target="_blank">Dreammask 发表于 2025-3-14 17:31</a>
+
+看到1代攻略有主角在泰德第一次入队后立马穿过虎狼山可以拿纹章的隐藏事件，问下潭友们除了练级外还有什么 ...</blockquote>
+贿赂，不过最好等级高点。
+
+开局先去更新下装备，SAVE下，打1场3个毛怪那种，打完直升LV 9。再去跑隐藏会比较容易。
+
