@@ -638,3 +638,24 @@ OpenAI开口说：
 
 —— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
+
+*****
+
+####  qq460262849  
+##### 72#       发表于 2025-3-14 12:00
+
+此事在《日耳蛮闭环赢学》中亦有记载<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ADY-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  愿闻其翔  
+##### 73#       发表于 2025-3-14 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67650953&amp;ptid=2249832" target="_blank">dfbbymice 发表于 2025-3-14 09:30</a>
+
+我觉得可以有一个爆论，凡是牢美公开反对的论调，都是他们正在台下偷偷干的事情 ...</blockquote>
+这算什么爆论，早就是共识了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -97,3 +97,13 @@
 
 听这楼的意思，这片至少比系列上一部那个抽象动画强是吧，我去看看
 
+
+*****
+
+####  codezwei  
+##### 282#       发表于 2025-3-14 12:01
+
+不需要感情，需要的是人工智能<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FOA-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
