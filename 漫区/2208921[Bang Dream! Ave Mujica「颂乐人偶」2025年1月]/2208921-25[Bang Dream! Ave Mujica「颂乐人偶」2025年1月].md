@@ -16240,3 +16240,121 @@ gal老嗨都是要会写废萌的。
 
 一个 mediamix 的驻场动画监督本来就看不上作坊式的 gal 公司吧？我柿本拨弄的可是多大的资金盘啊
 
+
+*****
+
+####  聋与唬  
+##### 36972#       发表于 2025-3-14 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649424&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-14 00:50</a>
+初华就是渔夫爹的亲女儿啊</blockquote>
+这话你信吗？长的又像，年龄差距又小。初音妈刚生完初音，坐月子的时候就开始和渔夫备孕初华了？两人的情感关系难道是从初音还怀着的时候就开始了？
+初华爹爱上了怀着的初音的初音妈？
+肯定初华也是祥子爷的种啊
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  封印的右手  
+##### 36973#       发表于 2025-3-14 09:49
+
+我现在只能感叹当初祥子既然想组银河战舰为啥不干脆把甜甜圈女士这个五连冠挖过来，反正sumimi这边初华肯定同意的，这乐队就少了热情开朗的，再把睦头人踢走，这乐队要多和谐有多和谐<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  是谁的书画  
+##### 36974#       发表于 2025-3-14 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67651108&amp;ptid=2208921" target="_blank">聋与唬 发表于 2025-3-14 09:46</a>
+
+这话你信吗？长的又像，年龄差距又小。初音妈刚生完初音，坐月子的时候就开始和渔夫备孕初华了？两人的情 ...</blockquote>
+<img src="https://i.miji.bid/2025/03/14/9daa147d4586538ac9d29596ba6577a9.png" referrerpolicy="no-referrer">
+
+我不信，我甚至觉得是渔夫出海时期老登偷偷回去剩下的种<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+但是毕竟少女乐队，这方面估计也没那么将科学了，想一出是一出
+
+*****
+
+####  戏谑二次元  
+##### 36975#       发表于 2025-3-14 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67651108&amp;ptid=2208921" target="_blank">聋与唬 发表于 2025-3-14 09:46</a>
+这话你信吗？长的又像，年龄差距又小。初音妈刚生完初音，坐月子的时候就开始和渔夫备孕初华了？两人的情 ...</blockquote>
+要是不整睦头人的烂活，这里倒是可以用初音初华一人论，更像安田纱代了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  南宮凝香  
+##### 36976#       发表于 2025-3-14 09:50
+
+初媽跟祥嫲也是關係亂得要死的女女關係性
+
+初媽也就跟祥媽年齡差不多
+
+愛上一個年齡可以當她媽的女人
+
+然後跟她老公療傷
+
+*****
+
+####  小妻水亚美  
+##### 36977#       发表于 2025-3-14 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67651172&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-14 09:50</a>
+初媽跟祥嫲也是關係亂得要死的女女關係性
+
+初媽也就跟祥媽年齡差不多</blockquote>
+杆姐妹了
+
+—— 来自 OPPO PGFM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  刑部姬真可爱  
+##### 36978#       发表于 2025-3-14 09:53
+
+事到如今还能有楼友认为不能编剧说啥就是啥吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202503/14/095140dpo7yhdo37dzcchc.png" referrerpolicy="no-referrer">
+
+<strong>d34fc50bb346fac632a955a713a1e237.png</strong> (415.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 09:51 上传
+
+邦邦里这俩长得完全不同的角色也是只差一年的亲姐妹哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  真爱与热情  
+##### 36979#       发表于 2025-3-14 09:53
+
+ep11的身世倒是能解释掉mygo跟mujica前期的一些不合理的地方，比如mygo ep10真就是背后推一把灯，好让她远离祥子
+
+还有什么摸鱼不练习大概都能解释一下
+
+问题就是初音凭什么能知道这么多跟她无关的信息
+
+老登中登的对话她是怎么知道的，他俩对话应该是没其他人在场才对。
+
+这段话是她自己脑部还是有内鬼告诉她的都不好说
+
+然后她还知道大祥身上发生的一切事情，她知道的东西也太多了点。我都不好说就是纯粹篇幅不够了开始灌输剧情，还是惊世智慧又开始埋伏笔
+
+*****
+
+####  聋与唬  
+##### 36980#       发表于 2025-3-14 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67649573&amp;ptid=2208921" target="_blank">聊nsy专用号 发表于 2025-3-14 01:11</a>
+不懂为什么这么在意真初华，这个角色就是用来塑造初音的，对祥子而言不过就是个可以利用的人脉，所以她才会 ...</blockquote>
+初华是初音剧情推动和祥子构筑关系性的核心，你告诉我不重要？
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
