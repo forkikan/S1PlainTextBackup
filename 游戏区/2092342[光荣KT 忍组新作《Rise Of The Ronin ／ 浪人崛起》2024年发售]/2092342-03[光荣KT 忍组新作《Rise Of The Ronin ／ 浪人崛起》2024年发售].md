@@ -1494,3 +1494,41 @@ AC神话三部曲的路子，太像了
 
 都说横滨卡爆，我到横滨反而能稳定60帧了，野外有时候会掉到40<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  沉睡城市  
+##### 3554#       发表于 2025-3-14 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67650874&amp;ptid=2092342" target="_blank">Koromoda 发表于 2025-3-14 09:23</a>
+
+浪人玩了两天，战斗系统感觉自机性能不够强，打boss有点坐牢。这个石火系统反普通攻击收益太低了。对面多段 ...</blockquote>
+思路还是打压制，等敌人攻击后石火和压制中石火，敌人招式对待不同，等待敌人先攻 敌人容易出连招。
+
+闪刃可以取消一切攻击动作后摇包括石火和处决，所以善用闪刃对打压制很重要。
+
+说白了石火闪刃是双腿，齐头并进才不瘸腿。
+
+
+*****
+
+####  dazzle  
+##### 3555#       发表于 2025-3-14 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67653431&amp;ptid=2092342" target="_blank">寂长无星夜 发表于 2025-3-14 13:25</a>
+
+都说横滨卡爆，我到横滨反而能稳定60帧了，野外有时候会掉到40</blockquote>
+幽默的粒子效果导致的，野外有股烟就直接掉30帧，毒效果也是掉帧掉得离谱
+
+*****
+
+####  Sopp  
+##### 3556#       发表于 2025-3-14 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67654188&amp;ptid=2092342" target="_blank">沉睡城市 发表于 2025-3-14 15:00</a>
+
+思路还是打压制，等敌人攻击后石火和压制中石火，敌人招式对待不同，等待敌人先攻 敌人容易出连招。
+
+闪刃 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">闪刃居然还能这么用……看说明还以为只对普通攻击有效
+

@@ -746,3 +746,16 @@ open ai的CEO雷普他妹
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  大韩李明博  
+##### 82#       发表于 2025-3-14 15:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67652819&amp;ptid=2249832" target="_blank">cube 发表于 2025-3-14 12:20</a>
+
+马大督工死堆算力搞出来的GROK都比那closedAI对味啊。
+
+没活可以咬打火机。</blockquote>
+GROK可没有像opanai，谷歌，claude一样限制大陆，香港，澳门地区。堪称良心。
+
