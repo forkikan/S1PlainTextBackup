@@ -1578,3 +1578,14 @@ Ver1.09.0.1 2025/03/14Steam®
 
 给家门口的狗子1万块有什么用吗
 
+
+*****
+
+####  东方定助  
+##### 3559#       发表于 2025-3-14 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67656243&amp;ptid=2092342" target="_blank">cherry__ 发表于 2025-3-14 19:20</a>
+
+给家门口的狗子1万块有什么用吗</blockquote>
+回来之后会给你一些刷好感用的礼物，后期刷全员满好感必备
+
