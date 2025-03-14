@@ -4221,3 +4221,37 @@ X最早封面像是肺部X光片。
 这种别扭的 ...</blockquote>
 因为最后要包寿司<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  firestorm5  
+##### 37380#       发表于 2025-3-14 22:51
+
+这集初华的自白感觉特别像金田一柯南片场里，犯人自述杀人动机那种感觉
+
+初华因为出身导致的自卑和嫉妒，对渔夫家产生了仇恨，最后初华杀死真初华顶替了她的身份去发展完成复仇那种感觉<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  huxiaopao163  
+##### 37381#       发表于 2025-3-14 22:56
+
+最后初华的秘密曝光，老登被丰川家的其它势力赶下台，祥子被剥夺继承权后送给初华当做报酬，以后她们就可以开开心心组乐队，不用担心大人们的阻拦了，太好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xyion  
+##### 37382#       发表于 2025-3-14 22:56
+
+鸡要是真能严肃写神人，而不是现在这样不上不下，至少严肃的观众不会有人在意亏欠不亏欠。你去看无限的未知会在意弟弟暴力哥哥、才女爱慕霸总吗？
+
+而且鸡这些人物母题没一个有足够的叙事去支持，抽象得飞起。
+
+*****
+
+####  厉飞雨  
+##### 37383#       发表于 2025-3-14 22:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一想到大祥老师大概率活不到40岁，我跟大祥老师和解了
+
