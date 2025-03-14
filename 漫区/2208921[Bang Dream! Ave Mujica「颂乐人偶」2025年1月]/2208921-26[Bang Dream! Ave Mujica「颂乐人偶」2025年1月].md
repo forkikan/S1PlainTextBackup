@@ -3537,3 +3537,54 @@ bro觉得没有剧透就能迎来美好未来<img src="https://static.saraba1st.
 
 我不要黄狗守大半辈子寡啊<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adretyu67.  
+##### 37318#       发表于 2025-3-14 19:49
+
+唉，本质也是一种假药骗自己。不要太在意。
+
+*****
+
+####  油画布  
+##### 37319#       发表于 2025-3-14 19:50
+
+<blockquote>cxj649 发表于 2025-3-14 19:44
+按他们理论，大祥甚至活不过20岁233
+
+他们好像一直压缩祥妈的结婚年龄2233</blockquote>
+
+那我要看武士道给大祥举行葬礼！看go的坟头live
+
+
+*****
+
+####  Milarvoz  
+##### 37320#       发表于 2025-3-14 19:55
+
+意外吃屎和做好心理准备吃屎也别分个高低了。
+
+—— 来自 samsung SM-S9180, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  聋与唬  
+##### 37321#       发表于 2025-3-14 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67656377&amp;ptid=2208921" target="_blank">fufusako 发表于 2025-3-14 19:41</a>
+提前剧透的真该死啊，要是没有剧透，现在我应该刚补完11话，开始愉快地翻社区的反应、假药、打脸帖黑泥帖了 ...</blockquote>
+错误的，有剧透你至少还能把锅扣在剧透上。没剧透这屎就只能自己吃了
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  ziqing  
+##### 37322#       发表于 2025-3-14 19:57
+
+疯狂的炒作！疯狂的炒作！疯狂的炒作！疯狂的炒作！疯狂的炒作！疯狂的炒作！疯狂的炒作！疯狂的炒作！疯狂的炒作！疯狂的炒作！疯狂的炒作！疯狂的炒作！疯狂的炒作！疯狂的炒作！疯狂的炒作！疯狂的炒作！疯狂的炒作！疯狂的炒作！
+
+—— 来自 Xiaomi 24129PN74C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
