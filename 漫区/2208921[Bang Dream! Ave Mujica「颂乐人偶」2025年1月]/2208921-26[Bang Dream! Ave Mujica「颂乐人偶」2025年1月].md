@@ -1282,3 +1282,71 @@ mujica的动画把mujica主唱线淡化放逐到剧场版，还真是十五年�
 
 初音真名都没有揭开前就卖包含假名的周边，wsd真畜生啊 
 
+
+*****
+
+####  masshiroo  
+##### 37118#       发表于 2025-3-14 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67650694&amp;ptid=2208921" target="_blank">Victorino 发表于 2025-3-14 09:03</a>
+初音妈是丰川家度假别墅管家，一直在这个岛上</blockquote>
+这样，但二婚时确定初华已经生下来了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  南宮凝香  
+##### 37119#       发表于 2025-3-14 13:00
+
+藝名又怎麼了
+
+你買RAS 他們也是用藝名吧
+
+*****
+
+####  北条早苗  
+##### 37120#       发表于 2025-3-14 13:00
+
+按照邦邦姓氏取自东京地名的传统，母鸡卡是目黑区，目黑区只有读作sankaku的三角山这个地方，初音这个姓氏确实勉强
+但是丰川和若叶都是来自卖狗的丰岛区，再来一个丰川也太变态了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  油画布  
+##### 37121#       发表于 2025-3-14 13:02
+
+<blockquote>南宮凝香 发表于 2025-3-14 13:00
+藝名又怎麼了
+
+你買RAS 他們也是用藝名吧</blockquote>
+把初华当成初音的艺名吗？现在初音厨是这么消化的吗
+
+*****
+
+####  ntrntr1  
+##### 37122#       发表于 2025-3-14 13:02
+
+岛上没人通网后在网上发帖
+
+俺们岛上也有个叫初华的名字和长相都和代明星一模一样哎
+
+真初华不似真的一堆bug。。。
+
+*****
+
+####  huxiaopao163  
+##### 37123#       发表于 2025-3-14 13:06
+
+初音妈也是私生女是吧，是初音的外婆和在再上一代丰川赘婿生的是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  聋与唬  
+##### 37124#       发表于 2025-3-14 13:07
+
+什么夏目寮
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
