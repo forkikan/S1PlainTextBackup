@@ -2672,3 +2672,88 @@ mana：还好我戏份不多，哎呀，冠军，你们有几个？
 这手游，立希和灯的画风都变了，一个看起来柔和无比，另一个也不像企鹅了( ...</blockquote>
 手遊燈比動畫燈（特別是母雞卡的張嘴企鵝）媚得多
 
+
+*****
+
+####  阿卡拉兰斯  
+##### 37241#       发表于 2025-3-14 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67654844&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-14 16:24</a>
+看到日本人说初音可以和请告结婚延续家族的宿命，我来编一个
+
+才死了老婆，工作压力巨大，因为赘婿招到排挤 ...</blockquote>
+不如再变态一点
+
+其实初音的母亲早就追着她女儿回到了阔别已久的东京，结果还没找到女儿时便得知女儿冒用另一个女儿的名字出道大火了，因此大概是孩子她爹出手，那自己还是回去吧
+但在女儿长大离去的寂寞中，她见到了一个送报纸的初中生……为什么这个蓝发女孩的身上有自己爱人的影子和味道呢
+
+后面的编不下去了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  野菜一日分  
+##### 37242#       发表于 2025-3-14 16:36
+
+花冬的问题不全是志水是个废物吗，春的时候就能把女主角写成一个仿佛进入女校的童贞男，跟拳击手想做的属于IG的《圣母在上》简直天上地下。独角兽那么喜欢塞自己的XP，就应该跑去写小说或者AVG，在动画里暴走只会弄的一地鸡毛。
+
+*****
+
+####  qratosones1337  
+##### 37243#       发表于 2025-3-14 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67654667&amp;ptid=2208921" target="_blank">z-hunter 发表于 2025-3-14 16:00</a>
+
+话说这集过后，就个人来说，我对初音这个人物塑造还是可以理解的，她的自卑和爱慕、心理扭曲都说得通
+
+但鸡 ...</blockquote>
+刚刚想到，其实这集海铃那句台词完全可以改掉，改成大祥联系不上初华，委托海铃去调查初华家里（自己不能出门），这样效果不会那么难绷，而且也凸显大祥自己的行动力有提升
+
+*****
+
+####  结衣小比取  
+##### 37244#       发表于 2025-3-14 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67654884&amp;ptid=2208921" target="_blank">الطائر 发表于 2025-3-14 16:29</a>
+
+观众知道的真相祥子不知道，下一集海岛奇兵追妻该不会追错人了吧。</blockquote>
+祥子没什么好纠结的吧，无论知不知道这些信息，要追回的肯定是最近几个月参加Ave Mujica的那个啊<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer"> <blockquote><img src="https://img.saraba1st.com/forum/202503/14/132817xl5vietnjjisvj5l.jpg" referrerpolicy="no-referrer">
+
+截图中只有右边在脸红，说明祥子在回家前对于这个幼驯染（初音+初华）的感情并不深厚</blockquote>
+
+
+*****
+
+####  aptx8285144  
+##### 37245#       发表于 2025-3-14 16:43
+
+ 本帖最后由 aptx8285144 于 2025-3-14 16:45 编辑 
+<blockquote>蜜瓜包 发表于 2025-3-14 16:26
+话说甜甜圈对初音的身份知道多少呢？按陪太子读书的猜测，有没有可能甜甜圈对初音的感情都是装出来的呢，一 ...</blockquote>
+确实有这样的概率，不过甜甜圈贵为连续五年全国演唱冠军，就算是营业，对自己的搭档也不可能不给好颜色的吧，虽然这个搭档平日里对这个组合的工作是经常心不在焉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 37246#       发表于 2025-3-14 16:44
+
+独角兽本来就是出过短篇百合小说集的。
+
+制作人就是肯对这种剧本点头，就说明瞄准了这个市场了，你不爽只说明：一你不是受众，二这帮人市场调研出毛病了。
+
+*****
+
+####  adretyu67.  
+##### 37247#       发表于 2025-3-14 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67654972&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-3-14 16:40</a>
+
+刚刚想到，其实这集海铃那句台词完全可以改掉，改成大祥联系不上初华，委托海铃去调查初华家里（自己不能 ...</blockquote>
+如果不找补，大祥就是被老登在家里关了一个星期左右，天天给初华发消息被不回<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Hchan  
+##### 37248#       发表于 2025-3-14 16:44
+
+感觉衫菜水姬应该会和独角兽很合得来，什么押山清高柿本广大，水姬你才是我的soulmate啊！
+
