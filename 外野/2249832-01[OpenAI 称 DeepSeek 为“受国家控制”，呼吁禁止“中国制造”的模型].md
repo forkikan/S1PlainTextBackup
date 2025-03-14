@@ -504,3 +504,11 @@ R2还没出来就急成这样了<img src="https://static.saraba1st.com/image/smi
 
 这就是典型的小孩子打架打不过叫家长的思路，幼稚且愚蠢<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  失落之翼  
+##### 59#       发表于 2025-3-14 10:41
+
+我有一技，只要美国和世界其他国家硬断网，闭关锁国，这样赛里斯就不会影响到了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
