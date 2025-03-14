@@ -2090,3 +2090,118 @@ DE}_2}A[1__WZT9GX@N)}W8.jpg
 
 可以想想几原来拍怎么演出，或者你要剧场，那sh来首歌是啥样。
 
+
+*****
+
+####  ads147147  
+##### 37189#       发表于 2025-3-14 15:18
+
+不过按现在的情况看，也就是魅影说有个半吊子勾搭上，魅影在盛大的舞台上被摘下了掩盖他丑陋面容的面具（也就是初华在live后被揭露了丑陋的私生子的过去），魅影逃跑。但是没有掳走克里斯丁就已经很说明没按魅影的剧本走了，按这集舞台剧里丢石子的情节来看，尾巴应该是按罗密欧与朱丽叶走的，祥子和初华都抛离了丰川家的身世，迎来殉情（社会性死亡）。
+
+最后大家就只能靠母鸡卡活着，也难怪会把母鸡卡设计成商业乐队，大祥和初华的生活费大概率都得从这里找来，而且因为丰川家打压恐怕也只能在livehouse里玩，想去大舞台得看看后面手游怎么写。
+
+*****
+
+####  chondroitin  
+##### 37190#       发表于 2025-3-14 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67654304&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-3-14 15:13</a>
+
+所以初音到底为啥知道大祥搬出去的……事后调查的？
+
+如果就是出bug了，那独角兽原案也能出这么大篓子？ ...</blockquote>
+中登前期无能，初华知道祥子和中登处境是自己害的不去行动，这些跟祥子一个月不管睦是同一种情况。要么是故意塑造失能的角色形象，要么是编剧失能，取决于你相信哪一面。我倾向于相信就是系构工作问题导致的穿帮，某些单集的剧情大改了，但是前后集数对应的镜头却没有相应改，然后为了水剧情加上大量的回忆镜头。
+
+*****
+
+####  钦念以忱  
+##### 37191#       发表于 2025-3-14 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67654088&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-3-14 14:48</a>
+
+如果说古今中外的话倒也不至于。
+
+个人来说最富有冲击性的应该是王尔德的《莎乐美》，最后的结尾莎乐美抱 ...</blockquote>
+你举的例子有美感啊，初华在地上爬哪来的美感
+
+*****
+
+####  真爱与热情  
+##### 37192#       发表于 2025-3-14 15:22
+
+前面10集都没这么大意见，ep11就是摆明了搞个悲惨身世的角色，想骗观众的眼泪来暗度陈仓。
+
+初华/初音这个双子设计最后要是圆不上，那就是在砸坏一个角色来骗观众感情，不过回想也不是第一次干了
+
+*****
+
+####  影伴光生  
+##### 37193#       发表于 2025-3-14 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67653796&amp;ptid=2208921" target="_blank">半年 发表于 2025-3-14 14:12</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">木子米酱。。。流出来了啊！
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  厄神之息  
+##### 37194#       发表于 2025-3-14 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67652612&amp;ptid=2208921" target="_blank">MuramasaSP 发表于 2025-3-14 11:59</a>
+
+现在的祥子和初华确实很配。
+
+两个人都是把自己想象成悲剧女主角。不同在于，初华想要的是别人的认可和救赎 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我能认可，但是认可的形式得是晚安布布那种剧烈的人物反应，而不是母鸡卡这不知所谓的东西。。。
+
+*****
+
+####  ads147147  
+##### 37195#       发表于 2025-3-14 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67654357&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-14 15:19</a>
+
+你举的例子有美感啊，初华在地上爬哪来的美感</blockquote>
+正向冲击力和负向冲击力的区别。
+
+说到底观众可以忍受犯错（比如一些剧情bug之类的），但是不能忍受演出的无能（比如这个爬。。）
+
+*****
+
+####  一心而用  
+##### 37196#       发表于 2025-3-14 15:23
+
+丰川祥子符合愣次定律：主动贴上来的她会百般敷衍，离她远去的她会疯狂去追。
+
+*****
+
+####  影伴光生  
+##### 37197#       发表于 2025-3-14 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67653923&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-3-14 14:29</a>
+别说在邦邦，放眼古今中外，一个JK一边叫着狂热对象的名字一边鬼畜狗爬的镜头那也是极具冲击力的画面 ...</blockquote>
+（猛烈吼叫）（阴暗地爬行）
+一般是玩梗文案，哪会想到真的作出来
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  adretyu67.  
+##### 37198#       发表于 2025-3-14 15:24
+
+主唱跑了确实得去追吧
+
+*****
+
+####  影伴光生  
+##### 37199#       发表于 2025-3-14 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67654408&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-14 15:24</a>
+主唱跑了确实得去追吧</blockquote>
+其实把甜甜圈抓过来就好了，ave mujica和sumimi的问题都解决了——至于初双子，祝她们幸福
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

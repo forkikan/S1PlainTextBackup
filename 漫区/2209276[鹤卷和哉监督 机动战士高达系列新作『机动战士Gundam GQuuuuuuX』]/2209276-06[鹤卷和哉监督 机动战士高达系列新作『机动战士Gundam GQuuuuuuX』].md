@@ -13285,3 +13285,29 @@ G跨时蛮好的，干嘛加个之战
 
 说到狂犬老太我第一个想到的居然是北方拓芙（）
 
+
+*****
+
+####  岸浪白野  
+##### 8484#       发表于 2025-3-14 15:23
+
+ 本帖最后由 岸浪白野 于 2025-3-14 15:26 编辑 
+
+[X 上的 (株)カラー 2号機：“43年前の昨日、3月13日はガンダムⅢの公開日。 写真は多分その頃、まだ大学に通っていた頃に布忍の下宿で描いた落書きの中のガンダム。 これを描いていた時にはまさか自分がガンダムにこんな形で関わる時が来るとは、夢にも思いませんでした。（弊社社長談） #GQuuuuuuX #ジークアクス](https://x.com/khara_inc2/status/1900384514188382627)[https://t.co/cSWjLmAQhl](https://t.co/cSWjLmAQhl)” / X
+
+<img src="https://img.saraba1st.com/forum/202503/14/152546wnlbn67lc666ro82.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (145.9 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 15:25 上传
+
+<img src="https://img.saraba1st.com/forum/202503/14/152553b1uohyt1mmtptzxh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.21 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 15:25 上传
+
