@@ -3419,3 +3419,54 @@ CCC好歹大家还是初中生组了两 ...</blockquote>
 中登跟初华有接触 也是本剧无数多BUG之一了。 还不如把这集初华的独角戏切成片 以倒序插入前面10集。然后 ...</blockquote>
 11话独角戏，到开始和丰川家中登开始就突然突出一个你怎么知道这些的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  MuramasaSP  
+##### 37307#       发表于 2025-3-14 19:19
+
+<blockquote>结衣小比取 发表于 2025-3-14 19:11
+这个「像月亮一样」联系前后文，是明明模仿着妹妹，但是却被祥子察觉出了不同，并文艺的表达了出来
+
+ ...</blockquote>
+像月亮一样这句话确实不错。月亮本身不会发光也对应着初华热情外表下的冷漠，而温柔的月光也能照耀到特定的人。
+
+
+*****
+
+####  聋与唬  
+##### 37308#       发表于 2025-3-14 19:23
+
+给ai唠叨了一下，ai提出质疑。认为剧情漏洞严重，观众难以信服
+1.初音对养父去世冷漠。
+2.离家出走过于草率。
+3.对祥子匪夷所思的执着。
+4.斗争中的丰川家为何愿意给初音提供出道上的便利？
+5.初音的身份为何未被识破？
+6.初音家庭为何对离家出走没有报警和寻找？
+7.初音的形象难以共情
+8.家庭关系作为重要因素，而其关系探讨流于表面
+9.初音的形象非常容易被观众解读为冷血而自私
+10.祥子为何没认出初音？
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  是谁的书画  
+##### 37309#       发表于 2025-3-14 19:24
+
+这MV不好评价......比imprisoned XII稍微好点<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+甚至有点小帅，是我喜欢的风格<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  戏谑二次元  
+##### 37310#       发表于 2025-3-14 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67656052&amp;ptid=2208921" target="_blank">MuramasaSP 发表于 2025-3-14 18:52</a>
+国家队ptsd又要犯了，初音对祥子好感的一个分界点就是祥子说的“像月亮一样”，联想到了ditf里一帮人为什么 ...</blockquote>
+广好歹真上宇宙了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+丰川祥子要是上宇宙开歼星舰打会战我肯定给这片子满分
+
