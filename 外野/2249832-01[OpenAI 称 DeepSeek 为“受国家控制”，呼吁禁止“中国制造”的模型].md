@@ -726,3 +726,13 @@ open ai的CEO雷普他妹
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  斡旋专家  
+##### 80#       发表于 2025-3-14 13:55
+
+<blockquote>悲剧啊啊 发表于 2025-3-14 08:20
+所以OpenAI是受国家控制的，对吧？</blockquote>
+不，它是梦想控制国家的
+
