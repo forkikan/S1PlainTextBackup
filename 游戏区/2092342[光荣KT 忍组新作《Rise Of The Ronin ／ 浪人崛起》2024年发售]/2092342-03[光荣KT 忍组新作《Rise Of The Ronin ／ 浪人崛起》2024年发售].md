@@ -1621,3 +1621,13 @@ Ver1.09.0.1 2025/03/14Steam®
 
 硝烟弥漫的王城这关是不是有毛病？全是高架炮台？？？打几把啊打安田是不是**子痒<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  手铐君  
+##### 3564#       发表于 2025-3-15 01:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67657705&amp;ptid=2092342" target="_blank">廖化 发表于 2025-3-14 23:20</a>
+硝烟弥漫的王城这关是不是有毛病？全是高架炮台？？？打几把啊打安田是不是**子痒 ...</blockquote>
+直接用火枪爆头啊
+
