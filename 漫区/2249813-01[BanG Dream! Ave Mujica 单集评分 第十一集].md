@@ -3298,3 +3298,16 @@ ep11的演出在执行方面做得怎么样 你可以参考同样是山之口创
 
 —— 来自 OnePlus PJF110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  sauron.j  
+##### 348#       发表于 2025-3-14 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67654520&amp;ptid=2249813" target="_blank">无证madam 发表于 2025-3-14 15:39</a>
+
+你说的这些都是分镜的想法 我觉得这些想法对观众来说就是小马过河 你觉得好有你的道理觉得差有你的脾气  ...</blockquote>
+我的理解是因为有初音 腐败、阴郁的感情作底层设定，所以不能为她准备太华丽的演出效果，宁可令人觉得枯燥也要表现这种孤独空虚的观感
+
+作为对比，mortis的剧场就是塞得满满的蒂姆伯顿氛围，说明他们故意不想这么做
+
