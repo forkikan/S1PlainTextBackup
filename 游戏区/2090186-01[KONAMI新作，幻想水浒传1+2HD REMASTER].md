@@ -3733,3 +3733,17 @@ PSP版就修了
 一代主人公的魂之纹章是不是除去门之纹章外系列中最强力的</blockquote>
 和五行还有太阳之类的差不多都能大范围杀伤吧，罚记得也能，那就看副作用了，五行好像是没明显副作用的，但会看到世界末日，太阳是会精神狂乱，司生死是会引来战乱和吸食身边人的灵魂，都是折磨人内心的，很难说哪个最强力吧.....
 
+
+*****
+
+####  牧月萌  
+##### 388#       发表于 2025-3-15 10:34
+
+噬魂和罚之纹章按设定应该大差不差吧，就是游戏数值一个天一个地，罚之纹章要到4代外传里才好用
+
+游戏里真纹章数值填的还是普遍太保守了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+主角们还都要跟剧情进度才解锁魔法
+单论好用程度我感觉是3代真雷最强<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
