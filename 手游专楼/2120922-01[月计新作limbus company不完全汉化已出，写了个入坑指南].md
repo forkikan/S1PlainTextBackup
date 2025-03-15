@@ -104,3 +104,12 @@
 
 镜牢成就终于做完了，确实很恶心，有的任务不打六层以上几乎没法做，相当费时。那些编队任务也明显不是给新人做的，宝贵的人格碎片谁去换那些几乎不可能上场的淘汰老人格啊，下周怎么也该有追加任务了吧。<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  影之诱惑  
+##### 1108#       发表于 2025-3-15 09:22
+
+有没有好心的扁鱼80高手，把能入眼初始号闲鱼链接丢我脸上<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+还是说直接买那种60多块的6万狂气就行？
+
