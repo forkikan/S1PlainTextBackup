@@ -5753,3 +5753,53 @@ here the world其实也有比较阴气的词
 我现在最怕的是 到最后还要洗一次老登</blockquote>
 老登现在没啥大恶呀（注意，要以财阀的标准，而不是靠谱大人之类的标准），除了管不住自己下半身，其他事情不都是有意朝着暗示他并不黑的方向去吗
 
+
+*****
+
+####  凉良  
+##### 37520#       发表于 2025-3-15 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67661479&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-15 18:38</a>
+
+我来现编，日本冻鳗嘛，超级财阀里世代当管家的也是旁支有钱人，比如辉夜里的早坂爱也是高层干部的女儿， ...</blockquote>
+别墅管理员不是管家，不过按我看的日本小说里的几个别墅管理员，确实是个工资比较多的清闲工作。（而且感觉多多少少有点精神问题）
+
+
+*****
+
+####  凉良  
+##### 37521#       发表于 2025-3-15 19:19
+
+其实如果后面还有足够篇幅的话我会质疑这集初音的自白有多少是真实的。但是只有一集感觉只能全是真话没有反转了。
+
+*****
+
+####  天空塔书记官  
+##### 37522#       发表于 2025-3-15 19:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  cxj649  
+##### 37523#       发表于 2025-3-15 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67661045&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-3-15 17:28</a>
+
+海岛渔民孤儿寡母哪来的钱，估计要么是初音自己赚的要么是老登给的抚养费
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+初妈好歹是祥奶的近侍啊
+
+
+*****
+
+####  聪明墨菲特  
+##### 37524#       发表于 2025-3-15 19:22
+
+养父出海死了，船可能也没了，保险应该赔不少吧，初华爆点金币也很正常
+
+—— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

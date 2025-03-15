@@ -15256,3 +15256,41 @@ GQ塞驾驶技术还是不如79骡，79骡拔光剑近身那个回合应该是�
 
 小心我麻球的kirakira mavmav石破天惊斧
 
+
+*****
+
+####  蕾洁之风  
+##### 8633#       发表于 2025-3-15 19:17
+
+夏利亚最终见到了夏亚，赢<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Toby_dak  
+##### 8634#       发表于 2025-3-15 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67661216&amp;ptid=2209276" target="_blank">真阿波罗 发表于 2025-3-15 18:53</a>
+
+搞笑吗，看高达系列每个观众侧重点都很多。你觉得seed从以前刚播出到现在没有看角色cp看谁赢的吗？好像最 ...</blockquote>
+所以呢？卖胶的广告片来谈CP？是演唱会上面比应援还是谁的手办卖得多，销售额能胶多？不是目标人群就别进这个门了。
+
+
+*****
+
+####  Toby_dak  
+##### 8635#       发表于 2025-3-15 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67661530&amp;ptid=2209276" target="_blank">AvenueIII 发表于 2025-3-15 19:44</a>
+
+玛秋和哈曼哪个强</blockquote>
+同年纪的哈曼已经在新人类研究挂号练习了吧。
+
+麻球就一青春JK<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赤黑的假面  
+##### 8636#       发表于 2025-3-15 19:23
+
+老宇宙世纪就算有男情女爱，但是重点也还是放在地宇矛盾和妞泰普神棍发功上了吧
+
