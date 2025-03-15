@@ -82,3 +82,14 @@
 居然有2个 ！ 萌新0！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">呸 我记得你早就俩了
 
+
+*****
+
+####  alucardcz  
+##### 16497#       发表于 2025-3-15 19:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67661723&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-3-15 19:07</a>
+
+呸 我记得你早就俩了</blockquote>
+四舍五入已经是3个月前了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

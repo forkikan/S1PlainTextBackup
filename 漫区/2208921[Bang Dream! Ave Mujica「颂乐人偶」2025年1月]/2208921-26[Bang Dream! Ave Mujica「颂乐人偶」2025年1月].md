@@ -5742,3 +5742,14 @@ here the world其实也有比较阴气的词
 
 要報上去給老登，
 
+
+*****
+
+####  aptx8285144  
+##### 37519#       发表于 2025-3-15 19:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67661612&amp;ptid=2208921" target="_blank">凉良 发表于 2025-3-15 18:54</a>
+
+我现在最怕的是 到最后还要洗一次老登</blockquote>
+老登现在没啥大恶呀（注意，要以财阀的标准，而不是靠谱大人之类的标准），除了管不住自己下半身，其他事情不都是有意朝着暗示他并不黑的方向去吗
+

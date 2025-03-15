@@ -15215,3 +15215,44 @@ GQ塞驾驶技术还是不如79骡，79骡拔光剑近身那个回合应该是�
 
 再神棍能棍过巴上帝？一人阿克西斯的含金量麻球做的到吗
 
+
+*****
+
+####  DARILBALDE  
+##### 8629#       发表于 2025-3-15 19:05
+
+没事，只要麻球一个人把阿克西斯丢下去就有含金量了（智将
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  pokemon最爱  
+##### 8630#       发表于 2025-3-15 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67661540&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-3-15 18:45</a>
+
+确定？红高整整领先元祖一套bit哎</blockquote>
+光枪点浮游对于NT能力处于巅峰时期的79骡来说不算难事（确信）
+
+*****
+
+####  pokemon最爱  
+##### 8631#       发表于 2025-3-15 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67661558&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-3-15 18:46</a>
+
+79骡单人在所罗门面对红勇士夏亚+艾美号拉拉是下风吧
+
+盾都被拉拉打飞了，没塞拉突入搅局，从场面上感觉鸭 ...</blockquote>
+我记得勇士性能比782高来着吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+而红高除了更高性能的塞可谬以外基础性能还是没有磁力覆膜的782水准（
+
+*****
+
+####  AvenueIII  
+##### 8632#       发表于 2025-3-15 19:06
+
+小心我麻球的kirakira mavmav石破天惊斧
+
