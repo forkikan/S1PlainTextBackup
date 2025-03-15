@@ -4221,3 +4221,18 @@ https://bgm.tv/subject/topic/33083
 
 王国研究所注入魔力要怎么理解啊？不知道怎么按…
 
+
+*****
+
+####  mull132  
+##### 374#       发表于 2025-3-16 02:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67662729&amp;ptid=2246453" target="_blank">lilod 发表于 2025-3-15 21:08</a>
+理智宝珠优先点出什么比较好？
+
+—— 来自 S1Fun</blockquote>
+逃跑，脚下防御必点满，败者血字也可以考虑
+中后期古代语，恶魔语，料理调和，恶魔契约都得点
+
+—— 来自 Xiaomi 22041216C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
