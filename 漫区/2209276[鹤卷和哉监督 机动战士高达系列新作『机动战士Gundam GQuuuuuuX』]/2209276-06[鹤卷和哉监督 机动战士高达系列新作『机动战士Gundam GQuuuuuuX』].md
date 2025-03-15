@@ -15335,3 +15335,14 @@ srds种的党争难道大头不是在卡嘉莉和美玲吗</blockquote>
 
 在电影院里一直在想美玲是怎么回事？
 
+
+*****
+
+####  王留美  
+##### 8641#       发表于 2025-3-15 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67661569&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-3-15 18:49</a>
+ GQ塞的机体看纸面比79骡强一些的 战绩上俩人都收了大扎姆，但是从面对鸭子的表现来看 GQ塞驾驶技术还是不 ...</blockquote>
+塞拉那一击的目标是地上的扎古炸弹而不是红敢达，而且后面的肩炮反击也很到位，正经单对单的话还真不好说
+毕竟骡子的78在lastshooting的时候也没了一手一头
+

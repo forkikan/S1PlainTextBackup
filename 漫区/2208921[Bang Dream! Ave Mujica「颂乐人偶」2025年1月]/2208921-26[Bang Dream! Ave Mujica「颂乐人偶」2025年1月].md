@@ -6209,3 +6209,69 @@ AM这完全是卡住了啊，Crucfix X的MV出来之后我彻底糊涂了，到�
 
 十字架MV官号是真发不出来了啊？
 
+
+*****
+
+####  cxj649  
+##### 37559#       发表于 2025-3-15 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67662575&amp;ptid=2208921" target="_blank">滑稽Captain 发表于 2025-3-15 20:52</a>
+
+中登实际上到底是不是和初音有关才背锅168e都还不可信，初音故事里提这段主要是强调初音了解到小祥父女俩住 ...</blockquote>
+这集表现中登特质和憨憨不顾说实话后果
+
+
+*****
+
+####  huxiaopao163  
+##### 37560#       发表于 2025-3-15 21:03
+
+话说老登这一支本来就人丁稀少了，还把自己的女婿干掉，如今只剩一个老头和一个未成年女孩，一个青壮年都没有。
+
+丰川家的其他分支估计已经在等着瓜分他们了吧
+
+
+*****
+
+####  zhoujin8584  
+##### 37561#       发表于 2025-3-15 21:03
+
+中登老登对峙这个事情初音是知道的，毕竟老登说过他会去警告初音，那必然也就会让初音了解到前置剧情
+
+*****
+
+####  cxj649  
+##### 37562#       发表于 2025-3-15 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67662681&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-3-15 21:03</a>
+
+话说老登这一支本来就人丁稀少了，还把自己的女婿干掉，如今只剩一个老头和一个未成年女孩，一个青壮年都没 ...</blockquote>
+不一定是老登下的手，就是其他分家下的手什么的
+
+*****
+
+####  霸王向小受  
+##### 37563#       发表于 2025-3-15 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67370284&amp;ptid=2208921" target="_blank">Nungesser 发表于 2025-2-7 19:46</a>
+
+你楼有些中年废物男控差不多得了，这话甚至证实了爷爷故意在孙女面前把撤职说成了引咎辞职、已经给中年垃圾 ...</blockquote>
+回旋镖吃饱了
+
+*****
+
+####  高贵的  
+##### 37564#       发表于 2025-3-15 21:04
+
+怎么说呢反正在这种番这些家长说白了都只是剧情的工具人罢了怎么安排都无所谓，但在倒数第三集还在整半真半假的信息叙述是在备战手游吗
+
+*****
+
+####  adretyu67.  
+##### 37565#       发表于 2025-3-15 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67662681&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-3-15 21:03</a>
+
+话说老登这一支本来就人丁稀少了，还把自己的女婿干掉，如今只剩一个老头和一个未成年女孩，一个青壮年都没 ...</blockquote>
+老登也就60吧。这种家长位置如果不是出什么大篓子可以干到去世或者不想干交给下一届为止。
+
