@@ -6298,3 +6298,47 @@ AM这完全是卡住了啊，Crucfix X的MV出来之后我彻底糊涂了，到�
 here the world其实也有比较阴气的词</blockquote>
 这个歌有设定词曲都是初华吗？
 
+
+*****
+
+####  adretyu67.  
+##### 37568#       发表于 2025-3-15 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67662776&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-3-15 21:14</a>
+
+这个歌有设定词曲都是初华吗？</blockquote><blockquote>花咲川女子学園の高校1年生。フルネームは三角初華。アイドルユニット「sumimi」のギター。sumimiの楽曲<strong>の作詞作曲は初華が担当し</strong>ている。クールな佇まいが人気。星を見ることが好き。</blockquote>
+
+狗的设定
+
+*****
+
+####  一心而用  
+##### 37569#       发表于 2025-3-15 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67662798&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-15 21:17</a>
+
+狗的设定</blockquote>
+那初华是真的厉害啊，从岛上一来就学了这么多。
+
+*****
+
+####  huxiaopao163  
+##### 37570#       发表于 2025-3-15 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67662701&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-15 21:05</a>
+
+老登也就60吧。这种家长位置如果不是出什么大篓子必须引咎辞职可以干到去世或者不想干交给下一届为止。
+
+ ...</blockquote>
+主要是一个60多岁的老登，又不可能什么事情都亲力亲为，还是需要下面一大帮中年管理层+青年执行层才玩得转。要是这些人全是丰川家其他支系，甚至是非丰川家的人，祥子以后真的还有机会继承吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+当然要是老登真是什么创始人，地位很稳固倒是好说，问题是他自己也是赘婿，从第11集看地位也不是很稳固，私生女要是被爆料可能就直接倒台了，所以感觉很危险的样子
+
+
+*****
+
+####  aptx8285144  
+##### 37571#       发表于 2025-3-15 21:21
+
+好像据舅舅说最后还是大小姐过家家，说明应该还是不可能脱离丰川家的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

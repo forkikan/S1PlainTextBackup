@@ -1714,3 +1714,14 @@ Ver1.09.0.1 2025/03/14Steam®
 不杀任务直接空手上去打拳就是了,打的还挺快的,唯一缺点是没有相性</blockquote>
 手甲类武器绝对是准备放到DLC里最后砍了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  牛肉粉小煎包  
+##### 3573#       发表于 2025-3-15 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67662024&amp;ptid=2092342" target="_blank">wtyrambo 发表于 2025-3-15 19:42</a>
+
+能说我冲着战斗系统买的结果通关二周目反而感觉战斗系统是最不好玩的吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">说起来我也是冲着系统和武士对决买的，已经做好了包容战斗以外全是缺点的准备，结果连一个配让我记住名字的都没有，全是一群无耻鼠辈在那恶心我，打搭档的时候他在墙角居然对我连发三个炸弹手，直接把我看笑了。现在在野外经常莫名其妙只有20帧，一个玩弹反的游戏帧数没有一刻是稳定的，忍者组活该！
+
