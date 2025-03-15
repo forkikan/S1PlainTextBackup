@@ -4825,3 +4825,43 @@ X最早封面像是肺部X光片。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  6030sylar  
+##### 37438#       发表于 2025-3-15 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67658873&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-3-15 10:21</a>
+甜甜圈可以无缝进下一支乐队了
+
+—— 来自 鹅球 v3.3.96</blockquote>
+说真的反田回流邦绝对有益无害，手游单出个ex可选角色功能就是了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  油画布  
+##### 37439#       发表于 2025-3-15 11:00
+
+ 本帖最后由 油画布 于 2025-3-15 11:03 编辑 
+
+真初华还真能和mana卖新sumimi，换个发型和初音区别下，接受不了现初音塑造的初华厨刚好去推真初华，winwin
+
+*****
+
+####  天空塔书记官  
+##### 37440#       发表于 2025-3-15 11:00
+
+ 本帖最后由 天空塔书记官 于 2025-3-15 11:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67659025&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-3-15 10:55</a>
+说真的反田回流邦绝对有益无害，手游单出个ex可选角色功能就是了
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+专门改游戏可能性不大，但把以前d5j的声优资源回收利用还是可行的，毕竟那边是真快完了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+节约和梦以可以，反田应该也行
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

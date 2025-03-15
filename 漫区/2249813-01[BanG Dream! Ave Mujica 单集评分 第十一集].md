@@ -3505,3 +3505,15 @@ mujica 真正的饺子是少女带着不愈合的伤口玩乐队，那我猜下�
 
 柿本在刀使巫女也干过了，欢迎大家去回顾
 
+
+*****
+
+####  ArthurDent  
+##### 369#       发表于 2025-3-15 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67658970&amp;ptid=2249813" target="_blank">NOYURINOLIFE 发表于 2025-3-15 10:46</a>
+不是，真没看懂，初音和清告有啥关系吗，是我看漏什么剧情吗，怎么一堆人对着一段莫名其妙的话在这儿加减 ...</blockquote>
+别试图理解泥炭白河豚
+
+—— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
