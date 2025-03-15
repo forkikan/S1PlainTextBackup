@@ -15072,3 +15072,83 @@ GQ79鸭（红高达全装）VS UC79骡（普通元祖）
 
 79骡和GQ塞谁强？
 
+
+*****
+
+####  RE㐅ia  
+##### 8614#       发表于 2025-3-15 18:39
+
+GQ鸭和正史鸭哪个强
+
+*****
+
+####  YU_JI  
+##### 8615#       发表于 2025-3-15 18:39
+
+GQ塞没啥纸面战绩，我站79骡（
+
+
+*****
+
+####  AvenueIII  
+##### 8616#       发表于 2025-3-15 18:44
+
+玛秋和哈曼哪个强
+
+*****
+
+####  PascalLefèvre  
+##### 8617#       发表于 2025-3-15 18:44
+
+GQ世界观的夏亚早早都开上轮椅塞克谬机体了，驾驶技术肯定被原世界观爆杀
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  YU_JI  
+##### 8618#       发表于 2025-3-15 18:45
+
+<blockquote>pokemon最爱 发表于 2025-3-15 18:28
+除非因为骡子NT力太强导致红高的α塞可谬引发了什么奇怪的问题，不然的话79骡稳赢吧
+
+无论是79的吉翁号对7 ...</blockquote>
+确定？红高整整领先元祖一套bit哎
+
+*****
+
+####  猪突猛进R  
+##### 8619#       发表于 2025-3-15 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67661487&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-3-15 18:39</a>
+
+GQ鸭和正史鸭哪个强</blockquote>
+从战果来看GQ鸭完胜，谁叫79鸭遇到骡子后一直吃瘪。
+
+骡：鸭，我是你的破壁人<img src="https://static.saraba1st.com/image/smiley/bundam2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刺客ares  
+##### 8620#       发表于 2025-3-15 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67661415&amp;ptid=2209276" target="_blank">pokemon最爱 发表于 2025-3-15 18:28</a>
+
+除非因为骡子NT力太强导致红高的α塞可谬引发了什么奇怪的问题，不然的话79骡稳赢吧
+
+无论是79的吉翁号对7 ...</blockquote>
+79骡单人在所罗门面对红勇士夏亚+艾美号拉拉是下风吧
+
+盾都被拉拉打飞了，没塞拉突入搅局，从场面上感觉鸭拉能拿下骡子
+
+GQ红高鸭可比正史勇士鸭强多了，还有艾美号级别的火力和立体攻击，骡子真能稳赢？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿尔巴尼亚  
+##### 8621#       发表于 2025-3-15 18:48
+
+<blockquote>AvenueIII 发表于 2025-3-15 18:44
+玛秋和哈曼哪个强</blockquote>
+哈曼吧，能和鸭子卡缪捷多都打一遍还是有含金量的
+

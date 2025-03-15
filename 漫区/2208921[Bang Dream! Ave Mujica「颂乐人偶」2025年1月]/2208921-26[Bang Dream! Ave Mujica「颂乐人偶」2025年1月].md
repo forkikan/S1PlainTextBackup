@@ -5690,3 +5690,20 @@ here the world其实也有比较阴气的词
 
 其实是大富婆和她的小白脸（心中有人版）<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ntrntr1  
+##### 37516#       发表于 2025-3-15 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67661045&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-3-15 17:28</a>
+
+海岛渔民孤儿寡母哪来的钱，估计要么是初音自己赚的要么是老登给的抚养费
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+我来现编，日本冻鳗嘛，超级财阀里世代当管家的也是旁支有钱人，比如辉夜里的早坂爱也是高层干部的女儿，管家和丰川大小姐是辉夜和早坂爱的关系，好像也微妙的解释了她对大小姐的执着以及怎么和姥爷睡一起的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+外加老登本来还是想带她回东京的，她主动放弃老登多给点抚养费也正常。。。
+
+至于为啥这么有钱了渔民爹还要出去打鱼，编不下去了可能是出去撞克苏鲁为了世界的和平吧
+
