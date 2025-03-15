@@ -7135,3 +7135,16 @@ HHW 也是六人團</blockquote>
 
 初音的生日不明，现在给的生日可能是假的还是划掉了。初华没实际出现还没实际生日。
 
+
+*****
+
+####  cxj649  
+##### 37640#       发表于 2025-3-16 01:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67664176&amp;ptid=2208921" target="_blank">wyjbnb 发表于 2025-3-16 00:57</a>
+
+说起来，初华小初音一岁的话，那不是初华他妈月子没做完就怀上了初华了啊？
+
+多少有点变态了。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">圣母/佛祖在上主角福泽姐弟也是这样的
+
