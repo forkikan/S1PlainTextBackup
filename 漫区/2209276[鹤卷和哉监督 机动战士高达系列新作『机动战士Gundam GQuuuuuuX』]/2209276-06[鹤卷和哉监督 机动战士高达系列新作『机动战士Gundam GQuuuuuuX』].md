@@ -15152,3 +15152,51 @@ GQ红高鸭可比正史勇士鸭强多了，还有艾美号级别的火力和立
 玛秋和哈曼哪个强</blockquote>
 哈曼吧，能和鸭子卡缪捷多都打一遍还是有含金量的
 
+
+*****
+
+####  阿尔巴尼亚  
+##### 8622#       发表于 2025-3-15 18:48
+
+<blockquote>AvenueIII 发表于 2025-3-15 18:44
+玛秋和哈曼哪个强</blockquote>
+哈曼吧，能和鸭子卡缪捷多都打一遍还是有含金量的
+
+*****
+
+####  YU_JI  
+##### 8623#       发表于 2025-3-15 18:48
+
+麻球这还没到后期呢，上限目前未知
+
+*****
+
+####  刺客ares  
+##### 8624#       发表于 2025-3-15 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67661451&amp;ptid=2209276" target="_blank">王留美 发表于 2025-3-15 18:34</a>
+
+79骡和GQ塞谁强？</blockquote>
+GQ塞的机体看纸面比79骡强一些的
+
+战绩上俩人都收了大扎姆，但是从面对鸭子的表现来看
+
+GQ塞驾驶技术还是不如79骡，79骡拔光剑近身那个回合应该是他断鸭子的手
+
+*****
+
+####  刺客ares  
+##### 8625#       发表于 2025-3-15 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67661530&amp;ptid=2209276" target="_blank">AvenueIII 发表于 2025-3-15 18:44</a>
+
+玛秋和哈曼哪个强</blockquote>
+哈曼什么跳梁小丑咖位和我Khara的红发大女主比，一斧秒了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 8626#       发表于 2025-3-15 18:51
+
+一到拼战力环节楼里就全是活人了，哎，斗蛐蛐
+
