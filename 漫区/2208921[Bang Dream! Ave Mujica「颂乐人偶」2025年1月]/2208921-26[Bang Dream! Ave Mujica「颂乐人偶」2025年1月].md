@@ -7111,3 +7111,27 @@ HHW 也是六人團</blockquote>
 
 但还是太变态了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wyjbnb  
+##### 37637#       发表于 2025-3-16 00:56
+
+【语文老师锐评《颂乐人偶/Ave Mujica》：解读这玩意纯属浪费时间】 [https://www.bilibili.com/video/B ... 4c2e1fd7f9c626d2476](https://www.bilibili.com/video/BV17iQzYVEpo/?share_source=copy_web&amp;vd_source=339d13b749ff34c2e1fd7f9c626d2476)
+
+*****
+
+####  wyjbnb  
+##### 37638#       发表于 2025-3-16 00:57
+
+说起来，初华小初音一岁的话，那不是初华他妈月子没做完就怀上了初华了啊？
+
+多少有点变态了。
+
+*****
+
+####  adretyu67.  
+##### 37639#       发表于 2025-3-16 01:01
+
+初音的生日不明，现在给的生日可能是假的还是划掉了。初华没实际出现还没实际生日。
+
