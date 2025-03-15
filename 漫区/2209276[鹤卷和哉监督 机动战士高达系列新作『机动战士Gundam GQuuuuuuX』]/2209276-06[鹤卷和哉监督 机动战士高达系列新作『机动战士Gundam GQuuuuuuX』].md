@@ -15453,3 +15453,57 @@ B站的有翻译好的了
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  awefhio  
+##### 8650#       发表于 2025-3-16 01:52
+
+刚看完剧场版，开香槟了，期待值拉满
+
+反倒是前半有点流水账，如果不是if线本身就足够令人好奇真有点无聊
+
+之前怕剧透没怎么看讨论，想问一下0080的角色有可能在gqx里出现吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  太极八爪鱼  
+##### 8651#       发表于 2025-3-16 04:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67660424&amp;ptid=2209276" target="_blank">永远的春天 发表于 2025-3-14 23:29</a>
+如果还是纽约市长的女儿，那就是卡尔玛和联邦搭上线了。</blockquote>
+那个市长是黄协军啊。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zzf111  
+##### 8652#       发表于 2025-3-16 06:30
+
+翻出来之前在2ch聊天帖截的草生杂图
+
+<img src="https://img.saraba1st.com/forum/202503/16/062813mrr7pw4h70z73kva.png" referrerpolicy="no-referrer">
+
+<strong>$NBC89733ESR~OG1FB}_V{P.png</strong> (178.91 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-16 06:28 上传
+
+<img src="https://img.saraba1st.com/forum/202503/16/062822vkmlb1d9f1tlbw9l.png" referrerpolicy="no-referrer">
+
+<strong>LXB{%H9RU29A8HW{CSL$I3L.png</strong> (103.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-16 06:28 上传
+
+<img src="https://img.saraba1st.com/forum/202503/16/062828p79jwjh7t7bs7xkk.png" referrerpolicy="no-referrer">
+
+<strong>2Y}BJ_8{HFDB(Z[]H2H)KDP.png</strong> (93.94 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-16 06:28 上传
+
