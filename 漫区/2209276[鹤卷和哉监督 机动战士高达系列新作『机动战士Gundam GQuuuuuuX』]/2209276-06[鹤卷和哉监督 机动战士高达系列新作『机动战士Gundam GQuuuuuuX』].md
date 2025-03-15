@@ -13880,3 +13880,74 @@ GQuuuuuuX到底是什么意思
 
 2025-3-14 22:57 上传
 
+
+*****
+
+####  岸浪白野  
+##### 8530#       发表于 2025-3-14 22:50
+
+ 本帖最后由 岸浪白野 于 2025-3-14 22:52 编辑 
+
+叙事很快内容很多和部分内容选择留白是肯定的了，所以土屋弟都说过看完了有些地方还是不懂
+
+土屋
+
+确实，人际关系是这部作品的亮点之一。
+
+这部作品的魅力在于它像一朵隐秘的花，
+
+留下了让人思考和探索的空间。
+
+我自己在结束时也不知道该怎么想。
+
+即使配音结束了，可能还有很多不明白的地方。
+
+即使看了动画，可能也依然有不解之处。
+
+希望大家能用自己对高达的爱和知识，去解读和编织属于自己的故事。
+
+我很期待这一点，也很期待大家如何填补这些空白
+
+*****
+
+####  岸浪白野  
+##### 8531#       发表于 2025-3-14 22:58
+
+ 本帖最后由 岸浪白野 于 2025-3-14 23:02 编辑 
+
+卖哈罗的大哥哥
+[ふたい (@futai21) / X](https://x.com/futai21)
+
+<img src="https://img.saraba1st.com/forum/202503/14/225653x6r7ffh6shz6pyr0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.9 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 22:56 上传
+
+<img src="https://img.saraba1st.com/forum/202503/14/225704yhysggusn0u1wjrl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.08 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 22:57 上传
+
+[X 上的 ふたい：“お題箱　ハロ屋さんやってるアムロ(GQX軸) [url]https://t.co/tawHML7ErM](https://x.com/futai21/status/1900476748376219747)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202503/14/225717m2rb0okli2b3ba13.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.55 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-14 22:57 上传
+
+*****
+
+####  岸浪白野  
+##### 8532#       发表于 2025-3-15 08:34
+
+日本人说收录的机设有钢坦克<img src="https://p.sda1.dev/22/f1bb2882ed5b4008b010f4cc19f906ee/image.jpg" referrerpolicy="no-referrer">
+
