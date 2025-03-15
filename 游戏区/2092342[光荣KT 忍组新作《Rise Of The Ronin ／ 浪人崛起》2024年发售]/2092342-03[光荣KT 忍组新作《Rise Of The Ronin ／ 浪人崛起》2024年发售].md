@@ -1692,3 +1692,14 @@ Ver1.09.0.1 2025/03/14Steam®
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">算是知道这游戏为啥卖不出去了，玩家不喜欢啥就做啥，还要猛猛做。弹完左边右边戳，不反击BOSS后跳后跳后跳，一反击旁边那个就戳几下，我还碰到连续俩BOSS丢三个红光的。玩了十几个小时就没几场像样的战斗，不是弱鸡就是恶心人的。房子里卡视角，房子外卡台阶，NPC卡位，BOSS蹲在角落翻腾粪招复读。游戏最大的短板根本不是画面和开放世界，而是这个奇葩的系统
 
+
+*****
+
+####  wtyrambo  
+##### 3571#       发表于 2025-3-15 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67661179&amp;ptid=2092342" target="_blank">牛肉粉小煎包 发表于 2025-3-15 17:49</a>
+
+算是知道这游戏为啥卖不出去了，玩家不喜欢啥就做啥，还要猛猛做。弹完左边右边戳，不反击BOSS后跳后跳后跳 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能说我冲着战斗系统买的结果通关二周目反而感觉战斗系统是最不好玩的吗
+

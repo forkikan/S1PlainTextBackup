@@ -1157,7 +1157,7 @@
     "newtitle": "[塔防手游无期迷途8月11日公测]",
     "lastedit": 1741779496,
     "category": "手游专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2015087": {
@@ -5607,10 +5607,10 @@
     "update": false
   },
   "2139166": {
-    "totalreply": 11456,
+    "totalreply": 11457,
     "title": "[Capcom《街霸 6》新宣传视频公开，2023年6月2日发售]",
     "newtitle": "[Capcom《街霸 6》新宣传视频公开，2023年6月2日发售]",
-    "lastedit": 1742038344,
+    "lastedit": 1742038935,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -6930,10 +6930,10 @@
     "update": false
   },
   "2092342": {
-    "totalreply": 3570,
+    "totalreply": 3571,
     "title": "[光荣KT 忍组新作《Rise Of The Ronin ／ 浪人崛起》2024年发售]",
     "newtitle": "[光荣KT 忍组新作《Rise Of The Ronin ／ 浪人崛起》24.03.22年发售]",
-    "lastedit": 1742032216,
+    "lastedit": 1742039171,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 152583,
+    "totalreply": 152593,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1742038571,
+    "lastedit": 1742039168,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -10503,10 +10503,10 @@
     "update": false
   },
   "2208921": {
-    "totalreply": 37526,
+    "totalreply": 37529,
     "title": "[Bang Dream! Ave Mujica「颂乐人偶」2025年1月]",
     "newtitle": "[BanG Dream! Ave Mujica「颂乐人偶」2025年1月]",
-    "lastedit": 1742038456,
+    "lastedit": 1742039050,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10620,10 +10620,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 102144,
+    "totalreply": 102147,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1742038452,
+    "lastedit": 1742039050,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11790,12 +11790,12 @@
     "update": false
   },
   "2160256": {
-    "totalreply": 121,
+    "totalreply": 122,
     "title": "[（剧透）冷门漫画推荐«地图上找不到的地方»和«情书和13岁女演员»]",
     "newtitle": "[（剧透）冷门漫画推荐«地图上找不到的地方»和«情书和13岁女演员»]",
-    "lastedit": 1741481650,
+    "lastedit": 1742039049,
     "category": "漫区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2244644": {
@@ -11943,10 +11943,10 @@
     "update": false
   },
   "2247453": {
-    "totalreply": 90,
+    "totalreply": 91,
     "title": "[都没有注意到 是不是已经可以看日本世博会的笑话了？]",
     "newtitle": "[都没有注意到 是不是已经可以看日本世博会的笑话了？]",
-    "lastedit": 1742037742,
+    "lastedit": 1742038935,
     "category": "外野",
     "active": true,
     "update": false
@@ -16290,10 +16290,10 @@
     "update": false
   },
   "2249595": {
-    "totalreply": 123,
+    "totalreply": 124,
     "title": "[你猜纳斯达克这次是倒车接人还是真熊了啊]",
     "newtitle": "[你猜纳斯达克这次是倒车接人还是真熊了啊]",
-    "lastedit": 1742029460,
+    "lastedit": 1742039291,
     "category": "外野",
     "active": true,
     "update": false
@@ -17388,10 +17388,10 @@
     "update": false
   },
   "2249913": {
-    "totalreply": 63,
+    "totalreply": 64,
     "title": "[20万左右的电车 帅哥们有啥推荐的没。。]",
     "newtitle": "[20万左右的电车 帅哥们有啥推荐的没。。]",
-    "lastedit": 1742033919,
+    "lastedit": 1742039294,
     "category": "外野",
     "active": true,
     "update": false
@@ -17550,10 +17550,10 @@
     "update": false
   },
   "2249976": {
-    "totalreply": 62,
+    "totalreply": 64,
     "title": "[奇怪了，这几天心态很崩]",
     "newtitle": "[奇怪了，这几天心态很崩]",
-    "lastedit": 1742038692,
+    "lastedit": 1742038935,
     "category": "外野",
     "active": true,
     "update": false
@@ -17568,10 +17568,19 @@
     "update": false
   },
   "2249994": {
-    "totalreply": 57,
+    "totalreply": 65,
     "title": "[【ZT】央视再次盖棺定论胖猫事件：别把同情心喂了流量寄生虫]",
     "newtitle": "[【ZT】央视再次盖棺定论胖猫事件：别把同情心喂了流量寄生虫]",
-    "lastedit": 1742038692,
+    "lastedit": 1742039294,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2249974": {
+    "totalreply": 42,
+    "title": "[美国正式确认将韩国列入“敏感国家”名单，预计4月15日起生效]",
+    "newtitle": "[美国正式确认将韩国列入“敏感国家”名单，预计4月15日起生效]",
+    "lastedit": 1742039294,
     "category": "外野",
     "active": true,
     "update": false

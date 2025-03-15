@@ -5830,3 +5830,46 @@ here the world其实也有比较阴气的词
 
 但因為他行動力太低下 （下話祥子潤去小島然後不去瑞士他一定什麼也幹不了） 導致他只能是個有犯意沒犯行的廢物點心，黑不了多少
 
+
+*****
+
+####  Delicatus545  
+##### 37527#       发表于 2025-3-15 19:36
+
+抛妻弃子十几年叫没啥，老实人声张正义叫犯傻。
+
+你楼一些人是不是看鸡把脑袋看坏了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 37528#       发表于 2025-3-15 19:37
+
+鸡团就这样，想要塑造五神人玩金属。
+
+但是五神人又都是学生，心智或者说三观塑造上受家庭影响更大。
+
+然后家长们各有各的奇特，但是最终也没直接出现完全负面意义塑造的恶人。
+
+最早睦妈是有这个潜力，但是现在睦头家地下室都被鸡团征用成训练地点了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+三角妈嘴上说着不给老登带来负担，但是却没有远离岛上，甚至告诉女儿身世<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">目前来说三角妈可能是家长里最神的那个，但是考虑到时间三角妈下话能有多少戏份都不好说。
+
+中登其实应该算一个，但是现在剧情就差明示中登是背锅的了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+监护人不够犯罪导致鸡团的神人形象塑造就很无力，甚至到最后只能怀疑剧情重点的2人可能天生就是这样。
+
+比如睦头就是天生戏精演到精神分裂，初华就是天生自卑搞到离家出走<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  第贰个十年  
+##### 37529#       发表于 2025-3-15 19:41
+
+其实我观感还真可以，表现形式有点小创新，虽然说不上特别好，剧情设定就有点都合味了，但也不是完全不能接受。要是之前的集数没有那么变态的话，这集我还会觉得挺有趣，揭示一个爆点，期待接下来的发展；但现在这个情况我就只想笑了，记忆最深刻的桥段是“阴暗地爬行”和信任复读机海玲，完全不觉得这剧情还有认真对待的必要。
+
+倒是小祥叠兜兜转转还真给他洗了一波，最大赢家了属于是。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
