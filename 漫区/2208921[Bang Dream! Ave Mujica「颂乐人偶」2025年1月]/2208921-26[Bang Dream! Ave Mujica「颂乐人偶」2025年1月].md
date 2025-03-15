@@ -6640,3 +6640,11 @@ niki 助攻
 
 现在最迷惑的还是睦要以什么形象去和其他团互动？会有手游编剧对市一的背刺吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  thisisaspider  
+##### 37599#       发表于 2025-3-15 23:00
+
+先不说年龄差，老登管生不管养，按现实来说需要把肤色换成黑色才能接受。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
