@@ -14063,3 +14063,16 @@ TV果然没有，0079部分就是吸引老粉做的。
 「后来被称为‘泽克诺瓦’的现象——引发此事的大佐与高达，如今被世人畏惧为‘红色恶魔’。」
 <img src="https://p.sda1.dev/22/fe7c3f726c473eb6ed0c22e925076616/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  OkaJu  
+##### 8543#       发表于 2025-3-15 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67658570&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-3-15 08:56</a>
+转发
+钢坦克</blockquote>
+和gqux可能需要经历审美三阶段不同，这个现代化改装的刚坦克倒是一眼劲霸强，非常好看了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
