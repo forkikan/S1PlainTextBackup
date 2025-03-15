@@ -7186,3 +7186,250 @@ HHW 也是六人團</blockquote>
 
 我还是觉得，同样是内心戏，隔壁睦莫连主角睡觉都座无虚席，还好初华这戏一集演完了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  是谁的书画  
+##### 37644#       发表于 2025-3-16 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67664023&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-3-16 00:14</a>
+丰川家好像也没干啥
+
+继承人自由恋爱（祥奶祥妈）
+
+剧内主角团和财阀的矛盾暂时是老登烂裤裆搞出来的 ...</blockquote>
+倒也没错<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">但是老登管好了裤裆就看不到狗爬了，很纠结
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  厉飞雨  
+##### 37645#       发表于 2025-3-16 00:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">怕不是打鱼佬也是帮老登代持的
+初华也是老登的种
+
+*****
+
+####  聋与唬  
+##### 37646#       发表于 2025-3-16 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67661479&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-15 18:38</a>
+我来现编，日本冻鳗嘛，超级财阀里世代当管家的也是旁支有钱人，比如辉夜里的早坂爱也是高层干部的女儿， ...</blockquote>
+你别说，这个解释意外的合理。初音母本身就很有钱，和渔夫成家后丰川家还在补贴
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  cxj649  
+##### 37647#       发表于 2025-3-16 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67664056&amp;ptid=2208921" target="_blank">聋与唬 发表于 2025-3-16 00:24</a>
+
+你别说，这个解释意外的合理。初音母本身就很有钱，和渔夫成家后丰川家还在补贴
+
+—— 来自 vivo V2361GA ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这样就显得中登弱智了
+
+*****
+
+####  AraTurambar  
+##### 37648#       发表于 2025-3-16 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67663007&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-15 21:39</a>
+
+反正不管怎樣她最多也就邦世界第二有錢
+
+乾脆大方點接了豐川家</blockquote>
+第三第三，绝不可能第二。
+
+*****
+
+####  钦念以忱  
+##### 37649#       发表于 2025-3-16 00:34
+
+1:81.4% 8.7% 4.5% 3.0% 2.5% 约2200人
+
+2:79.4% 8.3% 5.8% 4.6% 1.9% 约3600人
+
+3:83.5% 4.4% 5.5% 4.9% 1.7% 约3100人
+
+4:82.4% 7.8% 3.8% 3.1% 2.9% 约3500人
+
+5:85.4% 5.3% 4.3% 3.3% 1.8% 约3300人
+
+6:85.5% 6.3% 4.1% 2.8% 1.4% 约3800人
+
+7:86.7% 3.5% 5.1% 1.8% 2.9% 约3700人
+
+8:85.9% 6.3% 4.0% 2.0% 1.8% 约3300人
+
+9:86.8% 5.4% 2.9% 2.9% 1.9% 约3200人
+
+10:88.8% 4.1% 3.4% 1.8% 2.0% 约2700人
+
+11:83.8% 5.6% 4.1% 3.6% 3.0% 约2900人
+
+这下日本人真觉得第10集是神回了
+
+*****
+
+####  一心而用  
+##### 37650#       发表于 2025-3-16 00:35
+
+Ave Mujica 前11话 niconico 好评率
+
+第1话 81.4% 8.7% 4.5% 3.0% 2.5% 约2200人
+
+第2话 79.4% 8.3% 5.8% 4.6% 1.9% 约3600人
+
+第3话 83.5% 4.4% 5.5% 4.9% 1.7% 约3100人
+
+第4话 82.4% 7.8% 3.8% 3.1% 2.9% 约3500人
+
+第5话 85.4% 5.3% 4.3% 3.3% 1.8% 约3300人
+
+第6话 85.5% 6.3% 4.1% 2.8% 1.4% 约3800人
+
+第7话 86.7% 3.5% 5.1% 1.8% 2.9% 约3700人
+
+第8话 85.9% 6.3% 4.0% 2.0% 1.8% 约3300人
+
+第9话 86.8% 5.4% 2.9% 2.9% 1.9% 约3200人
+
+第10话 88.8% 4.1% 3.4% 1.8% 2.0% 约2700人
+
+第11话 83.8% 5.6% 4.1% 3.6% 3.0% 约2900人
+
+<img src="https://img.saraba1st.com/forum/202503/16/003518koom77gvzpoqzmp0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (41.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-16 00:35 上传
+
+*****
+
+####  adretyu67.  
+##### 37651#       发表于 2025-3-16 00:37
+
+11话独角戏+狗爬总算变态到受不了了吗
+
+*****
+
+####  联想会  
+##### 37652#       发表于 2025-3-16 00:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67664010&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-16 00:09</a>
+對了，
+
+HHW 也是六人團</blockquote>
+祥子大小姐爱上邻家粉毛，什么时候抛弃神人们和爱音结婚<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  凉良  
+##### 37653#       发表于 2025-3-16 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67664112&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-16 00:37</a>
+
+11话独角戏+狗爬总算变态到受不了了吗</blockquote>
+其实最大可能性是小姨  我在推特都看到好几个喷小姨的
+
+*****
+
+####  adretyu67.  
+##### 37654#       发表于 2025-3-16 00:45
+
+ 本帖最后由 adretyu67. 于 2025-3-16 00:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67664134&amp;ptid=2208921" target="_blank">凉良 发表于 2025-3-16 00:44</a>
+
+其实最大可能性是小姨  我在推特都看到好几个喷小姨的</blockquote>
+小姨是底层<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+但果然也是变态<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wyjbnb  
+##### 37655#       发表于 2025-3-16 00:56
+
+【语文老师锐评《颂乐人偶/Ave Mujica》：解读这玩意纯属浪费时间】 [https://www.bilibili.com/video/B ... 4c2e1fd7f9c626d2476](https://www.bilibili.com/video/BV17iQzYVEpo/?share_source=copy_web&amp;vd_source=339d13b749ff34c2e1fd7f9c626d2476)
+
+*****
+
+####  wyjbnb  
+##### 37656#       发表于 2025-3-16 00:57
+
+说起来，初华小初音一岁的话，那不是初华他妈月子没做完就怀上了初华了啊？
+
+多少有点变态了。
+
+*****
+
+####  adretyu67.  
+##### 37657#       发表于 2025-3-16 01:01
+
+初音的生日不明，现在给的生日可能是假的还是划掉了。初华没实际出现还没实际生日。
+
+*****
+
+####  cxj649  
+##### 37658#       发表于 2025-3-16 01:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67664176&amp;ptid=2208921" target="_blank">wyjbnb 发表于 2025-3-16 00:57</a>
+
+说起来，初华小初音一岁的话，那不是初华他妈月子没做完就怀上了初华了啊？
+
+多少有点变态了。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">圣母/佛祖在上主角福泽姐弟也是这样的
+
+*****
+
+####  ntrntr1  
+##### 37659#       发表于 2025-3-16 01:49
+
+ 本帖最后由 ntrntr1 于 2025-3-16 01:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67664176&amp;ptid=2208921" target="_blank">wyjbnb 发表于 2025-3-16 00:57</a>
+
+说起来，初华小初音一岁的话，那不是初华他妈月子没做完就怀上了初华了啊？
+
+多少有点变态了。 ...</blockquote>
+虚假的魅魔：丰川祥子
+
+真正的魅魔：三角女士 
+
+三角女士心甘情愿在偏远小岛做管家的理由：男人总会情不自禁内O她，而她却是个女同，被丰川家的女魅魔血吸引
+
+*****
+
+####  airline114514  
+##### 37660#       发表于 2025-3-16 01:53
+
+<blockquote>ntrntr1 发表于 2025-3-14 16:05
+是的其实看惯了日本扭曲味儿，这个剧本底层逻辑还行吧，比睦墨强。。。虽然小墨是比这三人加起来还可爱
+
+虽 ...</blockquote>
+前几集睦莫一直都是演出很华丽，剧情很狗屎
+
+*****
+
+####  zhoujin8584  
+##### 37661#       发表于 2025-3-16 04:27
+
+我还是觉得，同样是内心戏，隔壁睦莫连主角睡觉都座无虚席，还好初华这戏一集演完了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  LeonsCat  
+##### 37662#       发表于 2025-3-16 05:27
+
+所以这个MV是怎么回事？
+
+不要瞧不起黑金属啊！
+
