@@ -14728,3 +14728,17 @@ TV果然没有，0079部分就是吸引老粉做的。
 
 那么喜欢赢，怎么不去看已完结作品
 
+
+*****
+
+####  UnrealApartheid  
+##### 8582#       发表于 2025-3-15 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67660887&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-3-15 17:01</a>
+赢不了一点，最后都是友情
+
+以Khara的德行给你配个妈辈眼镜空降人就老实了 ...</blockquote>
+前辈级别那种？也行
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
