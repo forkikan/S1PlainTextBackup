@@ -5925,3 +5925,17 @@ here the world其实也有比较阴气的词
 
 如果祥子的光芒愿意永远照耀着她，她才能以假面为真实，悲剧的女主角才能成为理想中的自我获得幸福的结局。
 
+
+*****
+
+####  cxj649  
+##### 37533#       发表于 2025-3-15 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67661977&amp;ptid=2208921" target="_blank">Delicatus545 发表于 2025-3-15 19:36</a>
+
+抛妻弃子十几年叫没啥，老实人声张正义叫犯傻。
+
+你楼一些人是不是看鸡把脑袋看坏了 ...</blockquote>
+老实人都要把自己女儿坑好不
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">别拿所谓平凡人家的“规矩”
+
