@@ -6387,3 +6387,77 @@ here the world其实也有比较阴气的词</blockquote>
 
 应该还是得找个理由回RiNG的，这宇宙第二中心就一支队伍常驻也太冷清了。
 
+
+*****
+
+####  南宮凝香  
+##### 37577#       发表于 2025-3-15 21:39
+
+ 本帖最后由 南宮凝香 于 2025-3-15 21:40 编辑 
+
+反正不管怎樣她最多也就邦世界第二有錢
+
+乾脆大方點接了豐川家
+
+別玩豐川家給豐川祥子賠罪來啦的猴戲了吧
+
+*****
+
+####  梅杜莎  
+##### 37578#       发表于 2025-3-15 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67660998&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-3-15 17:22</a>
+
+更大的可能是老登没有主动帮助，但是初音报上名字之后确实点头认领了——这样一来既然已经实锤是老登的亲 ...</blockquote>
+不用明确点头，摆出不置可否的态度就可以了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 37579#       发表于 2025-3-15 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67663007&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-15 21:39</a>
+
+反正不管怎樣她最多也就邦世界第二有錢
+
+乾脆大方點接了豐川家</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">女频最喜欢的
+
+退隐
+
+*****
+
+####  adretyu67.  
+##### 37580#       发表于 2025-3-15 21:43
+
+第二？第三吧。
+
+第二那位在划小船高二，不过不玩乐队就是了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  whzfjd  
+##### 37581#       发表于 2025-3-15 21:44
+
+不知道哪的日本动画宅追番报告，mujica 连被评价的资格都没有
+
+<img src="https://img.saraba1st.com/forum/202503/15/214236c7ipggi8pnp1p98c.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (103.9 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-15 21:42 上传
+
+niki 助攻
+
+<img src="https://img.saraba1st.com/forum/202503/15/214259st2ygz222ftof2y2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (12.51 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-15 21:42 上传
+
+看都不看还是感觉难以理解，要么情报弱者要么一点不嗜血吗？
+

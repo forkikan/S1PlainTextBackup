@@ -442,3 +442,17 @@ nagi：因为核心力量很好！所以想亲身体验一下！！！（笑）�
 所以想通过交换来体验一下那种表演的感觉！  
 啊，不过即使交换了，内在还是我，表演会不会没有变化呢！？
 
+
+*****
+
+####  starring  
+##### 1562#       发表于 2025-3-15 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67661211&amp;ptid=2201887" target="_blank">一心而用 发表于 2025-3-15 17:53</a>
+在Liella！中你最想和谁交互身体？
+第一名：Liyuu
+sayu：我从小就个子比较矮，所以一直很羡慕高个子的人 ...</blockquote>
+yabu对小百合的爱太深沉<img src="https://static.saraba1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
