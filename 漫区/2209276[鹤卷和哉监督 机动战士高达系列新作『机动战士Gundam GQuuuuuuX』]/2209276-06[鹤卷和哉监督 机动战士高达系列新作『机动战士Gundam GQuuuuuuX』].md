@@ -15409,3 +15409,23 @@ UC79骡，应该毫无争议。
 
 塞拉在OYW正史是战斗机仙人，在IF能开MS也算混出头了
 
+
+*****
+
+####  岸浪白野  
+##### 8647#       发表于 2025-3-16 00:47
+
+ 本帖最后由 岸浪白野 于 2025-3-16 00:49 编辑 
+
+B站的有翻译好的了
+
+<img src="https://img.saraba1st.com/forum/202503/16/004716mhp9pnogggppggk2.png" referrerpolicy="no-referrer">
+
+<strong>PX(T5R@S4(F`R1}3`NU(52I.png</strong> (170.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-16 00:47 上传
+
+【【设定全译】平行0079剧情大补完 高达GQuuuuuuX庵野剧本初稿完整内容&amp;最新设定集全译】 [https://www.bilibili.com/video/BV1JDQSYCE18/](https://www.bilibili.com/video/BV1JDQSYCE18/)
+
