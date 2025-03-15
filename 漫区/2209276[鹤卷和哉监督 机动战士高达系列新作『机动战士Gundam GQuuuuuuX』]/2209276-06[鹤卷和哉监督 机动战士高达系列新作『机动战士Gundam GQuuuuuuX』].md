@@ -14656,3 +14656,13 @@ TV果然没有，0079部分就是吸引老粉做的。
 
 锈蚀的地平线漫画里纽约市长确实要投奔联邦，带着他女儿的亡骸，女儿体内还有卡尔玛的遗腹子（尸体保存在医疗设备里，小孩还活着），导致吉翁要围追堵截<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Toby_dak  
+##### 8574#       发表于 2025-3-15 16:11
+
+全场喊ジーク・ジオン笑死了<img src="https://static.saraba1st.com/image/smiley/bundam2017/014.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
