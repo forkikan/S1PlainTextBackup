@@ -5323,3 +5323,24 @@ mana一见钟情当初音的狗，理论上倒也不是不可能
 
 结合常理考量，怕不是三角妈妈发现女儿离家出走，马上就给孩子亲爹打电话了，初音船都没到站，星探小组已经集结待命了
 
+
+*****
+
+####  Lyzers  
+##### 37481#       发表于 2025-3-15 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67660313&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-3-15 15:02</a>
+
+但是声优也是日本人，甚至角色也是日本人，可能他们本来就是这样的，编剧写这样的角色很满足，声优演这样 ...</blockquote>
+所以你就知道我为什么说傻逼日本人了
+
+*****
+
+####  aptx8285144  
+##### 37482#       发表于 2025-3-15 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67660313&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-3-15 15:02</a>
+
+但是声优也是日本人，甚至角色也是日本人，可能他们本来就是这样的，编剧写这样的角色很满足，声优演这样 ...</blockquote>
+巴比伦这坨这么恶心的玩意日本人都端出来了，少女乐队番大概就是多一个骗观众进来杀吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
