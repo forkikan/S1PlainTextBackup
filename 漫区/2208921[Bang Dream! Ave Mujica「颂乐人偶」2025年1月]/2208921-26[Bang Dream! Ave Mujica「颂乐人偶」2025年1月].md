@@ -6275,3 +6275,26 @@ AM这完全是卡住了啊，Crucfix X的MV出来之后我彻底糊涂了，到�
 话说老登这一支本来就人丁稀少了，还把自己的女婿干掉，如今只剩一个老头和一个未成年女孩，一个青壮年都没 ...</blockquote>
 老登也就60吧。这种家长位置如果不是出什么大篓子可以干到去世或者不想干交给下一届为止。
 
+
+*****
+
+####  一心而用  
+##### 37566#       发表于 2025-3-15 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67662175&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-3-15 20:04</a>
+
+又看到一个很有意思的假药，
+
+初音离开不久后初华妈就去世了，然后初华被熊本市的一家孤儿院收留，不久后她 ...</blockquote>
+那喵梦一定失忆了，祥子都认不出来。
+
+*****
+
+####  一心而用  
+##### 37567#       发表于 2025-3-15 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67660942&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-15 17:12</a>
+
+here the world其实也有比较阴气的词</blockquote>
+这个歌有设定词曲都是初华吗？
+
