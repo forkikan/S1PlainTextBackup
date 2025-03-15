@@ -7148,3 +7148,33 @@ HHW 也是六人團</blockquote>
 多少有点变态了。 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">圣母/佛祖在上主角福泽姐弟也是这样的
 
+
+*****
+
+####  ntrntr1  
+##### 37641#       发表于 2025-3-16 01:49
+
+ 本帖最后由 ntrntr1 于 2025-3-16 01:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67664176&amp;ptid=2208921" target="_blank">wyjbnb 发表于 2025-3-16 00:57</a>
+
+说起来，初华小初音一岁的话，那不是初华他妈月子没做完就怀上了初华了啊？
+
+多少有点变态了。 ...</blockquote>
+虚假的魅魔：丰川祥子
+
+真正的魅魔：三角女士 
+
+三角女士心甘情愿在偏远小岛做管家的理由：男人总会情不自禁内O她，而她却是个女同，被丰川家的女魅魔血吸引
+
+
+*****
+
+####  airline114514  
+##### 37642#       发表于 2025-3-16 01:53
+
+<blockquote>ntrntr1 发表于 2025-3-14 16:05
+是的其实看惯了日本扭曲味儿，这个剧本底层逻辑还行吧，比睦墨强。。。虽然小墨是比这三人加起来还可爱
+
+虽 ...</blockquote>
+前几集睦莫一直都是演出很华丽，剧情很狗屎
+

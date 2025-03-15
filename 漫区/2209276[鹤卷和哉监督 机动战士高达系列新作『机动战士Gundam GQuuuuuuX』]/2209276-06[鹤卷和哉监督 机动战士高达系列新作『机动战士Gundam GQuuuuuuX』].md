@@ -15429,3 +15429,15 @@ B站的有翻译好的了
 
 【【设定全译】平行0079剧情大补完 高达GQuuuuuuX庵野剧本初稿完整内容&amp;最新设定集全译】 [https://www.bilibili.com/video/BV1JDQSYCE18/](https://www.bilibili.com/video/BV1JDQSYCE18/)
 
+
+*****
+
+####  awefhio  
+##### 8648#       发表于 2025-3-16 01:52
+
+刚看完剧场版，开香槟了，期待值拉满
+
+反倒是前半有点流水账，如果不是if线本身就足够令人好奇真有点无聊
+
+之前怕剧透没怎么看讨论，想问一下0080的角色有可能在gqx里出现吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
