@@ -885,3 +885,13 @@ OP还可以诶
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Piano-Forest  
+##### 74#         楼主| 发表于 2025-3-15 20:28
+
+PV2：[https://youtu.be/2u-RIQst_N4](https://youtu.be/2u-RIQst_N4)
+
+<img src="https://p.sda1.dev/22/534b229733c8a520b9660d9e2bf61194/kv02 _2_.jpg" referrerpolicy="no-referrer">
+

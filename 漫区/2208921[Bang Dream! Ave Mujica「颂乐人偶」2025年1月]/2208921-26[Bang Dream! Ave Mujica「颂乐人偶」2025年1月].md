@@ -6002,3 +6002,123 @@ AM这完全是卡住了啊，Crucfix X的MV出来之后我彻底糊涂了，到�
 
 你后面的回复也一起回了。别和我扯这么多遗产有的没的，剧里又没写，剧里我只看到抛妻弃子胆小怕事的软蛋<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cxj649  
+##### 37540#       发表于 2025-3-15 20:25
+
+ 本帖最后由 cxj649 于 2025-3-15 20:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67662299&amp;ptid=2208921" target="_blank">Delicatus545 发表于 2025-3-15 20:19</a>
+
+知道自己留了种，对方拒绝了就能十几年不管不问，现在还要对方滚蛋。不说算不算抛妻，弃子也落实了吧而且 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">拜托拜托
+
+祥爷不是正常男主家庭，他是婿养子，是男寡妇而且留在婆家呢，所以是视为正常家庭“女方搞外遇”好么
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">剧情说啊威胁到祥子，你跳过看是吧
+
+当然他软蛋没错<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 37541#       发表于 2025-3-15 20:27
+
+老登明显就是当年管不住裤裆，现在又怕当年管不住裤裆的后果毁掉他现在身份的人。
+
+肯定不算合格家长了。实际上他也没能承担起对祥子的教育。
+
+*****
+
+####  Delicatus545  
+##### 37542#       发表于 2025-3-15 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67662348&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-3-15 20:25</a>
+拜托拜托
+
+祥爷不是正常男主家庭，他是婿养子，是男寡妇而且留在婆家呢，所以是搞外遇好么
+
+剧情说啊威胁到 ...</blockquote>
+威胁到祥子不是这个抛妻弃子不负责任的软蛋自己说出来的？有什么可信度吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+别和我汴了，从你第一句说老登没啥然后一转攻击中登开始，我就知道你屁股歪得离谱。3万多楼共振，出现你这样的奇葩也可以理解，我搅一搅浑水罢了<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 37543#       发表于 2025-3-15 20:29
+
+棄子也不成立
+
+初媽光速找了接盤俠
+
+初音有後爹在
+
+老登還找上來才是破壞家庭
+
+也就後爹死了， 初音到京才有討論空間
+
+問題是初音是在TGW旗下集團工作
+
+恐怕也很難說完全沒照顧
+
+
+*****
+
+####  cxj649  
+##### 37544#       发表于 2025-3-15 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67662372&amp;ptid=2208921" target="_blank">Delicatus545 发表于 2025-3-15 20:28</a>
+
+威胁到祥子不是这个抛妻弃子不负责任的软蛋自己说出来的？有什么可信度吗
+
+别和我汴了，从你第一句说老登 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我不是说祥爷软蛋么
+
+你是中登厨子吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  高贵的  
+##### 37545#       发表于 2025-3-15 20:32
+
+就看制作组想不想洗白老登呗，想洗白就加个老登有在经济上接济初音家而且初音事业上的成功有老登的大手的设定，不想洗白就随便了
+
+*****
+
+####  cxj649  
+##### 37546#       发表于 2025-3-15 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67662379&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-15 20:29</a>
+
+棄子也不成立
+
+初媽光速找了接盤俠</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉楼上对入赘家族没什么实感，完全用正常家族伦理去批判了233
+
+*****
+
+####  zhzij111  
+##### 37547#       发表于 2025-3-15 20:33
+
+老登在普通人角度无疑是个渣男，但从财阀角度看也就还好，只是裤裆那点事而已，毕竟他负这个责任的话是真会当场破产<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  cxj649  
+##### 37548#       发表于 2025-3-15 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67662396&amp;ptid=2208921" target="_blank">高贵的 发表于 2025-3-15 20:32</a>
+
+就看制作组想不想洗白老登呗，想洗白就加个老登有在经济上接济初音家而且初音事业上的成功有老登的大手的设 ...</blockquote>
+舅舅：没人是坏人
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 37549#       发表于 2025-3-15 20:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">楼里又聊老登了，恋老癖吗
+
