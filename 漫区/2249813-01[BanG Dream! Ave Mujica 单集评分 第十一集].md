@@ -3580,3 +3580,19 @@ mujica 真正的饺子是少女带着不愈合的伤口玩乐队，那我猜下�
 不是，真没看懂，初音和清告有啥关系吗，是我看漏什么剧情吗，怎么一堆人对着一段莫名其妙的话在这儿加减 ...</blockquote>
 渔夫哥的幻想罢了<img src="https://static.saraba1st.com/image/smiley/face2017/215.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  故障机器人  
+##### 375#       发表于 2025-3-15 23:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202503/15/232944v07q4q55ielp45u4.jpg" referrerpolicy="no-referrer">
+
+<strong>ZQ}4S4E2AI96E2R1BIAH1XA.jpg</strong> (114.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-15 23:29 上传
+

@@ -6687,3 +6687,29 @@ niki 助攻
 
 那你会看到什么才是真正的世界末日<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 37604#       发表于 2025-3-15 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67663806&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-15 23:21</a>
+
+至少往好处想，这已经不是最逆天的剧情了。
+
+试想一下，如果老登对着初华说出这样的话：“既然你现在已经知 ...</blockquote>
+主要是现在怎么看都感觉是要显得老登没那么黑，没有老登庇护（或者说庇护？）初音无法在东京生存，没有老登的默许，母鸡卡第二次组不起来
+
+*****
+
+####  Victorino  
+##### 37605#       发表于 2025-3-15 23:29
+
+<blockquote>南宮凝香 发表于 2025-3-15 21:39
+反正不管怎樣她最多也就邦世界第二有錢
+
+乾脆大方點接了豐川家
+
+</blockquote>
+不是最多只能有钱第三吗，不要忘了夏洛特
+
