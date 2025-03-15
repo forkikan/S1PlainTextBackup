@@ -6523,3 +6523,76 @@ niki 助攻
 那喵梦一定失忆了，祥子都认不出来。</blockquote>
 不，这个假药的基点就是喵梦在mygo初次见面时对祥子的态度，是以知道祥子以前是大小姐，现在看上去家道中落了，然后故意假装不认识，还试探了一下是不是自己的伪装暴露了，以及提到sumimi的初华的时候喵梦左手有一个握拳的动作。
 
+
+*****
+
+####  zhoujin8584  
+##### 37588#       发表于 2025-3-15 22:08
+
+<img src="https://img.saraba1st.com/forum/202503/15/220825d5c8xjcg7cgbh4vz.jpg" referrerpolicy="no-referrer">
+
+<strong>202014lgvbj698duvgz68a.jpg</strong> (187.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-15 22:08 上传
+
+*****
+
+####  凉良  
+##### 37589#       发表于 2025-3-15 22:09
+
+泛式这一提mana出场那么多次好像确实删了也没啥实际影响
+
+
+*****
+
+####  zhoujin8584  
+##### 37590#       发表于 2025-3-15 22:10
+
+槽，什么延禧攻略
+
+*****
+
+####  江口夕  
+##### 37591#       发表于 2025-3-15 22:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">估计是用来对比初音的假冒伪劣的，这部分估计都是独角兽原案，后来改二重人格演了7集。
+估计独角兽那东西就是把中登老登祥子初音展开了讲
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  aptx8285144  
+##### 37592#       发表于 2025-3-15 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67663288&amp;ptid=2208921" target="_blank">凉良 发表于 2025-3-15 22:09</a>
+
+泛式这一提mana出场那么多次好像确实删了也没啥实际影响</blockquote>
+她的存在也可以进一步衬托初音对大祥极端迷恋的不正常，哪怕把过去的历史全部展开后，我也会有这样的感觉
+
+*****
+
+####  adretyu67.  
+##### 37593#       发表于 2025-3-15 22:15
+
+现在就是初华的部分整个删掉了全部塞进11话小剧场。
+
+讨论原案已经没有什么意义了。
+
+*****
+
+####  木板春香  
+##### 37594#       发表于 2025-3-15 22:15
+
+<img src="https://img.saraba1st.com/forum/202503/15/221534xfsmvfdj1s3qr13v.jpg" referrerpolicy="no-referrer">
+
+<strong>M`)K~48IP3I3P3]I07_R0RE_tmb.jpg</strong> (173.44 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-15 22:15 上传
+
+兄弟兄弟
+
