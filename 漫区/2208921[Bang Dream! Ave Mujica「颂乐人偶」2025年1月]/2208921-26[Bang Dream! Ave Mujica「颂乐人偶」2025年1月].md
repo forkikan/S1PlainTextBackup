@@ -5506,3 +5506,18 @@ b站11集视频封面几乎清一色初音爬 ，虽然视频里都在控诉不�
 其实多首怪物那里确实有点内味了</blockquote>
 前面各种精神催眠杀人也就算了，某回合直接直播残杀也是绝了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  钦念以忱  
+##### 37499#       发表于 2025-3-15 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67660676&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-15 16:32</a>
+
+就当是初华对大祥唱歌的顺带效果吧。
+
+剩下这1-9话的内容我是真想不出要怎么变成音乐。</blockquote>
+不会弹吉他散团，为了复活小睦找C团重奏，之后两个人格一人一个乐队，为了弹吉他合体
+
+相比起剩下4位，已经是和音乐关系最大的了
+
