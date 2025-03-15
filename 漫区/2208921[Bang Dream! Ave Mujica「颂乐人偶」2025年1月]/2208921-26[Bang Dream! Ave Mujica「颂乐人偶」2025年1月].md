@@ -5237,3 +5237,25 @@ X最早封面像是肺部X光片。
 
 原来新的mv是南條沙歩做的，推荐大家去看下BEASTARS最终季和冥土酱的op，实拍素材和平面拼贴玩的很6的大才女
 
+
+*****
+
+####  Lyzers  
+##### 37474#       发表于 2025-3-15 14:41
+
+前面颜艺推人的时候还没感受这么深，这两天中文社区到处都能看到狗爬gif真的很明显能感觉到柿对角色的一股恶意
+
+然后他们还特别自豪地在网上吹自己的创作思路和理解，声优要给他们念这么一集弱智设定还要给他们捧哏宣传
+
+真的阴湿的要死，越想越他妈恶心，傻逼日本人
+
+*****
+
+####  qlipho  
+##### 37475#       发表于 2025-3-15 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67660202&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-3-15 14:41</a>
+
+前面颜艺推人的时候还没感受这么深，这两天中文社区到处都能看到狗爬gif真的很明显能感觉到柿对角色的一股 ...</blockquote>
+邦邦铁血<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
