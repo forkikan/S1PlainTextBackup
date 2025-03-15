@@ -5162,3 +5162,15 @@ X最早封面像是肺部X光片。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我感觉下一集还要爆，爆一个初音也是精分好不好？或者真有个妹妹初华，但是跟初音长得根本不一样，一切都是初音自己骗自己搞出来的。
 
+
+*****
+
+####  rollingusagi  
+##### 37467#       发表于 2025-3-15 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67659196&amp;ptid=2208921" target="_blank">AraTurambar 发表于 2025-3-15 11:30</a>
+虽然现在说这些都晚了，但是武士道如果一开始只是想搞一些新东西的话，弄成力量金属会不会比现在这样的哥特 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">可是力量金的坑已经被r给占了呀，鸡最大问题就在这，柿本访谈里也说了，要怎么搞才能不和r重复，然后他们得出的答案是走大众刻板印象的金属乐队，就是死亡+宗教元素+精神病那套，彻底疯狂。当然毕竟还是邦多利不可能真走到黑，所以曲风还是保留了一定流行元素
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
