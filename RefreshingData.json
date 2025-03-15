@@ -6516,10 +6516,10 @@
     "update": false
   },
   "2156895": {
-    "totalreply": 14000,
+    "totalreply": 14001,
     "title": "[微软收购楼，ABK之后，Who's Next？P3想其他方式拓展11区业务]",
     "newtitle": "[微软楼，ABK之后，1月23日静候直面会，希望有大。]",
-    "lastedit": 1741909936,
+    "lastedit": 1742002574,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -7056,10 +7056,10 @@
     "update": false
   },
   "2166322": {
-    "totalreply": 2518,
+    "totalreply": 2519,
     "title": "[缅甸专楼-1月版]",
     "newtitle": "[缅甸专楼-1月版]",
-    "lastedit": 1741745904,
+    "lastedit": 1742002330,
     "category": "外野",
     "active": true,
     "update": false
@@ -10557,10 +10557,10 @@
     "update": false
   },
   "2209276": {
-    "totalreply": 8539,
+    "totalreply": 8540,
     "title": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
     "newtitle": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
-    "lastedit": 1742001847,
+    "lastedit": 1742002207,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12281,15 +12281,6 @@
     "newtitle": "[幼女战记去他的谭雅战记 存在X你又算计我！！！]",
     "lastedit": 1740881786,
     "category": "漫区",
-    "active": false,
-    "update": false
-  },
-  "2247729": {
-    "totalreply": 66,
-    "title": "[美国商务部长：25万人排队申请500万美元一张的美国移民“金卡”]",
-    "newtitle": "[美国商务部长：25万人排队申请500万美元一张的美国移民“金卡”]",
-    "lastedit": 1740792502,
-    "category": "外野",
     "active": false,
     "update": false
   },
@@ -15152,7 +15143,7 @@
     "newtitle": "[核聚变进入倒计时]",
     "lastedit": 1741742913,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2249168": {
@@ -15948,10 +15939,10 @@
     "update": false
   },
   "2100506": {
-    "totalreply": 255,
+    "totalreply": 256,
     "title": "[寂静岭完全新作《寂静岭 f》正式公布，剧本担当龙骑07]",
     "newtitle": "[寂静岭完全新作《寂静岭 f》正式公布，剧本担当龙骑07]",
-    "lastedit": 1741972332,
+    "lastedit": 1742002577,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16443,10 +16434,10 @@
     "update": false
   },
   "2249587": {
-    "totalreply": 89,
+    "totalreply": 90,
     "title": "[帝国时代2四月大改+新DLC，五个新文明，中国重做]",
     "newtitle": "[帝国时代2四月大改+新DLC，五个新文明，中国重做]",
-    "lastedit": 1742001973,
+    "lastedit": 1742002577,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17028,10 +17019,10 @@
     "update": false
   },
   "2249800": {
-    "totalreply": 142,
+    "totalreply": 143,
     "title": "[ff16销量突破350万]",
     "newtitle": "[ff16销量突破350万]",
-    "lastedit": 1742001370,
+    "lastedit": 1742002577,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17442,10 +17433,10 @@
     "update": false
   },
   "2249889": {
-    "totalreply": 82,
+    "totalreply": 83,
     "title": "[比亚迪汽车将于下周一晚发布兆瓦充电的超级e平台。]",
     "newtitle": "[比亚迪汽车将于下周一晚发布兆瓦充电的超级e平台。]",
-    "lastedit": 1741995127,
+    "lastedit": 1742002330,
     "category": "外野",
     "active": true,
     "update": false
@@ -17577,10 +17568,10 @@
     "update": false
   },
   "2249924": {
-    "totalreply": 46,
+    "totalreply": 47,
     "title": "[xbx决定版剧透楼]",
     "newtitle": "[xbx决定版剧透楼]",
-    "lastedit": 1742001730,
+    "lastedit": 1742002577,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17595,11 +17586,20 @@
     "update": false
   },
   "2249910": {
-    "totalreply": 44,
+    "totalreply": 46,
     "title": "[怎么坚持锻炼？]",
     "newtitle": "[怎么坚持锻炼？]",
-    "lastedit": 1742001494,
+    "lastedit": 1742002577,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2179402": {
+    "totalreply": 91,
+    "title": "[《杀戮尖塔2》公开，2025年Steam EA发售]",
+    "newtitle": "[《杀戮尖塔2》公开，2025年Steam EA发售]",
+    "lastedit": 1742002579,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
