@@ -15322,3 +15322,16 @@ GQ塞驾驶技术还是不如79骡，79骡拔光剑近身那个回合应该是�
 
 去重温了一遍gto，突然发现麻球修司扔斧子这段很像gto夏亚拉拉在地球和那个印度人打斗那段啊
 
+
+*****
+
+####  AraTurambar  
+##### 8640#       发表于 2025-3-15 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67661412&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-3-15 18:28</a>
+
+srds种的党争难道大头不是在卡嘉莉和美玲吗</blockquote>
+这个属于我没跟进后续看种自的时候一脸蒙蔽的。
+
+在电影院里一直在想美玲是怎么回事？
+

@@ -6182,3 +6182,30 @@ AM这完全是卡住了啊，Crucfix X的MV出来之后我彻底糊涂了，到�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实老登那情况真要说是 抛<strong>夫</strong>弃子
 
+
+*****
+
+####  cxj649  
+##### 37556#       发表于 2025-3-15 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67662498&amp;ptid=2208921" target="_blank">高贵的 发表于 2025-3-15 20:43</a>
+
+话说之前剧里有表现初音是知道中登是为了替自己出头而被逐出家门吗</blockquote>
+无，只有说中登特质是诚实
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这集回收是瞎说大实话
+
+
+*****
+
+####  滑稽Captain  
+##### 37557#       发表于 2025-3-15 20:52
+
+中登实际上到底是不是和初音有关才背锅168e都还不可信，初音故事里提这段主要是强调初音了解到小祥父女俩住到赤羽以后，通过自己优秀的脑补能力把锅扣到自己头上，让自己继续是一个悲剧体质
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 37558#       发表于 2025-3-15 20:53
+
+十字架MV官号是真发不出来了啊？
+
