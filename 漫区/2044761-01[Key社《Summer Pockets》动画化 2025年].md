@@ -910,3 +910,22 @@ PV2：[https://youtu.be/2u-RIQst_N4](https://youtu.be/2u-RIQst_N4)
 
 这是全线全通，中间靠女儿转场？
 
+
+*****
+
+####  镜hinata  
+##### 77#       发表于 2025-3-16 04:21
+
+这么省OP直接用游戏OP?
+
+
+*****
+
+####  wolf1997  
+##### 78#       发表于 2025-3-16 04:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67664476&amp;ptid=2044761" target="_blank">镜hinata 发表于 2025-3-16 04:21</a>
+
+这么省OP直接用游戏OP?</blockquote>
+KEY社作品动画化第一个OP都是直接用游戏OP的
+
