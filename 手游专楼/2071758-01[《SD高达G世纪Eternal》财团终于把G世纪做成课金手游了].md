@@ -186,3 +186,18 @@ DD前有个X-Ω
 
 —— 来自 HUAWEI BRA-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  plok201  
+##### 110#       发表于 2025-3-15 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67660666&amp;ptid=2071758" target="_blank">发呆的龙虾 发表于 2025-3-15 16:31</a>
+
+这个原作限制是只能同一作品吗？例如我seed的关卡能上seed msv的机体吗？
+
+—— 来自 HUAWEI BRA-AL00, A ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这就不知道了，他PV就演示了TV那几个作品，看内测那些人的消息玩的也是TV主线，MSV一系都不知道什么情况
+
+按理说应该通用吧，要不一堆MSV都没剧情的，只能放自由配队这格差也太大了
+

@@ -1669,3 +1669,18 @@ Ver1.09.0.1 2025/03/14Steam®
 
 傻逼忍者组，这个动摇机制太黑箱了。面对动摇，背对动摇，烈风打动摇，石火次数，击倒击飞，乱七八糟的因素印象动摇时间，还不如仁王卧龙那套妖力条直观
 
+
+*****
+
+####  阿露酱  
+##### 3569#       发表于 2025-3-15 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67660261&amp;ptid=2092342" target="_blank">woshenc 发表于 2025-3-15 14:52</a>
+昨晚看到游戏里烈风教学了
+
+烈风实战有什么用吗？纠结中</blockquote>
+不如说不用烈风不会玩。
+中期大对数杂兵和小boss都能烈风两次直接满血摁死处决。
+
+—— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
