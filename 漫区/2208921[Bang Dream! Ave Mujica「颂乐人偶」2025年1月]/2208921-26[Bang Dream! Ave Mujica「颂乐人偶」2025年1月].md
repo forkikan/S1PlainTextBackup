@@ -4787,3 +4787,41 @@ X最早封面像是肺部X光片。
 
 叛逆大小姐+看多了黑暗之星的岛民搞出个反向版krkr也是krkr乐队了。
 
+
+*****
+
+####  南宮凝香  
+##### 37435#       发表于 2025-3-15 10:47
+
+我說過了
+
+甜甜圈跟初華可以去組新世代的PP
+
+甜甜圈： 吉他主唱
+
+初華： 主音吉他
+
+愛音的英國同學： 貝斯
+
+再隨便抓點狗仔隊之類的轉職就能成團了
+
+*****
+
+####  Versedust  
+##### 37436#       发表于 2025-3-15 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67658903&amp;ptid=2208921" target="_blank">rollingusagi 发表于 2025-3-15 10:29</a>
+
+现实里拿了一次这种好声音大赛冠军马上就会有人挖你出道的，77好像就是这种，哪有连续参加五年的，这不纯扯 ...</blockquote>
+更合理的解释是编剧完全没想过合理性，脚填数值罢了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">不用在这暗戳戳地骂
+
+
+*****
+
+####  天空塔书记官  
+##### 37437#       发表于 2025-3-15 10:50
+
+甜甜圈不会吉他吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
