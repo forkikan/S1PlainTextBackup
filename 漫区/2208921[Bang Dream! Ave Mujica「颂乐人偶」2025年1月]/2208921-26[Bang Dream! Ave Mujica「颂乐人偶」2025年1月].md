@@ -6648,3 +6648,21 @@ niki 助攻
 
 先不说年龄差，老登管生不管养，按现实来说需要把肤色换成黑色才能接受。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adretyu67.  
+##### 37600#       发表于 2025-3-15 23:08
+
+我看考据地点说是日本内海的岛吧。
+
+又不是冲绳那个点位。
+
+
+*****
+
+####  ardente  
+##### 37601#       发表于 2025-3-15 23:09
+
+这个好说，奉旨接盘也算是一种管养<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
