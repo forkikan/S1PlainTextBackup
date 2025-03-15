@@ -3747,3 +3747,18 @@ PSP版就修了
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  woshenc  
+##### 389#       发表于 2025-3-15 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67658926&amp;ptid=2090186" target="_blank">牧月萌 发表于 2025-3-15 10:34</a>
+
+噬魂和罚之纹章按设定应该大差不差吧，就是游戏数值一个天一个地，罚之纹章要到4代外传里才好用
+
+游戏里真 ...</blockquote>
+我主要说的是设定上的强度
+
+比如剑盾纹章，感觉很古老，实际好像没什么用
+
