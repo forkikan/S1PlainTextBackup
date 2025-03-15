@@ -4716,3 +4716,27 @@ X最早封面像是肺部X光片。
 
 这个时间调整到青春期结束后的15-20要更合适一点
 
+
+*****
+
+####  Victorino  
+##### 37428#       发表于 2025-3-15 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67658765&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-15 09:55</a>
+
+甜甜圈那个5年真没法细算。本质就是吹一下。
+
+假设她和初华同岁都是16，sumimi剧情时间结成大约是c团同期也 ...</blockquote>
+五连霸不一定是五年，可能是周播节目每一期有人踢馆上一期冠军那种，守擂4次后第5次被人踢馆踢掉了，参考蒙面歌王
+
+*****
+
+####  凉良  
+##### 37429#       发表于 2025-3-15 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67658765&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-15 09:55</a>
+甜甜圈那个5年真没法细算。本质就是吹一下。
+
+假设她和初华同岁都是16，sumimi剧情时间结成大约是c团同期也 ...</blockquote>
+本质就是和圣罗兰联名一样的脚填背景板。
+
