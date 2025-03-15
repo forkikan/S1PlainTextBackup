@@ -4646,3 +4646,26 @@ X最早封面像是肺部X光片。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  废马尔  
+##### 37422#       发表于 2025-3-15 09:17
+
+这个三角初华像太阳，丰川初音像月亮的比喻浪漫是挺浪漫，就是有点出戏哈哈哈
+
+*****
+
+####  新HGCG  
+##### 37423#       发表于 2025-3-15 09:17
+
+长崎素世
+
+<img src="https://img.saraba1st.com/forum/202503/15/091707i0win8vns9s9hlws.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (161.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-15 09:17 上传
+
