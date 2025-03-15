@@ -5803,3 +5803,30 @@ here the world其实也有比较阴气的词
 
 —— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  cxj649  
+##### 37525#       发表于 2025-3-15 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67661612&amp;ptid=2208921" target="_blank">凉良 发表于 2025-3-15 18:54</a>
+
+我现在最怕的是 到最后还要洗一次老登</blockquote>
+老登除了烂裤裆外，其他没啥啊
+
+中登洗白归洗白，但爆光初音身世其实很弱智，被搞得一点不奇怪并且很“正确”
+
+
+*****
+
+####  南宮凝香  
+##### 37526#       发表于 2025-3-15 19:30
+
+老登主要黑點，
+
+一 管不住褲檔
+
+二 爹味太重， 喜歡自說自話， 例如這話的瑞士
+
+但因為他行動力太低下 （下話祥子潤去小島然後不去瑞士他一定什麼也幹不了） 導致他只能是個有犯意沒犯行的廢物點心，黑不了多少
+
