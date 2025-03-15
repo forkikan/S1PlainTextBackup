@@ -14982,3 +14982,39 @@ GQ79鸭（红高达全装）VS UC79骡（普通元祖）
 
 芙蕾党只能说是嘴硬中的嘴硬吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前中期不讨喜还挂了，真能有铁血芙蕾党那还真能佩服一下
 
+
+*****
+
+####  az一串字母  
+##### 8605#       发表于 2025-3-15 18:09
+
+做夏亚公能大赢特赢，有迷恋自己甘愿守寡的男下属，有信赖自己的仇家女强人，还有非常听自己话的中性妖精
+
+*****
+
+####  Gysumitka  
+##### 8606#       发表于 2025-3-15 18:10
+
+聊芙蕾等会又把某人引来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">楼里有个手游痴已经够受了
+
+*****
+
+####  永远的春天  
+##### 8607#       发表于 2025-3-15 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67661266&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-3-15 18:03</a>
+战力？问题来了
+
+GQ79鸭（红高达全装）VS UC79骡（普通元祖）
+
+死斗，谁会赢 ...</blockquote>
+如果是杀了汤大刚和拉拉后的觉悟骡，红高达夏亚根本不够看，吉翁号强多了。
+
+
+*****
+
+####  岸浪白野  
+##### 8608#       发表于 2025-3-15 18:14
+
+明知道没东西聊不起来又没意义的话题某位大哥硬是厚脸皮赖在这发癫，也是成功让几位没说过话的都突然在这出现了
+
