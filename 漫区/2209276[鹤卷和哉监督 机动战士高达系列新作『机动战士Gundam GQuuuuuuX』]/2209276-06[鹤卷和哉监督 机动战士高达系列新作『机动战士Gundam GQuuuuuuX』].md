@@ -14742,3 +14742,74 @@ TV果然没有，0079部分就是吸引老粉做的。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  RE㐅ia  
+##### 8583#       发表于 2025-3-15 17:20
+
+ 本帖最后由 RE㐅ia 于 2025-3-15 17:23 编辑 
+<blockquote>CSWQ 发表于 2025-3-15 16:34
+首先要定义谁是男主，笔头？绿叔叔？异世界假面？总不能是蓝精灵吧，牢修的气质还是很中性的
+
+—— 来自 HU ...</blockquote>
+
+那我看麻球挺有男孩子气的，她就是男主好了
+
+*****
+
+####  AvenueIII  
+##### 8584#       发表于 2025-3-15 17:21
+
+<img src="https://img.saraba1st.com/forum/202503/15/172021jzkfjdpp4zs1m4w8.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250315-171943.png</strong> (155.57 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-15 17:20 上传
+
+痞哥哥这应该总算向上追溯到头了吧，接下来能不能搞点自己的新东西
+
+*****
+
+####  岸浪白野  
+##### 8585#       发表于 2025-3-15 17:25
+
+上面视频提到的
+
+<img src="https://img.saraba1st.com/forum/202503/15/172502has57pn9p6gr2f91.jpg" referrerpolicy="no-referrer">
+
+<strong>_K_GDK5B~JQH4EU[$GM574E.jpg</strong> (129.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-15 17:25 上传
+
+<img src="https://img.saraba1st.com/forum/202503/15/172502m9qo18n2so7coeue.jpg" referrerpolicy="no-referrer">
+
+<strong>_O1)L(WS]_MFWAUDP)6$FW7.jpg</strong> (130.21 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-15 17:25 上传
+
+*****
+
+####  Wondering  
+##### 8586#       发表于 2025-3-15 17:25
+
+原来是手综麻辣哥啊，怪不得这么想赢
+
+如果真要谈赢的话还是参考khara前几部作品，eva终男主和女三成了，龙的牙医没有下文。如果追溯到庵野秀明在的gainax的作品的话，flcl算是be，飞跃巅峰1和2都只有男配，老eva是全灭be
+
+*****
+
+####  真阿波罗  
+##### 8587#       发表于 2025-3-15 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67660894&amp;ptid=2209276" target="_blank">Gysumitka 发表于 2025-3-15 17:02</a>
+
+那么喜欢赢，怎么不去看已完结作品</blockquote>
+已完结作品看了啊。怎么，就不能要求在这部作品赢了？逆风和平包容，顺风直接驱赶绞杀，嘴脸这几年看太多了，所以还是干脆大赢特赢直接踩脸为好。
+

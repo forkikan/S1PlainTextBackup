@@ -5594,3 +5594,57 @@ here the world其实也有比较阴气的词
 
 考虑到作曲作词都是初华，应该是多少还在收着。
 
+
+*****
+
+####  人又如何  
+##### 37507#       发表于 2025-3-15 17:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">可恶的三角女士不要再破坏susumi的世界观了
+
+
+*****
+
+####  zhzij111  
+##### 37508#       发表于 2025-3-15 17:20
+
+初音一个初中生离家出走，第一次从乡下小岛跑来东京，能光速上大舞台，租到房子，成功转学。
+
+你说老登没偷偷帮她，那她也太牛逼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zhoujin8584  
+##### 37509#       发表于 2025-3-15 17:21
+
+其实就是初音操作多了，自己也没法分清真与假了。
+
+她未出道能跟事务所top的甜甜圈成立组合，她自己也无从判定是当时自爆亲父后老登的封口费还是老登对自己还有几分真心。假面戴久了，便再也摘不下来了
+
+*****
+
+####  aptx8285144  
+##### 37510#       发表于 2025-3-15 17:22
+
+还有48分钟，甜甜圈女士能否逃脱独角兽，蚀本这些神人的魔爪，成为超越10个人，恩，不对应该是超越十几个人的存在呢<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qratosones1337  
+##### 37511#       发表于 2025-3-15 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67659325&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-15 11:54</a>
+重看了一下，先报上名字，再以sumi的身份出道，但是这里有个非常巨大的问题，只要独角兽和蚀本脑子还正常 ...</blockquote>
+更大的可能是老登没有主动帮助，但是初音报上名字之后确实点头认领了——这样一来既然已经实锤是老登的亲女儿，那就算丰川集团不主动投入，经纪公司肯定也要在自己的范围内倾斜资源支持
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zhoujin8584  
+##### 37512#       发表于 2025-3-15 17:23
+
+初音的培养肯定是很好的，除了不能暴露身份，15岁会作词作曲，8岁能认全星星，小岛上能给到的资源肯定是没亏待过。
+
