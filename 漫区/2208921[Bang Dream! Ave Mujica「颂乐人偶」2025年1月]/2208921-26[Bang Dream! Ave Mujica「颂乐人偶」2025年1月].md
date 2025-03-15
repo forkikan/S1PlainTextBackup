@@ -5975,3 +5975,30 @@ here the world其实也有比较阴气的词
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  AraTurambar  
+##### 37538#       发表于 2025-3-15 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67659615&amp;ptid=2208921" target="_blank">rollingusagi 发表于 2025-3-15 12:49</a>
+
+可是力量金的坑已经被r给占了呀，鸡最大问题就在这，柿本访谈里也说了，要怎么搞才能不和r重复，然后他们 ...</blockquote>
+R的成分太混杂了吧，而且R歌也并不很多极速。
+
+AM这完全是卡住了啊，Crucfix X的MV出来之后我彻底糊涂了，到底是想搞什么。
+
+*****
+
+####  Delicatus545  
+##### 37539#       发表于 2025-3-15 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67662073&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-3-15 19:50</a>
+抛妻弃子不成立
+
+你当初妈是大祥正统后奶是吧</blockquote>
+知道自己留了种，对方拒绝了就能十几年不管不问，现在还要对方滚蛋。不说算不算抛妻，弃子也落实了吧<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">而且这个妻虽然不是法律上的，但也能说是事实上的吧
+这叫没啥，之前你们因为一句台词翻译问题给中登大兴文字狱的时候可不是这么宽容的。
+
+你后面的回复也一起回了。别和我扯这么多遗产有的没的，剧里又没写，剧里我只看到抛妻弃子胆小怕事的软蛋<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
