@@ -4876,3 +4876,31 @@ X最早封面像是肺部X光片。
 初音自小的唯一爱好就是看星星，当偶像反而是初华的梦想，结果上京短短几年就被从被星探挖掘快速出道，作词作曲连弹带唱全能型歌手
 至于mana的歌手大赛都是小意思了，本人还能凭实力拿大喵走后门才能拿到的舞台剧，真正的全栖艺人
 
+
+*****
+
+####  天空塔书记官  
+##### 37442#       发表于 2025-3-15 11:15
+
+其实也还好吧，ykn未出道就是职业级的主唱，楚平方除演奏外真正的全能一体机，LAYER逆输入能给职业歌手录demo，银河战舰的核心都是有点东西在身上的
+
+甜甜圈要参加歌手比赛也是看到年龄分组的吧，少年歌手大赛连冠五年也不是不行
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  星星狐  
+##### 37443#       发表于 2025-3-15 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67659089&amp;ptid=2208921" target="_blank">Raven314 发表于 2025-3-15 11:07</a>
+邦世界就是音乐高武世界观啊
+祥子十几岁作曲天才，风格迥异可以应作词要求随时切换曲风
+初音自小的唯一爱好 ...</blockquote>
+就是在音乐高武世界，全国五连冠才可怕啊。
+维斯特洛大陆最强法师和费伦大陆最强法师，那是一个水平么？
+
+—— 来自 HUAWEI RTE-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
