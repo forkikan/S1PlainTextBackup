@@ -14421,3 +14421,23 @@ TV果然没有，0079部分就是吸引老粉做的。
 
 夏亚：真是毫无设计感的低效战车。联邦根本不懂人形MS的精髓吗？
 
+
+*****
+
+####  g救世主高达  
+##### 8559#       发表于 2025-3-15 12:35
+
+这个世界有元祖七兄弟和陆战高达吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">咋联邦的魔女开的还是个改装吉姆
+
+*****
+
+####  g救世主高达  
+##### 8560#       发表于 2025-3-15 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67658570&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-3-15 08:56</a>
+
+转发
+
+钢坦克</blockquote>
+这刚坦克的核心战机还能弹出来吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
