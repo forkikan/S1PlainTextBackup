@@ -6955,3 +6955,23 @@ HHW 也是六人團
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  厉飞雨  
+##### 37627#       发表于 2025-3-16 00:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">怕不是打鱼佬也是帮老登代持的
+初华也是老登的种
+
+*****
+
+####  聋与唬  
+##### 37628#       发表于 2025-3-16 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67661479&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-15 18:38</a>
+我来现编，日本冻鳗嘛，超级财阀里世代当管家的也是旁支有钱人，比如辉夜里的早坂爱也是高层干部的女儿， ...</blockquote>
+你别说，这个解释意外的合理。初音母本身就很有钱，和渔夫成家后丰川家还在补贴
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
