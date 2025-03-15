@@ -6666,3 +6666,24 @@ niki 助攻
 
 这个好说，奉旨接盘也算是一种管养<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  油画布  
+##### 37602#       发表于 2025-3-15 23:18
+
+ 本帖最后由 油画布 于 2025-3-15 23:21 编辑 
+
+所以mujica进手游的剧情能不能大改，让更多人关注手游 ，反向宣传计划通。
+
+*****
+
+####  是谁的书画  
+##### 37603#       发表于 2025-3-15 23:21
+
+至少往好处想，这已经不是最逆天的剧情了。
+
+试想一下，如果老登对着初华说出这样的话：“既然你现在已经知晓丰川家的诅咒的话，初华，回到丰川家吧。替祥子生下丰川家的孩子。“
+
+那你会看到什么才是真正的世界末日<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
