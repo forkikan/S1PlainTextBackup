@@ -201,3 +201,11 @@ DD前有个X-Ω
 
 按理说应该通用吧，要不一堆MSV都没剧情的，只能放自由配队这格差也太大了
 
+
+*****
+
+####  wcorvo  
+##### 111#       发表于 2025-3-15 17:32
+
+这系列的主要乐趣不是开发各种机体么，这都全靠抽卡了还有什么玩头<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
