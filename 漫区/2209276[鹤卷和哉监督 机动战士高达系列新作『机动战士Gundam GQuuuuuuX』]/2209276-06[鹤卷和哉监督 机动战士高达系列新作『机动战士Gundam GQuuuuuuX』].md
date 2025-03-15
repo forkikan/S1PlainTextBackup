@@ -14926,3 +14926,59 @@ seed拉克丝赢难道还有啥悬念吗<img src="https://static.saraba1st.com/i
 
 党争话题度不如战力一根
 
+
+*****
+
+####  刺客ares  
+##### 8600#       发表于 2025-3-15 17:59
+
+<blockquote>Wondering 发表于 2025-3-15 17:55
+seed拉克丝赢难道还有啥悬念吗认真的吗</blockquote>
+有新剧场版就是硬气，
+
+把芙蕾党嘴硬的二十年还给他们（
+
+
+*****
+
+####  刺客ares  
+##### 8601#       发表于 2025-3-15 18:03
+
+<blockquote>AkiraD 发表于 2025-3-15 17:56
+党争话题度不如战力一根</blockquote>
+战力？问题来了
+
+GQ79鸭（红高达全装）VS UC79骡（普通元祖）
+
+死斗，谁会赢
+
+
+*****
+
+####  gamedreamer  
+##### 8602#       发表于 2025-3-15 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67661266&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-3-15 18:03</a>
+战力？问题来了
+
+GQ79鸭（红高达全装）VS UC79骡（普通元祖）
+
+死斗，谁会赢 ...</blockquote>
+拿赛克缪机体出来多少有点过分了<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  阿尔巴尼亚  
+##### 8603#       发表于 2025-3-15 18:06
+
+党争赢不赢有什么意思，又不是恋爱漫。关键是感情线不能连累剧情或者说宏大叙事，铁血三明算是双飞大赢特赢了吧，有什么用，剧情烂成那样就算是bg也不行啊
+
+*****
+
+####  Wondering  
+##### 8604#       发表于 2025-3-15 18:07
+
+芙蕾党只能说是嘴硬中的嘴硬吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前中期不讨喜还挂了，真能有铁血芙蕾党那还真能佩服一下
+

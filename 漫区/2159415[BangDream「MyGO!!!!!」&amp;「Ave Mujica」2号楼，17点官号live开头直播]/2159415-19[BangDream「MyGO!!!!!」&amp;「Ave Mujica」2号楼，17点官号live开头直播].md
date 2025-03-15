@@ -251,3 +251,30 @@ FES
 拼图
 <img src="https://p.sda1.dev/22/a55f8289db2993b4a205b3a10272a2c8/IMG_20250314_230319.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CyDiablo  
+##### 27055#       发表于 2025-3-15 18:03
+
+ 本帖最后由 CyDiablo 于 2025-3-15 18:04 编辑 
+
+mygo进游戏后第二个大混活，ring和circle合办的音乐节，感觉没上次赏花有意思，中规中矩
+[[日服][资讯][新活动] 3.16 SPRING STARS ∞ SINGALONG! [更新卡面][更新剧情文本/机翻]](https://bbs.nga.cn/read.php?tid=43526188)
+
+这次更新的cover，质量普普通通吧，🐏姐太努力了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+[【【音频】フィクション - Poppin'Party-哔哩哔哩】 ](https://b23.tv/xlYVC07)
+[【【音频】オレンジ - Afterglow-哔哩哔哩】 ](https://b23.tv/qyboreo)
+[【【音频】最上級にかわいいの！- Pastel＊Palettes-哔哩哔哩】 ](https://b23.tv/b7YS93Z)
+[【【音频】Reweave - Roselia-哔哩哔哩】 ](https://b23.tv/Qht6Udq)
+[【【音频】はいよろこんで - Hello，Happy World！-哔哩哔哩】 ](https://b23.tv/tqL3LD8)
+[【【音频】第六感 - RAISE A SUILEN-哔哩哔哩】 ](https://b23.tv/xZhUhP9)
+[【【音频】again - Morfonica-哔哩哔哩】 ](https://b23.tv/Xult3Fz)
+[【【音频】だれかの心臓になれたなら - MyGO!!!!!-哔哩哔哩】 ](https://b23.tv/FVtkzwe)
+
+平行主唱企划
+[【【音频】えがおのオーケストラっ！ - 凑友希那/长崎素世/白鹭千圣/松原花音(優雅なティータイムを♪)-哔哩哔哩】 ](https://b23.tv/HSG14aG)
+[【【音频】ひとりじゃないんだから - 羽泽鸫/若宫伊芙/二叶筑紫(羽沢珈琲店にようこそ♪)-哔哩哔哩】 ](https://b23.tv/KwCFX2h)
+
+顺便这次更新没有mujica相关，不知道8.5周年能不能上游戏<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
