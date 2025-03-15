@@ -1733,3 +1733,13 @@ Ver1.09.0.1 2025/03/14Steam®
 
 我CNM的傻逼忍者组啊，更新之后反而动不动就卡到1帧又是什么几把毛病？还不如不更新，司马了我日
 
+
+*****
+
+####  catabridge  
+##### 3575#       发表于 2025-3-15 22:41
+
+我这边PC版体验比PS5强太多了，PS5又糊又卡的，PC开高中画质+DLSS超级性能大部分时间都是60帧，而且还很清晰<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+配置是7500f+4070
+

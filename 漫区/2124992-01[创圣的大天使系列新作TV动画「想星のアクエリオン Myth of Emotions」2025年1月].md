@@ -157,3 +157,21 @@
 
 谜语神话终于解了一半
 
+
+*****
+
+####  恶意之刃  
+##### 288#       发表于 2025-3-15 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67658223&amp;ptid=2124992" target="_blank">wolf1997 发表于 2025-3-15 02:03</a>
+AKINO from bless4 - 創聖のアクエリオン / THE FIRST TAKE
+
+刚刚出的TFT版创圣，AKINO虽然老了，但还是听得 ...</blockquote>
+点进去听完被推送了op和一些切片，感觉接受了人设看着演出还行
+就是想起evol那会还能出个正儿八经的专辑的
+分享菅野よう子的专辑《「アクエリオンEVOL」LOVE[@new](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=402349) Dimension》: http://music.163.com/album/2091373/?userid=1213688 (来自@网易云音乐)
+
+现在恐怕很难有了
+
+— from Xiaomi 2210132C, Android 15, [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+

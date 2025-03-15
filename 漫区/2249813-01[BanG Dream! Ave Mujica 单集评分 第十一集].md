@@ -3569,3 +3569,14 @@ mujica 真正的饺子是少女带着不愈合的伤口玩乐队，那我猜下�
 
 舞台剧说白了致敬海猫，但是人家舞台剧是真演的，你这舞台剧纯粹省成本，观感一般
 
+
+*****
+
+####  ardente  
+##### 374#       发表于 2025-3-15 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67658970&amp;ptid=2249813" target="_blank">NOYURINOLIFE 发表于 2025-3-15 10:46</a>
+
+不是，真没看懂，初音和清告有啥关系吗，是我看漏什么剧情吗，怎么一堆人对着一段莫名其妙的话在这儿加减 ...</blockquote>
+渔夫哥的幻想罢了<img src="https://static.saraba1st.com/image/smiley/face2017/215.gif" referrerpolicy="no-referrer">
+
