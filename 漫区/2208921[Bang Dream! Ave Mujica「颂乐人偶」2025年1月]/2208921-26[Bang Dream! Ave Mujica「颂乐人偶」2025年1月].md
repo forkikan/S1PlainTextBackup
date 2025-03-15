@@ -5540,3 +5540,22 @@ b站11集视频封面几乎清一色初音爬 ，虽然视频里都在控诉不�
 所以前面说对标希望之花，希望之花这个梗本质也是吃团长的血馒头，毕竟糟点再多也是为部下而死的 ...</blockquote>
 嚯 还真是希望之花…真就是个笑话
 
+
+*****
+
+####  qratosones1337  
+##### 37502#       发表于 2025-3-15 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67655264&amp;ptid=2208921" target="_blank">takerest 发表于 2025-3-14 17:15</a>
+觉得偷走妹妹名字的初音很懂事的这辈子有了，哪天高考被别人顶包了就老实了 ...</blockquote>
+然而在户籍制度一团乱的日本，单纯一个名字真的屁用没有。按照目前的剧情，初音能偶像出道靠的是运气+天赋+个人努力，顶多再加个丰川老登的大手，跟艺名叫三角初华没有任何关系。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  久井路路  
+##### 37503#       发表于 2025-3-15 17:04
+
+没事，大不了到时候初华出道的时候自称三角初音就好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
