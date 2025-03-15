@@ -172,3 +172,17 @@ DD前有个X-Ω
 
 至于后面会不会有真的严格时间线的挑战关卡就不好说了
 
+
+*****
+
+####  发呆的龙虾  
+##### 109#       发表于 2025-3-15 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67660047&amp;ptid=2071758" target="_blank">plok201 发表于 2025-3-15 14:13</a>
+有俩队，一个原作队伍，一个自由配搭
+
+原作队伍除了关卡自带的原作人物外，可以配置原作机体和机师，自由 ...</blockquote>
+这个原作限制是只能同一作品吗？例如我seed的关卡能上seed msv的机体吗？
+
+—— 来自 HUAWEI BRA-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+

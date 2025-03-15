@@ -5411,3 +5411,98 @@ mana一见钟情当初音的狗，理论上倒也不是不可能
 
 鸡动画唯一用音乐干的事就是初华对祥子发泄欲望，其他的东西都和音乐没什么关系。
 
+
+*****
+
+####  钦念以忱  
+##### 37490#       发表于 2025-3-15 16:28
+
+睦墨合体也是靠的音乐
+
+大莫老师的剧情线，和音乐关系还挺大的
+
+
+*****
+
+####  油画布  
+##### 37491#       发表于 2025-3-15 16:31
+
+b站11集视频封面几乎清一色初音爬 ，虽然视频里都在控诉不把初音当人但用起封面也一点不含糊呢
+
+如果纸片人真有血那也不知道这些算不算吃血馒头
+
+*****
+
+####  adretyu67.  
+##### 37492#       发表于 2025-3-15 16:32
+
+ 本帖最后由 adretyu67. 于 2025-3-15 16:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67660658&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-15 16:28</a>
+
+睦墨合体也是靠的音乐
+
+大莫老师的剧情线，和音乐关系还挺大的</blockquote>
+就当是初华对大祥唱歌的顺带效果吧。
+
+剩下这1-9话的内容我是真想不出要怎么变成音乐。
+
+*****
+
+####  Versedust  
+##### 37493#       发表于 2025-3-15 16:33
+
+初音蠕动是这集唯一能让我笑出来的镜头了
+开三倍速都觉得坐牢，唯独这段反复看了好几遍
+
+*****
+
+####  聪明墨菲特  
+##### 37494#       发表于 2025-3-15 16:34
+
+参考睦，搞不好初音也被初华在脑内摔死了
+
+—— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  aptx8285144  
+##### 37495#       发表于 2025-3-15 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67660667&amp;ptid=2208921" target="_blank">油画布 发表于 2025-3-15 16:31</a>
+
+b站11集视频封面几乎清一色初音爬 ，虽然视频里都在控诉不把初音当人但用起封面也一点不含糊呢
+
+如果纸片人 ...</blockquote>
+所以前面说对标希望之花<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，希望之花这个梗本质也是吃团长的血馒头，毕竟糟点再多也是为部下而死的
+
+*****
+
+####  huxiaopao163  
+##### 37496#       发表于 2025-3-15 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67660354&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-15 15:11</a>
+
+巴比伦这坨这么恶心的玩意日本人都端出来了，少女乐队番大概就是多一个骗观众进来杀吧 ...</blockquote>
+曲世爱是吧，我觉得还挺带感的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+其实多首怪物那里确实有点内味了
+
+*****
+
+####  adretyu67.  
+##### 37497#       发表于 2025-3-15 16:36
+
+狗爬不就是特意整的爆点吗。
+
+*****
+
+####  aptx8285144  
+##### 37498#       发表于 2025-3-15 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67660696&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-3-15 16:34</a>
+
+曲世爱是吧，我觉得还挺带感的
+
+其实多首怪物那里确实有点内味了</blockquote>
+前面各种精神催眠杀人也就算了，某回合直接直播残杀也是绝了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
