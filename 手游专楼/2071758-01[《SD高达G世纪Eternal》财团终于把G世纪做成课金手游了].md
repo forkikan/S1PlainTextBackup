@@ -155,3 +155,20 @@ DD前有个X-Ω
 
 —— 来自 HUAWEI BRA-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  plok201  
+##### 108#       发表于 2025-3-15 14:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67658429&amp;ptid=2071758" target="_blank">发呆的龙虾 发表于 2025-3-15 07:40</a>
+
+全地形的话就OO系吧。不过我看主线除了要求地形好像还要求原作机体和技师？
+
+—— 来自 HUAWEI BRA-AL00, A ...</blockquote>
+有俩队，一个原作队伍，一个自由配搭
+
+原作队伍除了关卡自带的原作人物外，可以配置原作机体和机师，自由队伍就随便上
+
+至于后面会不会有真的严格时间线的挑战关卡就不好说了
+
