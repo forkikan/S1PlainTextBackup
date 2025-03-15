@@ -4636,3 +4636,13 @@ X最早封面像是肺部X光片。
 
 （没为祥子找补的意思，只是觉得这破片设定、情节推进上自相矛盾的地方太多，根本不值得理性探讨。稍微认真一点就会公说公有理，然后回头一看（角色），好家伙，哪有人，只有神经……）
 
+
+*****
+
+####  天空塔书记官  
+##### 37421#       发表于 2025-3-15 08:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
