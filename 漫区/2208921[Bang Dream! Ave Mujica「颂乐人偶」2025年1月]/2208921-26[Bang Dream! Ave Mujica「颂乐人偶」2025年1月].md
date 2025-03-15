@@ -6884,3 +6884,74 @@ niki 助攻
 超級有錢超級中二的鍵盤手</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">超高校级的绝望是吧，让世界全都感受痛苦全都扛米。
 
+
+*****
+
+####  猫执事  
+##### 37621#       发表于 2025-3-16 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67663806&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-15 23:21</a>
+
+至少往好处想，这已经不是最逆天的剧情了。
+
+试想一下，如果老登对着初华说出这样的话：“既然你现在已经知 ...</blockquote>
+初华上一集说的 把人生都给你  原来包括**啊
+
+*****
+
+####  ardente  
+##### 37622#       发表于 2025-3-16 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67663907&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-15 23:46</a>
+
+正因为没有才行啊，这样就是最“折中”的方案了，祥子不会因此早逝，还能顺带坏了传承毁了丰川家当然我这 ...</blockquote>
+你不会是想说代y吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 37623#       发表于 2025-3-16 00:09
+
+對了，
+
+HHW 也是六人團
+
+祥子大小姐快向幼稚園佈教死金的中二世界觀吧
+
+
+*****
+
+####  木板春香  
+##### 37624#       发表于 2025-3-16 00:12
+
+ 之前有说不想风格冲突吧
+
+*****
+
+####  cxj649  
+##### 37625#       发表于 2025-3-16 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67663907&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-15 23:46</a>
+
+正因为没有才行啊，这样就是最“折中”的方案了，祥子不会因此早逝，还能顺带坏了传承毁了丰川家当然我这 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">丰川家好像也没干啥
+
+继承人自由恋爱（祥奶祥妈）
+
+剧内主角团和财阀的矛盾暂时是老登烂裤裆搞出来的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 37626#       发表于 2025-3-16 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67664023&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-3-16 00:14</a>
+丰川家好像也没干啥
+
+继承人自由恋爱（祥奶祥妈）
+
+剧内主角团和财阀的矛盾暂时是老登烂裤裆搞出来的 ...</blockquote>
+倒也没错<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">但是老登管好了裤裆就看不到狗爬了，很纠结
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
