@@ -14484,3 +14484,135 @@ TV果然没有，0079部分就是吸引老粉做的。
 
 卡尔玛这么劲吗，为了妹子直接私奔了。
 
+
+*****
+
+####  岸浪白野  
+##### 8565#       发表于 2025-3-15 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67660029&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-3-15 14:09</a>
+玛里甘不是新角色，夏亚不是有一艘桑吉巴尔级机动巡洋舰吗？他是副官。
+
+在夏亚搭乘MS出击时，他接手舰船 ...</blockquote>
+这里初稿原文括号标着新角色？是想说这里用玛利甘或者考虑换成新角色，不是说玛利甘是新角色。。。。。
+
+*****
+
+####  Piano-Forest  
+##### 8566#         楼主| 发表于 2025-3-15 14:29
+
+[https://tieba.baidu.com/p/9575114787/](https://tieba.baidu.com/p/9575114787/)
+
+感谢各位观众观赏《高达GQuuuuuuX -Beginning-》。
+
+ 自影片上映以来，我们收到了许多温暖的鼓励，实在倍感欣喜。
+
+ 大家的每一句感想，都将成为我们制作团队的动力。
+
+ 正如手册收录的访谈中所提及，本次《-Beginning-》中关于「一年战争」的篇章在制作过程中经历了大幅度的结构调整，其内容仅限剧场先行版才能体验。
+
+ 由于整体故事的节奏与播放时长的限制，我们不得不忍痛删减了许多场景。
+
+ 因此，本次影像化的部分将作为《GQuuuuuuX》的官方设定。但作为入场者特典，我们将公开庵野秀明的初期构思大纲、部分剧本，以及核心设计师与制作人员的设定稿。
+
+ 「大纲」是剧本的原始素材，仅罗列了场景安排与描写要素，未经过播放时长或制作成本的考量。
+
+ 本次刊登的是文字量最多的版本。
+
+ 此外，关于最终「第二次所罗门战役」的部分，我们曾额外委托团队扩充内容并完善剧本，相关修订版剧本也将一并公开。
+
+ 需特别注意的是，这些均为制作过程中的阶段性成果，并非官方补充设定。
+
+ 若能以「或许还存在这样的可能性？」的视角，将这些资料作为深入体验作品的辅助素材，我们将深感荣幸。
+
+ （为不影响今后TV系列的观赏体验，我们对可能造成干扰的部分进行了最低限度的涂黑处理，敬请谅解。）
+
+ TV系列放送在即，全体制作人员将全力以赴。恳请各位继续支持《GQuuuuuuX》，与我们一同点燃热情！
+
+监督 鹤卷和哉
+<img src="https://p.sda1.dev/22/c2c62f655480bad96592809f32236f19/372db07eca80653843f7a13fd1dda144ad3482bf.jpg" referrerpolicy="no-referrer">
+
+官方设计集2 机设、人设详细
+<img src="https://p.sda1.dev/22/55f984dacd7501fd76d342a216706c3f/7f56954543a982261b802e0bcc82b9014b90ebe8.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/c4ba6f65892d362ab0f5f8d52bdece75/274cbe82d158ccbf12f8b0165fd8bc3eb03541ec.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/5b230b4ddd035130e798c6d244e7f522/e45d19c79f3df8dc46798abd8b11728b461028ec.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/37d0a872ba56b54a267ba94ada9f860b/0ac32db30f2442a7644af8899743ad4bd01302ec.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/98f601cd54d74573fb1a4589beedb1dd/939a0a381f30e92448e0991d0a086e061c95f7ed.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/32119fde6c0622063e15efdbe562da82/9d65b2529822720e1889e7d63dcb0a46f31fabed.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/684de53d6d24c6620826e9efa1fa588d/7dc2172ac65c10386539cbeef4119313b17e89ed.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/170d61fc2d70d00db96dbc4b13a0a22c/ad93033fb80e7bec009d06cd692eb9389a506bed.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/e814ee139559c1951045854da17df69c/5f816b540923dd542134a2449709b3de9d8248ed.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/490d6e01559cb3ec493d9da7fa36b8f6/af55bd3df8dcd10022dbfd0d348b4710b8122fed.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/22/87e7b27125256959a24d04e3e0dce8c7/d2b12bf79052982261723cef91ca7bcb0b46d4ef.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/a4cdcfd1dfbbbe675312d948e7c774e9/c2dcb058d109b3dee7fee1448abf6c81810a4cef.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/21691fe22ae51a14231c17bfe53e440b/986613adcbef7609024a9cb368dda3cc7dd99eef.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/414b6908b7d0c4b1489a28a612fd95fe/03b9f60735fae6cdc3f5ae4d49b30f2443a70fef.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/23e4b41787d71eff9375a837fc1680a3/6641752c11dfa9ec746f533b24d0f703908fc1e8.jpg" referrerpolicy="no-referrer">
+
+初稿 21年8月29日
+
+第三稿 23年8月18日
+<img src="https://p.sda1.dev/22/116c59cae2d94b8c8385783a08bc1ec0/c6eef703918fa0ec1ebc6121609759ee3d6ddb65.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/9086e15d26ade8a9e7b712b4ffda66f5/Image_2371986466846145.jpg" referrerpolicy="no-referrer">
+
+欧洲某一场景：酒吧内充斥着嘈杂的音乐声
+
+ 平民A「听说卡尔玛为了个女人抛下吉翁，结果被基西莉亚发现，强制遣送回国了。」
+
+ 平民B「据说那女人和她老爹都被杀了……真是晦气，晦气。」
+
+ 吧台旁，身着便服的夏亚与玛里甘（新角色？）正在喝酒。
+
+ 玛里甘「关于卡尔玛大人的情报，您并未提交给多兹尔阁下吧？」
+
+ 夏亚「对那小子来说，基西莉亚姐姐的庇护更幸福。况且——基西莉亚机关的情报收购价更高。派你来我身边，不就是为了诱导我这么做吗？」
+
+ 玛里甘「您高估我了，少佐。我申请调职，只是想了解您。」
+
+ 夏亚「玛里甘，你想了解的……恐怕是我的出身吧？」
+
+正片里和夏亚喝酒的是夏利尔 &amp; 根据正式的GQX编年史，卡尔玛弃军后和爱人私奔下落不明了，并未提到被遣返以及爱人被杀
+<img src="https://p.sda1.dev/22/83e28cf2496c490fb2ce14515b9a9785/5fd3ab64034f78f02aba9fdf3f310a55b3191c23.jpg" referrerpolicy="no-referrer">
+
+场景：镜头从星空逐渐聚焦至穆赛级战舰，继而推向舰桥
+
+ 夏利尔（独白）
+
+ 「失去月神二号的联邦军孤注一掷，企图将所罗门要塞坠向月面格拉纳达。为阻止坠落，我军出击，第二次所罗门战役就此爆发。战斗中，大佐的赛可缪系统失控——他的意志竟将所罗门半数质量湮灭，成功拦截了格拉纳达的直击。」
+
+ 「基连总帅痛斥联邦暴行，宣布反向执行地球圈‘所罗门坠落’计划。此时联邦军已丧失大半宇宙舰队，无力阻止，最终被迫接受吉恩的最后通牒。宇宙世纪0080年1月3日，这场持续一年的战争以联邦近乎无条件投降的形式终结。战争结束了……但大佐却与所罗门的光芒一同消失。」
+
+ 场景：夏利尔在舰桥座椅上正襟危坐，仰首凝望星空。
+
+ 夏利尔（独白）
+
+ 「——自那以后，我始终追寻着那架失踪的红高达。」
+
+ 「为何留下谜语般的遗言，又从我们眼前消失……夏亚大佐？」
+
+ 穆赛战舰航向前方，浩瀚星海铺展如幕。
+
+ 「载着大佐的红高达，究竟遁入了何方……」
+
+   完
+<img src="https://p.sda1.dev/22/444a07434214a6c57016c09c16e30b13/c337c93d70cf3bc738a1c8c09700baa1cd112a33.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/dfdb1cf534677345c5de2e378ca7d662/692f728b4710b9126760f3d285fdfc0392452233.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Toby_dak  
+##### 8567#       发表于 2025-3-15 14:33
+
+发声上映要开场了，看看庵野在不在现场<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  虛無迴廊  
+##### 8568#       发表于 2025-3-15 14:35
+
+让夏亚告密导致卡尔玛的恋人这类跟夏亚无仇又不是军人的人物死掉是不太好，如果这段剧情要加回去，会写成紫婆靠自己的能力去找到卡尔玛吧
+
