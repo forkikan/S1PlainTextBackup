@@ -14441,3 +14441,13 @@ TV果然没有，0079部分就是吸引老粉做的。
 钢坦克</blockquote>
 这刚坦克的核心战机还能弹出来吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hsyg  
+##### 8561#       发表于 2025-3-15 13:19
+
+<blockquote>g救世主高达 发表于 2025-3-15 12:35
+这个世界有元祖七兄弟和陆战高达吗？咋联邦的魔女开的还是个改装吉姆</blockquote>
+现在世界观就是联邦只有吉姆科技树，吉翁也是高达+吉姆科技树。if79x，ifz✓，有问题的不是79，需要改变的是z。
+
