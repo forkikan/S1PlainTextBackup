@@ -5058,3 +5058,31 @@ X最早封面像是肺部X光片。
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  aptx8285144  
+##### 37460#       发表于 2025-3-15 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67659336&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-15 11:57</a>
+
+最简单的可能性，因为全是初华自述，所以后面的黑箱发生了什么都不知道。
+
+甚至连这个阶段老登是否真的知 ...</blockquote>
+确实很多是黑箱，但是如果连报上名字后不久和甜甜圈组队这点都是自己“想象”出来的也太恐怖了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，
+
+其实我刚才不是没想过，会不会是中登在初音报上名字不久暗中提供帮助，但作为一个在集团要看老登颜色的人，<strong>只要有正常的社会交际认知</strong>，听到一个从来没听说过的丰川家的女性对商业公司自称是老登的女儿，第一反应都是赶紧找老登求证的，怎么可能二话不说对商业公司表示她说的对，因为谁知道她不是骗子<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 37461#       发表于 2025-3-15 12:15
+
+如果初音沒說謊，那老登是知道的
+
+未成年簽不了約
+
+既然最後出道了， 那就是有監護人簽字了
+
+這種東西中登這種中層解決不了的
+
