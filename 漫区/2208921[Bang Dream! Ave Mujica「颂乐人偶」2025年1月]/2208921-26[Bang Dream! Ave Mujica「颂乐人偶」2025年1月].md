@@ -4943,3 +4943,56 @@ X最早封面像是肺部X光片。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">怎么到处都是当成丰川让mana带初音的 明明初音报老登名字是在和mana组队后面。  中登也说了老登没帮她
 
+
+*****
+
+####  aptx8285144  
+##### 37448#       发表于 2025-3-15 11:44
+
+按中登见老登的说辞更像是经纪人和商业公司自发讨好老登而安排甜甜圈和初音一组（没提供帮助），但是中登这种傻白甜的样子，也完全有可能是不知情，不过可以肯定，一个和连续五年唱歌冠军长期 组队公开偶像明星要是<strong>之后</strong>没有老登的庇护，假身份证几乎不可能不被拆穿
+
+*****
+
+####  ape-apple  
+##### 37449#       发表于 2025-3-15 11:45
+
+三角初华像太阳，照到哪里哪里亮，丰川初音像月亮，初一十五不一样
+
+*****
+
+####  天空塔书记官  
+##### 37450#       发表于 2025-3-15 11:49
+
+重点不是谁带谁，重点是丰川娱乐的实力，感觉确实相当超模了，主推音乐人和演员的话，不知道能对标现在岛国的哪一家娱乐巨头
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  木板春香  
+##### 37451#       发表于 2025-3-15 11:54
+
+ 虚拟作品也不用和现实1比1对标吧
+
+*****
+
+####  aptx8285144  
+##### 37452#       发表于 2025-3-15 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67659237&amp;ptid=2208921" target="_blank">凉良 发表于 2025-3-15 11:39</a>
+
+怎么到处都是当成丰川让mana带初音的 明明初音报老登名字是在和mana组队后面。  中登也说了老登没帮她 ...</blockquote>
+重看了一下，先报上名字，再以sumi的身份出道，但是这里有个非常巨大的问题，只要独角兽和蚀本脑子还正常，<strong>总不可能你我自称王健林是我的爸爸，商业公司和经纪人就马上信了吧</strong><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+当然，如果独角兽和蚀本把商业公司和经纪人看成弱智，就当我没说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 37453#       发表于 2025-3-15 11:55
+
+初华好歹还有一张伟大的脸呢，并且这人实质也是个戏精。
+
