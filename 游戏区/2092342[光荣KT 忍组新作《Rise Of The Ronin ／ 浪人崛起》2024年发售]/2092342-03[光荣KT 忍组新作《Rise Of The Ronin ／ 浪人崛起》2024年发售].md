@@ -1684,3 +1684,11 @@ Ver1.09.0.1 2025/03/14Steam®
 
 —— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  牛肉粉小煎包  
+##### 3570#       发表于 2025-3-15 17:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">算是知道这游戏为啥卖不出去了，玩家不喜欢啥就做啥，还要猛猛做。弹完左边右边戳，不反击BOSS后跳后跳后跳，一反击旁边那个就戳几下，我还碰到连续俩BOSS丢三个红光的。玩了十几个小时就没几场像样的战斗，不是弱鸡就是恶心人的。房子里卡视角，房子外卡台阶，NPC卡位，BOSS蹲在角落翻腾粪招复读。游戏最大的短板根本不是画面和开放世界，而是这个奇葩的系统
+

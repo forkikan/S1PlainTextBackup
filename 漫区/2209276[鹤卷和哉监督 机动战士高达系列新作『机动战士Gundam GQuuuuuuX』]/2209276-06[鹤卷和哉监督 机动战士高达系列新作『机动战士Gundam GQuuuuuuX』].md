@@ -14870,3 +14870,59 @@ TV果然没有，0079部分就是吸引老粉做的。
 首先修司多半并不是男“主角”</blockquote>
 那女主角呢？你想说没有男“主角”，但是女"主角"有两个，是轻x动画是吧<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  renkan119  
+##### 8594#       发表于 2025-3-15 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67661142&amp;ptid=2209276" target="_blank">真阿波罗 发表于 2025-3-15 17:43</a>
+
+那女主角呢？你想说没有男“主角”，但是女"主角"有两个，是轻x动画是吧  ...</blockquote>
+要我说就没有男主角和女主角 只有“主角” 主角是玛丘 其他都是配角
+
+*****
+
+####  夜火雷纹  
+##### 8595#       发表于 2025-3-15 17:50
+
+飞跃巅峰算什么？轻bg?
+
+
+*****
+
+####  真阿波罗  
+##### 8596#       发表于 2025-3-15 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67661048&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-3-15 17:29</a>
+
+看高达追求党争赢？建议别来看。
+
+----发送自 Sony XQ-CT44,Android 14</blockquote>
+搞笑吗，看高达系列每个观众侧重点都很多。你觉得seed从以前刚播出到现在没有看角色cp看谁赢的吗？好像最近一部某高达不就是一直搞角色cp的吗，cp楼那么高，你应该和那些人说吧。
+
+*****
+
+####  Wondering  
+##### 8597#       发表于 2025-3-15 17:55
+
+ 本帖最后由 Wondering 于 2025-3-15 17:58 编辑 
+
+seed拉克丝赢难道还有啥悬念吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">认真的吗，我甚至认为你还不如提阿姆罗
+
+*****
+
+####  刺客ares  
+##### 8598#       发表于 2025-3-15 17:55
+
+龙的牙医应该算be吧？
+
+鹤卷的片be居多，不是死就是走，但这次用别人家ip不知道会不会改性，榎户上部萝卜片是地球队长，那个算啥结局，he吗？
+
+*****
+
+####  AkiraD  
+##### 8599#       发表于 2025-3-15 17:56
+
+党争话题度不如战力一根
+
