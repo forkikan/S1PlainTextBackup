@@ -15018,3 +15018,57 @@ GQ79鸭（红高达全装）VS UC79骡（普通元祖）
 
 明知道没东西聊不起来又没意义的话题某位大哥硬是厚脸皮赖在这发癫，也是成功让几位没说过话的都突然在这出现了
 
+
+*****
+
+####  RE㐅ia  
+##### 8609#       发表于 2025-3-15 18:28
+
+srds种的党争难道大头不是在卡嘉莉和美玲吗
+
+*****
+
+####  pokemon最爱  
+##### 8610#       发表于 2025-3-15 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67661266&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-3-15 18:03</a>
+
+战力？问题来了
+
+GQ79鸭（红高达全装）VS UC79骡（普通元祖）
+
+死斗，谁会赢 ...</blockquote>
+除非因为骡子NT力太强导致红高的α塞可谬引发了什么奇怪的问题，不然的话79骡稳赢吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+无论是79的吉翁号对782也好还是93的沙扎比对牛or夜莺对海牛也好，鸭子这边都是占着机体性能优势才能跟骡子有来有回的吧。鸭子还是NT力太弱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（虽然即便如此鸭子作为驾驶员也算是骡子之下第一人了，换别人可能会被骡枪秒）
+
+*****
+
+####  RE㐅ia  
+##### 8611#       发表于 2025-3-15 18:30
+
+<blockquote>夜火雷纹 发表于 2025-3-15 17:50
+飞跃巅峰算什么？轻bg?</blockquote>
+真轻吗（
+
+*****
+
+####  RE㐅ia  
+##### 8612#       发表于 2025-3-15 18:32
+
+<blockquote>刺客ares 发表于 2025-3-15 18:03
+战力？问题来了
+
+GQ79鸭（红高达全装）VS UC79骡（普通元祖）
+
+死斗，谁会赢 ...</blockquote>
+看好红高。装备差距太大了
+
+
+*****
+
+####  王留美  
+##### 8613#       发表于 2025-3-15 18:34
+
+79骡和GQ塞谁强？
+

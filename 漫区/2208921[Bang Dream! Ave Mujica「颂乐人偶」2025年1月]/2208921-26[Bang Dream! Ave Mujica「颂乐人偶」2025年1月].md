@@ -5675,3 +5675,18 @@ here the world其实也有比较阴气的词
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  ntrntr1  
+##### 37515#       发表于 2025-3-15 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67660979&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-3-15 17:20</a>
+
+初音一个初中生离家出走，第一次从乡下小岛跑来东京，能光速上大舞台，租到房子，成功转学。
+
+你说老登没偷 ...</blockquote>
+也可能因为伟大的脸一眼就被知名童星甜甜圈女士看上<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+其实是大富婆和她的小白脸（心中有人版）<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+

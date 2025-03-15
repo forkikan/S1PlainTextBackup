@@ -209,3 +209,15 @@ DD前有个X-Ω
 
 这系列的主要乐趣不是开发各种机体么，这都全靠抽卡了还有什么玩头<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  发呆的龙虾  
+##### 112#       发表于 2025-3-15 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67661062&amp;ptid=2071758" target="_blank">wcorvo 发表于 2025-3-15 17:32</a>
+这系列的主要乐趣不是开发各种机体么，这都全靠抽卡了还有什么玩头</blockquote>
+开发还在啊，也可以抽。之前是说差个ex技，但是也有说开发的也能拿ex技，不太懂。
+
+—— 来自 HUAWEI BRA-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
