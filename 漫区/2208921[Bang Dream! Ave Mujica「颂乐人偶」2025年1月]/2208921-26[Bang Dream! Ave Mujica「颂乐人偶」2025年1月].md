@@ -5259,3 +5259,67 @@ X最早封面像是肺部X光片。
 前面颜艺推人的时候还没感受这么深，这两天中文社区到处都能看到狗爬gif真的很明显能感觉到柿对角色的一股 ...</blockquote>
 邦邦铁血<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Victorino  
+##### 37476#       发表于 2025-3-15 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67659089&amp;ptid=2208921" target="_blank">Raven314 发表于 2025-3-15 11:07</a>
+
+邦世界就是音乐高武世界观啊
+
+祥子十几岁作曲天才，风格迥异可以应作词要求随时切换曲风
+
+初音自小的唯一爱好 ...</blockquote>
+mana的设定，越高武越可怕啊……她这个是排名式的头衔，不是三天作曲一周学吉他这种数字型的，冠军只有一个
+
+*****
+
+####  aptx8285144  
+##### 37477#       发表于 2025-3-15 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67660222&amp;ptid=2208921" target="_blank">qlipho 发表于 2025-3-15 14:45</a>
+
+邦邦铁血 （之前还缺一个大佐名场面，现在都有了</blockquote>
+这爬行场面比团长的希望之花还难看<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Victorino  
+##### 37478#       发表于 2025-3-15 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67659409&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-15 12:11</a>
+
+确实很多是黑箱，但是如果连报上名字后不久和甜甜圈组队这点都是自己“想象”出来的也太恐怖了，
+
+其实我 ...</blockquote>
+我觉得第一反应并不是跟老登求证，而是直接当成骗子
+
+没被当成骗子就说明，提前早就已经有人跟事务所打过招呼了
+
+
+*****
+
+####  huxiaopao163  
+##### 37479#       发表于 2025-3-15 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67660202&amp;ptid=2208921" target="_blank">Lyzers 发表于 2025-3-15 14:41</a>
+
+前面颜艺推人的时候还没感受这么深，这两天中文社区到处都能看到狗爬gif真的很明显能感觉到柿对角色的一股 ...</blockquote>
+但是声优也是日本人，甚至角色也是日本人，可能他们本来就是这样的，编剧写这样的角色很满足，声优演这样的角色也觉得很满足<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Victorino  
+##### 37480#       发表于 2025-3-15 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67659237&amp;ptid=2208921" target="_blank">凉良 发表于 2025-3-15 11:39</a>
+
+怎么到处都是当成丰川让mana带初音的 明明初音报老登名字是在和mana组队后面。  中登也说了老登没帮她 ...</blockquote>
+mana一见钟情当初音的狗，理论上倒也不是不可能
+
+但这样的展开真的过于都合，光速被星探scout，光速被满级号拉进队，而且进的还是tgw关联公司，顺利得不正常
+
+结合常理考量，怕不是三角妈妈发现女儿离家出走，马上就给孩子亲爹打电话了，初音船都没到站，星探小组已经集结待命了
+
