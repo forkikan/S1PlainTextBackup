@@ -1703,3 +1703,14 @@ Ver1.09.0.1 2025/03/14Steam®
 算是知道这游戏为啥卖不出去了，玩家不喜欢啥就做啥，还要猛猛做。弹完左边右边戳，不反击BOSS后跳后跳后跳 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能说我冲着战斗系统买的结果通关二周目反而感觉战斗系统是最不好玩的吗
 
+
+*****
+
+####  东方定助  
+##### 3572#       发表于 2025-3-15 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67660241&amp;ptid=2092342" target="_blank">waelaZed 发表于 2025-3-15 14:47</a>
+
+不杀任务直接空手上去打拳就是了,打的还挺快的,唯一缺点是没有相性</blockquote>
+手甲类武器绝对是准备放到DLC里最后砍了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
