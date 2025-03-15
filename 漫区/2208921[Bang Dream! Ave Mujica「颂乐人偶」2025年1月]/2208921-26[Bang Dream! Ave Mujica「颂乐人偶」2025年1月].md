@@ -5344,3 +5344,13 @@ mana一见钟情当初音的狗，理论上倒也不是不可能
 但是声优也是日本人，甚至角色也是日本人，可能他们本来就是这样的，编剧写这样的角色很满足，声优演这样 ...</blockquote>
 巴比伦这坨这么恶心的玩意日本人都端出来了，少女乐队番大概就是多一个骗观众进来杀吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天空塔书记官  
+##### 37483#       发表于 2025-3-15 16:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
