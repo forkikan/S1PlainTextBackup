@@ -14844,3 +14844,29 @@ TV果然没有，0079部分就是吸引老粉做的。
 已完结作品看了啊。怎么，就不能要求在这部作品赢了？逆风和平包容，顺风直接驱赶绞杀，嘴脸这几年看太多 ...</blockquote>
 首先修司多半并不是男“主角”
 
+
+*****
+
+####  Wondering  
+##### 8591#       发表于 2025-3-15 17:38
+
+对的，蓝宝石之谜大概算是大赢特赢？
+
+*****
+
+####  虛無迴廊  
+##### 8592#       发表于 2025-3-15 17:41
+
+以赢为导向那目前推荐磕叔系bl<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  真阿波罗  
+##### 8593#       发表于 2025-3-15 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67661082&amp;ptid=2209276" target="_blank">renkan119 发表于 2025-3-15 17:35</a>
+
+首先修司多半并不是男“主角”</blockquote>
+那女主角呢？你想说没有男“主角”，但是女"主角"有两个，是轻x动画是吧<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer"> 
+
