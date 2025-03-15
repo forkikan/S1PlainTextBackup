@@ -1775,3 +1775,15 @@ Ver1.09.0.1 2025/03/14Steam®
 
 大久保利通这长得能一刀把志志雄砍死，后面怎么被流浪汉干死的…………
 
+
+*****
+
+####  手铐君  
+##### 3579#       发表于 2025-3-16 01:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67664178&amp;ptid=2092342" target="_blank">Lorraine_Kinney 发表于 2025-3-16 00:57</a>
+这沟槽的剧情真的难绷
+
+高杉在唐人街当黑老大，还拿了把关刀cos关羽，主角为了找他莫名其妙把手下杀了个七七 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这游戏有不杀生设定，虽然大部分要特定武器触发，但是少部分任务强制是杀不了人
+
