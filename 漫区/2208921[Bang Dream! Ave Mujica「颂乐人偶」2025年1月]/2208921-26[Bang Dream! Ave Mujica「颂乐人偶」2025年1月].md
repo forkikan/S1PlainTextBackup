@@ -6757,3 +6757,66 @@ niki 助攻
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  cxj649  
+##### 37610#       发表于 2025-3-15 23:46
+
+ 本帖最后由 cxj649 于 2025-3-15 23:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67663806&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-15 23:21</a>
+
+至少往好处想，这已经不是最逆天的剧情了。
+
+试想一下，如果老登对着初华说出这样的话：“既然你现在已经知 ...</blockquote>
+没有丰川血统
+
+前面漏油批判老登就感觉漏油支持外遇似得233
+
+以正常普通人加上入赘大家族，一些普通人道德批判还是很怪的233
+
+*****
+
+####  是谁的书画  
+##### 37611#       发表于 2025-3-15 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67663877&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-15 23:39</a>
+並沒有豐川血統</blockquote>
+正因为没有才行啊，这样就是最“折中”的方案了，祥子不会因此早逝，还能顺带坏了传承毁了丰川家<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">当然我这纯逆天发言
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  thisisaspider  
+##### 37612#       发表于 2025-3-15 23:48
+
+还是支持面具说，混活就带上人格面具硬演正常人，内部活动就发癫好了。<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+除了睦，这几个人的本来就都是高社会性的人而且一直隐藏得很好。
+
+*****
+
+####  qiyu1234  
+##### 37613#       发表于 2025-3-15 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67663256&amp;ptid=2208921" target="_blank">wwwttth 发表于 2025-3-15 22:05</a>
+
+不，这个假药的基点就是喵梦在mygo初次见面时对祥子的态度，是以知道祥子以前是大小姐，现在看上去家道中 ...</blockquote>
+那我再给你提供一个点，炸团以后第五话 喵梦跟初华 见面形同陌路
+
+
+*****
+
+####  凉良  
+##### 37614#       发表于 2025-3-15 23:52
+
+<img src="https://pbs.twimg.com/media/Gl8CpaqacAAoOS2?format=jpg&amp;name=small" id="aimg_o00Vo" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+*****
+
+####  厄神之息  
+##### 37615#       发表于 2025-3-15 23:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">真别找补了，一是这片现在这个阶段完全没余裕也不配去做悬疑让人猜真假了，你还有两集，第十三集确定live集，那就还有一集半不到，你难道还有时间去搞倾向性的细节描写去映证他的话让观众讨论真假吗？还是说你有时间去做翻转揭秘？不可能的嘛，那不回收的铺垫和伏笔压根就没存在的意义嘛！就好像你看禁闭岛，看小李子一顿探秘最后要冲上灯塔了，全剧终了，那你前面探半天有鸡毛用啊？第二就是，如果说人物在剧场自白你默认他有真有假，观众可以不用在意，自由发挥。那前面莫提斯和木头的小剧场多了去了，按你这说法，我还可以得出莫提斯是坏逼撒谎精，是天生坏种，她说的话全是假的全是演技，睦妈说木子米是怪物实际上看到的就是坏逼木子米演的。木子米的吉他人格其实也高深莫测，她只是太累太受伤了，故意搞这一出想让自己被莫提斯杀死彻底消失。莫提斯自以为很聪明算计了睦，其实都是睦的计划，一切按睦算的走。你说这种的有意义吗？这不就是假药就是帮编剧干活？你可以把他当个假药，小剧场自白全部人狼村之谜说，但你信誓旦旦催眠自己这就是真的。。。。真没必要。。。。
+
