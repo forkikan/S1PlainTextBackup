@@ -5196,3 +5196,17 @@ X最早封面像是肺部X光片。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">丰川是三井三菱这种级别吧
 
+
+*****
+
+####  aptx8285144  
+##### 37470#       发表于 2025-3-15 14:01
+
+ 本帖最后由 aptx8285144 于 2025-3-15 14:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67659490&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-15 12:28</a>
+
+这段你甚至可以阴谋论其实事务所是丰川家分支掌控的，看似是winwing讨好老登公款追星，其实是准备造反。
+
+组 ...</blockquote>
+老登第五集给大祥付钱时候亲口说我一直在关注一系列报道，考虑到付赔偿金本身加上第一话末尾大瞄已经摘了所有人面具，老登会不知道初音在哪里吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
