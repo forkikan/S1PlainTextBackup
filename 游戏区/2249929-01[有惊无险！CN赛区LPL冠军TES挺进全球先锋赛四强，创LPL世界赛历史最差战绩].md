@@ -542,3 +542,14 @@ makece 发表于 2025-3-15 21:39
 你给别人扣帽子时候，都会说“这是描述我对你的真实感觉”吗？</blockquote>
 我觉得这不需要解释第三遍了。
 
+
+*****
+
+####  perfect_duck  
+##### 51#         楼主| 发表于 2025-3-15 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67663176&amp;ptid=2249929" target="_blank">makece 发表于 2025-3-15 21:55</a>
+
+我觉得这不需要解释第三遍了。</blockquote>
+无所谓啦，我只是指出你给我扣帽子的行为，至于你同不同意那是你的事。
+
