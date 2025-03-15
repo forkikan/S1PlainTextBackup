@@ -6342,3 +6342,48 @@ here the world其实也有比较阴气的词</blockquote>
 
 好像据舅舅说最后还是大小姐过家家，说明应该还是不可能脱离丰川家的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ntrntr1  
+##### 37572#       发表于 2025-3-15 21:29
+
+ 本帖最后由 ntrntr1 于 2025-3-15 21:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67661805&amp;ptid=2208921" target="_blank">凉良 发表于 2025-3-15 19:17</a>
+
+别墅管理员不是管家，不过按我看的日本小说里的几个别墅管理员，确实是个工资比较多的清闲工作。（而且感 ...</blockquote>
+这种一年工作两个月，钱多免费大别野的工作，外加那走东京大马路上就能马上被星探发现的外貌，却从来不去大城市，真相只有一个____
+
+三角妈也是丰川家私生女<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 37573#       发表于 2025-3-15 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67662815&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-3-15 21:18</a>
+
+主要是一个60多岁的老登，又不可能什么事情都亲力亲为，还是需要下面一大帮中年管理层+青年执行层才玩得 ...</blockquote>
+家族内斗什么的就是背景，可以明确说下一话不会出现第四个姓丰川的npc表示他和老登不对付。
+
+*****
+
+####  zhoujin8584  
+##### 37574#       发表于 2025-3-15 21:30
+
+脱离本来也不现实，牢初折腾了一大圈，拿到一个肉身离家关系性还在的丰川祥子算是大家都能接受的结果。
+
+*****
+
+####  ape-apple  
+##### 37575#       发表于 2025-3-15 21:31
+
+按剧透的意思，祥子搬出去住，说是和丰川家断绝关系，但最后mujica办大场子live，丰川家还是有赞助，可能是某种赎罪
+
+*****
+
+####  adretyu67.  
+##### 37576#       发表于 2025-3-15 21:35
+
+应该还是得找个理由回RiNG的，这宇宙第二中心就一支队伍常驻也太冷清了。
+
