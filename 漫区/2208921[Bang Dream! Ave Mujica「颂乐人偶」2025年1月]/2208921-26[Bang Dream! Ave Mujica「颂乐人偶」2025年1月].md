@@ -6122,3 +6122,63 @@ AM这完全是卡住了啊，Crucfix X的MV出来之后我彻底糊涂了，到�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">楼里又聊老登了，恋老癖吗
 
+
+*****
+
+####  adretyu67.  
+##### 37550#       发表于 2025-3-15 20:36
+
+ 本帖最后由 adretyu67. 于 2025-3-15 20:37 编辑 
+
+老登的形象仍然没有超出那种一切为了权力，权力就是一切的封建族长。
+
+他或许可以暗中照顾初音的事业，但是如果初音的存在威胁到了他的权力那肯定就得送走。
+
+这种特质其实很难说是正面的了。
+
+*****
+
+####  聪明墨菲特  
+##### 37551#       发表于 2025-3-15 20:38
+
+恐怕老登不只抛妻弃子，我怀疑初华初音都是他的种，并且是他杀了养父
+
+有没有可能去小岛后，老登初妈藕断丝连，又犯了错。初华越长越大，不像自己反而和初音别无二致，我想养父不可能不怀疑。恰逢此时初妈提出让两姐妹去东京发展，更加剧了他的怀疑，并想着带初华去做dna。初妈见纸包不住火就联合老登在船上做了手脚，杀人灭口。
+
+—— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  cxj649  
+##### 37552#       发表于 2025-3-15 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67662416&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-3-15 20:33</a>
+
+老登在普通人角度无疑是个渣男，但从财阀角度看也就还好，只是裤裆那点事而已，毕竟他负这个责任的话是真会 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他如果是正常主男家族，认下初音也没啥，偏偏是入赘的233
+
+*****
+
+####  高贵的  
+##### 37553#       发表于 2025-3-15 20:43
+
+话说之前剧里有表现初音是知道中登是为了替自己出头而被逐出家门吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 37554#       发表于 2025-3-15 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67662498&amp;ptid=2208921" target="_blank">高贵的 发表于 2025-3-15 20:43</a>
+
+话说之前剧里有表现初音是知道中登是为了替自己出头而被逐出家门吗</blockquote>
+之前初华和中登接触为0
+
+*****
+
+####  cxj649  
+##### 37555#       发表于 2025-3-15 20:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实老登那情况真要说是 抛<strong>夫</strong>弃子
+
