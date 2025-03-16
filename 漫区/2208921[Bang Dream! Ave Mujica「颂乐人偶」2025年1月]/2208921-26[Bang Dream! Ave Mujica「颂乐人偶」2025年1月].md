@@ -10777,3 +10777,91 @@ staff自找回旋镖罢了：这少女乐队啊，还真得大小姐过家家才
 
 —— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
+
+*****
+
+####  凉良  
+##### 37946#       发表于 2025-3-17 00:57
+
+其实初音也说不上毁了祥子人生  祥子摆明了是没啥物欲的  只能看中登到底锅怎么分。  其实中登最大问题还是被赶出家后摆烂喝大酒。我感觉现在这情况最后真的会成了是要赶祥子走，但是soyo见的那次又太奇怪了。
+
+
+*****
+
+####  结衣小比取  
+##### 37947#       发表于 2025-3-17 01:01
+
+重新看了MyGO第八话祥子、初华见面的部分
+
+祥子起手
+
+<img src="https://img.saraba1st.com/forum/202503/17/002853fhxt8kax8taxa5ch.jpg" referrerpolicy="no-referrer">
+
+<strong>初华还是喜欢星星呢.jpg</strong> (202.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-17 00:28 上传
+
+由Ave Mujica十一话可知这其实是对初音的认知
+
+后面初音开始讲从妹妹那儿听来的往事
+
+<img src="https://img.saraba1st.com/forum/202503/17/003937k4l9n5d3qlq4jzka.jpg" referrerpolicy="no-referrer">
+
+<strong>初音开始回忆.jpg</strong> (273.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-17 00:39 上传
+
+然后祥子称初华曾经主动邀请一起捉虫
+
+<img src="https://img.saraba1st.com/forum/202503/17/002937djjitua2u5aj6a47.jpg" referrerpolicy="no-referrer">
+
+<strong>祥子回忆初音提议捉虫1.jpg</strong> (228.93 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-17 00:29 上传
+
+接着初音根据以前从初华听来的说法，反驳是祥子主动邀请的
+
+<img src="https://img.saraba1st.com/forum/202503/17/003012h92fhxxenjjj331j.jpg" referrerpolicy="no-referrer">
+
+<strong>捉虫2.jpg</strong> (362.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-17 00:30 上传
+
+但是在Ave Mujica十一话，初音确实主动发起过捉虫邀请<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202503/17/003058lp5jhbwoppkjsotk.jpg" referrerpolicy="no-referrer">
+
+<strong>初音的邀请.jpg</strong> (181.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-17 00:30 上传
+
+之后祥子也开启了回忆模式，直接就进入了观星场景
+
+<img src="https://img.saraba1st.com/forum/202503/17/005047mj9njggrrr9eyge2.jpg" referrerpolicy="no-referrer">
+
+<strong>祥子开始回忆.jpg</strong> (226.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-17 00:50 上传
+
+<img src="https://img.saraba1st.com/forum/202503/17/004656y4ggg8t3rsea55h8.jpg" referrerpolicy="no-referrer">
+
+<strong>幼年两人观星.jpg</strong> (112.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-17 00:46 上传
+
+当时还以为是初华童年记忆比祥子深刻，结果这么一看，祥子并没记错啊，倒是初音聊回忆的时候可能很紧张，一边温习从妹妹听来的事情，一边小心翼翼的讲话<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
