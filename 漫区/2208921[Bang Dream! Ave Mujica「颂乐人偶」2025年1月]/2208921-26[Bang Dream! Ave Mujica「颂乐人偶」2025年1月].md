@@ -7543,3 +7543,31 @@ HHW 也是六人團</blockquote>
 过去 姓名 家人全都不要了。</blockquote>
 挺魔幻的，被妹妹嘴了两句就这样抛开对她还不错的家庭<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  syndrome2032  
+##### 37673#       发表于 2025-3-16 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67665635&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-16 12:13</a>
+挺魔幻的，被妹妹嘴了两句就这样抛开对她还不错的家庭</blockquote>
+事到如今只能接受初华才是病情最重的那个了。
+
+
+*****
+
+####  syndrome2032  
+##### 37674#       发表于 2025-3-16 12:22
+
+监禁12第一段写的是祥子和初音的观星夜。
+第二段写的是初华离家出走来东京。
+
+硬要说缺点是初华自以为自己陷害祥子成现在的样子。而不是预想中的初华的行动一点点把祥子逼入自己的网里。
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 37675#       发表于 2025-3-16 12:23
+
+百联ZX快闪店秒没补货再秒没，确实是骂完记得买啊。
+
