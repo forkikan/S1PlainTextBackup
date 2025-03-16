@@ -2265,7 +2265,7 @@
     "lastedit": 1742146560,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1804478": {
     "totalreply": 1242,
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 153111,
+    "totalreply": 153114,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1742149215,
+    "lastedit": 1742150890,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -11196,10 +11196,10 @@
     "update": false
   },
   "2125538": {
-    "totalreply": 515,
+    "totalreply": 516,
     "title": "[Re：从零开始的异世界生活—3期动画制作决定]",
     "newtitle": "[Re：从零开始的异世界生活—3期动画制作决定]",
-    "lastedit": 1742126785,
+    "lastedit": 1742150649,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12276,10 +12276,10 @@
     "update": false
   },
   "2247795": {
-    "totalreply": 214,
+    "totalreply": 215,
     "title": "[2025年3月网文推荐交流互助楼]",
     "newtitle": "[2025年3月网文推荐交流互助楼]",
-    "lastedit": 1742141423,
+    "lastedit": 1742150891,
     "category": "外野",
     "active": true,
     "update": false
@@ -16520,7 +16520,7 @@
     "newtitle": "[『夜曲 ／ 彻夜之歌』TV动画化 2022年7月]",
     "lastedit": 1741891330,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2249800": {
