@@ -1808,3 +1808,13 @@ Ver1.09.0.1 2025/03/14Steam®
 立身流虽然帧数长，但是这个石火硬直也太大了，不太习惯。道场确实好玩，到新的大地图了，不得不说前面的bo ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">立身流其实是把石火代替普攻，石火+残心这样复读
 
+
+*****
+
+####  1024676511  
+##### 3582#       发表于 2025-3-16 14:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">小更新后我的帧数居然上去了20针现在变的不是不能玩了
+
+1060开fsr性能模式60针 超性能模式的画面纯瞎眼看不了动态分辨率也是一坨
+

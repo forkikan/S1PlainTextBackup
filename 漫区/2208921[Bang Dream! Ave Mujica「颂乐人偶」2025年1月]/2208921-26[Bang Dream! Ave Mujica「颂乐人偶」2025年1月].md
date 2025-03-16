@@ -8216,3 +8216,108 @@ live3的小剧场台词还是有戏的。不过这是剧外设定了，和剧中
 真以为 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为初音初华这东西也相当离谱，人格分裂跟姐妹程度都差不多，加个人格分裂相对来说海更好说一些。
 
+
+*****
+
+####  adretyu67.  
+##### 37724#       发表于 2025-3-16 13:58
+
+我现在觉得真初华存在的原因是更好的抽初华的局外人感，所以初音的妹妹是必然存在的。
+
+*****
+
+####  阿尔巴尼亚  
+##### 37725#       发表于 2025-3-16 13:58
+
+ 本帖最后由 阿尔巴尼亚 于 2025-3-16 14:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67666280&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-16 13:51</a>
+
+下一集能不能有初华妈和真初华两个角色正式出场都不好说。</blockquote>
+不能出场不就是典型重拿轻放，这不就间接证明了家庭原因是初音脑补，毕竟11也说了三角家对她也挺好，初华在嘴人前就没有坏形象塑造，这点下集不出场就是实打实证明了初音脑补是一切问题根源，那还对初华穷追猛打自然是搞笑了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">同样如果下集就是对初华恶役塑造那初音外人脑补就没问题，那倒也是证明了，总之下集柿本不管怎么写总要写崩一个的
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 37726#       发表于 2025-3-16 13:58
+
+<img src="https://img.saraba1st.com/forum/202503/16/135854trl4wf8hwkhhwk84.jpg" referrerpolicy="no-referrer">
+
+<strong>Camera_XHS_17421047149771040g00831eig68h110605pgot8thoubb89h55a8.jpg</strong> (153.21 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-3-16 13:58 上传
+
+*****
+
+####  zhoujin8584  
+##### 37727#       发表于 2025-3-16 13:59
+
+也别怪还小一岁的初华了，人家亲爹死了。
+
+如果真的因为初音切割两个岛上的血亲初华真的默默打工去了，那实在是……
+
+*****
+
+####  大户爱  
+##### 37728#       发表于 2025-3-16 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67666294&amp;ptid=2208921" target="_blank">wyjbnb 发表于 2025-3-16 13:53</a>
+因为初音初华这东西也相当离谱，人格分裂跟姐妹程度都差不多，加个人格分裂相对来说海更好说一些。 ...</blockquote>
+多一个妹妹怎么会比人格分裂更离谱。现实有几个人格分裂的。
+
+妹妹可以完全背景板工具人，专心为塑造初音服务。
+人格分裂要完整写两个人格，以及分裂的动机，过程和弥合。你看大莫老师写成什么样了。
+
+无非就是有人觉得人格分裂，心理学好神秘，比多一个妹妹家长里短有逼格多了。
+
+初音现在也就扭曲了一点，但心路历程算是鸡这几个人里最完善的一个了。
+真成了睦那样的精神病人和古神，才是彻底毁角色。
+
+*****
+
+####  cxj649  
+##### 37729#       发表于 2025-3-16 13:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">现在大祥人设在母鸡卡相关人物反而是最没毒那个了
+
+*****
+
+####  非建政专用号  
+##### 37730#       发表于 2025-3-16 13:59
+
+已经到了平淡的烂环节了，能不能改一下，比如大象去初音家里的时候，大初老师那几秒是在收拾追到东京的初华尸体之类的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  半年  
+##### 37731#       发表于 2025-3-16 14:00
+
+<img src="https://img.saraba1st.com/forum/202503/16/140050wt9u9yzj4m24wjy9.jpg" referrerpolicy="no-referrer">
+
+<strong>GmAu0VOaUAAJ6Wi.jpg</strong> (79.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-16 14:00 上传
+
+[https://x.com/Criangle_K/status/1900570528865546242/photo/1](https://x.com/Criangle_K/status/1900570528865546242/photo/1)
+
+
+*****
+
+####  钦念以忱  
+##### 37732#       发表于 2025-3-16 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67666058&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-3-16 13:18</a>
+
+理论上来鸡动画追求每话都要有爆点。
+
+剧透很真很神奇但是总能避开一些爆点。
+
+比如11都知道是小姨双子自爆， ...</blockquote>
+剧透的人应该是外包翻译人员，这种纯画面的内容都不知道的，上集的睦墨双死融合全程无台词演出，剧透也没提过
+
