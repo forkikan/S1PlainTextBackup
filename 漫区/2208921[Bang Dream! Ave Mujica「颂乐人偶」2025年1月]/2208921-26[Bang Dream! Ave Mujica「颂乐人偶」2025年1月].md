@@ -10321,3 +10321,34 @@ sweet escape。
 
 第二，总之开LIVE了，但达成的过程狗屁不通。这拿BE来解释也太无语了。BE不是狗屁不通的借口，不要侮辱BE好吗
 
+
+*****
+
+####  qratosones1337  
+##### 37904#       发表于 2025-3-16 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67666614&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-3-16 14:55</a>
+拉吉八岛吧，她要是单纯出走远离家庭那包没问题的啊。问题是她把妹妹的一切都偷走了，为的只是和只见了一面 ...</blockquote>
+你这话说得好像真初华在岛上就提前中了选秀结果被初音顶替了似的，但实际上初音的偶像出道靠的是伟大的脸加自己打拼，撑死再加上丰川老登的大手，哪一条都跟真初华没有任何关系。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  zhoujin8584  
+##### 37905#       发表于 2025-3-16 20:30
+
+<blockquote>operatbig 发表于 2025-3-16 20:08
+并不是包饺子，不过也是因为柿本太菜导致刚开始大部分人都以为是包饺子就是了。。。 ...</blockquote>
+其实把海喵睦给包了……甭管漏不漏馅吧反正包了
+
+*****
+
+####  聪明墨菲特  
+##### 37906#       发表于 2025-3-16 20:32
+
+初妹后面可以有啊，sumimi缺人了直接顶上就好
+
+—— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
