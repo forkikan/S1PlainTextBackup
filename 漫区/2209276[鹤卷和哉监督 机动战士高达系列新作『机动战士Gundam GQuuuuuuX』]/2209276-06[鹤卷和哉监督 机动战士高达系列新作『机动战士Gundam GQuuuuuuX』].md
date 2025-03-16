@@ -15732,3 +15732,16 @@ X 上的 ほろっか：“ジークアクスっぽい？…なカミーユ（�
 
 搞不好会在结局出现，然后律师开始唱主题曲
 
+
+*****
+
+####  gamedreamer  
+##### 8664#       发表于 2025-3-16 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67667070&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-3-16 16:44</a>
+X 上的 ほろっか：“ジークアクスっぽい？…なカミーユ（とゼータ）https://t.co/sT2EcKn8S9” / X</blockquote>
+这个卡缪好看啊
+不知道鹤卷会不会在结尾把他和还有一个带妹妹的香格里拉穷小子拉出来溜一溜<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
