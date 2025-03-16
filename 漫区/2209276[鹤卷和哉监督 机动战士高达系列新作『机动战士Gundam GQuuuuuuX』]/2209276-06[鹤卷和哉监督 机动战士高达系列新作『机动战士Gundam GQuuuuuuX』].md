@@ -15675,3 +15675,47 @@ B站的有翻译好的了
 克里斯提娜原历史战后一直在地球吧，如果按gqux历史线，联邦又没有g3可以测，79年末甚至不会派她上side6 ...</blockquote>
 本质是鹤卷他们想不想塞0080彩蛋的事情，只要联邦势力介入了，拿熟面孔出来刷脸也是可能的，塞个来接应联邦魔女的理由就是了（
 
+
+*****
+
+####  岸浪白野  
+##### 8662#       发表于 2025-3-16 16:44
+
+ 本帖最后由 岸浪白野 于 2025-3-16 16:45 编辑 
+
+[X 上的 ほろっか：“ジークアクスっぽい？…なカミーユ（とゼータ）](https://x.com/horocca08/status/1900504346506547611)[https://t.co/sT2EcKn8S9](https://t.co/sT2EcKn8S9)” / X
+
+<img src="https://img.saraba1st.com/forum/202503/16/164406nrtm11rmav1qvn94.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.54 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-16 16:44 上传
+
+<img src="https://img.saraba1st.com/forum/202503/16/164430y9fg4jgf7nwi85lr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.49 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-16 16:44 上传
+
+[ふたい (@futai21) / X](https://x.com/futai21)
+
+<img src="https://img.saraba1st.com/forum/202503/16/164541nhadg1fr38ffbwis.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.53 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-16 16:45 上传
+
+<img src="https://img.saraba1st.com/forum/202503/16/164552d93mmgu0nxmmgepe.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (704.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-16 16:45 上传
+
