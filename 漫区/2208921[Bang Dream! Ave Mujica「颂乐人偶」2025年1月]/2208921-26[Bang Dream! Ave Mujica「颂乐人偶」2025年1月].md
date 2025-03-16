@@ -9170,3 +9170,24 @@ kkr的瞳色是黄金色，ykn和乐奈的右眼的瞳色是暗金色，ars和to
 但真的姐妹重逢，妹妹要首先为说 ...</blockquote>
 他们俩和解不和解，和我观众有什么关系。小偷偷了富豪钱包，富豪不差钱觉得丢了千八的不影响，和小偷和解了，耽误我指责小偷偷盗行为吗？她的行为缺乏正当性，道德有缺这点不会因为包不包饺子改变的。
 
+
+*****
+
+####  钦念以忱  
+##### 37801#       发表于 2025-3-16 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67666697&amp;ptid=2208921" target="_blank">UNISONIA 发表于 2025-3-16 15:15</a>
+
+之前柿本的访谈出来的时候，大家都误解了当时提的孟乔森综合症是在说睦（墨）。11话看起来基本是实锤在说初 ...</blockquote>
+孟乔森综合症说是希望有人能照顾自己，这和睦能对上，所以很多人才觉得在说睦，但和初音对不上啊
+
+*****
+
+####  aptx8285144  
+##### 37802#       发表于 2025-3-16 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67666886&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-3-16 16:03</a>
+
+单说你这话本来没问题，但是前提是初华全剧都没哭过。可惜不是这样的，这就显得十余载视如己出的养育关心 ...</blockquote>
+是的，大祥这太阳光芒太非因琐思了，难怪被叔叔家有人怀疑是不是半岛太阳，甚至有人从瑞士，迈巴赫里面猜测<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
