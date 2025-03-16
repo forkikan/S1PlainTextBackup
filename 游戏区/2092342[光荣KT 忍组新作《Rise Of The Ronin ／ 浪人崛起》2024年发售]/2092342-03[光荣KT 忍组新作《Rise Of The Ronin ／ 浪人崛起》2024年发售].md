@@ -1861,3 +1861,14 @@ Ver1.09.0.1 2025/03/14Steam®
 
 横滨的内容量觉得刚好，这25小时到江户感觉遭不住了，地图好大啊
 
+
+*****
+
+####  手铐君  
+##### 3588#       发表于 2025-3-16 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67668117&amp;ptid=2092342" target="_blank">慕容断月 发表于 2025-3-16 19:53</a>
+
+横滨的内容量觉得刚好，这25小时到江户感觉遭不住了，地图好大啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">一周目如果想全清空要60小时
+

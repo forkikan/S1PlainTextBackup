@@ -10215,3 +10215,31 @@ sweet escape。
 
 这片子对我这种对剧中音乐性追求为0的观众来说，唯一的价值就是小莫。小莫这种雌小鬼小屁孩性格表现出来的可爱在这部深井冰逻辑的片里才他妈是清流。
 
+
+*****
+
+####  一心而用  
+##### 37895#       发表于 2025-3-16 20:07
+
+<img src="https://p.sda1.dev/22/333714763db31e2d2da8aea3c7e0dc86/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  operatbig  
+##### 37896#       发表于 2025-3-16 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67668179&amp;ptid=2208921" target="_blank">江戸前ルナ 发表于 2025-3-16 20:03</a>
+
+上个星期出外没看，这周连看两集看完直接喷了。之前虽说睦头的人格分裂是编剧的大手，但整体剧情和逻辑还是 ...</blockquote>
+并不是包饺子，不过也是因为柿本太菜导致刚开始大部分人都以为是包饺子就是了。。。
+
+*****
+
+####  江戸前ルナ  
+##### 37897#       发表于 2025-3-16 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67668200&amp;ptid=2208921" target="_blank">operatbig 发表于 2025-3-16 20:08</a>
+
+并不是包饺子。</blockquote>
+随便了。这个LIVE能开起来根本就是狗屁不通。
+
