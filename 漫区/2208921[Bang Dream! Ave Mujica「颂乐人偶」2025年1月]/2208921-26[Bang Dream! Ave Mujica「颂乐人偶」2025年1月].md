@@ -8925,3 +8925,100 @@ kkr的瞳色是黄金色，ykn和乐奈的右眼的瞳色是暗金色，ars和to
 讓她跟漁夫爹一起死在船上午那只要包圓一點就夠了</blockquote>
 不如改成，渔夫哥死后，初妈想要离开伤心地，带着初华去海外生活了，初音为了她的东京梦，不愿意同去。
 
+
+*****
+
+####  油画布  
+##### 37780#       发表于 2025-3-16 15:29
+
+ 本帖最后由 油画布 于 2025-3-16 15:30 编辑 
+<blockquote>厄神之息 发表于 2025-3-16 14:55
+拉吉八岛吧，她要是单纯出走远离家庭那包没问题的啊。问题是她把妹妹的一切都偷走了，为的只是和只见了一面 ...</blockquote>
+
+在亲人葬礼上不流眼泪不意味不悲伤。不流眼泪就是白眼狼，无论在虚构故事还是现实中都没有这条规矩。
+
+你现在这个投射自我的解读也只是放大了第十一集部分台词，忽略了初祥观星，被“你如同月亮一般”所打动 这样真实的情感包裹在其中，而且论迹不论心初音的确实为祥子做了很多事，哪怕她的感情不纯粹，也不能因此就否认其中包含的真心。
+
+况且第十一集全部是初音主观的对自我剖析，既然你把初音对自我虚假的指认当成确凿的罪证，那也不应忽略那些对祥子的真情流露的部分。
+
+在十一集初华展现的内心本来是混乱的真假混杂的主观的，并没有如你所说的言言之凿凿，具体如何定性初音这个角色还要看第十二集
+
+*****
+
+####  cxj649  
+##### 37781#       发表于 2025-3-16 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67666733&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-3-16 15:24</a>
+
+这是初音的病态，也没偷初华的一切啊。
+
+初音确实是个神人，确实不认同三角家，一心想着丰川家。 但你要 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">偷情……本来这词很正确
+
+但我一想到昨晚某个漏油说抛妻弃子，把初妈当成是祥爷的妻
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就觉得生草
+
+*****
+
+####  猫执事  
+##### 37782#       发表于 2025-3-16 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67666692&amp;ptid=2208921" target="_blank">Victorino 发表于 2025-3-16 15:14</a>
+
+其实初音初华相像论，换个剧情就能圆起来了：白天初华去和祥子玩，吃晚饭的时候发烧，晚上初音代替初华丢石 ...</blockquote>
+关了灯都一样是吧
+
+*****
+
+####  大户爱  
+##### 37783#       发表于 2025-3-16 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67666732&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-3-16 15:24</a>
+错了呀，真有这妹妹她道德上有大瑕疵。没这妹妹她就只是单纯的精神病而已。承认自己就是喜欢道德低下的坏 ...</blockquote>
+真的道德低下嘛，你看我前面楼里都在说妹妹说的是实话，才破了初音防。
+
+但真的姐妹重逢，妹妹要首先为说过的话道歉的。初音要道歉的是偷名字，但偷名字真的对初华影响不大，初华按这个剧情设计不太可能现在出道和祥子联系的。
+
+
+*****
+
+####  UNISONIA  
+##### 37784#       发表于 2025-3-16 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67666708&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-3-16 15:18</a>
+
+所以什么时候来个代理性孟乔森综合症</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那就是天久鹰央系列了
+
+*****
+
+####  天空塔书记官  
+##### 37785#       发表于 2025-3-16 15:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  plok201  
+##### 37786#       发表于 2025-3-16 15:36
+
+初华初音确实比睦莫更适合搞个双重人格就是了
+
+毕竟有太阳和月亮的意象，也可以用来解释为啥异父同母一个样和初华妈效率高的不可思议，甚至为啥那么早就告诉初音她是丰川家的，还有这初音跑路了，妈妈和妹妹真的就不管初音了
+
+最重要是能包饺子，不用管真初华到底是啥情况，你现在这真初华是死是活都对卖初祥CP有巨大伤害是真的整蛊
+
+活着吧，三人关系处理起来一团糟，死了吧，那初音就从一部分人觉得白眼狼变成大部分人觉得是白眼狼一部分觉得她是纯畜
+
+*****
+
+####  aptx8285144  
+##### 37787#       发表于 2025-3-16 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67666732&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-3-16 15:24</a>
+
+错了呀，真有这妹妹她道德上有大瑕疵。没这妹妹她就只是单纯的精神病而已。承认自己就是喜欢道德低下的坏 ...</blockquote>
+但是在母鸡卡里面谈论“道德”的意义也就比0多一点的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
