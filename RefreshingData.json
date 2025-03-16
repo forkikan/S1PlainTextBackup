@@ -8625,10 +8625,10 @@
     "totalreply": 153069,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1742133973,
+    "lastedit": 1742134320,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "2185160": {
     "totalreply": 852,
@@ -13530,10 +13530,10 @@
     "totalreply": 192,
     "title": "[年度销冠谈36个男友，一月后36人均负债百万房贷。]",
     "newtitle": "[年度销冠谈36个男友，一月后36人均负债百万房贷。]",
-    "lastedit": 1742133258,
+    "lastedit": 1742134020,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "1786272": {
     "totalreply": 44,
@@ -17283,10 +17283,10 @@
     "totalreply": 482,
     "title": "[【ZT】央视再次盖棺定论胖猫事件：别把同情心喂了流量寄生虫]",
     "newtitle": "[【ZT】央视再次盖棺定论胖猫事件：别把同情心喂了流量寄生虫]",
-    "lastedit": 1742133615,
+    "lastedit": 1742134140,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2249974": {
     "totalreply": 50,
@@ -17571,10 +17571,10 @@
     "totalreply": 52,
     "title": "[余承东／鸿蒙智行 御用自媒体被央视认定为收钱黑公关]",
     "newtitle": "[余承东／鸿蒙智行 御用自媒体被央视认定为收钱黑公关]",
-    "lastedit": 1742133616,
+    "lastedit": 1742134200,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2249191": {
     "totalreply": 45,
@@ -17611,5 +17611,14 @@
     "category": "漫区",
     "active": true,
     "update": false
+  },
+  "2250062": {
+    "totalreply": 0,
+    "title": "[零下36℃可飞的无人机，究竟用来干什么]",
+    "newtitle": "[零下36℃可飞的无人机，究竟用来干什么]",
+    "lastedit": 1742133900,
+    "category": "外野",
+    "active": true,
+    "update": true
   }
 }
