@@ -4236,3 +4236,13 @@ https://bgm.tv/subject/topic/33083
 
 —— 来自 Xiaomi 22041216C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  wasdfghjkl  
+##### 375#       发表于 2025-3-16 10:30
+
+借楼问一下 这游戏应该是需要一直看着攻略玩吧 本人玩轨迹系列都是对照着攻略玩的 想一周目就体验所有的内容
+
+----发送自 [HUAWEI ALT-AL00,Android 12](http://stage1.5j4m.com/?1.44)
+
