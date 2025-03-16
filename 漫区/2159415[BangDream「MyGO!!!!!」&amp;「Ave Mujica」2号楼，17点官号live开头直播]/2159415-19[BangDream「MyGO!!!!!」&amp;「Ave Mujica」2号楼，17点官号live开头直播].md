@@ -332,3 +332,22 @@ mygo进游戏后第二个大混活，ring和circle合办的音乐节，感觉没
 
 果然什么都没讲
 
+
+*****
+
+####  CyDiablo  
+##### 27060#       发表于 2025-3-16 20:50
+
+平行主唱第四弹
+<img src="https://p.sda1.dev/22/d45cdeef445ec924a9e657d3c76fbb6a/1742124916241.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/be7c3981d014492b6afd7a583840c5a2/1742124919632.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/c424240a86e17391ad7df3782fd121c8/1742124922556.jpg" referrerpolicy="no-referrer">
+
+cd情报
+<img src="https://p.sda1.dev/22/cca0e8ad2b4e5e785babb75b4ab26bee/1742124899201.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/fcd48550a4dcdba850a59d1fc715c479/1742124902769.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/def12d9006b8fa5652ef1fe35abff3c2/1742124905585.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/749d6ca4b2d91fd476108eb216ae91e8/1742125376350.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/5127ad28e3ff52a3c15c3df7e5dcf54b/1742125380582.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/ab545622d6735b00592b407dd212292d/1742125384446.png" referrerpolicy="no-referrer">
+
