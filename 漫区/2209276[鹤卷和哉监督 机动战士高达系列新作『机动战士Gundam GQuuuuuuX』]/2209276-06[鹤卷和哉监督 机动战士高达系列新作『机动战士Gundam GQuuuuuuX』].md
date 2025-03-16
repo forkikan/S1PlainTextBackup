@@ -15719,3 +15719,16 @@ B站的有翻译好的了
 
 2025-3-16 16:45 上传
 
+
+*****
+
+####  psycho_Gadfly  
+##### 8663#       发表于 2025-3-16 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67667070&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-3-16 16:44</a>
+
+X 上的 ほろっか：“ジークアクスっぽい？…なカミーユ（とゼータ）https://t.co/sT2EcKn8S9” / X</blockquote>
+这下真成女人了<img src="https://static.saraba1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+
+搞不好会在结局出现，然后律师开始唱主题曲
+

@@ -1826,3 +1826,14 @@ Ver1.09.0.1 2025/03/14Steam®
 
 更新后玩了下，序章挺流畅了，结果一到横滨又卡回原来的样子
 
+
+*****
+
+####  Sopp  
+##### 3584#       发表于 2025-3-16 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67662218&amp;ptid=2092342" target="_blank">东方定助 发表于 2025-3-15 20:08</a>
+
+手甲类武器绝对是准备放到DLC里最后砍了</blockquote>
+还有剑盾应该也是
+
