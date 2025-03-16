@@ -8103,3 +8103,56 @@ live3的小剧场台词还是有戏的。不过这是剧外设定了，和剧中
 
 摘下了我的面具</blockquote>
 
+
+*****
+
+####  半年  
+##### 37716#       发表于 2025-3-16 13:37
+
+<img src="https://img.saraba1st.com/forum/202503/16/133647rd168nu66lx66lyu.jpg" referrerpolicy="no-referrer">
+
+<strong>GmEhqt_bcAQ5fmi.jpg</strong> (839.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-16 13:36 上传
+
+[https://x.com/jTrevvwLOFqMptH/status/1900837548618023053/photo/1](https://x.com/jTrevvwLOFqMptH/status/1900837548618023053/photo/1)
+
+<img src="https://img.saraba1st.com/forum/202503/16/133703pubvcvh2u4odgosv.jpg" referrerpolicy="no-referrer">
+
+<strong>GmEtc9DbcAI2zaR.jpg</strong> (198.59 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-16 13:37 上传
+
+[https://x.com/jennyiq2008/status/1900852269752742212](https://x.com/jennyiq2008/status/1900852269752742212)
+
+*****
+
+####  是谁的书画  
+##### 37717#       发表于 2025-3-16 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67666113&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-16 13:27</a>
+
+初音目前有两大性格缺陷
+
+“你这样不负责任”
+
+“初华净会撒谎”</blockquote>
+纤绳既是牵住狗也是牵住人。或许这对于祥子也是最好的，依赖索取关系性本身就是愿打愿挨，痛并快乐的事，享受折磨和束缚。
+
+祥子未来会是幸福的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  123Su  
+##### 37718#       发表于 2025-3-16 13:39
+
+<blockquote>大户爱 发表于 2025-3-16 13:26
+你要想想因果，究竟是三角家把初音当外人，才让初华有这样想法。还是初音把自己当外人，才让妹妹说出来了 ...</blockquote>
+如果她的独白都是真的，我觉得实际上是能看出区别对待的，比如会分零食和能不能跟祥子一起玩之类的，就是有点像因为你是残疾人，所以给你特殊的照顾，但是这种特殊的照顾又加重了心里这种和正常人不一样的想法。本身被告知是私生女就会让她思考自己是不是外人这个问题，再加上特殊的照顾强化了她这种异质感，到了后续妹妹的指责完全点破了这点，让她更相信自己就是个外人了。
+
+而妹妹也因为这种对初音的特殊照顾不满，比如为什么又给她分更多零食，所以她可能是真的把初音当家人，但是还是对她的异质感有察觉，带着一种明明家人都偏向你的感情，最后为了刺痛对方使用了这个手段。但是无论怎么说，这句话都不是轻飘飘的嘴了两句。
+
