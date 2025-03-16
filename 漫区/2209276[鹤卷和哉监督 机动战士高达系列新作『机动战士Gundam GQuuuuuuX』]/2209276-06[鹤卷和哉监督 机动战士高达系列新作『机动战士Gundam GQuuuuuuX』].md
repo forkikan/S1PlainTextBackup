@@ -15950,3 +15950,13 @@ X 上的 ほろっか：“ジークアクスっぽい？…なカミーユ（�
 
 有点感动了 这就是庵野的报恩啊<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王留美  
+##### 8673#       发表于 2025-3-16 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67668641&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-3-16 21:37</a>
+ 以下是关于我在剧场先行版《GQuuuuuuX -Beginning-》中参与剧本创作等相关工作的协助时间表：  - 企画起源 ...</blockquote>
+我就说怎么这么巧刚有staff建议把79if独立出来庵野就推门进来“交给我吧”，原来那个staff就是他啊
+
