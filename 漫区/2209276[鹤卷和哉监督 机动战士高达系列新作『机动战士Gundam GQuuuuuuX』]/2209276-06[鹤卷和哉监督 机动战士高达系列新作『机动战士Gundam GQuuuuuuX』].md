@@ -15654,3 +15654,14 @@ B站的有翻译好的了
 
 看了b站上的完整新特典，感觉0079部分的剧本比实际拍出来的部分要精彩，好看！
 
+
+*****
+
+####  太极八爪鱼  
+##### 8660#       发表于 2025-3-16 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67664709&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-3-15 16:55</a>
+
+还是有可能的，这次特地选在side6，而且鹤卷自己最喜欢的也是0080，和前夫哥一样出来露个面当彩蛋的可能 ...</blockquote>
+克里斯提娜原历史战后一直在地球吧，如果按gqux历史线，联邦又没有g3可以测，79年末甚至不会派她上side6
+

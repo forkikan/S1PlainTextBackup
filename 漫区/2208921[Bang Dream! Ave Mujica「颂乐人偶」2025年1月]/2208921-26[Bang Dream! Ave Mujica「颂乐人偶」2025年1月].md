@@ -8321,3 +8321,86 @@ live3的小剧场台词还是有戏的。不过这是剧外设定了，和剧中
 比如11都知道是小姨双子自爆， ...</blockquote>
 剧透的人应该是外包翻译人员，这种纯画面的内容都不知道的，上集的睦墨双死融合全程无台词演出，剧透也没提过
 
+
+*****
+
+####  adretyu67.  
+##### 37733#       发表于 2025-3-16 14:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67666322&amp;ptid=2208921" target="_blank">阿尔巴尼亚 发表于 2025-3-16 13:58</a>
+
+不能出场不就是典型重拿轻放，这不就间接证明了家庭原因是初音脑补，毕竟11也说了三角家对她也挺好，初华 ...</blockquote>
+按照目前方向来看，还是接受初音就是心理扭曲比较现实<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+这也是鸡动画最大的问题，鸡团坏，世界不坏，不是世界逼得鸡团坏，那只就能是鸡团人的问题了。
+
+*****
+
+####  大户爱  
+##### 37734#       发表于 2025-3-16 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67666365&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-16 14:05</a>
+剧透的人应该是外包翻译人员，这种纯画面的内容都不知道的，上集的睦墨双死融合全程无台词演出，剧透也没 ...</blockquote>
+不好说，比如我看的剧透说大莫会在最后鸡团live里出现在镜子里。
+
+要剧透把所有内容说出来也不现实。
+
+*****
+
+####  南宮凝香  
+##### 37735#       发表于 2025-3-16 14:09
+
+實際上就是柿獨兩人是沒正常人際關係的概念的
+
+導致角色關係只能發出異味
+
+像初音， 你說都是她自以為是悲劇公主嗎？
+
+那我也沒看到她媽她妹有嘗試去聯絡獨走東京的初音
+
+說她是外人也是說得過去的
+
+初音這事又不像立希對姐的劣等感那樣簡單
+
+制作組打算不給初媽妹戲份，
+
+單靠20分鐘獨白+十二話半集就說明白+包餃子就是幻想
+
+*****
+
+####  adretyu67.  
+##### 37736#       发表于 2025-3-16 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67666381&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-3-16 14:07</a>
+
+不好说，比如我看的剧透说大莫会在最后鸡团live里出现在镜子里。
+
+要剧透把所有内容说出来也不现实。 ...</blockquote>
+问题是鸡团live上哪找镜子<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">总不能又一转脑内剧场镜子对面是莫吧
+
+*****
+
+####  大户爱  
+##### 37737#       发表于 2025-3-16 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67666394&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-16 14:09</a>
+问题是鸡团live上哪找镜子总不能又一转脑内剧场镜子对面是莫吧</blockquote>
+啊，鸡团风格这live什么道具摆上去不都挺正常的，更不用说广义的镜子了。
+
+
+*****
+
+####  123Su  
+##### 37738#       发表于 2025-3-16 14:13
+
+其实初音和初华部分我觉得都没啥，毕竟在她的自诉都不知道是真是假，而且可能是一个立场问题。但是我感觉这个剧本最鬼扯也是最不能辩驳的部分在初音她妈竟然在老登连联系都不联系这个亲女儿的情况下告诉她，她是个私生女。
+
+就她戴上面具之后说的可能都是鬼话，但是唯独这个是没法反驳的逻辑基础，感觉一个亲爹一个亲妈，丝毫没有为女儿的心理考虑过。而创作这种大人的过错之后，制作组又想把一切都归咎于初音自己的内心滑坡，用这样连最基础逻辑都不正常的剧情去塑造角色，场外还要车角色，就感觉真荒谬啊。
+
+*****
+
+####  cxj649  
+##### 37739#       发表于 2025-3-16 14:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">现在搞得半天，C团除了睦头人外都是正常人也没毒了
+
