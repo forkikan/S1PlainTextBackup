@@ -7825,3 +7825,36 @@ kkr的瞳色是黄金色，ykn和乐奈的右眼的瞳色是暗金色，ars和to
 
 啊啊啊，我推没写好，一点事**柿本广大抢了我推的戏。还有什么大莫老师是柿本广大的自我带入，什么百合ml，一股二游饭圈味溢出来了。
 
+
+*****
+
+####  aptx8285144  
+##### 37694#       发表于 2025-3-16 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67665853&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-3-16 12:49</a>
+
+其实初音跑了就跑了，作为未成年人离家出走能做到经济独立也不能太算白眼狼吧。
+
+只不过和家里关系确实不好 ...</blockquote>
+<strong>所以我说的是“抛开”而不是“抛弃”</strong>，未成年人本来也谈不上“抛弃”，可是有漏油就急了，觉得我在指责对方是白眼狼<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lyzers  
+##### 37695#       发表于 2025-3-16 12:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67665865&amp;ptid=2208921" target="_blank">123Su 发表于 2025-3-16 12:51</a>
+
+越说越乐了，不跑接着在家里被嘲讽呗，谁让你是私生女呢，因果倒置也是挺好笑，把13岁少女因为家庭压抑离 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你要骂不是人那可就骂对了，反正这又不是我的观点，而是你楼一贯做好了份内事情别的事情就能屁都不管高高挂起的论调
+
+*****
+
+####  aptx8285144  
+##### 37696#       发表于 2025-3-16 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67665879&amp;ptid=2208921" target="_blank">123Su 发表于 2025-3-16 12:55</a>
+
+看的出你是柿本soulmete了，顺着就去车角色了，不知道是谁被脑控了</blockquote>
+你才是柿本和独角兽的soulmete，这时候还抱着什么角色是无辜的思想吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
