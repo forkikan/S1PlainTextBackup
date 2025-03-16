@@ -2265,7 +2265,7 @@
     "lastedit": 1742153940,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1804478": {
     "totalreply": 1242,
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 153118,
+    "totalreply": 153119,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1742159049,
+    "lastedit": 1742166494,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -10647,10 +10647,10 @@
     "update": false
   },
   "2210855": {
-    "totalreply": 8610,
+    "totalreply": 8617,
     "title": "[中二电波台真爱楼 2.0]",
     "newtitle": "[中二电波台真爱楼 2.0]",
-    "lastedit": 1742158089,
+    "lastedit": 1742166494,
     "category": "漫区",
     "active": true,
     "update": false
@@ -15989,7 +15989,7 @@
     "newtitle": "[被公司的00后秀了一把电脑操作，打开一个网站总共需要多少步]",
     "lastedit": 1741906816,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2249569": {
@@ -17469,10 +17469,10 @@
     "update": false
   },
   "2250019": {
-    "totalreply": 57,
+    "totalreply": 58,
     "title": "[还是非常想谈恋爱娶老婆的]",
     "newtitle": "[还是非常想谈恋爱娶老婆的]",
-    "lastedit": 1742141053,
+    "lastedit": 1742166494,
     "category": "外野",
     "active": true,
     "update": false
@@ -17514,10 +17514,10 @@
     "update": false
   },
   "2250052": {
-    "totalreply": 64,
+    "totalreply": 65,
     "title": "[终于知道无法翻身是啥状态了]",
     "newtitle": "[终于知道无法翻身是啥状态了]",
-    "lastedit": 1742165771,
+    "lastedit": 1742166494,
     "category": "外野",
     "active": true,
     "update": false
