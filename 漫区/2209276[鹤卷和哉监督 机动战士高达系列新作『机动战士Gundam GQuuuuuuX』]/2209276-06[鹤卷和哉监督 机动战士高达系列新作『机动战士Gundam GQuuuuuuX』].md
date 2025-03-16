@@ -15998,3 +15998,14 @@ X 上的 ほろっか：“ジークアクスっぽい？…なカミーユ（�
 
 [https://youtu.be/JiqAkEuw-CY](https://youtu.be/JiqAkEuw-CY)
 
+
+*****
+
+####  Gaybird  
+##### 8677#       发表于 2025-3-17 02:52
+
+[https://b23.tv/IMASDyL](https://b23.tv/IMASDyL)
+[https://youtu.be/Wf38F2SrESs?si=P5-83aMhHWchVIds](https://youtu.be/Wf38F2SrESs?si=P5-83aMhHWchVIds)
+考据哥的假药终于来到了一个比较能看的阶段
+我还是很支持沙纶的玫瑰跟拉拉有关这个假说的，其他的再等等正片吧
+
