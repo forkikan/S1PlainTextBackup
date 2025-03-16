@@ -15608,3 +15608,18 @@ B站的有翻译好的了
 </blockquote>
 还是有可能的，这次特地选在side6，而且鹤卷自己最喜欢的也是0080，和前夫哥一样出来露个面当彩蛋的可能性还是有的，林原惠美更是staff的老熟人，喊回来配克里斯汀娜合情合理
 
+
+*****
+
+####  gundammarkⅡ  
+##### 8656#       发表于 2025-3-16 09:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67664319&amp;ptid=2209276" target="_blank">awefhio 发表于 2025-3-16 01:52</a>
+刚看完剧场版，开香槟了，期待值拉满
+
+反倒是前半有点流水账，如果不是if线本身就足够令人好奇真有点无聊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">个人感觉不会，毕竟是0079if的延续，目前还没有看到初代+初代MSV（仅小部分高达相关设定）以外的元素
+不过如果大团圆结局，说不定像BF那样的彩蛋
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
