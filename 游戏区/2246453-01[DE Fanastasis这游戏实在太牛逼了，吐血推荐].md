@@ -4269,3 +4269,15 @@ https://bgm.tv/subject/topic/33083
 我觉得这游戏乐趣不会被文字攻略影响，后篇我也是看了攻略玩的，那些碎片太难找，大幅度破坏游戏乐趣的游 ...</blockquote>
 感谢 顺带求一份好的文字攻略 爬楼爬被剧透
 
+
+*****
+
+####  blueelf  
+##### 378#         楼主| 发表于 2025-3-16 19:52
+
+<blockquote>wasdfghjkl 发表于 2025-3-16 18:39
+感谢 顺带求一份好的文字攻略 爬楼爬被剧透</blockquote>
+https://bgm.tv/subject/topic/33083
+
+后篇的，里面也注明了wiki地址
+

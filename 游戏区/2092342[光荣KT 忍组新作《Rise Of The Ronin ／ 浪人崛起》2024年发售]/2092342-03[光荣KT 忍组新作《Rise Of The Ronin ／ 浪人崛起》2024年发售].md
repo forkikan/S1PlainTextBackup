@@ -1853,3 +1853,11 @@ Ver1.09.0.1 2025/03/14Steam®
 
 石火成功率很低的我觉得还是意外的挺好玩的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">直到在笃姬那里被青鬼暴打
 
+
+*****
+
+####  慕容断月  
+##### 3587#       发表于 2025-3-16 19:53
+
+横滨的内容量觉得刚好，这25小时到江户感觉遭不住了，地图好大啊
+
