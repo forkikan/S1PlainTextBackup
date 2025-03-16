@@ -9429,3 +9429,37 @@ https://x.com/Criangle_K/status/1900570528865546242/photo/1</blockquote>
 <img src="https://p.sda1.dev/22/90f0dc5f24e58e4ffac858cd70d1286d/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/22/cce31bc51bcb0b422ec1b37450c4995d/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhoujin8584  
+##### 37824#       发表于 2025-3-16 16:59
+
+<blockquote>大丈夫萌大乃 发表于 2025-3-16 16:33
+其实我到现在也没明白莫子那句话怎么蹦出来的,总不能真会读心吧,她还是个6岁孩子啊 ...</blockquote>
+她是社交睦修成的人格，就是个小人精，出租车上早看明白了，丫在sumimi啥时候跟真奈相处轻松了，祥子苦恼作曲偏只在乎表面的累来在莫面前秀同居优越。酒店大战属于喵梦跟她走心了、错信了人机海铃第一次，以及初华的距离比社交更远，满级社交功力在这个神人团啥也不是，破防了找狗团虐菜去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厄神之息  
+##### 37825#       发表于 2025-3-16 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67667084&amp;ptid=2208921" target="_blank">123Su 发表于 2025-3-16 16:46</a>
+
+你是眼睛瞎吗？我哪一句写她就是纯洁啥都没做错了，她就是全都为了自己啊，但是这种为了自己和道德有缺有 ...</blockquote><blockquote>仅仅是因为她在葬礼上没有哭，这样的家庭环境是还不错啊？果然看番看久了就没有人类了，养孩子给口饭吃活着就行了呗，要啥自行车，该感恩的是你一个私生女啊!</blockquote><blockquote>在你眼里大人的过错都不是过错，私生女怎么了，嘴两句怎么了，说你是外人又怎么了，反正给你饭了你就必须报恩，一个反驳都不能有，敢跑就是大逆不道。</blockquote><blockquote>看的出你是柿本soulmate了，顺着就去车角色了，不知道是谁被脑控了</blockquote>
+你要问我那只眼看见你胡说八道还倒打一耙，那就是我a眼，b眼和c眼都看到了。是你说人家家庭环境是给口饭就行的吧？现在改口说不亏欠很复杂了?
+
+你们不准车角色！都是柿本的问题！你搞笑？照这么说所有动漫角色都不能说，要骂就只能骂编剧，都是编剧遥控的！角色没有错！
+
+实际上，我连一句大人的事都没说，你就上来说我说的大人一点问题没有，这结论怎么得出来的呢？我说她的行为完全对不起养父就“不知道还以为你是她养父呢！她也不欠你啊”应激成这逼样说都不让说了，姐妹，你别是真的红书的吧，可别到红书上挂我啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  MuramasaSP  
+##### 37826#       发表于 2025-3-16 17:04
+
+真初华要么已经去世，要么不出场。如果出场，她对初音用自己的名字出道的意见不会是负面的。
+
+因为初音冒用初华名字这个设定，其目的是用来写夹杂着谎言的初祥关系。编剧不会让真初华有意见，她就是一个背景板。说不定下一话包饺子还有“啊姐姐替我实现了梦想，看到你在sumimi的表现我很高兴”这类的台词。
+
