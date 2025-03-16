@@ -9416,3 +9416,16 @@ wsd：就剩一两集了，不要影响我们包寿司，初华，你和解吧
 她妈神人她老子管不住裤裆的赘婿老逼登，和她也是 ...</blockquote>
 你是眼睛瞎吗？我哪一句写她就是纯洁啥都没做错了，她就是全都为了自己啊，但是这种为了自己和道德有缺有什么关系，不是你先高高在上的开喷的？养父对她好和同时也对她客气，她觉得把她当外人了有这么难理解？她这个事是一个综合的复杂结果，你说的大人好像一点问题都没有，她要欠也只欠她妹一个名字，出道是老登帮+自己努力的。但是你先高高在上的开喷，不知道你还以为你是那个死了的养父呢？她也不欠你啊，现在还加上地图炮了，可是显出你是个登了
 
+
+*****
+
+####  一心而用  
+##### 37823#       发表于 2025-3-16 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67666342&amp;ptid=2208921" target="_blank">半年 发表于 2025-3-16 14:00</a>
+https://x.com/Criangle_K/status/1900570528865546242/photo/1</blockquote>
+<img src="https://p.sda1.dev/22/0b2e851289d1210d0048aab5e722b44a/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/c59201a179c7848b72652c03e5c72f45/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/90f0dc5f24e58e4ffac858cd70d1286d/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/cce31bc51bcb0b422ec1b37450c4995d/image.jpg" referrerpolicy="no-referrer">
+
