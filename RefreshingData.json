@@ -2265,7 +2265,7 @@
     "lastedit": 1742146560,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1804478": {
     "totalreply": 1242,
@@ -17235,10 +17235,10 @@
     "update": false
   },
   "2249994": {
-    "totalreply": 504,
+    "totalreply": 505,
     "title": "[【ZT】央视再次盖棺定论胖猫事件：别把同情心喂了流量寄生虫]",
     "newtitle": "[【ZT】央视再次盖棺定论胖猫事件：别把同情心喂了流量寄生虫]",
-    "lastedit": 1742152587,
+    "lastedit": 1742153052,
     "category": "外野",
     "active": true,
     "update": false
@@ -17599,6 +17599,15 @@
     "title": "[21世纪是生物的世纪！3D打印丁丁，恢复三种能力！]",
     "newtitle": "[21世纪是生物的世纪！3D打印丁丁，恢复三种能力！]",
     "lastedit": 1742145369,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2195840": {
+    "totalreply": 95,
+    "title": "[AI角色扮演，酒馆分享]",
+    "newtitle": "[AI角色扮演，酒馆分享]",
+    "lastedit": 1742153054,
     "category": "外野",
     "active": true,
     "update": false
