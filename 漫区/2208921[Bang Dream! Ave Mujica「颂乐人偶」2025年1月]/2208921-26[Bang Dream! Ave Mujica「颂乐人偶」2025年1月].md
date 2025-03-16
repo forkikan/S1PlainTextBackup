@@ -10449,3 +10449,35 @@ sweet escape。
 
 都11集了，凡是涉及“现实”造成负面影响的地方只会发生在祥子身上，这点大家应该都很明白的了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 37916#       发表于 2025-3-16 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67668467&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-3-16 21:05</a>
+
+都11集了，凡是涉及“现实”造成负面影响的地方只会发生在祥子身上，这点大家应该都很明白的了吧 ...</blockquote>
+睦那个多重人格，天生的就不算“现实”了是吧，是魔幻主义<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhoujin8584  
+##### 37917#       发表于 2025-3-16 21:11
+
+<blockquote>油画布 发表于 2025-3-16 20:48
+刚刚去重拉了下片 发现动画里明明白白写着忍着眼泪安慰初华…这不是哭了吗 晕 记忆被夺舍了 白吵了 ...</blockquote>
+戴上面具“我要开始说谎人生了”
+
+初音要是能骗过自己何必安排一个真面初拆假面初的台<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 37918#       发表于 2025-3-16 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67668269&amp;ptid=2208921" target="_blank">江戸前ルナ 发表于 2025-3-16 20:25</a>
+
+第一，真正跟小莫/睦有深入接触的是SOYO和海玲。一直留意着小莫/睦的是喵梦。祥子知道的也就以前的睦头人 ...</blockquote>
+达成的过程就是其他四个人想组 祥子弥赛亚情结发作 就为了其他四个人组了。
+
