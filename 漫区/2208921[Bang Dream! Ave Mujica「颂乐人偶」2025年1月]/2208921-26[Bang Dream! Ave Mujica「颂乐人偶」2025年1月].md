@@ -10641,3 +10641,65 @@ C团和解肯定要写的，否则永远留个疙瘩在那吗？哪怕为了小�
 不，这是只要你一天顶着初华的名字初华同款的脸当偶像，真初华就一天没法出道当偶像的问题。这也就是祥子 ...</blockquote>
 你这话说得更搞笑了，日本艺能界用艺名出道的到处都是，真初华甚至可以干脆就叫三角初音出道
 
+
+*****
+
+####  ntrntr1  
+##### 37933#       发表于 2025-3-16 21:50
+
+ 本帖最后由 ntrntr1 于 2025-3-16 21:51 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">初华直接艺名丰川华音 ，反正日本又不是没同姓的
+
+你不是不敢姓丰川吗，你偷我名字，我偷你爹的姓<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+然后堂堂正正追小祥，对初音说，姐姐，我们去看星星看了三天三夜<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qratosones1337  
+##### 37934#       发表于 2025-3-16 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67668547&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-3-16 21:22</a>
+
+那确实无可辩驳，本质这事的严重与否取决于丰川大手和老登的态度，觉得老登超级开明本质老好人，那就会觉 ...</blockquote>
+目前看来更大的概率是老登没有明面上帮助初音，但至少在初音报上监护人之后点头认领了这事，不然老登让初音回去还有第九集明说的上面不让就对不上了
+
+
+*****
+
+####  thisisaspider  
+##### 37935#       发表于 2025-3-16 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67668683&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-3-16 21:42</a>
+C团和解肯定要写的，否则永远留个疙瘩在那吗？哪怕为了小睦能再次弹吉他，让自己放下毁c团的罪恶感也该写 ...</blockquote>
+思路窄了，正常来写就该写C团决裂。让这几个角色永不相见。
+
+*****
+
+####  aptx8285144  
+##### 37936#       发表于 2025-3-16 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67668467&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-3-16 21:05</a>
+
+都11集了，凡是涉及“现实”造成负面影响的地方只会发生在祥子身上，这点大家应该都很明白的了吧 ...</blockquote>
+但”不会移情别恋“，”现实“一点而言，初音也许会在东京之后爱上甜甜圈，当然这对后者并不一定是好事<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  聪明墨菲特  
+##### 37937#       发表于 2025-3-16 21:56
+
+真实情况可能是老登初妈在养父死后想把两个女儿送到东京发展。初音因为被大祥魅惑而答应了，初华则不清楚自己的真实身世在悲痛中无法自拔，并把姐姐行为视为背叛才口不择言。老登也由于种种考虑隐瞒了自己帮助初音的事，总之姐妹俩矛盾只是误会啦<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  厄神之息  
+##### 37938#       发表于 2025-3-16 21:57
+
+<blockquote>thisisaspider 发表于 2025-3-16 21:54
+思路窄了，正常来写就该写C团决裂。让这几个角色永不相见。</blockquote>
+不利于手游活动排列组合的话不要说
+

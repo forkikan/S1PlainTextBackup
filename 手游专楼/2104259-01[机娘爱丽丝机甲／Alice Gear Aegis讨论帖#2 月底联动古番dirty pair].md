@@ -98,3 +98,27 @@
 
 另外薰子的原配枪用手柄玩手感还是很好的，懒得改了。
 
+
+*****
+
+####  江戸前ルナ  
+##### 1414#         楼主| 发表于 2025-3-16 21:52
+
+喷了，这次排球活动新追加的剧情还有QED的。
+
+大凤开场就死往BBA身上扣，虽然妇人队里的确是BBA最弱，但很难让人不怀疑大凤是不是妒忌自己的师姐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+最后的结局，来多几次BBA都要练成铁脸庞了吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江戸前ルナ  
+##### 1415#         楼主| 发表于 2025-3-16 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67651679&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2025-3-14 10:37</a>
+
+我也觉得薰子的派生枪不好用，主要是变成光线枪了普通射击根本打不中必须用左右派生和蓄力派生。但是单骑打 ...</blockquote>
+终于有时间试了。不要把这把枪看作步枪而是看作射程短射速快的光狙用比较好。因为发生比G姐的光枪更慢，所以命中更差。运动战中主要的依靠手段是蓄力。
+
+蓄力真的比较猛，时间短多锁追送威力也高。那个左右派生就当不存在就行（
+
