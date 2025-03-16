@@ -312,3 +312,15 @@ mygo进游戏后第二个大混活，ring和circle合办的音乐节，感觉没
 
 笑死老阳不会读，全是片假名谁看得懂啊.jpg
 
+
+*****
+
+####  CyDiablo  
+##### 27058#       发表于 2025-3-16 20:02
+
+2025年夏：第五届总选
+2025年秋：游戏内联动
+2025年内：Artist Tie-up企划
+<img src="https://p.sda1.dev/22/d21ee7424a9b227199c7ad2bc630fed8/1742126500193.png" referrerpolicy="no-referrer">
+老师，我们mujica总不能9周年上游戏吧<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
