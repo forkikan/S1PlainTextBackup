@@ -1845,3 +1845,11 @@ Ver1.09.0.1 2025/03/14Steam®
 
 没DLC了吧
 
+
+*****
+
+####  cherry__  
+##### 3586#       发表于 2025-3-16 18:00
+
+石火成功率很低的我觉得还是意外的挺好玩的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">直到在笃姬那里被青鬼暴打
+
