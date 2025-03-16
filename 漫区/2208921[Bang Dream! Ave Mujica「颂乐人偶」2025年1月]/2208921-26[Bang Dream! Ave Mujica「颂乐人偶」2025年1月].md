@@ -7470,3 +7470,15 @@ HHW 也是六人團</blockquote>
 
 弦卷心也是黄金瞳，所以也是丰川家的谱系之一（确信）
 
+
+*****
+
+####  6030sylar  
+##### 37666#       发表于 2025-3-16 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67665094&amp;ptid=2208921" target="_blank">油画布 发表于 2025-3-16 10:36</a>
+还双重人格啊 疯了吧 讲了七集都讲不明白的事再给多少集都没用</blockquote>
+大概意思是原本双重人格那一大段戏份是初华的戏份，现在成品是砍了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
