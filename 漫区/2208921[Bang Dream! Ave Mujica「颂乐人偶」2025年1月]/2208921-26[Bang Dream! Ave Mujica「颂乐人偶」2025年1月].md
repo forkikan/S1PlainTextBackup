@@ -8848,3 +8848,80 @@ kkr的瞳色是黄金色，ykn和乐奈的右眼的瞳色是暗金色，ars和to
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  cxj649  
+##### 37774#       发表于 2025-3-16 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67666697&amp;ptid=2208921" target="_blank">UNISONIA 发表于 2025-3-16 15:15</a>
+
+之前柿本的访谈出来的时候，大家都误解了当时提的孟乔森综合症是在说睦（墨）。11话看起来基本是实锤在说初 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">所以什么时候来个代理性孟乔森综合症
+
+*****
+
+####  厄神之息  
+##### 37775#       发表于 2025-3-16 15:18
+
+ 本帖最后由 厄神之息 于 2025-3-16 15:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67666666&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-3-16 15:09</a>
+
+也就偷了个名字而已，下一集姐妹包和解的。说不定就一句话带过的事。
+
+初音这种程度的病态其实还蛮好理解 ...</blockquote>
+别搞笑，要是你有双胞胎哥哥知道你的梦想是进某公司某岗位，然后偷你身份证冒充是你自己去了那公司那岗位。靠的方法是说“我爹是王健林/马云”而不是说你们的农民工父亲，为的只是泡公司里的妞。你不跟你哥哥翻脸你纯圣人好吧。她包不包饺子是一回事，她干的事畜生不畜生是另一回事。不可能说她肯定包饺子就说她现在所作所为没问题的好吧。某些厨子甩锅原生家庭企图给她洗白白完全没道理的。这就是神人乐队，接受不了自己是喜欢神人的人就离开，别企图给神人洗成圣人。
+
+*****
+
+####  aptx8285144  
+##### 37776#       发表于 2025-3-16 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67665981&amp;ptid=2208921" target="_blank">123Su 发表于 2025-3-16 13:09</a>
+
+注意我反驳你的可不是抛开还是抛弃，而是“就嘴了两句”，毕竟能把这种话当成是就嘴了两句，这不完美对上 ...</blockquote>
+如果你把杀人放火才能当坏人那自然没有，但是放低标准那可就多了，大祥能一个月不看睦，大瞄前面疯狂作死，海林表现如同愉悦犯，金毛大狗变态自然不用多说<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  厄神之息  
+##### 37777#       发表于 2025-3-16 15:24
+
+ 本帖最后由 厄神之息 于 2025-3-16 15:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67666332&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-3-16 13:59</a>
+
+多一个妹妹怎么会比人格分裂更离谱。现实有几个人格分裂的。
+
+妹妹可以完全背景板工具人，专心为塑造初音 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">错了呀，真有这妹妹她道德上有大瑕疵。没这妹妹她就只是单纯的精神病而已。承认自己就是喜欢道德低下的坏逼比承认自己喜欢的是个有生理缺陷的可困难多了
+
+*****
+
+####  大户爱  
+##### 37778#       发表于 2025-3-16 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67666709&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-3-16 15:18</a>
+别搞笑，要是你有双胞胎哥哥知道你的梦想是进某公司某岗位，然后偷你身份证冒充是你自己去了那公司那岗位 ...</blockquote>
+这是初音的病态，也没偷初华的一切啊。
+
+初音确实是个神人，确实不认同三角家，一心想着丰川家。 但你要说她真对妹妹妈妈什么畜生事，也没有。
+
+也就离家出走，在她自己内心独白里，我们知道她前脚说要成为妹妹母亲支柱后脚润，很小丑。满脑子丰川，特别滑稽。
+
+但在外人眼里，初华出言不逊是导火索，母亲偷情生下她，又从小告诉初音私生女的事实是根源。初音离家出走也不是完全没有正当性。
+
+*****
+
+####  猫执事  
+##### 37779#       发表于 2025-3-16 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67666555&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-16 14:44</a>
+
+就剩下一話，
+
+我會直接上剃刀把初華肘死
+
+讓她跟漁夫爹一起死在船上午那只要包圓一點就夠了</blockquote>
+不如改成，渔夫哥死后，初妈想要离开伤心地，带着初华去海外生活了，初音为了她的东京梦，不愿意同去。
+
