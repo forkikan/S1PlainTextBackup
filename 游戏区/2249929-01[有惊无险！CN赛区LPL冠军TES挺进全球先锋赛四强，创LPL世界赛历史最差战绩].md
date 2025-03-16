@@ -553,3 +553,11 @@ makece 发表于 2025-3-15 21:39
 我觉得这不需要解释第三遍了。</blockquote>
 无所谓啦，我只是指出你给我扣帽子的行为，至于你同不同意那是你的事。
 
+
+*****
+
+####  dddty  
+##### 52#       发表于 2025-3-16 10:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">LPL存在的意义不是给棒子赚外汇吗？还有断档的说法？
+
