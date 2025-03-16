@@ -10060,3 +10060,31 @@ https://x.com/Criangle_K/status/1900570528865546242/photo/1</blockquote>
 
 插播一条消息，sumi有一首新曲会放在蓝光cd里面发布，时间将随蓝光cd发布的5月28日，如果sumi在完结后解散了啥的，就挺地狱笑话的，所以甜甜圈女士的心声大概率（？）能坚持到那个时间吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adretyu67.  
+##### 37879#       发表于 2025-3-16 18:45
+
+sweet escape。
+
+甜蜜逃亡<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 37880#       发表于 2025-3-16 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67667653&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-16 18:32</a>
+
+所以更奇怪了不是么？所以必须带着她沉浸在“悲剧女主角”人生剧场的蹩脚演绎里去审视三角初音，假面初音 ...</blockquote>
+我还是很在意初音带面具时候说谎言的开始为什么要二重奏<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 37881#       发表于 2025-3-16 18:49
+
+别告诉我甜甜圈要唱：大祥和初音的逃亡曲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
