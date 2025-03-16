@@ -9595,3 +9595,82 @@ https://x.com/Criangle_K/status/1900570528865546242/photo/1</blockquote>
 
 在母鸡卡里面纠结“什么才是道德大瑕疵”意义其实不大，不只是因为存在人类，<strong>你们忘了千面人格这种完全可以当非人存在的玩意，蚀本，独角兽这些人都写出来了</strong>，那人类这些道德瑕疵都有一种渺茫之感<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cxj649  
+##### 37840#       发表于 2025-3-16 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67667334&amp;ptid=2208921" target="_blank">123Su 发表于 2025-3-16 17:32</a>
+
+而且虽然说初音的自白里有很多不和逻辑没有说明白的地方，但是就剩下一集了，我是不太相信会有什么大的剧情 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">敢不姓 丰川 吗
+
+陛下还是闹麻了<img src="https://static.saraba1st.com/image/smiley/carton2017/482.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 37841#       发表于 2025-3-16 17:39
+
+ 本帖最后由 aptx8285144 于 2025-3-16 17:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67667333&amp;ptid=2208921" target="_blank">thisisaspider 发表于 2025-3-16 17:32</a>
+
+我觉得是剧本主题定成了爱恨交织，角色是不能有正常的人际关系。角色必须孤独不被人理解才能够凸显其扭曲的 ...</blockquote>
+<strong>但是人际关系的难度不是一个级别的</strong>，go时候可没有需要写什么丰川家的大手或黑幕（？），168亿，双重人格（虽说莫女士疑似在卡拉ok唱歌那里出场了），千面人格，私生女这些东西，<strong>这些东西随便拿出一个都是秒杀素世缺乏传统母爱而想复辟ccc的高难度的存在<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer"></strong>
+
+*****
+
+####  cxj649  
+##### 37842#       发表于 2025-3-16 17:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所谓退财阀其实还是闹麻了
+
+现在大祥她自己就是正统<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  厄神之息  
+##### 37843#       发表于 2025-3-16 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67667342&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-16 17:33</a>
+
+在母鸡卡里面纠结“什么才是道德大瑕疵”意义其实不大，不只是因为存在人类，你们忘了千面人格这种完全可以 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">说道德瑕疵可能是有点重了，说恰当点应该是人物观感吧。母鸡卡五人分几档的话大概是这样
+
+行为只损了自己——木子米
+
+行为有错但是付出代价了——莫提斯,海玲
+
+行为损人利己——祥子,初华
+
+行为损人利己的同时无代价——大猫
+
+至于老登睦妈那些，他们压根不是母鸡卡的人，压根不是会进卡池的玩意，谁管啊！
+
+*****
+
+####  123Su  
+##### 37844#       发表于 2025-3-16 17:45
+
+<blockquote>厄神之息 发表于 2025-3-16 17:27
+没错啊，我现在依然认为她偷妹妹身份，冒用妹妹身份占位出道还说亲爹是老登是大道德瑕疵啊~这压根不用回 ...</blockquote>
+你也是挺急的，现在又开始打身份牌了，带入角色塑造背景板也就算了，还自顾自破防了。要求一个13岁的孩子还养恩之前要不要先完成抚养义务啊？你哪里是道德底线高，你是道德底线灵活。再说了不是你先乱咬哈人的吗？别人一回你怎么就开始各种打牌了？
+
+至于给口饭吃不就是你的底层逻辑，因为我给了你个私生女一口饭，养了你这么多年，所以你要念着我的好，就算是妹妹说你是外人，是白眼狼也得忍着受着，这不就是你觉得一个13岁孩子道德败坏的地方，相信初音她养父不会这么想，毕竟他是一个温柔的人，至于你是啥东西就难说了～是不是给人家带上没得到回报接盘侠的帽子了？真不好说
+
+*****
+
+####  油画布  
+##### 37845#       发表于 2025-3-16 17:46
+
+<blockquote>厄神之息 发表于 2025-3-16 16:03
+单说你这话本来没问题，但是前提是初华全剧都没哭过。可惜不是这样的，这就显得十余载视如己出的养育关心 ...</blockquote>
+你这段话爆论和滑坡多的我本来都懒得回了，看你还在这页给自己叠盾，把觉得你说的有问题的都等同于神经角色厨破防，在这给人扣帽子还提前倒打一耙，怕不是你自己被谁搞破防了吧
+
+后面的逻辑滑坡太严重你自己觉得还讲的很丝滑我也没办法，给你这种人讲再多也是浪费时间。
+
+我就说一点。在初华和养父关系复杂的情况下，包含着自卑，内疚和长久在家里的压抑感，悲伤不能简单用眼泪衡量。就像现实生活经常有的，一个人很容易被小说电视剧一些小事打动，但是在亲人葬礼上却很难哭出来，因为感情关系上越复杂就越难转换成眼泪，有爱有感谢但也有破缺矛盾，但这不意味感情不深刻，尤其是初音的家庭本身就复杂，你要指责这个13岁小孩子不流眼泪是薄情，我觉得你比她更像13岁，怕是没有参加过真正的葬礼。
+
