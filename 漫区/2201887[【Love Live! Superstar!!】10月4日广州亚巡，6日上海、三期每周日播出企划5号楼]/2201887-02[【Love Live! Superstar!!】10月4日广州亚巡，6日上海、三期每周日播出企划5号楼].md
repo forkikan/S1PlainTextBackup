@@ -486,3 +486,21 @@ yabu对小百合的爱太深沉<img src="https://static.saraba1st.com/image/smil
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  ViyViy  
+##### 1566#       发表于 2025-3-17 00:51
+
+刷到个推文感觉理解的挺好的，能对照第六话最后观众席看到曾经的自己<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202503/17/001150r4ntw0h50w45e0j6.png" referrerpolicy="no-referrer">
+
+<strong>QQ20250317-001127.png</strong> (14.54 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-17 00:11 上传
+
+btw，这两天时间轴在假设叶月花没去世的话，一个正常成长的恋，liella的初创是不是就ゆ‘・ら起来了
+
