@@ -12,3 +12,11 @@
 库雷欧虽然一身臭味，但是那个确实是其他地方的尸体味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 <img src="https://image.ys-8.de/file/1742146543843_ApplicationFrameHost_7XNrQcx4Eb.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御坂MKII  
+##### 1220#       发表于 2025-3-17 03:39
+
+帝国新人要上线了，能不能漏点儿情报方便一下时间线的梳理
+
