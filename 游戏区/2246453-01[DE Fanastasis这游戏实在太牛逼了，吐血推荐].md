@@ -4258,3 +4258,14 @@ https://bgm.tv/subject/topic/33083
 
 这游戏没有任何限时要素，玩时候的心态放轻松就好
 
+
+*****
+
+####  wasdfghjkl  
+##### 377#       发表于 2025-3-16 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67665144&amp;ptid=2246453" target="_blank">blueelf 发表于 2025-3-16 10:47</a>
+
+我觉得这游戏乐趣不会被文字攻略影响，后篇我也是看了攻略玩的，那些碎片太难找，大幅度破坏游戏乐趣的游 ...</blockquote>
+感谢 顺带求一份好的文字攻略 爬楼爬被剧透
+

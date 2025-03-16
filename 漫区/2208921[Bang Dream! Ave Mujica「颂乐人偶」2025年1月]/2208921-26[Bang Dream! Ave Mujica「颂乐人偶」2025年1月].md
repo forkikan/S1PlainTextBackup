@@ -10000,3 +10000,63 @@ https://x.com/Criangle_K/status/1900570528865546242/photo/1</blockquote>
 
 所以制作组越到后面越放ppt，剧内都没观众买账那按头剧外观众看本身就不是让场外去沉浸到假面初音的一面之词里的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  厄神之息  
+##### 37873#       发表于 2025-3-16 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67667496&amp;ptid=2208921" target="_blank">油画布 发表于 2025-3-16 17:59</a>
+
+那你是看到每个人都在葬礼前痛哭了？你也包含在内？
+
+而且我说了她本来就和父亲不是一般的父女关系，这种 ...</blockquote><blockquote>你要指责这个13岁小孩子不流眼泪是薄情，我觉得你比她更像13岁，怕是没有参加过真正的葬礼</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">你自己说你居然要13岁小孩怎样怎样！你无敌了！然后现在话锋一转，又和年龄无关，成我自己拿年龄自说自话了，然后就是老一套“哎呦！你怎么能看不惯这个？！你带入养父破防了吧”别傻逼，按这逻辑那你就是13岁中二小屁孩看到自己的同类被指责所以破防了。
+
+*****
+
+####  油画布  
+##### 37874#       发表于 2025-3-16 18:39
+
+<blockquote>厄神之息 发表于 2025-3-16 18:28
+那我就说的再明白点，我参加的是我叔叔的葬礼，我跟我叔叔在两个城市，只有逢年过节才见得到，你真要算， ...</blockquote>
+说实话我在你这个情况我是哭不出来的。但是你这个情况也和我说的“复杂”不是一回事啊，你看了我的回答吗？
+
+另外你最后不能接受那两点也是在滑坡，不过你自己接受不了就算了，你说别人不接受你的滑坡就是神人角色厨破防真是搞笑。
+
+
+*****
+
+####  哈曼的YY  
+##### 37875#       发表于 2025-3-16 18:41
+
+都讲了初音是觉得自己得坚强不能哭 你们能白眼狼都说出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  聋与唬  
+##### 37876#       发表于 2025-3-16 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67667543&amp;ptid=2208921" target="_blank">阿尔巴尼亚 发表于 2025-3-16 18:08</a>
+我觉得还是你们明确一下吧，那就是为了祥子出走到底合不合理，说到底养父初妈初华和三角家坏或不坏都是服务 ...</blockquote>
+如果是谋划出走，我觉得不合理。
+一气之下离家出走，然后初音妈联系了老登，老登安排星探让初音出道，这就合理了。
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  油画布  
+##### 37877#       发表于 2025-3-16 18:42
+
+<blockquote>厄神之息 发表于 2025-3-16 18:37
+你自己说你居然要13岁小孩怎样怎样！你无敌了！然后现在话锋一转，又和年龄无关，成我自己拿年龄自说自话 ...</blockquote>
+
+我的年龄是在当论据吗，不是哦 论据是在这个前面，13岁只是用来拐你的，就像你给别人扣帽子，我承认我是扣帽子，不过你先做的。
+
+*****
+
+####  aptx8285144  
+##### 37878#       发表于 2025-3-16 18:44
+
+插播一条消息，sumi有一首新曲会放在蓝光cd里面发布，时间将随蓝光cd发布的5月28日，如果sumi在完结后解散了啥的，就挺地狱笑话的，所以甜甜圈女士的心声大概率（？）能坚持到那个时间吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
