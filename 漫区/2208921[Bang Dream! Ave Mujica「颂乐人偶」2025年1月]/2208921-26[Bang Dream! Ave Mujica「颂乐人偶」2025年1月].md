@@ -8676,3 +8676,51 @@ kkr的瞳色是黄金色，ykn和乐奈的右眼的瞳色是暗金色，ars和to
 
 第十一集讲的这么明白了，她就是对自己不是豪门大小姐感到不公不满，对祥子的一面缘有相当比重的“理想中的自己”的投射，祥子对她重要是因为对她来说祥子代表的是她认为的应该得到但没得到的东西。她是自认为女主的超级悲剧控，以此贴合母鸡卡神人乐队的主题。就这样了你们还是会给她洗，图什么呢？你也是悲剧控，遭受原生家庭苦难了是吧？前有大猫厨梗着脖子说大猫模范打工人勇斗黑心资本家祥子整顿职场，现有初华厨抛开初华的表现不谈，是原生家庭毁了她！你们都当厨子了为什么就是不肯承认这乐队没有正常人全是神人，而你们就是厨上了神人的人呢？敢爱不敢认吗？
 
+
+*****
+
+####  钦念以忱  
+##### 37760#       发表于 2025-3-16 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67666485&amp;ptid=2208921" target="_blank">Victorino 发表于 2025-3-16 14:28</a>
+
+啊，有好几个版本的剧透都提到了睦莫live中间融合啊？</blockquote>
+这都是临近开播的剧透了，我说的是那个最早爆出小姨双子的长段剧透
+
+
+*****
+
+####  xyion  
+##### 37761#       发表于 2025-3-16 14:58
+
+虽然听起来有点地狱，但真初华没跟她父亲一起死，很可能是需要她对初音说的那句话。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+下一话说不定就告诉你后来出了啥事没了。
+
+但还活着也可以完全不出场。祥子回岛去见了初华，但她要承担人生的初音。写这个靠祥子和初音的对话足够了。
+
+*****
+
+####  大户爱  
+##### 37762#       发表于 2025-3-16 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67666612&amp;ptid=2208921" target="_blank">wyjbnb 发表于 2025-3-16 14:55</a>
+凭什么差一岁相像的细节都可以都合了，那双重人格就不能都合了？标准你定的？
+
+就目前mujica这情况，你还 ...</blockquote>
+差别是，初音初华相像是这话演出的事实，双重人格是某些人自以为是的想象。
+
+不过你都这样说了，那顺从你吧。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  wyjbnb  
+##### 37763#       发表于 2025-3-16 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67666631&amp;ptid=2208921" target="_blank">xyion 发表于 2025-3-16 14:58</a>
+
+虽然听起来有点地狱，但真初华没跟她父亲一起死，很可能是需要她对初音说的那句话。
+
+下一话说不定就告诉你 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真死了就太恶心了。
+
