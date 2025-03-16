@@ -15960,3 +15960,14 @@ X 上的 ほろっか：“ジークアクスっぽい？…なカミーユ（�
  以下是关于我在剧场先行版《GQuuuuuuX -Beginning-》中参与剧本创作等相关工作的协助时间表：  - 企画起源 ...</blockquote>
 我就说怎么这么巧刚有staff建议把79if独立出来庵野就推门进来“交给我吧”，原来那个staff就是他啊
 
+
+*****
+
+####  岸浪白野  
+##### 8674#       发表于 2025-3-17 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67668898&amp;ptid=2209276" target="_blank">王留美 发表于 2025-3-16 23:55</a>
+
+我就说怎么这么巧刚有staff建议把79if独立出来庵野就推门进来“交给我吧”，原来那个staff就是他啊 ...</blockquote>
+不是，2月7号的直播访谈就说了是山下第一个提出把前传故事独立的建议，商量剧场化时庵野冒出表示愿意写一年战争部分的脚本
+
