@@ -1787,3 +1787,24 @@ Ver1.09.0.1 2025/03/14Steam®
 高杉在唐人街当黑老大，还拿了把关刀cos关羽，主角为了找他莫名其妙把手下杀了个七七 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这游戏有不杀生设定，虽然大部分要特定武器触发，但是少部分任务强制是杀不了人
 
+
+*****
+
+####  Lorraine_Kinney  
+##### 3580#       发表于 2025-3-16 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67664268&amp;ptid=2092342" target="_blank">手铐君 发表于 2025-3-16 01:29</a>
+
+其实唐人街那边都没死，你仔细看会发现他们都在地上打滚这游戏有不杀生设定，虽然大部分要特定武器触发， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">当时我还纳闷，为啥唐人街暗杀是勒脖子这种非击杀的，好歹跟港口劝架那样加个用木刀的附加条件也合理点
+
+*****
+
+####  Lorraine_Kinney  
+##### 3581#       发表于 2025-3-16 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67664070&amp;ptid=2092342" target="_blank">慕兰 发表于 2025-3-16 00:26</a>
+
+立身流虽然帧数长，但是这个石火硬直也太大了，不太习惯。道场确实好玩，到新的大地图了，不得不说前面的bo ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">立身流其实是把石火代替普攻，石火+残心这样复读
+
