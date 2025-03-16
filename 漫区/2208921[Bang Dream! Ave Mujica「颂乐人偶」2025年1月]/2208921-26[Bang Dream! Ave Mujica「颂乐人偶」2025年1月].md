@@ -9831,3 +9831,40 @@ https://x.com/Criangle_K/status/1900570528865546242/photo/1</blockquote>
 
 所以其实首先就不可能填三角爹，因为死人是没法帮她签字<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿尔巴尼亚  
+##### 37859#       发表于 2025-3-16 18:08
+
+我觉得还是你们明确一下吧，那就是为了祥子出走到底合不合理，说到底养父初妈初华和三角家坏或不坏都是服务这点的，毕竟初音出走是事实上坐实了她成为初华口中那模样，也就是三角剩下两人能不能让初音出走正当化，正当了，那怎么说初妈初音都没问题，不能正当化那最大问题还是初音，纠结初妈初华没意思
+
+*****
+
+####  6030sylar  
+##### 37860#       发表于 2025-3-16 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67667540&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-16 18:07</a>
+初华那个合同其实应该是要监护人签字表示同意，因为她没成年。
+
+所以和事务所签约需要监护人授权。
+
+又因为她 ...</blockquote>
+那里怎么都是初华想多了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">，虽然你知道是生物爹但始终不是法定监护人，这独角戏错漏百出怎么看都是小女孩臆想产物
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  thisisaspider  
+##### 37861#       发表于 2025-3-16 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67667539&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-16 18:07</a>
+
+大家对于三角初音的不满可能更多在于她整个行为以悲剧女主角自称，自认爆了168+ccc+mujica，最后实际上满足 ...</blockquote>
+初音到底希不希望成为丰川初音，我现在还不理解。因为初音明显抗拒回到老宅，
+
+她或许在"爱上"祥子的那一刻，就已经不再觉得"不公平"了。
+
+目前表现无疑是"悲剧的女主角"身份大于"丰川家"的身份。
+
