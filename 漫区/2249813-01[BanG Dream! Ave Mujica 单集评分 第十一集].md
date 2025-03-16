@@ -3627,3 +3627,11 @@ Ave Mujica 前11话 niconico 好评率
 
 第11话 83.8% 5.6% 4.1% 3.6% 3.0% 约2900人
 
+
+*****
+
+####  zifuhun  
+##### 377#       发表于 2025-3-16 08:26
+
+观感其实不错，填了些坑，节奏也还好 CV出大力.而且我都看到第11集了 我为什么不+2<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
