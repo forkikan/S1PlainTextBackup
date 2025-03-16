@@ -10900,3 +10900,29 @@ go里这么好的初祥被鸡毁了
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  cxj649  
+##### 37952#       发表于 2025-3-17 03:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67668269&amp;ptid=2208921" target="_blank">江戸前ルナ 发表于 2025-3-16 20:25</a>
+
+第一，真正跟小莫/睦有深入接触的是SOYO和海玲。一直留意着小莫/睦的是喵梦。祥子知道的也就以前的睦头人 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这片各集甚至A段和B段剧情就没衔接点233
+
+这片好像有各剧情固定点，然后你懂的系构独角兽早已经离职233
+
+
+*****
+
+####  cxj649  
+##### 37952#       发表于 2025-3-17 03:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67668269&amp;ptid=2208921" target="_blank">江戸前ルナ 发表于 2025-3-16 20:25</a>
+
+第一，真正跟小莫/睦有深入接触的是SOYO和海玲。一直留意着小莫/睦的是喵梦。祥子知道的也就以前的睦头人 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这片各集甚至A段和B段剧情就没衔接点233
+
+这片好像有各剧情固定点，然后你懂的系构独角兽早已经离职233
+
