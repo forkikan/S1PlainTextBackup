@@ -10413,3 +10413,39 @@ sweet escape。
 现实双胞胎当偶像的可不少，隔壁lovelive莲之空的le ...</blockquote>
 艺名是艺名，本名是本名，事务所和大家在接受了三角初华的父亲是丰川定治的情况下，接受你个跟“三角初华”一模一样的人出道当偶像吗？你答应丰川定治答应吗？观众看到这个么个双胞胎，不会去挖背景吗？而且这也是建立在接受现状的前提下去曲线救国，真三角初华凭什么要接受真名也不敢露的当个假货呢？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 37913#       发表于 2025-3-16 21:01
+
+ 本帖最后由 aptx8285144 于 2025-3-16 21:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67668172&amp;ptid=2208921" target="_blank">大丈夫萌大乃 发表于 2025-3-16 20:02</a>
+
+老登说没管过,那就当没管过吧,正常来解读就是初音落地就靠伟大的脸被星探相中,随后遇到五冠圈皇开始组队
+
+ ...</blockquote>
+还是那个问题，一个假的身份去当公开偶像不可能长久，更不用说她是未成年人，我们自称王建林的孩子难道星探公司不会震惊或求证吗，<strong>她自己都说奇怪为什么对方吃惊后不再多问或自己不用再回去</strong>，正常设想要么是老登点头庇护她了，要么是丰川家反老登势力把她当牌了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+当然我刚才重翻阅时到不是没想过一种可能就是，<strong>老登只是在经济公司过来询问时不置可否（“什么女儿，我不知道，我不清楚”这类发言），经济公司心里没底，但甜甜圈还是喜欢她（乡下来的孩子一看就没啥出风头，淳朴，也没啥威胁的感觉），初音自己也竭力表现乖巧，经济公司就把她签的监护人名字什么的照单全收了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"></strong>
+
+*****
+
+####  大户爱  
+##### 37914#       发表于 2025-3-16 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67668413&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-3-16 20:53</a>
+艺名是艺名，本名是本名，事务所和大家在接受了三角初华的父亲是丰川定治的情况下，接受你个跟“三角初华 ...</blockquote>
+你这不是全是自我脑补嘛
+我还说三角初华将来出道有姐姐人气基础起步更好。老登看在私生女份上，安排事务所偷偷推初华一把。
+
+事实上，这些都不会写。真初华就是背景板，贷款迫害挺蠢的。下集马上就和解了。
+
+
+*****
+
+####  刑部姬真可爱  
+##### 37915#       发表于 2025-3-16 21:05
+
+都11集了，凡是涉及“现实”造成负面影响的地方只会发生在祥子身上，这点大家应该都很明白的了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

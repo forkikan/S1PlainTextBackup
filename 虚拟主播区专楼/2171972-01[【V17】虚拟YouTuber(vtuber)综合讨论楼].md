@@ -154,3 +154,13 @@ v甲是第二届了，原始宣称不说五五开，大福至少也有4成吧
 
 后知后觉circusP居然来虹EN当套皮管人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  noHentai  
+##### 1051#       发表于 2025-3-16 21:03
+
+虹杏对抗赛的话，输赢会不会有节奏啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+如果互相开放选人的话应该会好点？不过那样队伍里有的不熟也没梗，好像没啥意义。
+
