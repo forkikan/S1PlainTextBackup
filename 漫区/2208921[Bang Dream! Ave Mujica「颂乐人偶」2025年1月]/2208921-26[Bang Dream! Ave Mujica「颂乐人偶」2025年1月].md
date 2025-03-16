@@ -8724,3 +8724,127 @@ kkr的瞳色是黄金色，ykn和乐奈的右眼的瞳色是暗金色，ars和to
 下一话说不定就告诉你 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真死了就太恶心了。
 
+
+*****
+
+####  大户爱  
+##### 37764#       发表于 2025-3-16 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67666614&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-3-16 14:55</a>
+拉吉八岛吧，她要是单纯出走远离家庭那包没问题的啊。问题是她把妹妹的一切都偷走了，为的只是和只见了一面 ...</blockquote>
+也就偷了个名字而已，下一集姐妹包和解的。说不定就一句话带过的事。
+
+初音这种程度的病态其实还蛮好理解和包容的。
+就是放在二偶里太狗血了。
+
+*****
+
+####  wyjbnb  
+##### 37765#       发表于 2025-3-16 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67666635&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-3-16 15:00</a>
+
+差别是，初音初华相像是这话演出的事实，双重人格是某些人自以为是的想象。
+
+不过你都这样说了，那顺从你 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以，我根据事实发现的矛盾，想到了最合适的解释方法，有问题吗？
+
+在动画快结尾处还加一个从未提到过的人，就不机械降神吗？
+
+
+*****
+
+####  聋与唬  
+##### 37766#       发表于 2025-3-16 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67666322&amp;ptid=2208921" target="_blank">阿尔巴尼亚 发表于 2025-3-16 13:58</a>
+不能出场不就是典型重拿轻放，这不就间接证明了家庭原因是初音脑补，毕竟11也说了三角家对她也挺好，初华 ...</blockquote>
+初华要是塑造成恶役，那初华作为祥子的幼驯染，岂不是地位很尴尬？真要全员恶人吗？
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  阿尔巴尼亚  
+##### 37767#       发表于 2025-3-16 15:13
+
+<blockquote>聋与唬 发表于 2025-3-16 15:12
+初华要是塑造成恶役，那初华作为祥子的幼驯染，岂不是地位很尴尬？真要全员恶人吗？
+
+—— 来自 vivo V23 ...</blockquote>
+祥子身边有一个塑造好的？还缺这一个吗？
+
+*****
+
+####  半年  
+##### 37768#       发表于 2025-3-16 15:14
+
+<img src="https://img.saraba1st.com/forum/202503/16/151401n3gab63l8v58vcch.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250316151337.jpg</strong> (161.72 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-16 15:14 上传
+
+*****
+
+####  Victorino  
+##### 37769#       发表于 2025-3-16 15:14
+
+其实初音初华相像论，换个剧情就能圆起来了：白天初华去和祥子玩，吃晚饭的时候发烧，晚上初音代替初华丢石子
+
+这样的话，两个人可能没那么像，但大半夜黑灯瞎火的，看不清楚
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| wyjbnb| + 2|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  UNISONIA  
+##### 37770#       发表于 2025-3-16 15:15
+
+之前柿本的访谈出来的时候，大家都误解了当时提的孟乔森综合症是在说睦（墨）。11话看起来基本是实锤在说初音了，自以为的悲剧女主角，自以为被家庭所忽视，把自己投射到幸福的他人身上，并因此产生压抑性冲动，完全对上了
+
+柿本对孟乔森综合症确实是有比较深刻的研究的，但是如何把它表现出来做的实在是不算好。而且这部分要是更早一点铺垫，解释起来肯定会更自然
+
+*****
+
+####  cxj649  
+##### 37771#       发表于 2025-3-16 15:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">果然一黑顶十粉，路人纷纷看不下这帖子有个人无脑黑大祥233
+[https://nga.178.com/read.php?tid=43540509](https://nga.178.com/read.php?tid=43540509)
+
+*****
+
+####  大户爱  
+##### 37772#       发表于 2025-3-16 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67666678&amp;ptid=2208921" target="_blank">wyjbnb 发表于 2025-3-16 15:11</a>
+所以，我根据事实发现的矛盾，想到了最合适的解释方法，有问题吗？
+
+在动画快结尾处还加一个从未提到过的 ...</blockquote>
+是是是，双重人格可太合适了。
+母鸡卡这么烂，这么多漏洞，最后一集告诉你，这都是这十二集一切都是祥子的剧本，只是祥子写作水平太烂了。
+
+梦结局完美无缺。神人楼里大概都是这个思路。您开心就好，我顺从您～
+
+*****
+
+####  zhzij111  
+##### 37773#       发表于 2025-3-16 15:16
+
+初华这种小太阳怕不是还天天在小岛看sumimi直呼姐姐牛逼，一个初中生爹失踪了说错话不是很正常，道个歉就完事有啥好和解的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
