@@ -10352,3 +10352,34 @@ sweet escape。
 
 —— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  厄神之息  
+##### 37907#       发表于 2025-3-16 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67668285&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-3-16 20:28</a>
+
+你这话说得好像真初华在岛上就提前中了选秀结果被初音顶替了似的，但实际上初音的偶像出道靠的是伟大的脸 ...</blockquote>
+不，这是只要你一天顶着初华的名字初华同款的脸当偶像，真初华就一天没法出道当偶像的问题。这也就是祥子组了母鸡卡，如果没有呢？你要一直当下去吗？你不能说祥子组母鸡卡了之后可以把sumimi的位置让给真初华来唯结果论啊，这个行为本身就是不对的。
+
+
+*****
+
+####  一心而用  
+##### 37908#       发表于 2025-3-16 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67668330&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-3-16 20:37</a>
+
+不，这是只要你一天顶着初华的名字初华同款的脸当偶像，真初华就一天没法出道当偶像的问题。这也就是祥子 ...</blockquote><blockquote>这是只要你一天顶着初华的名字初华同款的脸当偶像，真初华就一天没法出道当偶像的问题。</blockquote>
+这个逻辑完全不通，真初华想出道再取个艺名就行了。
+
+现实双胞胎当偶像的可不少，隔壁lovelive莲之空的leader榆井希实有个双胞胎妹妹，姐妹两个人都是偶像。
+
+*****
+
+####  thisisaspider  
+##### 37909#       发表于 2025-3-16 20:45
+
+你只要理解当时除了祥子外，所有人都想重组鸡团。祥子可能因为性格或者背负人生病发病，就可以理解为什么能开Live了。
+
