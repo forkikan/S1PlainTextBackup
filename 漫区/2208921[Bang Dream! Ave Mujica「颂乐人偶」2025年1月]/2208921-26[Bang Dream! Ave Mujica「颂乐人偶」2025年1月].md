@@ -7452,3 +7452,21 @@ HHW 也是六人團</blockquote>
 <img src="https://p.sda1.dev/22/5d2bbc69e26db1a8bfe0295bae3b7820/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/22/8c0d96d6b78311faef026c7626d35717/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  与太郎  
+##### 37665#       发表于 2025-3-16 11:11
+
+原来丰川家是怪物是这个意思
+
+因为后代始终是女性，所以除了本家祥子这边，其他系谱都不叫丰川
+
+但是大家都有一个共同点，那就是黄金瞳
+
+森美奈美和若叶睦就是这样的黄金瞳，她们就是丰川家旁系之一
+
+所以祥母葬礼上若叶睦才会在祥子背后坐着
+
+弦卷心也是黄金瞳，所以也是丰川家的谱系之一（确信）
+
