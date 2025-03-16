@@ -15507,3 +15507,29 @@ B站的有翻译好的了
 
 2025-3-16 06:28 上传
 
+
+*****
+
+####  g救世主高达  
+##### 8653#       发表于 2025-3-16 08:43
+
+最近又看了一遍gto漫画，这gux开rx78一号机阻止夏亚抢完二号机跑路的驾驶员，不会就是gto漫画开头这个开78一号机阻止扎古入侵的吧，gto也是到了最后也没说这个驾驶员是谁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+753ebaa1cd11728b0c7a2af08dfcc3cec2fd2c4f.jpg
+(141.9 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-16 08:42 上传
+
+<img src="https://img.saraba1st.com/forum/202503/16/084255k7azg7a7cdfe2l27.jpg" referrerpolicy="no-referrer">
+
+0cedfd1f4134970a0a24b6fdd0cad1c8a6865d4f.jpg
+(125.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-16 08:43 上传
+
+<img src="https://img.saraba1st.com/forum/202503/16/084301gafagpgkrpknpjqq.jpg" referrerpolicy="no-referrer">
+
