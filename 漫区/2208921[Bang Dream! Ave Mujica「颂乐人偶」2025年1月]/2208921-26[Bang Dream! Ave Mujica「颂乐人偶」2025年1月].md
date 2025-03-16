@@ -7509,3 +7509,37 @@ HHW 也是六人團</blockquote>
 <img src="https://p.sda1.dev/22/35b183ce7fa036f7e8dede053b011717/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/22/d88bab5ada8240469d4d42e56fa7f884/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  z-hunter  
+##### 37670#       发表于 2025-3-16 12:04
+
+歌确实是好歌，李子唱得又好又深情，没有歌词显示反正大多数中国人也听不懂日文歌唱的是什么意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+倒是初祥的剧情配不上这么重的歌
+
+在B站看到一个MAD，魔圆的圆焰反而更适合这歌的风格和歌词
+
+
+*****
+
+####  syndrome2032  
+##### 37671#       发表于 2025-3-16 12:11
+
+说到歌词。11话倒是解释了初华埋葬的是啥。
+
+过去 姓名 家人全都不要了。
+
+*****
+
+####  aptx8285144  
+##### 37672#       发表于 2025-3-16 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67665623&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-3-16 12:11</a>
+
+说到歌词。11话倒是解释了初华埋葬的是啥。
+
+过去 姓名 家人全都不要了。</blockquote>
+挺魔幻的，被妹妹嘴了两句就这样抛开对她还不错的家庭<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
