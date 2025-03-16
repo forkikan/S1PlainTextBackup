@@ -15533,3 +15533,78 @@ B站的有翻译好的了
 
 <img src="https://img.saraba1st.com/forum/202503/16/084301gafagpgkrpknpjqq.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  g救世主高达  
+##### 8654#       发表于 2025-3-16 08:49
+
+这gto一号机驾驶员也是挺倒霉，打五个扎古打赢了，但是被近距离扎古核熔炉爆炸炸死了，不知道这个无名驾驶员和gux的是不是同一个人呢？
+
+0019.jpg
+(305.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-16 08:48 上传
+
+<img src="https://img.saraba1st.com/forum/202503/16/084812kg8wwewypypxydl3.jpg" referrerpolicy="no-referrer">
+
+0060.jpg
+(404.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-16 08:48 上传
+
+<img src="https://img.saraba1st.com/forum/202503/16/084858zovddtm2d2oppyjm.jpg" referrerpolicy="no-referrer">
+
+0061.jpg
+(319.27 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-16 08:49 上传
+
+<img src="https://img.saraba1st.com/forum/202503/16/084903diian6i6niw00ibf.jpg" referrerpolicy="no-referrer">
+
+0062 (1).jpg
+(332.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-16 08:49 上传
+
+<img src="https://img.saraba1st.com/forum/202503/16/084905uajh0a3ze3a0a44o.jpg" referrerpolicy="no-referrer">
+
+0063.jpg
+(210.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-16 08:49 上传
+
+<img src="https://img.saraba1st.com/forum/202503/16/084916i2r22lg59uq5gqxr.jpg" referrerpolicy="no-referrer">
+
+0068.jpg
+(298.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-16 08:49 上传
+
+<img src="https://img.saraba1st.com/forum/202503/16/084919rhidihyhhazyzu6p.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  YU_JI  
+##### 8655#       发表于 2025-3-16 08:55
+
+<blockquote>awefhio 发表于 2025-3-16 01:52
+刚看完剧场版，开香槟了，期待值拉满
+
+反倒是前半有点流水账，如果不是if线本身就足够令人好奇真有点无聊
+</blockquote>
+还是有可能的，这次特地选在side6，而且鹤卷自己最喜欢的也是0080，和前夫哥一样出来露个面当彩蛋的可能性还是有的，林原惠美更是staff的老熟人，喊回来配克里斯汀娜合情合理
+
