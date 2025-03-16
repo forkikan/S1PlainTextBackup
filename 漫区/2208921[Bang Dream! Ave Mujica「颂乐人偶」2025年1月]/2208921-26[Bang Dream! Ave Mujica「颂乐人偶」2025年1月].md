@@ -10865,3 +10865,18 @@ staff自找回旋镖罢了：这少女乐队啊，还真得大小姐过家家才
 
 当时还以为是初华童年记忆比祥子深刻，结果这么一看，祥子并没记错啊，倒是初音聊回忆的时候可能很紧张，一边温习从妹妹听来的事情，一边小心翼翼的讲话<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  油画布  
+##### 37948#       发表于 2025-3-17 01:07
+
+go里这么好的初祥被鸡毁了 
+
+*****
+
+####  thisisaspider  
+##### 37949#       发表于 2025-3-17 01:09
+
+现在还纠结这个吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
