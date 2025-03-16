@@ -7618,3 +7618,122 @@ HHW 也是六人團</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  油画布  
+##### 37681#       发表于 2025-3-16 12:36
+
+<blockquote>aptx8285144 发表于 2025-3-16 12:13
+挺魔幻的，被妹妹嘴了两句就这样抛开对她还不错的家庭</blockquote>
+感觉就是小孩离家出走，以她这个年龄还没有上升到用抛这个级别
+
+*****
+
+####  aptx8285144  
+##### 37682#       发表于 2025-3-16 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67665738&amp;ptid=2208921" target="_blank">123Su 发表于 2025-3-16 12:26</a>
+
+有点乐，在葬礼上都快被直球说“你是个白眼狼”了，还觉得这只是嘴了两句，从小告诉一个孩子是私生女且连 ...</blockquote>
+你以为同龄人撕逼说话都很温和文雅的吗<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  الطائر  
+##### 37683#       发表于 2025-3-16 12:42
+
+kkr的瞳色是黄金色，ykn和乐奈的右眼的瞳色是暗金色，ars和toko的瞳色是琥珀色，灯的瞳色是红色。
+
+祥子和睦的瞳色介于暗金色和琥珀色之间，睦的瞳色更浅一些。
+
+<img src="https://img.saraba1st.com/forum/202503/16/123042xtp5fs42mkgoiika.png" referrerpolicy="no-referrer">
+
+<strong>16Kokoro-Tsurumaki-f8X5Mu.png</strong> (29.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-16 12:30 上传
+
+<img src="https://img.saraba1st.com/forum/202503/16/123107i58uxf5z3z4f28x3.png" referrerpolicy="no-referrer">
+
+<strong>26Yukina-Minato-cNMwBo.png</strong> (30.9 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-16 12:31 上传
+
+<img src="https://img.saraba1st.com/forum/202503/16/123056t2iar2jq2rmk7k2z.png" referrerpolicy="no-referrer">
+
+<strong>43Raana-Kaname-IkGFtu.png</strong> (25.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-16 12:30 上传
+
+<img src="https://img.saraba1st.com/forum/202503/16/123120n4w81wl042vwfwq4.png" referrerpolicy="no-referrer">
+
+<strong>10Arisa-Ichigaya-Ltde2Q.png</strong> (29.05 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-16 12:31 上传
+
+<img src="https://img.saraba1st.com/forum/202503/16/123318fivf8388jlvffhje.png" referrerpolicy="no-referrer">
+
+<strong>32Touko-Kirigaya-PBjjvj.png</strong> (28.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-16 12:33 上传
+
+<img src="https://img.saraba1st.com/forum/202503/16/123948bi34qqub888mjmui.png" referrerpolicy="no-referrer">
+
+<strong>41Tomori-Takamatsu-Nx0OjA.png</strong> (20.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-16 12:39 上传
+
+<img src="https://img.saraba1st.com/forum/202503/16/123545fp884e471p09yppi.png" referrerpolicy="no-referrer">
+
+<strong>50Oblivionis-A83yx3.png</strong> (36.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-16 12:35 上传
+
+<img src="https://img.saraba1st.com/forum/202503/16/123550wqcaqgl500pwlelk.png" referrerpolicy="no-referrer">
+
+<strong>47Mortis-JJBxIx.png</strong> (36.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-16 12:35 上传
+
+*****
+
+####  z-hunter  
+##### 37684#       发表于 2025-3-16 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67665769&amp;ptid=2208921" target="_blank">油画布 发表于 2025-3-16 12:33</a>
+
+原来是这个意思 …如果初华是双重人格那一集肯定讲不完，就是说老柿把初华的原设定偷给了睦，然后顺水推 ...</blockquote>
+其实是因为11集初音的舞台剧全是自白，全是她一个人在自说自话，而真初华的故事，在逻辑上有很多很多的漏洞。
+
+再加上片尾Cast表，官网人物介绍的改动，官推的三角初X，都在引导其实没有真初华这个人物。
+
+所以有不少人猜测初音双重人格才更符合逻辑
+
+当然你可以认为这部剧的编剧和制作组其实已经没有逻辑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lyzers  
+##### 37685#       发表于 2025-3-16 12:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不是符合你楼最喜欢的论心不论迹和结果论吗
+
+谁叫初音女士是真跑了呢，那骂白眼狼我估摸着没骂错啊
+
