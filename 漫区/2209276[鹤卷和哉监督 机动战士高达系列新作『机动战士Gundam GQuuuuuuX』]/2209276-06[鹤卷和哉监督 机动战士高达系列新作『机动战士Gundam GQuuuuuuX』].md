@@ -15983,3 +15983,18 @@ X 上的 ほろっか：“ジークアクスっぽい？…なカミーユ（�
 
 2.7是鹤卷杉谷小松田前田那次**直播吗？
 
+
+*****
+
+####  岸浪白野  
+##### 8676#       发表于 2025-3-17 01:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67669154&amp;ptid=2209276" target="_blank">王留美 发表于 2025-3-17 00:59</a>
+
+我怎么记得之前都没说具体是哪个谁，都用有个staff之类的指代
+
+2.7是鹤卷杉谷小松田前田那次**直播吗？ ...</blockquote>
+是，16:35那里
+
+[https://youtu.be/JiqAkEuw-CY](https://youtu.be/JiqAkEuw-CY)
+
