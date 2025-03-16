@@ -10088,3 +10088,30 @@ sweet escape。
 
 别告诉我甜甜圈要唱：大祥和初音的逃亡曲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 37882#       发表于 2025-3-16 18:56
+
+<img src="https://img.dexbug.com/i/2025/03/16/unzpuf.gif" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厄神之息  
+##### 37883#       发表于 2025-3-16 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67667701&amp;ptid=2208921" target="_blank">油画布 发表于 2025-3-16 18:39</a>
+
+说实话我在你这个情况我是哭不出来的。但是你这个情况也和我说的“复杂”不是一回事啊，你看了我的回答吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">停止，你俩说是滑坡，那就是。初音小姐的行为完全无瑕，错全在无情的大人。原生家庭就是只给她一口饭吃要求她感恩的公式安徒生童话的狠毒后妈家庭。初华作为迪士尼公主后面种种的行为相当合理。他葬礼不落泪是感情超复杂是我作为观众没内涵了，而前面第九集的那些简单到无法理解的思维逻辑则是编剧的罪过。正义路人看见有人黑角色应激瞎骂是相当正义的。是我滑坡了，是我套盾了，是我率性扣帽子了，我有罪。上网这么多年，别的没学会，光速滑跪止战我最熟了。
+
+
+*****
+
+####  哈曼的YY  
+##### 37884#       发表于 2025-3-16 19:00
+
+有的兄弟 下集一定有甜甜圈solo新歌和祥老师铁人三项的蒙太奇
+
