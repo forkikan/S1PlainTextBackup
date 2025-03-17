@@ -1925,3 +1925,13 @@ Ver1.09.0.1 2025/03/14Steam®
 
 石火大多数能凭反应来，只有少数要背板。
 
+
+*****
+
+####  松风君  
+##### 3595#       发表于 2025-3-17 18:06
+
+浪人拿了无人在意的Famitsu2024年度游戏最佳动作冒险，也入围了GOTY的决赛圈，所谓题材特攻的优势吧。
+
+最乐的是FF7RB一片扫榜之下看到龙马和高杉分别喜提最佳角色、最佳声优提名，就排在Tifa/坂本真绫下面<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
