@@ -16369,3 +16369,23 @@ https://x.com/arakichi1969/status/1901436557598613741?s=19
 是的，这版漫画后面改编部分剧本有鹤卷参与。</blockquote>
 这我还真不知道 有什么资料说明了这点吗
 
+
+*****
+
+####  蕾洁之风  
+##### 8700#       发表于 2025-3-17 15:05
+
+ 本帖最后由 蕾洁之风 于 2025-3-17 15:06 编辑 
+
+鹤卷是香党，结果最后是他搞的跟他一样戴眼镜，明明是老阿姨但17岁，名字里都有maki的女人胜出<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RE㐅ia  
+##### 8701#       发表于 2025-3-17 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67672151&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-3-17 14:15</a>
+
+此外你看他的EVA漫画结局</blockquote>
+漫画不用说了，看完整部给我的感觉就是贞本铁血丽党。香完全被排除在外了
+

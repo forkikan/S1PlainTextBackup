@@ -11713,3 +11713,16 @@ KKR 老仙在，
 
 ave mujica里乐队名什么意思，ave mujica的世界是啥样的，那句主题语永恒的虚假箱庭，全都没实际拍出来，也许有些解读里说作品主线其实暗喻了这些，但没拍出来很多观众感受不到，甚至未来还可能会被柿本访谈推翻。
 
+
+*****
+
+####  adretyu67.  
+##### 38010#       发表于 2025-3-17 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67672499&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-17 14:53</a>
+
+对啊，mygo里面这个mygo的名字和主题语一瞬一瞬组成一生，都是故事的主线明明白白拍出来的。
+
+ave mujica ...</blockquote>
+目前来看，永恒的虚假箱庭应该指的是live时演出的舞台。
+
