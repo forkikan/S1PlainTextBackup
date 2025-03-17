@@ -112,3 +112,11 @@
 
 这奥德修斯怎么同时开两个池子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  克苏鲁系青骑士  
+##### 16500#       发表于 2025-3-17 17:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">怎么没人强化，抽但丁抽的一点库存都没了，yls不再给点吗
+
