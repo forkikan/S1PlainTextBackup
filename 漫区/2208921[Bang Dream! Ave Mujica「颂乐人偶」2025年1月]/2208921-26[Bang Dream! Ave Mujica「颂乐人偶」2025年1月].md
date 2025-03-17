@@ -11661,3 +11661,16 @@ KKR 老仙在，
 
 最终，祥子通过拯救初音成为了人类，初音也因为被祥子接纳成为了人类，初祥关系性是这个故事的起点，也将是这个故事的终点。
 
+
+*****
+
+####  是谁的书画  
+##### 38006#       发表于 2025-3-17 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67671625&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-17 12:58</a>
+
+其实初音最终给予了祥子一路选择的人生一点意义不是吗？
+
+祥子为了拯救父亲放弃了大小姐生活、从月之森转学 ...</blockquote>
+初音祥子互为彼此人格最后一块拼图----这样的感觉在现在特别有一种“自己的儿既在柿本手里”的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
