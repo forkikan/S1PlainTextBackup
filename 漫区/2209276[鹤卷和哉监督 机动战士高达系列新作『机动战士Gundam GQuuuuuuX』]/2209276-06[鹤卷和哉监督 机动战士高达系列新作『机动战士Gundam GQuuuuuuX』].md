@@ -16009,3 +16009,39 @@ X 上的 ほろっか：“ジークアクスっぽい？…なカミーユ（�
 考据哥的假药终于来到了一个比较能看的阶段
 我还是很支持沙纶的玫瑰跟拉拉有关这个假说的，其他的再等等正片吧
 
+
+*****
+
+####  岸浪白野  
+##### 8678#       发表于 2025-3-17 01:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67669154&amp;ptid=2209276" target="_blank">王留美 发表于 2025-3-17 00:59</a>
+
+我怎么记得之前都没说具体是哪个谁，都用有个staff之类的指代
+
+2.7是鹤卷杉谷小松田前田那次**直播吗？ ...</blockquote>
+是，16:35那里
+
+[https://youtu.be/JiqAkEuw-CY](https://youtu.be/JiqAkEuw-CY)
+
+*****
+
+####  Gaybird  
+##### 8679#       发表于 2025-3-17 02:52
+
+[https://b23.tv/IMASDyL](https://b23.tv/IMASDyL)
+[https://youtu.be/Wf38F2SrESs?si=P5-83aMhHWchVIds](https://youtu.be/Wf38F2SrESs?si=P5-83aMhHWchVIds)
+考据哥的假药终于来到了一个比较能看的阶段
+我还是很支持沙纶的玫瑰跟拉拉有关这个假说的，其他的再等等正片吧
+
+*****
+
+####  Toby_dak  
+##### 8680#       发表于 2025-3-17 07:51
+
+<img src="https://p.sda1.dev/22/72860dbac7772dc7b045e0f9c6192a63/1000097993.jpg" referrerpolicy="no-referrer">
+
+但凡对0079有点深究过的，光是听到lala的效果音和「刻が見える」这台词，都会联想到拉拉的。这周的新特典只是增加证据而已。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
