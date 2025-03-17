@@ -2378,3 +2378,34 @@ azkimiko！？
 
 电波最对不上的2个人，什么异端推
 
+
+*****
+
+####  holofan  
+##### 10926#       发表于 2025-3-17 20:59
+
+介绍的房间半数以上都是七字母推，可怕
+
+*****
+
+####  holofan  
+##### 10927#       发表于 2025-3-17 21:10
+
+ 本帖最后由 holofan 于 2025-3-17 21:15 编辑 
+
+mikotowa
+
+异端中的异端……
+
+今天是见识到了这么多的异端推
+
+<img src="https://img.saraba1st.com/forum/202503/17/211456c9595rxv5w5vykdx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (15.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-17 21:14 上传
+
+还是4年35P，得了
+
