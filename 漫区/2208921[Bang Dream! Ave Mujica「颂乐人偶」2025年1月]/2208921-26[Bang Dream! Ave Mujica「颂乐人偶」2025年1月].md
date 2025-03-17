@@ -12152,3 +12152,14 @@ go里的设计就是正确的设计吗？有没有可也是为了配合go的人�
 
 小时候洗澡淹死的于谦是吧 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 38048#       发表于 2025-3-17 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67674658&amp;ptid=2208921" target="_blank">聋与唬 发表于 2025-3-17 18:40</a>
+
+从逻辑上说，初华比初音更有动机离家出走。有没有可能初音和初华小时候就互换过身份，其实初音就是初华，初 ...</blockquote>
+你是你妹系列
+
