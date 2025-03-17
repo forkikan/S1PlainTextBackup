@@ -11682,3 +11682,34 @@ KKR 老仙在，
 
 祥子听到春日影，认为自己被灯等人给忘了吧。所以给自己取名OB一串字母。
 
+
+*****
+
+####  ads147147  
+##### 38008#       发表于 2025-3-17 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67672040&amp;ptid=2208921" target="_blank">DD-963 发表于 2025-3-17 13:59</a>
+
+祥子听到春日影，认为自己被灯等人给忘了吧。所以给自己取名OB一串字母。 ...</blockquote>
+应该是反过来解释的：
+
+想要忘却的忘不了，ob一串字母；
+
+想要悲伤却因为悲伤而获得自己存在的实感，do一串字母；
+
+然后意识到ob一串和do一串相互镜像了。
+
+不过剩下的就是真的恐惧，真的死过，和真的爱过的三位了。。。
+
+*****
+
+####  钦念以忱  
+##### 38009#       发表于 2025-3-17 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67670277&amp;ptid=2208921" target="_blank">YF29 发表于 2025-3-17 10:09</a>
+
+那ave mujica的世界观呢？这个队为什么要叫ave mujica呢？一集内能回收完吗？</blockquote>
+对啊，mygo里面这个mygo的名字和主题语一瞬一瞬组成一生，都是故事的主线明明白白拍出来的。
+
+ave mujica里乐队名什么意思，ave mujica的世界是啥样的，那句主题语永恒的虚假箱庭，全都没实际拍出来，也许有些解读里说作品主线其实暗喻了这些，但没拍出来很多观众感受不到，甚至未来还可能会被柿本访谈推翻。
+
