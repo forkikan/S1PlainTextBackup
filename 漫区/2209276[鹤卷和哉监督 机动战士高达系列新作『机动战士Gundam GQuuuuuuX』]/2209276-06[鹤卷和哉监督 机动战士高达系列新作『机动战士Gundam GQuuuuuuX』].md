@@ -16337,3 +16337,14 @@ https://x.com/arakichi1969/status/1901436557598613741?s=19
 
 2025-3-17 14:14 上传
 
+
+*****
+
+####  任天索尼子  
+##### 8697#       发表于 2025-3-17 14:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67672151&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-3-17 14:15</a>
+
+此外你看他的EVA漫画结局</blockquote>
+问题漫画不是贞本义行画的吗 
+
