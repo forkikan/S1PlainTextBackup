@@ -16421,3 +16421,29 @@ https://x.com/arakichi1969/status/1901436557598613741?s=19
 那也是在这之后extra stage的玛丽的那一部分吧？</blockquote>
 其实二者基调完全不一样
 
+
+*****
+
+####  岸浪白野  
+##### 8705#       发表于 2025-3-17 16:26
+
+[X 上的 ノビタ：“[url]https://t.co/553wevjsHj](https://x.com/nobita_4/status/1901052888564330905)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202503/17/162519iwzkt6iv13ns6hou.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.24 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-17 16:25 上传
+
+[X 上的 たき：“マチュ [url]https://t.co/blMBXmx5sh](https://x.com/illustkaku_taki/status/1901256437516628028)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202503/17/162607phwknyyjelch4q4k.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.41 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-17 16:26 上传
+
