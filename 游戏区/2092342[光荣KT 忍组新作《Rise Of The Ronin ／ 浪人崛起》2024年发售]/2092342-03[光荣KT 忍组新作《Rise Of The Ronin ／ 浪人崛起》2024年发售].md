@@ -1971,3 +1971,14 @@ Ver1.09.0.1 2025/03/14Steam®
 
 13小时还没出横滨，刚拿到相机拍了几张照片。黑夜难度已经是乱砍了，开始爽了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  手铐君  
+##### 3600#       发表于 2025-3-18 00:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67676492&amp;ptid=2092342" target="_blank">cherry__ 发表于 2025-3-17 23:48</a>
+
+刚玩完天国拯救，到处在东京找回横滨的马车</blockquote>
+这游戏一周目后期技能点其实就是溢出的
+
