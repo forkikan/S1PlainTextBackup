@@ -12084,3 +12084,30 @@ go里的设计就是正确的设计吗？有没有可也是为了配合go的人�
 
 又开始了，这就不得不提我们黑爱音当年在设定里的老英伦气质了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  结衣小比取  
+##### 38042#       发表于 2025-3-17 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67670490&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-3-17 10:36</a>
+
+... 而且见祥父已经是出道后的事了 ...</blockquote>
+和清告相遇的时候好像并没出道
+
+<img src="https://img.saraba1st.com/forum/202503/17/182025au7hmzzhgg9c4sgk.jpg" referrerpolicy="no-referrer">
+
+<strong>大厦亮相活动.jpg</strong> (197.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-17 18:20 上传
+
+
+*****
+
+####  半年  
+##### 38043#       发表于 2025-3-17 18:26
+
+<img src="https://p.sda1.dev/22/d5efdcd9f661252cd9eb6d9a95df2119/QQ图片20250317182516.gif" referrerpolicy="no-referrer">
+
