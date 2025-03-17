@@ -16290,3 +16290,21 @@ https://x.com/arakichi1969/status/1901436557598613741?s=19
 
 一直听说鹤卷是铁血香党，想问问这都是从哪看到的？有没有访谈啥的指个路（
 
+
+*****
+
+####  猪突猛进R  
+##### 8694#       发表于 2025-3-17 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67671545&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-3-17 12:45</a>
+
+一直听说鹤卷是铁血香党，想问问这都是从哪看到的？有没有访谈啥的指个路（ ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202503/17/124817ieyqoi66i6y33z2r.jpg" referrerpolicy="no-referrer">
+
+<strong>0f830cf431adcbefb9b4e448bbaf2edda2cc9f9a.jpg</strong> (253.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-17 12:48 上传
+
