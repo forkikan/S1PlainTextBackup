@@ -11788,3 +11788,48 @@ ave mujica ...</blockquote>
 刚刚才发现，原来祥母是贝阿朵莉切啊，柿本你还真是满脑子都是海猫呢</blockquote>
 清告，汝好无能！
 
+
+*****
+
+####  aptx8285144  
+##### 38016#       发表于 2025-3-17 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67671625&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-17 12:58</a>
+
+其实初音最终给予了祥子一路选择的人生一点意义不是吗？
+
+祥子为了拯救父亲放弃了大小姐生活、从月之森转学 ...</blockquote>
+如果只看这段话，可能会让人觉得初音在剧本存在感十足，实际上先是大喵，接着是睦，分别才是剧情主角和互动主角，邦邦历史级别的路人主唱后，接着是“路人女主"<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  adretyu67.  
+##### 38017#       发表于 2025-3-17 15:30
+
+ 本帖最后由 adretyu67. 于 2025-3-17 15:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67672857&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-17 15:27</a>
+
+如果只看这段话，可能会让人觉得初音在剧本存在感十足，实际上先是大喵，接着是睦，分别才是剧情主角和互 ...</blockquote>
+不掌握核心控制权的主唱是容易路边。
+
+第三季RAS剧情里被otae点醒前的layer也是路边主唱，ras主轴是chu2
+
+没错，“主唱是星星”这话就是otae拿来点layer的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DD-963  
+##### 38018#       发表于 2025-3-17 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67672466&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-3-17 14:50</a>
+
+应该是反过来解释的：
+
+想要忘却的忘不了，ob一串字母；
+
+想要悲伤却因为悲伤而获得自己存在的实感，do一串 ...</blockquote>
+祥子组MUJICA是为了向MYGO复仇，无畏（昔日乐队伙伴的）忘却。
+
+初华是老登和初母悲（伤之）情的结晶，她要克服自己的出生，所以说无畏悲伤。
+
