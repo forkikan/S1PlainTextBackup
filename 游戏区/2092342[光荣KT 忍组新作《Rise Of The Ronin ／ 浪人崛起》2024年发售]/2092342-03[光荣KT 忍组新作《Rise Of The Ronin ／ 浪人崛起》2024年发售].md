@@ -1943,3 +1943,13 @@ Ver1.09.0.1 2025/03/14Steam®
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">到了第二章才发现村山好感度没刷满会少一个魅力技能点，会导致技能点不满吗
 
+
+*****
+
+####  Booorunestud  
+##### 3597#       发表于 2025-3-17 20:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67675511&amp;ptid=2092342" target="_blank">cherry__ 发表于 2025-3-17 20:49</a>
+到了第二章才发现村山好感度没刷满会少一个魅力技能点，会导致技能点不满吗 ...</blockquote>
+虽然不知道会不会导致点不满，但长屋里可以随时回去第一章
+
