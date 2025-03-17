@@ -17113,3 +17113,13 @@ Z是搭上了那时的环保潮流吧，奥古和提坦斯互相指责对面污�
 
 感觉可以考虑一下喵安要以什么理由跟去地球了，毕竟她既没有染上kirakira憝地球也没啥向往。没准是家人线索？可是现在突然出现的话会不会有点过于巧合了？
 
+
+*****
+
+####  璇瑢子R  
+##### 8763#       发表于 2025-3-18 05:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67676987&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-3-18 03:42</a>
+感觉可以考虑一下喵安要以什么理由跟去地球了，毕竟她既没有染上kirakira憝地球也没啥向往。没准是家人线索 ...</blockquote>
+也可以是给她派活的组织要她去地球
+
