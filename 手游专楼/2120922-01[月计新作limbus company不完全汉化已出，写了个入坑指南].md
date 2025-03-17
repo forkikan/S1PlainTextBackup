@@ -159,3 +159,164 @@
 
 狂气建议最好留一个大保底（200抽）到限定再抽
 
+
+*****
+
+####  Jamaisvu  
+##### 1111#       发表于 2025-3-17 17:14
+
+韩国游戏论坛arcalive搞了一个边狱公司二周年投票，搬一些比较有看点的排名：
+
+首先是罪人人气投票：
+
+<img src="https://img.saraba1st.com/forum/202503/17/164924rnwr3g472r2otcpw.jpg" referrerpolicy="no-referrer">
+
+<strong>9194D1FAE6BBAFB943832485A6A96351.jpg</strong> (165.7 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-3-17 16:49 上传
+
+在个人主线章节有出色表现的四位脱颖而出，至于浮士德和良秀可能吃了颜值的福利...
+
+执柄辛和魔王夫都很有逼格但和本尊差距有点大，不可同日而语...
+
+最受欢迎NPC：
+
+<img src="https://img.saraba1st.com/forum/202503/17/165146o88bbiese737gj77.jpg" referrerpolicy="no-referrer">
+
+<strong>F62A20AA17594C9C944B684BF28AB793.jpg</strong> (166 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-3-17 16:51 上传
+
+神曲二人组占领冠亚军，虽然但丁这个主控能否算NPC存疑...
+
+老唐和亚哈凭借惊人的执念完成了超乎寻常的人物塑造，至于惜春嘛...可爱即正义。
+
+最受欢迎EGO：
+
+<img src="https://img.saraba1st.com/forum/202503/17/165355sf84r1ms1ka2wkw0.jpg" referrerpolicy="no-referrer">
+
+<strong>F1BE34BA5833D2B47926E75A23CDD670.jpg</strong> (204.73 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-3-17 16:53 上传
+
+前五名的人选和人气投票前五名相同，不知道第八章宝子当主角能不能也跻身上流...
+
+最受欢迎人格：
+
+<img src="https://img.saraba1st.com/forum/202503/17/165705wcqwuwcc64ecr3w8.jpg" referrerpolicy="no-referrer">
+
+<strong>FBFEBD31562617A4A9AB70AAA7157B64.jpg</strong> (378.46 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-3-17 16:57 上传
+
+该投票貌似是每个罪人的所属人格总归能投三票，每个用户投三十六票。
+
+此处为十二罪人各自的投票第一位，单人所有人格的排名有十二份，想知道就看原帖吧...
+
+最想成为同事的人格：
+
+<img src="https://img.saraba1st.com/forum/202503/17/170422sj77jjkkbi88j9o1.jpg" referrerpolicy="no-referrer">
+
+<strong>D25CDFA46F09714FF16DE982FF036A06.jpg</strong> (204.98 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-3-17 17:04 上传
+
+梦女狂喜的一集
+
+最喜欢的攻击属性体系队：
+
+<img src="https://img.saraba1st.com/forum/202503/17/170514hhsb7y15y88k1b7i.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>487862fb3de8d11cc689d62ce5bd5b0f0c57d39ee1c39c8a0b1cbeeb4ec7e3cd.webp</strong> (203.78 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-3-17 17:05 上传
+
+刺＞斩＞打
+
+最喜欢的效果属性体系队：
+
+<img src="https://img.saraba1st.com/forum/202503/17/170546x11v4taq4jttv1eq.jpg" referrerpolicy="no-referrer">
+
+<strong>C23F6AF2F71613903811748B5B63E4DD.jpg</strong> (227.3 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-3-17 17:05 上传
+
+也许根本就没有什么呼吸队，或者人人都是呼吸队。二协环指技联血魔...只要有呼吸机，人人都是呼吸队！
+
+最受欢迎的饰品：
+
+<img src="https://img.saraba1st.com/forum/202503/17/170828tjqy02ym1rzxmalq.jpg" referrerpolicy="no-referrer">
+
+<strong>B87FFFE7CB23C6B58E506800B50CDBDF.jpg</strong> (261.29 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-3-17 17:08 上传
+
+意料之中，顺便我肯定不会投月记的，根本没见过几次，上次打十面超长线才在最后一面合了一次...
+
+最受欢迎的异想体：
+
+<img src="https://img.saraba1st.com/forum/202503/17/170937r7k5fi5s0i5r5nr9.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>afcb4f706e26a36e02417f91f377cce73384521a7aed043d82e217a39a1ecdda.webp</strong> (375.85 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-3-17 17:09 上传
+
+基本是脑叶公司的投票。
+
+最想在瓦夜看到的前作势力：
+
+<img src="https://img.saraba1st.com/forum/202503/17/171017u5u5158ng8c4828g.jpg" referrerpolicy="no-referrer">
+
+<strong>8B4D9D8ABE658DC64BB4DAA1D603172C.jpg</strong> (244.54 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-3-17 17:10 上传
+
+我真的很好奇食指的独一和剑刃解放怎么体现，可能类似镜牢的山茶花？
+
+最喜欢的剧情：
+
+<img src="https://img.saraba1st.com/forum/202503/17/171158bc0xjc02cxk452kw.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>e31e5e4f3d7040d4ae6587fe40460b6ae09520bb02a9a22f0ac479b7b1677d6d.webp</strong> (162.78 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-3-17 17:11 上传
+
+圣诞节和去海边的剧情是挺水的，就当献祭给主线了吧...另外去海边的差评也可能和打拳节奏有关...
+
+附上原帖地址：
+
+https://arca.live/b/lobotomycoperation/131369982
+
