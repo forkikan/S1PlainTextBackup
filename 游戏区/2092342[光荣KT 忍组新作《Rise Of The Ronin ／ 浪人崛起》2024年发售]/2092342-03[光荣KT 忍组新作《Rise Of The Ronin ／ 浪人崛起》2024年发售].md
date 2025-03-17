@@ -1963,3 +1963,11 @@ Ver1.09.0.1 2025/03/14Steam®
 虽然不知道会不会导致点不满，但长屋里可以随时回去第一章</blockquote>
 刚玩完天国拯救，到处在东京找回横滨的马车<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  千千千千鸟  
+##### 3599#       发表于 2025-3-18 00:17
+
+13小时还没出横滨，刚拿到相机拍了几张照片。黑夜难度已经是乱砍了，开始爽了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

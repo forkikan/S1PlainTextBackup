@@ -12372,3 +12372,11 @@ go里的设计就是正确的设计吗？有没有可也是为了配合go的人�
 
 很难幻视把 长发金毛和短发金毛还有软伦这死鱼眼
 
+
+*****
+
+####  哈曼的YY  
+##### 38064#       发表于 2025-3-18 00:22
+
+日本人搞中二也喜欢德语 祥老师蹦出来个会德语设定我不会惊讶<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
