@@ -320,3 +320,35 @@
 
 https://arca.live/b/lobotomycoperation/131369982
 
+
+*****
+
+####  Jamaisvu  
+##### 1112#       发表于 2025-3-17 17:55
+
+新人格技能前瞻：
+
+<img src="https://img.saraba1st.com/forum/202503/17/175531fdze5sb5kx3j9oi7.jpg" referrerpolicy="no-referrer">
+
+<strong>ECAC88D6A0BF3C78A1CDF4EA825A61E6.jpg</strong> (310.31 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-3-17 17:55 上传
+
+<img src="https://img.saraba1st.com/forum/202503/17/175532nn0neu7xaiucneyi.jpg" referrerpolicy="no-referrer">
+
+<strong>1742205241924.jpg</strong> (207.73 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-3-17 17:55 上传
+
+黑兽卯的属性是高速破裂，通过三技能和拼点防御获得脚力加速，速度越快伤害和威力越高。
+
+黑兔良的三个技能都是拼点胜利加破裂层数，且三技能速度够快的话可以多打一个币。
+
+破裂队的迭代还挺快的，后悔练提灯箱了...
+

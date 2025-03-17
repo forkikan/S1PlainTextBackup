@@ -767,3 +767,29 @@ alt +回车就能窗口化，不过不能随便拉大小，还是自适应，想
 
 然后有的角色转完再转回来才是完全体，再考虑到书非常缺，所以除了主角，第一次转的时机都需要根据自己个人情况取舍
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 58#         楼主| 发表于 2025-3-17 17:49
+
+你游官推，就剪影，连个公告都没有<img src="https://static.saraba1st.com/image/smiley/face2017/020.png">
+
+<img src="https://img.saraba1st.com/forum/202503/17/174827bt8vyafnmfwn52jm.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-03-17_174626.jpg</strong> (98.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-17 17:48 上传
+
+应该就这两只↓
+
+<img src="https://img.saraba1st.com/forum/202503/17/174855pj2ailxcle0jblji.jpg" referrerpolicy="no-referrer">
+
+<strong>fb6dc9e5d9dc36d4e03e5c0d2c703d01.jpg</strong> (420.16 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-17 17:48 上传
+

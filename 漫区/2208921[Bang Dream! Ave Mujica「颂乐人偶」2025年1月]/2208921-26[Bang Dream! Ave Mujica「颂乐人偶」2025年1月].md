@@ -12068,3 +12068,11 @@ ave mujica ...</blockquote>
 
 大喵不见得算被坑，鼓手是容易被边缘化。
 
+
+*****
+
+####  huxiaopao163  
+##### 38040#       发表于 2025-3-17 17:57
+
+go里的设计就是正确的设计吗？有没有可也是为了配合go的人物塑造变成了工具人，进行了OOC改编<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
