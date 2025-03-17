@@ -1953,3 +1953,13 @@ Ver1.09.0.1 2025/03/14Steam®
 到了第二章才发现村山好感度没刷满会少一个魅力技能点，会导致技能点不满吗 ...</blockquote>
 虽然不知道会不会导致点不满，但长屋里可以随时回去第一章
 
+
+*****
+
+####  cherry__  
+##### 3598#       发表于 2025-3-17 23:48
+
+<blockquote>Booorunestud 发表于 2025-3-17 20:55
+虽然不知道会不会导致点不满，但长屋里可以随时回去第一章</blockquote>
+刚玩完天国拯救，到处在东京找回横滨的马车<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+

@@ -12323,3 +12323,36 @@ go里的设计就是正确的设计吗？有没有可也是为了配合go的人�
 
 【【熟肉】Ave Mujica-最荒唐的动漫营销策略】 [https://www.bilibili.com/video/B ... c7c459dc1b01014d6ad](https://www.bilibili.com/video/BV14jQtY4EHR/?share_source=copy_web&amp;vd_source=9a9a522437e8cc7c459dc1b01014d6ad)
 
+
+*****
+
+####  结衣小比取  
+##### 38060#       发表于 2025-3-17 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67675886&amp;ptid=2208921" target="_blank">凉良 发表于 2025-3-17 22:00</a>
+
+啥游戏 看不到图</blockquote>
+《变态监狱》（日语：ヘンタイ・プリズン、英语：Hentai Prison）的配角“苏菲亚·希可连科”
+
+<img src="https://img.saraba1st.com/forum/202503/17/235404wffufrcy3c3f2r3f.jpg" referrerpolicy="no-referrer">
+
+<strong>PR.jpg</strong> (488.21 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-17 23:54 上传
+
+官网：[https://qruppo.com/products/henpri/](https://qruppo.com/products/henpri/)
+
+性格完全不像的
+
+*****
+
+####  零壹贰叁  
+##### 38061#       发表于 2025-3-17 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67675498&amp;ptid=2208921" target="_blank">FanFun 发表于 2025-3-17 20:47</a>
+最近刚上架游戏的这角色太像了，推的时候老出戏</blockquote>
+软伦也就瞳色和发色像初音/初华了吧
+其他部分完全不是一个类型的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
