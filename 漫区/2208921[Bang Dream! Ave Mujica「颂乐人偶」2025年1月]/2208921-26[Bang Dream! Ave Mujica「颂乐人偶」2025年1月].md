@@ -11935,3 +11935,44 @@ ave mujica ...</blockquote>
 虽然但是，剧情风评翻盘这事在第七话之后就基本不可能了吧</blockquote>
 莫缇丝出来以后第二集没解决就已经很难不翻车了<img src="https://static.saraba1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  金钱与民主  
+##### 38027#       发表于 2025-3-17 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67669752&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-3-17 08:58</a>
+
+下一话预演二创，官方根本不可能做这么好：</blockquote>
+这比官方的好看多了<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 38028#       发表于 2025-3-17 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67673505&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-17 16:33</a>
+
+莫缇丝出来以后第二集没解决就已经很难不翻车了</blockquote>
+好像那就是第四集，酒店混战后，现在回头看内鬼假药全部破产(现在连初音都没有再反转酒店事件的空间了)，这种草台班子让观众们如此找补，这个剧本真是不配<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  是谁的书画  
+##### 38029#       发表于 2025-3-17 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67673594&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-17 16:40</a>
+
+好像那就是第四集，酒店混战后，现在回头看内鬼假药全部破产(现在连初音都没有再反转酒店事件的空间了)， ...</blockquote>
+哎，当时我自己觉得最离谱的假药大概是练金学学说，煞有介事给我看的一愣一愣的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  聪明墨菲特  
+##### 38030#       发表于 2025-3-17 16:47
+
+养父是战人，被人捡到去写剧本了
+
+—— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

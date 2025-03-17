@@ -16447,3 +16447,20 @@ https://x.com/arakichi1969/status/1901436557598613741?s=19
 
 2025-3-17 16:26 上传
 
+
+*****
+
+####  YU_JI  
+##### 8706#       发表于 2025-3-17 16:41
+
+我的HG到了，水贴还没到，等水贴到了再开始拼<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+IMG_4376.jpeg
+(609.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-17 16:41 上传
+
+<img src="https://img.saraba1st.com/forum/202503/17/164131jopx66ao1x6ott3z.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
