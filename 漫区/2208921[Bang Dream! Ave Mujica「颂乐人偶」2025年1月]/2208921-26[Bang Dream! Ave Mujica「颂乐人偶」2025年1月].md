@@ -10987,3 +10987,40 @@ go里这么好的初祥被鸡毁了
 
 [https://x.com/nagomu_7_56/status/1901319680654221524/photo/1](https://x.com/nagomu_7_56/status/1901319680654221524/photo/1)
 
+
+*****
+
+####  一心而用  
+##### 37957#       发表于 2025-3-17 08:48
+
+侠睡：
+
+<img src="https://img.saraba1st.com/forum/202503/17/084828ksjztoojiaswjy3s.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (147.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-17 08:48 上传
+
+
+*****
+
+####  一心而用  
+##### 37958#       发表于 2025-3-17 08:50
+
+<img src="https://img.saraba1st.com/forum/202503/17/085028nkyjj281ilizlkjr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (22.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-17 08:50 上传
+
+*****
+
+####  plusSharp  
+##### 37959#       发表于 2025-3-17 08:52
+
+回想起之前的“忘记一切”，初音在母亲还活着，自己也没成年时就毅然决然的离家出走了，那她对母亲的情感应该是很淡甚至是负数的，所以她在得知人偶是祥母遗物的时候就很难共情。迫真“我早就当她已经死了”
+
