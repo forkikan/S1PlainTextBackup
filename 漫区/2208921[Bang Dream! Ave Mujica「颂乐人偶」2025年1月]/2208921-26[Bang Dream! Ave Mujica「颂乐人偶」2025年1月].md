@@ -11288,3 +11288,41 @@ mujica 的五人与其说是去爱，不如说是想要被爱。爱作为一个�
 爱了又爱，无论再怎么爱，也得不到爱。这就是对于 mujica 这五个人的悲剧性阐述，虽然之前也对此做出过一些 ...</blockquote>
 现在回想，母鸡卡甚至GO时候就有一个很大的问题，大祥的亚撒西绝大多数都在回忆里，而这些亚撒西又和眼前必须赶紧想出办法解决这些棘手的事情是没有直接关系的，这就经常导致很多人对大祥的滤镜有一种魔幻的海市蜃楼般的存在，很难有什么说服力，只会有一种玛丽苏的味道
 
+
+*****
+
+####  厚乳果珍爽  
+##### 37975#       发表于 2025-3-17 10:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67669839&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-17 09:11</a>
+
+爱了又爱，无论再怎么爱，也得不到爱。这就是对于 mujica 这五个人的悲剧性阐述，虽然之前也对此做出过一些 ...</blockquote>
+人偶终究是人偶，人偶是没有爱的能力的，而人偶的价值取决于被爱的程度，没有人爱的人偶终究一文不值。
+
+*****
+
+####  YF29  
+##### 37976#       发表于 2025-3-17 10:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那ave mujica的世界观呢？这个队为什么要叫ave mujica呢？一集内能回收完吗？
+
+
+*****
+
+####  庸necro  
+##### 37977#       发表于 2025-3-17 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67670277&amp;ptid=2208921" target="_blank">YF29 发表于 2025-3-17 10:09</a>
+
+那ave mujica的世界观呢？这个队为什么要叫ave mujica呢？一集内能回收完吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但凡主创里有人在乎这些东西，这么多集就不会这样端出来了
+
+*****
+
+####  syndrome2032  
+##### 37978#       发表于 2025-3-17 10:14
+
+鸡团世界观不是狗13就演过了。
+
+只能说人偶小剧场闹麻了，鸡团闹一大圈也是闹麻了。
+
