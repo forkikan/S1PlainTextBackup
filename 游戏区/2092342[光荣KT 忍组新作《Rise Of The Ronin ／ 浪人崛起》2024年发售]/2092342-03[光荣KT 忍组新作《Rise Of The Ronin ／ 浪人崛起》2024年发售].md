@@ -1982,3 +1982,11 @@ Ver1.09.0.1 2025/03/14Steam®
 刚玩完天国拯救，到处在东京找回横滨的马车</blockquote>
 这游戏一周目后期技能点其实就是溢出的
 
+
+*****
+
+####  kalavinka  
+##### 3601#       发表于 2025-3-18 00:45
+
+看攻略找了几个隐藏山洞打，里面精英比普通通缉犯打起来爽好多<img src="https://static.saraba1st.com/image/smiley/face2017/266.gif" referrerpolicy="no-referrer">
+
