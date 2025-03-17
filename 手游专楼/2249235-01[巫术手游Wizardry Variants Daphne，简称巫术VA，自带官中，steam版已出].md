@@ -813,3 +813,16 @@ alt +回车就能窗口化，不过不能随便拉大小，还是自适应，想
 
 然后看别人说联动作品(BLADE ＆ BASTARD，有小说和漫画)男主职业是武士，不知道怎么处理的
 
+
+*****
+
+####  琉歌  
+##### 61#       发表于 2025-3-17 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67671023&amp;ptid=2249235" target="_blank">macshi 发表于 2025-3-17 11:41</a>
+忍者用的投掷武器什么时候可以入手？好像都没见过这个武器种类。
+另外角色什么时候转职比较好，队友因为要 ...</blockquote>
+wiki说第三个图（要塞）的垃圾会出苦无和忍者刀，不过我还没咋打，最近在推水路其他两条线。之前水路有个限时活动也会出，但我入坑晚了错过了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
