@@ -11205,3 +11205,20 @@ mujica 的五人与其说是去爱，不如说是想要被爱。爱作为一个�
 
 人偶应该是这个不需要了
 
+
+*****
+
+####  cauchua3  
+##### 37966#       发表于 2025-3-17 09:48
+
+人偶后面几话是不是都没出现过了
+
+*****
+
+####  syndrome2032  
+##### 37967#       发表于 2025-3-17 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67670097&amp;ptid=2208921" target="_blank">cauchua3 发表于 2025-3-17 09:48</a>
+人偶后面几话是不是都没出现过了</blockquote>
+10话作曲时候还在背景里。
+
