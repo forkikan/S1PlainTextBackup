@@ -12356,3 +12356,11 @@ go里的设计就是正确的设计吗？有没有可也是为了配合go的人�
 软伦也就瞳色和发色像初音/初华了吧
 其他部分完全不是一个类型的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  凉良  
+##### 38062#       发表于 2025-3-17 23:57
+
+这真幻视不了吧……<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
