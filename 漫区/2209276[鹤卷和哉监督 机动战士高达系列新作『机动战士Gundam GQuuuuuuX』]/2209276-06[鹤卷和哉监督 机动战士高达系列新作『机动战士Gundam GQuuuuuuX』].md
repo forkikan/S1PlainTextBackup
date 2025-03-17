@@ -16318,3 +16318,22 @@ https://x.com/arakichi1969/status/1901436557598613741?s=19
 </blockquote>
 原来是这么个厨法，那我可得担心一下科茉莉少尉的安危了（
 
+
+*****
+
+####  Steel.Haze  
+##### 8696#       发表于 2025-3-17 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67671545&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-3-17 12:45</a>
+
+一直听说鹤卷是铁血香党，想问问这都是从哪看到的？有没有访谈啥的指个路 ...</blockquote>
+此外你看他的EVA漫画结局
+
+<img src="https://img.saraba1st.com/forum/202503/17/141451h2d6leffnf6senwd.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (421.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-17 14:14 上传
+
