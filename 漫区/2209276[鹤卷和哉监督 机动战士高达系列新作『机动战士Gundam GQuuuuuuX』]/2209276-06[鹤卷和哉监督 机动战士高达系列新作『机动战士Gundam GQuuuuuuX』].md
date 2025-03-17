@@ -16389,3 +16389,35 @@ https://x.com/arakichi1969/status/1901436557598613741?s=19
 此外你看他的EVA漫画结局</blockquote>
 漫画不用说了，看完整部给我的感觉就是贞本铁血丽党。香完全被排除在外了
 
+
+*****
+
+####  RE㐅ia  
+##### 8702#       发表于 2025-3-17 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67672354&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-3-17 14:39</a>
+
+是的，这版漫画后面改编部分剧本有鹤卷参与。</blockquote>
+那也是在这之后extra stage的玛丽的那一部分吧？
+
+*****
+
+####  Steel.Haze  
+##### 8703#       发表于 2025-3-17 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67672668&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-3-17 15:09</a>
+
+漫画不用说了，看下来给我最大的感受就是贞本真的铁血丽党不过感觉也不会有什么香党真喜欢漫画的香吧？香 ...</blockquote>
+贞本那不是铁血香党，而是其体内红色流动的物质，就是明日香～
+
+
+*****
+
+####  Steel.Haze  
+##### 8704#       发表于 2025-3-17 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67672749&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-3-17 15:17</a>
+
+那也是在这之后extra stage的玛丽的那一部分吧？</blockquote>
+其实二者基调完全不一样
+
