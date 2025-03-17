@@ -11024,3 +11024,126 @@ go里这么好的初祥被鸡毁了
 
 回想起之前的“忘记一切”，初音在母亲还活着，自己也没成年时就毅然决然的离家出走了，那她对母亲的情感应该是很淡甚至是负数的，所以她在得知人偶是祥母遗物的时候就很难共情。迫真“我早就当她已经死了”
 
+
+*****
+
+####  刑部姬真可爱  
+##### 37960#       发表于 2025-3-17 08:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67669495&amp;ptid=2208921" target="_blank">人又如何 发表于 2025-3-17 07:35</a>
+
+说起来只剩下2集了，祥妈给祥子的金发人偶还能解释吗？按理说大祥在见到初音/初华任何一个人之前这个人偶就 ...</blockquote>
+人偶就是祥子对母亲的精神寄托，然后就没有后续了
+
+
+*****
+
+####  一心而用  
+##### 37961#       发表于 2025-3-17 08:58
+
+下一话预演二创，官方根本不可能做这么好：
+
+<img src="https://img.saraba1st.com/forum/202503/17/085338x7qu8bqqqf39w1n7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (29.57 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-17 08:53 上传
+
+<img src="https://img.saraba1st.com/forum/202503/17/085357dusjzbxr6sq5khkk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (131.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-17 08:53 上传
+
+<img src="https://img.saraba1st.com/forum/202503/17/085404wpfaapsacfaa7lp5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (194.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-17 08:54 上传
+
+<img src="https://img.saraba1st.com/forum/202503/17/085427pqq4bat9apqc4ghc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (183.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-17 08:54 上传
+
+<img src="https://img.saraba1st.com/forum/202503/17/085443x7nay6pzm4m7pcc7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (147.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-17 08:54 上传
+
+<img src="https://img.saraba1st.com/forum/202503/17/085456wpu1xlgpgtx91gx6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (151.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-17 08:54 上传
+
+<img src="https://img.saraba1st.com/forum/202503/17/085552v2nplrra4ac49w4e.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (184.18 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-17 08:55 上传
+
+<img src="https://img.saraba1st.com/forum/202503/17/085609hggqzogdg52bzzg6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (140.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-17 08:56 上传
+
+<img src="https://img.saraba1st.com/forum/202503/17/085630wf1w15xzlldc9czz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (175.79 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-17 08:56 上传
+
+<img src="https://img.saraba1st.com/forum/202503/17/085642tpqp1wjcwq7oq77l.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (119.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-17 08:56 上传
+
+<img src="https://img.saraba1st.com/forum/202503/17/085701npgfffxplknio11k.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (147.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-17 08:57 上传
+
+<img src="https://img.saraba1st.com/forum/202503/17/085721e1wg7ff21w5ymfi5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (137.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-17 08:57 上传
+
+<img src="https://img.saraba1st.com/forum/202503/17/085725dsqnmgq39szss21q.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (41.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-17 08:57 上传
+
