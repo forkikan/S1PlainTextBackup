@@ -16260,3 +16260,33 @@ https://x.com/arakichi1969/status/1901436557598613741?s=19
 
 意难平会不会反映在gqx里
 
+
+*****
+
+####  kykawaiii  
+##### 8691#       发表于 2025-3-17 12:39
+
+那么谁是明日香<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  kuriri  
+##### 8692#       发表于 2025-3-17 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67671486&amp;ptid=2209276" target="_blank">kykawaiii 发表于 2025-3-17 12:39</a>
+
+那么谁是明日香
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+鹤卷：全制作组都知道我喜欢小森这种。
+
+*****
+
+####  RE㐅ia  
+##### 8693#       发表于 2025-3-17 12:45
+
+一直听说鹤卷是铁血香党，想问问这都是从哪看到的？有没有访谈啥的指个路（
+
