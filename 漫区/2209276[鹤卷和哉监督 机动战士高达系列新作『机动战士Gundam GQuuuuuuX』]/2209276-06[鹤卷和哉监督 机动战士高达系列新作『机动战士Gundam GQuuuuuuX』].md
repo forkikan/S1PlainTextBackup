@@ -16348,3 +16348,24 @@ https://x.com/arakichi1969/status/1901436557598613741?s=19
 此外你看他的EVA漫画结局</blockquote>
 问题漫画不是贞本义行画的吗 
 
+
+*****
+
+####  Steel.Haze  
+##### 8698#       发表于 2025-3-17 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67672283&amp;ptid=2209276" target="_blank">任天索尼子 发表于 2025-3-17 14:32</a>
+
+问题漫画不是贞本义行画的吗</blockquote>
+是的，这版漫画后面改编部分剧本有鹤卷参与。
+
+*****
+
+####  任天索尼子  
+##### 8699#       发表于 2025-3-17 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67672354&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-3-17 14:39</a>
+
+是的，这版漫画后面改编部分剧本有鹤卷参与。</blockquote>
+这我还真不知道 有什么资料说明了这点吗
+
