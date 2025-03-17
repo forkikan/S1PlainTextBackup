@@ -11976,3 +11976,15 @@ ave mujica ...</blockquote>
 
 —— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  ntrntr1  
+##### 38031#       发表于 2025-3-17 16:52
+
+<blockquote>聪明墨菲特 发表于 2025-3-17 16:47
+养父是战人，被人捡到去写剧本了
+
+—— 来自 Xiaomi 23113RKC6C, Android 14上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+养父其实没有死，去东京后当了骗术师，诈骗了中登168亿为丰川家复仇。
+
