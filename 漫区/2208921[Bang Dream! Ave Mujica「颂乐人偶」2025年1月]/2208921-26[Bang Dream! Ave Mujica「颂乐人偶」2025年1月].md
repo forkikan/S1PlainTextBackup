@@ -11572,3 +11572,17 @@ KKR 老仙在，
 
 來一個羽花天文部合宿活動吧
 
+
+*****
+
+####  afer  
+##### 38001#       发表于 2025-3-17 12:10
+
+ 本帖最后由 afer 于 2025-3-17 12:13 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">感觉日本人最近一直在意淫资产阶级财阀家大小姐。但无奈在于阶级壁垒过深，对上缺乏想象力，对下没有劳动经验，最后的剧本只能写成皇帝用金扁担挑水的玩意。具体落实就是财阀内斗全靠烂裤裆和白月光的家庭伦理剧，上一个这么搞的是辉夜大小姐，整个透着一股子中学生认知降维打击，打穿连泡面都没吃过惊呼怎么这么好吃的无知资产阶级的优越感。只能说他们连抢公章这种顶级商战烂活都整不出来，只能跟三流媒体小报爆料家族丑闻那桌混，太可怜了。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这在地上爬不是在拷打角色，是在拷打观众，你们看你们喜欢的扭曲人设把唯美滤镜去了不就是这玩意，你看爬过来了，祥子酱<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
+
