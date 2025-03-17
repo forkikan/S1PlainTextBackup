@@ -793,3 +793,13 @@ alt +回车就能窗口化，不过不能随便拉大小，还是自适应，想
 
 2025-3-17 17:48 上传
 
+
+*****
+
+####  琉歌  
+##### 59#       发表于 2025-3-17 18:00
+
+确定是明天开卡池吗？啥信息都不给，感觉已经在准备修bug了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

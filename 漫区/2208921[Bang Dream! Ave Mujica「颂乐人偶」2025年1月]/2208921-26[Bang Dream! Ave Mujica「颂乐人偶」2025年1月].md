@@ -12076,3 +12076,11 @@ ave mujica ...</blockquote>
 
 go里的设计就是正确的设计吗？有没有可也是为了配合go的人物塑造变成了工具人，进行了OOC改编<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  是谁的书画  
+##### 38041#       发表于 2025-3-17 17:59
+
+又开始了，这就不得不提我们黑爱音当年在设定里的老英伦气质了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
