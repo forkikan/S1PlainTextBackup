@@ -10971,3 +10971,19 @@ go里这么好的初祥被鸡毁了
 
 说起来只剩下2集了，祥妈给祥子的金发人偶还能解释吗？按理说大祥在见到初音/初华任何一个人之前这个人偶就存在了，总不至于金发人偶是指代初音她妈吧？
 
+
+*****
+
+####  半年  
+##### 37956#       发表于 2025-3-17 08:27
+
+<img src="https://img.saraba1st.com/forum/202503/17/082727mkdmdprjtxcmc7lr.jpg" referrerpolicy="no-referrer">
+
+<strong>GmLYK8ZaUAAFsjX.jpg</strong> (217.4 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-17 08:27 上传
+
+[https://x.com/nagomu_7_56/status/1901319680654221524/photo/1](https://x.com/nagomu_7_56/status/1901319680654221524/photo/1)
+
