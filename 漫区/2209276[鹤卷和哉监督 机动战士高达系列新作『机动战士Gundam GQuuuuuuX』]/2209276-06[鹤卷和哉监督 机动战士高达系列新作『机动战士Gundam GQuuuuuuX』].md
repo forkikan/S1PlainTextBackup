@@ -16907,3 +16907,59 @@ bit掉光了，一时半会没法补件，那确实得给阿尔法塞可缪安�
 
 魔女的声优给我一种中年阿姨的感觉，感觉这个角色大概率不是麻球同龄人。那么她的mav是在oyw时期被鸭子干掉的可能性就很大了。可怜的背锅侠牢修
 
+
+*****
+
+####  岸浪白野  
+##### 8748#       发表于 2025-3-17 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67675973&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-3-17 22:13</a></blockquote>
+
+<img src="https://img.saraba1st.com/forum/202503/17/232658mwxar8wy8fm8x9yh.png" referrerpolicy="no-referrer">
+
+<strong>LB3`72AT1351GO2M5YSMN[P.png</strong> (159.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-17 23:26 上传
+
+<img src="https://img.saraba1st.com/forum/202503/17/232742pk59ggnudcmn5lzn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (96 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-17 23:27 上传
+
+
+*****
+
+####  岸浪白野  
+##### 8749#       发表于 2025-3-17 23:33
+
+ 本帖最后由 岸浪白野 于 2025-3-17 23:35 编辑 
+
+[『ジークアクス』効果でファーストガンダム→『Z』組が急増中　「カミーユに普通に共感できる」の声（マグミクス） - Yahoo!ニュース](https://news.yahoo.co.jp/articles/2fbbac8aa575800d5c62b25f885232408327e5c2?utm_content=buffer9a96d&amp;utm_medium=social&amp;utm_source=twitter.com&amp;utm_campaign=buffer)
+
+<img src="https://img.saraba1st.com/forum/202503/17/233035mmqthz6csrcrqkaz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (713.34 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-17 23:30 上传
+
+『GQuuuuuuX』效应：初代高达→《Z》系列观众激增，「能对卡缪产生共鸣」的反应
+
+现在的时代更容易产生共鸣吗？
+
+自2025年1月17日（周五）开始上映的《机动战士Gundam GQuuuuuuX（Zigu Ax）》以来，从第一部作品开始按顺序观看“高达”系列的新粉丝正在增加。上映一个月后，许多观众已经从初代《机动战士高达》推进到《机动战士Z高达》，社交媒体上不断涌现出新鲜的感想。
+
+特别有趣的是对主人公卡缪·比丹的反应。虽然实时观看的老粉丝们常说“当时无法对卡缪产生共鸣或代入感”，但新粉丝们却意外地表现出好感，比如“大家都说无法代入卡缪，但我现在完全可以”。
+
+另一方面，也有部分粉丝对卡缪的古怪性格感到困惑，表示“明明是主角，却完全无法代入”。一位新粉丝表示：“这或许就是高达的趣味所在吧。”他对主角评价的分化感到很有趣。
+
+此外，还有“被卡缪的成长故事吸引”“奥古和提坦斯的对立结构很有趣”等触及作品本质的感想，新粉丝们以独特的视角重新发现了作品的魅力。
+
+对于这些新粉丝的诞生，老粉丝们似乎也在温暖地关注着。他们欣喜于新粉丝们“虽然不太懂，但觉得很厉害”的直率反应，并认为《Zigu Ax》的功劳在于吸引了那些即使不理解作品细节也能纯粹享受的观众。
+
