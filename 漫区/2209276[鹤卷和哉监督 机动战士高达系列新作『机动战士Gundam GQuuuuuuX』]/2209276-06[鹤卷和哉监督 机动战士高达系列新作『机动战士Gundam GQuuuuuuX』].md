@@ -17026,3 +17026,18 @@ Z是搭上了那时的环保潮流吧，奥古和提坦斯互相指责对面污�
 
 国内上映时间定了吗
 
+
+*****
+
+####  RE㐅ia  
+##### 8755#       发表于 2025-3-18 01:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67676440&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-3-17 23:41</a>
+
+声优本身年龄另说，
+
+剧中怎么听都是往少女那边配的，强调年龄感的话参考一下安琪和基西莉亚
+
+最多也就是小 ...</blockquote>
+给我的感觉就是mqm那样的？中年确实算不上但是就听着也不像是十几来岁的人
+
