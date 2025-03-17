@@ -12281,3 +12281,14 @@ go里的设计就是正确的设计吗？有没有可也是为了配合go的人�
 
 对人格来说，真正的死亡不是融合，是不再使用，也就是被忘却。本质和人偶一样。
 
+
+*****
+
+####  凉良  
+##### 38056#       发表于 2025-3-17 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67675498&amp;ptid=2208921" target="_blank">FanFun 发表于 2025-3-17 20:47</a>
+
+最近刚上架游戏的这角色太像了，推的时候老出戏</blockquote>
+啥游戏 看不到图
+
