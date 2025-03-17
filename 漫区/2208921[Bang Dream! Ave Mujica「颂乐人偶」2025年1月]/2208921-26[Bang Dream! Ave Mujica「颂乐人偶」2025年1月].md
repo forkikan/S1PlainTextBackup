@@ -11911,3 +11911,27 @@ ave mujica ...</blockquote>
 
 写出来就感觉好蠢。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 38025#       发表于 2025-3-17 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67673011&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-3-17 15:46</a>
+
+11话最让人难受的地方就是它是第11话吧，就剩1、2集给你折腾了，我实在想不出制作组怎么逆风翻盘
+
+舞台剧本 ...</blockquote>
+虽然但是，剧情风评翻盘这事在第七话之后就基本不可能了吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  是谁的书画  
+##### 38026#       发表于 2025-3-17 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67673466&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-17 16:28</a>
+
+虽然但是，剧情风评翻盘这事在第七话之后就基本不可能了吧</blockquote>
+莫缇丝出来以后第二集没解决就已经很难不翻车了<img src="https://static.saraba1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">
+
