@@ -12111,3 +12111,26 @@ go里的设计就是正确的设计吗？有没有可也是为了配合go的人�
 
 <img src="https://p.sda1.dev/22/d5efdcd9f661252cd9eb6d9a95df2119/QQ图片20250317182516.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  油画布  
+##### 38044#       发表于 2025-3-17 18:30
+
+<blockquote>huxiaopao163 发表于 2025-3-17 17:57
+go里的设计就是正确的设计吗？有没有可也是为了配合go的人物塑造变成了工具人，进行了OOC改编
+
+比如mygo里没 ...</blockquote>
+有我大概不会坐在这看鸡了，从源头上解决问题了
+
+
+*****
+
+####  哈曼的YY  
+##### 38045#       发表于 2025-3-17 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67669752&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-3-17 08:58</a>
+
+下一话预演二创，官方根本不可能做这么好：</blockquote>
+太有团魂了 感觉是进手游几年后的状态
+
