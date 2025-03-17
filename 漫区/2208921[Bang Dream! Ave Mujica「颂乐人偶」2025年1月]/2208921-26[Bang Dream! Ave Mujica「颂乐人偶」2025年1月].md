@@ -11547,3 +11547,28 @@ mujica 的五人与其说是去爱，不如说是想要被爱。爱作为一个�
 
 mujica再怪也就剩下2话 看进了游戏还能怎么闹麻
 
+
+*****
+
+####  z-hunter  
+##### 37999#       发表于 2025-3-17 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67670985&amp;ptid=2208921" target="_blank">mono 发表于 2025-3-17 11:37</a>
+
+手游里灯已经被天文部怪人kkr和hina捕获了
+
+https://www.bilibili.com/video/BV1mjQXYYEZx</blockquote>
+我反而期待让天文部的三个电波人带上初华（初音？）去看星星，治一治她的老祥病<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  南宮凝香  
+##### 38000#       发表于 2025-3-17 11:43
+
+KKR 老仙在， 
+
+不怕初音亂跳
+
+來一個羽花天文部合宿活動吧
+
