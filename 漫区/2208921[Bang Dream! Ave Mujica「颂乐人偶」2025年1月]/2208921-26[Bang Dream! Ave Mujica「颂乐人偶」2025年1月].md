@@ -12144,3 +12144,11 @@ go里的设计就是正确的设计吗？有没有可也是为了配合go的人�
 
 —— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
+
+*****
+
+####  mono  
+##### 38047#       发表于 2025-3-17 19:22
+
+小时候洗澡淹死的于谦是吧 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
