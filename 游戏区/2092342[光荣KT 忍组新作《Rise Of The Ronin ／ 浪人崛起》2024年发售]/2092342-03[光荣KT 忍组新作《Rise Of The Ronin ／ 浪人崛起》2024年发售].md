@@ -1935,3 +1935,11 @@ Ver1.09.0.1 2025/03/14Steam®
 
 最乐的是FF7RB一片扫榜之下看到龙马和高杉分别喜提最佳角色、最佳声优提名，就排在Tifa/坂本真绫下面<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cherry__  
+##### 3596#       发表于 2025-3-17 20:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">到了第二章才发现村山好感度没刷满会少一个魅力技能点，会导致技能点不满吗
+

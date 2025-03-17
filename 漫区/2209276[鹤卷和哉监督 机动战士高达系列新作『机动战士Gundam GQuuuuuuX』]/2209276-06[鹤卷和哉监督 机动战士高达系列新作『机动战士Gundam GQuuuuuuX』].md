@@ -16702,3 +16702,44 @@ bit掉光了，一时半会没法补件，那确实得给阿尔法塞可缪安�
 
 ［沙伦的玫瑰］就是玫瑰？
 
+
+*****
+
+####  RE㐅ia  
+##### 8729#       发表于 2025-3-17 20:45
+
+<blockquote>刺客ares 发表于 2025-3-17 20:35
+夏利亚观战时候的台词，语气不怎么着急啊
+
+都有点像是心理活动音，可能这次魔女来袭是真没什么大事发生？真 ...</blockquote>
+当年zeknova就在他眼前发生时他的心里os也不是很急（
+
+*****
+
+####  Gysumitka  
+##### 8730#       发表于 2025-3-17 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67675486&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-3-17 20:45</a>
+当年zeknova就在他眼前发生时他的心里os也不是很急（</blockquote>
+不急是指嘴上大喊让鸭子撤离吗<img src="https://static.saraba1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+
+*****
+
+####  纪寞  
+##### 8731#       发表于 2025-3-17 20:49
+
+塞可缪发光了，我不玩了<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  中野梓  
+##### 8732#       发表于 2025-3-17 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67675509&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-3-17 20:49</a>
+
+塞可缪发光了，我不玩了</blockquote>
+扎古驾驶员：A1高闪来一个好吗
+
+番茄瞎
+

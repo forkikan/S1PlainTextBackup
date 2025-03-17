@@ -12209,3 +12209,13 @@ go里的设计就是正确的设计吗？有没有可也是为了配合go的人�
 
 剩下的就只有看回来的睦能继承多少莫的特色了。
 
+
+*****
+
+####  FanFun  
+##### 38053#       发表于 2025-3-17 20:47
+
+<[img src="https://s21.ax1x.com/2025/03/17/pEdGCeU.jpg" referrerpolicy="no-referrer">
+
+最近刚上架游戏的这角色太像了，推的时候老出戏<img src="https://static.saraba1st.com/image/smiley/carton2017/487.png" referrerpolicy="no-referrer">
+
