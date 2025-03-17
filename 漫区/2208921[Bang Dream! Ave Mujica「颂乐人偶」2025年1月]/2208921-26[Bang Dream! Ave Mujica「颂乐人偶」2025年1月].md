@@ -12394,3 +12394,24 @@ go里的设计就是正确的设计吗？有没有可也是为了配合go的人�
 
 2025-3-18 00:43 上传
 
+
+*****
+
+####  钦念以忱  
+##### 38066#       发表于 2025-3-18 01:10
+
+按照祥子剧本说，🐘老师可是拉丁语都会的，法语、德语，小case啦
+
+
+*****
+
+####  大丈夫萌大乃  
+##### 38067#       发表于 2025-3-18 01:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67676532&amp;ptid=2208921" target="_blank">零壹贰叁 发表于 2025-3-17 23:54</a>
+
+软伦也就瞳色和发色像初音/初华了吧
+
+其他部分完全不是一个类型的啊</blockquote>
+隔壁独自升级那个像成熟版的牢初,正好也没存在感,还正好吃了个大瘪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
