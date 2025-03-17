@@ -16799,3 +16799,14 @@ bit掉光了，一时半会没法补件，那确实得给阿尔法塞可缪安�
 
 突然有个疑问啊，像gto 雷霆宙域 gux这种平行uc，和正传uc是一个世界吗？因为万代之前设定所有的高达动画都是一个宇宙，最后都会被倒a变成黑历史，还是说这种平行uc也有属于自己的平行世界的倒a？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  中野梓  
+##### 8739#       发表于 2025-3-17 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67675727&amp;ptid=2209276" target="_blank">g救世主高达 发表于 2025-3-17 21:27</a>
+
+突然有个疑问啊，像gto 雷霆宙域 gux这种平行uc，和正传uc是一个世界吗？因为万代之前设定所有的高达动画都 ...</blockquote>
+你问他们这些，老登们已经说了只是一个假想故事，不存在什么平行世界
+
