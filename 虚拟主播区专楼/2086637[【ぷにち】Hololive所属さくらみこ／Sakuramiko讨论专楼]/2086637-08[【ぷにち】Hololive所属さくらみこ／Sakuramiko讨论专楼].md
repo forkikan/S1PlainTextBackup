@@ -2299,3 +2299,82 @@ geekjack给了充足的200份而且每人限2份，这个点还有60%没卖出�
 
 2025-3-15 18:22 上传
 
+
+*****
+
+####  holofan  
+##### 10924#       发表于 2025-3-16 20:26
+
+<strong>ソフマップ・ビックカメラグループ</strong>
+
+特典「A3クリアポスター」
+
+<img src="https://img.saraba1st.com/forum/202503/16/201634iiehbf0jljik9xax.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (107.64 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-16 20:16 上传
+
+<strong>ステラワース</strong>
+
+特典「2L判ブロマイド」
+
+<img src="https://img.saraba1st.com/forum/202503/16/201734iub8l0i7lp8a7b4c.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (114.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-16 20:17 上传
+
+<strong>WonderGOO</strong>
+
+特典「描き下ろしB2タペストリー・クリアファイル」
+
+<img src="https://img.saraba1st.com/forum/202503/16/201858xyzyoyueguhoi1yt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (134.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-16 20:18 上传
+
+<strong>ゲーマーズ</strong>
+
+特典「ゲーマーズアクリルキーホルダー2種セット」
+
+<img src="https://img.saraba1st.com/forum/202503/16/202559lr9afrizcagz9vf9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (389.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-16 20:25 上传
+
+<strong>楽天ブックス</strong>
+
+特典 通常版「アクリルキーホルダー」限定版「アクリルプレート A6サイズ」
+
+<img src="https://img.saraba1st.com/forum/202503/16/202414rdi2asod1227asy4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (99.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-16 20:24 上传
+
+<strong>あみあみ</strong>
+
+特典「A2クリアポスター(メインビジュアル)・アクリルジオラマスタンド」
+
+*****
+
+####  holofan  
+##### 10925#       发表于 2025-3-17 20:27
+
+azkimiko！？
+
+电波最对不上的2个人，什么异端推
+
