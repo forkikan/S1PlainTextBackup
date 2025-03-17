@@ -826,3 +826,28 @@ wiki说第三个图（要塞）的垃圾会出苦无和忍者刀，不过我还�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  elven119  
+##### 62#       发表于 2025-3-17 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67671023&amp;ptid=2249235" target="_blank">macshi 发表于 2025-3-17 11:41</a>
+
+忍者用的投掷武器什么时候可以入手？好像都没见过这个武器种类。
+
+另外角色什么时候转职比较好，队友因为要 ...</blockquote>
+第三章要塞10f，金箱子一定概率出忍者装备箱，里面开
+
+*****
+
+####  elven119  
+##### 63#       发表于 2025-3-17 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67672023&amp;ptid=2249235" target="_blank">废柴失格 发表于 2025-3-17 13:57</a>
+
+打进贸易水路了，真不容易。总算摸到一点开局思路，这个游戏的核心机制是如何越级打怪农装备跟经验。属性成 ...</blockquote>
+骑士在第三章boss战会大放异彩，第三章boss会一个高伤aoe，一下差不多全队600-800的伤害，目前60级队伍也抗不了，骑士50级后会学一个全队伤害减少50%的罩子，就靠这个罩子才能打
+
+说白了，骑士就是针对boss的专属职业，平时农装备可以不带，但是打boss一定带一只非常安心
+
