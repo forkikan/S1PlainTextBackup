@@ -929,3 +929,11 @@ PV2：[https://youtu.be/2u-RIQst_N4](https://youtu.be/2u-RIQst_N4)
 这么省OP直接用游戏OP?</blockquote>
 KEY社作品动画化第一个OP都是直接用游戏OP的
 
+
+*****
+
+####  怀特布莱克  
+##### 79#       发表于 2025-3-17 08:20
+
+草了我都忘了key社已经卖身给南极贱畜了
+
