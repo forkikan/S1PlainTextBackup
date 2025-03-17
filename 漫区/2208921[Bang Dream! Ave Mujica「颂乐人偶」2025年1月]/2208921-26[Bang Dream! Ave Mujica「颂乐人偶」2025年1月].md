@@ -12172,3 +12172,30 @@ go里的设计就是正确的设计吗？有没有可也是为了配合go的人�
 贴吧刷到的图
 我都忘了大祥高一而且瑞士是德语区了<img src="https://p.sda1.dev/22/0f21043062e18c2aa4b82808d4c2d909/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhoujin8584  
+##### 38050#       发表于 2025-3-17 20:23
+
+<blockquote>钦念以忱 发表于 2025-3-17 17:03
+睦墨这个二人转设计很奇妙，avemujica1.0到avemujica2.0，mortis一直是力挺支持avemujica的立场，但实际上a ...</blockquote>
+好惨一小墨，所以这样的设计本质还是为睦服务，让睦能够继承之前缺失的社交关系，成为mujica2.0的团宠。
+
+包括柿本在场内场外也是从不避讳拆mortis的台，没守住、违背初心、不需要的、自欺欺人、连演技都没睦好了。
+
+然后对睦各种无垢啊、接近无垢啊，融合完真正无垢啊。
+
+唯一的温柔大概是安排喵梦对莫表白了，莫以为的社交优势、演技才能，在大喵这都是睦子的，即使如此，我仍然看见你，嫉妒你，爱着你。
+
+即使没能成为人类也能得到爱，很温柔的表达了。
+
+*****
+
+####  凉良  
+##### 38051#       发表于 2025-3-17 20:23
+
+<img src="https://x.com/anime_tokyo/status/1901574229402984862/photo/1" id="aimg_WxOb8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+这就是融合后的新睦头么
+
