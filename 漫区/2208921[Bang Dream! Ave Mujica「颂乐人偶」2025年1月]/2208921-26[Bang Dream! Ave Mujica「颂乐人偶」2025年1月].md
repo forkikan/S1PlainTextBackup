@@ -13170,3 +13170,26 @@ HP: [https://anime.bang-dream.com/avemujica/story/](https://anime.bang-dream.com
 如果那个是真的，那我只能说初音在一些人的评价里可能 ...</blockquote>
 舅舅说什么了，不会是mana回岛上给真初华唱歌那个吧？
 
+
+*****
+
+####  油画布  
+##### 38132#       发表于 2025-3-18 12:59
+
+卧槽这不可能吧 20分钟容得下这尊大佛？ 
+
+
+*****
+
+####  久井路路  
+##### 38133#       发表于 2025-3-18 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67679287&amp;ptid=2208921" target="_blank">油画布 发表于 2025-3-18 12:53</a>
+
+真初华应该和初音的形象有差别吧，扎个辫子留个长发之类的</blockquote>
+昨天我正好看见日本人讨论这个来着，大概是这么说的：
+
+假如这个岛通网络，那即使原本初华和初音形象一样，现在怕不是也拼了命在留长发改样子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">摘了面具证实那位偶像加入了爆火的母鸡卡之后，母鸡卡那些危险的歌词更会给初华的同学们上弹药，越想象越觉得是个宁愿毁容也想和老姐切割的场景
+
+当然邦邦是温柔的世界，肯定不至于如此就是了
+
