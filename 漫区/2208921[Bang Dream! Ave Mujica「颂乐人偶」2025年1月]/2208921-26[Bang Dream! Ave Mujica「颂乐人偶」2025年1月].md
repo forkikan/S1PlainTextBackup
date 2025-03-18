@@ -13242,3 +13242,27 @@ HP: [https://anime.bang-dream.com/avemujica/story/](https://anime.bang-dream.com
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">反田明明很好看，不知道为什么总能修图修成桥本有菜
 
+
+*****
+
+####  帆前  
+##### 38139#       发表于 2025-3-18 13:47
+
+其实我最近在想，crychic时期假装阳角尝试融入团队的soyo，mygo前期假装温柔暗中操作的soyo，都有特别狡黠的时候，会轻描淡写地用开人玩笑甚至是刺人的办法去活跃气氛，但是mygo最后到现在的soyo好像失去了这种狡黠，我感觉soyo的腹黑再也没有以前独特的味道了。
+
+现在soyo的腹黑我感觉无非就是三板斧样板戏，😭可恶，我想看mygo第三集里甚至会开祥子玩笑的，那个soyo啊，那个，不管对谁都能轻轻开玩笑的soyo啊
+<img src="https://p.sda1.dev/22/a1601519e48d756b118b04a55eb9265b/Screenshot_20250318_132141_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  油画布  
+##### 38140#       发表于 2025-3-18 13:53
+
+<blockquote>帆前 发表于 2025-3-18 13:47
+其实我最近在想，crychic时期假装阳角尝试融入团队的soyo，mygo前期假装温柔暗中操作的soyo，都有特别狡黠 ...</blockquote>
+
+哇卡里吗斯。
+
+我算是对鸡很失望的素厨了，虽然好多人觉得她拿了mvp，但我觉得她该做得事都没做，不该由她做的事做了好多
+
