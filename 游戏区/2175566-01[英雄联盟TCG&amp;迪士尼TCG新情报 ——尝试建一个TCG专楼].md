@@ -66,3 +66,36 @@ dtcg也要有电子版了 据说20号发布会有消息</blockquote>
 
 退环境是三十年看来唯一客观上能控制膨胀速度的手段 当然并不是退环境就能控制住就是了。
 
+
+*****
+
+####  patema  
+##### 263#       发表于 2025-3-18 21:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/226.png" referrerpolicy="no-referrer">环境会不会暴走和有没有退环境无关，tcg好不好玩也和环境会不会暴走无关。唯一能与之相关的大概是钱包吧
+
+
+*****
+
+####  凉良  
+##### 264#       发表于 2025-3-18 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67682380&amp;ptid=2175566" target="_blank">patema 发表于 2025-3-18 21:36</a>
+
+环境会不会暴走和有没有退环境无关，tcg好不好玩也和环境会不会暴走无关。唯一能与之相关的大概是钱包吧 ...</blockquote>
+不退环境当然也能控制膨胀 但是难度是退环境路线的倍数。 而设计师的水平很难一直相信。
+
+钱包其实也没啥关系吧 游戏王不退环境不也嗷嗷骗氪。万智牌几个永久环境只要想骗氪就按头出新强度单卡。
+
+*****
+
+####  patema  
+##### 265#       发表于 2025-3-18 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67682403&amp;ptid=2175566" target="_blank">凉良 发表于 2025-3-18 21:40</a>
+
+不退环境当然也能控制膨胀 但是难度是退环境路线的倍数。 而设计师的水平很难一直相信。
+
+钱包其实也没啥 ...</blockquote>
+不是，我说的是唯一能和环境暴走强关联的是钱包，虽然退环境也和钱包有关就是了
+

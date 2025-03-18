@@ -17799,3 +17799,11 @@ OK，ed鸟笼走起
 
 想想上一次在电影院看高达还是高达NT 一转眼这么多年了。
 
+
+*****
+
+####  G2Yike  
+##### 8827#       发表于 2025-3-18 21:40
+
+<strong>不知道从什么时候起，咱们这边的电影宣发就非常流行大字报这种形式了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"></strong>
+
