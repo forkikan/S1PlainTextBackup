@@ -1060,3 +1060,23 @@ wiki说第三个图（要塞）的垃圾会出苦无和忍者刀，不过我还�
 
 31刚过青铜打得过龙吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 84#         楼主| 发表于 2025-3-18 23:52
+
+连击，编辑*
+
+*****
+
+####  风浦可符香(P.N)  
+##### 85#         楼主| 发表于 2025-3-18 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67682840&amp;ptid=2249235" target="_blank">toblkr 发表于 2025-3-18 23:06</a>
+
+31刚过青铜打得过龙吗</blockquote>
+动态难度，装备很好或者操作很溜理论上可以
+
+不过考虑到除了升级，升阶刚好也加难度，所以刚31我觉得难度很大XD
+
