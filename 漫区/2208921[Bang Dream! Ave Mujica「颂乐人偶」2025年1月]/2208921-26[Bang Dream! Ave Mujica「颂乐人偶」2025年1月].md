@@ -13018,3 +13018,13 @@ HP: [https://anime.bang-dream.com/avemujica/story/](https://anime.bang-dream.com
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  remediosOlOOOO  
+##### 38118#       发表于 2025-3-18 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67678521&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-18 11:20</a>
+那只能说第一集第十二集做完才切割的了，算是对前面剧本和大纲的默认了，我纯猜测嗷，豚豚对我手下留情？ ...</blockquote>
+那不默认能怎么办呢，你是要让樱花姨拎着铁棍去威胁柿本吗
+

@@ -912,3 +912,17 @@ wiki说第三个图（要塞）的垃圾会出苦无和忍者刀，不过我还�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  macshi  
+##### 69#       发表于 2025-3-18 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67677677&amp;ptid=2249235" target="_blank">mobdom 发表于 2025-3-18 09:43</a>
+昨天刚开了个号，起始出了骷髅女法师。想问下法师没mp是不是就只能等回旅馆了
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+是，迷宫找泉水回复或者回家睡觉。
+我反正探索新图的时候都是法师尽量省一点。
+熟练图或者farm就一路aoe炸过去。
+

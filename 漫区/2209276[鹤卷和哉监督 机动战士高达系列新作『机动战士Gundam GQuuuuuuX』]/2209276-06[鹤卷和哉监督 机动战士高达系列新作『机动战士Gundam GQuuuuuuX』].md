@@ -17282,3 +17282,11 @@ khara X SUNRISE 梦想的交汇！
 
 —— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  kuriri  
+##### 8778#       发表于 2025-3-18 12:17
+
+虽然但是，我觉得修司不会杀人，甚至整个gqx主角团都不会杀人
+
