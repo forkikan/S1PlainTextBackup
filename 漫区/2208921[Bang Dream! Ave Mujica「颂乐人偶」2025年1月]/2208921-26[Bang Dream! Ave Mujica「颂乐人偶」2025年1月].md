@@ -12524,3 +12524,185 @@ go里的设计就是正确的设计吗？有没有可也是为了配合go的人�
 
 2025-3-18 10:56 上传
 
+
+*****
+
+####  老贝  
+##### 38075#       发表于 2025-3-18 11:00
+
+绫奈本人上了啊。
+
+*****
+
+####  AveMujica  
+##### 38076#         楼主| 发表于 2025-3-18 11:01
+
+#12 Fluctuat nec mergitur. 
+
+疾風怒濤のごとく押し寄せる運命の中、足掻く彼女の手の中に残ったものは……
+
+脚本：綾奈 ゆにこ
+
+絵コンテ：岡 こずえ
+
+演出：大森 大地
+
+CGディレクター：大森 大地
+
+<img src="https://img.saraba1st.com/forum/202503/18/110128yq3o90yggd0ebv9v.png" referrerpolicy="no-referrer">
+
+<strong>9b32866471c95103faaadbfaaef561df1459104794.png</strong> (823.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-18 11:01 上传
+
+<img src="https://img.saraba1st.com/forum/202503/18/110126wztwjj8bth9j0atj.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (909.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-18 11:01 上传
+
+<img src="https://img.saraba1st.com/forum/202503/18/110127o6vca06vajp760et.png" referrerpolicy="no-referrer">
+
+<strong>3.png</strong> (491.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-18 11:01 上传
+
+*****
+
+####  堀内爱里衣  
+##### 38077#       发表于 2025-3-18 11:02
+
+<strong>#12</strong><strong>Fluctuat nec mergitur.</strong>
+
+<img src="https://img.saraba1st.com/forum/202503/18/110133txxgl431qr4zekmo.png" referrerpolicy="no-referrer">
+
+<strong>①-2.png</strong> (1.32 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-18 11:01 上传
+
+<img src="https://img.saraba1st.com/forum/202503/18/110131bere23fa9natt732.png" referrerpolicy="no-referrer">
+
+<strong>②-1.png</strong> (1.51 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-18 11:01 上传
+
+<img src="https://img.saraba1st.com/forum/202503/18/110131go4j7p1hn03fc4nh.png" referrerpolicy="no-referrer">
+
+<strong>③-1.png</strong> (1.56 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-18 11:01 上传
+
+疾风怒涛のごとく押し寄せる运命の中、足掻く彼女の手の中に残ったものは……
+
+脚本：绫奈 ゆにこ
+
+絵コンテ：冈 こずえ
+
+演出：大森 大地
+
+CGディレクター：大森 大地
+[https://anime.bang-dream.com/avemujica/story/](https://anime.bang-dream.com/avemujica/story/)
+[https://t.bilibili.com/1045517019083964436](https://t.bilibili.com/1045517019083964436)
+
+*****
+
+####  adretyu67.  
+##### 38078#       发表于 2025-3-18 11:02
+
+意料之中吧，该包饺子的时候上<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一心而用  
+##### 38079#       发表于 2025-3-18 11:02
+
+#12 Fluctuat nec mergitur. 
+
+3月20日（周四）22:00~
+
+HP: [https://anime.bang-dream.com/avemujica/story/](https://anime.bang-dream.com/avemujica/story/) 
+
+<img src="https://img.saraba1st.com/forum/202503/18/110139wj2sopppzo59wfpn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (55.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-18 11:01 上传
+
+<img src="https://img.saraba1st.com/forum/202503/18/110145rddgieoogfzyeefd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (69.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-18 11:01 上传
+
+<img src="https://img.saraba1st.com/forum/202503/18/110152ri666c36dddzu63b.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (38.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-18 11:01 上传
+
+*****
+
+####  AveMujica  
+##### 38080#         楼主| 发表于 2025-3-18 11:02
+
+完蛋了，独角兽单人脚本<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  UNISONIA  
+##### 38081#       发表于 2025-3-18 11:03
+
+綾奈这时候单人脚本来收初祥线……
+
+*****
+
+####  滑稽Captain  
+##### 38082#       发表于 2025-3-18 11:04
+
+接下来你将见到，十五年未有之樱花姨的小姨xp
+
+*****
+
+####  ads147147  
+##### 38083#       发表于 2025-3-18 11:07
+
+也不至于十五年，eva终才过去6年（）
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  南宮凝香  
+##### 38084#       发表于 2025-3-18 11:07
+
+彼女手中剩下什麼？
+
+草 （即答）
+
+*****
+
+####  刑部姬真可爱  
+##### 38085#       发表于 2025-3-18 11:08
+
+期待一手独角兽的女女“性”关系刻画好吧，刻画得好照样可以切割<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
