@@ -1990,3 +1990,11 @@ Ver1.09.0.1 2025/03/14Steam®
 
 看攻略找了几个隐藏山洞打，里面精英比普通通缉犯打起来爽好多<img src="https://static.saraba1st.com/image/smiley/face2017/266.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  liliguo1  
+##### 3602#       发表于 2025-3-18 09:19
+
+道场这几个超长连段我真是打吐了，更绝的是居然还有被弹完尾刀“一定概率”接第二个红光的，搞得追刀也不是不追也不是
+
