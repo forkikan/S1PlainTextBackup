@@ -13028,3 +13028,18 @@ HP: [https://anime.bang-dream.com/avemujica/story/](https://anime.bang-dream.com
 那只能说第一集第十二集做完才切割的了，算是对前面剧本和大纲的默认了，我纯猜测嗷，豚豚对我手下留情？ ...</blockquote>
 那不默认能怎么办呢，你是要让樱花姨拎着铁棍去威胁柿本吗
 
+
+*****
+
+####  Lawliet.L  
+##### 38119#       发表于 2025-3-18 12:31
+
+祥子好危险的发际线。。。
+
+*****
+
+####  ape-apple  
+##### 38120#       发表于 2025-3-18 12:34
+
+12集也有老登场景吧，希望一句话带过就完事了，或者学习一下隔壁德林<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

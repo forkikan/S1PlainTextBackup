@@ -17290,3 +17290,27 @@ khara X SUNRISE 梦想的交汇！
 
 虽然但是，我觉得修司不会杀人，甚至整个gqx主角团都不会杀人
 
+
+*****
+
+####  PascalLefèvre  
+##### 8779#       发表于 2025-3-18 12:25
+
+居然真的可以引进，刚公布的时候和我说肯定不会相信的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  kuriri  
+##### 8780#       发表于 2025-3-18 12:28
+
+喵安加入主角团不需要任何理由，无家可归就是理由啊，她渴望家和爱，比较难想的是她会如何发挥作用，开机体还是作为智囊，她是三小只里唯一有人间常识的
+
+*****
+
+####  阿尔巴尼亚  
+##### 8781#       发表于 2025-3-18 12:29
+
+吉夸克斯，这个名字是真的？感觉就是机翻啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
