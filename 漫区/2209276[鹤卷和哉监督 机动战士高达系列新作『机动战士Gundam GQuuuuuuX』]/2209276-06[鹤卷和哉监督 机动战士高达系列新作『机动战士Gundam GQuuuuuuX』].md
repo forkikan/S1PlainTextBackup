@@ -17594,3 +17594,11 @@ khara X SUNRISE 梦想的交汇！
 
 今天才有空看这篇，感觉庵野这创作欲也太恐怖了，剧本从想法笔记到第四稿一气呵成，同时还在负责其他多个项目，这根本就是坐在书桌前就有灵感的程度了吧
 
+
+*****
+
+####  UnknownRei  
+##### 8805#       发表于 2025-3-18 15:16
+
+庵野明明是自己超想做高达才这么高兴致吧，还说什么报恩，真是个不坦率的家伙<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
