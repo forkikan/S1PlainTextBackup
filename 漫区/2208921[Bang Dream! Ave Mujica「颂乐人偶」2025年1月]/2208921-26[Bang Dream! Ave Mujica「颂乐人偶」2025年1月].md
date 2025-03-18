@@ -13277,3 +13277,26 @@ HP: [https://anime.bang-dream.com/avemujica/story/](https://anime.bang-dream.com
 其实我最近在想，crychic时期假装阳角尝试融入团队的soyo，mygo前期假装温柔暗中操作的soyo，都有特别狡黠 ...</blockquote>
 这种就属于是由系构主导过细节甚至分镜的台词，而本季分集脚本在监督要求下各写各的还要不断修改填坑，光把故事圆回来就焦头烂额就顾及不到了
 
+
+*****
+
+####  帆前  
+##### 38142#       发表于 2025-3-18 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67679579&amp;ptid=2208921" target="_blank">油画布 发表于 2025-3-18 13:53</a>
+
+哇卡里吗斯。
+
+我算是对鸡很失望的素厨了，虽然好多人觉得她拿了mvp，但我觉得她该做得事都没做，不该由 ...</blockquote>
+我觉得相比其他人待遇算好了，但该有的戏还是没搞好😢
+
+*****
+
+####  帆前  
+##### 38143#       发表于 2025-3-18 14:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67679605&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-3-18 13:59</a>
+
+这种就属于是由系构主导过细节甚至分镜的台词，而本季分集脚本在监督要求下各写各的还要不断修改填坑，光 ...</blockquote>
+事到如今，角色核心灵魂什么的，也不能有什么奢求了，不变态就不错了😢
+
