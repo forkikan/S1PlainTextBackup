@@ -12868,3 +12868,24 @@ HP: [https://anime.bang-dream.com/avemujica/story/](https://anime.bang-dream.com
 
 初祥戏高概率二人转，鸡团剩下几个要么机场能混个眼熟要么就酱油了
 
+
+*****
+
+####  UNISONIA  
+##### 38102#       发表于 2025-3-18 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67678487&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-18 11:18</a>
+
+话说独角兽不是自称已经切割母鸡卡了吗，这单人脚本莫非是同名同姓?</blockquote>
+脚本已经完成的部分东家想怎么用她也影响不了
+
+比如柿本提过的原1~3话重新改为现在的第一话这个
+
+
+*****
+
+####  dqtql  
+##### 38103#       发表于 2025-3-18 11:33
+
+别的不指望了，初祥关系性能保住吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
