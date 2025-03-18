@@ -17738,3 +17738,11 @@ OK，ed鸟笼走起
 
 其实大部分话说的都没问题（）
 
+
+*****
+
+####  Gaybird  
+##### 8819#       发表于 2025-3-18 20:35
+
+这个海报设计也太土了，字体简直是在摧残我的眼睛<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
