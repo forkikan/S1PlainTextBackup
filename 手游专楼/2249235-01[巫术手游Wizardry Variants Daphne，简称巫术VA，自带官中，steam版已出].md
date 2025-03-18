@@ -1020,3 +1020,11 @@ wiki说第三个图（要塞）的垃圾会出苦无和忍者刀，不过我还�
 联动剧情要什么进度才能开？我现在2章水路，还没竞技场</blockquote>
 点活动界面那个按钮然后到王都接任务就行了
 
+
+*****
+
+####  茄子自走炮  
+##### 80#       发表于 2025-3-18 19:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这动态难度把我安排了 打火龙堪比打人偶
+

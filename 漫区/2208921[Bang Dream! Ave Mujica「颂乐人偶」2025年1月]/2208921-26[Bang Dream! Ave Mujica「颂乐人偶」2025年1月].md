@@ -14361,3 +14361,17 @@ MyGO时期的黄瓜有两个意义，第一 ...</blockquote>
 
 2025-3-18 19:30 上传
 
+
+*****
+
+####  聋与唬  
+##### 38238#       发表于 2025-3-18 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67679260&amp;ptid=2208921" target="_blank">油画布 发表于 2025-3-18 12:49</a>
+真初华对祥子应该没什么重情结 要出场的也是“ 祥子 好久不见了 你找姐姐？她在里面躲着呢”类似这种戏份
+
+ ...</blockquote>
+错误的，在女女关系一团糟，母鸡卡人设一坨的情况下，本作逆天改命的希望就在这个一张白纸的初华了。
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
