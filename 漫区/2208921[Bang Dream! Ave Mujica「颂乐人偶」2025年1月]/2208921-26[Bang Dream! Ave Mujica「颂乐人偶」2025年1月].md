@@ -13193,3 +13193,13 @@ HP: [https://anime.bang-dream.com/avemujica/story/](https://anime.bang-dream.com
 
 当然邦邦是温柔的世界，肯定不至于如此就是了
 
+
+*****
+
+####  非建政专用号  
+##### 38134#       发表于 2025-3-18 13:07
+
+其实是懒狗懒得多搞一个模型，小修小改塞上去就行了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
