@@ -18087,3 +18087,48 @@ IMG_7739.jpeg
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  岸浪白野  
+##### 8848#       发表于 2025-3-19 00:20
+
+[X 上的 スミカ：“ソドンクルー楽しくしてて欲しい [url]https://t.co/XyQQu25wXM](https://x.com/rsuhima/status/1901945493787398186)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202503/19/002003zhn1txl4xik11r1d.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.73 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-19 00:20 上传
+
+<img src="https://img.saraba1st.com/forum/202503/19/002012q068v1zbmkhlhlje.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.72 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-19 00:20 上传
+
+[X 上的 めんぼう：“ここ1カ月半でしっちゃかめっちゃかになっているオタク [url]https://t.co/yZOFU9SZxr](https://x.com/menboycho/status/1901992290136330419)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202503/19/002033xee0ptinezln4oiu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.72 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-19 00:20 上传
+
+*****
+
+####  AraTurambar  
+##### 8849#       发表于 2025-3-19 00:23
+
+<blockquote>自演乙. 发表于 2025-3-18 15:07
+把进一步积蓄的想法笔记加以整理成形的情节初稿完成是在2021年8月29日。
+
+隔了一段时间后完成情节改定稿是在 ...</blockquote>
+恐怕已经想了三十年。
+
