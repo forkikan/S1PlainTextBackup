@@ -17936,3 +17936,29 @@ NT营销的NT宣发
 
 不会删了之后真端上来一份EVA大字报吧
 
+
+*****
+
+####  psycho_Gadfly  
+##### 8842#       发表于 2025-3-18 23:18
+
+大叔转生恶役的作者发了联动图 ……这宣传可以(女儿是tomaya配的，也对上了
+
+IMG_7740.jpeg
+(163.94 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-18 23:18 上传
+
+<img src="https://img.saraba1st.com/forum/202503/18/231814p4uhuc4bkdyyyjh4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+IMG_7739.jpeg
+(468.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-18 23:18 上传
+
+<img src="https://img.saraba1st.com/forum/202503/18/231814i6i955le6iirmbeb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

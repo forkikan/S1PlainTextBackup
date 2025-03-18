@@ -2161,3 +2161,18 @@ Ver1.09.0.1 2025/03/14Steam®
 
 这个红光技能的白光闪烁越来越不可靠了，特别是这个司马快慢拳，前面boss基本都是白光闪完后拨石火，这个差不多要白光正在闪的时候按，快慢拳恶心的一比，还有小招弹完不进去动摇状态boss转散步
 
+
+*****
+
+####  cherry__  
+##### 3619#       发表于 2025-3-18 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67681820&amp;ptid=2092342" target="_blank">杜文乐超神归来 发表于 2025-3-18 19:37</a>
+
+是我变强了吗，怎么感觉第二章一路平推
+
+—— 来自 鹅球 v3.3.96</blockquote>
+我在第二章把薙刀换成了野太刀，用上了石川由依怪叫斩，马上觉得游戏简单多了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+啥高级技巧都用不上，直接怪叫着冲上去就行了
+
