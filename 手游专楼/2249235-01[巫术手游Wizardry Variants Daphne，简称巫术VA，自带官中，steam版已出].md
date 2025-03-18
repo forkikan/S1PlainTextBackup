@@ -1028,3 +1028,17 @@ wiki说第三个图（要塞）的垃圾会出苦无和忍者刀，不过我还�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这动态难度把我安排了 打火龙堪比打人偶
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 81#         楼主| 发表于 2025-3-18 21:15
+
+萌新今晚能不能见到火龙都是回事儿，运气不好的话2F道中能连撞三个蝎子女<img src="https://static.saraba1st.com/image/smiley/face2017/069.png">
+
+什么，你丫吃沉默，战术我想好了，人妻每回合放沉默，全队打破甲防反，咦，我被秒了，运气不好，再起
+
+什么，沉默miss了，一个吐息王女土法全倒了，运气不好，再起
+
+什么，沉默又miss了，大火球贴脸糊过来了，打扰了，告辞XD
+
