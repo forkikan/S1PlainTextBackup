@@ -14535,3 +14535,16 @@ MyGO时期的黄瓜有两个意义，第一 ...</blockquote>
 
 大鼻子也无所谓佐仓也是jacky，弄酱要暴改的话其实是下颌骨，但不卖脸没必要。
 
+
+*****
+
+####  是谁的书画  
+##### 38254#       发表于 2025-3-18 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67682538&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-3-18 22:04</a>
+大鼻子也无所谓佐仓也是jacky，弄酱要暴改的话其实是下颌骨，但不卖脸没必要。 ...</blockquote>
+下颌骨吗，那也太可怕了有点<img src="https://static.saraba1st.com/image/smiley/face2017/141.png" referrerpolicy="no-referrer">
+那不如还是这样吧，很自然也颇有气质<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

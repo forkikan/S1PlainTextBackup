@@ -290,3 +290,16 @@ MG-206重机枪
 
 话说几个版本下来，哈绿气的无人机是不是依旧废物？这玩意儿算是最不值得入手的东西了吧
 
+
+*****
+
+####  FLZB  
+##### 5856#       发表于 2025-3-18 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67682503&amp;ptid=2170852" target="_blank">ronac 发表于 2025-3-18 21:58</a>
+
+话说几个版本下来，哈绿气的无人机是不是依旧废物？这玩意儿算是最不值得入手的东西了吧
+
+ ...</blockquote>
+毒狗现在强的一批，虫子都进不了身
+
