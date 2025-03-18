@@ -17233,3 +17233,19 @@ khara X SUNRISE 梦想的交汇！
 机械设计：山下育人
 <img src="https://p.sda1.dev/22/e01d8f0f5b03f5e54fc19fe9075d962f/008IsitMly1hzkxzjx0cfj32bc39tnpf.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Gysumitka  
+##### 8772#       发表于 2025-3-18 11:21
+
+终于能在影院看了<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer"> 快点定档吧
+
+
+*****
+
+####  岸浪白野  
+##### 8773#       发表于 2025-3-18 11:23
+
+我觉得最体现喵安难形容和捉摸不透是正片还没展开场外就已经难猜了
+

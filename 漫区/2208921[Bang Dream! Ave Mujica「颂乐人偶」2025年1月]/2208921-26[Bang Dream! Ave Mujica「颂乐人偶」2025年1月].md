@@ -12763,3 +12763,108 @@ HP: [https://anime.bang-dream.com/avemujica/story/](https://anime.bang-dream.com
 
  本周的疯狂星期四格外期待
 
+
+*****
+
+####  aptx8285144  
+##### 38093#       发表于 2025-3-18 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67678451&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-18 11:15</a>
+
+爱素：素颜
+
+初祥：玫瑰花的葬礼
+
+逼许嵩还在追</blockquote>
+话说独角兽不是自称已经切割母鸡卡了吗，这单人脚本莫非是同名同姓?<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| haoshion|-2|差不多得了|
+
+查看全部评分
+
+*****
+
+####  kenqqex  
+##### 38094#       发表于 2025-3-18 11:18
+
+玫瑰花 啥意思啊
+
+*****
+
+####  kenqqex  
+##### 38095#       发表于 2025-3-18 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67678487&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-18 11:18</a>
+
+话说独角兽不是自称已经切割母鸡卡了吗，这单人脚本莫非是同名同姓?</blockquote>
+你们是不是看了啥什么国内二手翻译
+
+人家原文说的是在某年某月之前我就完成 avemujica的工作 之后的和我没关系
+
+没说鸡里面没她的工作成果啊
+
+*****
+
+####  是谁的书画  
+##### 38096#       发表于 2025-3-18 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67678487&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-18 11:18</a>
+话说独角兽不是自称已经切割母鸡卡了吗，这单人脚本莫非是同名同姓?</blockquote>
+那只能说第一集第十二集做完才切割的了，算是对前面剧本和大纲的默认了，我纯猜测嗷，豚豚对我手下留情？<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  结衣小比取  
+##### 38097#       发表于 2025-3-18 11:21
+
+第一张图背景好像是机场跑道+舷梯？
+
+第二张图背景像海岛度假别墅
+
+<img src="https://img.saraba1st.com/forum/202503/18/112047ts0eb1exs2e12nu7.jpg" referrerpolicy="no-referrer">
+
+<strong>预告2.jpg</strong> (383.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-18 11:20 上传
+
+*****
+
+####  haoshion  
+##### 38098#       发表于 2025-3-18 11:21
+
+人早说了干完活后就没继续参与了，怎么被说得跟从头到尾没干过活一样，还是说觉得单人脚本＝柿本不动一个字<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Yugao  
+##### 38099#       发表于 2025-3-18 11:22
+
+别分工了，先把锅分了
+
+*****
+
+####  钦念以忱  
+##### 38100#       发表于 2025-3-18 11:23
+
+看看🦄的脚本有没有融合后的新睦
+
+*****
+
+####  adretyu67.  
+##### 38101#       发表于 2025-3-18 11:24
+
+初祥戏高概率二人转，鸡团剩下几个要么机场能混个眼熟要么就酱油了
+
