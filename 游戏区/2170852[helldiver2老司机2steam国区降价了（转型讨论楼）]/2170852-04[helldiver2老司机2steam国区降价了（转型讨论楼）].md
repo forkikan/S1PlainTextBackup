@@ -256,3 +256,11 @@ MG-206重机枪
 这俩武器看着就是狗屎啊</blockquote>
 等数据，激光左轮应该是中穿，杠杆搞不好是主手左轮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xinfengj  
+##### 5852#       发表于 2025-3-18 20:08
+
+爆裂铳重回兵器排行榜第一名！
+

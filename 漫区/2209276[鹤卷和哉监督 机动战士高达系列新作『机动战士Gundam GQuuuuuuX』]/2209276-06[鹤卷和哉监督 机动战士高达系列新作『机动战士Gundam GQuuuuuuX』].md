@@ -17722,3 +17722,11 @@ OK，ed鸟笼走起
 
 其实也算正常话语，但列成大字报还是有点尬
 
+
+*****
+
+####  灵魂收割机  
+##### 8817#       发表于 2025-3-18 20:17
+
+符合本作特色，甚至更潮<img src="https://static.saraba1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+

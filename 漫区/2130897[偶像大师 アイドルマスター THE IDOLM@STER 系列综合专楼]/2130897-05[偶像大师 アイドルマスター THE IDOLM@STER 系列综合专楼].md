@@ -23,3 +23,19 @@
 
 五月到八月都拉满了
 
+
+*****
+
+####  wfhtony  
+##### 6956#       发表于 2025-3-18 20:13
+
+SACD後兩張送到了：
+<img src="https://tc2.wfhtony.space/images/2025/03/18/638211c6f9713fe7cf01aae17b7d7d65.jpg" referrerpolicy="no-referrer">
+
+加上前面兩張（+簡單大小對比）：
+<img src="https://tc2.wfhtony.space/images/2025/03/18/0f6b02a15fb43054780bdddb026a900d.jpg" referrerpolicy="no-referrer">
+
+等掃好/處理好封面之後慢慢抓盤。
+
+明天再篤悠悠掃BK...
+
