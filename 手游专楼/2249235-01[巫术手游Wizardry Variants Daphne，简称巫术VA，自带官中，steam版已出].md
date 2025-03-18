@@ -991,3 +991,14 @@ wiki说第三个图（要塞）的垃圾会出苦无和忍者刀，不过我还�
 
 2025-3-18 18:47 上传
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 77#         楼主| 发表于 2025-3-18 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67680478&amp;ptid=2249235" target="_blank">碧空之歌P 发表于 2025-3-18 15:59</a>
+
+两个新人物有没有范围伤害技能</blockquote>
+我看wiki技能表里都有法师40的全体魔法(无属性)
+

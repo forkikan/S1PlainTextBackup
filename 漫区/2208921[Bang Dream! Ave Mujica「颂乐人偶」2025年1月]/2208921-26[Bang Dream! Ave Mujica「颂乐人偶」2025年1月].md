@@ -14297,3 +14297,23 @@ MyGO时期的黄瓜有两个意义，第一 ...</blockquote>
 
 很多片里双重人格的另一方是用来强化战斗力，去干死敌人的，而结果是莫女士杀了自己内部的人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  久井路路  
+##### 38234#       发表于 2025-3-18 19:11
+
+睦线本质上就是母鸡卡的缩影啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+第三集结尾爆出双重人格，第四集直接破功，是烂炒热度的缩影
+
+过于注重视觉冲击，结果人物内核完全没讲清楚，是满脑子爆爆爆的缩影
+
+看似解决问题了其实没有解决，拖长时间围绕着一个根本不核心的矛盾（C团复活）讲好久，是有效剧情极少的缩影
+
+不给角色打好地基，不深入讲述角色过往，一集一个新设定，是整部剧缺乏一贯性的缩影
+
+不给睦莫安排高光，成天把事情往砸了搞，是全员神人的底层逻辑的缩影
+
+再算上这个不明不白的死和不明不白的复活，更是某些人完全没考虑到能不能传达给观众、只会自顾自地叙事的缩影<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
