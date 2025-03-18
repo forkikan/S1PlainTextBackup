@@ -282,3 +282,11 @@ MG-206重机枪
 
 好像发现问题了，n10现在会主动给你匹配等级20几的新人<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ronac  
+##### 5855#       发表于 2025-3-18 21:58
+
+话说几个版本下来，哈绿气的无人机是不是依旧废物？这玩意儿算是最不值得入手的东西了吧
+

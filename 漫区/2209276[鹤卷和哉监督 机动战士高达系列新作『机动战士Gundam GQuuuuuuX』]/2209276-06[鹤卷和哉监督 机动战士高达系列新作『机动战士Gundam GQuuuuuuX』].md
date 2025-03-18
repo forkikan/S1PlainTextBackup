@@ -17841,3 +17841,38 @@ OK，ed鸟笼走起
 
 所以哪天？
 
+
+*****
+
+####  a85982313  
+##### 8831#       发表于 2025-3-18 21:59
+
+国内能有那些特典，香港台湾上映有小册子那些特典吗
+
+*****
+
+####  vava  
+##### 8832#       发表于 2025-3-18 22:00
+
+大字报太土了……
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  G2Yike  
+##### 8833#       发表于 2025-3-18 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67682466&amp;ptid=2209276" target="_blank">xwz 发表于 2025-3-18 21:51</a>
+
+所以哪天？</blockquote>
+<strong>小道消息说是清明档</strong>
+
+*****
+
+####  猪突猛进R  
+##### 8834#       发表于 2025-3-18 22:06
+
+让人想起高达NT的营销<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
