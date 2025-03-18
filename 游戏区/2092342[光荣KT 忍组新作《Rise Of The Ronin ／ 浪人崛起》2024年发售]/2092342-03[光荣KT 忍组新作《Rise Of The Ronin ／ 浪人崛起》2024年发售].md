@@ -2106,3 +2106,13 @@ Ver1.09.0.1 2025/03/14Steam®
 之后不想错过东西的话， ...</blockquote>
 听不到石川由依怪叫了
 
+
+*****
+
+####  杜文乐超神归来  
+##### 3613#       发表于 2025-3-18 19:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">是我变强了吗，怎么感觉第二章一路平推
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

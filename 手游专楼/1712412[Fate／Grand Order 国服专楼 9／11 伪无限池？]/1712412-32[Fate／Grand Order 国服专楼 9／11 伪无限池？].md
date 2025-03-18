@@ -67,3 +67,11 @@
 还有三井，接下来抽学姐蔓漏隙是不是就可以了</blockquote>
 还有月P<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苍蓝之枪  
+##### 47080#       发表于 2025-3-18 19:26
+
+我还没到三井，下半年想要的卡有五张，压力大
+
