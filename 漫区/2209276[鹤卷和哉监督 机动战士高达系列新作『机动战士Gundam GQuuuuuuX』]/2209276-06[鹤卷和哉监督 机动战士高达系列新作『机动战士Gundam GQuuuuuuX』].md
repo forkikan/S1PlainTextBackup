@@ -17460,3 +17460,54 @@ khara X SUNRISE 梦想的交汇！
 
 如说是说日语的话，有猜测 アマテ・ユズリハ⇒マテ・ユ⇒マチュ
 
+
+*****
+
+####  YU_JI  
+##### 8796#       发表于 2025-3-18 14:17
+
+<blockquote>王留美 发表于 2025-3-18 14:01
+说起来……麻球的这个麻球小名怎么来的……
+
+总不能是amate的ma来的吧</blockquote>
+不是说是amate yuzuriha的mate和yu吗？
+
+*****
+
+####  RE㐅ia  
+##### 8797#       发表于 2025-3-18 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67679529&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-3-18 13:43</a>
+
+社会常识和现实“常识”，只有喵安更了解社会灰色地带去生存应对妥协那这个大家还是懂的
+
+ ...</blockquote>
+可能介绍自己的时候打了个喷嚏..."我是Amaaaaa——choo!" 然就被当时的朋友一直这么叫了（
+
+<img src="https://img.saraba1st.com/forum/202503/18/141756r2ifi3f8s2ti3zq3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (51.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-18 14:17 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| PascalLefèvre| + 1|思路广|
+
+查看全部评分
+
+*****
+
+####  岸浪白野  
+##### 8798#       发表于 2025-3-18 14:19
+
+小名是发音缩写是可以确定的
+
