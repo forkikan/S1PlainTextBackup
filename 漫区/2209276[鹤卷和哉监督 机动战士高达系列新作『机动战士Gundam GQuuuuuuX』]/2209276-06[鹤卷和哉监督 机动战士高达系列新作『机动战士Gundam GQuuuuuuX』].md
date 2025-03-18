@@ -17673,3 +17673,13 @@ OK，ed鸟笼走起
 用着小名玛秋来当假名开着 ...</blockquote>
 其实是从A开始发的。字幕也是“天—玛秋”
 
+
+*****
+
+####  岸浪白野  
+##### 8812#       发表于 2025-3-18 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67680928&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-3-18 16:58</a>
+其实是从A开始发的。字幕也是“天—玛秋”</blockquote>
+对的是我说错了，天手的发音是从A开始，就是想说紧张到M就跳到说了小名
+

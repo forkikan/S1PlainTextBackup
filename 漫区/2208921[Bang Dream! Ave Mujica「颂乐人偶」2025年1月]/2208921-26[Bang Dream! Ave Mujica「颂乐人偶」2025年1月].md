@@ -13891,3 +13891,21 @@ mana的那个剧透也是假成狗了。
 
 独角兽很难不成神了，逼东西闭着眼都能写<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adretyu67.  
+##### 38198#       发表于 2025-3-18 17:10
+
+我怎么觉得是反过来，
+
+大祥要求初华承担起脑内自觉全是我干的责任，初华你来承担我的一生<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  与太郎  
+##### 38199#       发表于 2025-3-18 17:13
+
+再不给祥子一点主观能动性真说不过去了吧
+
