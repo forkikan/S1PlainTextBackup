@@ -17769,3 +17769,11 @@ OK，ed鸟笼走起
 
 这大字报实在是有点尬了兄弟<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kuriri  
+##### 8823#       发表于 2025-3-18 20:56
+
+大字报本身没问题，但字体和网感太差了，连麻球太可爱了都没有，绿叔叔和奇怪面具的男人也没有，能不能换个看过动画有网感的人来做
+
