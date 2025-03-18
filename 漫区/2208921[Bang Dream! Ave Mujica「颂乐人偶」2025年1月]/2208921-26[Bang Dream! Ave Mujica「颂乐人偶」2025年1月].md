@@ -13308,3 +13308,11 @@ HP: [https://anime.bang-dream.com/avemujica/story/](https://anime.bang-dream.com
 
 说起来，12话的独角兽脚本回，虽然救不了动画，但可以救回ave mujica这个企划一些了，二偶企划，剧情烂了其实也还好，关键是角色。独角兽的单集脚本给角色形象定个调，13话又是live回也不需要再走什么矛盾什么超展开了，这样动画起码能留给手游组一个还算稳定的角色形象和人物关系。
 
+
+*****
+
+####  UNISONIA  
+##### 38145#       发表于 2025-3-18 14:32
+
+只救俩角色而且不一定是厨子乐见的形象和关系性是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
