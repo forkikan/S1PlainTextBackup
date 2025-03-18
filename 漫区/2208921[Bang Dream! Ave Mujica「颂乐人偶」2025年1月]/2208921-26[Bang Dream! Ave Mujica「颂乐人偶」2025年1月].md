@@ -13062,3 +13062,111 @@ HP: [https://anime.bang-dream.com/avemujica/story/](https://anime.bang-dream.com
 十一话预告中把花和园艺剪刀弄掉的是初华母亲咯，毕竟她是别墅管理员</blockquote>
 是不是祥子拿着花找错人找到真初华身上去了。
 
+
+*****
+
+####  Ferrari  
+##### 38123#       发表于 2025-3-18 12:49
+
+要看🦄本人一着妙手解全局了
+
+好期待啊
+
+*****
+
+####  久井路路  
+##### 38124#       发表于 2025-3-18 12:49
+
+直接让老登因为祥去追初音而人格升华独自去对抗丰川家就完事儿了
+
+不然如果12集祥上岛遇到一堆黑衣人要抓她回去之类的我可能会笑瘫痪（<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+只存在于背景板里的黑暗就该在背景板里被解决<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  油画布  
+##### 38125#       发表于 2025-3-18 12:49
+
+真初华对祥子应该没什么重情结 要出场的也是“ 祥子 好久不见了 你找姐姐？她在里面躲着呢”类似这种戏份
+
+不如说我希望就到这种程度了，别搞什么重力修罗场
+
+
+*****
+
+####  南宮凝香  
+##### 38126#       发表于 2025-3-18 12:51
+
+會贏嗎？
+
+*****
+
+####  6030sylar  
+##### 38127#       发表于 2025-3-18 12:53
+
+<img src="https://img.saraba1st.com/forum/202503/18/125314vj5bdq4x4wpajdab.png" referrerpolicy="no-referrer">
+
+<strong>3475d896fbdf92162bc9dbabc1d8fad6.png</strong> (148.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-18 12:53 上传
+
+<img src="https://img.saraba1st.com/forum/202503/18/125321us3txkssk4p9mxtk.png" referrerpolicy="no-referrer">
+
+<strong>5817db53ec2395c4521d66195423a57b.png</strong> (191.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-18 12:53 上传
+
+<img src="https://img.saraba1st.com/forum/202503/18/125326ygeeukeqdtaekxcz.png" referrerpolicy="no-referrer">
+
+<strong>a23293066838f07c47279000b689aebd.png</strong> (162.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-18 12:53 上传
+
+*****
+
+####  是谁的书画  
+##### 38128#       发表于 2025-3-18 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67679260&amp;ptid=2208921" target="_blank">油画布 发表于 2025-3-18 12:49</a>
+
+真初华对祥子应该没什么重情结 要出场的也是“ 祥子 好久不见了 你找姐姐？她在里面躲着呢”类似这种戏份
+
+ ...</blockquote>
+这就看你相不相信，看没看过某个舅舅的mana剧透了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+如果那个是真的，那我只能说初音在一些人的评价里可能还会更走低一点<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  油画布  
+##### 38129#       发表于 2025-3-18 12:53
+
+真初华应该和初音的形象有差别吧，扎个辫子留个长发之类的
+
+*****
+
+####  聪明墨菲特  
+##### 38130#       发表于 2025-3-18 12:54
+
+要来了吗，jk斗财阀
+
+—— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  油画布  
+##### 38131#       发表于 2025-3-18 12:55
+
+<blockquote>是谁的书画 发表于 2025-3-18 12:53
+这就看你相不相信，看没看过某个舅舅的mana剧透了
+
+如果那个是真的，那我只能说初音在一些人的评价里可能 ...</blockquote>
+舅舅说什么了，不会是mana回岛上给真初华唱歌那个吧？
+
