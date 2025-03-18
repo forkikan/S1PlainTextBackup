@@ -39,3 +39,14 @@ SACD後兩張送到了：
 
 明天再篤悠悠掃BK...
 
+
+*****
+
+####  Unlight  
+##### 6957#         楼主| 发表于 2025-3-18 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67681984&amp;ptid=2130897" target="_blank">wfhtony 发表于 2025-3-18 20:13</a>
+
+SACD後兩張送到了：</blockquote>
+你打算用老PS3还是用蓝光机抓轨啊（
+
