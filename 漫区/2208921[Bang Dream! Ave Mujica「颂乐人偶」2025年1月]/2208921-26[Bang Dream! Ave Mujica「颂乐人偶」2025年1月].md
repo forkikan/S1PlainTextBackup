@@ -13503,3 +13503,112 @@ live前后再随便写点团内互动，狗团搞一小段样板戏就行，鸡�
 
 还在幻想<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  油画布  
+##### 38163#       发表于 2025-3-18 15:19
+
+<blockquote>南宮凝香 发表于 2025-3-18 15:13
+實際上也可以十三集結尾祥子出國
+
+把重組母雞卡的壓力甩給手遊作者</blockquote>
+那就是十五年未有之惊天大烂片 
+
+天煞孤星竟然砸我头上来了，该去买彩票了
+
+*****
+
+####  aptx8285144  
+##### 38164#       发表于 2025-3-18 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67679296&amp;ptid=2208921" target="_blank">油画布 发表于 2025-3-18 12:55</a>
+
+舅舅说什么了，不会是mana回岛上给真初华唱歌那个吧？</blockquote>
+什么?甜甜圈去那里图啥，发现认错搭档，找素未相识的同姓人士吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  高妹控  
+##### 38165#       发表于 2025-3-18 15:20
+
+周四，会上演伊斯坦布尔之夜吗？
+
+*****
+
+####  是谁的书画  
+##### 38166#       发表于 2025-3-18 15:22
+
+真能救睦吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+睦活莫死，莫算什么?莫党不开心，莫喵cp灭
+莫活睦死，睦算什么?睦党不开心，睦祥cp灭
+两个融合新角色，那算塑造了个啥出来?
+两个角色不融合共存，那不是闹麻了？
+怎么想都感觉好像很难救哦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  钦念以忱  
+##### 38167#       发表于 2025-3-18 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67680063&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-3-18 15:03</a>
+
+灯祥作为字面意义上的“官配”，写灯对祥的单箭头其实没有意义，过去这种单箭头太多了（↑某种意义上也是 ...</blockquote>
+灯给祥歌词本因为看到剧透人说有这个剧情，我才这么编
+
+睦祥、素睦，我都是不求写好，先把CP拉活再说吧，之后的都交给手游了。
+
+主要还是花了最多篇幅的睦，留的坑最大，得先把基础的角色形象定了，再把睦头最关键的2个人物关系恢复个大概出来。
+
+素睦能多给点篇幅，也可以不单纯是一起种🥒，睦头看到素世在帮种🥒，然后用一种新的人设上去互动，比如抱上去？
+
+*****
+
+####  aptx8285144  
+##### 38168#       发表于 2025-3-18 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67680174&amp;ptid=2208921" target="_blank">高妹控 发表于 2025-3-18 15:20</a>
+
+周四，会上演伊斯坦布尔之夜吗？</blockquote>
+发点工业糖精，不要多想，当然，工业糖精对于这个片场已经比那些SHI强太多了
+
+*****
+
+####  6030sylar  
+##### 38169#       发表于 2025-3-18 15:24
+
+13话对邦就是给真人演唱会拉人气的，正常点做就是，别搞第七话烂活
+
+
+*****
+
+####  UNISONIA  
+##### 38170#       发表于 2025-3-18 15:25
+
+其实对邦一般席已经卖完了【
+
+*****
+
+####  钦念以忱  
+##### 38171#       发表于 2025-3-18 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67680187&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-18 15:22</a>
+
+真能救睦吗
+
+睦活莫死，莫算什么?莫党不开心，莫喵cp灭
+
+莫活睦死，睦算什么?睦党不开心，睦祥cp灭</blockquote>
+比现在活死人状态，啥都不知道好就行了
+
+*****
+
+####  油画布  
+##### 38172#       发表于 2025-3-18 15:27
+
+<blockquote>aptx8285144 发表于 2025-3-18 15:20
+什么?甜甜圈去那里图啥，发现认错搭档，找素未相识的同姓人士吗</blockquote>
+好像是“每一个孩子都有唱歌的自由”云云 ，吐血。
+

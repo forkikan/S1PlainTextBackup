@@ -17602,3 +17602,14 @@ khara X SUNRISE 梦想的交汇！
 
 庵野明明是自己超想做高达才这么高兴致吧，还说什么报恩，真是个不坦率的家伙<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zoomegg  
+##### 8806#       发表于 2025-3-18 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67679380&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-3-18 13:13</a>
+
+麻球像是在笼子里努力往外挤的金丝雀，喵安像是笼子外面但是活的很狼狈的野麻雀 ...</blockquote>
+OK，ed鸟笼走起
+
