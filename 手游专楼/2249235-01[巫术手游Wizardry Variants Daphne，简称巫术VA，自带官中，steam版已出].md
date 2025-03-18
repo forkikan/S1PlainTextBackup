@@ -902,3 +902,13 @@ wiki说第三个图（要塞）的垃圾会出苦无和忍者刀，不过我还�
 
 所以大概 两个职业战士转侍 法师转战士
 
+
+*****
+
+####  mobdom  
+##### 68#       发表于 2025-3-18 09:43
+
+昨天刚开了个号，起始出了骷髅女法师。想问下法师没mp是不是就只能等回旅馆了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
