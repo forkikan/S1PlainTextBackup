@@ -50,3 +50,14 @@ SACD後兩張送到了：
 SACD後兩張送到了：</blockquote>
 你打算用老PS3还是用蓝光机抓轨啊（
 
+
+*****
+
+####  wfhtony  
+##### 6958#       发表于 2025-3-19 01:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67682806&amp;ptid=2130897" target="_blank">Unlight 发表于 2025-3-18 22:59</a>
+
+你打算用老PS3还是用蓝光机抓轨啊（</blockquote>
+咱手頭沒有PS3，只有藍光機可以抓軌。
+
