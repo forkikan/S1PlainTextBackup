@@ -122,3 +122,23 @@
 
 蓄力真的比较猛，时间短多锁追送威力也高。那个左右派生就当不存在就行（
 
+
+*****
+
+####  冰风血羽  
+##### 1416#       发表于 2025-3-19 04:04
+
+ 本帖最后由 冰风血羽 于 2025-3-19 04:08 编辑 
+
+<img src="https://img.saraba1st.com/forum/202503/19/040835fqxrrvxsv1s96r9v.jpg" referrerpolicy="no-referrer">
+
+<strong>image.jpg.jpg</strong> (366.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-19 04:08 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">我就说SC跟SCSP怎么老是抽不到卡，运气全在这了
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
