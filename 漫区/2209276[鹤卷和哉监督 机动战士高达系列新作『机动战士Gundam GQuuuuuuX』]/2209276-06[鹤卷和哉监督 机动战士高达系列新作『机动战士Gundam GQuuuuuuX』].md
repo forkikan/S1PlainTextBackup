@@ -17876,3 +17876,21 @@ OK，ed鸟笼走起
 
 让人想起高达NT的营销<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  灵魂收割机  
+##### 8835#       发表于 2025-3-18 22:18
+
+大字报删了，看看下次会发啥东西出来。
+
+*****
+
+####  中野梓  
+##### 8836#       发表于 2025-3-18 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67682549&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-3-18 22:06</a>
+
+让人想起高达NT的营销</blockquote>
+NT营销的NT宣发
+
