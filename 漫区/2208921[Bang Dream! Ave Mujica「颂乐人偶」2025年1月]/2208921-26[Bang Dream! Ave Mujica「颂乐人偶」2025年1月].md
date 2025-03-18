@@ -13682,3 +13682,23 @@ live前后再随便写点团内互动，狗团搞一小段样板戏就行，鸡�
 
 <img src="https://p.sda1.dev/22/3335982018c727badfe3e8112263d2bc/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adretyu67.  
+##### 38179#       发表于 2025-3-18 15:41
+
+ 本帖最后由 adretyu67. 于 2025-3-18 15:43 编辑 
+
+我一直坚持认为吉他睦和莫死不透的。
+
+哪怕是ex睦也依旧要遵循两个睦的行动模式，也就是剧本，就看怎么兼容。
+
+
+*****
+
+####  aptx8285144  
+##### 38180#       发表于 2025-3-18 15:47
+
+甜甜圈也要突然当圣人吗，随便了，这个片场放低要求别再多一个神人就不错了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

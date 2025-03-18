@@ -2061,3 +2061,16 @@ Ver1.09.0.1 2025/03/14Steam®
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  东方定助  
+##### 3609#       发表于 2025-3-18 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67679379&amp;ptid=2092342" target="_blank">匿名用户 发表于 2025-3-18 13:12</a>
+
+权藏杀了后，会错过什么东西吗？第一章末拿了回魂录重打选择不杀，似乎也没变化？
+
+之后不想错过东西的话， ...</blockquote>
+错过一个大太刀鬼叫流
+
