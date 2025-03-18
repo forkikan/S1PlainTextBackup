@@ -17962,3 +17962,21 @@ IMG_7739.jpeg
 
 <img src="https://img.saraba1st.com/forum/202503/18/231814i6i955le6iirmbeb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 8843#       发表于 2025-3-18 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67682899&amp;ptid=2209276" target="_blank">psycho_Gadfly 发表于 2025-3-18 23:18</a>
+
+大叔转生恶役的作者发了联动图 ……这宣传可以(女儿是tomaya配的，也对上了 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202503/18/234607put3q2kx8vl7udad.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.15 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-18 23:46 上传
+
