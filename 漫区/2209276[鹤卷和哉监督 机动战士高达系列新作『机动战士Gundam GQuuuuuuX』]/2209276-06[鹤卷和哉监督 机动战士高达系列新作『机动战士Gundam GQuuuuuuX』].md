@@ -17186,3 +17186,50 @@ Z是搭上了那时的环保潮流吧，奥古和提坦斯互相指责对面污�
 
 2025-3-18 11:06 上传
 
+
+*****
+
+####  千恋万花  
+##### 8770#       发表于 2025-3-18 11:14
+
+<blockquote>高达系列最新力作#电影机动战士高达跨时之战#确认引进！
+
+khara X SUNRISE 梦想的交汇！
+
+驾驶GQuuuuuuX（吉夸克斯）出击！
+
+导演：鹤卷和哉
+
+剧本统筹：榎户洋司
+
+剧本：榎户洋司 庵野秀明
+
+人物原案设计：竹
+
+机械设计：山下育人</blockquote>
+<img src="https://files.catbox.moe/yav052.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 8771#         楼主| 发表于 2025-3-18 11:15
+
+[https://weibo.com/7985965662/5145502300506477](https://weibo.com/7985965662/5145502300506477)
+
+高达系列最新力作#电影机动战士高达跨时之战#确认引进！
+
+khara X SUNRISE 梦想的交汇！
+
+驾驶GQuuuuuuX（吉夸克斯）出击！
+
+导演：鹤卷和哉
+
+剧本统筹：榎户洋司
+
+剧本：榎户洋司 庵野秀明
+
+人物原案设计：竹
+
+机械设计：山下育人
+<img src="https://p.sda1.dev/22/e01d8f0f5b03f5e54fc19fe9075d962f/008IsitMly1hzkxzjx0cfj32bc39tnpf.jpg" referrerpolicy="no-referrer">
+
