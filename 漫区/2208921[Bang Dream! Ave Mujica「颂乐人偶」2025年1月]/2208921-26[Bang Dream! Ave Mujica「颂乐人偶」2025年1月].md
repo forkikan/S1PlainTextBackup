@@ -12947,3 +12947,74 @@ HP: [https://anime.bang-dream.com/avemujica/story/](https://anime.bang-dream.com
 
 是切割还是共犯就看这集了
 
+
+*****
+
+####  阿尔巴尼亚  
+##### 38110#       发表于 2025-3-18 12:05
+
+不过既定的海岛奇兵很难做好吧，很难想象追妻剧情如何做好。这种想做好完全得前面铺垫好来一波情绪流忽略逻辑吧，鸡前面的灾难已经没有给独角兽玩情绪流的空间了，大概率和10一样了
+
+*****
+
+####  zhoujin8584  
+##### 38111#       发表于 2025-3-18 12:06
+
+咱就知道，这充满独角兽xp的初祥关系性以及重量级的追妻火葬场，独角兽肯定要自己亲自来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 38112#       发表于 2025-3-18 12:08
+
+<img src="https://img.saraba1st.com/forum/202503/18/120819sxjoxojgwu4qw0qb.jpg" referrerpolicy="no-referrer">
+
+<strong>2b81dcf999221fc013585051e468a723473343687.jpg</strong> (49.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-18 12:08 上传
+
+
+*****
+
+####  syndrome2032  
+##### 38113#       发表于 2025-3-18 12:11
+
+作画失误了。不要在意太多。
+
+*****
+
+####  零壹贰叁  
+##### 38114#       发表于 2025-3-18 12:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">来了，究竟是切割党的胜利呢，还是分锅党的胜利呢
+
+*****
+
+####  DD-963  
+##### 38115#       发表于 2025-3-18 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67678487&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-18 11:18</a>
+
+话说独角兽不是自称已经切割母鸡卡了吗，这单人脚本莫非是同名同姓?</blockquote>
+是她姐姐冒名顶替的
+
+*****
+
+####  与太郎  
+##### 38116#       发表于 2025-3-18 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67678969&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-3-18 12:08</a></blockquote>
+风吹的罢了
+
+*****
+
+####  6030sylar  
+##### 38117#       发表于 2025-3-18 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67678969&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-3-18 12:08</a></blockquote>
+熬夜秃的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

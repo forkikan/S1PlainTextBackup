@@ -3635,3 +3635,17 @@ Ave Mujica 前11话 niconico 好评率
 
 观感其实不错，填了些坑，节奏也还好 CV出大力.而且我都看到第11集了 我为什么不+2<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FanFun  
+##### 378#       发表于 2025-3-18 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67664104&amp;ptid=2249813" target="_blank">一心而用 发表于 2025-3-16 00:35</a>
+Ave Mujica 前11话 niconico 好评率
+
+第1话 81.4% 8.7% 4.5% 3.0% 2.5% 约2200人
+
+第2话 79.4% 8.3% 5.8% 4 ...</blockquote>
+怎么把投票人数还回升了
+
