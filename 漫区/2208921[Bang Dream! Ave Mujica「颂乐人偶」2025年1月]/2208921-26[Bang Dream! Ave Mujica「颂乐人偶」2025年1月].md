@@ -13821,3 +13821,16 @@ MyGO时期的黄瓜有两个意义，第一 ...</blockquote>
 
 吃饭了吗，小姨🌹  
 
+
+*****
+
+####  ntrntr1  
+##### 38192#       发表于 2025-3-18 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67679434&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-18 13:23</a>
+
+这个画面单看真浪漫啊，然后想到预告里散落的玫瑰心中一阵悸痛，转念一想，这回是真的追妻火葬场了，太扭曲 ...</blockquote>
+对不起，这个真的好像网络表情包🌹  很像那个裤裆里掏出🌹的GIF。。。
+
+好想P个金色大字"赠人玫瑰 手有余香“（闪耀 发光 特大字体）发给我妈
+
