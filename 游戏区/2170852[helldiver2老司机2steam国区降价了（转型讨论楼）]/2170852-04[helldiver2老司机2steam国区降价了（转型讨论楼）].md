@@ -339,3 +339,12 @@ MG-206重机枪
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">MOD被杀干净了没有蕾娜通信员玩着不适应了
 
+
+*****
+
+####  rainknine  
+##### 5861#       发表于 2025-3-19 00:10
+
+炽灼旅也太劲了
+穿着防火甲扎着针被霰弹哥秒杀
+

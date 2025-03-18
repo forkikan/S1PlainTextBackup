@@ -18076,3 +18076,14 @@ IMG_7739.jpeg
 说起来鸟笼ed的分镜是不是就是鹤卷做的</blockquote>
 对，ED1就是鹤卷
 
+
+*****
+
+####  57042711  
+##### 8847#       发表于 2025-3-19 00:11
+
+牢修这动手能力确实挺高达主角的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+机械技术也算是高达主角的必修课了233
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
