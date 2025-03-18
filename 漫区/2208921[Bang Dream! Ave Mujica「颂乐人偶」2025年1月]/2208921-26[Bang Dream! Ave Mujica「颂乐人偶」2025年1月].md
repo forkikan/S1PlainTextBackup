@@ -12454,3 +12454,14 @@ go里的设计就是正确的设计吗？有没有可也是为了配合go的人�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Victorino  
+##### 38071#       发表于 2025-3-18 08:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67668712&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-3-16 21:47</a>
+
+你这话说得更搞笑了，日本艺能界用艺名出道的到处都是，真初华甚至可以干脆就叫三角初音出道。日本并没有 ...</blockquote>
+中国也有很多演艺圈人士用艺名，林允，宋祖儿都是艺名
+
