@@ -965,3 +965,29 @@ wiki说第三个图（要塞）的垃圾会出苦无和忍者刀，不过我还�
 
 这俩感觉是不是该全点敏
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 75#         楼主| 发表于 2025-3-18 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67681408&amp;ptid=2249235" target="_blank">Bojenkins 发表于 2025-3-18 18:08</a>
+
+这俩感觉是不是该全点敏</blockquote>
+全敏肯定大差不差，不过女法不急用可以等等日网氪金佬评测
+
+*****
+
+####  风浦可符香(P.N)  
+##### 76#         楼主| 发表于 2025-3-18 18:47
+
+大就完了，别的不重要
+
+<img src="https://img.saraba1st.com/forum/202503/18/184707qxcsksn161rs6s3n.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="800" zoomfile="https://img.saraba1st.com/forum/202503/18/184707qxcsksn161rs6s3n.jpg">
+
+<strong>20250318183841_2.jpg</strong> (138.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-18 18:47 上传
+
