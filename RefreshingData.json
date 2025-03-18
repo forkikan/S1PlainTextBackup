@@ -5607,10 +5607,10 @@
     "update": false
   },
   "2139166": {
-    "totalreply": 11472,
+    "totalreply": 11473,
     "title": "[Capcom《街霸 6》新宣传视频公开，2023年6月2日发售]",
     "newtitle": "[Capcom《街霸 6》新宣传视频公开，2023年6月2日发售]",
-    "lastedit": 1742312900,
+    "lastedit": 1742314092,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 153580,
+    "totalreply": 153581,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1742313498,
+    "lastedit": 1742313851,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -10557,10 +10557,10 @@
     "update": false
   },
   "2209276": {
-    "totalreply": 8843,
+    "totalreply": 8846,
     "title": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
     "newtitle": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
-    "lastedit": 1742312900,
+    "lastedit": 1742314090,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10872,10 +10872,10 @@
     "update": false
   },
   "2204972": {
-    "totalreply": 834,
+    "totalreply": 835,
     "title": "[异度神剑x终极版，2025年3月20日发售！]",
     "newtitle": "[异度神剑x终极版，2025年3月20日发售！／pv2公开]",
-    "lastedit": 1742313498,
+    "lastedit": 1742314092,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11102,7 +11102,7 @@
     "newtitle": "[《忍者龙剑传2 黑之章》公开，今天就能玩!首发xgp!（注：底子为∑2版本）]",
     "lastedit": 1742054648,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2244341": {
@@ -16272,10 +16272,10 @@
     "update": false
   },
   "2249235": {
-    "totalreply": 85,
+    "totalreply": 86,
     "title": "[巫术手游Wizardry Variants Daphne，简称巫术VA，自带官中，steam版已出]",
     "newtitle": "[巫术手游Wizardry Variants Daphne，简称巫术VA，自带官中，3.18联动]",
-    "lastedit": 1742313493,
+    "lastedit": 1742314092,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -17370,10 +17370,10 @@
     "update": false
   },
   "2246107": {
-    "totalreply": 288,
+    "totalreply": 290,
     "title": "[反中配最不要脸的说法就是成本分摊到玩家头上]",
     "newtitle": "[反中配最不要脸的说法就是成本分摊到玩家头上]",
-    "lastedit": 1742313498,
+    "lastedit": 1742313854,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17676,10 +17676,10 @@
     "update": false
   },
   "2250245": {
-    "totalreply": 59,
+    "totalreply": 60,
     "title": "[小米集团2024年营收3659.06亿元，创历史新高，同比增长35%]",
     "newtitle": "[小米集团2024年营收3659.06亿元，创历史新高，同比增长35%]",
-    "lastedit": 1742313255,
+    "lastedit": 1742313617,
     "category": "外野",
     "active": true,
     "update": false
@@ -17694,19 +17694,19 @@
     "update": false
   },
   "2250242": {
-    "totalreply": 57,
+    "totalreply": 58,
     "title": "[赢学这套我们历史上是不是其实实践过了？]",
     "newtitle": "[赢学这套我们历史上是不是其实实践过了？]",
-    "lastedit": 1742311813,
+    "lastedit": 1742313854,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2250253": {
-    "totalreply": 66,
+    "totalreply": 70,
     "title": "[这两天给蜜雪冰城整六个负面热搜到底是想怎样？]",
     "newtitle": "[这两天给蜜雪冰城整六个负面热搜到底是想怎样？]",
-    "lastedit": 1742313008,
+    "lastedit": 1742313615,
     "category": "外野",
     "active": true,
     "update": false
@@ -17744,6 +17744,24 @@
     "newtitle": "[揪出对话中的敏感词！《女性交流》汉化发布（原《ウーマンコミュニケーション》）]",
     "lastedit": 1742312538,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2250250": {
+    "totalreply": 42,
+    "title": "[古龙小说的武功第一是谁？]",
+    "newtitle": "[古龙小说的武功第一是谁？]",
+    "lastedit": 1742313854,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2250256": {
+    "totalreply": 42,
+    "title": "[如何做到一个人去旅游]",
+    "newtitle": "[如何做到一个人去旅游]",
+    "lastedit": 1742313854,
+    "category": "外野",
     "active": true,
     "update": false
   }

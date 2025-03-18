@@ -1080,3 +1080,19 @@ wiki说第三个图（要塞）的垃圾会出苦无和忍者刀，不过我还�
 
 不过考虑到除了升级，升阶刚好也加难度，所以刚31我觉得难度很大XD
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 86#         楼主| 发表于 2025-3-19 00:06
+
+艹，养服氪佬
+
+<img src="https://img.saraba1st.com/forum/202503/19/000451tqhgw6qt020gbgtw.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="800" zoomfile="https://img.saraba1st.com/forum/202503/19/000451tqhgw6qt020gbgtw.jpg">
+
+<strong>2025-03-19_000448.jpg</strong> (111.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-19 00:04 上传
+
