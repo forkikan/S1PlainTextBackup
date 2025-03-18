@@ -13316,3 +13316,25 @@ HP: [https://anime.bang-dream.com/avemujica/story/](https://anime.bang-dream.com
 
 只救俩角色而且不一定是厨子乐见的形象和关系性是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  钦念以忱  
+##### 38146#       发表于 2025-3-18 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67679823&amp;ptid=2208921" target="_blank">UNISONIA 发表于 2025-3-18 14:32</a>
+
+只救俩角色而且不一定是厨子乐见的形象和关系性是吧</blockquote>
+睦应该也能救，睦头现在最大的问题是不知道她是什么形象，不知道睦祥关系现在咋样了，10话超融合到现在睦头再没有一句台词。下集再怎么至少也得讲个几句话做几个表情动作吧，这样新睦也算有个形象了，这个形象还是独角兽给的，可以说是最权威的官方形象。
+
+
+*****
+
+####  UNISONIA  
+##### 38147#       发表于 2025-3-18 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67679877&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-18 14:39</a>
+
+睦应该也能救，睦头现在最大的问题是不知道她是什么形象，不知道睦祥关系现在咋样了，10话超融合到现在睦 ...</blockquote>
+睦是基本上没办法拐回当时綾奈推特放的那个版本了
+
