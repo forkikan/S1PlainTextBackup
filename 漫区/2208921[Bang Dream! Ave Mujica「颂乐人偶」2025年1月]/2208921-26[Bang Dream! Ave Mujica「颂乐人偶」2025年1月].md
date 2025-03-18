@@ -14471,3 +14471,23 @@ MyGO时期的黄瓜有两个意义，第一 ...</blockquote>
 
 初音：真就想看个星星
 
+
+*****
+
+####  aptx8285144  
+##### 38247#       发表于 2025-3-18 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67681948&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-18 20:07</a>
+
+初华开启地狱战神召唤渔爹，初音也开启地狱战神召唤祥爷，两个人战若末日直到看见初妈哭成泪人抱臂缩成一 ...</blockquote>
+一开始还以为是寒蝉魔女大战，仔细一看，你小子是从哪部武侠小说里抄来的？<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 38248#       发表于 2025-3-18 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67678969&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-3-18 12:08</a></blockquote>
+是逆输入
+<img src="https://p.sda1.dev/22/66c947de0f5d0112a9d0ababc45ac4e4/image.jpg" referrerpolicy="no-referrer">
+
