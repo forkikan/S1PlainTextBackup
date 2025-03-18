@@ -14091,3 +14091,15 @@ MyGO时期的黄瓜有两个意义，第一 ...</blockquote>
 
 —— 来自 vivo V2301A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  NaAgfykp  
+##### 38215#       发表于 2025-3-18 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67681376&amp;ptid=2208921" target="_blank">wolf1997 发表于 2025-3-18 18:02</a>
+双重人格这个设定原本的模样应该是想表现人的多面性（类似于女神异闻录系列的人格面具），无论是吉他睦还是 ...</blockquote>
+我感觉双重人格的问题主要是莫太像“另一个人”而非她本人，导致融合的时候像是杀了两个人一样
+
+—— 来自 vivo V2301A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
