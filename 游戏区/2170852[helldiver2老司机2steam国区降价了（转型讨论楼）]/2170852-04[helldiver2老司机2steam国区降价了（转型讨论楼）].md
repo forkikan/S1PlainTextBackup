@@ -331,3 +331,11 @@ MG-206重机枪
 
 机器人史诗级加强，打枪变准+atat巡逻队就算了，还出了对标泰坦巢的重型工厂，咔嚓一开门俩无畏俩坦克，而且一个营地里有四个。我带最后通牒炸了俩，剩下俩咔咔往外冒坦克根本打不过来啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  madcow  
+##### 5860#       发表于 2025-3-18 23:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">MOD被杀干净了没有蕾娜通信员玩着不适应了
+
