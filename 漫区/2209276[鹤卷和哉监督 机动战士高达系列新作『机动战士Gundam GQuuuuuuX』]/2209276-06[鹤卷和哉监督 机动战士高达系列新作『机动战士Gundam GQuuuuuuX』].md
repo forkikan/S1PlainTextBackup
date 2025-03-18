@@ -17257,3 +17257,28 @@ khara X SUNRISE 梦想的交汇！
 
 来句痛快话吧，几号定档
 
+
+*****
+
+####  兔狐子  
+##### 8775#       发表于 2025-3-18 11:46
+
+急急急<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  中野梓  
+##### 8776#       发表于 2025-3-18 11:50
+
+快快快。 
+
+*****
+
+####  伊布桑  
+##### 8777#       发表于 2025-3-18 11:52
+
+希望能在开播之前放出来<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

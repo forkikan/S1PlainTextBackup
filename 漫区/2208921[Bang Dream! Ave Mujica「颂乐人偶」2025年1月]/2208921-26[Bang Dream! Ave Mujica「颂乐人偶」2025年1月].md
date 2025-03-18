@@ -12904,3 +12904,23 @@ HP: [https://anime.bang-dream.com/avemujica/story/](https://anime.bang-dream.com
 
 老登斗什么 家族议会吗 变成祥老师的钩子了？
 
+
+*****
+
+####  是谁的书画  
+##### 38106#       发表于 2025-3-18 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67678649&amp;ptid=2208921" target="_blank">dqtql 发表于 2025-3-18 11:33</a>
+别的不指望了，初祥关系性能保住吗？</blockquote>
+那肯定是妥能保住了，但是这一集的量也只能救这一对了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  结衣小比取  
+##### 38107#       发表于 2025-3-18 11:49
+
+十一话预告中把花和园艺剪刀弄掉的是初华母亲咯，毕竟她是别墅管理员
+<img src="https://s2.loli.net/2025/03/18/IknDH9dEo3qKx1r.gif" referrerpolicy="no-referrer">            
+
