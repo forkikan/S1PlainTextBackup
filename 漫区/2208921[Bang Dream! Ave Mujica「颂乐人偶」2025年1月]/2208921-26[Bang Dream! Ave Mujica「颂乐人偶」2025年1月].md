@@ -13612,3 +13612,73 @@ live前后再随便写点团内互动，狗团搞一小段样板戏就行，鸡�
 什么?甜甜圈去那里图啥，发现认错搭档，找素未相识的同姓人士吗</blockquote>
 好像是“每一个孩子都有唱歌的自由”云云 ，吐血。
 
+
+*****
+
+####  钦念以忱  
+##### 38173#       发表于 2025-3-18 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67680126&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-18 15:14</a>
+
+独角兽这么孤注一掷对初祥，怕不是睦又没戏份</blockquote>
+总不至于还变态到一句台词没有，只要稍微给几句台词，有点表情神态动作，就能推测一些睦现在的人设，哪怕真的和祥子决裂了，也是一种人设，好歹不是黑箱了。
+
+*****
+
+####  aptx8285144  
+##### 38174#       发表于 2025-3-18 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67680187&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-18 15:22</a>
+
+真能救睦吗
+
+睦活莫死，莫算什么?莫党不开心，莫喵cp灭
+
+莫活睦死，睦算什么?睦党不开心，睦祥cp灭</blockquote>
+从根子上来讲，为什么要搞双重人格，母鸡卡开播前谁期待过这玩意，而且追溯根源，虽然大喵独走摘面具也是加剧了睦的心理问题，但是没人要这些神人主创搞什么双重人格，更别说千面人格说的那些让睦党破防的话语<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  是谁的书画  
+##### 38175#       发表于 2025-3-18 15:35
+
+ 本帖最后由 是谁的书画 于 2025-3-18 15:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67680257&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-18 15:32</a>
+从根子上来讲，为什么要搞双重人格，母鸡卡开播前谁期待过这玩意，而且追溯根源，虽然大喵独走摘面具也是 ...</blockquote>
+总结经验教训吧只能说，就是苦了手游编剧了，我会很期待手游后续的剧情的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+还是一句话，人死即死，不要复活就好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">除非万圣节特别活动
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  曼彻斯特联  
+##### 38176#       发表于 2025-3-18 15:36
+
+别说融合后的睦了，第8话还没融合的吉他睦都和Mygo1-13话+Mujica1-3话的睦差了不少。
+
+*****
+
+####  月灵银羽  
+##### 38177#       发表于 2025-3-18 15:37
+
+<img src="https://img.saraba1st.com/forum/202503/18/153657gxc92kxdpsbux7ze.jpg" referrerpolicy="no-referrer">
+
+<strong>img_6363.jpg</strong> (35.54 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-18 15:36 上传
+
+雨夜，迈巴赫，血之哀，永不熄灭的黄金瞳，对上了，都对上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  大耳兽  
+##### 38178#       发表于 2025-3-18 15:37
+
+<img src="https://p.sda1.dev/22/3335982018c727badfe3e8112263d2bc/image.jpg" referrerpolicy="no-referrer">
+
