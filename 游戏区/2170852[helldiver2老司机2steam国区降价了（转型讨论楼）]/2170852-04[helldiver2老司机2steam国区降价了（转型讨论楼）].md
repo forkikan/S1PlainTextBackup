@@ -315,3 +315,11 @@ MG-206重机枪
 
 爆裂铳打机器人应该可以彻底取代机炮
 
+
+*****
+
+####  qwased  
+##### 5858#       发表于 2025-3-18 22:40
+
+不行，真的太卡了，而且开不开加速器都很卡<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
