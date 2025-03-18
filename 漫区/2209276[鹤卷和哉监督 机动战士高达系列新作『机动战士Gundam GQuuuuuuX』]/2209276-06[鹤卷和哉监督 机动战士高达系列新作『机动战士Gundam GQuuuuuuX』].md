@@ -17613,3 +17613,16 @@ khara X SUNRISE 梦想的交汇！
 麻球像是在笼子里努力往外挤的金丝雀，喵安像是笼子外面但是活的很狼狈的野麻雀 ...</blockquote>
 OK，ed鸟笼走起
 
+
+*****
+
+####  Toby_dak  
+##### 8807#       发表于 2025-3-18 16:11
+
+<blockquote>引用第8788楼YU_JI于2025-03-18 14:13发表的  :
+
+麻球像是在笼子里努力往外挤的金丝雀，喵安像是笼子外面但是活的很狼狈的野麻雀</blockquote>
+台长今年トリカゴ的额度还没用吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
