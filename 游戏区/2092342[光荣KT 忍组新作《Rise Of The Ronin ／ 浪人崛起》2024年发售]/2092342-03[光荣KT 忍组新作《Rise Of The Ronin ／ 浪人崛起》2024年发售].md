@@ -2019,3 +2019,25 @@ Ver1.09.0.1 2025/03/14Steam®
 出刀会被抓timing被打 防御等红光会遇到二连红光
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">我目前最好的强制1打多对抗手段是往后溜几步掏火枪等着冲我脸上爆他头
 
+
+*****
+
+####  莱希拉姆  
+##### 3605#       发表于 2025-3-18 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67668410&amp;ptid=2092342" target="_blank">廖化 发表于 2025-3-16 20:52</a>
+
+求问下，高杉存活的条件是啥，他的好感和因缘都刷满了，但是进入第三章之后一直不出找药的事件，我选的拥幕 ...</blockquote>
+我记得是无关的，因为高杉和冲田是可以同时存活的，是不是进度还没到。当初一周目就卡了久坂玄瑞最后一个姻缘任务，回魂录都没法补救<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  廖化  
+##### 3606#       发表于 2025-3-18 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67677807&amp;ptid=2092342" target="_blank">莱希拉姆 发表于 2025-3-18 10:01</a>
+
+我记得是无关的，因为高杉和冲田是可以同时存活的，是不是进度还没到。当初一周目就卡了久坂玄瑞最后一个 ...</blockquote>
+云存档出错，一口气倒回2天前的档……重新开新档了，只能说都是命……<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
+
