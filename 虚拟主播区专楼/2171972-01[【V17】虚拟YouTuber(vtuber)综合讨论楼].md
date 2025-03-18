@@ -248,3 +248,13 @@ syl，开局领先一张EP
 
 2025-3-17 17:03 上传
 
+
+*****
+
+####  格林卡罗尔  
+##### 1056#       发表于 2025-3-18 21:02
+
+可乐妹对这个棒球游戏没意见吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

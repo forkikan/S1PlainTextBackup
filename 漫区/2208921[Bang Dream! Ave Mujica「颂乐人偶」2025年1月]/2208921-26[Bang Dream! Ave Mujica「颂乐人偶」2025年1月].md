@@ -14456,3 +14456,18 @@ MyGO时期的黄瓜有两个意义，第一 ...</blockquote>
 初华开启地狱战神召唤渔爹，初音也开启地狱战神召唤祥爷，两个人战若末日直到看见初妈哭成泪人抱臂缩成一 ...</blockquote>
 好，邦邦史上最强马戏
 
+
+*****
+
+####  ntrntr1  
+##### 38246#       发表于 2025-3-18 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67681375&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-3-18 18:02</a>
+
+从歌词角度，一夜神话其实应该多半猜到了双子。
+
+因为只有初音和她晚上出去玩了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">观众们；这是小黄歌
+
+初音：真就想看个星星
+
