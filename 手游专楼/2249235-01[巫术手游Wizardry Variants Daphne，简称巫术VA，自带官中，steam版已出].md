@@ -1042,3 +1042,13 @@ wiki说第三个图（要塞）的垃圾会出苦无和忍者刀，不过我还�
 
 什么，沉默又miss了，大火球贴脸糊过来了，打扰了，告辞XD
 
+
+*****
+
+####  茄子自走炮  
+##### 82#       发表于 2025-3-18 22:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">吃吐息+咆哮后排站不住啊 有必死combo还做二连动
+
+上睡眠会被助战打掉 笑死
+
