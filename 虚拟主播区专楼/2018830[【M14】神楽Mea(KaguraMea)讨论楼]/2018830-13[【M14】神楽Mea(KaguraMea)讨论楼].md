@@ -4649,3 +4649,32 @@ happy斗魂竞技场<img src="https://static.saraba1st.com/image/smiley/face2017
 
 唉，高飞
 
+
+*****
+
+####  秋游刃  
+##### 18240#       发表于 2025-3-18 20:19
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/217.png" referrerpolicy="no-referrer">我的角被拔下来，细细的剁成了臊子。
+
+
+*****
+
+####  sino__unnko3  
+##### 18241#       发表于 2025-3-18 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67680448&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2025-3-18 15:56</a>
+好，你咩OBS卡蹦了</blockquote>
+复现，唉obs的bug害得你咩对线对一半灵感来了开obs准备上播结果掉线被打死了
+从之前的选歌到之后的页面叠加问题再到现在的游戏bug，obs全责
+
+*****
+
+####  术士q  
+##### 18242#       发表于 2025-3-18 20:23
+
+ 本帖最后由 术士q 于 2025-3-18 20:25 编辑 
+
+唉，obs
+说起来别的队友还在播，可以在那些地方了解对局情况
+
