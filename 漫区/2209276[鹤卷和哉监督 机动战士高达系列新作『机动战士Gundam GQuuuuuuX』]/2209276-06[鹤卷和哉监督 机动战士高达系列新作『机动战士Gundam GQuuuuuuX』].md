@@ -17420,3 +17420,17 @@ khara X SUNRISE 梦想的交汇！
 
 会是围城吗
 
+
+*****
+
+####  岸浪白野  
+##### 8792#       发表于 2025-3-18 13:43
+
+ 本帖最后由 岸浪白野 于 2025-3-18 13:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67679402&amp;ptid=2209276" target="_blank">kuriri 发表于 2025-3-18 13:16</a>
+
+同一个词在不同人心中的含义是不一样的，我们说的不是一种“常识”。
+
+鹤卷说的“常识”是教科书中的理想 ...</blockquote>
+社会常识和现实“常识”，只有喵安更了解社会灰色地带去生存应对妥协那这个大家还是懂的
+

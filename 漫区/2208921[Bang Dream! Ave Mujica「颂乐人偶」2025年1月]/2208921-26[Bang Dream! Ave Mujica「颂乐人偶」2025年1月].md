@@ -13227,3 +13227,18 @@ HP: [https://anime.bang-dream.com/avemujica/story/](https://anime.bang-dream.com
 
 也有可能捡玫瑰是在把剪刀和玫瑰扔出去之后
 
+
+*****
+
+####  syndrome2032  
+##### 38137#       发表于 2025-3-18 13:37
+
+什么借花献佛<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yugao  
+##### 38138#       发表于 2025-3-18 13:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">反田明明很好看，不知道为什么总能修图修成桥本有菜
+
