@@ -12889,3 +12889,18 @@ HP: [https://anime.bang-dream.com/avemujica/story/](https://anime.bang-dream.com
 
 别的不指望了，初祥关系性能保住吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FACS  
+##### 38104#       发表于 2025-3-18 11:38
+
+老登斗财阀了
+
+*****
+
+####  哈曼的YY  
+##### 38105#       发表于 2025-3-18 11:43
+
+老登斗什么 家族议会吗 变成祥老师的钩子了？
+
