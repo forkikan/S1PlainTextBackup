@@ -14375,3 +14375,50 @@ MyGO时期的黄瓜有两个意义，第一 ...</blockquote>
 
 —— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
+
+*****
+
+####  钦念以忱  
+##### 38239#       发表于 2025-3-18 19:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67681626&amp;ptid=2208921" target="_blank">久井路路 发表于 2025-3-18 18:53</a>
+
+就，其实这本来是一个很容易讲清楚的事情，结果大把的时间花在了故弄玄虚上，很多东西变成了你越去想越觉得 ...</blockquote>
+可能在原定的前4集祥子过去篇里，被砍掉了吧
+
+*****
+
+####  油画布  
+##### 38240#       发表于 2025-3-18 19:55
+
+<blockquote>聋与唬 发表于 2025-3-18 19:46
+错误的，在女女关系一团糟，母鸡卡人设一坨的情况下，本作逆天改命的希望就在这个一张白纸的初华了。
+
+</blockquote>
+那你说说在这20分钟怎么用初华逆天改命吧
+
+
+*****
+
+####  钦念以忱  
+##### 38241#       发表于 2025-3-18 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67681664&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-3-18 19:00</a>
+
+独角仙笔记本以前还有人考据是停产的老东西 可能是老妈留下的 有可能一起创作了中二世界观什么的
+
+结果最后 ...</blockquote>
+独角仙笔记本现在算是祥子和初音（华）的美好回忆吧
+
+*****
+
+####  聋与唬  
+##### 38242#       发表于 2025-3-18 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67681539&amp;ptid=2208921" target="_blank">wolf1997 发表于 2025-3-18 18:40</a>
+差不多，但其实这个问题还是有理论上的解决空间的。
+参考名作《我们没有翅膀》，在这部作品里不仅存在多 ...</blockquote>
+个人线里没融合吧，还把其他人格的女友甩了
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+

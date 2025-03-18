@@ -4297,3 +4297,28 @@ https://bgm.tv/subject/topic/33083
 
 感谢推荐，晚点去看看
 
+
+*****
+
+####  shimotsuki14  
+##### 381#       发表于 2025-3-18 19:52
+
+买了，今天玩了两小时，感觉确实还不错
+
+steam版搞汉化方便吗
+
+*****
+
+####  Tissuesea  
+##### 382#       发表于 2025-3-18 19:55
+
+ 本帖最后由 Tissuesea 于 2025-3-18 19:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67681880&amp;ptid=2246453" target="_blank">shimotsuki14 发表于 2025-3-18 19:52</a>
+
+买了，今天玩了两小时，感觉确实还不错
+
+steam版搞汉化方便吗</blockquote>
+坛友搞了汉化，应该还行吧，也才刚刚玩上。[DE:Fanastasis 撞车的个人汉化 + SteamDeck 专用补丁（已同步1.1.8更新）](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=2246453&amp;pid=67681897)
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
