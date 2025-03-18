@@ -17691,3 +17691,34 @@ OK，ed鸟笼走起
 
 听到预告用的bgm真的很惊喜，不仅代表动画每集预告的音乐都是这样，鹤卷这么喜欢指定要用上朋克让人想起The Pillows
 
+
+*****
+
+####  创始’’’天翔  
+##### 8814#       发表于 2025-3-18 19:58
+
+快进到高达姐们吃得真是太好了，高达就是一个乙游大世界
+
+<img src="https://img.saraba1st.com/forum/202503/18/195831fj4us88nnn884zjg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250318_195823.jpg</strong> (436.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-18 19:58 上传
+
+*****
+
+####  岸浪白野  
+##### 8815#       发表于 2025-3-18 19:58
+
+<img src="https://p.sda1.dev/22/f3d603b62b1899b6cfd7ecf9b86bc8e1/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  岸浪白野  
+##### 8816#       发表于 2025-3-18 20:06
+
+其实也算正常话语，但列成大字报还是有点尬
+

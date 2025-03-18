@@ -245,3 +245,14 @@ MG-206重机枪
 
 - 具有充能机制的武器在射速超过RPM（每分钟射速）限制时可能会有异常表现
 
+
+*****
+
+####  FLZB  
+##### 5851#       发表于 2025-3-18 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67681873&amp;ptid=2170852" target="_blank">pwzzy 发表于 2025-3-18 19:50</a>
+
+这俩武器看着就是狗屎啊</blockquote>
+等数据，激光左轮应该是中穿，杠杆搞不好是主手左轮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
