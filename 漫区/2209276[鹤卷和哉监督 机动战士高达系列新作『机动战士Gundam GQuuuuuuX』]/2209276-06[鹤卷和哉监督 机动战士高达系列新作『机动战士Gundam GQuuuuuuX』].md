@@ -17314,3 +17314,11 @@ khara X SUNRISE 梦想的交汇！
 
 吉夸克斯，这个名字是真的？感觉就是机翻啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 8782#       发表于 2025-3-18 12:39
+
+喵安最主要是又没自信又找不到生活的意义，失望时会选择放弃接受一切，但为了生存是不会动摇的。
+

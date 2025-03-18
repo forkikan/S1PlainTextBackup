@@ -458,3 +458,14 @@ ct哪有什么重制，还是说nds版叫重制，pc本来也就是nds上移植�
 
 搞不懂为啥不上次世代PS，一直想打个杯<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Muteki_Link  
+##### 42#       发表于 2025-3-18 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67672818&amp;ptid=2249484" target="_blank">戏言学者 发表于 2025-3-17 15:23</a>
+
+两个选择都是时间流动的atb战斗，区别是传统模式时，进入子菜单比如选择魔法和道具时，atb条会暂停，你有 ...</blockquote>
+行，那我还是回合了，手机上玩的场合不会完全专心的
+

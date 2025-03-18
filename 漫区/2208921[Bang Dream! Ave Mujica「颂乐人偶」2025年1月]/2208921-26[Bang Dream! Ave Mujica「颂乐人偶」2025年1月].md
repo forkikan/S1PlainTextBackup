@@ -13043,3 +13043,22 @@ HP: [https://anime.bang-dream.com/avemujica/story/](https://anime.bang-dream.com
 
 12集也有老登场景吧，希望一句话带过就完事了，或者学习一下隔壁德林<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  秋月孝三  
+##### 38121#       发表于 2025-3-18 12:37
+
+发际线致敬反田而已。这作画组看来也被哈酱勾了魂了
+
+
+*****
+
+####  钦念以忱  
+##### 38122#       发表于 2025-3-18 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67678814&amp;ptid=2208921" target="_blank">结衣小比取 发表于 2025-3-18 11:49</a>
+
+十一话预告中把花和园艺剪刀弄掉的是初华母亲咯，毕竟她是别墅管理员</blockquote>
+是不是祥子拿着花找错人找到真初华身上去了。
+
