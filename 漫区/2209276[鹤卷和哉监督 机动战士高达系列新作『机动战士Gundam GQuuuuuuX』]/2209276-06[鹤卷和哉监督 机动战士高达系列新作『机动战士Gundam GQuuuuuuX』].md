@@ -17746,3 +17746,26 @@ OK，ed鸟笼走起
 
 这个海报设计也太土了，字体简直是在摧残我的眼睛<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赤黑的假面  
+##### 8820#       发表于 2025-3-18 20:41
+
+潮玩大字报是吧
+
+
+*****
+
+####  zxtree  
+##### 8821#       发表于 2025-3-18 20:44
+
+有点弱智，这活这么好干吗
+
+*****
+
+####  兔狐子  
+##### 8822#       发表于 2025-3-18 20:47
+
+这大字报实在是有点尬了兄弟<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
