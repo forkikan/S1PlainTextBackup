@@ -272,3 +272,13 @@ MG-206重机枪
 
 感觉好像网络同步的什么设置改了，现在延迟大的时候根本没法玩，怪和队友都在闪烁
 
+
+*****
+
+####  qwased  
+##### 5854#       发表于 2025-3-18 21:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">另外今天是都在科研新配装还是怎么回事，感觉n10队友像个弱智，装备带个乱七八糟还乱走
+
+好像发现问题了，n10现在会主动给你匹配等级20几的新人<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+

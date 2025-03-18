@@ -17807,3 +17807,37 @@ OK，ed鸟笼走起
 
 <strong>不知道从什么时候起，咱们这边的电影宣发就非常流行大字报这种形式了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"></strong>
 
+
+*****
+
+####  DARILBALDE  
+##### 8828#       发表于 2025-3-18 21:49
+
+这大字报，太跨时了集美们，整一个无语住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  AvenueIII  
+##### 8829#       发表于 2025-3-18 21:49
+
+ 本帖最后由 AvenueIII 于 2025-3-18 21:52 编辑 
+
+大字报要搞也搞这种啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202503/18/214944i6llcpq1o06e6rqy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>atisseEBEVA1.jpeg</strong> (192.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-18 21:49 上传
+
+*****
+
+####  xwz  
+##### 8830#       发表于 2025-3-18 21:51
+
+所以哪天？
+
