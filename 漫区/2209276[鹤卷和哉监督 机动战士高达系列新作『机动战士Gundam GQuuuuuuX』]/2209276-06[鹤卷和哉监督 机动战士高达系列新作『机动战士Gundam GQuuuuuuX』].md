@@ -18184,3 +18184,40 @@ IMG_7739.jpeg
 
 前期JK过家家，中期地区武装冲突，结尾奇迹滥用怪力乱神
 
+
+*****
+
+####  伊川  
+##### 8855#       发表于 2025-3-19 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67685661&amp;ptid=2209276" target="_blank">PascalLefèvre 发表于 2025-3-19 13:05</a>
+一定要选的话现在剧场版里0085的内容是学生过家家，后面就不知道了</blockquote>
+蛮好的，是现在年轻人的口味，希望多给UC带来些新鲜血液<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+*****
+
+####  RE㐅ia  
+##### 8856#       发表于 2025-3-19 13:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67685613&amp;ptid=2209276" target="_blank">伊川 发表于 2025-3-19 12:58</a>
+
+这作是啥路线，是老uc那种偏向宏大叙事的，还是文豪那种怪力乱神的，还是大河内那种学生过家家的
+
+—— 来 ...</blockquote>
+答案是都是。begining里塞克谬暴走怪力乱神，85开篇里jk上学打黑拳过家家，结尾就是“世界迎向新时代”的宏大叙事。<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  纪寞  
+##### 8857#       发表于 2025-3-19 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67686002&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-3-19 13:57</a>
+
+答案是都是。begining里塞克谬暴走怪力乱神，85开篇里jk上学打黑拳过家家，结尾就是“世界迎向新时代”的 ...</blockquote>
+结尾真宏大叙事吗，如果神棍到一定程度也算的话<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+感觉结局能把鸭子弄回来都已经算是胜利了
+

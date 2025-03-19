@@ -1211,3 +1211,14 @@ wiki说第三个图（要塞）的垃圾会出苦无和忍者刀，不过我还�
 
 那30个骨头是不是直接开就完了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">up池的石头好像都要氪金？还是我没找到绿石头的用途
 
+
+*****
+
+####  elven119  
+##### 97#       发表于 2025-3-19 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67685823&amp;ptid=2249235" target="_blank">棍机凹升龙 发表于 2025-3-19 13:28</a>
+
+那30个骨头是不是直接开就完了up池的石头好像都要氪金？还是我没找到绿石头的用途 ...</blockquote>
+绿石头也可以换up池抽卡卷，只是这个卷只能抽到角色，拿不到附带的武器
+

@@ -14865,3 +14865,14 @@ weibo：绿羊_midori
 因为玉井和酒井在当时海选的时候先看的是具有音乐实力的素人，是以乐队的角度出发不是偶像的角度，一开始 ...</blockquote>
 虽然在鸡楼里谈别的企划很奇怪，但是你觉得跟🦎比486声优的架子鼓怎么样，or唱功方面李子和理名哪个强
 
+
+*****
+
+####  ape-apple  
+##### 38277#       发表于 2025-3-19 14:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67684892&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-19 11:18</a>
+
+有外型又有音樂能力的為什麼不主流出道…….</blockquote>
+反田叶月，是没有颜值还是唱功五音不全呢，混得比lsl都差，D5J都快倒闭了，所以大多数时候能不能火都是没有原因的
+
