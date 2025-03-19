@@ -771,3 +771,65 @@ gqx机设里的钢加农确实都是像元祖改的
 0079我只看过漫画GTO，希望能看懂吧</blockquote>
 已经无敌了，正好看
 
+
+*****
+
+####  Kasuga_Mirai  
+##### 8949#       发表于 2025-3-19 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67688494&amp;ptid=2209276" target="_blank">199april 发表于 2025-3-19 19:34</a>
+
+直接看0079那三部电影，有兴趣再看看逆袭的夏亚，z的剧情找个速看快速过一遍 ...</blockquote>
+看0079剧场版，然后补GTO好点
+
+Z，ZZ，逆鸭和Gqux应该都没什么太大关系了，值得细看的东西速看太浪费了
+
+*****
+
+####  岸浪白野  
+##### 8950#       发表于 2025-3-19 22:56
+
+ 本帖最后由 岸浪白野 于 2025-3-19 22:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67689705&amp;ptid=2209276" target="_blank">zzf111 发表于 2025-3-19 22:38</a>
+首席哥太菜开不了奥米伽塞可缪导致我产生了错觉</blockquote>
+开不了是开不了，但这会影响GQX比红高达高的性能和防御吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+楼上也说完细节了，你都看过一遍战斗切片了是没认真看的那还是到时再好好看一遍吧
+
+*****
+
+####  YU_JI  
+##### 8951#       发表于 2025-3-19 22:57
+
+<blockquote>完美的消费品 发表于 2025-3-19 22:34
+感觉完全没人关注，是不是要暴死了。能卖过企鹅公路吧
+
+适合清明放假和家人一起看吗？父母之类的</blockquote>
+国内关注度确实一般吧，毕竟从官宣到定档太快了，宣传约等于0
+
+
+*****
+
+####  zzf111  
+##### 8952#       发表于 2025-3-19 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67689813&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-3-19 22:56</a>
+
+开不了是开不了，但这会影响GQX比红高达高的性能和防御吗
+
+楼上也说完细节了，你都看过一遍战斗切片了没认 ...</blockquote>
+注意力主要都在首席哥开着gqx跟踪元祖能被甩开偷袭再扭打掉到殖民地放烟跑路的丢人戏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AvenueIII  
+##### 8953#       发表于 2025-3-19 23:04
+
+首席哥超强的，期待后续新机体
+
+*****
+
+####  AvenueIII  
+##### 8954#       发表于 2025-3-19 23:05
+
+              
+

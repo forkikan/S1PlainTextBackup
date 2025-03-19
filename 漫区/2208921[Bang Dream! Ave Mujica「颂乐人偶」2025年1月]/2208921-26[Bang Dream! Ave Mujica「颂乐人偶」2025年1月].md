@@ -15518,3 +15518,43 @@ RJ01357240</blockquote>
 对啊，我分开讲的，想知道有没有专门的术语描述琴里这种情况</blockquote>
 心理暗示吧。
 
+
+*****
+
+####  太二EricGuo  
+##### 38316#       发表于 2025-3-19 22:57
+
+突然想到，如果初华遇到祥睦的女儿，那不就可以姨婆文学了吗
+
+
+*****
+
+####  太二EricGuo  
+##### 38317#       发表于 2025-3-19 23:01
+
+十五年未有之小姨
+
+<img src="https://img.saraba1st.com/forum/202503/19/230145l28t11bsefsu21t8.png" referrerpolicy="no-referrer">
+
+<strong>1369ca94-50d2-4c97-a7ca-c2c5cbc0e338.png</strong> (116.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-19 23:01 上传
+
+<img src="https://img.saraba1st.com/forum/202503/19/230147lgm7i4ssqgxx7ssp.png" referrerpolicy="no-referrer">
+
+<strong>7554c98d-0ae3-4a5e-8d11-02166d5221c7.png</strong> (69.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-19 23:01 上传
+
+<img src="https://img.saraba1st.com/forum/202503/19/230150mv8v88lpgthlph59.png" referrerpolicy="no-referrer">
+
+<strong>265c8dd7-ee72-4287-8cb4-426d204a4f2a.png</strong> (70.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-19 23:01 上传
+
