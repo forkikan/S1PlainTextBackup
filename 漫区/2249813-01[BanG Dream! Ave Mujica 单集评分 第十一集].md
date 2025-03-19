@@ -3657,3 +3657,14 @@ Ave Mujica 前11话 niconico 好评率
 
 +2，声优辛苦了
 
+
+*****
+
+####  plazum  
+##### 380#       发表于 2025-3-19 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67658970&amp;ptid=2249813" target="_blank">NOYURINOLIFE 发表于 2025-3-15 10:46</a>
+
+不是，真没看懂，初音和清告有啥关系吗，是我看漏什么剧情吗，怎么一堆人对着一段莫名其妙的话在这儿加减 ...</blockquote>
+我猜他们指的是初音在东京演出后去找观众席上看到的清告的事情吧
+
