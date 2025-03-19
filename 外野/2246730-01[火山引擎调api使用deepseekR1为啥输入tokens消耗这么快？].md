@@ -390,3 +390,29 @@ DeepSeek满血版免费领啦！邀请好友注册和使用，最高双方可获
 
 ----发送自 [Sony XQ-AT72,Android 12](http://stage1.5j4m.com/?1.42)
 
+
+*****
+
+####  约翰里德  
+##### 45#       发表于 2025-3-19 14:30
+
+我一个跑团回答33000tokens，我抱怨了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  moekyo  
+##### 46#       发表于 2025-3-19 14:32
+
+本地部署可破<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202503/19/143138tq0w2ozzocpd0ac2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (74.68 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-19 14:31 上传
+
+[https://huggingface.co/bartowski ... -Instruct-2503-GGUF](https://huggingface.co/bartowski/mistralai_Mistral-Small-3.1-24B-Instruct-2503-GGUF)
+

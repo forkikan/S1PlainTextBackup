@@ -18251,3 +18251,39 @@ IMG_7739.jpeg
 
 flcl和龙的牙医都没有特别的宏大叙事吧，感觉世界迎来新时代也是烟雾弹
 
+
+*****
+
+####  纪寞  
+##### 8860#       发表于 2025-3-19 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67686088&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-3-19 14:10</a>
+
+简介最后给你这么来一句你就说宏不宏大吧</blockquote>
+目前给的主线感觉就和老UC那种"宏大"沾不上边了，感觉它更像更青春现代风格的独角兽(所以我说就得先补独角兽)
+
+而且就12集，也不指望一群看着都不去干政治的年轻人去改变什么世界了，能把鸭子弄回来就行了。
+
+*****
+
+####  masshiroo  
+##### 8861#       发表于 2025-3-19 14:28
+
+剧场版和tv前几集是一样的吗？
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  PascalLefèvre  
+##### 8862#       发表于 2025-3-19 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67686212&amp;ptid=2209276" target="_blank">masshiroo 发表于 2025-3-19 14:28</a>
+剧场版和tv前几集是一样的吗？
+
+论坛助手,iPhone</blockquote>
+tv会直接从0085部分开始
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
