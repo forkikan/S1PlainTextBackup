@@ -178,3 +178,37 @@ GQuuuuuuX（吉夸克斯）启动，向着宇宙进发！
 国内特典是怎么给的？</blockquote>
 先官方应援场尽量选IMAX，特典要中下旬才能弄好赶上
 
+
+*****
+
+####  mellshon001  
+##### 8901#       发表于 2025-3-19 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67687404&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-3-19 16:59</a>
+顺便有人要的宣传带上说EVA</blockquote>
+好奇12集能不能拍到辱骂重力的环节<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蕾洁之风  
+##### 8902#       发表于 2025-3-19 17:47
+
+ 本帖最后由 蕾洁之风 于 2025-3-19 17:49 编辑 
+
+可以说是一路飞速通行无阻，从进出口到定档20天不到就运作完<img src="https://p.sda1.dev/22/90f096c8597a452b0f23428e9a66eaa6/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  AvenueIII  
+##### 8903#       发表于 2025-3-19 17:53
+
+这绿灯，比我的托运行李还快<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hkguty  
+##### 8904#       发表于 2025-3-19 17:54
+
+感觉这个高达GQ的男主角？一眼渚薰剧本，九成要变成宇宙男鬼的那种
+
