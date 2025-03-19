@@ -881,3 +881,39 @@ Z，ZZ，逆鸭和Gqux应该都没什么太大关系了，值得细看的东西�
 适合清明放假和家人一起看吗？父母之类的</blockquote>
 不太适合，还是和同好一起或者自己去看吧。
 
+
+*****
+
+####  RE㐅ia  
+##### 8960#       发表于 2025-3-20 01:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67690420&amp;ptid=2209276" target="_blank">az一串字母 发表于 2025-3-20 01:02</a>
+
+感觉可以gqx赛克谬形态首席哥和gqx赛克谬形态牢修论战了，反正我觉得三个机师里麻球最菜 ...</blockquote>
+现在纯靠nt能力和塞克谬的相向性带飞。一个血统纯正的jk能指望有啥技术<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  灵魂收割机  
+##### 8961#       发表于 2025-3-20 01:56
+
+<blockquote>完美的消费品 发表于 2025-3-19 22:34
+感觉完全没人关注，是不是要暴死了。能卖过企鹅公路吧
+
+适合清明放假和家人一起看吗？父母之类的</blockquote>
+不太适合，还是和同好一起或者自己去看吧。
+
+*****
+
+####  闽明  
+##### 8962#       发表于 2025-3-20 06:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67689603&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-3-19 22:22</a>
+提姆雷都出现在0079年side7的v计划施工现场了，夏亚抢高达的时候还在那念0079台本呢，元祖当然是他造的。 ...</blockquote>
+关于米诺夫斯基博士，你还真别说，原版的设定就是他在72年从side 6投诚联邦带来了相关技术。
+
+在月面投诚路上卷入战斗横死是GTO的设定。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
