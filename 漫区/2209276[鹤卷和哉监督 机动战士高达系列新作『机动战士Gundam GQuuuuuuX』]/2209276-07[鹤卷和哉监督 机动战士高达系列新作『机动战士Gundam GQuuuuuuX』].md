@@ -541,3 +541,27 @@ GQuuuuuuX（吉夸克斯）启动，向着宇宙进发！
 
 不过这是虚构作品，所以可以当他是不存在的东西来描写就是了。
 
+
+*****
+
+####  AraTurambar  
+##### 8931#       发表于 2025-3-19 21:29
+
+其实最大的假药就是哈曼，但是如果真的要考虑哈曼那要补的东西多过头了。
+
+考虑到这个假药兑现的可能性不大，无视就行了吧？
+
+
+*****
+
+####  伊川  
+##### 8932#       发表于 2025-3-19 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67689256&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-3-19 21:26</a>
+首先提一嘴彩蛋里奶奶头是最想回避的要禁赛的，怎么还在最有可能.........
+
+基本让观众心里默念还在木星算 ...</blockquote>
+为什么想要回避希洛克，难不成他还能PUA主角团吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
