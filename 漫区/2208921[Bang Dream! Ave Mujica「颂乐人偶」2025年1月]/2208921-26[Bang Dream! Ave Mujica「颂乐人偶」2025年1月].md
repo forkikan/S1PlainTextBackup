@@ -15497,3 +15497,14 @@ dlsite也有大祥老师看的吗
 RJ01357240</blockquote>
 南加有汉化咧
 
+
+*****
+
+####  东海归墟  
+##### 38314#       发表于 2025-3-19 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67688820&amp;ptid=2208921" target="_blank">S1-an 发表于 2025-3-19 20:24</a>
+
+五河琴里其实不算双重人格，那个算性格转换器</blockquote>
+对啊，我分开讲的，想知道有没有专门的术语描述琴里这种情况
+

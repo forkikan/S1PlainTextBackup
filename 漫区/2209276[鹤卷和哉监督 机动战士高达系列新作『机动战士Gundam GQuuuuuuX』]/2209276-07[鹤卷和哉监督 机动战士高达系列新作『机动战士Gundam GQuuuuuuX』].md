@@ -590,3 +590,31 @@ GQuuuuuuX（吉夸克斯）启动，向着宇宙进发！
 
 而且铁奥是奶奶头全自研的，无论GQX世界线的吉翁和联邦科技树怎么变，这台机还是会照常诞生，并作为反派挡在主角面前。
 
+
+*****
+
+####  Kasuga_Mirai  
+##### 8935#       发表于 2025-3-19 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67689328&amp;ptid=2209276" target="_blank">zzf111 发表于 2025-3-19 21:38</a>
+
+这话是不想让奶奶头参与故事的意思，但是木星相关的全才新人类再怎么说被顺便提一嘴存在感的可能性也比z ...</blockquote>
+?
+
+元祖怎么就不是骡爹造的了
+
+*****
+
+####  岸浪白野  
+##### 8936#       发表于 2025-3-19 22:06
+
+ 本帖最后由 岸浪白野 于 2025-3-19 22:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67689328&amp;ptid=2209276" target="_blank">zzf111 发表于 2025-3-19 21:38</a>
+
+这话是不想让奶奶头参与故事的意思，但是木星相关的全才新人类再怎么说被顺便提一嘴存在感的可能性也比z ...</blockquote>
+我直接没有期待Z/ZZ的角色提一嘴彩蛋好吗，不要抱最不确定的期待，期待0079彩蛋都比这强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+0079部分直接复刻提姆雷出现的镜头，然后0085部分玛秋上网查百科看到元祖的设计者不明，不就是联邦V作战的数据已经丢失
+
+到你这变成元祖不是提姆雷造是吧？
+
