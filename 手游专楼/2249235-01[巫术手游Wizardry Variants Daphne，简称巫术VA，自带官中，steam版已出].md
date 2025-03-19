@@ -1136,3 +1136,27 @@ wiki说第三个图（要塞）的垃圾会出苦无和忍者刀，不过我还�
 
 这游戏0+0后面打的过去吗？专武只有氪金石抽出人物时才小几率带1把，需要3把才能+10，而且武器还有随机星数和词条的区别，高难度+动态难度我怀疑后面无氪主线都打不过去啊？<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  elven119  
+##### 91#       发表于 2025-3-19 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67684138&amp;ptid=2249235" target="_blank">gugu153 发表于 2025-3-19 09:54</a>
+
+这游戏0+0后面打的过去吗？专武只有氪金石抽出人物时才小几率带1把，需要3把才能+10，而且武器还有随机星数 ...</blockquote>
+无氪主角solo第三章都有了，问题不大。难度大是没找对方法，氪金武器说实话普通玩家根本不考虑，那玩意儿出个1星屁用没有。强度也就那样吧，第三章冥钢已经淘汰大部分氪金武器了
+
+
+*****
+
+####  elven119  
+##### 92#       发表于 2025-3-19 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67683818&amp;ptid=2249235" target="_blank">Ashice 发表于 2025-3-19 09:13</a>
+
+听说一件装备只能改一次词条，不同等级的石头敲上去得到的词条上限不同？然后第三章对属性的要求还特别高？ ...</blockquote>
+不对电波很难坚持的，可以考虑弃坑。
+
+本来难度就很大，攻略主线需要大量装备支持，这游戏基本上都是老登在玩了，按照现在市面上的游戏节奏来玩肯定难受的。能弃就弃吧
+
