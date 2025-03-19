@@ -2384,3 +2384,15 @@ Snipaste_2025-03-19_16-16-48.png
 新选组的超人类基本都是靠忍流+北辰一刀流的连砍打的，人均会瞬移，太牛逼了。
 道场的久坂玄瑞人巨菜，但是二阶段上火附魔，打完感觉吃了一万个闪光，忍者组的美术就是牛逼！
 
+
+*****
+
+####  杜文乐超神归来  
+##### 3639#       发表于 2025-3-20 01:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67690343&amp;ptid=2092342" target="_blank">cherry__ 发表于 2025-3-20 00:42</a>
+问下江户是在找了胜海舟之后就会锁死倒幕这边的任务吗，还是说本来就没有倒幕线 ...</blockquote>
+没啥影响，最大的影响就是任务打的boss不同。打完了又该干嘛干嘛，史实的大事件也不会有改变
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
