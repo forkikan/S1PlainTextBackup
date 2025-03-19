@@ -440,3 +440,11 @@ https://huggingface.co/bartowski/mistralai_Mistral-Small-3.1-24B-Instruct-2503-G
 这是之前说的欧洲AI？不是说欧洲上不了桌吗</blockquote>
 怎么讲呢，创始人是 Deepmind 和 Meta 的前员工，看你定义了，不过肯定比纯血法国的 Lucie 好多了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  kouym  
+##### 49#       发表于 2025-3-19 15:42
+
+所以每问一个新的问题 跟前面无关的 新增一个会话最好 不是的话会把之前上下文全带进去
+
