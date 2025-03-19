@@ -377,3 +377,16 @@ DeepSeek满血版免费领啦！邀请好友注册和使用，最高双方可获
 
 —— 来自 vivo V2199A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Elicasa  
+##### 44#       发表于 2025-3-19 14:25
+
+<blockquote>引用第40楼Luck于2025-03-17 14:29发表的  :
+
+类似的问题，我是用cherrystudio建了本地知识库，用火山API接了DS R1，今天发现我5号......</blockquote>
+没法解决，大语言模型就是这个玩法，不把检索出的知识库内容一起输入，又如何让模型知道信息来给出回答呢？
+
+----发送自 [Sony XQ-AT72,Android 12](http://stage1.5j4m.com/?1.42)
+

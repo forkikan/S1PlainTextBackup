@@ -14893,3 +14893,33 @@ weibo：绿羊_midori
 
 但你也可以拥有自己的一套结论，或许这个采访可以给你做一部分参考 [https://bgm.tv/blog/333405](https://bgm.tv/blog/333405)
 
+
+*****
+
+####  东海归墟  
+##### 38279#       发表于 2025-3-19 14:20
+
+上一个出圈作品里主角是双重人格的是谁，两仪式？
+
+话说约战里妹妹这种随时切换形态的怎么算
+
+*****
+
+####  梅杜莎  
+##### 38280#       发表于 2025-3-19 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67685699&amp;ptid=2208921" target="_blank">K的字母表 发表于 2025-3-19 13:10</a>
+
+有人扒出初音十一集最后在天使之路，是一条情侣景点，卧槽都写成这样了干脆锤了是真百算了，反正也不差这一 ...</blockquote>
+发链接来看看
+
+
+*****
+
+####  ape-apple  
+##### 38281#       发表于 2025-3-19 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67686104&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-19 14:12</a>
+既然你都这样说了，希望话题就在我回复之后止步于此吧。再做讨论若觉得去GBC楼怕被攻击，也可移步以去台 ...</blockquote>
+我的建议是找人要找准，啊，希望你的眼神足够看到我没提gbc企划，其次你不知道的事情可以不必强答，或者善用耳朵
+
