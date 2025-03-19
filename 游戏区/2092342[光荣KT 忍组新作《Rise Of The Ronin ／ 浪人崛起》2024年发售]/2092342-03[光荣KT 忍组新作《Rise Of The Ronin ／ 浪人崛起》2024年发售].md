@@ -2348,3 +2348,21 @@ Snipaste_2025-03-19_16-16-48.png
 
 还有就是攻击/防御（也就是玩家造成的伤害和承受的伤害），大概有6%的差距。
 
+
+*****
+
+####  cherry__  
+##### 3635#       发表于 2025-3-20 00:18
+
+拿毒鞭的外国女人好难打啊，而且下个任务还有个扔毒镖的外国人<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  杜文乐超神归来  
+##### 3636#       发表于 2025-3-20 00:23
+
+动摇时间影响感觉挺大的，我紫电切了不利弹总司动摇马上被他二连石火<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
