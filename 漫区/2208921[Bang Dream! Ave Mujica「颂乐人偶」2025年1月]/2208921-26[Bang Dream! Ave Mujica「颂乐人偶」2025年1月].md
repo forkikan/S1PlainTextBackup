@@ -15206,3 +15206,33 @@ Ave Mujica的复活演唱会在目的地不明的情况下悄然开始，正是�
 
 不如12话追妻失败，初音死亡，祥子直接把真初华抓回来当鸡团主唱算了。
 
+
+*****
+
+####  aptx8285144  
+##### 38290#       发表于 2025-3-19 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67686149&amp;ptid=2208921" target="_blank">东海归墟 发表于 2025-3-19 14:20</a>
+
+上一个出圈作品里主角是双重人格的是谁，两仪式？
+
+话说约战里妹妹这种随时切换形态的怎么算 ...</blockquote>
+这些好像都是有明确敌人的作品的，母鸡卡这片就是丰川大手是大手，但至少不是莫女士要打到的大手，其中老登甚至是默许母鸡卡的存在，所以史上最狂的宣传仔细品味还是挺搞笑的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yy19  
+##### 38291#       发表于 2025-3-19 19:07
+
+有本事写死祥子，不然闭嘴什么狗屁的屎上嘴矿😤
+
+*****
+
+####  aptx8285144  
+##### 38292#       发表于 2025-3-19 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67687458&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-3-19 17:04</a>
+
+长崎爽世 2025生日纪念商品</blockquote>
+想起一个梗：报告丞相，这城里没有成熟的寡妇，只有高中生jk<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
