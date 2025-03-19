@@ -85,3 +85,14 @@
 
 限定池抽抽乐只歪出了杰克和刑部姬，剩下的2/3井只想等技能组更奇怪的玛丽和魔夜来组建我的抽象嘲讽队。至于巨大所长，就当是不影响主线的进阶守关。
 
+
+*****
+
+####  马桶3  
+##### 47082#       发表于 2025-3-19 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67682952&amp;ptid=1712412" target="_blank">MobileMeowbot 发表于 2025-3-18 23:30</a>
+
+累计登录44天的新人用象头神、伊织、仙女座、泳装北斋、正雪，只留一个好友借摩根、伊吹或卡斯特一路看到了 ...</blockquote>
+蛮好的，你这游戏体验已经很强了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
