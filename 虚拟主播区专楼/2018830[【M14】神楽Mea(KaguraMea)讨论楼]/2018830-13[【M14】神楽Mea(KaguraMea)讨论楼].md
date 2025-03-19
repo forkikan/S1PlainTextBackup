@@ -5205,3 +5205,15 @@ LINE都没来呢。如果是我被拒绝后找的她还能理解，但连LINE都
 小鱼人的武器叫独角切吗（错乱）
 总之明天要加油啊（虽然在这里说看不到就是了，届时得去t台声援）
 
+
+*****
+
+####  sino__unnko3  
+##### 18267#       发表于 2025-3-20 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67690164&amp;ptid=2018830" target="_blank">术士q 发表于 2025-3-19 23:54</a>
+“对lol的看法，lol尤其排位是可以给自己认可的游戏。”
+“过往lol的经历与lol民的环境加上新人的感受”
+“ ...</blockquote>
+她早上那段关于高飞的话的机翻绝对会造成误解吧(），不知道正确的应该是怎么个情况
+
