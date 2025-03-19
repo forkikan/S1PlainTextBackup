@@ -15508,3 +15508,13 @@ RJ01357240</blockquote>
 五河琴里其实不算双重人格，那个算性格转换器</blockquote>
 对啊，我分开讲的，想知道有没有专门的术语描述琴里这种情况
 
+
+*****
+
+####  syndrome2032  
+##### 38315#       发表于 2025-3-19 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67689522&amp;ptid=2208921" target="_blank">东海归墟 发表于 2025-3-19 22:11</a>
+对啊，我分开讲的，想知道有没有专门的术语描述琴里这种情况</blockquote>
+心理暗示吧。
+

@@ -650,3 +650,95 @@ GQuuuuuuX（吉夸克斯）启动，向着宇宙进发！
 
 提姆雷都出现在0079年side7的v计划施工现场了，夏亚抢高达的时候还在那念0079台本呢，元祖能不是他造的？难不成空降一个米诺夫斯基没死帮联邦打工，提姆雷打下手的设定吗？
 
+
+*****
+
+####  maxwellsdemon  
+##### 8939#       发表于 2025-3-19 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67688917&amp;ptid=2209276" target="_blank">ArthurDent 发表于 2025-3-19 20:38</a>
+
+有点复杂，只看过水魔，看鹤卷高需要补啥能提高观感？总时长控制在五个小时内
+
+—— 来自 Xiaomi 2112123 ...</blockquote>
+可以简单云一下0079
+
+*****
+
+####  纪寞  
+##### 8940#       发表于 2025-3-19 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67689586&amp;ptid=2209276" target="_blank">zzf111 发表于 2025-3-19 22:20</a>
+
+确实没有明确的设定讲清楚，那改成gqx元祖是否是提姆雷造的有争议吧
+
+没法看电影不知道gqx提姆雷说什么了只 ...</blockquote>
+什么半斤八两，真看gqx和红高达打，bit的粒子炮连枪的抗光束涂层都打不掉，我估计元祖原装光剑一刀都划不烂驾驶舱，还有出力和推力都碾压元祖，更别提有个更超模的i力场盾牌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  maxwellsdemon  
+##### 8941#       发表于 2025-3-19 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67689586&amp;ptid=2209276" target="_blank">zzf111 发表于 2025-3-19 22:20</a>
+
+确实没有明确的设定讲清楚，那改成gqx元祖是否是提姆雷造的有争议吧
+
+没法看电影不知道gqx提姆雷说什么了只 ...</blockquote>
+提姆雷在元祖遇袭的时候坐小车赶来，很难说不是他干的
+
+*****
+
+####  Steel.Haze  
+##### 8942#       发表于 2025-3-19 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67689423&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-3-19 21:55</a>
+
+奶奶头作为NT强度太高，现在GQX世界线上阿姆罗夏亚卡缪哈曼都无了，他带着铁奥回来搞事必定会搅乱局势，就 ...</blockquote>
+这么一说太可怕了。西洛克是有一套木星造机体，而且还有以前新人类研究所的后辈作为部下。而且如此善于玩弄人心和权术，同时其在79年已经在木星船团，不受这边时间线变化的波及。对这个钝感的8X纪元异UC世界太超模了。估计不会在第一部里面表现这个人。不过其必然和夏利尔认识，所以如果有后续延伸作品，他出场的话，估计有不错的对手戏。
+
+*****
+
+####  YU_JI  
+##### 8943#       发表于 2025-3-19 22:29
+
+<blockquote>zzf111 发表于 2025-3-19 22:20
+确实没有明确的设定讲清楚，那改成gqx元祖是否是提姆雷造的有争议吧
+
+没法看电影不知道gqx提姆雷说什么了只 ...</blockquote>
+没有拿出元祖改是因为少了阿姆罗的原始数据和高达的初战亮眼表现，联邦把重心转移到钢加农的量产了，高达这一条科技树自然就被搁置；至于元祖和GQuuuuuux，认真扒一下战斗片段你就会发现gqx是全程的性能碾压，元祖连光束步枪的防都破不了，推力也被非完全形态的gqx带着走，没被拿下全靠修司驾驶技术
+
+
+*****
+
+####  zzf111  
+##### 8944#       发表于 2025-3-19 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67689654&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-3-19 22:29</a>
+
+没有拿出元祖改是因为少了阿姆罗的原始数据和高达的初战亮眼表现，联邦把重心转移到钢加农的量产了，高达 ...</blockquote>
+确实，看不了电影不知道gqx提姆雷有什么戏份<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+找了找自摄切片看到复刻他开车说谁在开高达的场景
+
+提姆雷是元祖开发者证据倒是有一些
+
+gqx机设里的钢加农确实都是像元祖改的
+
+<img src="https://img.saraba1st.com/forum/202503/19/223417q7m8z5im1d1zj9yb.jpg" referrerpolicy="no-referrer">
+
+<strong>113132.jpg</strong> (472.9 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-19 22:34 上传
+
+*****
+
+####  完美的消费品  
+##### 8945#       发表于 2025-3-19 22:34
+
+感觉完全没人关注，是不是要暴死了。能卖过企鹅公路吧
+
+—— 来自 HONOR FCP-AN10, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
