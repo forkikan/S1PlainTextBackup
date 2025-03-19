@@ -14671,3 +14671,14 @@ lyy老师的爱素大学习后续
 
 真是老夫老妻了
 
+
+*****
+
+####  傲呆莉亚  
+##### 38263#       发表于 2025-3-19 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67682719&amp;ptid=2208921" target="_blank">ape-apple 发表于 2025-3-18 22:43</a>
+
+日本人天生不整牙+女生以矮为美当然也是因为wsd挑声优本来就争不过大厂</blockquote>
+问题来了，那么东映算是大厂吗？
+
