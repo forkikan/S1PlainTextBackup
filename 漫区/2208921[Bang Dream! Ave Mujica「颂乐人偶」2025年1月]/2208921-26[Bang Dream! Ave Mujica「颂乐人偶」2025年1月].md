@@ -15399,3 +15399,18 @@ RJ01357240
 
 你不能只在你推的角色赢得时候不算饭圈投票
 
+
+*****
+
+####  凉良  
+##### 38305#       发表于 2025-3-19 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67688828&amp;ptid=2208921" target="_blank">S1-an 发表于 2025-3-19 20:25</a>
+
+世萌不一直是饭圈投票吗？
+
+你不能只在你推的角色赢得时候不算饭圈投票 ...</blockquote>
+是啊 一个从来都是饭圈自己玩的地方 鸡就因赢了一票动画就要被做视频狠狠批判
+
+真的幽默完了
+
