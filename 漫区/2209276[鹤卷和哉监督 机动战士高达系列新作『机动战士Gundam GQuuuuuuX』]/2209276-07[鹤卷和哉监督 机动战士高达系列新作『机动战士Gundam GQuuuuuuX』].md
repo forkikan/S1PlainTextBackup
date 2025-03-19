@@ -91,3 +91,37 @@ GQuuuuuuX（吉夸克斯）启动，向着宇宙进发！
 
 有4d的话推荐看4d。可以切身感受一下扎古面对红高达时的那种无力感（
 
+
+*****
+
+####  萨尤克  
+##### 8891#       发表于 2025-3-19 17:16
+
+估计一周游，抓紧去看了，唉当时种自要是给路画来搞该多好，意难平<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  shokuji  
+##### 8892#       发表于 2025-3-19 17:19
+
+也是赶上了，特典能有设定集的话我就不上闲鱼收h价的了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Toby_dak  
+##### 8893#       发表于 2025-3-19 17:19
+
+4月9号开播前这专贴能冲击1万楼吗<img src="https://static.saraba1st.com/image/smiley/bundam2017/037.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
+
+*****
+
+####  暗黑能乐  
+##### 8894#       发表于 2025-3-19 17:23
+
+潮哥集合
+
