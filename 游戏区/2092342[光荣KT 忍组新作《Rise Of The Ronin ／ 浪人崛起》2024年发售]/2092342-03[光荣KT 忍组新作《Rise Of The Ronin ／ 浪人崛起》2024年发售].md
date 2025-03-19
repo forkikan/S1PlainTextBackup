@@ -2285,3 +2285,14 @@ Snipaste_2025-03-19_16-16-48.png
  ...</blockquote>
 红光或者一组combo石火成功后敌人动摇时间,有利长,不利短,隼流动摇时间好像是最长的
 
+
+*****
+
+####  匿名用户  
+##### 3629#       发表于 2025-3-19 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67687165&amp;ptid=2092342" target="_blank">waelaZed 发表于 2025-3-19 18:38</a>
+
+红光或者一组combo石火成功后敌人动摇时间,有利长,不利短,隼流动摇时间好像是最长的 ...</blockquote>
+我主要是不清楚除了石火的动摇时间之外，有利/不利还影响什么。上面贴那个游戏内说明也没有描述。
+
