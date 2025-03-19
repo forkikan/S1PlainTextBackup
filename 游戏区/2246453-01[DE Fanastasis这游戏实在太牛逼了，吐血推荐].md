@@ -4332,3 +4332,25 @@ steam版搞汉化方便吗</blockquote>
 
 zhez海底隧道迷宫真的是太复杂了，看了网上的地图还是觉得头大，像我这种每天就玩一小时左右的社畜玩家，一小时根本找不到存盘点，就一直很焦虑
 
+
+*****
+
+####  DDWarrior  
+##### 384#       发表于 2025-3-19 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67685478&amp;ptid=2246453" target="_blank">hersi 发表于 2025-3-19 12:36</a>
+
+海底隧道迷宫真的是太复杂了，看了网上的地图还是觉得头大，像我这种每天就玩一小时左右的社畜玩家，一小时 ...</blockquote>
+找不到存档点可以直接退出，选魂魄的休息就行，下次进来的时候可以从上次退出的地方继续
+
+
+*****
+
+####  hersi  
+##### 385#       发表于 2025-3-19 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67686050&amp;ptid=2246453" target="_blank">DDWarrior 发表于 2025-3-19 14:05</a>
+
+找不到存档点可以直接退出，选魂魄的休息就行，下次进来的时候可以从上次退出的地方继续 ...</blockquote>
+好的，我试一下
+

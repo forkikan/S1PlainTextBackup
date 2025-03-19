@@ -18221,3 +18221,25 @@ IMG_7739.jpeg
 
 感觉结局能把鸭子弄回来都已经算是胜利了
 
+
+*****
+
+####  RE㐅ia  
+##### 8858#       发表于 2025-3-19 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67686024&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-3-19 14:00</a>
+
+结尾真宏大叙事吗，如果神棍到一定程度也算的话
+
+感觉结局能把鸭子弄回来都已经算是胜利了 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202503/19/140909md8j80o9w0dv1fkg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (157.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-19 14:09 上传
+
+简介最后给你这么来一句你就说宏不宏大吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
