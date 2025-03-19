@@ -2296,3 +2296,24 @@ Snipaste_2025-03-19_16-16-48.png
 红光或者一组combo石火成功后敌人动摇时间,有利长,不利短,隼流动摇时间好像是最长的 ...</blockquote>
 我主要是不清楚除了石火的动摇时间之外，有利/不利还影响什么。上面贴那个游戏内说明也没有描述。
 
+
+*****
+
+####  慕容断月  
+##### 3630#       发表于 2025-3-19 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67685174&amp;ptid=2092342" target="_blank">woshenc 发表于 2025-3-19 11:54</a>
+
+忍者流派可以无视天地人属性吗？</blockquote>
+别的没啥感觉，但是石火成功后的动摇状态持续时间我体感是无视属性的
+
+*****
+
+####  慕容断月  
+##### 3631#       发表于 2025-3-19 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67687370&amp;ptid=2092342" target="_blank">匿名用户 发表于 2025-3-19 16:55</a>
+
+我主要是不清楚除了石火的动摇时间之外，有利/不利还影响什么。上面贴那个游戏内说明也没有描述。 ...</blockquote>
+我感觉没什么特别的影响，之前还会切换，但现在哪个顺手用哪个，目前难度是夜晚，进度是江户剧情打完了，选项后就能去京都但还在清地图，跑图和过主线基本没感觉到卡手的地方
+
