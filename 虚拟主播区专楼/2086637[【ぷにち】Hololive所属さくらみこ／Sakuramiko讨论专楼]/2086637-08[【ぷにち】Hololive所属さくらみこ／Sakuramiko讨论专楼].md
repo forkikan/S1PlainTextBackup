@@ -2424,3 +2424,28 @@ mikotowa
 
 每次玩这种游戏就要迫害486，真可怜
 
+
+*****
+
+####  holofan  
+##### 10930#       发表于 2025-3-19 04:04
+
+<img src="https://img.saraba1st.com/forum/202503/19/040317khxcnne7t95mhz7t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (44.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-19 04:03 上传
+
+今天的另外一个联动
+
+*****
+
+####  holofan  
+##### 10931#       发表于 2025-3-19 15:55
+
+去年一专发的MV全部百万播放了，不容易啊
+
+而且没想到最后一首到百万是SUNAO
+
