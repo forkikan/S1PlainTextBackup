@@ -418,3 +418,28 @@ GQuuuuuuX（吉夸克斯）启动，向着宇宙进发！
 我个人觉得新人想提前预习的话，看GTO OVA最好。首先GTO OVA到鲁姆会战结束，G ...</blockquote>
 确实，新人先入了门再去了解0079和GTO的正统大战不迟
 
+
+*****
+
+####  ArthurDent  
+##### 8924#       发表于 2025-3-19 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67688604&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-3-19 19:50</a>
+如果是现在要速补0079的：看解说、看完TV、看3部剧场版+看一集TV的39集（目的还是让你了解GQ想描写的夏利 ...</blockquote>
+有点复杂<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，只看过水魔，看鹤卷高需要补啥能提高观感？总时长控制在五个小时内
+
+—— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  王留美  
+##### 8925#       发表于 2025-3-19 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67688917&amp;ptid=2209276" target="_blank">ArthurDent 发表于 2025-3-19 20:38</a>
+
+有点复杂，只看过水魔，看鹤卷高需要补啥能提高观感？总时长控制在五个小时内
+
+—— 来自 Xiaomi 2112123 ...</blockquote>
+3部剧场版+TV的39集
+
