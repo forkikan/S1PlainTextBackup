@@ -15342,3 +15342,60 @@ RJ01357240
 
 打工害人， 晚睡害人
 
+
+*****
+
+####  S1-an  
+##### 38301#       发表于 2025-3-19 20:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67688113&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-19 18:33</a>
+
+被誉为“史上最疯狂的乐队动画”而诞生的TV动画《BanG Dream! Ave Mujica》。自称“史上最疯狂”可谓相当大 ...</blockquote>
+"另一个重要的事实是，#11揭示了初华的真名是初音。实际上，与祥子相识的是初音的“妹妹”初华，而初音为了接近祥子，一直假扮成与自己极为相似的“初华”。
+
+结果，ED影像中的演员表成了一种叙述诡计。也就是说，佐佐木李子饰演的角色并非“三角初华”，而是“假扮成三角初华的三角初音”，但“佐佐木李子扮演三角初华”这一事实本身是无可争议的(因此演员表并未撒谎)。
+
+而在“扮演三角初华”这一点上，佐佐木与剧中的角色(=初音)采取了“完全相同”的行动。这种表现手法在试图连接“现实”与“虚拟”的《BanG Dream!》项目中，堪称极具独创性的2.5次元演出。"
+
+所以悬疑和叙述诡计在这块吗？
+
+？？
+
+*****
+
+####  aptx8285144  
+##### 38302#       发表于 2025-3-19 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67688762&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-19 20:15</a>
+
+素姐贏一手髮量
+
+打工害人， 晚睡害人</blockquote>
+还有大祥的那身几乎万年不换的衣装打扮，我觉得制作组的衣品不如让她一直穿校服<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  S1-an  
+##### 38303#       发表于 2025-3-19 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67686149&amp;ptid=2208921" target="_blank">东海归墟 发表于 2025-3-19 14:20</a>
+
+上一个出圈作品里主角是双重人格的是谁，两仪式？
+
+话说约战里妹妹这种随时切换形态的怎么算 ...</blockquote>
+五河琴里其实不算双重人格，那个算性格转换器
+
+*****
+
+####  S1-an  
+##### 38304#       发表于 2025-3-19 20:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67685530&amp;ptid=2208921" target="_blank">凉良 发表于 2025-3-19 12:44</a>
+
+刷到好几个批判狗鸡世萌饭圈投票赢的了
+
+也是啥牛鬼蛇神都来了</blockquote>
+世萌不一直是饭圈投票吗？
+
+你不能只在你推的角色赢得时候不算饭圈投票
+

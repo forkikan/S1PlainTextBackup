@@ -390,3 +390,31 @@ GQuuuuuuX（吉夸克斯）启动，向着宇宙进发！
 但0079部分终究是介绍这个世界观的由来，最重要还是看0085部分能让人喜欢
 其实没看过高达和有看过但没看过0079的，看0085能喜欢，能够对高达感兴趣然后有动力再去补其他作品那样就好了
 
+
+*****
+
+####  Toby_dak  
+##### 8922#       发表于 2025-3-19 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67688106&amp;ptid=2209276" target="_blank">thez 发表于 2025-3-19 19:32</a>
+
+0079我只看过漫画GTO，希望能看懂吧</blockquote>
+看过漫画GTO肯定没问题。
+
+我个人觉得新人想提前预习的话，看GTO OVA最好。首先GTO OVA到鲁姆会战结束，GQuuuuuuX剧场版以SIDE6潜入开始，情节上无缝链接。其次，画风跟GQuuuuuuX剧场版前半相仿，没有突兀感。
+
+比起0079和GTO的UC正统之辩，对于新人来说了解整体设定更重要。
+
+
+*****
+
+####  赤黑的假面  
+##### 8923#       发表于 2025-3-19 20:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67688782&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-3-19 20:18</a>
+
+看过漫画GTO肯定没问题。
+
+我个人觉得新人想提前预习的话，看GTO OVA最好。首先GTO OVA到鲁姆会战结束，G ...</blockquote>
+确实，新人先入了门再去了解0079和GTO的正统大战不迟
+
