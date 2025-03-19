@@ -1318,3 +1318,11 @@ wiki说第三个图（要塞）的垃圾会出苦无和忍者刀，不过我还�
 
 确实挺好玩的
 
+
+*****
+
+####  toblkr  
+##### 106#       发表于 2025-3-19 19:27
+
+升到33去摸了几把，感觉能打个4000血<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">打不过
+

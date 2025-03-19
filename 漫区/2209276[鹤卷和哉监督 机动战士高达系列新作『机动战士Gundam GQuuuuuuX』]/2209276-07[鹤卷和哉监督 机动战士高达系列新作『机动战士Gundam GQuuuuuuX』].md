@@ -351,3 +351,26 @@ GQuuuuuuX（吉夸克斯）启动，向着宇宙进发！
 
 —— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  199april  
+##### 8919#       发表于 2025-3-19 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67687418&amp;ptid=2209276" target="_blank">卑弥呼yamato 发表于 2025-3-19 17:00</a>
+
+这么速度引进吗，这几年引进片的审核是不是放宽了很多</blockquote>
+因为这几年电影市场不行。现在引进电影的速度全看引进方搞得快不快，没什么问题审批速度都很快
+
+*****
+
+####  199april  
+##### 8920#       发表于 2025-3-19 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67688421&amp;ptid=2209276" target="_blank">ArthurDent 发表于 2025-3-19 19:21</a>
+
+有没有0079速成，没空补了
+
+—— 来自 Xiaomi 2112123AC, Android 13, 鹅球 v3.4.98</blockquote>
+直接看0079那三部电影，有兴趣再看看逆袭的夏亚，z的剧情找个速看快速过一遍
+
