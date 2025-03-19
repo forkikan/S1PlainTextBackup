@@ -2252,3 +2252,23 @@ Ver1.09.0.1 2025/03/14Steam®
 
 玩到第二章，越玩越失望，除了动作之外毫无优点，作为一款动作游戏敌人设计也很重要吧，结果从小怪到boss，几乎是人均快慢刀霸体读指令
 
+
+*****
+
+####  匿名用户  
+##### 3627#       发表于 2025-3-19 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67686373&amp;ptid=2092342" target="_blank">waelaZed 发表于 2025-3-19 16:56</a>
+
+他是指隼流石火成功后大有利,忍系本身对全系石火成功前都是不利的</blockquote>
+除了石火外，流派的有利/不利还会影响什么呢？我看游戏内的自带说明也只有对于石火的影响。
+
+Snipaste_2025-03-19_16-16-48.png
+(222.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-19 16:18 上传
+
+<img src="https://img.saraba1st.com/forum/202503/19/181850hl8hzhxu3p4pt4rj.png" referrerpolicy="no-referrer">
+

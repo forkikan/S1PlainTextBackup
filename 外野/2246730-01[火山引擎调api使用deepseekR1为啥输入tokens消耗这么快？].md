@@ -448,3 +448,19 @@ https://huggingface.co/bartowski/mistralai_Mistral-Small-3.1-24B-Instruct-2503-G
 
 所以每问一个新的问题 跟前面无关的 新增一个会话最好 不是的话会把之前上下文全带进去
 
+
+*****
+
+####  CrayS1  
+##### 50#       发表于 2025-3-19 16:18
+
+看openai底层库就知道 ，每次提问的时候会把所有的历史聊天记录都重新发一遍。
+
+
+*****
+
+####  ななひら  
+##### 51#       发表于 2025-3-19 16:21
+
+无所谓啦，这才几个钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
