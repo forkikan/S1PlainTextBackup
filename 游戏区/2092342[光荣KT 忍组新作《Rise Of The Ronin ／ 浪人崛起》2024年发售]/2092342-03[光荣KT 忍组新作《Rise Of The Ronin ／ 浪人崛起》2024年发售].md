@@ -2325,3 +2325,13 @@ Snipaste_2025-03-19_16-16-48.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">楠本稻那边劈腿要求和别的角色分手，所以劈腿有啥影响吗？
 
+
+*****
+
+####  zqqwe  
+##### 3633#       发表于 2025-3-19 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67689573&amp;ptid=2092342" target="_blank">虚无连斩 发表于 2025-3-19 22:20</a>
+楠本稻那边劈腿要求和别的角色分手，所以劈腿有啥影响吗？</blockquote>
+没有实质影响，只是基于拓扑排序先把不准劈腿那几个的奖励拿完再找剩下的可以省下一些来回跑的时间
+

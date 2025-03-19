@@ -742,3 +742,21 @@ gqx机设里的钢加农确实都是像元祖改的
 
 —— 来自 HONOR FCP-AN10, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  阿尔巴尼亚  
+##### 8946#       发表于 2025-3-19 22:37
+
+考虑到希洛克的女鬼部队经常以专用型ms出击，希洛克本身应该有专门的ms部门部队了。我觉得gqux应该成一股新势力了吧，12集三方势力真不好写啊。如果有后续的话，希洛克取代阿克西斯在z里的地位还是可能的
+
+*****
+
+####  zzf111  
+##### 8947#       发表于 2025-3-19 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67689632&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-3-19 22:27</a>
+
+什么半斤八两，真看gqx和红高达打，bit的粒子炮连枪的抗光束涂层都打不掉，我估计元祖原装光剑一刀都划不 ...</blockquote>
+首席哥太菜开不了奥米伽塞可缪导致我产生了错觉<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
