@@ -14715,3 +14715,11 @@ lyy老师的爱素大学习后续
 
 不过现在越看也越顺眼了，几个人还挺可爱的，滤镜算是给我带完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  南宮凝香  
+##### 38267#       发表于 2025-3-19 11:18
+
+有外型又有音樂能力的為什麼不主流出道…….
+
