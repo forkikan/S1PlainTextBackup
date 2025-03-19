@@ -760,3 +760,14 @@ gqx机设里的钢加农确实都是像元祖改的
 什么半斤八两，真看gqx和红高达打，bit的粒子炮连枪的抗光束涂层都打不掉，我估计元祖原装光剑一刀都划不 ...</blockquote>
 首席哥太菜开不了奥米伽塞可缪导致我产生了错觉<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  中野梓  
+##### 8948#       发表于 2025-3-19 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67688106&amp;ptid=2209276" target="_blank">thez 发表于 2025-3-19 18:32</a>
+
+0079我只看过漫画GTO，希望能看懂吧</blockquote>
+已经无敌了，正好看
+
