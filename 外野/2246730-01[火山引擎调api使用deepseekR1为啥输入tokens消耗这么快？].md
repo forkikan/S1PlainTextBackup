@@ -416,3 +416,27 @@ DeepSeek满血版免费领啦！邀请好友注册和使用，最高双方可获
 
 [https://huggingface.co/bartowski ... -Instruct-2503-GGUF](https://huggingface.co/bartowski/mistralai_Mistral-Small-3.1-24B-Instruct-2503-GGUF)
 
+
+*****
+
+####  zy450  
+##### 47#       发表于 2025-3-19 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67686237&amp;ptid=2246730" target="_blank">moekyo 发表于 2025-3-19 14:32</a>
+
+本地部署可破
+
+https://huggingface.co/bartowski/mistralai_Mistral-Small-3.1-24B-Instruct-2503-GGUF ...</blockquote>
+这是之前说的欧洲AI？不是说欧洲上不了桌吗
+
+
+*****
+
+####  moekyo  
+##### 48#       发表于 2025-3-19 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67686587&amp;ptid=2246730" target="_blank">zy450 发表于 2025-3-19 15:27</a>
+
+这是之前说的欧洲AI？不是说欧洲上不了桌吗</blockquote>
+怎么讲呢，创始人是 Deepmind 和 Meta 的前员工，看你定义了，不过肯定比纯血法国的 Lucie 好多了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer"> 
+

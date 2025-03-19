@@ -18307,3 +18307,25 @@ tv会直接从0085部分开始
 
 —— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  中野梓  
+##### 8865#       发表于 2025-3-19 15:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67686212&amp;ptid=2209276" target="_blank">masshiroo 发表于 2025-3-19 14:28</a>
+
+剧场版和tv前几集是一样的吗？
+
+论坛助手,iPhone</blockquote>
+剧场版限定前40分钟0079的片段
+
+*****
+
+####  YU_JI  
+##### 8866#       发表于 2025-3-19 15:33
+
+<blockquote>伊川 发表于 2025-3-19 14:59
+独角兽虽然怪力乱神，但内容还是与老UC一脉相承偏宏大叙事的（写得好不好是另外一回事）。我所指的学生过 ...</blockquote>
+按这个定义这作确实算是铁打的学生过家家，大时代只充当背景板参与故事，主角们并不直接介入
+
