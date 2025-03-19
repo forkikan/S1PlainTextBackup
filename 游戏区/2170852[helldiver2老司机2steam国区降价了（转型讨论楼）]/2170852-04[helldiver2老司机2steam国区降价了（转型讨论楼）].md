@@ -399,3 +399,14 @@ MG-206重机枪
 
 机器人运输船加血的意思是不能一发无后打下来了？
 
+
+*****
+
+####  ravend233  
+##### 5868#       发表于 2025-3-19 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67684924&amp;ptid=2170852" target="_blank">迷途lite 发表于 2025-3-19 11:24</a>
+
+机器人运输船加血的意思是不能一发无后打下来了？</blockquote>
+打引擎还是秒，不能打中段了
+
