@@ -859,3 +859,25 @@ Z，ZZ，逆鸭和Gqux应该都没什么太大关系了，值得细看的东西�
 
 感觉可以gqx赛克谬形态首席哥和gqx赛克谬形态牢修论战了，反正我觉得三个机师里麻球最菜
 
+
+*****
+
+####  RE㐅ia  
+##### 8958#       发表于 2025-3-20 01:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67690420&amp;ptid=2209276" target="_blank">az一串字母 发表于 2025-3-20 01:02</a>
+
+感觉可以gqx赛克谬形态首席哥和gqx赛克谬形态牢修论战了，反正我觉得三个机师里麻球最菜 ...</blockquote>
+现在纯靠nt能力和塞克谬的相向性带飞。一个血统纯正的jk能指望有啥技术<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灵魂收割机  
+##### 8959#       发表于 2025-3-20 01:56
+
+<blockquote>完美的消费品 发表于 2025-3-19 22:34
+感觉完全没人关注，是不是要暴死了。能卖过企鹅公路吧
+
+适合清明放假和家人一起看吗？父母之类的</blockquote>
+不太适合，还是和同好一起或者自己去看吧。
+
