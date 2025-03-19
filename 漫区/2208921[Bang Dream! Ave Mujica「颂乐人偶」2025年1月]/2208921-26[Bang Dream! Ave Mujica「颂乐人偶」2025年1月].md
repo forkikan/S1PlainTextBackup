@@ -15310,3 +15310,35 @@ RJ01357240
 有本事写死祥子，不然闭嘴什么狗屁的屎上嘴矿😤</blockquote>
 😤😤😤
 
+
+*****
+
+####  哈曼的YY  
+##### 38298#       发表于 2025-3-19 20:09
+
+<img src="https://img.saraba1st.com/forum/202503/19/200908v6i1fz9ebasz5tae.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1742383653970.jpeg</strong> (133.17 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-19 20:09 上传
+
+
+*****
+
+####  aptx8285144  
+##### 38299#       发表于 2025-3-19 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67688724&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-3-19 20:09</a></blockquote>
+不谈其他，感觉素世的颜值确实更符合东亚人的审美感，如果把颜值作为蛊惑的标准，我到是觉得素世比大祥更容易蛊惑别人
+
+*****
+
+####  南宮凝香  
+##### 38300#       发表于 2025-3-19 20:15
+
+素姐贏一手髮量
+
+打工害人， 晚睡害人
+
