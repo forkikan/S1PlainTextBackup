@@ -2449,3 +2449,36 @@ mikotowa
 
 而且没想到最后一首到百万是SUNAO
 
+
+*****
+
+####  holofan  
+##### 10932#       发表于 2025-3-19 18:28
+
+<img src="https://img.saraba1st.com/forum/202503/19/182348wnfx80000fh0hhp8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (40.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-19 18:23 上传
+
+搞大了，真的有鼠标
+
+<img src="https://img.saraba1st.com/forum/202503/19/182730cz3hueiscvzwgiv6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (228.4 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-19 18:27 上传
+
+看一下右上mio的下身黑色衣服上一颗很明显的白色鼠标
+
+*****
+
+####  holofan  
+##### 10933#       发表于 2025-3-19 18:32
+
+这鼠标在miko镜头特写的这5秒内持续存在而且没有移动过，这么明显的问题怎么你们净想着修其他镜头没有看到这个大鼠标呢，真cover700名员工眼睛全瞎了
+
