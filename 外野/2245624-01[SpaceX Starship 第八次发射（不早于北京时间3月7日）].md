@@ -18,3 +18,16 @@ Super Heavy V2和Starship V3将全面换装Raptor V3，所以两者的制造时�
 
 2025-3-19 09:32 上传
 
+
+*****
+
+####  commcody  
+##### 94#         楼主| 发表于 2025-3-19 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67683969&amp;ptid=2245624" target="_blank">2017.05.04 发表于 2025-3-19 09:33</a>
+
+FCC发布了Starship第九次试飞的文件。文件显示，适用日期从4月7日开始。鉴于FCC文件的非强日期指示性，第九 ...</blockquote>
+后半段基本上是NSF论坛付费区内容的总结。
+
+在缺乏地面静点设施的情况下，目前看还是只能靠试飞来判断改进是否有成效。因此我对第九飞的情况只能谨慎乐观。S35刚完成低温测试返厂，从这个进度来说，四月底五月初还是可行的。
+

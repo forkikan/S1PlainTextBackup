@@ -2186,3 +2186,16 @@ Ver1.09.0.1 2025/03/14Steam®
 
 求教哪几个流派比较好用？
 
+
+*****
+
+####  慕容断月  
+##### 3621#       发表于 2025-3-19 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67684323&amp;ptid=2092342" target="_blank">woshenc 发表于 2025-3-19 10:14</a>
+
+横滨全地图100%了，剩下一个主线任务没做，今晚大概可以收尾了
+
+求教哪几个流派比较好用？ ...</blockquote>
+立身流，爱洲阴流，隼流和柳生新阴流，至少这四个是我最常用的，忍者流派是无视属性石火都可以打出大动摇的
+
