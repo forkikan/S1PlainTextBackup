@@ -381,3 +381,13 @@ MG-206重机枪
 
 就是新怪是真÷，喷火小兵从背后摸过来喷一下一不注意就死了，还有龙息霰弹哥真秒杀啊，莫名其妙被秒好几次了
 
+
+*****
+
+####  jy000129  
+##### 5866#       发表于 2025-3-19 11:09
+
+火喷秒杀大概率是BUG<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">或者直接把老冻肉的枪给机器人了，伤害没修过
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
