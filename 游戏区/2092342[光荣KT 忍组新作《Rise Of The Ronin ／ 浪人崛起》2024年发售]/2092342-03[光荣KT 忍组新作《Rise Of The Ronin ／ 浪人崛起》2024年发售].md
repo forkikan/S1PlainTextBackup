@@ -2272,3 +2272,16 @@ Snipaste_2025-03-19_16-16-48.png
 
 <img src="https://img.saraba1st.com/forum/202503/19/181850hl8hzhxu3p4pt4rj.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  waelaZed  
+##### 3628#       发表于 2025-3-19 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67686972&amp;ptid=2092342" target="_blank">匿名用户 发表于 2025-3-19 16:19</a>
+
+除了石火外，流派的有利/不利还会影响什么呢？我看游戏内的自带说明也只有对于石火的影响。
+
+ ...</blockquote>
+红光或者一组combo石火成功后敌人动摇时间,有利长,不利短,隼流动摇时间好像是最长的
+
