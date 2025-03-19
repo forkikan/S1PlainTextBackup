@@ -1160,3 +1160,18 @@ wiki说第三个图（要塞）的垃圾会出苦无和忍者刀，不过我还�
 
 本来难度就很大，攻略主线需要大量装备支持，这游戏基本上都是老登在玩了，按照现在市面上的游戏节奏来玩肯定难受的。能弃就弃吧
 
+
+*****
+
+####  Ashice  
+##### 93#       发表于 2025-3-19 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67684286&amp;ptid=2249235" target="_blank">elven119 发表于 2025-3-19 10:11</a>
+
+不对电波很难坚持的，可以考虑弃坑。
+
+本来难度就很大，攻略主线需要大量装备支持，这游戏基本上都是老登 ...</blockquote>
+主要是一身装备搓几十小时然后版本一更新就得换掉有点那啥<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+虽然确实是当单机玩的，但是单机遇上这种问题我直接ce伺候啊
+
