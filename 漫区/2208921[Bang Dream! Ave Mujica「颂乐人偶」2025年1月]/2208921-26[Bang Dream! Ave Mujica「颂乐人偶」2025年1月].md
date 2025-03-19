@@ -15590,3 +15590,28 @@ RJ01357240</blockquote>
 
 <img src="https://img.saraba1st.com/forum/202503/19/232224nsscm1hs18fu8i7c.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NOYURINOLIFE  
+##### 38321#       发表于 2025-3-19 23:26
+
+其实最媚到我的还是mygo里的这张
+
+<img src="https://img.saraba1st.com/forum/202503/19/232457fx9xrsf7bh5lmsbe.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (93.9 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-19 23:24 上传
+
+配合剧情酸爽味真的十足，没想到mujica到了现在不仅剧情跟不上，连作画都媚不到我了
+
+*****
+
+####  adretyu67.  
+##### 38322#       发表于 2025-3-19 23:28
+
+鸡的作画不管3d 2d，总感觉有点钱不够导致质量下降，确实不如狗。
+

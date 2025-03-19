@@ -454,3 +454,13 @@ MG-206重机枪
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">感觉更新之后帧数变低了是我的错觉吗
 
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 5874#       发表于 2025-3-19 23:26
+
+西线这群喷火兵什么畜牲啊，新无畏感觉还很难用磁小轨打眼睛瞄，熔岩迫击炮，龙息弹蹂躏，喷火小兵，真是一群畜牲哇<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
