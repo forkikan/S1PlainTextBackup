@@ -18295,3 +18295,15 @@ tv会直接从0085部分开始
 
 结局要是夏亚回来了，麻球跟牢修也还都活着，然后都跟着夏亚去搞事去了就能继续宏大<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  伊川  
+##### 8864#       发表于 2025-3-19 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67686183&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-3-19 14:24</a>
+目前给的主线感觉就和老UC那种"宏大"沾不上边了，感觉它更像更青春现代风格的独角兽(所以我说就得先补独 ...</blockquote>
+独角兽虽然怪力乱神，但内容还是与老UC一脉相承偏宏大叙事的（写得好不好是另外一回事）。我所指的学生过家家是指剧情矛盾围绕青少年与青少年的人际关系展开，主角要解决的是自己与自己的矛盾，或者是与其他同龄人的矛盾，而与时代的矛盾只是作为背景板或者次要矛盾出现。
+
+—— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

@@ -2233,3 +2233,14 @@ Ver1.09.0.1 2025/03/14Steam®
 求教哪几个流派比较好用？ ...</blockquote>
 神道无念流北辰一刀流复读武技拜年剑法就行了，后边是无外流的爆炸小筒和义经流的影雾幻。
 
+
+*****
+
+####  waelaZed  
+##### 3625#       发表于 2025-3-19 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67685174&amp;ptid=2092342" target="_blank">woshenc 发表于 2025-3-19 11:54</a>
+
+忍者流派可以无视天地人属性吗？</blockquote>
+不可以,忍对全系不利
+
