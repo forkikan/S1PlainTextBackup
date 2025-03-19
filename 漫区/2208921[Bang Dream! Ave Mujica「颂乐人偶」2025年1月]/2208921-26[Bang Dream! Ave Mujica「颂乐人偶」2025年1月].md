@@ -14682,3 +14682,21 @@ lyy老师的爱素大学习后续
 日本人天生不整牙+女生以矮为美当然也是因为wsd挑声优本来就争不过大厂</blockquote>
 问题来了，那么东映算是大厂吗？
 
+
+*****
+
+####  ape-apple  
+##### 38264#       发表于 2025-3-19 11:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67684626&amp;ptid=2208921" target="_blank">傲呆莉亚 发表于 2025-3-19 10:49</a>
+问题来了，那么东映算是大厂吗？</blockquote>
+优秀回答：我不知道
+东映手里女演员满坑满谷，不知道为什么选gbc的声优外形不行，天知道怎么想的
+
+*****
+
+####  kenqqex  
+##### 38265#       发表于 2025-3-19 11:06
+
+人家gbc本来就是优先选音乐能力的...怎么还和外形有关系的
+
