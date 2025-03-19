@@ -1661,3 +1661,13 @@ steam版本有中文汉化的创意工坊。
 
 主城内留言板上的内容没汉化真是很要命，动不动就不清楚下一步该干什么了
 
+
+*****
+
+####  komoechan  
+##### 136#       发表于 2025-3-19 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67684658&amp;ptid=2068019" target="_blank">Vladimeow 发表于 2025-3-19 10:53</a>
+刚开始玩，发现有的职业（包括一些mode职业）的技能树里有一些技能点信息没有，也没显示需要多少LP学习，这 ...</blockquote>
+需要解锁，但是（藏）在什么地方解锁就不好说了
+
