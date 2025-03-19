@@ -185,3 +185,14 @@ AKINO from bless4 - 創聖のアクエリオン / THE FIRST TAKE
 
 结果当集就兑现了反而放心了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Acla  
+##### 290#       发表于 2025-3-19 17:27
+
+#11
+合体のときが迫っているにもかかわらず、モモヒメを失い、戦闘への意欲も失くしていたサッコ。世界覚醒会議の思惑により幽閉されたサッコたちだが、思わぬ助っ人が……。<img src="https://p.sda1.dev/22/8238a01ffe377ba9ce296f8a395ee344/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

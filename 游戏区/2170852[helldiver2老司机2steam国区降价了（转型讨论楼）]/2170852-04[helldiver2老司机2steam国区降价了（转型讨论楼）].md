@@ -428,3 +428,11 @@ MG-206重机枪
 
 不知道mod啥时候能恢复，没有普拉那导航员mod真遭不住
 
+
+*****
+
+####  Mzi  
+##### 5871#       发表于 2025-3-19 17:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看到有人说语音mod不受影响，回家装回来试试
+
