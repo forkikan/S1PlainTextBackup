@@ -565,3 +565,18 @@ GQuuuuuuX（吉夸克斯）启动，向着宇宙进发！
 
 —— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  zzf111  
+##### 8933#       发表于 2025-3-19 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67689256&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-3-19 21:26</a>
+
+首先提一嘴彩蛋里奶奶头是最想回避的要禁赛的，怎么还在最有可能.........
+
+基本让观众心里默念还在木星算 ...</blockquote>
+这话是不想让奶奶头参与故事的意思，但是木星相关的全才新人类再怎么说被顺便提一嘴存在感的可能性也比z主角们可能性大啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而且gqx在夏亚抢元祖高达时世界线早就变动了，至少元祖不是提姆雷造的，对应科技树发展不同还有夏利亚这个异构同位体体
+
