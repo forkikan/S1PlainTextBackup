@@ -167,3 +167,14 @@ GQuuuuuuX（吉夸克斯）启动，向着宇宙进发！
 潮哥集合</blockquote>
 希望人多点，潮哥支持才会有续作
 
+
+*****
+
+####  岸浪白野  
+##### 8900#       发表于 2025-3-19 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67687726&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-3-19 17:33</a>
+
+国内特典是怎么给的？</blockquote>
+先官方应援场尽量选IMAX，特典要中下旬才能弄好赶上
+
