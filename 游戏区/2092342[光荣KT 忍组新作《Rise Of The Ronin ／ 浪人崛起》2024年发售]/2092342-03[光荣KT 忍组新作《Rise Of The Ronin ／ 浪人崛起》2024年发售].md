@@ -2220,3 +2220,16 @@ Ver1.09.0.1 2025/03/14Steam®
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  bm7号  
+##### 3624#       发表于 2025-3-19 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67684323&amp;ptid=2092342" target="_blank">woshenc 发表于 2025-3-19 10:14</a>
+
+横滨全地图100%了，剩下一个主线任务没做，今晚大概可以收尾了
+
+求教哪几个流派比较好用？ ...</blockquote>
+神道无念流北辰一刀流复读武技拜年剑法就行了，后边是无外流的爆炸小筒和义经流的影雾幻。
+
