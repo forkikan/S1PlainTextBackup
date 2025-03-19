@@ -18163,3 +18163,16 @@ IMG_7739.jpeg
 
 —— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  PascalLefèvre  
+##### 8853#       发表于 2025-3-19 13:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67685613&amp;ptid=2209276" target="_blank">伊川 发表于 2025-3-19 12:58</a>
+
+这作是啥路线，是老uc那种偏向宏大叙事的，还是文豪那种怪力乱神的，还是大河内那种学生过家家的
+
+—— 来 ...</blockquote>
+一定要选的话现在剧场版里0085的内容是学生过家家，后面就不知道了
+
