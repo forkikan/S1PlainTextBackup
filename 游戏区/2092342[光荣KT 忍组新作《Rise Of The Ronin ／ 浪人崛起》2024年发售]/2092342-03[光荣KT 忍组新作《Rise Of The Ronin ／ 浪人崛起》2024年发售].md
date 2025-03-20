@@ -2564,3 +2564,14 @@ Snipaste_2025-03-19_16-16-48.png
  ...</blockquote>
 昨天做照相馆任务，**土匪的暴力场景的照片，结果我潜入的时候被发现，直接把敌人砍死了拍尸体，也算暴力场景照片完成<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sopp  
+##### 3655#       发表于 2025-3-20 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67694256&amp;ptid=2092342" target="_blank">寂长无星夜 发表于 2025-3-20 16:15</a>
+
+还是希望忍组能升级下引擎照着浪人这模式做下去，可惜没啥希望了</blockquote>
+别开放世界了，还是好好做关卡制吧
+
