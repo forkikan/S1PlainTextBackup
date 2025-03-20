@@ -5116,3 +5116,145 @@ MYGO整体下来都很不错啊，但是ave mujika也是这些人做脚本啊，
 
 时不时就有人出来，我悟了。发表一些谜语人或者和前面猜想完全不同的理论，然后大家一起对对对，多说一点，我也是这么想的。
 
+
+*****
+
+####  zhoujin8584  
+##### 38981#       发表于 2025-3-21 00:58
+
+<blockquote>adretyu67. 发表于 2025-3-21 00:14
+鸡现在是彻底走向狗的反面了。
+
+我本来对初祥的想法是共犯拉平，但是没想到12话独角兽女士直接来个油门踩死 ...</blockquote>
+其实是共犯拉平了。
+
+初音还是会芥蒂自己姓三角不姓丰川
+
+祥子也会芥蒂初音确实是父亲堕落的诱因
+
+祥子已经在初音面前喝过很多红茶了，但回到了同居的阁楼只有难闻的咖啡可咽。
+
+初音跟着祥子能够自在的在丰川大宅里嬉戏，但怕虫子的她会看到祥子抱着独角仙笔记本不撒手。
+
+能磕扭曲狗血的话初祥除了豪门私生、双子小姨、替代品，还沾一点“区区杀父之仇”的梗。
+
+*****
+
+####  mstzi  
+##### 38982#       发表于 2025-3-21 01:00
+
+最还是没有成为人类，而是选择成为神明的祥子<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+下周终于完结了，是时候结束这场闹剧了<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  adretyu67.  
+##### 38983#       发表于 2025-3-21 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698901&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-21 00:58</a>
+
+其实是共犯拉平了。
+
+初音还是会芥蒂自己姓三角不姓丰川
+
+祥子也会芥蒂初音确实是父亲堕落的诱因</blockquote>
+咖啡和红茶这事。初音就没想过给祥子上红茶。
+
+岛上别墅都是上咖啡
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 38984#       发表于 2025-3-21 01:00
+
+你们有空可以看一下几年前独角兽推特怎么对那个后藤绿发情的
+
+*****
+
+####  cxj649  
+##### 38985#       发表于 2025-3-21 01:01
+
+只能说跑得了和尚跑不了庙
+
+双M姐妹团关系网这集定性了
+
+*****
+
+####  天空塔书记官  
+##### 38986#       发表于 2025-3-21 01:01
+
+上次毕业剧情是23年的三月份，这届高三是要26年三月份 ? 如果再不补新团，那绝大多数邦成员就都要上大学了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  6030sylar  
+##### 38987#       发表于 2025-3-21 01:02
+
+<img src="https://p.sda1.dev/22/03b961a3cdb0d1fe27c46baef2662250/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  whzfjd  
+##### 38988#       发表于 2025-3-21 01:04
+
+看到鞋柜那里，我脑子里已经想起 EVA 终的 Voyager 了，好累啊，感觉就像是脸接第三次冲击那么累，有种角色爽了我没爽的感觉
+
+*****
+
+####  盐盐盐盐盐  
+##### 38989#       发表于 2025-3-21 01:04
+
+感觉就是独角兽不写还给人一种她能写好只是别人不让她写的错觉，真写了一看害还不如不写（
+
+*****
+
+####  天空塔书记官  
+##### 38990#       发表于 2025-3-21 01:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698922&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-3-21 01:01</a>
+上次毕业剧情是23年的三月份，这届高三是要26年三月份 ? 如果再不补新团，那绝大多数邦成员就都要上大学了
+ ...</blockquote>
+<img src="https://p.sda1.dev/22/15ff9ee33a10559d5dc7edf8aeb7880f/image.jpg" referrerpolicy="no-referrer">
+
+emmm，蝶和双子团全员，双R的低龄成员，还有未解明的梦限大，好像还有不少人啊<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  6030sylar  
+##### 38991#       发表于 2025-3-21 01:06
+
+说真的，独角兽真的想写，得跳过大河内，直接学学几原
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  adretyu67.  
+##### 38992#       发表于 2025-3-21 01:07
+
+初华给立希送熊猫牛奶应该是回9话那她对立希那一瞥。
+
+*****
+
+####  adretyu67.  
+##### 38993#       发表于 2025-3-21 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698951&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-3-21 01:06</a>
+
+emmm，蝶和双子团全员，双R的低龄成员，还有未解明的梦限大，好像还有不少人啊
+
+—— 来自 鹅球 v3.3.9 ...</blockquote>
+划小船直接炸了，学生会都抓不到人了。
+
