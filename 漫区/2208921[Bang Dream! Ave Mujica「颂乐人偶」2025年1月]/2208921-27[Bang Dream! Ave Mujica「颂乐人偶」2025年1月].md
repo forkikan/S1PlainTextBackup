@@ -4973,3 +4973,146 @@ MYGO整体下来都很不错啊，但是ave mujika也是这些人做脚本啊，
 </blockquote>
 那是上课声，卖的是爱灯，灯跟着爱来不及看完信，人生有路各自精彩
 
+
+*****
+
+####  岬开斗  
+##### 38967#       发表于 2025-3-21 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698777&amp;ptid=2208921" target="_blank">思绪云骞 发表于 2025-3-21 00:40</a>
+我看了一遍，第1集是一个叫做后藤绿的人和独角兽的一起写的脚本，然后第2到11集都没有独角兽，然后到第12集 ...</blockquote>
+什么回来补锅，她一直都在，当系构没时间写单集脚本而已。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Devola  
+##### 38968#       发表于 2025-3-21 00:49
+
+这个世界上已经没有比角噶的嘴更硬的东西了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  天空塔书记官  
+##### 38969#       发表于 2025-3-21 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698817&amp;ptid=2208921" target="_blank">qwased 发表于 2025-3-21 00:44</a>
+访谈里面说柿本要求剧组内盲猜剧情发展，只要被猜到的发展就得改，改到没人猜到为止 ...</blockquote>
+那柿本确实是个初生，
+
+这编剧不跑就奇怪了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  cxj649  
+##### 38970#       发表于 2025-3-21 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698778&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-21 00:40</a>
+
+临时在ring喝茶而已。
+
+现在排练在木头家地下室，商业出道不在livehouse。</blockquote>
+还有你好像以为大祥要转学是吧？
+
+*****
+
+####  adretyu67.  
+##### 38971#       发表于 2025-3-21 00:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698849&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-3-21 00:49</a>
+
+还有你好像以为大祥要转学是吧？</blockquote>
+大祥不会转学啊。但是两个团就是这样分道扬镳了。
+
+*****
+
+####  暴力s  
+##### 38972#       发表于 2025-3-21 00:51
+
+还是宣布下周13集停更，火速制作几集间奏当做7.5 8.5 12.5补充补充剧情吧
+
+*****
+
+####  cxj649  
+##### 38973#       发表于 2025-3-21 00:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">与其想着灯祥BE，不如想这下三校下下届学生会有谁233
+
+
+*****
+
+####  adretyu67.  
+##### 38974#       发表于 2025-3-21 00:52
+
+下下届剧情起码要到29年左右了，邦历1年=现实时间3年。
+
+*****
+
+####  wsuFish  
+##### 38975#       发表于 2025-3-21 00:53
+
+祥子和初音在岛爬山那一段，很像囚禁mv中的开场，估计就是mv的灵感来源
+
+关于祥子斗财阀的一切都可以解释为祥子才是真财阀/祥子掌握了私生子这一要害所以可以为所欲为，不然剧情发展荒唐得我要相信叙诡说或者剧中剧了。
+
+涉及初音的更是离谱，定治怎么会让她一个人去当管理员而不是回她妈和妹妹身边？只能解释为她妈和初华登场会让剧情变的尴尬。上一集疑似初华对初音根本不认家人的指责有点像自我实现的预言。这话能说出口很过分，但某种意义上讲也的确落实了
+
+初音当偶像不高兴的一部分原因是这生涯是在定治睁一只眼闭一只眼下维持，随时都会结束。这集祥子也觉得这日子长久不了所以要mujica最短时间出道，算是强行和目标一辈子的mygo对偶了。但这龙王归来的样子有啥长久不了的
+
+*****
+
+####  cxj649  
+##### 38976#       发表于 2025-3-21 00:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698856&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-21 00:51</a>
+
+大祥不会转学啊。但是两个团就是这样分道扬镳了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">即使灯祥分了，还有划小船三剑客和素睦呢
+
+分道扬镳难度不是你们心心念念吗<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 38977#       发表于 2025-3-21 00:55
+
+祥子能龙王归来的前提是她需要老登的地位。
+
+但是她现在油门踩死的玩法如果老登兜不住完蛋了那她自己也兜不住。
+
+*****
+
+####  北冥uu  
+##### 38978#       发表于 2025-3-21 00:56
+
+初音！你以为你接受的是谁的爱？是一个天神的爱！
+
+*****
+
+####  MuramasaSP  
+##### 38979#       发表于 2025-3-21 00:57
+
+祥子给灯写的信我还是很喜欢的。道歉了，感谢了，也表示自己受到了灯的激励。
+
+祥子的四大情债里头，灯和初华算是解决了，素世…按照暖色调飞鸟山回忆，估计是没有了。睦头剑指手游。
+
+*****
+
+####  大户爱  
+##### 38980#       发表于 2025-3-21 00:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698703&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-21 00:31</a>
+所以神人楼有没有他们看破的真相的总结可以瞻仰？
+
+我以前看过一个循环说，说什么5-7集、8-10集、11-13集就 ...</blockquote>
+他们自己都没有统一的思路，大概就一个里剧本，然后每个人都有自己的理解。
+
+时不时就有人出来，我悟了。发表一些谜语人或者和前面猜想完全不同的理论，然后大家一起对对对，多说一点，我也是这么想的。
+
