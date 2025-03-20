@@ -2418,3 +2418,16 @@ Snipaste_2025-03-19_16-16-48.png
 
 这游戏一对多的情况倒也没那么粪吧，有没有点技能里那些石火、击杀使敌人恐惧动摇之类的技能差别感觉是挺大的，我觉得还相当好玩，甚至有点忍龙的感觉，毕竟可以飞燕啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  手铐君  
+##### 3642#       发表于 2025-3-20 08:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67690889&amp;ptid=2092342" target="_blank">千千千千鸟 发表于 2025-3-20 08:31</a>
+
+洗点赌单双，把赌场的技能书清空了又洗回来。。
+
+这游戏一对多的情况倒也没那么粪吧，有没有点技能里那些石 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这游戏前期还行，但是到第三章开始初见端倪，到暗夜开始忍者组熟悉的感觉又回来了
+
