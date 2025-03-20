@@ -16777,3 +16777,34 @@ b站审核⭐压抑成这样了吗
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  影伴光生  
+##### 38397#       发表于 2025-3-20 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67694992&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-3-20 17:53</a>
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">唯一正面塑造较多的一集是吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  油画布  
+##### 38398#       发表于 2025-3-20 18:13
+
+<blockquote>6030sylar 发表于 2025-3-20 17:53
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+最好是说的真的 被声优耍了无数次
+
+
+*****
+
+####  油画布  
+##### 38399#       发表于 2025-3-20 18:17
+
+最喜欢的一集，一定要看=除了这个集都是一坨，不用看
+
+日本人的语言艺术
+
