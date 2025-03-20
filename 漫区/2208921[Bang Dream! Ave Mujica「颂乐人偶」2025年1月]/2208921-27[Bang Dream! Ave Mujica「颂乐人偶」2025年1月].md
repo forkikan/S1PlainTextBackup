@@ -3911,3 +3911,240 @@ wsd唯一没打好的算盘就是高估了一些网友对长视频的鉴赏能�
 
 现在有老登把柄了，老登不听话那就把初音这牌打出来，分分钟让老登姓不了丰川。
 
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 38877#       发表于 2025-3-20 23:58
+
+[https://www.bilibili.com/video/BV1RZXYYoEDi/](https://www.bilibili.com/video/BV1RZXYYoEDi/)
+
+初祥中之人复刻船震
+
+*****
+
+####  一心而用  
+##### 38878#       发表于 2025-3-20 23:58
+
+第12话官方Fan Art by ゆがー ​​​
+<img src="https://p.sda1.dev/22/3dff11cd97527c386a1c44efdaf5aef1/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  gawain  
+##### 38879#       发表于 2025-3-20 23:58
+
+饺子饺子饺饺子！感觉“你以为我是谁”会变成梗流传一段时间<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  fsfs_freeze  
+##### 38880#       发表于 2025-3-20 23:58
+
+我看的过程中总结下来只有一句话
+
+受け入れるわけねんだろう
+
+
+*****
+
+####  厄神之息  
+##### 38881#       发表于 2025-3-20 23:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">老登逮谁跟谁说丰川大手多么哈人，结果到最后屁事没有，祥子开开心心举丰川大旗带人装逼去了。老登你这不在手游后续里身中108枪身亡那真的很难收场。
+
+*****
+
+####  钦念以忱  
+##### 38882#       发表于 2025-3-20 23:59
+
+这下大祥从白祥时期的仁君、黑祥时期的暴君，变成了昏君，可称之为灰祥
+
+*****
+
+####  Victorino  
+##### 38883#       发表于 2025-3-21 00:00
+
+<blockquote>adretyu67. 发表于 2025-3-20 23:44
+初祥也BE了吧。大祥只是履行了当初说要承担成员人生的责任。
+
+至于交心也没那么重要了。反正都同居了。
+</blockquote>
+那何必拍大宅追逐打闹剧情，很迷惑
+
+*****
+
+####  古戸絵梨花  
+##### 38884#       发表于 2025-3-21 00:00
+
+我总感觉这集的气氛很压抑，尤其是最后读信那里<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kivz  
+##### 38885#       发表于 2025-3-21 00:00
+
+下周就解脱咯<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  厉飞雨  
+##### 38886#       发表于 2025-3-21 00:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">其实就是类似宫斗剧，女主觉悟了真爱与权力是没法两者兼得的时候，就想通了怎么利用身体去掌握权力
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">大金毛现在很重要，一个是组团需要她，另一边是可以用来拿捏老登
+
+*****
+
+####  adretyu67.  
+##### 38887#       发表于 2025-3-21 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698397&amp;ptid=2208921" target="_blank">Victorino 发表于 2025-3-21 00:00</a>
+
+那何必拍大宅追逐打闹剧情，很迷惑</blockquote>
+玩得很开心，但是仅限于玩得很开心。
+
+大祥认出初音可不是靠玩得很开心，而是夜晚观星。
+
+
+*****
+
+####  鱼丈人  
+##### 38888#       发表于 2025-3-21 00:02
+
+ 本帖最后由 鱼丈人 于 2025-3-21 00:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698195&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-3-20 23:41</a>
+拜拜，偷摸零，拜拜，我的软弱，现在的我是忘却之神OB一串字母了！</blockquote>
+祝你健康常胜！
+
+*****
+
+####  m99999  
+##### 38889#       发表于 2025-3-21 00:02
+
+<blockquote>古戸絵梨花 发表于 2025-3-21 00:00
+我总感觉这集的气氛很压抑，尤其是最后读信那里</blockquote>
+演出是故意呈现一种不稳定的虚幻感。走出大宅打光那里很明显，后面大祥的台词和面对初华告白的表情也是明盘。她一点儿也不开心，杀死了自己。
+
+*****
+
+####  木板春香  
+##### 38890#       发表于 2025-3-21 00:02
+
+ 就是有点可怜真心实意吹什么半身羁绊含金量去磕睦祥的，真是被骗进来杀，最后去配大猫这个坏逼了，真是把观众当宝搞。
+
+*****
+
+####  聋与唬  
+##### 38891#       发表于 2025-3-21 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697814&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-20 23:12</a>
+不要说这些想不想了，除非这片只有这一话，否则大祥“想不想”是很荒谬的，中登被赶出时呢，母鸡卡炸掉后 ...</blockquote>
+错误的，之前是钻牛角尖了没想明白，现在想明白了自己才是丰川家的主人
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  qratosones1337  
+##### 38892#       发表于 2025-3-21 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698058&amp;ptid=2208921" target="_blank">凉良 发表于 2025-3-20 23:29</a>
+初华和祥子就是小时候玩了几天的关系  不觉得祥子和初华有啥情感。 组mujica前的关系是初音到了东京后开始 ...</blockquote>
+这集其实演出来了，触动大祥的是最后一天看星星，大祥还特意确认了最后一天看星星是跟初音一起的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  厄神之息  
+##### 38893#       发表于 2025-3-21 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698370&amp;ptid=2208921" target="_blank">古戸絵梨花 发表于 2025-3-20 23:57</a>
+
+这集埋了这么多伏笔，下一集肯定不会是单纯的live吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又幻想了？幻想无敌柿本独角兽，半集动画收了所有的暗线，把逻辑全理清了？漏油是真坚强，从第四集开始幻想，然后幻想被编剧一个个戳泡泡戳到第12集，还能继续幻想半集翻盘翻山夺冠。
+
+*****
+
+####  真爱与热情  
+##### 38894#       发表于 2025-3-21 00:04
+
+mujica最好的一集是mujica的ep0。不过好像也是这集给mujica挖了大坑，大祥一个被逐出家门的人凭什么能这么快拉起一支商业乐队，快速走红成为国民级别的爆火团。只能说ep0的爽文很爽，仔细看矛盾一大堆，最终把mujica本篇献祭掉。
+
+*****
+
+####  ashero  
+##### 38895#       发表于 2025-3-21 00:04
+
+武田    非常感谢您的阅读和理解。我喜欢那种不属于任何人却能把他人的人生给搞得一团糟的孩子。因为一旦在某个时候属于某人的话，那个女孩子就会变得脆弱。我很喜欢这种仿佛宗教性的关系。明明既不是神明也没有任何特别的普通的女孩子却被别人擅自崇拜，在破坏了那个孩子的人生后留下“我，可不是神明哦”就扬长而去这样的。
+
+译者误：神様、バカ
+
+译者又误：武田老师你的xp真的有点怪哦（但是我喜欢）。
+
+绫柰    这说的简直就是祥子！ 
+
+`````````````````````````````````````````````````````````````
+
+武田    我的话大概很期待祥子酱的活跃吧。她也稍微有一些不安稳的气氛对吧（笑）。总是在学校的音乐室里弹奏钢琴，家里谁也不让进去，中学时代明明是在大小姐学校的月之森女子学园，高中的时候怎么就进去了相对普通的羽丘女子学园了呢……。无论发生什么，都希望祥子能加油。
+
+绫柰    《能够信赖的只有我自身一人而已》（信じられるのは我が身ひとつ）这个副标题就是重点哦。 作者：不素餐兮 [https://www.bilibili.com/read/cv26410759/?jump_opus=1](https://www.bilibili.com/read/cv26410759/?jump_opus=1) 出处：bilibili
+
+*****
+
+####  钦念以忱  
+##### 38896#       发表于 2025-3-21 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697863&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-20 23:14</a>
+
+这种解释你自己信吗，你要不自己看看第五话大祥那个状态，老登说付钱后，大祥吃惊的表情，否则灯为什么邀 ...</blockquote>
+这违约金不就是事务所的钱，事务所就是丰川集团的，无非就是给集团造成点账面亏损，大祥根本不在乎的，当然大祥意思当然是会还的，她会慢慢打工一点点还。
+
+*****
+
+####  是谁的书画  
+##### 38897#       发表于 2025-3-21 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698427&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-3-21 00:02</a>
+
+就是有点可怜真心实意吹什么半身羁绊含金量去磕睦祥的，真是被骗进来杀，最后去配大猫这个坏逼了，真是把 ...</blockquote>
+没事，吃不了还有素睦，两种选择，也就是死了一对最重要的而已<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 38898#       发表于 2025-3-21 00:06
+
+反正有同居那段话，我对鸡团2.0也不抱信心了。
+ <blockquote>即使逃避世界和命运
+
+这个小小的世界 总有一天会终结
+
+就像清晨 从梦中醒来一般
+
+突如起来 不容拒绝</blockquote>
+是东西都会死，但是没有东西是为了死而生出来的。
+
+当抱着什么东西一定会死的前提去理解的话，那就是已经完蛋了。
+
+*****
+
+####  liy30dlys  
+##### 38899#       发表于 2025-3-21 00:06
+
+之前水魔的时候就有一个想法，不是时间不够讲剧情所以唐突。而是本来就只有那么点事，硬是填充成20几集时间太多了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  鱼丈人  
+##### 38900#       发表于 2025-3-21 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698042&amp;ptid=2208921" target="_blank">蜜瓜包 发表于 2025-3-20 23:28</a>
+那么问题来了，丰川家到底有多可怕呢，13集突降突击队把那4个神人全突突了，再把大祥老师抓回家当种马吗 ...</blockquote>
+在live剧场释放麻醉气体，最后冲进去发现连带大祥全部麻似了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

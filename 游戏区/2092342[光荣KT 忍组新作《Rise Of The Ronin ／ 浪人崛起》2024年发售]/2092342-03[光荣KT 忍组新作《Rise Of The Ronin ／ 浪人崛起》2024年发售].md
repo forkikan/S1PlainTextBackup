@@ -2762,3 +2762,11 @@ B站刷到的视频好像大部分都是玩太刀和双刀的，是别的武器�
 
 现在狂缺礼物……<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  手铐君  
+##### 3673#       发表于 2025-3-21 00:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">这二周目有点神秘，第二章地图大世界不少要90多级，但是第三章却只有80多，而且据点头目强度也不是一个级别的.....
+
