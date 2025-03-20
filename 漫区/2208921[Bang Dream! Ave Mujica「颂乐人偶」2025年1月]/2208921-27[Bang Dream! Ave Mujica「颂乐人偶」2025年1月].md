@@ -3132,3 +3132,322 @@ Few years, maybe, in other places of less royalty. In Towaga ten thousands years
 
 那么问题来了，丰川家到底有多可怕呢，13集突降突击队把那4个神人全突突了，再把大祥老师抓回家当种马吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ntrntr1  
+##### 38804#       发表于 2025-3-20 23:28
+
+<blockquote>雪霜 发表于 2025-3-20 23:25
+到底是脱离家了还是继承家产了？</blockquote>
+什么脱离家产还是继承家产的。我就是家产。
+
+*****
+
+####  雪菜碧池  
+##### 38805#       发表于 2025-3-20 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697950&amp;ptid=2208921" target="_blank">gammatau 发表于 2025-3-20 23:21</a>
+
+看到小女友偷摸零在车上被炸飞后黑化了 最后一集随着Ave Mujica的歌声切入蒙太奇解决掉一个个叛徒，最后在 ...</blockquote>
+最后一个镜头，应该是鸡团四个人错愕地看着祥，祥阴阳脸打光，说我就是神，故事在喜忧参半中结束
+
+*****
+
+####  大丈夫萌大乃  
+##### 38806#       发表于 2025-3-20 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697930&amp;ptid=2208921" target="_blank">翼宿一 发表于 2025-3-20 23:19</a>
+
+我本以为这集之后就不会再看到角 gachi 了，结果还是看到漫山遍野的角 gachi 在宣称柿的多重人格把篇幅抢 ...</blockquote>
+但是有一说一,睦帝莫嗨互肘到第十集才消停确实抢了太多戏份吧,而且完全没屁用<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 38807#       发表于 2025-3-20 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697966&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-20 23:22</a>
+
+大祥老师明显没接受初音啊，她现在纯粹是拿初音当初华使</blockquote>
+初华和祥子就是小时候玩了几天的关系  不觉得祥子和初华有啥情感。 组mujica前的关系是初音到了东京后开始建立的
+
+*****
+
+####  ntrntr1  
+##### 38808#       发表于 2025-3-20 23:30
+
+<blockquote>蜜瓜包 发表于 2025-3-20 23:28
+那么问题来了，丰川家到底有多可怕呢，13集突降突击队把那4个神人全突突了，再把大祥老师抓回家当种马吗 ...</blockquote>
+祥子说了，老登你自己怕罢了，关我屁事。
+
+可能老登完成不了任务就要和莫提斯一样沉东京湾了
+
+*****
+
+####  木板春香  
+##### 38809#       发表于 2025-3-20 23:30
+
+<img src="https://img.saraba1st.com/forum/202503/20/233012sjlp0epejpqn0swn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.03 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-20 23:30 上传
+
+妈，你在天之灵安息吧，我和小姨过的很开心。
+
+*****
+
+####  Hchan  
+##### 38810#       发表于 2025-3-20 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697987&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-20 23:24</a>
+
+大角老师什么时候能正正经经有始有终的做出个什么玩意出来再说吧，我甚至都不要求她像花田一样做全片单集脚 ...</blockquote>
+拍完mygo之后不就不就有始有终的写了原创番《圣魔大战》吗，做的太烂被孝子选择性无视罢了
+
+*****
+
+####  adretyu67.  
+##### 38811#       发表于 2025-3-20 23:31
+
+抛弃真红人偶是意料之中的。放弃过去的话真红人偶作为母亲的遗物是没有什么存在必要
+
+*****
+
+####  与太郎  
+##### 38812#       发表于 2025-3-20 23:31
+
+我作为丰川家继承人的权力是无限的
+
+*****
+
+####  Ty_cc  
+##### 38813#       发表于 2025-3-20 23:31
+
+不是这个跳跃程度真的像是失忆了一样，原来我已经忘记一切了啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  影伴光生  
+##### 38814#       发表于 2025-3-20 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697894&amp;ptid=2208921" target="_blank">风真人 发表于 2025-3-20 23:16</a>
+哎，还不如早说第二季讲的是错认青梅克服千难万险终成眷属的故事，根本就没有什么最狂的少女乐队，这不纯纯 ...</blockquote>
+上错花轿嫁对郎
+其实有经典电视剧模板珠玉在前，结果mujica能拍的这么难绷
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  aptx8285144  
+##### 38815#       发表于 2025-3-20 23:32
+
+有一说一，撇开剧情逻辑不谈，初祥糖的逻辑和剧情上都多少还说的通（<strong>以对前面集数做对对比的话</strong>），但是这集想把很多人物都包进来，所以初祥的很多戏份明显还有赶工的痕迹
+
+*****
+
+####  是谁的书画  
+##### 38816#       发表于 2025-3-20 23:32
+
+ 本帖最后由 是谁的书画 于 2025-3-20 23:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698072&amp;ptid=2208921" target="_blank">Hchan 发表于 2025-3-20 23:30</a>
+
+拍完mygo之后不就不就有始有终的写了原创番《圣魔大战》吗，做的太烂被孝子选择性无视罢了 ...</blockquote>
+mujica有柿本做盾牌，这个有大河内做盾
+
+盾牌后面的女人是无敌的，狗男人还是太多了，影响了大角老师的发挥<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+不过你这个例子确实也是个例子就是了
+
+*****
+
+####  古戸絵梨花  
+##### 38817#       发表于 2025-3-20 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698067&amp;ptid=2208921" target="_blank">木板春香 发表于 2025-3-20 23:30</a>
+
+妈，你在天之灵安息吧，我和小姨过的很开心。</blockquote>
+祥子妈的头发不是这个颜色的吧，我觉得这个有可能是真初华，又或者是初音妈
+
+*****
+
+####  adretyu67.  
+##### 38818#       发表于 2025-3-20 23:33
+
+初祥关系就这样了吧。
+
+同居了，祥子承担初华人生了。也就把最基础的做完了，剩下都不重要了。
+
+*****
+
+####  akiomn  
+##### 38819#       发表于 2025-3-20 23:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看出来了，喵睦卖都卖不明白，按头硬卖。祥子闹了半天有种zio的美，最后还是回到go13的状态顶多再加点白祥成分
+问题是小魔王变逢魔好歹直接重置世界了，这mujica纯搞笑的
+
+*****
+
+####  堆雪若叶  
+##### 38820#       发表于 2025-3-20 23:33
+
+第一次离家的时候说无论如何只有这个人偶要带走，这次回来说要带行李结果只带走了灯的贴纸集，唉灯祥<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 38821#       发表于 2025-3-20 23:34
+
+这话结束真是黑暗kkr了。
+
+*****
+
+####  gammatau  
+##### 38822#       发表于 2025-3-20 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697843&amp;ptid=2208921" target="_blank">m99999 发表于 2025-3-20 23:13</a>
+
+删了睦的双重人格就只有雷雨一条主线了，塑造一条金毛和一个大小姐，花12集。我看这大象老师就是独角兽自 ...</blockquote>
+其实给睦塞一个玉玉症两集治好差不多了
+
+给大喵和海铃塞两集不服管然后被大象觉醒大女主领导术收服的职场戏，中间第七集让前女友偷摸零来治愈一下大象。
+
+最后初音自爆黑历史大象把自己的女人追回来，用在队友身上练好级的的丰川家主王霸之气把老登一脚踹飞，这不就完事了吗
+
+*****
+
+####  木板春香  
+##### 38823#       发表于 2025-3-20 23:34
+
+ 本帖最后由 木板春香 于 2025-3-20 23:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698103&amp;ptid=2208921" target="_blank">古戸絵梨花 发表于 2025-3-20 23:33</a>
+
+祥子妈的头发不是这个颜色的吧，我觉得这个有可能是真初华，又或者是初音妈 ...</blockquote>
+也可以，但不重要了
+
+祥子最后还是觉得自己对不起小闭灯，但会负起责任和初音同居，会带着4个神人组母鸡卡，这就够了。
+
+*****
+
+####  与太郎  
+##### 38824#       发表于 2025-3-20 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698037&amp;ptid=2208921" target="_blank">Victorino 发表于 2025-3-20 23:27</a>
+
+大祥老师和蝶团本来就完全不认识吧？除了一年前学校文化节上蝶在台上表演木箱在台下观赏，还有别的交集吗 ...</blockquote>
+这就和爱音与喵梦一样，喵梦不认识爱音但是爱音不是喵梦粉丝吗
+
+蝶团不认识祥子，但祥子不是被蝶团引入少女乐队的世界的吗
+
+想写的话当然可以写有互动的分支
+
+*****
+
+####  北条早苗  
+##### 38825#       发表于 2025-3-20 23:35
+
+还有人指望绫奈带队翻盘吗，指观众你们为什么都不忘了前11集<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这下母鸡卡连烂片这点都要烂尾了，变成了个平庸的烂片
+
+*****
+
+####  aptx8285144  
+##### 38826#       发表于 2025-3-20 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698107&amp;ptid=2208921" target="_blank">akiomn 发表于 2025-3-20 23:33</a>
+
+看出来了，喵睦卖都卖不明白，按头硬卖。祥子闹了半天有种zio的美，最后还是回到go13的状态顶多再加点白祥 ...</blockquote>
+母鸡卡的很多设定核心问题在于，这个片场“没法掀桌子“，而重置世界也是掀桌子的一种方式<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Hchan  
+##### 38827#       发表于 2025-3-20 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698100&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-20 23:32</a>
+
+mujica有柿本做盾牌，这个有大河内做盾
+
+盾牌后面的女人是无敌的，狗男人还是太多了，影响了大角老师的发 ...</blockquote>
+大河内就写了一集也要给系构背锅吗，太可怜了8<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  烂片雷达  
+##### 38828#       发表于 2025-3-20 23:36
+
+这集把cp定性了
+爱灯，初祥，海希，素睦，大家应该以官方为准以后不要乱嗑了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  huxiaopao163  
+##### 38829#       发表于 2025-3-20 23:36
+
+感觉很多人还挺喜欢这集的。。。
+可能就像我磕喵睦，所以喜欢第十集一样。。。
+磕初祥所以会喜欢这集吧。我不磕所以完全喜欢不起来，觉得毫无逻辑哈哈（喵睦部分除外<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">）
+就各取所需吧哈哈
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  风道北来  
+##### 38830#       发表于 2025-3-20 23:36
+
+还是得给予武士道赞美。粗糙的制作、混乱的剧本可以归罪于柿本自大无能，但母鸡卡是个非常有病的乐队这一底色与其无关，应当是最初的企划方向
+
+在mygo后面接了这么个怪胎就像土豆把斗破苍穹2写成琼明神女一样，水平高低不论，其勇气本身已超脱冒险与愚蠢的争论，进入艺术的范畴
+
+祝这帮艺术家全家活暗暗哦
+
+*****
+
+####  xyion  
+##### 38831#       发表于 2025-3-20 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697896&amp;ptid=2208921" target="_blank">m99999 发表于 2025-3-20 23:16</a>
+
+她心里的大女主大象最后变成空壳了。二偶是演给初音看的，团结乐队是为了其他人的人生，大象自己一无所有 ...</blockquote>
+演不出来的话可不敢说独角兽是怎么想的。
+
+除非有访谈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 38832#       发表于 2025-3-20 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698129&amp;ptid=2208921" target="_blank">北条早苗 发表于 2025-3-20 23:35</a>
+
+还有人指望绫奈带队翻盘吗，指观众你们为什么都不忘了前11集
+
+这下母鸡卡连烂片这点都要烂尾了，变成了个平 ...</blockquote>
+无视前面设定包个好饺子也行。
+
+但是这集看完同居那段台词我只能感受到毁灭前的疯狂。
+
+确实是芥末味饺子
+
+*****
+
+####  凉良  
+##### 38833#       发表于 2025-3-20 23:37
+
+我也没看明白这个人偶到底想表达啥
+
+*****
+
+####  蜜瓜包  
+##### 38834#       发表于 2025-3-20 23:38
+
+有点江南的味道了，大祥老师就是女版路明非么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

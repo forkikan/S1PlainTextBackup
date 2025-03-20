@@ -1537,3 +1537,13 @@ wiki说第三个图（要塞）的垃圾会出苦无和忍者刀，不过我还�
 原来这个刀还是联动角色专属武器吗？
 杂物里开出一个没人能用，正好兑换也省了。
 
+
+*****
+
+####  mobdom  
+##### 127#       发表于 2025-3-20 23:27
+
+队友死了用逆转右手复活之后是不是会长出尸斑的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">要怎么办啊，还我好看的妹子啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
