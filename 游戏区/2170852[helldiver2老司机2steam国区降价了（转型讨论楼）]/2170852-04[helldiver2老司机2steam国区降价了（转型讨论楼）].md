@@ -505,3 +505,11 @@ MG-206重机枪
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  unsh  
+##### 5879#       发表于 2025-3-20 09:11
+
+不能一发连小兵一起带走，还有必要打飞艇吗<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
