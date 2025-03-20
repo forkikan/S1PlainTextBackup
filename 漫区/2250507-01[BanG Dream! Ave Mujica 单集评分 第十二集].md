@@ -1815,3 +1815,13 @@ mujica 一开始就说了要写病态的乐队关系，大方向是兑现承诺�
 
 要闻！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AshPenguin  
+##### 194#       发表于 2025-3-21 05:48
+
+-2，就两个字，无聊
+
+大家都知道收是收不回来了，但是你好歹给点乐子。唯一看点是二创程度的工业糖精。
+
