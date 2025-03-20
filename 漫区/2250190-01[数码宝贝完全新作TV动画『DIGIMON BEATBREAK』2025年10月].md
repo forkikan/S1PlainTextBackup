@@ -509,3 +509,15 @@ dtcg手游什么时候出啊？dtcg规则看起来比ptcg好玩，想尝试玩�
 比起主角更像男二。前几代也没有这种人当 ...</blockquote>
 看着像牌佬
 
+
+*****
+
+####  黑夜守望者  
+##### 50#       发表于 2025-3-20 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67696002&amp;ptid=2250190" target="_blank">TOYSTORY 发表于 2025-3-20 20:48</a>
+主角看着是双色头发，而且可能是高冷的中二技术宅黑客类型？
+
+比起主角更像男二。前几代也没有这种人当 ...</blockquote>
+主角兽是变色龙吧，真的好丑
+
