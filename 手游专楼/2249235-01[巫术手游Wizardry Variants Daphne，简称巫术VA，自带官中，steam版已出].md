@@ -1326,3 +1326,11 @@ wiki说第三个图（要塞）的垃圾会出苦无和忍者刀，不过我还�
 
 升到33去摸了几把，感觉能打个4000血<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">打不过
 
+
+*****
+
+####  Bojenkins  
+##### 107#       发表于 2025-3-20 08:53
+
+看了攻略都不敢升青铜了，卡29级用宝箱怪体液战法打过，火龙麻痹后只会拍爪打起来真是轻松愉快
+
