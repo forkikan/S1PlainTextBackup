@@ -1150,3 +1150,23 @@ Z，ZZ，逆鸭和Gqux应该都没什么太大关系了，值得细看的东西�
 话说留美哥该把GQ新的街机卡后面评语也翻译了</blockquote>
 上次补充包完了就没新卡片了吧
 
+
+*****
+
+####  岸浪白野  
+##### 8984#       发表于 2025-3-20 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67694803&amp;ptid=2209276" target="_blank">王留美 发表于 2025-3-20 17:29</a>
+上次补充包完了就没新卡片了吧</blockquote>
+还有张红高达0079啊
+
+
+*****
+
+####  psycho_Gadfly  
+##### 8985#       发表于 2025-3-20 17:46
+
+<blockquote>岸浪白野 发表于 2025-3-20 17:40
+还有张红高达0079啊</blockquote>
+我记得有个骡子的评语……忘记保存了
+
