@@ -16619,3 +16619,21 @@ TORASENBEI</blockquote>
 这个简单，让祥子同意当老登女儿。就可以喊姐姐了</blockquote>
 丰川三姐妹<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一心而用  
+##### 38389#       发表于 2025-3-20 16:55
+
+原作：TORASENBEI
+
+汉化：千早上飞
+
+<img src="https://img.saraba1st.com/forum/202503/20/165414cw1szzsqpvwiow1b.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (108.4 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-20 16:54 上传
+

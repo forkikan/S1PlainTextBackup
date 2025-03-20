@@ -2551,3 +2551,16 @@ Snipaste_2025-03-19_16-16-48.png
  ...</blockquote>
 技能点了说服威胁啥的就有选项了
 
+
+*****
+
+####  千千千千鸟  
+##### 3654#       发表于 2025-3-20 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67694298&amp;ptid=2092342" target="_blank">Lorraine_Kinney 发表于 2025-3-20 16:21</a>
+
+刚玩完天国拯救，这个，很多任务都在想是不是有别的方法过，比如临时起冲突时候，想能不能走嘴炮
+
+ ...</blockquote>
+昨天做照相馆任务，**土匪的暴力场景的照片，结果我潜入的时候被发现，直接把敌人砍死了拍尸体，也算暴力场景照片完成<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -427,3 +427,30 @@ byd应该又是骗投资pv
 
 唉，dm也是好起来了，这25周年又是游戏又是dtcg手游又是新动画，太爽了
 
+
+*****
+
+####  6030sylar  
+##### 43#       发表于 2025-3-20 16:48
+
+<img src="https://img.saraba1st.com/forum/202503/20/164744u6pzd6xpbx8dx8b6.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>308f93c3139bf4189de0c8e6d0e13e26.jpeg</strong> (489.04 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-20 16:47 上传
+
+哥总联动好看
+
+*****
+
+####  月夜凝雪  
+##### 44#       发表于 2025-3-20 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67693956&amp;ptid=2250190" target="_blank">aruruu 发表于 2025-3-20 15:33</a>
+又有手游，又有单机，还有新动画，digimon也算是好起来了</blockquote>
+团队还被大换血了，听说换了Q娃那边的人做主负责人
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

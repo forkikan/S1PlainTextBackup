@@ -1065,3 +1065,27 @@ Z，ZZ，逆鸭和Gqux应该都没什么太大关系了，值得细看的东西�
 —— 来自 HONOR FCP-AN10, Android 15, 鹅球 v3.4.98</blockquote>
 周末都不愿意出门的人不可能零点出来的。只能希望到了次周五还能有imax场吧，我家这边不够火的片会迅速减少imax场
 
+
+*****
+
+####  oi99o  
+##### 8977#       发表于 2025-3-20 16:53
+
+一场送三张可还行，竟然不是随机<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202503/20/165251y3zz55zj7fy55z5n.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (66.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-20 16:52 上传
+
+<img src="https://img.saraba1st.com/forum/202503/20/165257ea1bbzkerao4km9x.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (218.82 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-20 16:52 上传
+
