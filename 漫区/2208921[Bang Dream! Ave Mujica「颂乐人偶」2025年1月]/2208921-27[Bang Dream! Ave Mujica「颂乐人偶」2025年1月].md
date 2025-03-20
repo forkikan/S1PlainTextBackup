@@ -6029,3 +6029,97 @@ ep12的牛奶我觉得应该是回ep9那一瞥。
 
 我不想污染版面了，我不会再回复任何你的可笑言论了。
 
+
+*****
+
+####  大户爱  
+##### 39056#       发表于 2025-3-21 02:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67699265&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-21 02:32</a>
+老登那话倒是暗示中登不是他搞的，是丰川家的黑暗搞的。
+
+大手要是把老登和中登都搞掉了，下面自然就是大祥 ...</blockquote>
+为什么不能是中登，真的亏了168亿，和初音这事没半毛钱关系，初音自己误解了呢？
+
+从头到尾也不知道初音的情报源怎么来的，怎么知道中登老登这么多事，刚要说的时候，被掐了。
+
+这事就纯纯背景板，和妹妹妈妈一样，靠自己脑补了。
+
+*****
+
+####  帆前  
+##### 39057#       发表于 2025-3-21 02:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67699262&amp;ptid=2208921" target="_blank">ddy2811 发表于 2025-3-21 02:30</a>
+
+“仗着身份横冲直撞”恰恰很白祥啊
+
+黑祥是觉得自己能力大过天不靠家族也能靠这个担负人生吧 ...</blockquote>
+正因实际表现出来的效果跟你说的相反，我才如此吐槽。白祥实际表现出来的效果更像是凭个人魅力，黑祥实际表现出来的效果反而更像是倚靠家族势力。<img src="https://static.saraba1st.com/image/smiley/face2017/271.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 39058#       发表于 2025-3-21 02:37
+
+黑祥特色才是利用一切能利用的吧。
+
+12话就体现为你敢违逆丰川祥子的我吗。
+
+
+*****
+
+####  z-hunter  
+##### 39059#       发表于 2025-3-21 02:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67699271&amp;ptid=2208921" target="_blank">帆前 发表于 2025-3-21 02:35</a>
+
+正因实际表现出来的效果跟你说的相反，我才如此吐槽。白祥实际表现出来的效果更像是凭个人魅力，黑祥实际 ...</blockquote>
+哈哈，可能mujica的编剧对于祥子这个人物，其实是想写她从黑祥和白祥融合成现在这样（怎么又融合了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）灰祥的过程
+
+可惜这个故事讲得太差了
+
+*****
+
+####  huxiaopao163  
+##### 39060#       发表于 2025-3-21 02:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67699160&amp;ptid=2208921" target="_blank">GhSap 发表于 2025-3-21 01:45</a>
+
+有部分原因是因为这集和前面不是一个动画。你能接受前面的，突然换了一个片场，那你肯定觉得不行了。
+
+我 ...</blockquote>
+确实。。。1-10是群像剧，故事都是一小段一小段，讲不同人的故事。11-12则是聚焦在一个人或者两个人的故事。
+
+当然11集比较特殊，但是12集是正常的动画形式，和前十集比较就会有明显的差异感。。。
+
+*****
+
+####  大户爱  
+##### 39061#       发表于 2025-3-21 02:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67699268&amp;ptid=2208921" target="_blank">GhSap 发表于 2025-3-21 02:33</a>
+对不起，不知道你有认知障碍，提醒一下，是你先回复我的。
+
+另外我有自知之明，知道没有办法让你喜欢上这 ...</blockquote>
+那抱歉我记错了，我前面印象里回的是一个楼友，没想到是您。
+我回复抛出一堆问题，本以为回复的楼友会依次解答一下，至少回应一下。结果等来一个，“我什么都解答不了，我觉得就是好”的楼友，所以搞错人了，抱歉。
+
+那我们平心静气能讨论一下嘛。
+
+我前面的回复，“是祥子机场顿悟好吗？丰川家保镖女仆被定身好吗？是祥子铁人三项顺移好吗？是初音妹妹妈妈，说到嘴边的落魄中登被一笔带过好吗？
+
+是祥子和老登的龙王归来？和时间变幻唐突花园玩耍好吗？是祥子上半集打的刷脸，下半集和经纪人叫板，然后嘴里一个去**丰川家好吗？”
+
+我觉得我提出的问题还蛮有价值的，你要是在乎逻辑，能一起探讨下嘛。
+
+*****
+
+####  帆前  
+##### 39062#       发表于 2025-3-21 02:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67699280&amp;ptid=2208921" target="_blank">z-hunter 发表于 2025-3-21 02:40</a>
+
+哈哈，可能mujica的编剧对于祥子这个人物，其实是想写她从黑祥和白祥融合成现在这样（怎么又融合了）灰祥 ...</blockquote>
+十五年未有之黑白颠倒女主😭（
+

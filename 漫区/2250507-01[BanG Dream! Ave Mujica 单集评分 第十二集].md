@@ -1740,3 +1740,13 @@ mujica 一开始就说了要写病态的乐队关系，大方向是兑现承诺�
 
 这应该是最后一次打分了，下一集有live，应该肯定是+2的了。幻想挽救mujica只能剑指手游剧情了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  IL282  
+##### 186#       发表于 2025-3-21 02:39
+
+有最新sox素材当然+2
+
+—— 来自 vivo V2324A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
