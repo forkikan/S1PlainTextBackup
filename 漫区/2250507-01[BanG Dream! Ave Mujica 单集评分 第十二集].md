@@ -1693,3 +1693,18 @@ mujica 一开始就说了要写病态的乐队关系，大方向是兑现承诺�
 
 区区赘婿，暂时的财产管理人罢了，如何敌得过身为丰川家嫡系继承人的我，什么jk斗财阀，jk就是财阀，又是血统论胜利的一天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  huanzhi  
+##### 182#       发表于 2025-3-21 02:03
+
+能被一坨熏瞌睡也是神了，真不如一路犯病到底<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+向理科历史，道歉！
+向水星魔女，道歉！
+向京吹三，道歉！
+向gbc，道歉！
+向mygo，道歉！
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
