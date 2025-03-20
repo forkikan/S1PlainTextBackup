@@ -1547,3 +1547,15 @@ wiki说第三个图（要塞）的垃圾会出苦无和忍者刀，不过我还�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  macshi  
+##### 128#       发表于 2025-3-20 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698040&amp;ptid=2249235" target="_blank">mobdom 发表于 2025-3-20 23:27</a>
+队友死了用逆转右手复活之后是不是会长出尸斑的要怎么办啊，还我好看的妹子啊
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+回去睡觉洗洗就干净了，在迷宫战斗久了会越来越脏。脏了好像会更容易引到怪。
+
