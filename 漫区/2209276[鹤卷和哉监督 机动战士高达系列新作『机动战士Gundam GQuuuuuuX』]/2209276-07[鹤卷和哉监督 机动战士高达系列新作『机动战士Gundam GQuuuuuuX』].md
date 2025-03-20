@@ -1052,3 +1052,16 @@ Z，ZZ，逆鸭和Gqux应该都没什么太大关系了，值得细看的东西�
 
 会不会提前点映，清明节忙啊
 
+
+*****
+
+####  七七見奈波  
+##### 8976#       发表于 2025-3-20 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67691645&amp;ptid=2209276" target="_blank">完美的消费品 发表于 2025-3-20 10:33</a>
+
+应该有零点场吧
+
+—— 来自 HONOR FCP-AN10, Android 15, 鹅球 v3.4.98</blockquote>
+周末都不愿意出门的人不可能零点出来的。只能希望到了次周五还能有imax场吧，我家这边不够火的片会迅速减少imax场
+
