@@ -610,3 +610,180 @@
 
 这集演晚了，早这么演我早跑了
 
+
+*****
+
+####  蛋疼三四郎  
+##### 65#       发表于 2025-3-20 22:59
+
+这集各种便宜MAD素材，没觉得哪里写得好的，我倒要看看这周的好评如潮为了同接硬吹的人都能夸出些啥
+
+*****
+
+####  diectt  
+##### 66#       发表于 2025-3-20 22:59
+
+-2 没活了，不过海子姐让我笑了一下+1，勉强-1吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  安娜导函数  
+##### 67#       发表于 2025-3-20 22:59
+
+-2
+我作为丰川正统继承人的权力是无限的！<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  takitaki  
+##### 68#       发表于 2025-3-20 22:59
+
+-2，哈哈哈哈，独角兽，你这藏了几个月的大戏也不行啊。大角老师它骗人啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  leleq  
+##### 69#       发表于 2025-3-20 22:59
+
+可惜找经纪公司老板哪里没有几个黑衣人大喊恭迎龙王归位。有就完美了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  swessia  
+##### 70#       发表于 2025-3-20 23:00
+
+ed前不明所以-1
+a part文戏还算可以+1
+b part节奏大混乱-1
+速冻饺子0
+祥子你早干嘛去了全剧节奏-1
+
+-2
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  鱼丈人  
+##### 71#       发表于 2025-3-20 23:00
+
+前面积重难返，有些问题不是这一集能够挽救的，所以我不给-2。
+但是这集也是一点没尽力挽救，最后又轻描淡写的把老登人物写崩了，把丰川家写成了一个笑话，顺便爹就这么振作起来贯彻垃圾分类了；
+把三角家写没了，把真初华的一切努力否决了；
+把白祥写成机械降神了，合着前面那么多集黑祥全是闹麻了。
+至于其他几个人更不用说了，一切的折腾都是闹麻。
+
+*****
+
+####  人又如何  
+##### 72#       发表于 2025-3-20 23:01
+
+-2
+
+祥：我来成为神明
+
+成 神 之 日
+
+*****
+
+####  d79bd7b34f39d3c  
+##### 73#       发表于 2025-3-20 23:01
+
+《你到底在说什么，我还要装模作样听多久》
+
+*****
+
+####  鱼丈人  
+##### 74#       发表于 2025-3-20 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697636&amp;ptid=2250507" target="_blank">人又如何 发表于 2025-3-20 23:01</a>
+-2
+
+祥：我来成为神明
+
+成 神 之 日</blockquote>
+早说了是写给eva的一封情书<img src="https://static.saraba1st.com/image/smiley/carton2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  创始’’’天翔  
+##### 75#       发表于 2025-3-20 23:01
+
++2，让我回忆起追狐神时的感觉了，一下年轻了两岁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天王寺凯伊姆  
+##### 76#       发表于 2025-3-20 23:03
+
+go粉只要把道歉那段单剪出来就可以把go和🐔完美切割了，多么哈皮呀
+
+*****
+
+####  fsfs_freeze  
+##### 77#       发表于 2025-3-20 23:04
+
+-2
+
+受け入れるわけねんだろう
+
+*****
+
+####  IDIDIDIDork  
+##### 78#       发表于 2025-3-20 23:04
+
+你不懂丰川家有多恐怖，我看老登的权利不如祥子一根，难怪祥子有成神的底气
+
+*****
+
+####  关水  
+##### 79#       发表于 2025-3-20 23:05
+
+-2 太sb了，我请问前面11集在演什么？初华初音双子设定意义在哪？都在硬凹爆点水时长是吧
+
+*****
+
+####  持微火者  
+##### 80#       发表于 2025-3-20 23:05
+
+-2
+初祥花园那段实在太变态了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  wrsyd  
+##### 81#       发表于 2025-3-20 23:06
+
+大祥老师确实是神，用一集就把饺子包完了，虽然这饺子怎么看怎么像一坨<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+*****
+
+####  石柱  
+##### 82#       发表于 2025-3-20 23:07
+
+今晚直接从第一季飞到了第12集，非常欢快，我只看到了大祥脚和女同恋爱轻喜剧<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  塞西菜恩  
+##### 83#       发表于 2025-3-20 23:07
+
+-2，大祥老师你都反抗了啥啊
+
+下一集丰川家的黑色高级车跑出来，把鸡团的暗杀了可能会比较黑暗面一点吧，那我能+2了
+
+*****
+
+####  甲鱼  
+##### 84#       发表于 2025-3-20 23:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">还不如彻底疯狂，太寡淡了
+

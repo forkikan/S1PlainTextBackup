@@ -1952,3 +1952,422 @@ sumimi不是还要参与对邦吗，总得有个名分吧，那最有可能是�
 
 不灌咖啡動不下去的
 
+
+*****
+
+####  ALSE  
+##### 38684#       发表于 2025-3-20 22:58
+
+ 本帖最后由 ALSE 于 2025-3-20 23:00 编辑 
+
+发错
+
+QQ20250320-225701.jpg
+(14.53 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-20 22:58 上传
+
+<img src="https://img.saraba1st.com/forum/202503/20/225805b684d4dm6eed1866.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 38685#       发表于 2025-3-20 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697568&amp;ptid=2208921" target="_blank">暴走的包子 发表于 2025-3-20 22:57</a>
+
+这大祥老师除了妈死了以外简直就是凤傲天啊，绝壁是小红书爆款了，为了自己的幸福果断抛弃生物蝶 ...</blockquote>
+不死个家里人怎么成风傲天，因果关系<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蜜瓜包  
+##### 38686#       发表于 2025-3-20 22:59
+
+我都在看些啥呀，莫名其妙<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Chenlh  
+##### 38687#       发表于 2025-3-20 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67696979&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-3-20 22:28</a>
+
+加个TGW觉得很好玩是吧</blockquote>
+从访谈就可以看出来了，mujica根源就是编剧团队头脑风暴阶段想了一堆创意，怎么着都得找个机会秀一波每个曾经提出过的创意的存在感，睦就是 多重人格+演技 杂糅出来的，还有这集莫名其妙的oped调转，只能说可给他们憋坏了
+
+*****
+
+####  zhzij111  
+##### 38688#       发表于 2025-3-20 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67696994&amp;ptid=2208921" target="_blank">Wwwwwater 发表于 2025-3-20 22:28</a>
+这丰川家黑暗在哪</blockquote>
+别管大小姐多逍遥自在，你就说对赘婿黑不黑暗吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 38689#       发表于 2025-3-20 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697571&amp;ptid=2208921" target="_blank">Victorino 发表于 2025-3-20 22:57</a>
+
+老登身上没有丰川的血，现在拥有丰川正统血脉的仅此一人</blockquote>
+那为什么当初还需要老登付赔偿金，为什么大祥解决不了168忆，为什么留不住中登在自己豪宅，既然大祥是正统血脉？？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 38690#       发表于 2025-3-20 22:59
+
+老登原来姓三角是吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  m99999  
+##### 38691#       发表于 2025-3-20 22:59
+
+<blockquote>Hchan 发表于 2025-3-20 22:56
+这集真的好没意思，之前十一集不管优劣，一直是有活的</blockquote>
+所以我之前就觉得了，按独角兽原案来拍估计就是一点点破事来回演，更没看点。梗都在🐶团用得差不多了
+
+*****
+
+####  Victorino  
+##### 38692#       发表于 2025-3-20 23:00
+
+<blockquote>aptx8285144 发表于 2025-3-20 22:45
+不是这个问题，只要是正常人顺口问一句你妹妹现在去哪里了或者在哪里才是常理，没这么做只有一个原因，独 ...</blockquote>
+意思就是祥子一点也不在意真初华是哪位啊，小学同学都不如的关系，不熟勿cue谢谢
+
+*****
+
+####  hollyween  
+##### 38693#       发表于 2025-3-20 23:00
+
+灯箱啊，我的灯箱就这么be了。唉
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  adretyu67.  
+##### 38694#       发表于 2025-3-20 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697621&amp;ptid=2208921" target="_blank">hollyween 发表于 2025-3-20 23:00</a>
+
+灯箱啊，我的灯箱就这么be了。唉
+
+—— 来自 S1Fun</blockquote>
+没be啊，回家特意去拿独角仙笔记本
+
+*****
+
+####  是谁的书画  
+##### 38695#       发表于 2025-3-20 23:00
+
+你不懂丰川家的黑暗！
+
+有一说一，真没人懂<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  kenqqex  
+##### 38696#       发表于 2025-3-20 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697606&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-20 22:59</a>
+
+那为什么当初还需要老登付赔偿金，为什么大祥解决不了168忆，为什么留不住中登在自己豪宅，既然大祥是正 ...</blockquote>
+答案就是
+
+她 不 知 道 ！
+
+*****
+
+####  雪霜  
+##### 38697#       发表于 2025-3-20 23:00
+
+抖音脑残短剧都无法看到这么弱智的所谓“大女主”
+
+*****
+
+####  TAQ  
+##### 38698#       发表于 2025-3-20 23:01
+
+后半段两人互动感觉像在看轻拍，直接在幻境你侬我侬了
+
+*****
+
+####  yeo  
+##### 38699#       发表于 2025-3-20 23:01
+
+讲道理丰川家是线粒体继承法。祥子拥有丰川家线粒体，老登中登小姨都没有，现在丰川家祥子最大没问题<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wrsyd  
+##### 38700#       发表于 2025-3-20 23:01
+
+我是漏看了什么？初音说自己是祥子爹被扫地出门的元凶是什么意思？
+
+*****
+
+####  莱茵哈鲁特  
+##### 38701#       发表于 2025-3-20 23:01
+
+没想到睦是真融合了
+
+*****
+
+####  ntrntr1  
+##### 38702#       发表于 2025-3-20 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697606&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-20 22:59</a>
+
+那为什么当初还需要老登付赔偿金，为什么大祥解决不了168忆，为什么留不住中登在自己豪宅，既然大祥是正 ...</blockquote>
+因为前几集她忘了。
+
+但这是十二集，现在的新指示是我们应该把前几集忘了。
+
+接下来是祥神的时间。尤其什么违约金不违约金的，你就说这个公司姓不姓丰川吧。
+
+*****
+
+####  adretyu67.  
+##### 38703#       发表于 2025-3-20 23:01
+
+老登需要祥子当大旗来抱住自己的位置。
+
+大祥老师在鸡12话终于想明白了这点所以随意开作了，看谁先完蛋。
+
+
+*****
+
+####  FanFun  
+##### 38704#       发表于 2025-3-20 23:02
+
+兜兜转转了12集，最后是为了怪味女同添加情趣吗<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 38705#       发表于 2025-3-20 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697632&amp;ptid=2208921" target="_blank">kenqqex 发表于 2025-3-20 23:00</a>
+
+答案就是
+
+她 不 知 道 ！</blockquote>
+错误，是因为这些神人主创发现自己在做抖音短剧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，所以是在用一种爆炸完后再快速包寿司的思路来的
+
+*****
+
+####  厉飞雨  
+##### 38706#       发表于 2025-3-20 23:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">玩虫的普通朋友，一起看星空才是浪漫到能记一生的人
+
+*****
+
+####  leghorn00  
+##### 38707#       发表于 2025-3-20 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697052&amp;ptid=2208921" target="_blank">清江望月 发表于 2025-3-20 22:31</a>
+话说司机用本土形容日本本岛，那说明远到一定境界了吧？大祥老师走路走过去的？什么野外生存仙人啊。 ...</blockquote>
+去的是濑户内海的小豆岛，从羽田机场过去的话坐飞机3个小时，坐火车5个多小时，当天往返东京是可以的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  tuatha  
+##### 38708#       发表于 2025-3-20 23:03
+
+正经大小姐不可能说出“讨厌咖啡气味”这种话甚至连想都不敢想，就是说祥子终于决心放弃大人们给的设定，要成为新世界的卡密了
+
+*****
+
+####  秋月孝三  
+##### 38709#       发表于 2025-3-20 23:03
+
+以后你邦战力榜第一应该就是能把tgw家继承顺位第一&amp;新世界的神按倒在地的长崎女士了吧
+
+*****
+
+####  与太郎  
+##### 38710#       发表于 2025-3-20 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697512&amp;ptid=2208921" target="_blank">反方向的波 发表于 2025-3-20 22:54</a>
+
+那上一话纯纯初音独角戏的意义又何在，锻炼李子演技是吧</blockquote>
+这就和问睦双重人格的意义在哪里一样，那个才真是临时加戏考验声优演技，初华初音这个好歹是MyGO时期就有伏笔
+
+只能说加法多过减法导致剧情超出掌控能力了
+
+当然对着独角戏里不合理细节考据的观众肯定要气死了
+
+*****
+
+####  风真人  
+##### 38711#       发表于 2025-3-20 23:03
+
+哎我莫头呢<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">朋友，我找不到她了
+顺便真初华也遗忘了吗
+
+*****
+
+####  aptx8285144  
+##### 38712#       发表于 2025-3-20 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697641&amp;ptid=2208921" target="_blank">wrsyd 发表于 2025-3-20 23:01</a>
+
+我是漏看了什么？初音说自己是祥子爹被扫地出门的元凶是什么意思？</blockquote>
+初音还在演悲剧女主，大祥表示，你别入戏了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蜜瓜包  
+##### 38713#       发表于 2025-3-20 23:04
+
+大小姐过家家这评价真的一点都没错，闹麻了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  m99999  
+##### 38714#       发表于 2025-3-20 23:04
+
+<blockquote>hollyween 发表于 2025-3-20 23:00
+灯箱啊，我的灯箱就这么be了。唉
+
+—— 来自 S1Fun</blockquote>
+其实独角兽想写的就是大祥想着灯皇被五个人雷普的故事，她明显不喜欢初音
+
+*****
+
+####  刑部姬真可爱  
+##### 38715#       发表于 2025-3-20 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697641&amp;ptid=2208921" target="_blank">wrsyd 发表于 2025-3-20 23:01</a>
+
+我是漏看了什么？初音说自己是祥子爹被扫地出门的元凶是什么意思？</blockquote>
+11集，初音自白说中登为了让老登给初音一个名分所以被老登假公报私了，不过这东西没法确定
+
+*****
+
+####  知北游  
+##### 38716#       发表于 2025-3-20 23:04
+
+如果祥子真接受了去瑞士，初华成为了别墅管理人，以后是不是有可能老登故事重演<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  sauron.j  
+##### 38717#       发表于 2025-3-20 23:05
+
+这集感觉像是一只切成13段的白斩鸡被临时替换成盐水鸭，但鸡脖子和鸡屁股被保留下来的缝合感
+
+*****
+
+####  adretyu67.  
+##### 38718#       发表于 2025-3-20 23:05
+
+鸡2.0这么玩的确还是大小姐过家家。
+
+不过鸡2.0执着于出道还有什么意义？？？？
+
+*****
+
+####  油画布  
+##### 38719#       发表于 2025-3-20 23:05
+
+<blockquote>风真人 发表于 2025-3-20 22:55
+光速和解，那前面硬撑这么多集搞得苦难是为了什么？虽然从脚本到编剧连观众都知道要包饺子了，真吃到的时候 ...</blockquote>
+单把这集拎出来看也很平庸，这种戏让花田写会好看的多
+
+*****
+
+####  钦念以忱  
+##### 38720#       发表于 2025-3-20 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67696430&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-20 21:48</a></blockquote>
+这动作不会又是🦄亲自和编剧一起做的演示吧
+
+
+*****
+
+####  厉飞雨  
+##### 38721#       发表于 2025-3-20 23:05
+
+赘婿jb乱还搞出私生女足够大祥老师夺权了，况且她也不需要夺，老登只是在她成年之前代为托管而已<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  m99999  
+##### 38722#       发表于 2025-3-20 23:06
+
+<blockquote>TAQ 发表于 2025-3-20 23:01
+后半段两人互动感觉像在看轻拍，直接在幻境你侬我侬了</blockquote>
+大祥在演，为了乐队。所以最后才写信给灯皇
+
+*****
+
+####  ntrntr1  
+##### 38723#       发表于 2025-3-20 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697721&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-20 23:05</a>
+
+鸡2.0这么玩的确还是大小姐过家家。
+
+不过鸡2.0执着于出道还有什么意义？？？？ ...</blockquote>
+我可是丰川家的大小姐，娱乐公司都是我们的，我凭啥不能出道
+
+*****
+
+####  刑部姬真可爱  
+##### 38724#       发表于 2025-3-20 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697682&amp;ptid=2208921" target="_blank">秋月孝三 发表于 2025-3-20 23:03</a>
+
+以后你邦战力榜第一应该就是能把tgw家继承顺位第一&amp;新世界的神按倒在地的长崎女士了吧 ...</blockquote>
+祥子躺地上一推就能把素食推倒坐在另一边，甚至不是推侧开，而是推到另一边，这臂力至少是大于素食体重的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  与太郎  
+##### 38725#       发表于 2025-3-20 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697641&amp;ptid=2208921" target="_blank">wrsyd 发表于 2025-3-20 23:01</a>
+
+我是漏看了什么？初音说自己是祥子爹被扫地出门的元凶是什么意思？</blockquote>
+既然不是幻想妹妹初华剧情，也没有初音和祥爹再次见面的回忆杀，那就只能解释为初音把时间上重合的两件事错误进行了因果关联
+
+舞台剧里其他不合逻辑的细节也都可以归为初音错误的主观认知or独角戏形式下的必要夸张了
+
+*****
+
+####  gammatau  
+##### 38726#       发表于 2025-3-20 23:07
+
+我又幻想了 幻想自己不是赘婿 真的掌握丰川家的权力 不会在女当家成人后就被一脚踢开……
+
+*****
+
+####  zhzij111  
+##### 38727#       发表于 2025-3-20 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697545&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-20 22:56</a>
+融合睦直接回退到黄瓜版本了，只不过换了个爱好种苦瓜去了。
+
+莫头果然是只能存在在舞台上的存在吗。 ...</blockquote>
+融合睦社交能力明显进化，都能调侃喵梦了，负责社交的墨提斯估计是死透了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
