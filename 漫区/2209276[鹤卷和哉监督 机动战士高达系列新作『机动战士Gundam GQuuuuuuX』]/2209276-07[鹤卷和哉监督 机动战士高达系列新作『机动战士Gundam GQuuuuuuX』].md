@@ -1119,3 +1119,23 @@ Z，ZZ，逆鸭和Gqux应该都没什么太大关系了，值得细看的东西�
 你忘了胶卷了吗，第1弹是海报+街机卡
 <img src="https://p.sda1.dev/22/8502f2bd9a1e967a5e1cb81b2bbe7ab4/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王留美  
+##### 8981#       发表于 2025-3-20 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67694725&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-3-20 17:16</a>
+
+你忘了胶卷了吗，第1弹是海报+街机卡</blockquote>
+还真忘记胶卷了😂
+
+*****
+
+####  岸浪白野  
+##### 8982#       发表于 2025-3-20 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67694742&amp;ptid=2209276" target="_blank">王留美 发表于 2025-3-20 17:18</a>
+还真忘记胶卷了😂</blockquote>
+话说留美哥该把GQ新的街机卡后面评语也翻译了
+
