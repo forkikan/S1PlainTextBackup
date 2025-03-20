@@ -916,3 +916,139 @@ op放到最尾再看到这台词就很南奔了，你可以烂，但是不能剧
 
 乐子都没了
 
+
+*****
+
+####  ArcadiaMartyr  
+##### 100#       发表于 2025-3-20 23:18
+
+删了前十一集如果这是母鸡卡第一集可以+2
+可惜这是第十二集-2
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  纸皮  
+##### 101#       发表于 2025-3-20 23:18
+
+不是，这命运也妹把你咋滴啊，除了没了🐴，而且她好像也不是特别在意
+其他都是自个儿这纠结那纠结作的
+嗷的一声突然想开了还给自己带个反抗命运的大高帽，哎呀，要直面命运回去继承亿万家产了
+
+*****
+
+####  Duc_d'_Muka  
+##### 102#       发表于 2025-3-20 23:19
+
+劣质到狗屎的包饺子
+
+*****
+
+####  naynaydes  
+##### 103#       发表于 2025-3-20 23:19
+
++2
+
+视而不见啊🤣
+
+*****
+
+####  老贝  
+##### 104#       发表于 2025-3-20 23:20
+
++2
+
+祥子对初华几次表态的回复都挺有意思的。
+
+就是这片因为各种各样的原因展开被限制的太死了，真被允许朝史上最狂去放飞的话可能还更好一点。
+
+*****
+
+####  Keiji  
+##### 105#       发表于 2025-3-20 23:20
+
+自己的妹妹和母亲呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  葛葉景明  
+##### 106#       发表于 2025-3-20 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697494&amp;ptid=2250507" target="_blank">dutage 发表于 2025-3-20 22:53</a>
+
+我看这第十二集是武士道献给eva和死亡笔记的情书，大家伙儿你们觉得我说的对吗[汤圆]
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我看11和12集的时候还真想着不是人人都能当庵野秀明
+
+
+*****
+
+####  渡鸦骑士  
+##### 107#       发表于 2025-3-20 23:22
+
++1给丰川祥子最像人的一集-1给剧情最不像人的一集
+
+*****
+
+####  adretyu67.  
+##### 108#       发表于 2025-3-20 23:24
+
+非常异味的饺子。
+
+大祥老师彻底疯狂了。
+
+*****
+
+####  赛文欧德  
+##### 109#       发表于 2025-3-20 23:24
+
+0分
+
+怎么还没结束啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wangh  
+##### 110#       发表于 2025-3-20 23:24
+
+有百+2!!!!!
+
+*****
+
+####  kongxian  
+##### 111#       发表于 2025-3-20 23:25
+
+财阀这就斗完了？ 丰川家的可怕到底是什么啊？<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  黒鈴ミヲ  
+##### 112#       发表于 2025-3-20 23:25
+
++2 下一集将用两小时超长剧场版挽回大家的心
+
+*****
+
+####  人畜无害沃特碧  
+##### 113#       发表于 2025-3-20 23:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">虽然知道要包饺子，但是这包的是啥
+
+*****
+
+####  KharaLaplace  
+##### 114#       发表于 2025-3-20 23:27
+
+蜘蛛侠原来怕蜘蛛，幻灭了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[S1YURICON]BanG Dream! Ave Mujica [12][Fluctuat nec mergitur.][2160p][Bilibili][.jpg
+(357.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-20 23:26 上传
+
+<img src="https://img.saraba1st.com/forum/202503/20/232635f00iifp6aiyhihfb.jpg" referrerpolicy="no-referrer">
+

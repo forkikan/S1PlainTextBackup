@@ -2775,3 +2775,360 @@ QQ20250320-225701.jpg
 这种解释你自己信吗，你要不自己看看第五话大祥那个状态，老登说付钱后，大祥吃惊的表情，否则灯为什么邀 ...</blockquote>
 第5话不就是普通的富二代突然青春逆反“我要靠我自己的双手赚钱！从今天起不花家里一分钱！”的状态吗，大祥老师从黑刀之夜搬出大house到坐回迈巴赫为止一直是这个状态啊
 
+
+*****
+
+####  gammatau  
+##### 38769#       发表于 2025-3-20 23:18
+
+How many hundreds of years needs it to make a steward a king, if the king returns not?
+
+Few years, maybe, in other places of less royalty. In Towaga ten thousands years would not suffice.
+
+*****
+
+####  雪菜碧池  
+##### 38770#       发表于 2025-3-20 23:18
+
+弱智玩意，照着教父写很难吗，第12话应该是第7话，后面全是祥子不择手段的黑化
+
+*****
+
+####  厄神之息  
+##### 38771#       发表于 2025-3-20 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697834&amp;ptid=2208921" target="_blank">xyion 发表于 2025-3-20 23:13</a>
+
+这一会儿传统二偶戏码，一会儿讨厌咖啡无视碟团，独角兽你到底想写啥</blockquote>
+讨厌咖啡是说自己讨厌这种清醒的感觉，会意识到现实问题，更喜欢那种朦胧半梦放空大脑的感觉，可以恣意放纵。无视蝶团就是想说祥子现在已经是完全体大女主不会再仰视崇拜任何人，成神了。
+
+她成没成神我不知道，我是看的快成神经了
+
+*****
+
+####  swessia  
+##### 38772#       发表于 2025-3-20 23:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">起码苦瓜睦看样子还能吃，比以前强势了不少
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  oneoutsider  
+##### 38773#       发表于 2025-3-20 23:19
+
+ 本帖最后由 oneoutsider 于 2025-3-20 23:21 编辑 
+
+哇已经闻到饺子味了，准备开吃（棒读）
+
+所以ave mujica讲的是前11集剧情都像是演“天将降大任于是人也，必先苦其……”迫使祥子成长，然后这一集祥子突然想起来了自己是丰川家的继承人本来就可以为所欲为，然而观众看起来还是女高中生闹麻了的事？
+
+*****
+
+####  翼宿一  
+##### 38774#       发表于 2025-3-20 23:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer"> 我本以为这集之后就不会再看到角 gachi 了，结果还是看到漫山遍野的角 gachi 在宣称柿的多重人格把篇幅抢完导致饺子无馅可包
+
+*****
+
+####  影伴光生  
+##### 38775#       发表于 2025-3-20 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697512&amp;ptid=2208921" target="_blank">反方向的波 发表于 2025-3-20 22:54</a>
+那上一话纯纯初音独角戏的意义又何在，锻炼李子演技是吧</blockquote>
+11集不演的话，12集就要在🐘面前演了吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  鱼丈人  
+##### 38776#       发表于 2025-3-20 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697787&amp;ptid=2208921" target="_blank">Victorino 发表于 2025-3-20 23:09</a>
+老登付赔偿金这件事的性质，感觉就像是老登是丰川家的出纳一样的程度，替大女主保管金库钥匙的staff
+
+至于 ...</blockquote>
+祥子:以后你我就是蝙蝠侠和阿福管家的地位关系，放清楚自己的身份<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  钦念以忱  
+##### 38777#       发表于 2025-3-20 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67679954&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-18 14:49</a>
+
+随便想了想13话可以有的剧情，灯再次给祥送歌词本，并对祥子“祝你幸福”对偶mygo13话，这就把灯祥救回来了 ...</blockquote>
+这🦄有点猛啊，这集就基本都干完了，倒是祥睦彻底完蛋了
+
+*****
+
+####  aptx8285144  
+##### 38778#       发表于 2025-3-20 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697851&amp;ptid=2208921" target="_blank">Victorino 发表于 2025-3-20 23:14</a>
+
+突然意识到一个问题
+
+11和12集，其实大祥老师拿到了她人生中最至关重要的一个道具
+
+那就是：</blockquote>
+私生女是吧，但是这些前提都是有一个重要前提，老登还是愿意庇护大祥的，否则鱼死网破，都一样，当然如果现在再讨论大祥才是正统血脉之类的，不需要老登的庇护，算了，感觉太魔幻了，<strong>不如完全肯定老登本质是好人，好吧，我觉得这样解释明显更符合这话的逻辑，老登就是德林<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"></strong>
+
+*****
+
+####  m99999  
+##### 38779#       发表于 2025-3-20 23:20
+
+<blockquote>厄神之息 发表于 2025-3-20 23:19
+讨厌咖啡是说自己讨厌这种清醒的感觉，会意识到现实问题，更喜欢那种朦胧半梦放空大脑的感觉，可以恣意放 ...</blockquote>
+那个表情不光是清醒，接的是初音对她表白她没回。心里显然是恶心的。
+
+*****
+
+####  ccared  
+##### 38780#       发表于 2025-3-20 23:21
+
+<img src="https://p.sda1.dev/22/1cbc086e5803d5aec48911fecbb11f8f/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/db6e75846a383f423004613ab934b56f/image.jpg" referrerpolicy="no-referrer">
+这句台词和接下来这个镜头，大角老师的意图已经明明白白了。
+玛德我头一次意识到自己可能崆峒<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">大角老师的亲戚真该给自家小孩配个报警器。
+
+*****
+
+####  jaewoongh_  
+##### 38781#       发表于 2025-3-20 23:21
+
+独角兽真的有能力做原案/系构吗，为什么总是这么烂俗的设定，她真的只适合在各大百合片场写单集做百合战士
+
+*****
+
+####  gammatau  
+##### 38782#       发表于 2025-3-20 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697914&amp;ptid=2208921" target="_blank">雪菜碧池 发表于 2025-3-20 23:18</a>
+
+弱智玩意，照着教父写很难吗，第12话应该是第7话，后面全是祥子不择手段的黑化
+
+ ...</blockquote>
+看到小女友偷摸零在车上被炸飞后黑化了是吧（
+
+*****
+
+####  鱼丈人  
+##### 38783#       发表于 2025-3-20 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697831&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-20 23:12</a>
+真融合了吗，怕不是和两面佛一样说切就切，我是没看出来
+
+但你要说融合了倒也合理，没啥莫缇丝的性格，就是 ...</blockquote>
+有蜘蛛侠，有蝙蝠侠钢铁侠，还有双面人和小丑，这样才健全<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  油画布  
+##### 38784#       发表于 2025-3-20 23:22
+
+外面好评还不少，看来大家受够黑暗锅了吃点白菜饺子就热泪盈眶了
+
+
+*****
+
+####  m99999  
+##### 38785#       发表于 2025-3-20 23:22
+
+<blockquote>ccared 发表于 2025-3-20 23:21
+这句台词和接下来这个镜头，大角老师的意图已经明明白白了。
+
+玛德我头一次意识到自己可能崆峒大角老师的 ...</blockquote>
+强忍雷普也要带团的贝多芬
+
+*****
+
+####  adretyu67.  
+##### 38786#       发表于 2025-3-20 23:22
+
+大祥老师明显没接受初音啊，她现在纯粹是拿初音当初华使
+
+*****
+
+####  aptx8285144  
+##### 38787#       发表于 2025-3-20 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697902&amp;ptid=2208921" target="_blank">Victorino 发表于 2025-3-20 23:17</a>
+
+第5话不就是普通的富二代突然青春逆反“我要靠我自己的双手赚钱！从今天起不花家里一分钱！”的状态吗， ...</blockquote>
+但是按照这话大祥无敌状态的，<strong>以及更重要的暗示丰川家的正统是大祥</strong>，第四话和第五话的很多问题不可能这么棘手<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 38788#       发表于 2025-3-20 23:22
+
+有一說一，
+
+這劇本還不如天降弦卷心秒掉豐川家的黑暗
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| m99999| + 1||
+
+查看全部评分
+
+*****
+
+####  风道北来  
+##### 38789#       发表于 2025-3-20 23:22
+
+不过在（我脑补的）原案大象复仇记中，母鸡卡本来就是大象看姐妹开路虎后心理失衡，犯了女人都会犯的错误搞出来的产物
+
+结果现在的版本也摆明了告诉你，如果大象在中登被老登踢飞时不突发阿兹海默忘了自己才是丰川家扛把子，母鸡卡同样不会诞生
+
+可以说是一种命运层次的殊途同归了
+
+*****
+
+####  厉飞雨  
+##### 38790#       发表于 2025-3-20 23:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">再回忆第一集老登想让大祥老师“过继”成自己女儿
+老登其实就是想利用大祥老师这个正统血脉来巩固自己的地位
+
+*****
+
+####  是谁的书画  
+##### 38791#       发表于 2025-3-20 23:24
+
+大角老师什么时候能正正经经有始有终的做出个什么玩意出来再说吧，我甚至都不要求她像花田一样做全片单集脚本了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  与太郎  
+##### 38792#       发表于 2025-3-20 23:24
+
+无视蝶团这个有两个解释
+
+第一是小祥抛弃过去了，过去也包括组ccc的理由
+
+第二是小祥和蝶团的人本来也不熟，所以制作组就按不熟的写法来了
+
+当然考虑到前面爱音见到喵梦亲时完全零互动了，小祥见蝶团好歹还打了招呼，已经不错了
+
+*****
+
+####  huxiaopao163  
+##### 38793#       发表于 2025-3-20 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697571&amp;ptid=2208921" target="_blank">Victorino 发表于 2025-3-20 22:57</a>
+老登身上没有丰川的血，现在拥有丰川正统血脉的仅此一人</blockquote>
+如果有丰川血脉的真的只有丰川祥子一个了，那她的血脉岂不是毫无价值。只有很多厉害的人有丰川的血脉，认可丰川这个姓氏，祥子的血脉才有价值啊。。。
+当然，如果这个血脉有遗传什么超能力，当我没说
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  雪霜  
+##### 38794#       发表于 2025-3-20 23:25
+
+到底是脱离家了还是继承家产了？
+
+*****
+
+####  古戸絵梨花  
+##### 38795#       发表于 2025-3-20 23:25
+
+现在的大祥老师明显不正常吧，13集还会有反转么，看预告13集就是狗鸡live了
+
+*****
+
+####  aptx8285144  
+##### 38796#       发表于 2025-3-20 23:25
+
+ 本帖最后由 aptx8285144 于 2025-3-20 23:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697971&amp;ptid=2208921" target="_blank">风道北来 发表于 2025-3-20 23:22</a>
+
+不过在（我脑补的）原案大象复仇记中，母鸡卡本来就是大象看姐妹开路虎后心理失衡，犯了女人都会犯的错误搞 ...</blockquote>
+其实这话大祥走出门时老登还在唠叨丰川家有多么可怕，<strong>我不知道两个人是谁在沉迷在幻想世界里面</strong><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fsfs_freeze  
+##### 38797#       发表于 2025-3-20 23:26
+
+独角兽在你楼已经进化成大角了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 38798#       发表于 2025-3-20 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697992&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-3-20 23:24</a>
+
+无视蝶团这个有两个解释
+
+第一是小祥抛弃过去了，过去也包括组ccc的理由
+
+第二是小祥和蝶团的人本来也不熟， ...</blockquote>
+渡轮上和初华说的忘记一切过去。现在大祥老师就是忘记过去的状态了。
+
+所以答案当然是一。
+
+现在纯粹就是当神掌控鸡团，在梦醒之前闹多大是多大了。
+
+又想着最速出道也是这个原因。
+
+*****
+
+####  鱼丈人  
+##### 38799#       发表于 2025-3-20 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697923&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-3-20 23:19</a>
+讨厌咖啡是说自己讨厌这种清醒的感觉，会意识到现实问题，更喜欢那种朦胧半梦放空大脑的感觉，可以恣意放 ...</blockquote>
+快进到变地雷妹od**
+
+*****
+
+####  m99999  
+##### 38800#       发表于 2025-3-20 23:27
+
+话说最后🐘写给灯的信怎么有种被黄毛雷普喊着前女友名字的感觉
+
+
+*****
+
+####  Victorino  
+##### 38801#       发表于 2025-3-20 23:27
+
+<blockquote>与太郎 发表于 2025-3-20 23:24
+无视蝶团这个有两个解释
+
+第一是小祥抛弃过去了，过去也包括组ccc的理由
+
+第二是小祥和蝶团的人本来也不熟， ...</blockquote>
+大祥老师和蝶团本来就完全不认识吧？除了一年前学校文化节上蝶在台上表演木箱在台下观赏，还有别的交集吗？大祥老师说了贵安之后蝶五人的反应很明显是惊讶，月之森高中部没这个人吧怎么突然贵安了
+
+*****
+
+####  adretyu67.  
+##### 38802#       发表于 2025-3-20 23:27
+
+现在看来鸡那个被封闭的永远就是鸡团没错了。
+
+脆弱随时又可能梦醒，在此之前肆意演出。
+
+*****
+
+####  蜜瓜包  
+##### 38803#       发表于 2025-3-20 23:28
+
+那么问题来了，丰川家到底有多可怕呢，13集突降突击队把那4个神人全突突了，再把大祥老师抓回家当种马吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

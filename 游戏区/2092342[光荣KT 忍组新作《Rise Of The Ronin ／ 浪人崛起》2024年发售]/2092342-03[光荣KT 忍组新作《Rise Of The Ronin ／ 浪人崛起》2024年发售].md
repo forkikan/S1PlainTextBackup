@@ -2720,3 +2720,14 @@ B站刷到的视频好像大部分都是玩太刀和双刀的，是别的武器�
 那你应该很喜欢对马岛和AC神话三部曲才对……</blockquote>
 巧了，刺客信条最喜欢的是4，最讨厌的就是神话三部曲，而浪人很明显更像ac2
 
+
+*****
+
+####  Sopp  
+##### 3669#       发表于 2025-3-20 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697728&amp;ptid=2092342" target="_blank">慕容断月 发表于 2025-3-20 23:05</a>
+
+巧了，刺客信条最喜欢的是4，最讨厌的就是神话三部曲，而浪人很明显更像ac2 ...</blockquote>
+浪人这个装备系统简直跟神话三部曲是一个妈生的<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
