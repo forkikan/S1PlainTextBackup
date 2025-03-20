@@ -576,3 +576,15 @@ bb主角这发型发色像打牌的
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  sliver1997  
+##### 57#       发表于 2025-3-21 01:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67694845&amp;ptid=2250190" target="_blank">abysmal 发表于 2025-3-20 17:33</a>
+dtcg手游什么时候出啊？dtcg规则看起来比ptcg好玩，想尝试玩玩。</blockquote>
+有个非官方的dcgo可以线上玩，不过中文卡图包要找找
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
