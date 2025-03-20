@@ -2792,3 +2792,16 @@ B站刷到的视频好像大部分都是玩太刀和双刀的，是别的武器�
 浪人这个装备系统简直跟神话三部曲是一个妈生的</blockquote>
 哪啊，这不就是仁王以后忍者组祖传的装备系统吗？
 
+
+*****
+
+####  Horusddt  
+##### 3676#       发表于 2025-3-21 04:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698321&amp;ptid=2092342" target="_blank">廖化 发表于 2025-3-20 23:53</a>
+求问下，哪里可以看到行商路线，我传送之后再过来就没人了……
+
+现在狂缺礼物…… ...</blockquote>
+[https://youtu.be/EB3J8olZi5E?si=7o9_HL54DKoJqi1N](https://youtu.be/EB3J8olZi5E?si=7o9_HL54DKoJqi1N)
+但是说实话到后面礼物压根不缺，猫打工找给礼物的那几个做就行了
+
