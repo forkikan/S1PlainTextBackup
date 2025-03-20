@@ -5425,3 +5425,59 @@ ep12像是版本回退到了ep0，鸡动画1-11话确实都是不需要的东西
 —— 来自 鹅球 v3.3.96-alpha ...</blockquote>
 那大角老师怕是学的走火入魔了
 
+
+*****
+
+####  adretyu67.  
+##### 39010#       发表于 2025-3-21 01:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67699087&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-3-21 01:26</a>
+
+因为划小船和羽丘就是邦最初的舞台啊，有学生会更容易展开校园内的剧情，所以估计还是会塞几个人的，看看 ...</blockquote>
+这一波毕业结束，划小船ppp和hhw没了，羽丘ag也没了。
+
+羽丘主要是高二比划小船强，不过羽丘高二也是散装成员也没好到哪里去。
+
+两边高一都是三剑客打平倒是端水了。
+
+
+*****
+
+####  adretyu67.  
+##### 39011#       发表于 2025-3-21 01:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698901&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-21 00:58</a>
+
+其实是共犯拉平了。
+
+初音还是会芥蒂自己姓三角不姓丰川
+
+祥子也会芥蒂初音确实是父亲堕落的诱因</blockquote>
+没，初音还是那个人偶，祥子已经是avemujica的神了。
+
+*****
+
+####  zhoujin8584  
+##### 39012#       发表于 2025-3-21 01:37
+
+<blockquote>adretyu67. 发表于 2025-3-21 01:33
+没，初音还是那个人偶，祥子已经是avemujica的神了。</blockquote>
+这集曾经的悲剧女主角初华已经学会出轨了，再给她些时间会干什么我不敢想<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 39013#       发表于 2025-3-21 01:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67699067&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-21 01:21</a>
+
+ep12像是版本回退到了ep0，鸡动画1-11话确实都是不需要的东西。</blockquote>
+我觉得ep0的黑祥状态就不该有，至少在多人场合不该有，硬拿出白祥模式来顶Mujica把自己玩炸的展开也不是不能写啊，黑祥就是个连自己力量来源都不清楚还爱摆姿态的菜B，根本就不是能带队做事的人
+
+*****
+
+####  borrowface  
+##### 39014#       发表于 2025-3-21 01:38
+
+真的是臭不可闻的ep12
+
