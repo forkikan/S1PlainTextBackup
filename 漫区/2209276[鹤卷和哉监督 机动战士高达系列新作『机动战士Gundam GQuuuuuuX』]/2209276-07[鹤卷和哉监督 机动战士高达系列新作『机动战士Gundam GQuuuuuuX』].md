@@ -1034,3 +1034,13 @@ Z，ZZ，逆鸭和Gqux应该都没什么太大关系了，值得细看的东西�
 路画应该会搞的。
 省一楼，微博转发过一千了，还不错
 
+
+*****
+
+####  岸浪白野  
+##### 8974#       发表于 2025-3-20 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67692260&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-3-20 11:49</a>
+哪里的消息？</blockquote>
+路画会搞，但物料会赶不上刚上映
+

@@ -611,3 +611,18 @@ npc白吃我一个补剂demo里也没后续内容了 气晕
 
 —— 来自 Google Pixel 9 Pro, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  madcow  
+##### 60#       发表于 2025-3-20 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67685985&amp;ptid=2158861" target="_blank">不灭的旋律 发表于 2025-3-19 13:55</a>
+
+4月24日发售，2160日元带设定集。发售得太快价格低有不好的预感。
+
+看了下这楼评价很高啊是我打开方法不对吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这价格才配这便宜画面便宜建模（还有脚填的数值
+
+一般通过正常玩家看到画面和建模就被吓跑了
+
