@@ -493,3 +493,15 @@ MG-206重机枪
 
 这两周都去打荒野了，问下新版本打运输艇是只能用飞矛了吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 5878#       发表于 2025-3-20 08:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67690891&amp;ptid=2170852" target="_blank">unsh 发表于 2025-3-20 08:32</a>
+这两周都去打荒野了，问下新版本打运输艇是只能用飞矛了吗</blockquote>
+理论来说只有飞矛可以一发打爆飞船带走上面的小兵，无后座力可以一发打引擎带走飞船，但带不走小兵。但飞矛打飞船太奢侈了，飞矛子弹太少了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
