@@ -4404,3 +4404,189 @@ image.webp
 
 听上去好绝望
 
+
+*****
+
+####  adretyu67.  
+##### 38921#       发表于 2025-3-21 00:18
+
+ 本帖最后由 adretyu67. 于 2025-3-21 00:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698542&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-3-21 00:14</a>
+
+下周13集，终于可以见识下“终极自由的以太”是个啥样子了，没记错的话，木谷老登说看了五遍是单指最后一集 ...</blockquote>
+看睦头和大猫对的台本下话小剧场剧情应该是旧世界毁灭<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+几个人偶的象征物都消失了，应该最后只剩下爱。
+
+*****
+
+####  滑稽Captain  
+##### 38922#       发表于 2025-3-21 00:18
+
+被封闭的永远
+
+祥子想要沉浸在mujica梦里更久一点，但梦终究是会醒的
+
+这就是属于mujica的不会长久的一辈子
+
+*****
+
+####  凉良  
+##### 38923#       发表于 2025-3-21 00:18
+
+这集祥子表达的想要用尽一切手段延长这个虚无的梦 感觉和剧情完全搭不上啊
+
+*****
+
+####  厄神之息  
+##### 38924#       发表于 2025-3-21 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698465&amp;ptid=2208921" target="_blank">liy30dlys 发表于 2025-3-21 00:06</a>
+
+之前水魔的时候就有一个想法，不是时间不够讲剧情所以唐突。而是本来就只有那么点事，硬是填充成20几集时间 ...</blockquote>
+别的动画可能是，母鸡卡明显不是，它要是给祥子和初华还有丰川家族的事分4集讲的明明白白，睦莫的事分两集带带拉到，效果都能好不少。现在祥子跟木子米姐妹情深四五集，还搁那麦琪的礼物，结果结尾一集告诉你，我跟小姨假装好上了，给偷摸铃写信告别了。木子米呢？木子米的睦部分去陪soyo种苦瓜，莫部分去陪大猫演对手戏了。搞笑呢？4集姐妹情，结尾0互动，这半身闹麻了
+
+*****
+
+####  聋与唬  
+##### 38925#       发表于 2025-3-21 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698397&amp;ptid=2208921" target="_blank">Victorino 发表于 2025-3-21 00:00</a>
+那何必拍大宅追逐打闹剧情，很迷惑</blockquote>
+大祥已经顿悟自己才是丰川家的主宰，自己想在家里怎么玩就怎么玩，老登才是个看家的管家。大祥这是在展示所有权呢
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  K的字母表  
+##### 38926#       发表于 2025-3-21 00:21
+
+祥子有点像把初音肚子搞大后出于责任心娶了对方，最后写信还是写给初恋
+
+*****
+
+####  鱼丈人  
+##### 38927#       发表于 2025-3-21 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698181&amp;ptid=2208921" target="_blank">m99999 发表于 2025-3-20 23:39</a>
+原案走的话，第三集抖完家世，第四集睦玉玉，五集炸团，六七go团+合唱，八九猫回头，十十一十二大祥抛弃 ...</blockquote>
+即便如此，原案大祥摆烂又振作的过程仍然成迷
+
+*****
+
+####  天空塔书记官  
+##### 38928#       发表于 2025-3-21 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698582&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-21 00:18</a>
+看睦头和大猫对的台本下话小剧场剧情应该是旧世界毁灭
+
+几个人偶的象征物都消失了，应该最后只剩下爱。 ...</blockquote>
+估计还是要爆，不过也不好说，13集演出能有mygo平均水平就谢天谢地了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  木板春香  
+##### 38929#       发表于 2025-3-21 00:22
+
+ 但ccc真的过去也回不来了，即使现在的祥子认清自己是神了，但偷摸零已经决定自己迷茫并前行了，剩下的事就是祥子要自己化身镇妖塔锁住剩下几个人别去祸害别人了，趁着自己脑子还清醒就一直组母鸡卡，狠狠锁住，对神人的人生负责。
+
+
+*****
+
+####  聋与唬  
+##### 38930#       发表于 2025-3-21 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698537&amp;ptid=2208921" target="_blank">EverNight 发表于 2025-3-21 00:14</a>
+其实mujica的剧情应该是很简单的。大小姐成长觉醒的故事，从一无所知的大小姐，玩过家家的大小姐，到觉醒的 ...</blockquote>
+这剧情结构上还挺贴合的嘛
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  岬开斗  
+##### 38931#       发表于 2025-3-21 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698611&amp;ptid=2208921" target="_blank">K的字母表 发表于 2025-3-21 00:21</a>
+祥子有点像把初音肚子搞大后出于责任心娶了对方，最后写信还是写给初恋</blockquote>
+太不合理了，既然是神様，为什么不能开后宫呢？
+<img src="https://p.sda1.dev/22/126bc2552d5f1547d17f6b5fe319e0da/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  adretyu67.  
+##### 38932#       发表于 2025-3-21 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698630&amp;ptid=2208921" target="_blank">岬开斗 发表于 2025-3-21 00:22</a>
+
+太不合理了，既然是神様，为什么不能开后宫呢？</blockquote>
+已经开了啊，10话睦头家那段承诺。
+
+12话大祥对初华的承诺并没有超出10话那段。
+
+*****
+
+####  Суслов  
+##### 38933#       发表于 2025-3-21 00:25
+
+非常非常无聊的包饺子，前几集烂至少烂的有乐子，这集真是从里到外散发着一股腐朽的平庸味道<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+回头看之前crychic和mujica的各种矛盾纠葛，这集给出的回答是全都是因为祥子没有坐上迈巴赫，只能说要是能早点演出来那对大家都好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  月亮上的珊瑚  
+##### 38934#       发表于 2025-3-21 00:25
+
+感觉初华在岛上给大祥说了她外公是婿养子的事，所以她现在才这么横
+
+*****
+
+####  adretyu67.  
+##### 38935#       发表于 2025-3-21 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698622&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-3-21 00:22</a>
+
+估计还是要爆，不过也不好说，13集演出能有mygo平均水平就谢天谢地了
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+客观来说鸡团目前的精神状态应该写不出专辑2的元素歌，大概停留在专辑1毁灭旧世界的状态。
+
+*****
+
+####  厄神之息  
+##### 38936#       发表于 2025-3-21 00:26
+
+ 本帖最后由 厄神之息 于 2025-3-21 00:27 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">在没人在意的角落，立希成了以为海玲放奶冻就会下意识不耐烦哈气的存在，而海玲成了看见初华给人送奶冻，会一眼不看立希，上去对初华说你要出轨的存在。坚挺了近10集的海希cp还是被无情的被拆散了
+
+母鸡卡！你把多少人的生活都毁了！
+
+*****
+
+####  天空塔书记官  
+##### 38937#       发表于 2025-3-21 00:26
+
+不过老登强调看了5遍13话，其实也有之前的集数不值得重看的意思不是吗，真就是浪费资源啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  古明地雷  
+##### 38938#       发表于 2025-3-21 00:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698288&amp;ptid=2208921" target="_blank">MuramasaSP 发表于 2025-3-20 23:49</a>
+
+这真的是从第六话开始最舒服的一话了。
+
+之前想起自己一直期待的动画和最喜欢的角色被糟蹋成这样，气得饭都 ...</blockquote>
+我也是，前面祥子给我的感觉真的很特别，没有这么喜欢过一个角色，我现在我觉得她的灵魂被抽走了
+
