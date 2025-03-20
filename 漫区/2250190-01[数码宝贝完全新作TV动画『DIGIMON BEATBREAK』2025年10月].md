@@ -478,3 +478,34 @@ byd应该又是骗投资pv
 
 dtcg手游什么时候出啊？dtcg规则看起来比ptcg好玩，想尝试玩玩。
 
+
+*****
+
+####  TOYSTORY  
+##### 48#       发表于 2025-3-20 20:48
+
+<img src="https://img.saraba1st.com/forum/202503/20/204713xc9rzcs939ecyrfl.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (101.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-20 20:47 上传
+
+主角看着是双色头发，而且可能是高冷的中二技术宅黑客类型？
+
+比起主角更像男二。前几代也没有这种人当主角吧，也算新鲜了
+
+
+*****
+
+####  windaria  
+##### 49#       发表于 2025-3-20 20:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67696002&amp;ptid=2250190" target="_blank">TOYSTORY 发表于 2025-3-20 20:48</a>
+
+主角看着是双色头发，而且可能是高冷的中二技术宅黑客类型？
+
+比起主角更像男二。前几代也没有这种人当 ...</blockquote>
+看着像牌佬
+

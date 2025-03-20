@@ -16987,3 +16987,41 @@ mujica不会最后真变成高中生喝茶乐队吧 也太JB搞笑了
 
 歌也翻译成中文了，这个倒是挺用心的<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天空塔书记官  
+##### 38417#       发表于 2025-3-20 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67695980&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-20 20:44</a>
+他吗的，P1听到第30S的时候就已经绷不住了
+
+歌也翻译成中文了，这个倒是挺用心的
+
+ ...</blockquote>
+甚至连蝶团的歌曲片段也是中文版的，可以期待一手春日影了，这团队基本都是混网配的老人，虽然比不上专业的声优，但就态度而言，还是相当认真的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  6030sylar  
+##### 38418#       发表于 2025-3-20 20:56
+
+<img src="https://img.saraba1st.com/forum/202503/20/205617h511ebeqb8ve8tbk.png" referrerpolicy="no-referrer">
+
+<strong>B9@]X$$U6EDN~W(@5X08_YE.png</strong> (50.32 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-20 20:56 上传
+
+<img src="https://img.saraba1st.com/forum/202503/20/205623t7jcursgauyjyipj.png" referrerpolicy="no-referrer">
+
+<strong>4(54{]7LJS1Y[)QPB@78)%Q.png</strong> (73.65 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-20 20:56 上传
+

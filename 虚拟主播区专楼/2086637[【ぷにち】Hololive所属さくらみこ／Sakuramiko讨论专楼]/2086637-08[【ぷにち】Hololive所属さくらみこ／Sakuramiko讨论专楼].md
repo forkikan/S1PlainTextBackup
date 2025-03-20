@@ -2522,3 +2522,22 @@ Ado几天前的新曲，前奏是不是有点东西？
 
 等会，12BOX是12*12=144袋你没搞错？一晚上都开不完
 
+
+*****
+
+####  holofan  
+##### 10938#       发表于 2025-3-20 20:12
+
+今天不是案件？
+
+那12箱的卡难道你自己买的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holofan  
+##### 10939#       发表于 2025-3-20 20:49
+
+SEC一张都没出
+
+那真是惨
+
