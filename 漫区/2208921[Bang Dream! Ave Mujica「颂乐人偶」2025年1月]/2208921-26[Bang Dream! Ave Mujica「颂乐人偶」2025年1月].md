@@ -17089,3 +17089,42 @@ mujica不会最后真变成高中生喝茶乐队吧 也太JB搞笑了
 
 这下要抬走了吗<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  钦念以忱  
+##### 38424#       发表于 2025-3-20 21:19
+
+这片结晶死忠很稳定啊，这第11集又磨到235万播放数了。
+
+第1集381万，第2集220万，第3集233万，第4集226万，第5集263万，第6集270万，第7集413万，第8集234万，第9集238万，第10集234万。
+
+*****
+
+####  哈曼的YY  
+##### 38425#       发表于 2025-3-20 21:20
+
+年度第一抽象吗
+
+<img src="https://img.saraba1st.com/forum/202503/20/212021ce5s82wwsna0keph.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (37.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-20 21:20 上传
+
+*****
+
+####  佐久名比命  
+##### 38426#       发表于 2025-3-20 21:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  595505568  
+##### 38427#       发表于 2025-3-20 21:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">前途一片黑暗啊（
+
