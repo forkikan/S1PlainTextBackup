@@ -2781,3 +2781,14 @@ B站刷到的视频好像大部分都是玩太刀和双刀的，是别的武器�
 技能点了说服威胁啥的就有选项了</blockquote>
 但很多时候对结果没啥影响
 
+
+*****
+
+####  慕容断月  
+##### 3675#       发表于 2025-3-21 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697892&amp;ptid=2092342" target="_blank">Sopp 发表于 2025-3-20 23:16</a>
+
+浪人这个装备系统简直跟神话三部曲是一个妈生的</blockquote>
+哪啊，这不就是仁王以后忍者组祖传的装备系统吗？
+

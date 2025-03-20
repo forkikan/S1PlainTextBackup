@@ -4841,3 +4841,135 @@ image.webp
 
 祥也不在意了，反正跑不出去了，躺平过家家，反正离嫁人还有几年就混几年。一副爱咋样咋样的感觉
 
+
+*****
+
+####  ddy2811  
+##### 38958#       发表于 2025-3-21 00:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698280&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-3-20 23:48</a>
+
+顺带，谁来数数，母鸡卡已经有多少次刻意的搞名台词复用了？搞得跟春晚垃圾小品尬烂梗一样真牛逼啊，就差让 ...</blockquote>
+这种强行又生硬的回旋镖就和MyGO那些不是一回事<img src="https://static.saraba1st.com/image/smiley/carton2017/406.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 38959#       发表于 2025-3-21 00:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698302&amp;ptid=2208921" target="_blank">古戸絵梨花 发表于 2025-3-20 23:50</a>
+
+真的包了饺子了吗，大祥老师最后真的开心吗，那封信看着向是在向灯告别。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是
+
+1留在羽丘了
+
+2聚会喝茶是同一个地方
+
+3划小船三剑客正式结成
+
+4素睦没断
+
+所以也就低头不见抬头见而已
+
+*****
+
+####  思绪云骞  
+##### 38960#       发表于 2025-3-21 00:40
+
+我看了一遍，第1集是一个叫做后藤绿的人和独角兽的一起写的脚本，然后第2到11集都没有独角兽，然后到第12集又变成单独独角兽做脚本。
+
+那这样说，独角兽确实回来补锅了？无论是请回来的，还是MYGO时期的遗产。
+
+单看这集的逻辑、观感确实上升了，虽然上升得不多。只不过这个锅比tmd女娲补的天都要大，很多地方圆不回来，难绷。
+
+我看MYGO的百度百科，第1、3、7、13集的脚本都是独角兽单独负责的，这几集确实也是爆款的集数，分别对应故事开始、苦团的回忆、春日影、ave mujika的启航。但也不乏第10集后藤绿作为脚本，打造出来诗超绊啊。
+
+MYGO整体下来都很不错啊，但是ave mujika也是这些人做脚本啊，为什么观感能差这么多？难说说MYGO是独角兽已经写好了大纲给负责各集的脚本家，所以他们写出来的东西不会差到哪里去。而mujika是因为屎本插手剧本的原因，导致就算想写好也无能为力？导致最后东一坨西一坨？
+
+
+*****
+
+####  adretyu67.  
+##### 38961#       发表于 2025-3-21 00:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698760&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-3-21 00:38</a>
+
+但是
+
+1留在羽丘了
+
+2聚会喝茶是同一个地方</blockquote>
+临时在ring喝茶而已。
+
+现在排练在木头家地下室，商业出道不在livehouse。
+
+写信哪里是明显错开了时间，等灯追到钢琴室人已经走了。
+
+见面机会真没多少了。
+
+
+*****
+
+####  木板春香  
+##### 38962#       发表于 2025-3-21 00:43
+
+ 本帖最后由 木板春香 于 2025-3-21 00:46 编辑 
+
+  祥子现在是母鸡卡的神，就在小闭灯的隔壁教室，想的话随时都能见，只要编剧想。
+
+  就和这前面24集动画一样，祥子只要意识到身为丰川之血的家主之权能，CCC都没必要解散，只是被降智了！
+
+  智商全开的祥神可以半天终结圣杯战争，带着小闭灯永远活在CCC的荣光里，但这个企划是要推母鸡卡的，所以她不能有脑子和能动性，并且要和4个队友绑死，属于既定之未来了，一开始就知道的结果，但旅程也太难堪了。
+
+*****
+
+####  qwased  
+##### 38963#       发表于 2025-3-21 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698777&amp;ptid=2208921" target="_blank">思绪云骞 发表于 2025-3-21 00:40</a>
+我看了一遍，第1集是一个叫做后藤绿的人和独角兽的一起写的脚本，然后第2到11集都没有独角兽，然后到第12集 ...</blockquote>
+访谈里面说柿本要求剧组内盲猜剧情发展，只要被猜到的发展就得改，改到没人猜到为止<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 38964#       发表于 2025-3-21 00:45
+
+ 本帖最后由 天空塔书记官 于 2025-3-21 00:47 编辑 
+<blockquote>ave好像是把好几段掐头去尾的故事缝到了一起，就像2/3季平行登场的好几支乐队一样，但个人叙事和团队叙事不是一回事，叙事的完整性直接碎了一地，观感下降了一大截，但对于更喜欢某些“亮点剧情”的观众反而没多大影响，这大概就是物哀情结吧，某种一瞬的情绪</blockquote>
+其实一瞬的情绪也没咋表达好，说到底还是制作组既定的方针是不能把ave当成一个整体一支krkrdkdk的少女乐队看待，以及最后还是要回归邦多利世界观包饺子的问题，这才是根本矛盾之所在，只能说这也是一种没苦硬吃吧
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  cxj649  
+##### 38965#       发表于 2025-3-21 00:46
+
+ 本帖最后由 cxj649 于 2025-3-21 00:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698778&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-21 00:40</a>
+
+临时在ring喝茶而已。
+
+现在排练在木头家地下室，商业出道不在livehouse。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你是黑灯自闭吗，那是上课，灯追爱音其实卖爱灯
+
+大祥练琴时间爱灯又不是不知道
+
+教室也在隔壁
+
+*****
+
+####  zhoujin8584  
+##### 38966#       发表于 2025-3-21 00:46
+
+<blockquote>adretyu67. 发表于 2025-3-21 00:40
+临时在ring喝茶而已。
+
+现在排练在木头家地下室，商业出道不在livehouse。
+</blockquote>
+那是上课声，卖的是爱灯，灯跟着爱来不及看完信，人生有路各自精彩
+
