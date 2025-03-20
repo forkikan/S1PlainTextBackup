@@ -16931,3 +16931,31 @@ mujica不会最后真变成高中生喝茶乐队吧 也太JB搞笑了
 
 海鈴：爽
 
+
+*****
+
+####  凉良  
+##### 38413#       发表于 2025-3-20 20:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">怎么又回到这套车角色错误的路子了
+
+难道我不是在车WSD起个高头然后最后如果还是只能回归少女喝茶乐队老路子废物丢人么
+
+*****
+
+####  plazum  
+##### 38414#       发表于 2025-3-20 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67695327&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-20 18:44</a>
+
+每一集都有聲優出來複讀感動，看哭，喜歡
+
+用老莫的話， 大家都是騙子</blockquote>
+三段论：
+
+大前提：日本人审美能力不如老钟
+
+小前提：声优也是日本人
+
+结论：<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
