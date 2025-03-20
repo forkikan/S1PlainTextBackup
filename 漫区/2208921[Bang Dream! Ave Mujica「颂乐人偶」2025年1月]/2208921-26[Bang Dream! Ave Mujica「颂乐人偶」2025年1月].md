@@ -15701,3 +15701,109 @@ RJ01357240</blockquote>
 
 2025-3-20 09:20 上传
 
+
+*****
+
+####  一心而用  
+##### 38329#       发表于 2025-3-20 09:24
+
+CN：三千_SanZen
+
+<img src="https://img.saraba1st.com/forum/202503/20/092407a920dg33w9z10ew0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (125.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-20 09:24 上传
+
+<img src="https://img.saraba1st.com/forum/202503/20/092412giiuwdyniynwzyqw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (144.55 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-20 09:24 上传
+
+<img src="https://img.saraba1st.com/forum/202503/20/092418w9tig6ht7zv9g5jt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (129.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-20 09:24 上传
+
+<img src="https://img.saraba1st.com/forum/202503/20/092422idhxjhtdj2h5aihu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (128.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-20 09:24 上传
+
+*****
+
+####  UNISONIA  
+##### 38330#       发表于 2025-3-20 09:27
+
+ 本帖最后由 UNISONIA 于 2025-3-20 09:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67690043&amp;ptid=2208921" target="_blank">NOYURINOLIFE 发表于 2025-3-19 23:26</a>
+
+其实最媚到我的还是mygo里的这张配合剧情酸爽味真的十足，没想到mujica到了现在不仅剧情跟不上，连作画都媚 ...</blockquote>
+MyGO的手绘部分作画全面比Mujica好一大截，而且一定程度上手绘分配比例也能反驳某个角色不是主角的论点
+
+之前我有从wsd某职员那边听说Mujica单纯制作上面的费用是高于MyGO的（不包括明显多的多的宣传费用），现在看起来是不知道花到哪里去了
+
+
+*****
+
+####  一心而用  
+##### 38329#       发表于 2025-3-20 09:24
+
+CN：三千_SanZen
+
+<img src="https://img.saraba1st.com/forum/202503/20/092407a920dg33w9z10ew0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (125.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-20 09:24 上传
+
+<img src="https://img.saraba1st.com/forum/202503/20/092412giiuwdyniynwzyqw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (144.55 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-20 09:24 上传
+
+<img src="https://img.saraba1st.com/forum/202503/20/092418w9tig6ht7zv9g5jt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (129.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-20 09:24 上传
+
+<img src="https://img.saraba1st.com/forum/202503/20/092422idhxjhtdj2h5aihu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (128.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-20 09:24 上传
+
+*****
+
+####  UNISONIA  
+##### 38330#       发表于 2025-3-20 09:27
+
+ 本帖最后由 UNISONIA 于 2025-3-20 09:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67690043&amp;ptid=2208921" target="_blank">NOYURINOLIFE 发表于 2025-3-19 23:26</a>
+
+其实最媚到我的还是mygo里的这张配合剧情酸爽味真的十足，没想到mujica到了现在不仅剧情跟不上，连作画都媚 ...</blockquote>
+MyGO的手绘部分作画全面比Mujica好一大截，而且一定程度上手绘分配比例也能反驳某个角色不是主角的论点
+
+之前我有从wsd某职员那边听说Mujica单纯制作上面的费用是高于MyGO的（不包括明显多的多的宣传费用），现在看起来是不知道花到哪里去了
+
