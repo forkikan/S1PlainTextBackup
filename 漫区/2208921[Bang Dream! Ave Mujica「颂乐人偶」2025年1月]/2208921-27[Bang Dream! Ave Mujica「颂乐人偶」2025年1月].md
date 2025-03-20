@@ -5331,3 +5331,97 @@ emmm，蝶和双子团全员，双R的低龄成员，还有未解明的梦限大
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  真爱与热情  
+##### 39001#       发表于 2025-3-21 01:20
+
+我记得声优访谈有讲过看ep6的时候在吃饭，搞得气氛都有点沉重。这ep12的时候声优们是不是就得笑嘻把自己吃成猪鼻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  聪明墨菲特  
+##### 39002#       发表于 2025-3-21 01:21
+
+虽然我看着很无聊，但是看到现在还好评大概率是cp粉百合粉吧，至少看得出来柿本也愿意迎合粉丝了。爱粉丝这一点和喵梦很像啊
+
+—— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  adretyu67.  
+##### 39003#       发表于 2025-3-21 01:21
+
+ep12像是版本回退到了ep0，鸡动画1-11话确实都是不需要的东西。
+
+*****
+
+####  GhSap  
+##### 39004#       发表于 2025-3-21 01:21
+
+感觉对第12集的评价需要声明自己的期待了，要不然都是鸡同鸭讲。
+
+是否期待着12集能够力挽狂澜。
+
+是否期待着第12集需要延续前面几集的人物塑造。
+
+还是只是期待着能看到独角兽眼里的 mujica 是什么样子的。
+
+要我说现在还在讲什么前面全白看了的，实在是有点……学不到教训。mujica 都这样了，还在乎这点东西。
+
+
+*****
+
+####  diectt  
+##### 39005#       发表于 2025-3-21 01:22
+
+经过这一集，那个战力天梯表大祥老师要登顶了吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Renes  
+##### 39006#       发表于 2025-3-21 01:22
+
+ 本帖最后由 Renes 于 2025-3-21 01:24 编辑 
+
+这不是废话，片汤话包饺子谁不会写啊？越是这样越不能原谅。当系构是让你把屎留给其他编剧赤，自己就捡那些最轻省的好话写的是吧？就这集写的东西，有难度吗？有编排吗？有前后剧情关联吗？甚至连解决问题也是靠真丰川大手，这集只要包饺子，正经编剧谁写能差哪去的？恰恰是因为无脑包劣质饺子，这集才是真烂完了，因为这是否定前面13+11的一集
+
+*****
+
+####  adretyu67.  
+##### 39007#       发表于 2025-3-21 01:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67699037&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-3-21 01:16</a>
+
+看看管人团往哪补吧，其实只要有两三个在高二就行，夏洛特也不是不能挑大梁，羽丘一直都是最健康的，pare ...</blockquote>
+其实学生会也没那么重要就是了。
+
+主要还是划小船老团人太多了集体毕业。一下子就头重脚轻了。
+
+*****
+
+####  天空塔书记官  
+##### 39008#       发表于 2025-3-21 01:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67699082&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-21 01:23</a>
+其实学生会也没那么重要就是了。
+
+主要还是划小船老团人太多了集体毕业。一下子就头重脚轻了。 ...</blockquote>
+因为划小船和羽丘就是邦最初的舞台啊，有学生会更容易展开校园内的剧情，所以估计还是会塞几个人的，看看wsd咋搞吧
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ccared  
+##### 39009#       发表于 2025-3-21 01:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698956&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-3-21 01:06</a>
+说真的，独角兽真的想写，得跳过大河内，直接学学几原
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+那大角老师怕是学的走火入魔了
+

@@ -1581,3 +1581,28 @@ mujica 一开始就说了要写病态的乐队关系，大方向是兑现承诺�
 
 独角兽一出手就是高能神回，这集简直就是前十一集的集大成之作，烂的惊天地泣鬼神，难看哭了
 
+
+*****
+
+####  HazukiShion  
+##### 169#       发表于 2025-3-21 01:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698768&amp;ptid=2250507" target="_blank">66367749 发表于 2025-3-21 00:39</a>
+
+河豚是只要有馄饨吃就叫好吗</blockquote>
+那难不成馄饨都没得吃的时候叫好吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猪圈傻事  
+##### 170#       发表于 2025-3-21 01:25
+
++2 废墟中骄傲绽放的花朵
+
+*****
+
+####  DANAmya  
+##### 171#       发表于 2025-3-21 01:26
+
+即便写这样切割过去，这动画靠最后两集也不会变好的
+
