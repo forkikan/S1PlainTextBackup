@@ -114,3 +114,23 @@
 
 开仓抽了个太公<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 47085#       发表于 2025-3-20 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67692581&amp;ptid=1712412" target="_blank">marxel 发表于 2025-3-20 12:29</a>
+开仓抽了个太公</blockquote>
+你不也犯错了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  marxel  
+##### 47086#       发表于 2025-3-20 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67694340&amp;ptid=1712412" target="_blank">khxooo 发表于 2025-3-20 16:27</a>
+
+你不也犯错了</blockquote>
+人之常情<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
