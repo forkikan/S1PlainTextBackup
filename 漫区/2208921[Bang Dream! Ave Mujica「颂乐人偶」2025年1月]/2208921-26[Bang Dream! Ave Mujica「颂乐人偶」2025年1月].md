@@ -17128,3 +17128,78 @@ mujica不会最后真变成高中生喝茶乐队吧 也太JB搞笑了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">前途一片黑暗啊（
 
+
+*****
+
+####  澜沫  
+##### 38428#       发表于 2025-3-20 21:30
+
+动图给我看吐了，这玩意确实是河豚想看的没毛病啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2020, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  595505568  
+##### 38429#       发表于 2025-3-20 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67696302&amp;ptid=2208921" target="_blank">澜沫 发表于 2025-3-20 21:30</a>
+动图给我看吐了，这玩意确实是河豚想看的没毛病啊
+
+—— 来自 OnePlus IN2020, Android 13上的 S1Next-鹅版 ...</blockquote>
+什么动图（
+
+*****
+
+####  qratosones1337  
+##### 38430#       发表于 2025-3-20 21:31
+
+独角兽切割大失败？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  6030sylar  
+##### 38431#       发表于 2025-3-20 21:32
+
+<img src="https://img.saraba1st.com/forum/202503/20/213226woe7av4fh957t9ov.png" referrerpolicy="no-referrer">
+
+<strong>VS$%]7KQS_39[NNEWNU[JNA.png</strong> (63.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-20 21:32 上传
+
+
+*****
+
+####  zhoujin8584  
+##### 38432#       发表于 2025-3-20 21:34
+
+<blockquote>钦念以忱 发表于 2025-3-20 21:19
+这片结晶死忠很稳定啊，这第11集又磨到235万播放数了。
+
+第1集381万，第2集220万，第3集233万，第4集226万， ...</blockquote>
+开心，之前还担心初祥物语会流失至少两成左右，担心初音撑不动上限，没有想到是推到极致的初音独角戏，单抗11集，上周四看到最高人数也13万了，快进的很少，太争气了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  油画布  
+##### 38433#       发表于 2025-3-20 21:37
+
+什么动图，祥子给初音戴上了项圈？
+
+*****
+
+####  6030sylar  
+##### 38434#       发表于 2025-3-20 21:38
+
+<img src="https://img.saraba1st.com/forum/202503/20/213809ummocsdtfohfyp9t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (40.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-20 21:38 上传
+
