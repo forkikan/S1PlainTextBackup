@@ -16441,3 +16441,62 @@ lof：zoubudaoduianre
 
 不会好钢都用在人格分裂上了吧
 
+
+*****
+
+####  蜜瓜包  
+##### 38377#       发表于 2025-3-20 14:38
+
+我倒是觉得鸡是来给狗垫的，要我说不如就写成狗鸡皇城pk都比现在好得多。
+
+*****
+
+####  与太郎  
+##### 38378#       发表于 2025-3-20 14:41
+
+<img src="https://img.saraba1st.com/forum/202503/20/142902qk54m3pl9gmacosm.jpg" referrerpolicy="no-referrer">
+
+<strong>Honeyview_1716039642069-jxJjijKiQJ.jpg</strong> (224.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-20 14:29 上传
+
+<img src="https://img.saraba1st.com/forum/202503/20/142903lqvkyr4zqr2u98i1.jpg" referrerpolicy="no-referrer">
+
+<strong>Honeyview_1716029336003-xJlkHqazvT.jpg</strong> (164.31 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-20 14:29 上传
+
+<img src="https://img.saraba1st.com/forum/202503/20/142903ds3thm6ze1z3bzwi.jpg" referrerpolicy="no-referrer">
+
+<strong>Honeyview_1716029503703-6uZqb5fxdo.jpg</strong> (281.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-20 14:29 上传
+
+<img src="https://img.saraba1st.com/forum/202503/20/142904rnzjr7bkj6mwr45f.jpg" referrerpolicy="no-referrer">
+
+<strong>Honeyview_1716030108826-zDDBczFeH5.jpg</strong> (220.44 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-20 14:29 上传
+
+<img src="https://img.saraba1st.com/forum/202503/20/142905lmtt0tt77t1eertt.jpg" referrerpolicy="no-referrer">
+
+<strong>Honeyview_1716030603468-veTbDn9cGM.jpg</strong> (286.34 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-20 14:29 上传
+
+如上，MyGO时期也有不少素材错误和制作失误，这个在要求工期的情况下在所难免吧，我没有专门整理（所以看到那些因为mujica里的布景失误而幻想时间线变动假药的，我都嗤之以鼻）
+
+mujica时期有一种可能，就是MyGO里选择手绘修正的地方，更多的用3D硬怼了，实际上很多细节用2D手绘算是取巧的、更经济的做法
+
+虽然这只是我的猜测，不看后面访谈没法确定，但如果三次元mujica真这么做了，是有可能导致经费增加的
+
