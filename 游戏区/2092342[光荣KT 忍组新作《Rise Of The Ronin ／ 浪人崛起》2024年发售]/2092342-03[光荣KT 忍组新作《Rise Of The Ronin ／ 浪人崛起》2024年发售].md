@@ -2770,3 +2770,14 @@ B站刷到的视频好像大部分都是玩太刀和双刀的，是别的武器�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">这二周目有点神秘，第二章地图大世界不少要90多级，但是第三章却只有80多，而且据点头目强度也不是一个级别的.....
 
+
+*****
+
+####  Lorraine_Kinney  
+##### 3674#       发表于 2025-3-21 00:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67694322&amp;ptid=2092342" target="_blank">寂长无星夜 发表于 2025-3-20 16:24</a>
+
+技能点了说服威胁啥的就有选项了</blockquote>
+但很多时候对结果没啥影响
+
