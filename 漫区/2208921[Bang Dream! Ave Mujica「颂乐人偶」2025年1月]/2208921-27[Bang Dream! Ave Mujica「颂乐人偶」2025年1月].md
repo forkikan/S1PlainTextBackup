@@ -6400,3 +6400,20 @@ ep12的牛奶我觉得应该是回ep9那一瞥。
 
 大小姐又回来了，说她才是丰川正统，
 
+
+*****
+
+####  堆雪若叶  
+##### 39083#       发表于 2025-3-21 05:15
+
+<img src="https://p.sda1.dev/22/f090dc7b4e08760c72421539caa06dc3/_Nekomoe kissaten__BanG Dream! Ave Mujica__12__1080p__JPSC_.mp4_000921.327.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/cc477bbaae1303876d2727aa3e4bfed2/_Nekomoe kissaten__BanG Dream! It’s MyGO!!!!!__03__1080p__JPSC_.mp4_000534.393.jpg" referrerpolicy="no-referrer">
+
+右膝再没有人会贴上海豚创可贴
+
+“在春日影的歌词中你曾经说过”
+<img src="https://p.sda1.dev/22/669f171fa9bfcc576cb0c205818a9344/_Nekomoe kissaten_LoliHouse_ BanG Dream! It_s MyGO!!!!! - 07 _WebRip 1080p HEVC-10bit AAC ASSx2_.mkv_001703.985.jpg" referrerpolicy="no-referrer">
+
+“对我来说也是一样，CRYCHIC曾是光芒”
+<img src="https://p.sda1.dev/22/25353dce179b6bc7d2029fbd85768358/_Nekomoe kissaten_LoliHouse_ BanG Dream! It_s MyGO!!!!! - 07 _WebRip 1080p HEVC-10bit AAC ASSx2_.mkv_001704.488.jpg" referrerpolicy="no-referrer">
+
