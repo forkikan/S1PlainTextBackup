@@ -17570,3 +17570,18 @@ mana当真运气不佳啊，摊上这种搭档<img src="https://static.saraba1st
 
 这集给我尬出鸡皮疙瘩了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RuanJ  
+##### 38479#       发表于 2025-3-20 22:18
+
+没有抢救价值了
+
+*****
+
+####  油画布  
+##### 38480#       发表于 2025-3-20 22:19
+
+看了这集明白了，go真的是偶然。
+

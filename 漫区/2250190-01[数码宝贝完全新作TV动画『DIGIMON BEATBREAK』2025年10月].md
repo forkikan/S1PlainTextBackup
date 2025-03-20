@@ -537,3 +537,11 @@ dtcg手游什么时候出啊？dtcg规则看起来比ptcg好玩，想尝试玩�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">真是一反常态的主角搭档
 
+
+*****
+
+####  abysmal  
+##### 53#       发表于 2025-3-20 22:25
+
+这应该是传统搭配吧，护目镜变眼镜，变色龙数码兽应该算爬虫型，后续进化估计还是龙型或者龙人型。
+
