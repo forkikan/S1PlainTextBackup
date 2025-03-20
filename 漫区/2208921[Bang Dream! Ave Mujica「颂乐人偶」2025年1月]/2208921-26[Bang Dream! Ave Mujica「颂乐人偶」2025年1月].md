@@ -15807,3 +15807,26 @@ MyGO的手绘部分作画全面比Mujica好一大截，而且一定程度上手�
 
 之前我有从wsd某职员那边听说Mujica单纯制作上面的费用是高于MyGO的（不包括明显多的多的宣传费用），现在看起来是不知道花到哪里去了
 
+
+*****
+
+####  6030sylar  
+##### 38331#       发表于 2025-3-20 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67691233&amp;ptid=2208921" target="_blank">UNISONIA 发表于 2025-3-20 09:27</a>
+
+MyGO的手绘部分作画全面比Mujica好一大截，而且一定程度上手绘分配比例也能反驳某个角色不是主角的论点
+
+ ...</blockquote>
+前面不是说11集是动捕的，真实吃力不讨好
+
+*****
+
+####  UNISONIA  
+##### 38332#       发表于 2025-3-20 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67691327&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-3-20 09:45</a>
+
+前面不是说11集是动捕的，真实吃力不讨好</blockquote>
+有写出来有个专门的一人芝居（独角戏）演员，但是卡司表没有明确说是动捕，成品上还不如綾奈自己做示范的飞鸟山
+
