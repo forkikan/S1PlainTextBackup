@@ -562,3 +562,11 @@ MG-206重机枪
 感觉是网络同步的bug，现在野排就很容易接战打完了突然血少一截只有4人开黑不卡 ...</blockquote>
 我是房主3黑，带不带路人都会遇到这种<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 5885#       发表于 2025-3-20 19:43
+
+现在这个网络延迟，泰坦的威胁度太高了，各种神秘被吐死<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
