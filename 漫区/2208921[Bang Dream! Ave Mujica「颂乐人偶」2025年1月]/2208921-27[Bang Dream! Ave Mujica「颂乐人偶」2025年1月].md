@@ -4148,3 +4148,259 @@ mujica最好的一集是mujica的ep0。不过好像也是这集给mujica挖了�
 那么问题来了，丰川家到底有多可怕呢，13集突降突击队把那4个神人全突突了，再把大祥老师抓回家当种马吗 ...</blockquote>
 在live剧场释放麻醉气体，最后冲进去发现连带大祥全部麻似了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yy19  
+##### 38901#       发表于 2025-3-21 00:08
+
+<blockquote>adretyu67. 发表于 2025-3-20 23:13
+重新按照和初华同居的那段台词理解了下。
+
+大祥现在应该是在泡沫爆破前能做多少是多少，结果无所谓，大不 ...</blockquote>
+
+一体两面。既然提前享受了丰川氏下任家主的一些权力，那么将来要承担家主的义务也就是必然了。
+
+不过这破系列大抵讲不到这么以后就是了。
+
+*****
+
+####  黑色蘑菇  
+##### 38902#       发表于 2025-3-21 00:08
+
+<blockquote>adretyu67. 发表于 2025-3-21 00:06
+反正有同居那段话，我对鸡团2.0也不抱信心了。
+
+</blockquote>
+二次元角色又长不大，难道还真写到🐘招新的赘婿么
+
+*****
+
+####  猫执事  
+##### 38903#       发表于 2025-3-21 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697753&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-3-20 23:07</a>
+
+既然不是幻想妹妹初华剧情，也没有初音和祥爹再次见面的回忆杀，那就只能解释为初音把时间上重合的两件事 ...</blockquote>
+自己老爹什么水平，祥子应该知道的，正好借着初音这个人证，把看护中登的责任甩给老登。
+
+*****
+
+####  Victorino  
+##### 38904#       发表于 2025-3-21 00:11
+
+于是avemujica又变成了最无聊的血统论剧情
+
+明明mygo还是才能论和牵绊论的，mygo五人就连猫猫作为唯一关系户也是靠天才吉他能力才出头的，剧情中没有让人感受到她因为家庭因素被破格优待
+
+avemujica其实也很容易写成才能论，tgw设定成娱乐巨头就行，公司旗下最红的艺人的制作人就可以拿到最丰厚的资源这种，在分家之间的竞争中取胜，而不是变成一个血统大于一切的故事
+
+*****
+
+####  风道北来  
+##### 38905#       发表于 2025-3-21 00:11
+
+丰川家的黑暗面倒是写得挺好的
+
+老登看似威风八面，其实无时无刻不战战兢兢，生怕游戏人间的家主哪天玩腻了解开封印取回记忆和力量一脚把自己踢到海岛上打渔
+
+搞不好每次老登在大祥面前装完逼都要回迈巴赫里换裤子
+
+这种家庭确实太黑暗了
+
+
+*****
+
+####  Victorino  
+##### 38906#       发表于 2025-3-21 00:12
+
+<blockquote>adretyu67. 发表于 2025-3-21 00:06
+反正有同居那段话，我对鸡团2.0也不抱信心了。
+
+</blockquote>
+突然意识到，对祥子来说，这个命定的结局就是，找个男人生孩子……
+
+不要啊bangdream不是全女企划吗！
+
+赶紧去抱kkr大腿研发女女生子技术吧，这可能是唯一的路了
+
+*****
+
+####  岬开斗  
+##### 38907#       发表于 2025-3-21 00:12
+
+外边很多人还在吹独角兽，“如果全让独角兽写可能就是黑暗风神作”这种结论是怎么得出来的？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  江口夕  
+##### 38908#       发表于 2025-3-21 00:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大祥陪初音玩不就是为了稳住初音这个老登的把柄，然后包袱包括中登全部丢掉。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  adretyu67.  
+##### 38909#       发表于 2025-3-21 00:14
+
+鸡现在是彻底走向狗的反面了。
+
+我本来对初祥的想法是共犯拉平，但是没想到12话独角兽女士直接来个油门踩死，大祥直接化身成avemujica的神带着四个人偶开冲。
+
+*****
+
+####  EverNight  
+##### 38910#       发表于 2025-3-21 00:14
+
+其实mujica的剧情应该是很简单的。大小姐成长觉醒的故事，从一无所知的大小姐，玩过家家的大小姐，到觉醒的继承人。老套但是不算差。
+
+然后前四集迅速膨胀到迅速幻灭
+
+中间四集纠葛
+
+最后四集把人一个个找回来，重组mujica。就按教父来拍，没问题
+
+现在嘛……
+
+*****
+
+####  俾斯麥  
+##### 38911#       发表于 2025-3-21 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698397&amp;ptid=2208921" target="_blank">Victorino 发表于 2025-3-21 00:00</a>
+
+那何必拍大宅追逐打闹剧情，很迷惑</blockquote>
+因为这集就不是跟之前的是一个路线的，这就像是两条世界线在这个时间点上偶然重合了，至于为什么重合的，因为柿本编不下去了，只能拿绫奈的剧本来用了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天空塔书记官  
+##### 38912#       发表于 2025-3-21 00:14
+
+下周13集，终于可以见识下“终极自由的以太”是个啥样子了，没记错的话，木谷老登说看了五遍是单指最后一集，至少应该能看到合格的演出吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  qratosones1337  
+##### 38913#       发表于 2025-3-21 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698520&amp;ptid=2208921" target="_blank">Victorino 发表于 2025-3-21 00:12</a>
+突然意识到，对祥子来说，这个命定的结局就是，找个男人生孩子……
+
+不要啊bangdream不是全女企划吗！
+
+赶 ...</blockquote>
+好像现在确实有女女生妹的技术，那正好让初音怀孕，生下的孩子也是女的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  猫执事  
+##### 38914#       发表于 2025-3-21 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697992&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-3-20 23:24</a>
+
+无视蝶团这个有两个解释
+
+第一是小祥抛弃过去了，过去也包括组ccc的理由
+
+第二是小祥和蝶团的人本来也不熟， ...</blockquote>
+爱音是不是因为亲眼看到喵梦是个突然开盒队友的烂人，偶像破灭了
+
+*****
+
+####  木板春香  
+##### 38915#       发表于 2025-3-21 00:15
+
+ 本帖最后由 木板春香 于 2025-3-21 00:17 编辑 
+
+<img src="https://img.saraba1st.com/forum/202503/21/001532wuru13yqarzzr5u1.jpg" referrerpolicy="no-referrer">
+
+<strong>)0]CE0Y4}C{}FSYAN7T78%J_tmb.jpg</strong> (88.82 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-21 00:15 上传
+
+顺便， 猜你喜欢：
+
+<img src="https://img.saraba1st.com/forum/202503/21/001701ozhhm5heie5um26i.png" referrerpolicy="no-referrer">
+
+<strong>{I84KX{3HC6E8_KX]3XX}{0_tmb.png</strong> (88.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-21 00:17 上传
+
+*****
+
+####  kenqqex  
+##### 38916#       发表于 2025-3-21 00:16
+
+偷一下隔壁的图
+
+image.webp
+(170.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-21 00:15 上传
+
+<img src="https://img.saraba1st.com/forum/202503/21/001525vuyqef3qx9exisxi.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Versedust  
+##### 38917#       发表于 2025-3-21 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698542&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-3-21 00:14</a>
+下周13集，终于可以见识下“终极自由的以太”是个啥样子了，没记错的话，木谷老登说看了五遍是单指最后一集 ...</blockquote>
+最后一集是live的话，确实可以看很多遍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 38918#       发表于 2025-3-21 00:16
+
+有一种历时1个季度，看累了，瘫坐望天，什么也不想，什么也不想去想的感觉。
+
+*****
+
+####  adretyu67.  
+##### 38919#       发表于 2025-3-21 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698520&amp;ptid=2208921" target="_blank">Victorino 发表于 2025-3-21 00:12</a>
+
+突然意识到，对祥子来说，这个命定的结局就是，找个男人生孩子……
+
+不要啊bangdream不是全女企划吗！
+
+赶 ...</blockquote>
+这个我理解是鸡团的结局。
+
+招婿什么太遥远了。
+
+这段话就是说鸡团就是叶子上的朝露。
+
+*****
+
+####  Victorino  
+##### 38920#       发表于 2025-3-21 00:18
+
+<blockquote>adretyu67. 发表于 2025-3-21 00:16
+这个我理解是鸡团的结局。
+
+招婿什么太遥远了。
+
+</blockquote>
+所以鸡团的大限就是祥子的生育黄金年龄
+
+听上去好绝望
+

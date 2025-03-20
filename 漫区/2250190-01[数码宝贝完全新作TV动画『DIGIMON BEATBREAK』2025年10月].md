@@ -545,3 +545,24 @@ dtcg手游什么时候出啊？dtcg规则看起来比ptcg好玩，想尝试玩�
 
 这应该是传统搭配吧，护目镜变眼镜，变色龙数码兽应该算爬虫型，后续进化估计还是龙型或者龙人型。
 
+
+*****
+
+####  云梦泽岸  
+##### 54#       发表于 2025-3-21 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67696002&amp;ptid=2250190" target="_blank">TOYSTORY 发表于 2025-3-20 20:48</a>
+主角看着是双色头发，而且可能是高冷的中二技术宅黑客类型？
+
+比起主角更像男二。前几代也没有这种人当 ...</blockquote>
+主角二号搞个女性吧，就没头脑和不高兴组合，加一些DM以前欠缺的欢喜冤家剧情，天天男二号也该转转弯了，
+
+
+*****
+
+####  Piano-Forest  
+##### 55#         楼主| 发表于 2025-3-21 00:14
+
+整张图调亮些
+<img src="https://p.sda1.dev/22/c8fd0cdbb4100bd9f228803184eb48cb/IMG_20250320_205015.jpg" referrerpolicy="no-referrer">
+

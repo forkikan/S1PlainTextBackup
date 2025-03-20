@@ -1326,3 +1326,44 @@ abema放了两遍尼哥信条的CM，-114514。
 
 新睦感觉可以+1，初祥，丰川相关部分-∞
 
+
+*****
+
+####  leleq  
+##### 143#       发表于 2025-3-21 00:08
+
+可惜找经纪公司老板哪里没有几个黑衣人大喊恭迎龙王归位<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  ぽんぽこ仮面  
+##### 144#       发表于 2025-3-21 00:14
+
+说实话这集至少角色像人一点了，前边几集我感觉我在看编剧穿着皮套跳舞。不过花园这一段是人能做出来的啊，多少沾点心理变态<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+以及看完深切的感受到双重人格就是柿本为了炫耀他从畅销书上学来的二手黑暗心理学搞出来的狗屎，真就一点作用都没有啊
+
+*****
+
+####  庸necro  
+##### 145#       发表于 2025-3-21 00:15
+
+看柿本soulmate们打-2太好玩了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  航母掉头  
+##### 146#       发表于 2025-3-21 00:15
+
+世界的尽头，没有神
+
+*****
+
+####  普通路过村民  
+##### 147#       发表于 2025-3-21 00:17
+
+是不是无惧死亡这个词写得太过了导致来了这么一出圆回扣词 虽然mortis可爱
+
