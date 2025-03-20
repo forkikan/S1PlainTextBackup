@@ -5481,3 +5481,110 @@ ep12像是版本回退到了ep0，鸡动画1-11话确实都是不需要的东西
 
 真的是臭不可闻的ep12
 
+
+*****
+
+####  huxiaopao163  
+##### 39015#       发表于 2025-3-21 01:38
+
+ 本帖最后由 huxiaopao163 于 2025-3-21 01:40 编辑 
+
+啊啊啊，我还是不能理解，以前看完每集，别人说某集不好，我都是倾向于找补说这集哪里好的
+
+但是现在看到别人说第十二集还不错，我完全无法接受<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+所以这集的亮点在哪里，有没有楼友说一下的
+
+*****
+
+####  adretyu67.  
+##### 39016#       发表于 2025-3-21 01:39
+
+ 本帖最后由 adretyu67. 于 2025-3-21 01:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67699132&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-21 01:37</a>
+
+这集曾经的悲剧女主角初华已经学会出轨了，再给她些时间会干什么我不敢想 ...</blockquote>
+ep12的牛奶我觉得应该是回ep9那一瞥。
+
+说不准啥时候就是找睦头道歉后悔脑子里摔她了。
+
+*****
+
+####  ddy2811  
+##### 39017#       发表于 2025-3-21 01:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67699141&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-3-21 01:38</a>
+
+啊啊啊，我还是不能理解，以前看完每集，别人说某集不好，我都是倾向于找补说这集哪里好的
+
+但是现在看到别 ...</blockquote>
+好在要是如祥子所说把一切当做没发生过，像假药里的初华一样靠碎片脑补过程，可以找出每个人理想的剧本<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">当然看着魔怔一样的回旋镖台词和抽象的展开我也是真的很乐
+
+
+*****
+
+####  borrowface  
+##### 39018#       发表于 2025-3-21 01:43
+
+ 本帖最后由 borrowface 于 2025-3-21 01:47 编辑 
+
+谁能告诉我祥子说的那句讨厌到底什么意思，莫名其妙的；在明牌初音真女同对祥子有意思的情况下，咖啡代表清醒，代表祥子依旧没办法在理智上接受这种情感，希望自己在一个梦中的世界能够坦然接受初音？
+
+*****
+
+####  天空塔书记官  
+##### 39019#       发表于 2025-3-21 01:44
+
+ 本帖最后由 天空塔书记官 于 2025-3-21 01:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67699101&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-21 01:29</a>
+这一波毕业结束，划小船ppp和hhw没了，羽丘ag也没了。
+
+羽丘主要是高二比划小船强，不过羽丘高二也是散装 ...</blockquote>
+羽丘三只虽然散装，但和老团也是关系最紧密的，而且早早就预定好了学生会席位，再加上可能的新成员pareo，以及RAS高年级的几个都是学校是背景板的自由身，校园剧情是最好写的，至于划小船新三剑客其实和老团交集并没有很深，加上升学的猫猫，也都是翘课专业户，所以校内剧情估计还是会以几人内部交流为主，学生会反而会变成背景板，但如果有管人团的参与那就不一样了，所以估计还是会补人，毕竟有校内关系更容易展开互动嘛，我猜梦团成员大概会被分到划小船和音乐高校，正好两边高二都缺人
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  sauron.j  
+##### 39020#       发表于 2025-3-21 01:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67699141&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-3-21 01:38</a>
+
+啊啊啊，我还是不能理解，以前看完每集，别人说某集不好，我都是倾向于找补说这集哪里好的
+
+但是现在看到别 ...</blockquote>
+评价取决于你对影视作品是关注情绪流与叙事节奏，还是更关注讲了个什么内容
+
+前者的话观感就会好
+
+*****
+
+####  哈曼的YY  
+##### 39021#       发表于 2025-3-21 01:45
+
+否定十本最喜欢的双重人格吗 那太好了 爱死哪去死哪去吧
+
+*****
+
+####  GhSap  
+##### 39022#       发表于 2025-3-21 01:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67699141&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-3-21 01:38</a>
+
+啊啊啊，我还是不能理解，以前看完每集，别人说某集不好，我都是倾向于找补说这集哪里好的
+
+但是现在看到别 ...</blockquote>
+有部分原因是因为这集和前面不是一个动画。你能接受前面的，突然换了一个片场，那你肯定觉得不行了。
+
+我相信大部分喜欢这集的人已经完全抛弃了这集和其他集的联系了。
+
+*****
+
+####  古戸絵梨花  
+##### 39023#       发表于 2025-3-21 01:46
+
+曾经嘴硬的黑祥和真正的白祥我都挺喜欢的，但是现在的大祥老师只是一个没有灵魂的人偶，该说是无趣呢还是可怜呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
