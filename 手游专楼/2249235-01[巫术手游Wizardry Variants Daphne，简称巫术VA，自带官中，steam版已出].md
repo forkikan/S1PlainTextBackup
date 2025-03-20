@@ -1453,3 +1453,44 @@ wiki说第三个图（要塞）的垃圾会出苦无和忍者刀，不过我还�
 只拿一把就能+15，但是对一般人来说拉满不划算</blockquote>
 啊？武器不好吗
 
+
+*****
+
+####  Greyish_Wolf  
+##### 119#       发表于 2025-3-20 17:26
+
+还没玩，想问一下有没有复活失败变成灰，传送陷阱传到墙里或者冒出来一个在迷宫里即时移动触碰即死的国王幽灵这些经典粪要素
+
+*****
+
+####  UdukiMisato  
+##### 120#       发表于 2025-3-20 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67694502&amp;ptid=2249235" target="_blank">碧空之歌P 发表于 2025-3-20 16:48</a>
+
+啊？武器不好吗</blockquote>
+双手剑目前是下水道武器
+
+
+*****
+
+####  风浦可符香(P.N)  
+##### 121#         楼主| 发表于 2025-3-20 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67694791&amp;ptid=2249235" target="_blank">Greyish_Wolf 发表于 2025-3-20 17:26</a>
+
+还没玩，想问一下有没有复活失败变成灰，传送陷阱传到墙里或者冒出来一个在迷宫里即时移动触碰即死的国王幽 ...</blockquote>
+变灰+再失败消失有，同样是意志越低越容易失败，但是几率很小还可以花钻保底
+
+传送陷阱几率失败这点目前还没敢实装(尖刺和毒池也弱化了)，以后不好说XD
+
+*****
+
+####  风浦可符香(P.N)  
+##### 122#         楼主| 发表于 2025-3-20 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67694502&amp;ptid=2249235" target="_blank">碧空之歌P 发表于 2025-3-20 16:48</a>
+
+啊？武器不好吗</blockquote>
+第三章的武器比这把好，而且双手武器地位很低，低等级时拿到可以拿来撑数值，不要花太多钱和石头在上边
+

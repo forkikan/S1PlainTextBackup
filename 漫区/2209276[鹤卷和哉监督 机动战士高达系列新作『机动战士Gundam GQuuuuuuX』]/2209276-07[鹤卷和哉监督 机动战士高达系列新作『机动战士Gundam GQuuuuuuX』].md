@@ -1139,3 +1139,14 @@ Z，ZZ，逆鸭和Gqux应该都没什么太大关系了，值得细看的东西�
 还真忘记胶卷了😂</blockquote>
 话说留美哥该把GQ新的街机卡后面评语也翻译了
 
+
+*****
+
+####  王留美  
+##### 8983#       发表于 2025-3-20 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67694754&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-3-20 17:20</a>
+
+话说留美哥该把GQ新的街机卡后面评语也翻译了</blockquote>
+上次补充包完了就没新卡片了吧
+
