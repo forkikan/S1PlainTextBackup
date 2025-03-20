@@ -16542,3 +16542,25 @@ mujica时期有一种可能，就是MyGO里选择手绘修正的地方，更多�
 
 说来anon初中那个袋森也是活在背景里的设定了
 
+
+*****
+
+####  ads147147  
+##### 38383#       发表于 2025-3-20 15:36
+
+ 本帖最后由 ads147147 于 2025-3-20 15:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67691883&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-3-20 11:04</a>
+TORASENBEI</blockquote>
+看女神绫波丽做了一个eva版本的乐奈喊初华是巴桑，还很合理<img src="https://static.saraba1st.com/image/smiley/carton2017/035.png" referrerpolicy="no-referrer">
+【千万别让乐奈遇见初华/初音！否则剧情还能更加不是人【Eva Mujica】-哔哩哔哩】 https://b23.tv/xY6RE5G
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  adretyu67.  
+##### 38384#       发表于 2025-3-20 15:37
+
+初中基本都是背景设定了吧。
+
+灯还是独立初中
+
