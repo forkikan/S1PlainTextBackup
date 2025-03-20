@@ -1089,3 +1089,33 @@ Z，ZZ，逆鸭和Gqux应该都没什么太大关系了，值得细看的东西�
 
 2025-3-20 16:52 上传
 
+
+*****
+
+####  王留美  
+##### 8978#       发表于 2025-3-20 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67694548&amp;ptid=2209276" target="_blank">oi99o 发表于 2025-3-20 16:53</a>
+
+一场送三张可还行，竟然不是随机</blockquote>
+路画送送这个吧，也不用汉化了，直接拿来就能用
+
+*****
+
+####  王留美  
+##### 8979#       发表于 2025-3-20 17:11
+
+话说8弹入场特典都是啥？设计本1、2，上面三张卡片，还有3弹呢？
+
+
+*****
+
+####  岸浪白野  
+##### 8980#       发表于 2025-3-20 17:16
+
+ 本帖最后由 岸浪白野 于 2025-3-20 17:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67694691&amp;ptid=2209276" target="_blank">王留美 发表于 2025-3-20 17:11</a>
+话说8弹入场特典都是啥？设计本1、2，上面三张卡片，还有3弹呢？</blockquote>
+你忘了胶卷了吗，第1弹是海报+街机卡
+<img src="https://p.sda1.dev/22/8502f2bd9a1e967a5e1cb81b2bbe7ab4/image.jpg" referrerpolicy="no-referrer">
+
