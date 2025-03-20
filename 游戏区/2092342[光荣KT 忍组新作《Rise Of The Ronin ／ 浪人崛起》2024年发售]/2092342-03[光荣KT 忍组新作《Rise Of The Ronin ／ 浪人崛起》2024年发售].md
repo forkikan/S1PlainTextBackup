@@ -2636,3 +2636,51 @@ Snipaste_2025-03-19_16-16-48.png
 
 做开放世界确实是可以降低游玩门槛，这作有问题的其实我也觉得不是在开放世界上
 
+
+*****
+
+####  cherry__  
+##### 3662#       发表于 2025-3-20 20:58
+
+B站刷到的视频好像大部分都是玩太刀和双刀的，是别的武器不强吗
+
+我玩长枪和野太刀比较多<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+宝藏院流我觉得挺强的，就是在道场打败山县有朋比较难绷<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">为了解锁技能我差不多打了一小时山县有朋
+
+*****
+
+####  Sopp  
+##### 3663#       发表于 2025-3-20 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67695987&amp;ptid=2092342" target="_blank">慕容断月 发表于 2025-3-20 20:45</a>
+
+那真别，开放世界侧面利好很多人玩下去，因为打不过可以找其他事情转移注意力和提升以后再来打
+
+我自己就 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">那你应该很喜欢对马岛和AC神话三部曲才对……
+
+*****
+
+####  Sopp  
+##### 3664#       发表于 2025-3-20 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67696060&amp;ptid=2092342" target="_blank">cherry__ 发表于 2025-3-20 20:58</a>
+
+B站刷到的视频好像大部分都是玩太刀和双刀的，是别的武器不强吗
+
+我玩长枪和野太刀比较多
+
+宝藏院流我觉得挺 ...</blockquote>
+活用闪避打他不难
+
+
+*****
+
+####  cherry__  
+##### 3665#       发表于 2025-3-20 21:06
+
+<blockquote>Sopp 发表于 2025-3-20 21:03
+活用闪避打他不难</blockquote>
+手残特别依赖空中石火感觉判定比普通石火长很多，但是山县有朋好多攻击能对空，不敢乱跳
+
