@@ -476,3 +476,20 @@ MG-206重机枪
 
 另外飞矛应该是被暗削了，现在打强袭虫和泰坦都很难一枪死，跟更新之前锁上一发秒天差地别<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jy000129  
+##### 5876#       发表于 2025-3-20 08:30
+
+爆裂铳枪口移动太慢了，弹量也少，正面感觉还是炸不动无畏，重穿了个寂寞
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  unsh  
+##### 5877#       发表于 2025-3-20 08:32
+
+这两周都去打荒野了，问下新版本打运输艇是只能用飞矛了吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
