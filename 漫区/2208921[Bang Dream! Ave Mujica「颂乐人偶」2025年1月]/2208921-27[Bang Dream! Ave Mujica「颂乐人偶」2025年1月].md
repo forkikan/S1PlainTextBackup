@@ -5888,3 +5888,144 @@ ep12的牛奶我觉得应该是回ep9那一瞥。
 
 其实大祥的思路也挺清晰的嘛，她早就摆明了不喜欢mujica，她喜欢的是ccc，但是ccc已经回不去了，没办法，当初给mujica的几个神人做了承诺，也只能背负她们的人生重组mujica了，第10集和第12集其实是一个逻辑。
 
+
+*****
+
+####  帆前  
+##### 39049#       发表于 2025-3-21 02:24
+
+已经……没有剧情了！台词和画面可以看看，大家意思意思一下得了吧
+
+这动画主打一个自由：我想怎么写，就怎么写！我说什么逻辑，就是什么逻辑！
+
+本集简而言之就是祥子<strong>发现了存在着一位问题责任跟她没什么关系、反而对祥子有愧的人物</strong>——初音，就直起腰重新做人了：没事别怕，这次终于不是我的错了！我终于可以反过来保护和支持别人了！好，我，毋畏一切，东山再起。
+<img src="https://p.sda1.dev/22/60992ed9b610a3d4d348ca98e2612d3a/Screenshot_20250321_013528_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+<strong>祥子找到了最适合她的归因方式，因而重新鼓起了勇气，终于能再次面对现实挑战了。</strong>（虽然实际都合主义罢了）
+<img src="https://p.sda1.dev/22/f33bb7d34e0694f25c17e7389efa419d/Screenshot_20250320_223320_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+祥子<strong>之前没有不让她自责、自我否定的动机，这次终于有了，即为了初音而战的动机</strong>。她得以<strong>重新获得了“引领他人”的身份，这才有了行动的决心。有了决心，才敢向灯致歉，表达心迹。</strong>（虽然实际表现还是任性）
+<img src="https://p.sda1.dev/22/ba6f525fc195dba98bd3ee28f2b4aac8/IMG_20250320_235544.jpg" referrerpolicy="no-referrer">
+<strong>虽然剧本本身是想传达出一种“为了同伴的真情，勇敢反抗族权，挑战命运”的意思，但实际上表现出来，其实是祥子终于从自责和逃避的循环中逃了出来，松了口气，有了不用再怕羞耻的战斗理由。</strong>
+<img src="https://p.sda1.dev/22/e078075901046c46bfb9227afff45821/Screenshot_20250320_222230_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+简而言之就是：这次不是我的锅！终于可以当hero，而不是赎罪了！
+
+仔细想想，从一开始祥子就不应该把父亲犯错的责任揽到自己身上，给自己增加超出能力的目标，那本来就不是她的错。
+
+后面故事也是<strong>试图写成“容易把一切责任全归到自己身上，然后又因无法承受而逃避”这样的人设。</strong>
+<img src="https://p.sda1.dev/22/41ddfbdd7c055d4dde32e7d02f21bc26/IMG_20250320_223457.jpg" referrerpolicy="no-referrer">
+
+但实际写砸了，里里外外的是非纠缠在一起，故事并不能体现出这一点。
+
+这种角色不该让她真的犯错惹祸的，<strong>本应该写成犯小错误然后过分自责，最后“即便在泥泞中挣扎也要勇敢面对生活”的美强惨。</strong>
+
+结果却写成了办事办砸，照顾人心照顾不力，引发他人精神问题，自顾自勉强他人，自顾自感动，自顾自搪塞责任，自顾自要求别人配合自己，享受着对自己有愧的人物的支持，莫名其妙的任性角色。
+
+哦，好好看看吧，看看这些僵硬的矛盾复读台词和名场面call back，解决了什么问题呢？说通了什么东西呢？
+
+初音莫名其妙的归因自责，除了老登引导外没有什么别的可能性，然而故事并没有表现清楚。
+<img src="https://p.sda1.dev/22/95e1a7da68acb2c67b20e9d6a0620d3b/Screenshot_20250320_221437_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+强行致敬c团灯祥，<strong>然而当初亡母后尝试着用艺术弥补情感需求的白祥，才不是如今泥泞中的你啊。</strong>
+<img src="https://p.sda1.dev/22/1e49aa03ff746b9ea396ebac7b9099f2/Screenshot_20250320_222325_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+像“满脑子都是自己”被拿来讲祥子放下心结和自己和解这种，我都懒得吐槽了。
+
+就连老登也要复读一下自己的难处，剧本纯纯没招了属于是，喜欢我用一句话就能解决的族权问题吗？怼就完事了。
+<img src="https://p.sda1.dev/22/42c14c393310179016045a81e36c1d55/Screenshot_20250320_223327_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+最后对“坏心眼的神明”也要来call back，然而实际表现出来，就是想通了后仗着身份四处横冲直撞。以此为“酷”的黑祥人设，真的能算酷吗？感觉不如六代宫缘寿……智力（
+<img src="https://p.sda1.dev/22/29f5a796e636b0fffb742e4c014aeddc/Screenshot_20250320_223833_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+绫奈单集脚本两次提神明，就让人不得不联想到2023年武田和绫奈的对话了。
+<img src="https://p.sda1.dev/22/34c1d2f7b1d41fb1b230ca2d6cd098f3/Screenshot_20250320_225758.jpg" referrerpolicy="no-referrer">
+<strong>这整个故事就是独角兽对武田的回复罢，以“这样的女孩子最终选择了当神明”为回应。</strong>
+
+然而实际写崩。<strong>扭曲的设计意味着需要更多的现实风格细节刻画才能立得住</strong>，mujica到处都立不住。
+<strong>武田为了追求扭曲设计，有时候宁愿牺牲角色关系，代价就是有时会用力过猛。然而绫奈最爱角色关系，为了角色关系宁愿牺牲人物塑造的合理性，扭曲设计对她来说只是调味的工具罢了，又怎能立得住呢。</strong>
+
+*****
+
+####  qwased  
+##### 39050#       发表于 2025-3-21 02:27
+
+这么稀碎的一集放其他动画里面只会被喷，但是在mujica里面却足够让人和前面11集切割，一时之间不知道柿本和独角兽哪个更伟大了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大户爱  
+##### 39051#       发表于 2025-3-21 02:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67699243&amp;ptid=2208921" target="_blank">GhSap 发表于 2025-3-21 02:22</a>
+别在这玩踩龟壳。我说的是没有让你明白的能力，不是我不在乎。
+
+你觉得自己很有逻辑，提出了一些缺点，但 ...</blockquote>
+我嘴笨，说不过你，但我就是觉得这集很好～
+
+我前面已经帮你说过了，不用再复读机了。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+我开始又没回你，只不过指出这集一堆漏洞，突然有人跑出来说，这集漏洞我一个也回答不了，但我觉得这集就是好啊。
+
+我，嗯嗯嗯，确实，有人就是不在乎逻辑，单纯觉得就是好。
+
+突然就哈气了，你怎么这么大恶意，我就是觉得好不行嘛，不要说服啊。
+
+喂喂喂，你谁啊。
+
+*****
+
+####  结衣小比取  
+##### 39052#       发表于 2025-3-21 02:28
+
+<img src="https://img.saraba1st.com/forum/202503/21/022559okwvtkdtktft1wod.jpg" referrerpolicy="no-referrer">
+
+<strong>情报.jpg</strong> (178.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-21 02:25 上传
+
+这句台词再加上前面明示和定治有联系，上一话初音那些理论上不应该知道的信息，确实是有人告诉她
+
+
+*****
+
+####  ddy2811  
+##### 39053#       发表于 2025-3-21 02:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67699250&amp;ptid=2208921" target="_blank">帆前 发表于 2025-3-21 02:24</a>
+
+已经……没有剧情了！台词和画面可以看看，大家意思意思一下得了吧
+
+这动画主打一个自由：我想怎么写，就怎 ...</blockquote>
+“仗着身份横冲直撞”恰恰很白祥啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+黑祥是觉得自己能力大过天不靠家族也能靠这个担负人生吧
+
+*****
+
+####  adretyu67.  
+##### 39054#       发表于 2025-3-21 02:32
+
+老登那话倒是暗示中登不是他搞的，是丰川家的黑暗搞的。
+
+大手要是把老登和中登都搞掉了，下面自然就是大祥老师了。
+
+*****
+
+####  GhSap  
+##### 39055#       发表于 2025-3-21 02:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67699258&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-3-21 02:28</a>
+
+我嘴笨，说不过你，但我就是觉得这集很好～
+
+我前面已经帮你说过了，不用再复读机了。</blockquote>
+对不起，不知道你有认知障碍，提醒一下，是你先回复我的。
+
+另外我有自知之明，知道没有办法让你喜欢上这集，但你似乎没有，似乎想要说服我这集很垃圾。
+
+另外，啊，对不起又忘记了你有认知障碍，是你先哈气的。
+
+我不想污染版面了，我不会再回复任何你的可笑言论了。
+
