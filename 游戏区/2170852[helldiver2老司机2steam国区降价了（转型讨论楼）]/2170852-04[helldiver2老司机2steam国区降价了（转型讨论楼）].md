@@ -539,3 +539,15 @@ MG-206重机枪
 
 —— 来自 Xiaomi M2102J2SC, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  qwased  
+##### 5883#       发表于 2025-3-20 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67691658&amp;ptid=2170852" target="_blank">MkChang 发表于 2025-3-20 10:35</a>
+打喷火旅经常走着走着突然暴毙，很神秘
+
+—— 来自  鹅球 v3.4.98</blockquote>
+感觉是网络同步的bug，现在野排就很容易接战打完了突然血少一截<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">只有4人开黑不卡
+

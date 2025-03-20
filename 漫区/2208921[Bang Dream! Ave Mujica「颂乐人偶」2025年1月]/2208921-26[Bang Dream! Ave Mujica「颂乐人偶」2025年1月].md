@@ -16061,3 +16061,31 @@ image.png
 鸡有可能是剧情大改导致返工?</blockquote>
 经济利益上一般现代动画不会那么做，真有返工访谈也不会避谈
 
+
+*****
+
+####  ape-apple  
+##### 38348#       发表于 2025-3-20 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67691662&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-3-20 10:36</a>
+作者：qjadlbum</blockquote>
+哎，同床异梦，哎，另有所属
+
+*****
+
+####  与太郎  
+##### 38349#       发表于 2025-3-20 10:46
+
+[https://www.too.com/dc/report/2412_atsuc2024_sanjigen_marine/](https://www.too.com/dc/report/2412_atsuc2024_sanjigen_marine/)
+
+之前没看到这个访谈，原来三次元也已经从3ds max改成用blender了
+
+
+*****
+
+####  钦念以忱  
+##### 38350#       发表于 2025-3-20 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67691602&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-3-20 10:28</a></blockquote>
+双子加双重人格，这不会也是逆输入吧
+
