@@ -2463,3 +2463,26 @@ Snipaste_2025-03-19_16-16-48.png
 我现在是当战斗版刺客信条在玩...</blockquote>
 这游戏玩起来就特别像2代三部曲的刺客信条，基本能当现代+战斗增强版来玩，而且地图内容量填充适度，挺好的
 
+
+*****
+
+####  千千千千鸟  
+##### 3646#       发表于 2025-3-20 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67690946&amp;ptid=2092342" target="_blank">手铐君 发表于 2025-3-20 08:43</a>
+
+这游戏前期还行，但是到第三章开始初见端倪，到暗夜开始忍者组熟悉的感觉又回来了 ...</blockquote>
+那我还在第一章<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+也可能是因为数值碾压了？我探图算仔细的，现在16级，任务都10级出头的。
+
+*****
+
+####  千千千千鸟  
+##### 3647#       发表于 2025-3-20 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67693311&amp;ptid=2092342" target="_blank">慕容断月 发表于 2025-3-20 14:11</a>
+
+这游戏玩起来就特别像2代三部曲的刺客信条，基本能当现代+战斗增强版来玩，而且地图内容量填充适度，挺好 ...</blockquote>
+这点真挺好的，要收集的东西并不多，给的奖励还是技能点，目前动力还是挺足的，随便跑跑就拿全了，比起一开地图全是问号宝箱图标，拿到了也没啥提升那种好多了
+

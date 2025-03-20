@@ -1410,3 +1410,14 @@ wiki说第三个图（要塞）的垃圾会出苦无和忍者刀，不过我还�
 淹死了，不敢节约火了， ...</blockquote>
 9成你游玩家不得不品的一环，醍醐味<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 115#         楼主| 发表于 2025-3-20 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67688157&amp;ptid=2249235" target="_blank">白軍浪 发表于 2025-3-19 18:39</a>
+
+我现在30，是不是不升青铜反而好打？</blockquote>
+应该还在第一章吧，在的话肯定不升好打，巴哈有不少25级打的，不过不要在道中的蝎子女消耗太多，能跑酷就跑酷
+
