@@ -16959,3 +16959,31 @@ mujica不会最后真变成高中生喝茶乐队吧 也太JB搞笑了
 
 结论：<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天空塔书记官  
+##### 38415#       发表于 2025-3-20 20:41
+
+【【中文配音】Ave Mujica 颂乐人偶 第 1 集-哔哩哔哩】 [https://b23.tv/OmILylv](https://b23.tv/9IjawN4)
+
+<img src="https://p.sda1.dev/22/f14cedab3d63a051096ff45abc214e55/image.jpg" referrerpolicy="no-referrer">
+
+好活，来自译制片最初的感动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  是谁的书画  
+##### 38416#       发表于 2025-3-20 20:44
+
+ 本帖最后由 是谁的书画 于 2025-3-20 20:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67695965&amp;ptid=2208921" target="_blank">天空塔书记官 发表于 2025-3-20 20:41</a>
+
+【【中文配音】Ave Mujica 颂乐人偶 第 1 集-哔哩哔哩】 [https://b23.tv/OmILylv](https://b23.tv/OmILylv)</blockquote>
+他吗的，P1听到第30S的时候就已经绷不住了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+歌也翻译成中文了，这个倒是挺用心的<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
