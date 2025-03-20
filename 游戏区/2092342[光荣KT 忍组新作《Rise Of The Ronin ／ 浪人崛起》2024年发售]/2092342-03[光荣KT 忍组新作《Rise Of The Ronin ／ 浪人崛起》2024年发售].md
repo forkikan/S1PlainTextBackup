@@ -2709,3 +2709,14 @@ B站刷到的视频好像大部分都是玩太刀和双刀的，是别的武器�
 
 仁王来一次，这次又来
 
+
+*****
+
+####  慕容断月  
+##### 3668#       发表于 2025-3-20 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67696092&amp;ptid=2092342" target="_blank">Sopp 发表于 2025-3-20 21:02</a>
+
+那你应该很喜欢对马岛和AC神话三部曲才对……</blockquote>
+巧了，刺客信条最喜欢的是4，最讨厌的就是神话三部曲，而浪人很明显更像ac2
+

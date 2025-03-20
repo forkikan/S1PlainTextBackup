@@ -787,3 +787,132 @@ go粉只要把道歉那段单剪出来就可以把go和🐔完美切割了，多
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">还不如彻底疯狂，太寡淡了
 
+
+*****
+
+####  麻仓月轩  
+##### 85#       发表于 2025-3-20 23:09
+
+这还难评？
+什么破烂玩意，尽然还有一集
+我居然如此乐此不疲的每周准点收看
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  林云少校  
+##### 86#       发表于 2025-3-20 23:11
+
+-2
+
+下一集开一整集live还能拯救一下
+
+*****
+
+####  rs5621  
+##### 87#       发表于 2025-3-20 23:11
+
+女同+2白开水-2
+
++0
+
+<img src="https://img.saraba1st.com/forum/202503/20/231022q309f8ggattt39s8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (28.82 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-20 23:10 上传
+
+op放到最尾再看到这台词就很南奔了，你可以烂，但是不能剧情白开水！
+
+*****
+
+####  你妈的为什么  
+##### 88#       发表于 2025-3-20 23:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">包饺子速度太快以至于馅都没放
+
+*****
+
+####  看穿一切的鱼  
+##### 89#       发表于 2025-3-20 23:11
+
+看在萌萌小祥的份上给个0吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Bob293  
+##### 90#       发表于 2025-3-20 23:11
+
+-2 纯弱智剧情
+
+*****
+
+####  琦乐无穷  
+##### 91#       发表于 2025-3-20 23:11
+
+-2 
+
+最后和经纪人对峙这段笑死，大小姐过家家翻车一次了，还有脸报自己大名，好想问你是哪位啊？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zechins  
+##### 92#       发表于 2025-3-20 23:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">小姨投海自尽前的临终幻想
+
+*****
+
+####  Blaze626  
+##### 93#       发表于 2025-3-20 23:14
+
+-2毫无想象力，明明前面喂屎的时候充满了天马行空的想法
+
+*****
+
+####  酒巻真希菜  
+##### 94#       发表于 2025-3-20 23:14
+
+<img src="https://pic1.imgdb.cn/item/67dc30e188c538a9b5c21870.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿卵真是牛逼  
+##### 95#       发表于 2025-3-20 23:14
+
+你们就说这集女女关系性够不够吧
+
+*****
+
+####  木板春香  
+##### 96#       发表于 2025-3-20 23:16
+
+  太够了，我要再遛几遍12集
+
+*****
+
+####  拱猪  
+##### 97#       发表于 2025-3-20 23:16
+
+其他都能忍，喵睦我真忍不了，大喵这个战犯从头到尾躲过了审判，还把莫名其妙把系花给泡了，我操了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Cortana  
+##### 98#       发表于 2025-3-20 23:17
+
+突变成邦邦样板戏，无趣。mujica水平最低的一集，充分展示了独角兽与柿本之间的差距。
+
+*****
+
+####  a85982313  
+##### 99#       发表于 2025-3-20 23:18
+
+乐子都没了
+

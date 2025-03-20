@@ -2371,3 +2371,407 @@ QQ20250320-225701.jpg
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  zhoujin8584  
+##### 38728#       发表于 2025-3-20 23:08
+
+<blockquote>刑部姬真可爱 发表于 2025-3-20 23:04
+11集，初音自白说中登为了让老登给初音一个名分所以被老登假公报私了，不过这东西没法确定 ...</blockquote>
+不算是老登的锅，老登也栽培中登这么多年了，他俩一条绳上的蚂蚱。
+
+应该是暗示分家借这个事让本来可以保护性下放做分社经理的中登只能净身出户了。
+
+*****
+
+####  fsfs_freeze  
+##### 38729#       发表于 2025-3-20 23:08
+
+所以双重人格没有意义，初音初华姐妹的设定也没有意义，这帮人真是想一出是一出<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  最爱面包超人  
+##### 38730#       发表于 2025-3-20 23:08
+
+祥睦这本该锁死的cp都能硬给他拆了，唉<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  甲鱼  
+##### 38731#       发表于 2025-3-20 23:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">这饺子把史上最疯狂少女乐队也冲淡了
+
+*****
+
+####  反方向的波  
+##### 38732#       发表于 2025-3-20 23:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">有一说一大小姐过家家倒也是传统邦味
+
+*****
+
+####  adretyu67.  
+##### 38733#       发表于 2025-3-20 23:09
+
+想了下，这确实是大祥老师最膨胀的时间了。
+
+难怪要安排见蝶团的分镜都只是冷冷说敬语了。
+
+谁还记得大祥老师是看蝶团的演出才想着去玩乐队的
+
+*****
+
+####  Victorino  
+##### 38734#       发表于 2025-3-20 23:09
+
+<blockquote>aptx8285144 发表于 2025-3-20 22:59
+那为什么当初还需要老登付赔偿金，为什么大祥解决不了168忆，为什么留不住中登在自己豪宅，既然大祥是正 ...</blockquote>
+老登付赔偿金这件事的性质，感觉就像是老登是丰川家的出纳一样的程度，替大女主保管金库钥匙的staff
+
+至于168亿，本来就是赘婿老登已经帮赘婿中登把钱付了，赘婿终究是赘婿，要是中登有丰川血脉那绝对不可能被赶出去住啊
+
+*****
+
+####  是谁的书画  
+##### 38735#       发表于 2025-3-20 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697784&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-20 23:09</a>
+
+想了下，这确实是大祥老师最膨胀的时间了。
+
+难怪要安排见蝶团的分镜都只是冷冷说敬语了。</blockquote>
+神从不低头，神的眸下神人也只是人
+
+*****
+
+####  zhoujin8584  
+##### 38736#       发表于 2025-3-20 23:10
+
+其实这应该是晋江元素叠叠乐里的的“区区杀父之仇”，不过这样落地作为动画来说也还行吧
+
+*****
+
+####  downnote  
+##### 38737#       发表于 2025-3-20 23:10
+
+睦的复数人格都融合在一起了，可以称为 睦融复
+
+*****
+
+####  风道北来  
+##### 38738#       发表于 2025-3-20 23:11
+
+之前：
+
+路人：大小姐过家家 
+
+大象：我不是我没有
+
+现在：
+
+路人：大小姐过家家
+
+大象：是的老娘姓丰川老娘就是超级大小姐老娘超级吊
+
+母鸡卡没开播前如果有人告诉祥厨大象最后成了这么个形象，场面一定很壮观
+
+*****
+
+####  Hororoa  
+##### 38739#       发表于 2025-3-20 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697778&amp;ptid=2208921" target="_blank">反方向的波 发表于 2025-3-20 23:09</a>
+
+有一说一大小姐过家家倒也是传统邦味</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">我要看的是大小姐砸钱办高科技live，不是搞定经纪公司
+
+*****
+
+####  厄神之息  
+##### 38740#       发表于 2025-3-20 23:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哈哈哈哈哈哈哈哈！之前还说喵梦的发言像团长，这你以为我是谁，我可是阿威母鸡卡的ob一串字母丰川箱子啊！才是纯正团长味啊！
+
+*****
+
+####  zhzij111  
+##### 38741#       发表于 2025-3-20 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697721&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-20 23:05</a>
+鸡2.0这么玩的确还是大小姐过家家。
+
+不过鸡2.0执着于出道还有什么意义？？？？ ...</blockquote>
+剧里不是解释了吗，因为她是丰川祥子，大小姐想怎么玩就怎么玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  adretyu67.  
+##### 38742#       发表于 2025-3-20 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697776&amp;ptid=2208921" target="_blank">甲鱼 发表于 2025-3-20 23:08</a>
+
+这饺子把史上最疯狂少女乐队也冲淡了</blockquote>
+大祥应该是彻底膨胀了。
+
+虽然和初华同居但是那段发言简直和之前初音对自己的发言差不多，醉生梦死状态。
+
+见到蝶团也冷冷淡淡。
+
+对事务所直接我作为丰川继承人的权力是无限大的。
+
+*****
+
+####  aptx8285144  
+##### 38743#       发表于 2025-3-20 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697576&amp;ptid=2208921" target="_blank">rollingusagi 发表于 2025-3-20 22:57</a>
+
+这下说mujika就是翻版hhw我看还有谁反对，祥子这不就是另一个kkr，坐拥超大家族势力，就看她想不想 ...</blockquote>
+不要说这些想不想了，除非这片只有这一话，否则大祥“想不想”是很荒谬的，中登被赶出时呢，母鸡卡炸掉后的赔偿金时呢，吉他睦被莫女士杀了以后呢，为什么大祥不像现在这样突然用名字解决问题，难道是她不想吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  鱼丈人  
+##### 38744#       发表于 2025-3-20 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697633&amp;ptid=2208921" target="_blank">雪霜 发表于 2025-3-20 23:00</a>
+抖音脑残短剧都无法看到这么弱智的所谓“大女主”</blockquote>
+不要侮辱抖音短剧，那都是工业流水线的起承转合衔接<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gammatau  
+##### 38745#       发表于 2025-3-20 23:12
+
+可能独角兽原本想写的就是初祥拉扯女同拉扯十一集 实在不符合大人卖角色的要求就砍初祥给睦塞戏份，搞成这个样子了
+
+*****
+
+####  m99999  
+##### 38746#       发表于 2025-3-20 23:12
+
+即便是单集太紧凑，处理得这么生硬独角兽也难辞其咎。这个企划按原案拍很可能更烂
+
+*****
+
+####  Yugao  
+##### 38747#       发表于 2025-3-20 23:12
+
+没想到一部动画，开头像武田，展开像大河内，谜面像龙7，谜底像铃鹿，笑点像江南，谢谢你，武士道
+
+*****
+
+####  是谁的书画  
+##### 38748#       发表于 2025-3-20 23:12
+
+真融合了吗，怕不是和两面佛一样说切就切，我是没看出来
+
+但你要说融合了倒也合理，没啥莫缇丝的性格，就是话多了点。
+
+好吧，我顺从了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xyion  
+##### 38749#       发表于 2025-3-20 23:13
+
+这一会儿传统二偶戏码，一会儿讨厌咖啡无视碟团，独角兽你到底想写啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 38750#       发表于 2025-3-20 23:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">注意用词好吧，什么大小姐？大小姐有无限权力吗
+
+*****
+
+####  古戸絵梨花  
+##### 38751#       发表于 2025-3-20 23:13
+
+ 本帖最后由 古戸絵梨花 于 2025-3-20 23:15 编辑 
+
+其实最后的大祥老师已经坏掉了吧，只是一个被4个疯子绑架了人生的可怜人偶罢了
+
+*****
+
+####  鱼丈人  
+##### 38752#       发表于 2025-3-20 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697652&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-20 23:01</a>
+老登需要祥子当大旗来抱住自己的位置。
+
+大祥老师在鸡12话终于想明白了这点所以随意开作了，看谁先完蛋。 ...</blockquote>
+摆烂一念起，顿觉天地宽了属于是，只要敢摆烂，办法总比困难多<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  m99999  
+##### 38753#       发表于 2025-3-20 23:13
+
+<blockquote>gammatau 发表于 2025-3-20 23:12
+可能独角兽原本想写的就是初祥拉扯女同拉扯十一集 实在不符合大人卖角色的要求就砍初祥给睦塞戏份，搞成这 ...</blockquote>
+删了睦的双重人格就只有雷雨一条主线了，塑造一条金毛和一个大小姐，花12集。我看这大象老师就是独角兽自我代入的产物，柿本也就是低能一点，砍是砍得没问题
+
+*****
+
+####  schneehertz  
+##### 38754#       发表于 2025-3-20 23:13
+
+<img src="https://img.saraba1st.com/forum/202503/20/231345ztmq6id7timc6zcq.jpg" referrerpolicy="no-referrer">
+
+<strong>b9c7f57947eedc1d8a48bb782d737c2a_720.jpg</strong> (126.16 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-20 23:13 上传
+
+*****
+
+####  adretyu67.  
+##### 38755#       发表于 2025-3-20 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697807&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-3-20 23:11</a>
+
+剧里不是解释了吗，因为她是丰川祥子，大小姐想怎么玩就怎么玩
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+重新按照和初华同居的那段台词理解了下。
+
+大祥现在应该是在泡沫爆破前能做多少是多少，结果无所谓，大不了爆了。
+
+所以最后鸡团会议又在那扯最速出道了。
+
+*****
+
+####  weige  
+##### 38756#       发表于 2025-3-20 23:14
+
+不是，你们没觉得oped互换很好笑吗，差点笑晕过去了
+
+*****
+
+####  Victorino  
+##### 38757#       发表于 2025-3-20 23:14
+
+<blockquote>aptx8285144 发表于 2025-3-20 23:12
+不要说这些想不想了，除非这片只有这一话，否则大祥“想不想”是很荒谬的，中登被赶出时呢，母鸡卡炸掉后 ...</blockquote>
+
+突然意识到一个问题
+
+11和12集，其实大祥老师拿到了她人生中最至关重要的一个道具
+
+那就是：
+
+老登的黑料把柄
+
+*****
+
+####  sauron.j  
+##### 38758#       发表于 2025-3-20 23:14
+
+我看之前对这一集的期望就是了解独角兽的原案是如何定调初祥的
+
+现在再看前面的剧情，很多场内外闹剧都能解释得通了
+
+*****
+
+####  wrsyd  
+##### 38759#       发表于 2025-3-20 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697703&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-3-20 23:04</a>
+
+11集，初音自白说中登为了让老登给初音一个名分所以被老登假公报私了，不过这东西没法确定 ...</blockquote>
+如果要强行解释的话，估计也就是这个原因了，但是这段叙述的也太跳脱了，前一个镜头是老登让祥爹闭嘴，后一个镜头初华就直接自己背锅了。不过无所谓了，这动画逻辑不通的地方可太多了，也不差这一点<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 38760#       发表于 2025-3-20 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697787&amp;ptid=2208921" target="_blank">Victorino 发表于 2025-3-20 23:09</a>
+
+老登付赔偿金这件事的性质，感觉就像是老登是丰川家的出纳一样的程度，替大女主保管金库钥匙的staff
+
+至于 ...</blockquote>
+这种解释你自己信吗，你要不自己看看第五话大祥那个状态<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  m99999  
+##### 38761#       发表于 2025-3-20 23:15
+
+<blockquote>adretyu67. 发表于 2025-3-20 23:13
+重新按照和初华同居的那段台词理解了下。
+
+大祥现在应该是在泡沫爆破前能做多少是多少，结果无所谓，大不 ...</blockquote>
+独角兽原来想刻画的大概是大象自己一步步成为人偶，把其他几个神人真正带起来的故事。
+
+*****
+
+####  鱼丈人  
+##### 38762#       发表于 2025-3-20 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697682&amp;ptid=2208921" target="_blank">秋月孝三 发表于 2025-3-20 23:03</a>
+以后你邦战力榜第一应该就是能把tgw家继承顺位第一&amp;新世界的神按倒在地的长崎女士了吧 ...</blockquote>
+不对呀，致敬eva的话应该是新世界的神把别人摁在地上掐才对呀<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  风真人  
+##### 38763#       发表于 2025-3-20 23:16
+
+哎，还不如早说第二季讲的是错认青梅克服千难万险终成眷属的故事，根本就没有什么最狂的少女乐队，这不纯纯的晋江无脑霸总甜文
+
+*****
+
+####  鱼丈人  
+##### 38764#       发表于 2025-3-20 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697693&amp;ptid=2208921" target="_blank">蜜瓜包 发表于 2025-3-20 23:04</a>
+大小姐过家家这评价真的一点都没错，闹麻了</blockquote>
+不止如此，还把中登，老登和整个丰川家都写成过家家闹麻了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  m99999  
+##### 38765#       发表于 2025-3-20 23:16
+
+<blockquote>xyion 发表于 2025-3-20 23:13
+这一会儿传统二偶戏码，一会儿讨厌咖啡无视碟团，独角兽你到底想写啥</blockquote>
+她心里的大女主大象最后变成空壳了。二偶是演给初音看的，团结乐队是为了其他人的人生，大象自己一无所有了，变成了权力的代言。
+
+*****
+
+####  聋与唬  
+##### 38766#       发表于 2025-3-20 23:16
+
+母鸡卡真是连烂得都如此平庸，太失望了
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  FanFun  
+##### 38767#       发表于 2025-3-20 23:17
+
+这是独角兽为了满足自己艹侄女XP这碟醋
+
+用12集不能有实际性进展的左右互搏内容凑数<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Victorino  
+##### 38768#       发表于 2025-3-20 23:17
+
+<blockquote>aptx8285144 发表于 2025-3-20 23:14
+这种解释你自己信吗，你要不自己看看第五话大祥那个状态，老登说付钱后，大祥吃惊的表情，否则灯为什么邀 ...</blockquote>
+第5话不就是普通的富二代突然青春逆反“我要靠我自己的双手赚钱！从今天起不花家里一分钱！”的状态吗，大祥老师从黑刀之夜搬出大house到坐回迈巴赫为止一直是这个状态啊
+
