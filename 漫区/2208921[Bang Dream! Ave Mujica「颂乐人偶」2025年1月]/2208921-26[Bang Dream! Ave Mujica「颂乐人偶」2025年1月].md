@@ -17390,3 +17390,183 @@ mujica不会最后真变成高中生喝茶乐队吧 也太JB搞笑了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">时隔整整25话，大祥终于向灯道歉了233
 
+
+*****
+
+####  秋月孝三  
+##### 38457#       发表于 2025-3-20 22:08
+
+怎么还有即位顺序的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  凉良  
+##### 38458#       发表于 2025-3-20 22:08
+
+不是NM 还要复读上一集的剧情？
+
+*****
+
+####  aptx8285144  
+##### 38459#       发表于 2025-3-20 22:08
+
+这飞机竟然是私人飞机，不愧是丰川家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  帕林马哲理  
+##### 38460#       发表于 2025-3-20 22:09
+
+mana当真运气不佳啊，摊上这种搭档<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  你妈的为什么  
+##### 38461#       发表于 2025-3-20 22:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这op放ed是什么二创操作 笑死
+
+*****
+
+####  影伴光生  
+##### 38462#       发表于 2025-3-20 22:10
+
+🐘老师躺下去还那么挺——根本没做额外的物理效果是吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 38463#       发表于 2025-3-20 22:10
+
+等等，你就这么乘着轮船去岛了吗？就算接到下人们报告，老登也是在放水吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gammatau  
+##### 38464#       发表于 2025-3-20 22:11
+
+所以初华她们呢 
+
+*****
+
+####  aptx8285144  
+##### 38465#       发表于 2025-3-20 22:12
+
+路过的司机都认识大祥<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  影伴光生  
+##### 38466#       发表于 2025-3-20 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67696682&amp;ptid=2208921" target="_blank">gammatau 发表于 2025-3-20 22:11</a>
+所以初华她们呢</blockquote>
+按岛上开车的说法，搬走了——再给画面也来不及了不是
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  半年  
+##### 38467#       发表于 2025-3-20 22:12
+
+悲情女主角
+
+*****
+
+####  南宮凝香  
+##### 38468#       发表于 2025-3-20 22:12
+
+每個人都有一兩個秘密
+
+像我， 就是個禿頭！
+
+*****
+
+####  gammatau  
+##### 38469#       发表于 2025-3-20 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67696693&amp;ptid=2208921" target="_blank">影伴光生 发表于 2025-3-20 22:12</a>
+
+按岛上开车的说法，搬走了——再给画面也来不及了不是
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+所以这角色设计了个JB啊卧槽
+
+*****
+
+####  有钱多买小人  
+##### 38470#       发表于 2025-3-20 22:13
+
+寿司寿司寿寿司
+
+*****
+
+####  Victorino  
+##### 38471#       发表于 2025-3-20 22:13
+
+<blockquote>aptx8285144 发表于 2025-3-20 22:10
+等等，你就这么乘着轮船去岛了吗？就算接到下人们报告，老登也是在放水吧 ...</blockquote>
+后面说了啊，老登给初华布置任务让她假意迷惑祥子回东京
+
+*****
+
+####  帕林马哲理  
+##### 38472#       发表于 2025-3-20 22:13
+
+祥子这也能忘掉，那前十一集根本不用演啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  清江望月  
+##### 38473#       发表于 2025-3-20 22:14
+
+这一集感觉像是第十集的姐妹篇。
+
+*****
+
+####  DeltaStriker  
+##### 38474#       发表于 2025-3-20 22:15
+
+笑啦
+有种这13集白演的感觉
+真是应验了烂得不上不下的感觉
+纯闹麻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  半年  
+##### 38475#       发表于 2025-3-20 22:16
+
+太变态了
+
+*****
+
+####  aptx8285144  
+##### 38476#       发表于 2025-3-20 22:16
+
+初音这家，是不是只有她一个人了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  影伴光生  
+##### 38477#       发表于 2025-3-20 22:17
+
+不是，怎么从大豪斯跑路前还在花园里玩一圈啊，有点难绷了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ccared  
+##### 38478#       发表于 2025-3-20 22:17
+
+这集给我尬出鸡皮疙瘩了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
