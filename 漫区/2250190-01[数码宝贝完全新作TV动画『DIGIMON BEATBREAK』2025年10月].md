@@ -529,3 +529,11 @@ dtcg手游什么时候出啊？dtcg规则看起来比ptcg好玩，想尝试玩�
 
 有黑客？能不能让蝴蝶兽客串一把！
 
+
+*****
+
+####  leonlink  
+##### 52#       发表于 2025-3-20 21:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">真是一反常态的主角搭档
+
