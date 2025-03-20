@@ -513,3 +513,11 @@ MG-206重机枪
 
 不能一发连小兵一起带走，还有必要打飞艇吗<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  madcow  
+##### 5880#       发表于 2025-3-20 09:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">我看b站上那些角色外观mod都修复了，那么有新的炒鸡货币光柱了吗
+
