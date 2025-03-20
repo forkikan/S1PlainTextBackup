@@ -641,3 +641,38 @@ btw，这两天时间轴在假设叶月花没去 ...</blockquote>
 
 2025-3-20 10:44 上传
 
+
+*****
+
+####  ViyViy  
+##### 1575#       发表于 2025-3-20 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67680042&amp;ptid=2201887" target="_blank">黒烨 发表于 2025-3-18 14:59</a>
+
+鱼这图拍的好像可可第一张单人介绍插图呀</blockquote>
+应该就是参照LLDvol.8的この街の片隅で的那张图拍的，原本那张图取景地和手上的冰淇淋是不同的两家店，这两间店从谷歌地图上看都已经关了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202503/20/111242twhmhomz7hcuih3m.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (694.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-20 11:12 上传
+
+<img src="https://img.saraba1st.com/forum/202503/20/111454flqddooozao7ocdi.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.76 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-20 11:14 上传
+
+<img src="https://img.saraba1st.com/forum/202503/20/112948mywwqfpff98p8f3w.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.03 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-20 11:29 上传
+

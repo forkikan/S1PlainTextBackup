@@ -29,3 +29,16 @@
 收录了泽野弘之、山本康太、彩虹乐队、三歌姬(大桥彩香、日笠阳子、千本木彩花)部分 ...</blockquote>
 这个有CD吗，想买一张
 
+
+*****
+
+####  cnmyster1ous  
+##### 962#       发表于 2025-3-20 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67691972&amp;ptid=2103199" target="_blank">Sakaiyuki 发表于 2025-3-20 11:15</a>
+
+这个有CD吗，想买一张</blockquote>
+这次这个是纯网络配信的 不过tracklist只包括了很少一部分音乐
+
+可以推测有大量场景音乐没有收录 也许后面会有实体版的OST发售
+

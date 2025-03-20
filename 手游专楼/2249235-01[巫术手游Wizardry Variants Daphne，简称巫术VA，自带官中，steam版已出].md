@@ -1352,3 +1352,29 @@ wiki说第三个图（要塞）的垃圾会出苦无和忍者刀，不过我还�
 
 昨天开的号，3级试了下活动图进去会被秒，感觉跟这次活动无缘
 
+
+*****
+
+####  废柴失格  
+##### 110#       发表于 2025-3-20 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67691951&amp;ptid=2249235" target="_blank">棍机凹升龙 发表于 2025-3-20 11:12</a>
+
+昨天开的号，3级试了下活动图进去会被秒，感觉跟这次活动无缘</blockquote>
+有AOE队友的话,10多个小时左右,就能刷满20级。活动不用打龙也可以，捡宝箱换东西就行，时间充足的很。
+
+
+*****
+
+####  macshi  
+##### 111#       发表于 2025-3-20 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67691710&amp;ptid=2249235" target="_blank">废柴失格 发表于 2025-3-20 10:43</a>
+
+掉水里了，出不去，还好我早就预料到了这种情况，带了钩子，水里为啥不能用钩子。
+
+淹死了，不敢节约火了， ...</blockquote>
+这个环节我也是被坑死2次，最后只剩一个火了只能去查攻略。
+
+真就是被水淹没不知所措。<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
