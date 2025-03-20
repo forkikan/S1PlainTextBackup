@@ -879,3 +879,639 @@ OB一串字母的真实含义：终于想起来俺才是法定继承人你老登
 
 大祥道歉的人是灯，<strong>果然蚀本这些神人对第七话一点逼数都没有</strong><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  扶桑洛槿  
+##### 38576#       发表于 2025-3-20 22:36
+
+大祥在自家私人飞机前都能自己跑掉，保镖们即不拦住，也不跟在后面，是请来吃干饭的么。
+
+而且大祥这穿低跟鞋穿到脚出血，不会是从私人飞机一直跑到渡轮上吧？而且大祥的忍耐能力也太猛了，一双湿掉的鞋加脚跟出血还能至少再来走带跑个几小时。啤酒仙人的基因也太强了。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 木板春香| + 1|祥神健康长寿|
+
+查看全部评分
+
+*****
+
+####  wangh  
+##### 38577#       发表于 2025-3-20 22:36
+
+发图透的舅舅是不是木谷高明的马甲啊，简直闹麻了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 38578#       发表于 2025-3-20 22:36
+
+大祥老师想开了，至于为什么想开了也不重要了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+就想开了啊，有时候就是要突然开窍。你没有突然开窍过吗？
+
+嗯...就想开了。
+
+好怪啊，这想开了的好怪。不过考虑集数也行吧，顺从<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  油画布  
+##### 38579#       发表于 2025-3-20 22:37
+
+但是不管包的怎么样，文戏和冲突情节的演出设计都过于平庸了，剧本家的真实水平一览无余。
+
+看来诗超绊真的是个偶然。
+
+*****
+
+####  影伴光生  
+##### 38580#       发表于 2025-3-20 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697145&amp;ptid=2208921" target="_blank">油画布 发表于 2025-3-20 22:34</a>
+要说包饺子也没完全包，祥子一个人躺那里自言自语咖啡味真讨厌的样子仿佛像是被一段貌合神离的婚姻困住了 ...</blockquote>
+毕竟🐘老师爱的是红茶，金毛怎么连这个都不清楚，跟踪了个寂寞
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Litccc  
+##### 38581#       发表于 2025-3-20 22:37
+
+看完这集所有人都沉默了
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 38582#       发表于 2025-3-20 22:37
+
+提问：这集那么多大祥脚是谁的XP
+
+A。独角兽
+
+B。蚀本广大
+
+*****
+
+####  seki_m  
+##### 38583#       发表于 2025-3-20 22:38
+
+11集完美诠释没苦硬吃
+
+*****
+
+####  师傅没水了  
+##### 38584#       发表于 2025-3-20 22:38
+
+看得我脑瓜子嗡嗡的
+
+*****
+
+####  儒雅随和李田所  
+##### 38585#       发表于 2025-3-20 22:38
+
+这神人剧情真的是给我看笑了，我第1次看一部动画会被气笑，强行包饺子的剧情让我想起了那些因为编剧写不下去就瞎几把拍了个结尾的烂片感觉画面和因为作者不想写就强行完结的烂尾网文。除了贡献了祥子的臭脚画面和初华后入祥子和两人事后画面，其他全是强健我大脑的东西
+
+*****
+
+####  南宮凝香  
+##### 38586#       发表于 2025-3-20 22:38
+
+這故事就是祥子用了二十三集反抗命運後
+
+發現命運給她的權力是無限大的
+
+*****
+
+####  是谁的书画  
+##### 38587#       发表于 2025-3-20 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697198&amp;ptid=2208921" target="_blank">油画布 发表于 2025-3-20 22:37</a>
+
+但是不管包的怎么样，文戏和冲突情节的演出设计都过于平庸了，剧本家的真实水平一览无余。
+
+看来诗超绊真的 ...</blockquote>
+太几把平庸了，我真的看的毫无波澜<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kenqqex  
+##### 38588#       发表于 2025-3-20 22:39
+
+<img src="https://img.saraba1st.com/forum/202503/20/223850ued7i4c2117o2z56.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (336.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-20 22:38 上传
+
+思い…出した!
+
+我才是这个家族最大的!
+
+*****
+
+####  seki_m  
+##### 38589#       发表于 2025-3-20 22:39
+
+就一个疑问，你们吉他还是假弹吗？
+
+*****
+
+####  是谁的书画  
+##### 38590#       发表于 2025-3-20 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697254&amp;ptid=2208921" target="_blank">seki_m 发表于 2025-3-20 22:39</a>
+
+就一个疑问，你们吉他还是假弹吗？</blockquote>
+共存了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+鉴定为闹麻
+
+*****
+
+####  aptx8285144  
+##### 38591#       发表于 2025-3-20 22:40
+
+大祥的演说，其他还好，看到不择手段四个字还是有点pstd发作，你们神人主创没有胆子写有魅力的坏角色<strong>就别随便用这个词语好吗</strong><img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 38592#       发表于 2025-3-20 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697172&amp;ptid=2208921" target="_blank">影伴光生 发表于 2025-3-20 22:35</a>
+
+甚至登岛-离岛-回老宅-离开老宅这一系列行为应该是24小时内发生的
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+在岛上顶多4个小时，回到家天还没亮
+
+*****
+
+####  清江望月  
+##### 38593#       发表于 2025-3-20 22:41
+
+还有木兹米是大祥老师的半身这个设定，也没写出来就已经开始包饺子了啊，就木门立雪一小时就半身了？
+
+*****
+
+####  huxiaopao163  
+##### 38594#       发表于 2025-3-20 22:41
+
+呃，感觉不如再写两集人格分裂，至少把其中一部分写得完整一点
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  木板春香  
+##### 38595#       发表于 2025-3-20 22:41
+
+<img src="https://img.saraba1st.com/forum/202503/20/224051dnovmsm7t7yqto7b.jpg" referrerpolicy="no-referrer">
+
+<strong>FQ[AR6_A`BA4A9R{A26`RA8_tmb.jpg</strong> (133.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-20 22:40 上传
+
+<img src="https://img.saraba1st.com/forum/202503/20/224109jayeaudec3umqdm6.gif" referrerpolicy="no-referrer">
+
+<strong>)~`}6EL[27@[K(}$A[5P8F2.gif</strong> (2.08 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-20 22:41 上传
+
+*****
+
+####  Liren  
+##### 38596#       发表于 2025-3-20 22:41
+
+还是不太懂为什么祥子要说讨厌咖啡的味道
+
+*****
+
+####  DeltaStriker  
+##### 38597#       发表于 2025-3-20 22:41
+
+这12集一出 直接把mygo13集和am11集全部否定
+只要大象老师在mygo第1集之前稳定情绪 跟外公表演龙王归来 mygo和am直接完结
+新番组《BanG Dream！Crychic》（26集）堂堂登场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  与何人说  
+##### 38598#       发表于 2025-3-20 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697145&amp;ptid=2208921" target="_blank">油画布 发表于 2025-3-20 22:34</a>
+要说包饺子也没完全包，祥子一个人躺那里自言自语咖啡味真讨厌的样子仿佛像是被一段貌合神离的婚姻困住了 ...</blockquote>
+有点不明白为什么要加一段祥子讨厌咖啡的台词
+
+
+*****
+
+####  高妹控  
+##### 38599#       发表于 2025-3-20 22:42
+
+你以为我是谁啊！
+
+Do the impossible
+
+see the invisible
+
+raw! raw!
+
+fight the power!
+
+touch the untoucheable
+
+break the unbreakable
+
+raw! raw!
+
+fight the power!
+
+最后一话小祥率领🐔团上太空能逆转评价吗？
+
+*****
+
+####  cxj649  
+##### 38600#       发表于 2025-3-20 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697254&amp;ptid=2208921" target="_blank">seki_m 发表于 2025-3-20 22:39</a>
+
+就一个疑问，你们吉他还是假弹吗？</blockquote>
+现在是苦瓜融合睦啊233
+
+
+*****
+
+####  半年  
+##### 38601#       发表于 2025-3-20 22:42
+
+<img src="https://p.sda1.dev/22/aa6d497c8ce2d8af11f10b31f847050d/Gmekf8JbMAAfAZ7.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/ExtremeLilyPig/status/1902670249629298846/photo/1](https://x.com/ExtremeLilyPig/status/1902670249629298846/photo/1)
+
+*****
+
+####  是谁的书画  
+##### 38602#       发表于 2025-3-20 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697271&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-20 22:40</a>
+
+大祥的演说，其他还好，看到不择手段四个字还是有点pstd发作，你们神人主创没有胆子写有魅力的坏角色就别随 ...</blockquote>
+感觉只有回到白祥的造作，哪有不择手段
+
+以前也就想做做女主角，现在都要成神了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oyss  
+##### 38603#       发表于 2025-3-20 22:42
+
+可能这就是这种片的优势. 如果是独苗一个动画搞成这样直接就烂片被骂死了.也不会火.
+
+但是这是复合企划. 有前作,有手游,有真人live.动画只是一部分.所以烂一点甚至还能成讨论笑料.
+
+*****
+
+####  南宮凝香  
+##### 38604#       发表于 2025-3-20 22:42
+
+<blockquote>aptx8285144 发表于 2025-3-20 22:35
+大祥道歉的人是灯，果然蚀本这些神人对第七话一点逼数都没有</blockquote>
+算了吧
+
+🦄沒再讓🐘寫封信壓力爆💡
+
+平平談談的說聲謝謝
+
+我是愛音早就謝天謝地，
+
+至少這次不用擦屁股了
+
+*****
+
+####  aptx8285144  
+##### 38605#       发表于 2025-3-20 22:43
+
+不需要老登的许可，但是我是丰川祥子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  人又如何  
+##### 38606#       发表于 2025-3-20 22:43
+
+<img src="https://img.nga.178.com/attachments/mon_202503/20/axw3Q2v-2i1eZlT3cSva-sh.jpg" referrerpolicy="no-referrer">
+<img src="https://img.nga.178.com/attachments/mon_202503/20/axw3Q2v-ha47K17T3cSsg-cv.jpg" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qratosones1337  
+##### 38607#       发表于 2025-3-20 22:43
+
+只看初祥的话倒是对偶了：真初华对大祥应该也没啥印象，而真正触动大祥的是跟初音一起看星星，跟mygo的伏笔对上了
+
+*****
+
+####  极寒冷焰酋蕾姆  
+##### 38608#       发表于 2025-3-20 22:43
+
+当看到祥子信誓旦旦说要斩断一切的时候我心里只想发笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  是谁的书画  
+##### 38609#       发表于 2025-3-20 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697289&amp;ptid=2208921" target="_blank">Liren 发表于 2025-3-20 22:41</a>
+
+还是不太懂为什么祥子要说讨厌咖啡的味道</blockquote>
+早晚会结束，唯有梦幻永存
+
+哪怕片刻也不想清醒
+
+大概是这个意思<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">为啥怎么个想法就不重要了
+
+*****
+
+####  alarmAll  
+##### 38610#       发表于 2025-3-20 22:43
+
+白祥是真的牛逼，切个形态就无敌了，谁都拦不住，直接脑控全世界
+
+*****
+
+####  刑部姬真可爱  
+##### 38611#       发表于 2025-3-20 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697285&amp;ptid=2208921" target="_blank">huxiaopao163 发表于 2025-3-20 22:41</a>
+
+呃，感觉不如再写两集人格分裂，至少把其中一部分写得完整一点
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15 ...</blockquote>
+不就是因为人格分裂实在编不下去了才唐突进入初华篇吗，不然市一自然要多写写他亲女儿
+
+*****
+
+####  seki_m  
+##### 38612#       发表于 2025-3-20 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697300&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-3-20 22:42</a>
+
+现在是苦瓜融合睦啊233</blockquote>
+哦改种苦瓜了就是这意思吗
+
+*****
+
+####  萌二  
+##### 38613#       发表于 2025-3-20 22:44
+
+遗忘前11集就对了
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 38614#       发表于 2025-3-20 22:44
+
+祥子生物爹就被她随手丢给老登了？
+
+*****
+
+####  影伴光生  
+##### 38615#       发表于 2025-3-20 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697330&amp;ptid=2208921" target="_blank">极寒冷焰酋蕾姆 发表于 2025-3-20 22:43</a>
+当看到祥子信誓旦旦说要斩断一切的时候我心里只想发笑
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">丰川家的大手真无敌吧，一帮倒插门闹麻了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 38616#       发表于 2025-3-20 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67696846&amp;ptid=2208921" target="_blank">Victorino 发表于 2025-3-20 22:22</a>
+
+who cares妹妹是谁，妹妹又不是ave mujica成员没写过imprisonedxii没上过天文馆没跟祥子同居过，只不过是 ...</blockquote>
+不是这个问题，只要是正常人顺口问一句你妹妹现在去哪里了或者在哪里才是常理，没这么做只有一个原因，独角兽和蚀本知道不好处理，只好假装“问题”不存在<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yugao  
+##### 38617#       发表于 2025-3-20 22:45
+
+如果疯传家不是什么深潜者家族，很难理解恐怖在哪里
+
+*****
+
+####  qratosones1337  
+##### 38618#       发表于 2025-3-20 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697321&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-20 22:43</a>
+
+不需要老登的许可，但是我是丰川祥子，哎，什么时候去改名呀</blockquote>
+真血脉大于赘婿倒是好理解
+
+*****
+
+####  南宮凝香  
+##### 38619#       发表于 2025-3-20 22:45
+
+只要把這集接在狗12 跟13 中間
+
+整個母雞卡都可以不需要
+
+*****
+
+####  零壹贰叁  
+##### 38620#       发表于 2025-3-20 22:45
+
+ 本帖最后由 零壹贰叁 于 2025-3-20 22:46 编辑 
+
+感觉还行，我早就放弃逻辑了
+只是句子在前面大量重复导致现在一说那几句话我完全是难绷的状态
+但是这集包ccc饺子的想法我觉得还不错
+就应该写封回信而不是搞七集的那种恶心的东西
+
+不过和解戏码实在是有点多了，我甚至觉得7和10的和解可以不要，就用这一话的方法包两个
+
+实际上感觉mujica动画的大部分剧情都可以删<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，不知道一季到底演了个啥
+
+*****
+
+####  曲琦2  
+##### 38621#       发表于 2025-3-20 22:45
+
+本来祥子这辈子吃过最大的苦应该是那杯咖啡<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  轮太  
+##### 38622#       发表于 2025-3-20 22:46
+
+大象老师为什么能从机场一个人跑到冲绳？
+
+美乐宗为什么会坐敞篷车？
+
+只有老登一个人，苦哈哈的还在发短信<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  你妈的为什么  
+##### 38623#       发表于 2025-3-20 22:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看完了，有一种开车冲下悬崖然后空气二段跳跳回公路的感觉
+
+*****
+
+####  刑部姬真可爱  
+##### 38624#       发表于 2025-3-20 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697360&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-20 22:45</a>
+
+不是这个问题，只要是正常人顺口问一句你妹妹现在去哪里了或者在哪里才是常理，没这么做只有一个原因，独 ...</blockquote>
+祥子上岛的时候出租车司机已经和她说去本岛了
+
+*****
+
+####  sephal  
+##### 38625#       发表于 2025-3-20 22:46
+
+还以为是丰川祥子离家出走呢，原来是把老登驱逐了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 38626#       发表于 2025-3-20 22:47
+
+双重人格的祥子
+
+双重人格的初华
+
+双重人格的小睦
+
+牛逼了属于是
+
+*****
+
+####  Qing_Qi_2.0  
+##### 38627#       发表于 2025-3-20 22:47
+
+丰川祥子的意识形态in EP12：封建迷信---&gt;无神论---&gt;神权政治
+
+*****
+
+####  与太郎  
+##### 38628#       发表于 2025-3-20 22:47
+
+这集字面意义上边看边笑，比前11集加起来笑得都多了
+
+话说真初华既然都搬到日本本土了，前面究竟是在干什么，被初妈捂嘴了吗？后面会让真初华来组sumimi吗？
+
+*****
+
+####  千千千千鸟  
+##### 38629#       发表于 2025-3-20 22:47
+
+神。神回。。神人。。。
+
+*****
+
+####  仓鼠吃火锅  
+##### 38630#       发表于 2025-3-20 22:47
+
+这集感觉在玩酒馆对话ai。用上帝视角加了个“丰川家是女系家族”设定，祥子就懂得老登和老登旗下臭打工的算个屁横着走了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sauron.j  
+##### 38631#       发表于 2025-3-20 22:47
+
+这台词水平和前5集根本不像是一个作品<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 38632#       发表于 2025-3-20 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697360&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-20 22:45</a>
+
+不是这个问题，只要是正常人顺口问一句你妹妹现在去哪里了或者在哪里才是常理，没这么做只有一个原因，独 ...</blockquote>
+出租车那段说了，三角家剩下2个搬到本土去了。
+
+*****
+
+####  aptx8285144  
+##### 38633#       发表于 2025-3-20 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697369&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-3-20 22:45</a>
+
+真血脉大于赘婿倒是好理解</blockquote>
+老登：你不理解丰川家的黑暗面
+
+大祥：我就是用黑暗面的名字蛊惑全场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黛冬優子  
+##### 38634#       发表于 2025-3-20 22:47
+
+我作为丰川家正统继承人的权力是无限的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厉飞雨  
+##### 38635#       发表于 2025-3-20 22:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这么想也对，跟一堆倒插门的相比，大祥老师才是丰川家正统继承人
+
+*****
+
+####  qratosones1337  
+##### 38636#       发表于 2025-3-20 22:48
+
+笑死，回过头来看大祥在船上那段呐喊倒是有点独角兽借机辱骂市一的意思
+
+*****
+
+####  烂片雷达  
+##### 38637#       发表于 2025-3-20 22:48
+
+被骂废物被所有人抽陀螺隐忍十一年的我忽然发现自己是上古家族的唯一继承人从而吊打全世界
+
+不知道还以为在看抖音短剧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  与何人说  
+##### 38638#       发表于 2025-3-20 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697332&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-20 22:43</a>
+早晚会结束，唯有梦幻永存
+
+哪怕片刻也不想清醒
+
+大概是这个意思为啥怎么个想法就不重要了 ...</blockquote>
+真实吸冰了写出来的剧情
+
