@@ -1344,3 +1344,11 @@ wiki说第三个图（要塞）的垃圾会出苦无和忍者刀，不过我还�
 
 淹死了<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  棍机凹升龙  
+##### 109#       发表于 2025-3-20 11:12
+
+昨天开的号，3级试了下活动图进去会被秒，感觉跟这次活动无缘
+
