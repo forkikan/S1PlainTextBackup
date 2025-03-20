@@ -15851,3 +15851,39 @@ MyGO的手绘部分作画全面比Mujica好一大截，而且一定程度上手�
 
 2025-3-20 10:06 上传
 
+
+*****
+
+####  ape-apple  
+##### 38335#       发表于 2025-3-20 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67689873&amp;ptid=2208921" target="_blank">太二EricGuo 发表于 2025-3-19 23:01</a>
+十五年未有之小姨</blockquote>
+这就没办法了，🦄的xp其实非常好猜，所以很容易就能看出来哪些是她的手笔，比如说小姨外甥女<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  与太郎  
+##### 38336#       发表于 2025-3-20 10:22
+
+根据三次元的讲座，他们始终是在用3D+2D结合，只不过MyGO在特写镜头上用了之前10倍的手绘加笔
+
+动捕也是一直在用（能用动捕的话肯定比手K块），只不过比如演奏乐器的手部动作这样精细的地方必须手动K帧，#11没有不用的理由
+
+<img src="https://img.saraba1st.com/forum/202503/20/101100syi3q6yvluvq8fef.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (249.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-20 10:11 上传
+
+这里还有一张之前的图，是实际工作流程中吉野正人基于梅津朋美指令修改layout：
+
+调整镜头使得chu²不会挡住pareo；
+
+chu²抬起右腕时的动作改为笔直地上抬；
+
+改为竖着食指
+
