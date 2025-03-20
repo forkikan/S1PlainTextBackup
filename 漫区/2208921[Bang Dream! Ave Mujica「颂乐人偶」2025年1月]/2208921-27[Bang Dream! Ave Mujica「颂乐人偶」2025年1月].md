@@ -6153,3 +6153,48 @@ ep12的牛奶我觉得应该是回ep9那一瞥。
 
 只能说，情绪流也不合格。你真完全无视也好了，非要在时刻cue一下。
 
+
+*****
+
+####  帆前  
+##### 39065#       发表于 2025-3-21 02:58
+
+ 本帖最后由 帆前 于 2025-3-21 02:59 编辑 
+
+本集的cp金针茹拾珍
+
+猜到了看星星是初音的祥子，终于学会温柔包容了是吧
+<img src="https://p.sda1.dev/22/8fcff6c786d88588c9a488e26e751a29/Screenshot_20250320_233235_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+怼完老登神清气爽<strong>脚也不痛了</strong>的嬉戏祥子，这就是你想写的糖吗，哈基staff完全不讲哈基真实
+<img src="https://p.sda1.dev/22/6097c59d4807a1c9c21485d9cf1a59a5/Screenshot_20250320_222758_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+默认初祥cp实际吃醋的海铃同学，姐们现在才开始吃醋是吧，你们到这会才像是同班同学是吧
+<img src="https://p.sda1.dev/22/e11d04234ee87f772fccc4e19d261e53/Screenshot_20250320_223102_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+和疑似融合睦<strong>和睦相处</strong>的soyo
+<img src="https://p.sda1.dev/22/779749af3d674bef79c7c36268dffccf/Screenshot_20250320_223222_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+（我想过素祥垫给睦祥都没想过素祥让位给素睦<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">😭用素睦代替素祥喂给我吗，哈基staff，你这家伙😭
+
+该说不说的，我们小灯人机了这么久，终于有了个表示向前看的帅气画面，还是蛮可爱的，唉，溺爱力
+<img src="https://p.sda1.dev/22/88d5b9a2f71980aa2ccb27af087db454/Screenshot_20250320_223607_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+<strong>十二集未有之大好消息：mygo下集live！</strong><img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">😭😭😭
+<img src="https://p.sda1.dev/22/fcf808eecb6b37476e2d922f08beb81c/Screenshot_20250320_224028_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+ 高松+物理灯
+<img src="https://p.sda1.dev/22/191f59d33753bf04256adc11f3c88b3b/Screenshot_20250320_222416_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+《海鸥鸣泣之时》
+<img src="https://p.sda1.dev/22/de41e42e20844f9796c1a30b54d5c265/Screenshot_20250320_220541_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
+
+小岛致敬传奇小岛六轩岛，<strong>逻辑致敬传奇魔法海猫的魔法，只要有爱，就什么都能解释！没有爱，就什么都看不见！</strong>（呵呵呵<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古明地雷  
+##### 39066#       发表于 2025-3-21 02:59
+
+这不就是顿悟，突然想明白了甚至没有任何人开导，这转折放哪一话不行？前面折腾那么多合着都是水篇幅，睦祥一直不说开就是因为说开了没东西拍了
+
