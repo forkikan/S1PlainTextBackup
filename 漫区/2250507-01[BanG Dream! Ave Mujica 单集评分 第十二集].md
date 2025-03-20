@@ -1847,3 +1847,13 @@ mujica 一开始就说了要写病态的乐队关系，大方向是兑现承诺�
 +2
 饺子！饺子！饺子！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  葛葉景明  
+##### 197#       发表于 2025-3-21 07:39
+
+说个事，唯独爱音没有单独镜头<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
+
