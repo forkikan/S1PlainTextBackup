@@ -1334,3 +1334,13 @@ wiki说第三个图（要塞）的垃圾会出苦无和忍者刀，不过我还�
 
 看了攻略都不敢升青铜了，卡29级用宝箱怪体液战法打过，火龙麻痹后只会拍爪打起来真是轻松愉快
 
+
+*****
+
+####  废柴失格  
+##### 108#       发表于 2025-3-20 10:43
+
+掉水里了，出不去，还好我早就预料到了这种情况，带了钩子<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">。
+
+淹死了<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">。
+

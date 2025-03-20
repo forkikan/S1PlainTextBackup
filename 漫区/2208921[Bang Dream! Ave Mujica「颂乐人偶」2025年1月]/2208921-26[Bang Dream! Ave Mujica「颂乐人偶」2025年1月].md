@@ -15962,3 +15962,102 @@ chu²抬起右腕时的动作改为笔直地上抬；
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  一心而用  
+##### 38342#       发表于 2025-3-20 10:36
+
+作者：qjadlbum
+
+<img src="https://img.saraba1st.com/forum/202503/20/103603v6s9lzzimis3syhh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (222.55 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-20 10:36 上传
+
+*****
+
+####  与太郎  
+##### 38343#       发表于 2025-3-20 10:36
+
+还是要强调一下，能用动捕的情况下，用动捕一定是比直接手K省时省工的，现代3D大多数情况下都是动捕后修正
+
+实际上乐器演奏也可以动捕，大概是三次元没有相关设备及工作流吧
+
+不过三次元还没有关于mujica的最新采访，不知道mujica里具体的流程是怎样的
+
+*****
+
+####  须贺兰  
+##### 38344#       发表于 2025-3-20 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67691346&amp;ptid=2208921" target="_blank">UNISONIA 发表于 2025-3-20 09:47</a>
+
+有写出来有个专门的一人芝居（独角戏）演员，但是卡司表没有明确说是动捕，成品上还不如綾奈自己做示范的 ...</blockquote>
+松浦说他们用了五台摄像机是在做什么呢？
+[37702L](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=2208921&amp;pid=67666038)
+
+
+*****
+
+####  UNISONIA  
+##### 38345#       发表于 2025-3-20 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67691667&amp;ptid=2208921" target="_blank">须贺兰 发表于 2025-3-20 10:36</a>
+
+松浦说他们用了五台摄像机是在做什么呢？
+
+37702L</blockquote>
+那只能说这一话的表情没有像MyGO时期那么精修过了，Mujica里初音的脸部动态就算是分配到了不少手绘但是做的还没MyGO#13里传神，就只剩下伟大的脸了
+
+*****
+
+####  一心而用  
+##### 38346#       发表于 2025-3-20 10:43
+
+<img src="https://img.saraba1st.com/forum/202503/20/104341ppxzdfln0jtnt4ah.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (781.37 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-20 10:43 上传
+
+<img src="https://img.saraba1st.com/forum/202503/20/104347sjjno0n2pnknn9h2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (669.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-20 10:43 上传
+
+<img src="https://img.saraba1st.com/forum/202503/20/104353aexdyt0el7ylygxf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (855.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-20 10:43 上传
+
+image.png
+(104.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-20 10:42 上传
+
+<img src="https://img.saraba1st.com/forum/202503/20/104257wrsjsksxds6qkuis.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UNISONIA  
+##### 38347#       发表于 2025-3-20 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67691631&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-3-20 10:32</a>
+
+鸡有可能是剧情大改导致返工?</blockquote>
+经济利益上一般现代动画不会那么做，真有返工访谈也不会避谈
+

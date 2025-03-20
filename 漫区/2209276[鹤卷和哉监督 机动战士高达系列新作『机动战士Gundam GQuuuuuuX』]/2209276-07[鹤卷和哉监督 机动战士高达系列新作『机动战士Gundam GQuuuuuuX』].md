@@ -972,3 +972,15 @@ Z，ZZ，逆鸭和Gqux应该都没什么太大关系了，值得细看的东西�
 本作是以0079年夏亚成功夺取高达后开启的新作品，电影前半部分是以夏亚为主视角的0079年一年战争另类发展 ...</blockquote>
 明白了，谢谢
 
+
+*****
+
+####  完美的消费品  
+##### 8968#       发表于 2025-3-20 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67690763&amp;ptid=2209276" target="_blank">七七見奈波 发表于 2025-3-20 08:00</a>
+要是3号上就好了，下班直接拉同事去看，休假不太容易把她拖出来，好容易她表现出“好奇！想看”了 ...</blockquote>
+应该有零点场吧
+
+—— 来自 HONOR FCP-AN10, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
