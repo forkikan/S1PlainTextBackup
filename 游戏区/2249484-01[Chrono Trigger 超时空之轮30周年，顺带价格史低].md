@@ -489,3 +489,14 @@ ct哪有什么重制，还是说nds版叫重制，pc本来也就是nds上移植�
 
 CT的主角团在CC里真的是完蛋了吗？
 
+
+*****
+
+####  猪突猛进R  
+##### 45#       发表于 2025-3-20 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67695340&amp;ptid=2249484" target="_blank">伊頭臭作 发表于 2025-3-20 18:46</a>
+
+虽然问过很多次了，但还想问下：</blockquote>
+你可以理解为CC是CT第13个结局（NDS及之后移植版新增）的后续发展，但CT并不是只有这一个结局。
+
