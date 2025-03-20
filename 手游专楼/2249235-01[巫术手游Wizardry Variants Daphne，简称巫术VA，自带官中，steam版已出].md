@@ -1432,3 +1432,14 @@ wiki说第三个图（要塞）的垃圾会出苦无和忍者刀，不过我还�
 活动兑换的装备限量每种3件，是只能强化到+10？</blockquote>
 只拿一把就能+15，但是对一般人来说拉满不划算
 
+
+*****
+
+####  macshi  
+##### 117#       发表于 2025-3-20 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67693417&amp;ptid=2249235" target="_blank">风浦可符香(P.N) 发表于 2025-3-20 14:26</a>
+
+只拿一把就能+15，但是对一般人来说拉满不划算</blockquote>
+除了强化外这些兑换装备是出固定星级和品质，还是随缘？
+

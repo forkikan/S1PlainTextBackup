@@ -2523,3 +2523,19 @@ Snipaste_2025-03-19_16-16-48.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我ps和pc都是在横滨门口刷三个警察到20级，然后开始爽砍
 
+
+*****
+
+####  寂长无星夜  
+##### 3651#       发表于 2025-3-20 16:15
+
+还是希望忍组能升级下引擎照着浪人这模式做下去，可惜没啥希望了<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Lorraine_Kinney  
+##### 3652#       发表于 2025-3-20 16:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
