@@ -1397,3 +1397,16 @@ wiki说第三个图（要塞）的垃圾会出苦无和忍者刀，不过我还�
 
 活动兑换的装备限量每种3件，是只能强化到+10？
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 114#         楼主| 发表于 2025-3-20 14:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67691710&amp;ptid=2249235" target="_blank">废柴失格 发表于 2025-3-20 10:43</a>
+
+掉水里了，出不去，还好我早就预料到了这种情况，带了钩子，水里为啥不能用钩子。
+
+淹死了，不敢节约火了， ...</blockquote>
+9成你游玩家不得不品的一环，醍醐味<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+

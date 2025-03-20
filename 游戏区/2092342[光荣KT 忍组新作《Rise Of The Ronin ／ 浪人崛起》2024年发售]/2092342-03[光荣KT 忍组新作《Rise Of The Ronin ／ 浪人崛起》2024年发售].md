@@ -2452,3 +2452,14 @@ Snipaste_2025-03-19_16-16-48.png
 
 我现在是当战斗版刺客信条在玩...
 
+
+*****
+
+####  慕容断月  
+##### 3645#       发表于 2025-3-20 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67692993&amp;ptid=2092342" target="_blank">woshenc 发表于 2025-3-20 13:32</a>
+
+我现在是当战斗版刺客信条在玩...</blockquote>
+这游戏玩起来就特别像2代三部曲的刺客信条，基本能当现代+战斗增强版来玩，而且地图内容量填充适度，挺好的
+
