@@ -3721,3 +3721,193 @@ wsd唯一没打好的算盘就是高估了一些网友对长视频的鉴赏能�
 对不起大河内，对不起水星的魔女，我真的和水魔 ...</blockquote>
 水魔的时候不也有人剑指大河内脚本单集切割烂炒制作组吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跟独角兽厨比起来不遑多让
 
+
+*****
+
+####  厄神之息  
+##### 38857#       发表于 2025-3-20 23:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">顺带，谁来数数，母鸡卡已经有多少次刻意的搞名台词复用了？搞得跟春晚垃圾小品尬烂梗一样真牛逼啊，就差让祥子在左边拉横幅“脑子脑子脑脑子”soyo右边拉横幅“欧内欧内欧内该”了，想复刻mygo那倒是不看看mygo里台词重复率有这么高吗？
+
+*****
+
+####  MuramasaSP  
+##### 38858#       发表于 2025-3-20 23:49
+
+这真的是从第六话开始最舒服的一话了。
+
+之前想起自己一直期待的动画和最喜欢的角色被糟蹋成这样，气得饭都吃不下，今天看完以后心态好了很多。
+
+剧中的角色磕了蓝冰，我从去年四月看完mygo也是磕了蓝冰，看完mujica第一话彻底上瘾。当祥子不断逃避、伤害别人、反复横跳，被场外观众封÷时，真的是我acg生涯最痛苦的事情。
+
+今天看完十二话后，感觉大脑突然变得放松起来，我想看到的那个为了创建自己的归宿不断前进、战斗，最终会获得成长和灯睦等人互相拯救的祥子，和制作组理解中的祥子完全不一样。
+
+我还是很喜欢祥子，但我可能不会像之前一样，想象着仿佛在另一个世界真的有一个名叫丰川祥子的灵魂。我会把她当作一个普通的二次元抽卡手游里，长得很可爱，声音很好听的角色去喜爱。
+
+*****
+
+####  一心而用  
+##### 38859#       发表于 2025-3-20 23:50
+
+绝望的cp厨
+<img src="https://p.sda1.dev/22/ad337d0e33f8e80e58ff38fd9e55260e/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  影伴光生  
+##### 38860#       发表于 2025-3-20 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698280&amp;ptid=2208921" target="_blank">厄神之息 发表于 2025-3-20 23:48</a>
+顺带，谁来数数，母鸡卡已经有多少次刻意的搞名台词复用了？搞得跟春晚垃圾小品尬烂梗一样真牛逼啊，就差让 ...</blockquote>
+不止是台词，场景复用回忆杀也搞了好多次，但是在10集live的时候却搬不出几个合适的画面
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  一心而用  
+##### 38861#       发表于 2025-3-20 23:50
+
+<img src="https://p.sda1.dev/22/3995781ba06f744932753480ba0fa97c/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  古戸絵梨花  
+##### 38862#       发表于 2025-3-20 23:50
+
+真的包了饺子了吗，大祥老师最后真的开心吗，那封信看着向是在向灯告别。
+
+*****
+
+####  最强惠酱  
+##### 38863#       发表于 2025-3-20 23:50
+
+你是告诉我其实祥子正常坐迈巴赫上学不搞什么大龙凤一切会自己回归普通，爹都会自己重返社会吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 38864#       发表于 2025-3-20 23:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">难道不是什么normal end或者伪ge真be么，爷爷也没被真正打倒，木子米被乡毋宁🐮走，🐘也变成了神人（自称）
+
+*****
+
+####  remediosOlOOOO  
+##### 38865#       发表于 2025-3-20 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697143&amp;ptid=2208921" target="_blank">qwased 发表于 2025-3-20 22:34</a>
+另外这一集不就是纯纯的在深夜档播出的情感八点档吗？</blockquote>
+你难道以为这话在MyGo播出的时候没人说过吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  是谁的书画  
+##### 38866#       发表于 2025-3-20 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698305&amp;ptid=2208921" target="_blank">反方向的波 发表于 2025-3-20 23:50</a>
+
+难道不是什么normal end或者伪ge真be么，爷爷也没被真正打倒，木子米被乡毋宁🐮走，🐘也变成了神人（自称） ...</blockquote>
+是神，不是神“人”（指证）
+
+*****
+
+####  岬开斗  
+##### 38867#       发表于 2025-3-20 23:53
+
+可以解释为祥子一直被老登PUA了十几年，结果机场铁人三项都没人追没人拦，终于意识到自己想干啥就干啥，老登对自己没有任何强制能力。
+你一个赘婿出身，凭什么在这儿耀武扬威？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  qjw114514  
+##### 38868#       发表于 2025-3-20 23:53
+
+在我这个前睦祥推看来，看来母鸡卡完全是最恶劣的那一档<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">好多年没看过这么恶心的核废料了，是属于我的兽娘2重现
+你不打算卖，设定什么幼驯染？搞什么一起走向毁灭的硬绑定？杂志上扯一堆有的没的把人骗进来，然后呢？
+童年回忆是没有的
+互相交心是没有的
+出来公式化卖一卖然后赶快滚蛋别碍眼，然后请给我们钱
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  南宮凝香  
+##### 38869#       发表于 2025-3-20 23:53
+
+所以我就說母雞卡是黑暗版HHW
+
+接下來就是荼毒幼稚園生
+
+用迈巴赫之力到幼稚園演中二小劇了
+
+*****
+
+####  厄神之息  
+##### 38870#       发表于 2025-3-20 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698302&amp;ptid=2208921" target="_blank">古戸絵梨花 发表于 2025-3-20 23:50</a>
+
+真的包了饺子了吗，大祥老师最后真的开心吗，那封信看着向是在向灯告别。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">疯一个和疯九个之间做选择，那疯一个总好过疯九个，这么想的话大祥封心锁爱，称为神（人）也没什么不好。
+
+*****
+
+####  秘银mithril  
+##### 38871#       发表于 2025-3-20 23:54
+
+怎么会有水平这么差的剧本
+
+我感觉完全没有讨论剧情内容的价值，这剧本像小学生或者初中生写的，想到什么写什么，中间的过程完全不考虑（或者因为没有认知无法考虑）
+
+这个剧本甚至不能说是个故事，在”剧情烂“之前它根本就没有剧情
+
+*****
+
+####  gammatau  
+##### 38872#       发表于 2025-3-20 23:55
+
+11集的时候挽回局势的办法
+
+1 揭露之前所有人的角色崩坏和神人化都是SCP3125的触角化为柿子树根渗入邦邦世界导致的，为了拯救大祥，初音燃烧自己将沉重的劣等感和爱写成歌唱向世界，超越叙事层，杀死了3125，世界重置
+
+2 精神崩溃的大祥遇到马希洛，她背后不再是彩虹色的云中世界而是火海和燃烧的鲸鱼，大祥发现自己是弦卷和丰川让世界充满笑容计划的产物，母亲“Big Boss”的复制人Solid Elephant，在一番搏斗后打倒了代号Zero的老登
+
+3 我刚才脑子里一闪而过但是忘了，再想想
+
+*****
+
+####  斯大林的拖拉机  
+##### 38873#       发表于 2025-3-20 23:56
+
+不是，真有点吓人吧，感觉像恐怖片主角心态崩溃之后的幻想世界，下一秒这些伪人就要崩坏把主角拉回恐怖片的世界了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 38874#       发表于 2025-3-20 23:57
+
+<img src="https://p.sda1.dev/22/e23da1b79f794cd3c32f019acc2850c5/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  古戸絵梨花  
+##### 38875#       发表于 2025-3-20 23:57
+
+这集埋了这么多伏笔，下一集肯定不会是单纯的live吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  扶桑洛槿  
+##### 38876#       发表于 2025-3-20 23:57
+
+<blockquote>aptx8285144 发表于 2025-3-20 22:59
+那为什么当初还需要老登付赔偿金，为什么大祥解决不了168忆，为什么留不住中登在自己豪宅，既然大祥是正 ...</blockquote>
+因为大祥手里没有老登把柄，和老登爆了怕被老登咬下丰川家一口肉。
+
+现在有老登把柄了，老登不听话那就把初音这牌打出来，分分钟让老登姓不了丰川。
+

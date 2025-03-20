@@ -2749,3 +2749,16 @@ B站刷到的视频好像大部分都是玩太刀和双刀的，是别的武器�
 
 回错编辑
 
+
+*****
+
+####  廖化  
+##### 3672#       发表于 2025-3-20 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67695675&amp;ptid=2092342" target="_blank">Horusddt 发表于 2025-3-20 19:49</a>
+
+行商是固定刷新的，找个近的传送点传一下再跑过来就可以刷</blockquote>
+求问下，哪里可以看到行商路线，我传送之后再过来就没人了……
+
+现在狂缺礼物……<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
+
