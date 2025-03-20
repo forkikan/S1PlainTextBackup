@@ -1448,3 +1448,30 @@ UC纪元第一大财团是AE，第二大财团其实是罗商会（也大量参�
 
 加了本地的IMAX观影团群，说是会送免费周边物料，可能是海报<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Steel.Haze  
+##### 8998#       发表于 2025-3-21 02:33
+
+UC纪元第一大财团是AE，第二大财团其实是罗商会（也大量参与殖民卫星建设投资）所以有一定的文化渗透也不奇怪。本来罗商会在动画里面的形象是比起AE兼顾军火，本身更财团化，更地球圈传统财阀风格。但是文豪追加创作下...罗商会越来越能打了...豢养精英佣兵，接手了卡拉巴的迪杰生产线和技术...还曾有少量百式衍生机。
+
+*****
+
+####  wsktcy  
+##### 8999#       发表于 2025-3-21 04:15
+
+加了本地的IMAX观影团群，说是会送免费周边物料，可能是海报<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  太极八爪鱼  
+##### 9000#       发表于 2025-3-21 05:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67689222&amp;ptid=2209276" target="_blank">kuriri 发表于 2025-3-19 05:21</a>
+
+看0079头两话tv版或者电影版的头20分钟认识一下夏亚就够了，然后你会知道：
+
+1，原版0079夏亚的部下惹祸 ...</blockquote>
+还有最重要的一点你没说，夏亚亲妹的乳头是粉红色的<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
