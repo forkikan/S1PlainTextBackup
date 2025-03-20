@@ -16089,3 +16089,38 @@ image.png
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67691602&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-3-20 10:28</a></blockquote>
 双子加双重人格，这不会也是逆输入吧
 
+
+*****
+
+####  须贺兰  
+##### 38351#       发表于 2025-3-20 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67689873&amp;ptid=2208921" target="_blank">太二EricGuo 发表于 2025-3-19 23:01</a>
+
+十五年未有之小姨</blockquote>
+第一张截图中的“西田”指的是西田亚沙子吧，那么“BD延期”应该是《电波女与青春男》的BD第四卷延期
+
+从第二、第三张截图中的时间来看，是在《电波女与青春男》TV动画的制作期（TBSアニメフェスタ2010宣布动画化，2011年4月14日开播）
+
+这部作品对绫奈影响这么大啊<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 38352#       发表于 2025-3-20 10:57
+
+双子在一方死亡后决定伪装成另一方活下去也不算很奇怪的设计吧。
+
+但是放在初华身上那就多重套皮了。
+
+初华决定扮演初音，初华扮演的初音决定伪装成初华来到东京。
+
+*****
+
+####  天空塔书记官  
+##### 38353#       发表于 2025-3-20 10:59
+
+入间人间害人不浅，不过他也早就是百合作家了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
