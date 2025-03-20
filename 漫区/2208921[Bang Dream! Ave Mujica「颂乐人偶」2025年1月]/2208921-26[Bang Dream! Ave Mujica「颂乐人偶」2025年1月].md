@@ -16288,3 +16288,15 @@ TORASENBEI
 
 3d不就是背景穿帮太多才有重置时间线的假药。
 
+
+*****
+
+####  厄神之息  
+##### 38368#       发表于 2025-3-20 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67691806&amp;ptid=2208921" target="_blank">须贺兰 发表于 2025-3-20 10:55</a>
+第一张截图中的“西田”指的是西田亚沙子吧，那么“BD延期”应该是《电波女与青春男》的BD第四卷延期
+
+从 ...</blockquote>
+你别说，电波女的有遗憾有成长能放下才是青春的内核和狗还有点像，可以说是高配卖狗。就是不知道到狗怎么变成了这个鸟样，青春没了，成长没了，就剩下一帮变态伪人互相折磨了，也是一种主题相反吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
