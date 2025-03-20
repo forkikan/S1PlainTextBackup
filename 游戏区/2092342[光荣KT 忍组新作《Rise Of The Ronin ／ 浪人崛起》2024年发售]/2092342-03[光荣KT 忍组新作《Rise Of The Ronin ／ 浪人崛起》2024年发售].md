@@ -2431,3 +2431,16 @@ Snipaste_2025-03-19_16-16-48.png
 这游戏一对多的情况倒也没那么粪吧，有没有点技能里那些石 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这游戏前期还行，但是到第三章开始初见端倪，到暗夜开始忍者组熟悉的感觉又回来了
 
+
+*****
+
+####  Lorraine_Kinney  
+##### 3643#       发表于 2025-3-20 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67684323&amp;ptid=2092342" target="_blank">woshenc 发表于 2025-3-19 10:14</a>
+
+横滨全地图100%了，剩下一个主线任务没做，今晚大概可以收尾了
+
+求教哪几个流派比较好用？ ...</blockquote>
+双刀二天一流，一技能二技能自带位移，非常强，压制型流派
+
