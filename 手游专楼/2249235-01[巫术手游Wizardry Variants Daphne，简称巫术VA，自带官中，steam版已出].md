@@ -1494,3 +1494,14 @@ wiki说第三个图（要塞）的垃圾会出苦无和忍者刀，不过我还�
 啊？武器不好吗</blockquote>
 第三章的武器比这把好，而且双手武器地位很低，低等级时拿到可以拿来撑数值，不要花太多钱和石头在上边
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 123#         楼主| 发表于 2025-3-20 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67694266&amp;ptid=2249235" target="_blank">macshi 发表于 2025-3-20 16:17</a>
+
+除了强化外这些兑换装备是出固定星级和品质，还是随缘？</blockquote>
+这次活动的武器和饰品应该都是固定三星蓝色二突(为了让你三把换满刚好可以强化到满突)
+
