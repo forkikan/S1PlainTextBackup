@@ -2591,3 +2591,13 @@ Snipaste_2025-03-19_16-16-48.png
 
 一打多其实用武技挺好打的，是个武技都有霸体。连立身流的四方破长按调整时机都是霸体
 
+
+*****
+
+####  Horusddt  
+##### 3658#       发表于 2025-3-20 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67694710&amp;ptid=2092342" target="_blank">廖化 发表于 2025-3-20 17:15</a>
+刷好感的礼品一般哪里有，我只在路上随机的行商和赌场遇到过，有固定的刷礼物地点吗 ...</blockquote>
+行商是固定刷新的，找个近的传送点传一下再跑过来就可以刷
+

@@ -16891,3 +16891,15 @@ mujica不会最后真变成高中生喝茶乐队吧 也太JB搞笑了
 
 还是老实点被抽回来喝茶比较好。
 
+
+*****
+
+####  zhzij111  
+##### 38409#       发表于 2025-3-20 19:56
+
+ 本帖最后由 zhzij111 于 2025-3-20 19:57 编辑 
+
+睦头死了是真的牢祥主责，明知道睦头自闭还利用她帮自己组乐队搞热度，邦邦第一杀人魔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
