@@ -1378,3 +1378,14 @@ wiki说第三个图（要塞）的垃圾会出苦无和忍者刀，不过我还�
 
 真就是被水淹没不知所措。<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  棍机凹升龙  
+##### 112#       发表于 2025-3-20 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67692052&amp;ptid=2249235" target="_blank">废柴失格 发表于 2025-3-20 11:25</a>
+
+有AOE队友的话,10多个小时左右,就能刷满20级。活动不用打龙也可以，捡宝箱换东西就行，时间充足的很。 ...</blockquote>
+目前队伍是爱丽丝+亚当+公主+盗贼+战士，好像有点太平均<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
