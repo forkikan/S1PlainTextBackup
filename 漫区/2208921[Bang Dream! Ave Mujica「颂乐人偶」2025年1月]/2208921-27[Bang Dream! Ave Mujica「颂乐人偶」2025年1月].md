@@ -1515,3 +1515,440 @@ who cares妹妹是谁，妹妹又不是ave mujica成员没写过imprisonedxii没
 大概是这个意思为啥怎么个想法就不重要了 ...</blockquote>
 真实吸冰了写出来的剧情
 
+
+*****
+
+####  ykyin09  
+##### 38639#       发表于 2025-3-20 22:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">直接把1和12接起来中间的全都扔掉貌似也不影响观感
+
+*****
+
+####  轮太  
+##### 38640#       发表于 2025-3-20 22:49
+
+老登：你不知道丰川家的黑暗！
+
+大祥：我就是黑暗。
+
+
+*****
+
+####  壳壳牛  
+##### 38641#       发表于 2025-3-20 22:49
+
+槽点太多
+
+无惧遗忘了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 38642#       发表于 2025-3-20 22:49
+
+大祥早点想明白自己才是丰川家正统老登才是手套就完事了。
+
+结果这话又在那整最速出道，下话果然是分开live了
+
+*****
+
+####  是谁的书画  
+##### 38643#       发表于 2025-3-20 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697415&amp;ptid=2208921" target="_blank">与何人说 发表于 2025-3-20 22:48</a>
+
+真实吸冰了写出来的剧情</blockquote>
+就给人感觉是没头没尾的来了怎么一句<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 38644#       发表于 2025-3-20 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697404&amp;ptid=2208921" target="_blank">sauron.j 发表于 2025-3-20 22:47</a>
+
+这台词水平和前5集根本不像是一个作品</blockquote>
+与其说是台词水平，倒不如说像是某种世界线的母鸡卡版的go吧，当然是童话版的
+
+*****
+
+####  Sherrycat  
+##### 38645#       发表于 2025-3-20 22:50
+
+祥子：我要复活母鸡卡 
+
+经纪公司：不行❌ 你祖父得同意 
+
+祥子：不用 因为我是母鸡卡的ob一串字母女士 丰川祥子
+
+不是 你是谁啊？不是前两天给我送报纸📰的那妹妹吗？
+
+柿本 这就是你的斗财团吗？斗嘴啊？
+
+祖父神神叨叨丰川家的可怕😱到底可怕在哪？我请问了 这么可怕你都要私生一个孩子啊 专坑儿子啊 我看倒霉的只有祥爹啊
+
+哦哦 你说祥子是神啊 那没事了🙂
+
+*****
+
+####  ykyin09  
+##### 38646#       发表于 2025-3-20 22:50
+
+最后全员包饺子那段感觉是1-12集观感最好的一段，至于13只能期望live能搞好点了
+
+*****
+
+####  乙津夢  
+##### 38647#       发表于 2025-3-20 22:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哎，没苦硬吃，哎，龙王归来，所以就算真是大小姐过家家你们还不是得好生陪着，毕竟丰川祥子就是丰川家的黑暗啊
+
+最后，音乐和乐队对于祥子来说究竟意味着什么呢，灯皇是必须借由歌曲和歌词来进行自我表达，但对于祥子来说，组乐队大概是因为她小时候恰好学的是钢琴吧
+
+*****
+
+####  连天逢雨衣未干  
+##### 38648#       发表于 2025-3-20 22:50
+
+我和解了，这片就这样吧，下集看看live ，卖卖角色，别再整其他幺蛾子了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  猫执事  
+##### 38649#       发表于 2025-3-20 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697351&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-3-20 22:44</a>
+
+祥子生物爹就被她随手丢给老登了？</blockquote>
+丰川家真正的当主大祥已经认定是老登算计了中登，事实究竟如何不重要了。
+
+*****
+
+####  油画布  
+##### 38650#       发表于 2025-3-20 22:50
+
+再见了 希望还能在别处看到诗超绊
+
+*****
+
+####  ntrntr1  
+##### 38651#       发表于 2025-3-20 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697271&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-20 22:40</a>
+
+大祥的演说，其他还好，看到不择手段四个字还是有点pstd发作，你们神人主创没有胆子写有魅力的坏角色就别随 ...</blockquote>
+怎么个不择手段法？
+
+下次不打工了，直接说老子就是丰川家指定继承人<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  2017.05.04  
+##### 38652#       发表于 2025-3-20 22:51
+
+这集观感好太多了
+
+*****
+
+####  UNISONIA  
+##### 38653#       发表于 2025-3-20 22:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">特地要点一下讨厌咖啡的气味，这个细节绝了
+
+*****
+
+####  adretyu67.  
+##### 38654#       发表于 2025-3-20 22:51
+
+中登本质就是一个振作起来当人的镜头就差不多了，戏份再多也是浪费
+
+
+*****
+
+####  aptx8285144  
+##### 38655#       发表于 2025-3-20 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697399&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-3-20 22:47</a>
+
+这集字面意义上边看边笑，比前11集加起来笑得都多了
+
+话说真初华既然都搬到日本本土了，前面究竟是在干什么 ...</blockquote>
+社长还打算终止sumimi，不过不用担心，白祥一出，全场都要跪拜，丰川家的其他大手？<strong>没关系已经拜托老登去对付了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"></strong>
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 38656#       发表于 2025-3-20 22:52
+
+祥子这个我是神感觉可以当今后10年的梗图了
+
+*****
+
+####  卡密sama  
+##### 38657#       发表于 2025-3-20 22:52
+
+真初华没戏份吗？我还以为能看到。
+
+*****
+
+####  m99999  
+##### 38658#       发表于 2025-3-20 22:53
+
+好烂的剧本，还不如前面整活的集数有意思
+
+*****
+
+####  你妈的为什么  
+##### 38659#       发表于 2025-3-20 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697435&amp;ptid=2208921" target="_blank">轮太 发表于 2025-3-20 22:49</a>
+
+老登：你不知道丰川家的黑暗！
+
+大祥：我就是黑暗。</blockquote>
+难怪要戴假面
+
+原来是为了成为deep dark fantasy<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 38660#       发表于 2025-3-20 22:53
+
+以后每个大女主都可以进阶成为“神”了，真的发明创造这块确实这片子拉满了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 38661#       发表于 2025-3-20 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697399&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-3-20 22:47</a>
+
+这集字面意义上边看边笑，比前11集加起来笑得都多了
+
+话说真初华既然都搬到日本本土了，前面究竟是在干什么 ...</blockquote>
+没提。事务所那边阿姨应该是讨论让甜甜圈单飞的事。然后大祥直接冲进来强调我的权力是无限的直接征用初华去鸡团了。
+
+没多说那就是sumimi拆完了。
+
+*****
+
+####  ntrntr1  
+##### 38662#       发表于 2025-3-20 22:54
+
+赘婿，跪下
+
+小姨，坐坐
+
+*****
+
+####  zhoujin8584  
+##### 38663#       发表于 2025-3-20 22:54
+
+<blockquote>影伴光生 发表于 2025-3-20 22:37
+毕竟🐘老师爱的是红茶，金毛怎么连这个都不清楚，跟踪了个寂寞
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+金毛清楚啊，大祥老师自己点从来就是红茶，祥子也说了“你这个人满脑子都是自己呢”
+
+*****
+
+####  曼彻斯特联  
+##### 38664#       发表于 2025-3-20 22:54
+
+丰川家的黑暗（赘婿限定）
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  反方向的波  
+##### 38665#       发表于 2025-3-20 22:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">那上一话纯纯初音独角戏的意义又何在，锻炼李子演技是吧
+
+*****
+
+####  废马尔  
+##### 38666#       发表于 2025-3-20 22:54
+
+有没有看了母鸡卡才喜欢祥子的，我看这个蓝色章鱼好像真有点可爱
+
+*****
+
+####  十九号大侠  
+##### 38667#       发表于 2025-3-20 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697513&amp;ptid=2208921" target="_blank">废马尔 发表于 2025-3-20 22:54</a>
+
+有没有看了母鸡卡才喜欢祥子的，我看这个蓝色章鱼好像真有点可爱</blockquote>
+祥子画的确实好看，有一说一，是因为双马尾吗
+
+*****
+
+####  6030sylar  
+##### 38668#       发表于 2025-3-20 22:55
+
+<img src="https://img.saraba1st.com/forum/202503/20/225510zzcpicdi8p4cpupf.jpg" referrerpolicy="no-referrer">
+
+<strong>7CS1{BDR()F2O`8ZHZM_LFR_tmb.jpg</strong> (128.52 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-20 22:55 上传
+
+小明又来串了
+
+*****
+
+####  油画布  
+##### 38669#       发表于 2025-3-20 22:55
+
+第三季 大女主真奈复仇记
+
+*****
+
+####  jaewoongh_  
+##### 38670#       发表于 2025-3-20 22:55
+
+所以第11集的意义是什么，我寻思这集用2分钟就解决了这个问题
+
+*****
+
+####  风真人  
+##### 38671#       发表于 2025-3-20 22:55
+
+光速和解，那前面硬撑这么多集搞得苦难是为了什么？虽然从脚本到编剧连观众都知道要包饺子了，真吃到的时候还是，也只能这样了，如果把前面这么多垃圾时间压缩，会不会真的有救呢
+
+*****
+
+####  ntrntr1  
+##### 38672#       发表于 2025-3-20 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697478&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-3-20 22:52</a>
+
+祥子这个我是神感觉可以当今后10年的梗图了</blockquote>
+已经有和狐神放一起的梗了 
+
+但祥神比狐神牛，狐神只会在那叨叨逼逼信狐神得永生然后挨打，祥神一句我是祥神全场都得答应
+
+*****
+
+####  adretyu67.  
+##### 38673#       发表于 2025-3-20 22:56
+
+融合睦直接回退到黄瓜版本了，只不过换了个爱好种苦瓜去了。
+
+莫头果然是只能存在在舞台上的存在吗。
+
+*****
+
+####  Hchan  
+##### 38674#       发表于 2025-3-20 22:56
+
+这集真的好没意思，之前十一集不管优劣，一直是有活的
+
+*****
+
+####  十九号大侠  
+##### 38675#       发表于 2025-3-20 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697545&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-20 22:56</a>
+
+融合睦直接回退到黄瓜版本了，只不过换了个爱好种苦瓜去了。
+
+莫头果然是只能存在在舞台上的存在吗。 ...</blockquote>
+黄瓜没味，苦瓜有味，是不是要这样思考啊
+
+*****
+
+####  与太郎  
+##### 38676#       发表于 2025-3-20 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697498&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-20 22:53</a>
+
+没提。事务所那边阿姨应该是讨论让甜甜圈单飞的事。然后大祥直接冲进来强调我的权力是无限的直接征用初华 ...</blockquote>
+我的意思是下一集（或者剧场版、手游剧情）总得提一句初华母女在干什么吧，总不能是假装搬家其实是被老登沉东京湾了
+
+sumimi不是还要参与对邦吗，总得有个名分吧，那最有可能是安排真初华出道了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 38677#       发表于 2025-3-20 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697531&amp;ptid=2208921" target="_blank">jaewoongh_ 发表于 2025-3-20 22:55</a>
+
+所以第11集的意义是什么，我寻思这集用2分钟就解决了这个问题</blockquote>
+给豚豚骂柿本拉一裤子屎的机会<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kenqqex  
+##### 38678#       发表于 2025-3-20 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697512&amp;ptid=2208921" target="_blank">反方向的波 发表于 2025-3-20 22:54</a>
+
+那上一话纯纯初音独角戏的意义又何在，锻炼李子演技是吧</blockquote>
+让木古高明在推特说出本片破题关键
+
+丰川祥子权力其实是丰川家最大的 (
+
+*****
+
+####  暴走的包子  
+##### 38679#       发表于 2025-3-20 22:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这大祥老师除了妈死了以外简直就是凤傲天啊，绝壁是小红书爆款了，为了自己的幸福果断抛弃生物蝶
+
+*****
+
+####  Victorino  
+##### 38680#       发表于 2025-3-20 22:57
+
+<blockquote>aptx8285144 发表于 2025-3-20 22:43
+不需要老登的许可，但是我是丰川祥子，哎，什么时候去改名呀</blockquote>
+老登身上没有丰川的血，现在拥有丰川正统血脉的仅此一人
+
+
+*****
+
+####  你妈的为什么  
+##### 38681#       发表于 2025-3-20 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697531&amp;ptid=2208921" target="_blank">jaewoongh_ 发表于 2025-3-20 22:55</a>
+
+所以第11集的意义是什么，我寻思这集用2分钟就解决了这个问题</blockquote>
+说明在初音心里天大的问题，在作为丰川家当主的权力是无限的🐘老师面前都不是问题
+
+这样才能引出新世界的卡密🐘
+
+我悟了！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rollingusagi  
+##### 38682#       发表于 2025-3-20 22:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">这下说mujika就是翻版hhw我看还有谁反对，祥子这不就是另一个kkr，坐拥超大家族势力，就看她想不想
+
+*****
+
+####  南宮凝香  
+##### 38683#       发表于 2025-3-20 22:57
+
+<blockquote>zhoujin8584 发表于 2025-3-20 22:54
+金毛清楚啊，大祥老师自己点从来就是红茶，祥子也说了“你这个人满脑子都是自己呢” ...</blockquote>
+這次上咖啡是合理的
+
+祥子鐵人三祥一天從東京跑到外島再跑回東京，
+
+去偷家接早晨玩蟲
+
+然後要去排練了
+
+不灌咖啡動不下去的
+
