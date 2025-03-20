@@ -5258,3 +5258,76 @@ emmm，蝶和双子团全员，双R的低龄成员，还有未解明的梦限大
 —— 来自 鹅球 v3.3.9 ...</blockquote>
 划小船直接炸了，学生会都抓不到人了。
 
+
+*****
+
+####  哈曼的YY  
+##### 38994#       发表于 2025-3-21 01:09
+
+真的不如不写吗 这集观感不比双重人格拉扯好多了 祥老师的内心活动和行动力也突然复活了 前面被十本按着头当了多久人偶啊
+
+*****
+
+####  月神夜  
+##### 38995#       发表于 2025-3-21 01:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698777&amp;ptid=2208921" target="_blank">思绪云骞 发表于 2025-3-21 00:40</a>
+
+我看了一遍，第1集是一个叫做后藤绿的人和独角兽的一起写的脚本，然后第2到11集都没有独角兽，然后到第12集 ...</blockquote>
+这么一说确实有可能
+
+*****
+
+####  cxj649  
+##### 38996#       发表于 2025-3-21 01:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698967&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-21 01:07</a>
+
+划小船直接炸了，学生会都抓不到人了。</blockquote>
+月之森反向，直接二年级当，三年级没人233
+
+
+*****
+
+####  adretyu67.  
+##### 38997#       发表于 2025-3-21 01:13
+
+ 本帖最后由 adretyu67. 于 2025-3-21 01:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698990&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-3-21 01:10</a>
+
+月之森反向，直接二年级当，三年级没人233</blockquote>
+瑠唯的资历相当夸张，她是初中部开始就在学生会帮忙。前任是高三毕业了。
+
+按照这个趋势下一届月之森学生会长应该也是空降新人来做，爽和睦希望不大。
+
+*****
+
+####  岬开斗  
+##### 38998#       发表于 2025-3-21 01:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698981&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-3-21 01:09</a>
+真的不如不写吗 这集观感不比双重人格拉扯好多了 祥老师的内心活动和行动力也突然复活了 前面被十本按着头 ...</blockquote>
+倒数第二集了再没行动力下一集怎么开live？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  凉良  
+##### 38999#       发表于 2025-3-21 01:16
+
+这集有问题的就不是这集的问题 是TM前面拉扯双重人格CCC浪费时间的问题。  这集感情和内心描写不比前面清晰的多
+
+*****
+
+####  天空塔书记官  
+##### 39000#       发表于 2025-3-21 01:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698967&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-21 01:07</a>
+划小船直接炸了，学生会都抓不到人了。</blockquote>
+看看管人团往哪补吧，其实只要有两三个在高二就行，夏洛特也不是不能挑大梁，羽丘一直都是最健康的，pareo以后进羽丘的概率不小，月之森则是蝶的主场，至于RAS那几所外校估计还是只能当背景板了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

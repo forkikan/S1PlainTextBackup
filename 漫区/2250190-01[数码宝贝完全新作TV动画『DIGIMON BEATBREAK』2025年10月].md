@@ -566,3 +566,13 @@ dtcg手游什么时候出啊？dtcg规则看起来比ptcg好玩，想尝试玩�
 整张图调亮些
 <img src="https://p.sda1.dev/22/c8fd0cdbb4100bd9f228803184eb48cb/IMG_20250320_205015.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 56#       发表于 2025-3-21 01:08
+
+bb主角这发型发色像打牌的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
