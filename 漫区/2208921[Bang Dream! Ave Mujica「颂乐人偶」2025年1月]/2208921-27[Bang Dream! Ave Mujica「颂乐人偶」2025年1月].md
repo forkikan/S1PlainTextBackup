@@ -9402,3 +9402,33 @@ lof：风
 
 当然独角兽这个系构也跑不掉，女女关系性设定的好不是你挂着名还搞阴湿切割的理由<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一心而用  
+##### 39339#       发表于 2025-3-21 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67704832&amp;ptid=2208921" target="_blank">GBLMikuHatsune 发表于 2025-3-21 18:08</a>
+怎么说呢，无论这是不是阴湿中年樱花妹的本意，12集的cp确实给了我一些不一样的。。。口感？
+
+初祥:</blockquote>
+爱灯呢？就变成同学关系了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  油画布  
+##### 39340#       发表于 2025-3-21 18:15
+
+<blockquote>钦念以忱 发表于 2025-3-21 17:47
+所以有些粉丝说mygo有很多爱素的好描写无心插柳柳成荫，mujica没有，是因为独角兽走人了，我觉得难说。
+
+ ...</blockquote>
+看独角兽亲自操刀的第十二集文戏这么烂，是否后藤绿才是真的隐藏功臣
+
+*****
+
+####  aisakahammer  
+##### 39341#       发表于 2025-3-21 18:16
+
+更多关系要进手游拓展dlc了，看下一集live放什么歌了
+
