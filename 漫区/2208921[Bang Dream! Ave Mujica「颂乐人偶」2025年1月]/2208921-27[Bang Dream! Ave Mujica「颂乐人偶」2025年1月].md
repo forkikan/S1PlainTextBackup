@@ -9788,3 +9788,40 @@ https://nga.178.com/read.php?&amp;tid=43592965&amp;pid=814771685&amp;to=1
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  LeonsCat  
+##### 39369#       发表于 2025-3-21 20:41
+
+烂。
+
+*****
+
+####  GBLMikuHatsune  
+##### 39370#       发表于 2025-3-21 20:42
+
+从12集回看，前11集内容真的水到不行，就算是爆爆爆也没有实质的人物塑造来填充。
+
+如果单纯以达成12集这些cp来写一个纯女女关系性轻百+一些精彩的live，而不是想着烂炒那些有的没的人设和莫名其妙的剧情爆点，那mujica真王朝了吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 39371#       发表于 2025-3-21 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67705931&amp;ptid=2208921" target="_blank">GBLMikuHatsune 发表于 2025-3-21 20:42</a>
+
+从12集回看，前11集内容真的水到不行，就算是爆爆爆也没有实质的人物塑造来填充。
+
+如果单纯以达成12集这些c ...</blockquote>
+蚀本和独角兽“深明大义”，没让乐队番的评分继续王朝下去，属于泥潭三冠王的王朝就此落幕<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  梅杜莎  
+##### 39372#       发表于 2025-3-21 20:48
+
+Sumimi散不了吧，社长以为初音回不来才准备安排真奈单飞，现在初音又回来，肯定继续两边跑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

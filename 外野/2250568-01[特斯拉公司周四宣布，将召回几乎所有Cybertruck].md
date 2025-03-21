@@ -371,3 +371,30 @@ cybertruck这种一眼又丑又土做工又差的皮卡当初能炒起来也是�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  wwyz12345  
+##### 43#       发表于 2025-3-21 20:39
+
+关键召回怎么改，换一种胶水再涂一遍？
+
+
+*****
+
+####  super_uni  
+##### 44#       发表于 2025-3-21 20:43
+
+快进到航母用胶水<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  miyamotoruri  
+##### 45#       发表于 2025-3-21 20:47
+
+我的纳指啊<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
