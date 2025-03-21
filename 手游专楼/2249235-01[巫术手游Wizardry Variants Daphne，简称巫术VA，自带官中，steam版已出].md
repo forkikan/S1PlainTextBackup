@@ -1670,3 +1670,21 @@ wiki说第三个图（要塞）的垃圾会出苦无和忍者刀，不过我还�
 
 那个不是升级6次吗？好像技能最高7级
 
+
+*****
+
+####  Dreki  
+##### 140#       发表于 2025-3-21 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67703615&amp;ptid=2249235" target="_blank">棍机凹升龙 发表于 2025-3-21 15:42</a>
+我母鸡呀，看到显示那0/6于是一直没点</blockquote>
+那个是技能等级
+
+
+*****
+
+####  伪侦探  
+##### 141#       发表于 2025-3-21 16:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">奈落门都没进开个宝箱就被扎麻痹，想省点钱睡马房第二天醒来就发现被偷钱，后期会缺钱吗
+
