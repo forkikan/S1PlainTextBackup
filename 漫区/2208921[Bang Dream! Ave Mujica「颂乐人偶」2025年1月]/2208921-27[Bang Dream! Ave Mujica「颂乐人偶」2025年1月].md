@@ -9904,3 +9904,30 @@ Sumimi散不了吧，社长以为初音回不来才准备安排真奈单飞，�
 
 期待下一部话题性动画了，追番还是挺有意思的
 
+
+*****
+
+####  万书言  
+##### 39381#       发表于 2025-3-21 21:18
+
+海玲对初音说花心就去告状，不是为了体现海玲的控制欲不允许自己乐队的成员和其他乐队的成员接触嘛。
+
+这一季也完全没有说明海玲和立希的关系
+
+*****
+
+####  adretyu67.  
+##### 39382#       发表于 2025-3-21 21:21
+
+不是初华居然使用自己的方式和立希调情吗<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Abelfufu  
+##### 39383#       发表于 2025-3-21 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67706035&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-3-21 20:56</a>
+
+我感觉……这LZ才是女频</blockquote>
+他恐怕不知道什么叫做真正的封建<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

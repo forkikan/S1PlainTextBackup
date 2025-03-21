@@ -1743,3 +1743,23 @@ wiki说第三个图（要塞）的垃圾会出苦无和忍者刀，不过我还�
 
 有时连着刷好几次都不一定掉一次装备
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 147#         楼主| 发表于 2025-3-21 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67705880&amp;ptid=2249235" target="_blank">白軍浪 发表于 2025-3-21 20:36</a>
+
+获得了一个力个体的男忍，8奖励点点力量还是敏捷？</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202503/21/211925ugs3rpmrvr9pu7q3.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="645" zoomfile="https://img.saraba1st.com/forum/202503/21/211925ugs3rpmrvr9pu7q3.jpg">
+
+<strong>2025-03-21_211902.jpg</strong> (61.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-21 21:19 上传
+
+仅供参考 推荐全力/全敏的都有，总体是力的优先度略高
+
