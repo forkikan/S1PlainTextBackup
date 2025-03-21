@@ -10563,3 +10563,53 @@ Taki = 海子
 
 于是解决方案就成了一笔勾销<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">忘了吧
 
+
+*****
+
+####  zhoujin8584  
+##### 39433#       发表于 2025-3-22 07:25
+
+<blockquote>艾尔奇亚公民 发表于 2025-3-21 22:08
+楼有有“我来成为神明”的表情包吗，自己做的不太好
+
+—— 来自 S1Fun</blockquote>
+目前只有这些，吊图类的
+[直通车](https://tieba.baidu.com/p/9588946755?share=9105&amp;fr=sharewise&amp;see_lz=0&amp;share_from=post&amp;sfc=copy&amp;client_type=2&amp;client_version=12.80.1.0&amp;st=1742599475&amp;is_video=false&amp;unique=9E3C30FCED9CFC1E25D245D499EAAC2B)
+
+<img src="https://img.saraba1st.com/forum/202503/22/072232yivpxuvx4vs82tz8.jpg" referrerpolicy="no-referrer">
+
+<strong>F47E4555C53BBF8E21C875F7639A1FFB.jpg</strong> (51.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-22 07:22 上传
+
+<img src="https://img.saraba1st.com/forum/202503/22/072254yooncdcoedmwo0mi.jpg" referrerpolicy="no-referrer">
+
+<strong>D25E5ECF8157134AAE1EE417CA0748D5.jpg</strong> (137.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-22 07:22 上传
+
+<img src="https://img.saraba1st.com/forum/202503/22/072448tpijfk0k7npinndw.jpg" referrerpolicy="no-referrer">
+
+<strong>20C7B2F3CF201D333C7B5605B2A6455B.jpg</strong> (33.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-22 07:24 上传
+
+*****
+
+####  syndrome2032  
+##### 39434#       发表于 2025-3-22 07:27
+
+ 本帖最后由 syndrome2032 于 2025-3-22 07:30 编辑 
+
+鸡团烂账太多，确实是忘了重来要好点。
+
+然后大祥老师就决意要主宰自己命运当神了。客观来说膨胀的比狗13鸡团组成那会还厉害。
+
+狗13还在大伙都是一丘之貉的共犯，现在直接我是主犯了。
+
