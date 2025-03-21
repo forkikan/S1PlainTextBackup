@@ -9697,3 +9697,71 @@ https://nga.178.com/read.php?&amp;tid=43592965&amp;pid=814771685&amp;to=1
 柿本絶許我怒髪天昇</blockquote>
 这句话是什么意思啊
 
+
+*****
+
+####  堆雪若叶  
+##### 39361#       发表于 2025-3-21 20:21
+
+爱灯连体从mygo开始就这样，除了炸团闹别扭那段时间两人在学校和去乐队就没有分开的时候，而且大多数场合灯都缺乏回应，两人习惯了交流的温度差。只是mygo有天台和两次水族馆情感爆发能抹平不安，母鸡卡没有爱灯关系再进一步的空间而已。
+
+*****
+
+####  南宮凝香  
+##### 39362#       发表于 2025-3-21 20:21
+
+<blockquote>钦念以忱 发表于 2025-3-21 19:54
+爱灯连体人，灯讲不出话，也不会回答爱音，这种和mygo大相径庭的描写，而灯答一句话叫一声爱音名字，都花不 ...</blockquote>
+純粹是爛
+
+覺得他們大有深意的明顯是高估能力
+
+你說別人都刻劃得很好， 唯有愛音路邊一條，
+
+那可以說是惡意
+
+但大家都被刻劃成垃圾， 那一定是能力問題
+
+*****
+
+####  滑稽Captain  
+##### 39363#       发表于 2025-3-21 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67705728&amp;ptid=2208921" target="_blank">plazum 发表于 2025-3-21 20:16</a>
+
+这句话是什么意思啊</blockquote>
+绝对许先生（
+
+
+*****
+
+####  plazum  
+##### 39364#       发表于 2025-3-21 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67705390&amp;ptid=2208921" target="_blank">Libartas 发表于 2025-3-21 19:21</a>
+
+说起来初音初华姐妹的发色算亚麻色吗？</blockquote>
+我觉得亚麻色应该是南小鸟那样的
+
+*****
+
+####  aptx8285144  
+##### 39365#       发表于 2025-3-21 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67704653&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-3-21 17:47</a>
+
+那得看死人还能不能算受害者
+
+—— 来自 鹅球 v3.3.96</blockquote>
+现在究竟是哪个睦死得像路边一条？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  plazum  
+##### 39366#       发表于 2025-3-21 20:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67705785&amp;ptid=2208921" target="_blank">滑稽Captain 发表于 2025-3-21 20:23</a>
+
+绝对许先生（</blockquote>
+哦哦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
