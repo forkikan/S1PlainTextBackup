@@ -2038,3 +2038,48 @@ https://x.com/beeeeetan/status/1902453970964246962
 
 我下个月有空的就那三天，三刷完还没有那只能算了
 
+
+*****
+
+####  岸浪白野  
+##### 9046#       发表于 2025-3-21 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67705622&amp;ptid=2209276" target="_blank">az一串字母 发表于 2025-3-21 20:01</a>
+
+https://x.com/beeeeetan/status/1902453970964246962
+
+地球に降りたシュウジとマチュがシャア(？)を訪ねる ...</blockquote>
+[X 上的 べーたん：“地球に降りたシュウジとマチュとニャアンがシャア(？)とワイワイしてたらシャリア・ブルと邂逅する妄想(withエグザベくん) ジークアクス放送開始前に妄想全部大放出しとけスペシャルその2 [url]https://t.co/Kn9UA9zXOH](https://x.com/beeeeetan/status/1902730977157447882)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202503/21/205400bjo1ja5eolvm1m81.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (639.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-21 20:54 上传
+
+<img src="https://img.saraba1st.com/forum/202503/21/205405d24x3f8o4xj2fxpk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (563.72 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-21 20:54 上传
+
+<img src="https://img.saraba1st.com/forum/202503/21/205412urp53qr5ddrdhq4r.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (593.64 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-21 20:54 上传
+
+<img src="https://img.saraba1st.com/forum/202503/21/205417kg9tbsh444jx5w4r.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (109.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-21 20:54 上传
+

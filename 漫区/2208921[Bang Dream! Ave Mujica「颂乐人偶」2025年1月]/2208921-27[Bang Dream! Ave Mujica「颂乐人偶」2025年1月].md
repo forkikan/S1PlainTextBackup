@@ -9825,3 +9825,43 @@ https://nga.178.com/read.php?&amp;tid=43592965&amp;pid=814771685&amp;to=1
 
 Sumimi散不了吧，社长以为初音回不来才准备安排真奈单飞，现在初音又回来，肯定继续两边跑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 39373#       发表于 2025-3-21 20:49
+
+ 本帖最后由 aptx8285144 于 2025-3-21 20:53 编辑 
+
+在没几个人在意的角落，初音的假名真得在大点兵里面得到了“承认”，<strong>与其说是大祥不在意玩了几天的童年玩伴的逻辑倒不如说这就是某些人搞狂人乐队的逻辑</strong><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  金钱与民主  
+##### 39374#       发表于 2025-3-21 20:50
+
+我看这2025年最烂动画已经没有悬念了。
+
+*****
+
+####  宵神乐  
+##### 39375#       发表于 2025-3-21 20:51
+
+大祥老师魅魔实锤了
+
+
+*****
+
+####  cxj649  
+##### 39376#       发表于 2025-3-21 20:56
+
+<img src="https://img.saraba1st.com/forum/202503/21/205554d8ytzyavavi5utta.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (77.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-21 20:55 上传
+
+我感觉……这LZ才是女频<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
