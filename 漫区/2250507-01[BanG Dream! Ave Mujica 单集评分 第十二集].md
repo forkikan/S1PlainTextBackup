@@ -2331,3 +2331,18 @@ QQ图片20250321102409.jpg
 “不喜欢这一集的人多半其实mygo也没看明白也不喜欢，和这种人讲话已经完全没必要了” 看笑了，这种话都 ...</blockquote>
 本来打了一长串，但是放弃了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">你开心就好了
 
+
+*****
+
+####  madbird023  
+##### 243#       发表于 2025-3-21 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67701313&amp;ptid=2250507" target="_blank">hac0101 发表于 2025-3-21 11:09</a>
+
+-2 
+
+为什么不疯，为什么不疯。
+
+你们不发疯我很困扰的。</blockquote>
+到现在看起来还不疯的那几个看起来是最有问题的
+
