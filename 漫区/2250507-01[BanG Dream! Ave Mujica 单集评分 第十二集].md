@@ -2438,3 +2438,11 @@ c团春日影也不是不能插进去，但起码不是这样莫名其妙就唱�
 
 既然癫狂起来了就要癫到底，到上一话为止看的就是精神病院的故事。你这么包饺子，本周的疯癫我上哪找补。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  plazum  
+##### 253#       发表于 2025-3-21 15:29
+
+B站好多说这集还行的，甚至还有说这集很好的，这些人直到第七集才看出来这剧有问题以致于破大防真是应该的呀<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

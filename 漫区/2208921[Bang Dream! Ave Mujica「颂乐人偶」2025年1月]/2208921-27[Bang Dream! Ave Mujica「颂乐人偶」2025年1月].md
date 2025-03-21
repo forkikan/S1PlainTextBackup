@@ -9026,3 +9026,14 @@ MyGO哪里王道了，不就是靠剑走偏锋火的吗？
 事实上这事闹大缘由还是中登的锅呢233</blockquote>
 如果中登没有提出要接初音回本家，初音跟着甜甜圈女士混，不说能不能组哪个乐团，起码能站稳脚跟后和大祥接近也不用什么多的心理压力了，往好处想就是去整容一下，自我定位是另一个人，也不会再自卑了后再和大祥接近，这才是真正意义上是抛弃过去的自己
 
+
+*****
+
+####  cxj649  
+##### 39309#       发表于 2025-3-21 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67703489&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-21 15:25</a>
+
+如果中登没有提出要接初音回本家，初音跟着甜甜圈女士混，不说能不能组哪个乐团，起码能站稳脚跟后和大祥 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是啊，顺便C团也不会解散？（当然168E看按中登对私生子的操作来说也迟早会发生
+
