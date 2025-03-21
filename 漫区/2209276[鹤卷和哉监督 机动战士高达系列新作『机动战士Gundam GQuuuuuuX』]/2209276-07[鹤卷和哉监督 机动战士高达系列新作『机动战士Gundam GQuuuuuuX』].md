@@ -1729,3 +1729,11 @@ B站上的官方账号
 【《机动战士高达：跨时之战》定档4月4日清明假期，时隔六年高达剧场版再登内地大银幕】 
 [https://b23.tv/L6fljfh](https://b23.tv/L6fljfh)
 
+
+*****
+
+####  积木23ki  
+##### 9023#       发表于 2025-3-21 16:01
+
+特典是不是还没做完<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是现成的难道没图吗
+
