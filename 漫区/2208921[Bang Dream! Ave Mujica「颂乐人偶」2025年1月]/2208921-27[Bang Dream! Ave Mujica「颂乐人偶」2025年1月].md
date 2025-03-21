@@ -7875,3 +7875,31 @@ lof：许苍生（豹房）</blockquote>
 
 进度塞不下匆匆赶工的大纲型脚本不少，但连一点对原本完整作品的想象空间都留不下来的也确实稀罕。你鸡脚本就属于这种连臆想都没什么价值的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dqtql  
+##### 39202#       发表于 2025-3-21 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698777&amp;ptid=2208921" target="_blank">思绪云骞 发表于 2025-3-21 00:40</a>
+
+我看了一遍，第1集是一个叫做后藤绿的人和独角兽的一起写的脚本，然后第2到11集都没有独角兽，然后到第12集 ...</blockquote>
+mygo第十集主要是演出顶住了吧，mygo第七集和第十集都是梅津朋美负责的。
+
+*****
+
+####  阿兹尔  
+##### 39203#       发表于 2025-3-21 11:08
+
+看完了，感觉独角兽不如进军cn短剧市场，拥趸多还能满足她的神秘xp
+
+*****
+
+####  adretyu67.  
+##### 39204#       发表于 2025-3-21 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67700614&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-3-21 10:08</a>
+
+人偶是母亲的象征，祥子之前一直带着人偶，除了表达对母亲的思念，或许也有希望母亲能一直保护陪伴自己的 ...</blockquote>
+应该是梦醒了，不再选择成为像蝶团或者母亲那样优雅而又坚强的人。
+
