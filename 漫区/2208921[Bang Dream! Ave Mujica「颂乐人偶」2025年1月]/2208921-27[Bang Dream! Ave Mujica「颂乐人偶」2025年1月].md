@@ -9686,3 +9686,14 @@ https://nga.178.com/read.php?&amp;tid=43592965&amp;pid=814771685&amp;to=1
 
 这种描写贯穿了mujica的始终，包括独角兽回和非独角兽回，让不同编剧不约而同这么描写，到底是谁的意思，柿本的还是独角兽的？目的又是什么呢？
 
+
+*****
+
+####  plazum  
+##### 39360#       发表于 2025-3-21 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67704512&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-3-21 17:29</a>
+
+柿本絶許我怒髪天昇</blockquote>
+这句话是什么意思啊
+
