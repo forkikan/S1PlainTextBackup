@@ -9765,3 +9765,26 @@ https://nga.178.com/read.php?&amp;tid=43592965&amp;pid=814771685&amp;to=1
 绝对许先生（</blockquote>
 哦哦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 39367#       发表于 2025-3-21 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67705339&amp;ptid=2208921" target="_blank">草化木 发表于 2025-3-21 19:15</a>
+
+甜甜圈女士起码还活得好好的，猛地一想到小墨、小睦见不到了就有点心塞</blockquote>
+独角兽“深明大义”，<strong>知道间接靠近大祥也会不幸</strong>，所以干脆把sumi解散了，这样甜甜圈女士无法靠近初音，物理距离会离大祥更远<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  影伴光生  
+##### 39368#       发表于 2025-3-21 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67705570&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-21 19:54</a>
+爱灯连体人，灯讲不出话，也不会回答爱音，这种和mygo大相径庭的描写，而灯答一句话叫一声爱音名字，都花不 ...</blockquote>
+或许说明爱音已经进化到听企鹅哼唧就能明白啥意思了，驯兽师并感
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
