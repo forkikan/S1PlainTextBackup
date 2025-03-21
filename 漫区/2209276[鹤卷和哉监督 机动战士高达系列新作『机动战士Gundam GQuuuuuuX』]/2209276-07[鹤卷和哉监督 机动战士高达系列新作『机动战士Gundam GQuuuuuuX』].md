@@ -2128,3 +2128,23 @@ https://x.com/beeeeetan/status/1902453970964246962
 
 我依稀记得之前看到的偷跑片段里好像说塞克缪也是从吉翁现有的ma移植过来的，就是夏利亚和夏亚在红高旁交谈那段，不过下架了找不到那段了，可能是我记错了吧
 
+
+*****
+
+####  刺客ares  
+##### 9051#       发表于 2025-3-21 23:54
+
+<blockquote>YU_JI 发表于 2025-3-21 23:11
+我依稀记得之前看到的偷跑片段里好像说塞克缪也是从吉翁现有的ma移植过来的，就是夏利亚和夏亚在红高旁交 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202503/21/235146dpqbpnzp6kp99qe9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1008.jpeg</strong> (310.68 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-3-21 23:51 上传
+
+那一段是这样的，从字面上看应该是没装，艾尔美斯在计划阶段没造出来就被取消了，阿尔法塞可缪从一开始就只实装了红高达一台机
+
