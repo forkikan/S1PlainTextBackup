@@ -9297,3 +9297,15 @@ lof：风
 
 <strong>柿本絶許我怒髪天昇</strong>
 
+
+*****
+
+####  595505568  
+##### 39333#       发表于 2025-3-21 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67704212&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-21 16:56</a>
+话说这集大角老师写的CP互动，和前面柿本主导的集里，有差异的主要也就是睦头的双重人格和睦祥了？
+
+第一人 ...</blockquote>
+我只能說素推已經心死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

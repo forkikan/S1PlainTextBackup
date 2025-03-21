@@ -2480,3 +2480,17 @@ B站好多说这集还行的，甚至还有说这集很好的，这些人直到�
 
 前面10集还不够工具跟我看的是一部动画吗？这番四五集逻辑就已经崩完了，后面不都是史里挑玉米，那肯定是稍微发现点能看的都算观感提升啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么还有像发现新大陆一样觉得角色工具人逻辑崩坏节奏稀烂的
 
+
+*****
+
+####  zhzij111  
+##### 257#       发表于 2025-3-21 17:36
+
+ 本帖最后由 zhzij111 于 2025-3-21 17:39 编辑 
+
+论百合真碰瓷不了水魔吧，水魔剧情烂归烂，红白从第一集到最后结婚好歹是有始有终的。
+
+这母鸡卡把铺垫一季的灯祥睦祥拆了，把素睦砍死一半，还险些爆破最大cp群体爱素，最后角圣阴湿xp散发在这集空降舔狗小姨初祥和坏逼家人侠喵睦两个抽象cp，觉得好的河豚是真的牛逼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
