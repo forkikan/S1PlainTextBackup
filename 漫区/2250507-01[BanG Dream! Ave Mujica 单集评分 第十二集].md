@@ -2105,3 +2105,48 @@ wsd的粉毛多的好比路边野狗你说对吧<img src="https://static.saraba1
 
 -2，就算是乐子人给这投+2的也是神人了，真初华真就是路边一条啊
 
+
+*****
+
+####  丹德里恩  
+##### 221#       发表于 2025-3-21 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67700331&amp;ptid=2250507" target="_blank">吴怀在 发表于 2025-3-21 09:34</a>
+
+祥脚贴满了创可贴，是初音贴的吗？
+
+初华是死了吗？</blockquote>
+初华跟着亲妈搬去本岛了...祥子在出租车上的时候司机说的
+
+*****
+
+####  Fakerの幻影  
+##### 222#       发表于 2025-3-21 09:49
+
+<img src="https://p.sda1.dev/22/d55331f9b900104b3040809e18c06ec0/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  saglork  
+##### 223#       发表于 2025-3-21 09:52
+
+-2
+开播以来最恶心的一集，有点乐子和爆点，可以让人在傻乐中少动脑子想剧情，连乐子都没有了，这坨不可名状的垃圾玩意快进都看得人生理不适，这坨玩意除了能让豚豚发情打滚，还有任何正面要素吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Prairial  
+##### 224#       发表于 2025-3-21 09:55
+
++2给mygo精神续作
+
+就感觉而言这一话风格倒是和mygo很像，当然大小姐闹麻也是真的闹麻了。🦄涉及现实层面的描写看来也是一坨，但人物对话互动还是有点意思，比硬写一个 new type新人类强
+
+*****
+
+####  盗号找不回  
+##### 225#       发表于 2025-3-21 09:56
+
+如果说上两集我的表情是<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">b站有个评论说的好，前十一集不看，这集挺欢乐的
+
