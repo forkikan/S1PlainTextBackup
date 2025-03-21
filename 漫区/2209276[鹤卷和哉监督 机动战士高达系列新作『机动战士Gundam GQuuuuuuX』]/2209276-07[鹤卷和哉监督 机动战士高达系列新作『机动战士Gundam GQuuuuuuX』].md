@@ -1828,3 +1828,24 @@ B站上的官方账号
 #夏亚统一全宇宙男性审美的男人# 全体起立，那个男人要来了！！高达新剧场版4月4日清明假期上映，全宇宙最 ...</blockquote>
 感觉不如尹正带盐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  中野梓  
+##### 9033#       发表于 2025-3-21 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67704506&amp;ptid=2209276" target="_blank">az一串字母 发表于 2025-3-21 17:29</a>
+
+观影团这种组织怎么找</blockquote>
+微博搜吧，我们这有人自发弄，但目前没几个人
+
+*****
+
+####  NBGI  
+##### 9034#       发表于 2025-3-21 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67704607&amp;ptid=2209276" target="_blank">ggyy0088 发表于 2025-3-21 17:42</a>
+
+感觉不如尹正带盐</blockquote>
+过审太快，啥都没准备呢，来不及找人站台了
+

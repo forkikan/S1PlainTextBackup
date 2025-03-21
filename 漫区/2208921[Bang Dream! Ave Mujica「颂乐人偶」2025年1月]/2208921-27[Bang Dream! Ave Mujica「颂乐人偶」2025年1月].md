@@ -9309,3 +9309,27 @@ lof：风
 第一人 ...</blockquote>
 我只能說素推已經心死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhzij111  
+##### 39334#       发表于 2025-3-21 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67701933&amp;ptid=2208921" target="_blank">油画布 发表于 2025-3-21 12:01</a>
+祥子最大受害者称号现在是不是该给甜甜圈女士了？</blockquote>
+那得看死人还能不能算受害者<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  钦念以忱  
+##### 39335#       发表于 2025-3-21 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67704466&amp;ptid=2208921" target="_blank">Victorino 发表于 2025-3-21 17:25</a>
+
+鸡狗动画剧情是前后脚写的，那个时候没人能预测爱素居然会成为美帝</blockquote>
+所以有些粉丝说mygo有很多爱素的好描写无心插柳柳成荫，mujica没有，是因为独角兽走人了，我觉得难说。
+
+爱素动画里最大的贡献者恐怕是后藤绿，mygo第2话第10话都她写的，mujica第一话的那段狗团互动最后素世和爱音一起去看演出，粉丝之前归功于独角兽，现在看来也许是后藤绿。
+

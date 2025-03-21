@@ -572,3 +572,16 @@ OK，感谢推荐，不过对史莱姆这个ip不太感兴趣，到时候有闲�
 
 我之前在漫区看有个日本那边的二次元调查，现在死神粉丝大都是十几岁以下的年纪，还是小女孩居多
 
+
+*****
+
+####  今天不守尸  
+##### 63#       发表于 2025-3-21 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67704463&amp;ptid=2165707" target="_blank">bgmilk 发表于 2025-3-21 17:24</a>
+
+这个事还是万南**的问题。为什么做ftg，因为之前长卖的只有魂之热斗系列，而且火影龙珠都是对战大 ...</blockquote>
+原来已经出过还爆死了吗，那是我没见识了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+那只剩下做美少女游戏了
+
