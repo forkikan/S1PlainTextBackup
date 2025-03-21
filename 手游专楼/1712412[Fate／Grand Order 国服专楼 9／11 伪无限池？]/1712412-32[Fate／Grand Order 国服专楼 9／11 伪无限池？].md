@@ -160,3 +160,11 @@
 
 小号用剩下的30石头抽到狂娜了，也算是除了摩根外有个好用的狂光炮了。
 
+
+*****
+
+####  马桶3  
+##### 47090#       发表于 2025-3-21 09:57
+
+操啊，被黑蛋糕迷了心眼，6单才两宝，不行了，7月之前不能再氪金了<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
