@@ -6872,3 +6872,138 @@ setsuna：这个世界没有神！（林鼓子：祥子是神。）
 
 從基因上的底層邏輯
 
+
+*****
+
+####  南宮凝香  
+##### 39121#       发表于 2025-3-21 09:07
+
+這話最扯的是11集初華獨白了一整集，
+
+結果祥原來是聽原不到的
+
+初華還需要用三句話給她總結
+
+把上周的二十分鐘還給我呀
+
+*****
+
+####  天空塔书记官  
+##### 39122#       发表于 2025-3-21 09:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  AlterDialog  
+##### 39123#       发表于 2025-3-21 09:09
+
+本来也觉得这集太平淡，不过转念一想这是否将自己想看爆炸的欲念强加在作品身上了呢？
+
+都说母鸡卡是大小姐过家家，那这集就真的是过家家了。矛盾并没有消失，而是潜伏了起来，角色之间仅仅因为某个契机被脆弱的粘合在一起，“之后怎么办”？不怎么办，两眼一闭，接着奏乐接着舞呗。“怪味饺子/速冻饺子”的评语没说错，抱着定时炸弹的过家家，能玩的开心吗？
+
+题目太难解不出来怎么办？别想了，来画画吧。
+
+全力演好这个过家家，舞至毁灭降临的最后一刻，还是比装模作样斗财阀好得多。
+
+*****
+
+####  qratosones1337  
+##### 39124#       发表于 2025-3-21 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67699319&amp;ptid=2208921" target="_blank">S1-an 发表于 2025-3-21 03:14</a>
+话说有一个小疑惑：为什么现在都统一口径，说丰川祥子作为唯一家主继承人，一句话就能弄死丰川定治啊？
+
+女 ...</blockquote>
+这个明显扯淡了，真不至于。目前只能说大祥作为真血脉继承人，在一定范围内可以甩开老登为所欲为，干了任何事情老登都只能给擦屁股
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  syndrome2032  
+##### 39125#       发表于 2025-3-21 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67700047&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-3-21 09:04</a>
+预告看，已经重回武道馆了吧。
+
+—— 来自 鹅球 v3.3.96</blockquote>
+祥子说总会梦醒。也不知道梦是不是会真醒。
+
+
+*****
+
+####  ads147147  
+##### 39126#       发表于 2025-3-21 09:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67700056&amp;ptid=2208921" target="_blank">蜜瓜包 发表于 2025-3-21 09:05</a>
+大祥老师都成神了，为什么不把mujica那几个神人都踢掉，重组ccc呢</blockquote>
+音乐性已经分道扬镳了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  一心而用  
+##### 39127#       发表于 2025-3-21 09:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67699479&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-3-21 06:49</a>
+
+11集存在的意义荡然无存。。。
+
+—— 来自 鹅球 v3.3.96</blockquote>
+11话的作用主要是塑造三角初音这个角色，把前面缺的一口气补上了，纯内心独白。其他内容是要她交代给祥子才行的。
+
+*****
+
+####  是谁的书画  
+##### 39128#       发表于 2025-3-21 09:12
+
+真的好吗，这集？
+剧情是迷幻的，人物是随意变化的，丰川家是观测时才存在的，情绪流是调动不起来的。
+这集除了塞满了的无聊且刻板的女女关系性，我找不出任何东西<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ads147147  
+##### 39129#       发表于 2025-3-21 09:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67700102&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-3-21 09:09</a>
+这个明显扯淡了，真不至于。目前只能说大祥作为真血脉继承人，在一定范围内可以甩开老登为所欲为，干了任 ...</blockquote>
+什么狗屁丰川家的黑暗，祥子：i am the danger。
+
+soyo the danger不值一提，saki the danger才是真的。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ads147147  
+##### 39130#       发表于 2025-3-21 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67700130&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-21 09:12</a>
+真的好吗，这集？
+剧情是迷幻的，人物是随意变化的，丰川家是观测时才存在的，情绪流是调动不起来的。
+这集 ...</blockquote>
+对于赘婿丰川家当然黑暗啊，但是祥子是正统继承人，那就是两码事。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  阿兹尔  
+##### 39131#       发表于 2025-3-21 09:15
+
+最近太忙了，最新的两集都没时间看，登上s1看了一眼，评价很神秘啊，后面的值得看不
+
+*****
+
+####  595505568  
+##### 39132#       发表于 2025-3-21 09:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

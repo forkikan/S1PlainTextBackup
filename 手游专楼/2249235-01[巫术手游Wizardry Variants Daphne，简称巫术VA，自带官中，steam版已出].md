@@ -1567,3 +1567,24 @@ wiki说第三个图（要塞）的垃圾会出苦无和忍者刀，不过我还�
 
 刚玩两天，打到奈落7F，那两条毒路没法绕开走的吗？
 
+
+*****
+
+####  toblkr  
+##### 130#       发表于 2025-3-21 09:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67699748&amp;ptid=2249235" target="_blank">sodah 发表于 2025-3-21 08:21</a>
+
+刚玩两天，打到奈落7F，那两条全是毒的路没法绕开走的吗？只能硬踩？</blockquote>
+第一次没得绕，去8f复原两个石头后面就能绕了
+
+
+*****
+
+####  Laie  
+##### 131#       发表于 2025-3-21 09:11
+
+尸斑<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+我重开的号全程日光族身上不带现金睡马房打黑工，全队现在从登录界面到游戏里都是黑乎乎脏兮兮的，语音几乎都是吐槽太脏了好难受
+
