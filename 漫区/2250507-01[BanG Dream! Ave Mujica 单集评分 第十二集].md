@@ -2272,3 +2272,24 @@ QQ图片20250321102409.jpg
 
 无人关心的mana女士与真初华怎么办？哎☝️🤓️，你俩组建新·sumimi不就行了，初音得到了小祥的心（并没有），初华实现了梦想，mana找到了代餐，祥子成为了卡密，经纪公司保住了一个正常组合，粉丝们还有的看，皆大欢喜，欧咩爹多欧咩爹多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  雪霜  
+##### 237#       发表于 2025-3-21 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698546&amp;ptid=2250507" target="_blank">庸necro 发表于 2025-3-21 00:15</a>
+
+看柿本soulmate们打-2太好玩了</blockquote>
+什么二极管，不喜欢这集的就是喜欢前面几集的？
+
+*****
+
+####  雪霜  
+##### 238#       发表于 2025-3-21 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698546&amp;ptid=2250507" target="_blank">庸necro 发表于 2025-3-21 00:15</a>
+
+看柿本soulmate们打-2太好玩了</blockquote>
+“不喜欢这一集的人多半其实mygo也没看明白也不喜欢，和这种人讲话已经完全没必要了” 看笑了，这种话都说出来的百合厨是什么的soulmate啊？
+

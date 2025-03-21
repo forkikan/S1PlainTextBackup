@@ -7710,3 +7710,85 @@ lof：hero鹤星
 哪来的素睦，官方最后不告诉你了，喵睦才是王道嘛</blockquote>
 有什么关系，睦本来就双人格开后宫娥皇女英不多啊<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  真爱与热情  
+##### 39191#       发表于 2025-3-21 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67700701&amp;ptid=2208921" target="_blank">油画布 发表于 2025-3-21 10:16</a>
+
+哪里好了 逻辑有吗？情感酝酿有吗？完全不只是演出问题好吗</blockquote>
+最多只能说不如mygo，不能说没有。
+
+从大的来说，mujica包括祥子身上发生的一切事情被当面拆穿。
+
+看到睦的状况，她没法再逃避下去需要给过去对睦的伤害赎罪。
+
+在了解一切的哭团遗老面前需要面对自己的内心想法，到底是为了什么组的乐队。最后的live基本就是两层逻辑，第一层是回收ep6的伏笔，尝试跟大家一起演奏音乐说不定睦就能恢复，第二层就是给过去道别。剧情主线上并没有什么问题啊。
+
+mygo一行人就不用说了，ep7的时候就有聊过的，非常合理
+
+*****
+
+####  qratosones1337  
+##### 39192#       发表于 2025-3-21 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67700488&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-3-21 09:52</a>
+
+咖啡让人清醒，而这个现状并不是祥子喜欢的状态，但是又不得不接受，所以是讨厌的味道。
+
+说到底原本的母 ...</blockquote>
+其实还有一个角度，大祥显然不打算也不可能真的切割丰川家，那接下来她早晚要么接班要么联姻，现在的生活自然是不能真的持续一辈子的。
+
+除非真的女女生妹让初音怀孕（但这个就过于变态了）
+
+*****
+
+####  月神夜  
+##### 39193#       发表于 2025-3-21 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67700746&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-3-21 10:19</a>
+lof：许苍生（豹房）</blockquote>
+哈哈哈好好笑
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  6030sylar  
+##### 39194#       发表于 2025-3-21 10:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">扯cp最没必要了，你邦最著名不就是cp乱炖开音趴
+
+*****
+
+####  adretyu67.  
+##### 39195#       发表于 2025-3-21 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67700805&amp;ptid=2208921" target="_blank">航母掉头 发表于 2025-3-21 10:25</a>
+
+懂不懂丰川家恐怖的大手
+
+蝶团jk真想斗财团吗</blockquote>
+看台词蝶团还在收集签名战理事长。
+
+这边鸡团已经熟练掌握大手使用方法抽人了。
+
+打不过打不过
+
+
+*****
+
+####  ads147147  
+##### 39196#       发表于 2025-3-21 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67700914&amp;ptid=2208921" target="_blank">qlipho 发表于 2025-3-21 10:36</a>
+
+铁血吧，丰川之血比巴耶力有用</blockquote>
+巴力耶再强，你就配两把长剑也太抽象了。。。
+
+说起来，冈妈觉得巧克力会输不也是因为巧克力是卖屁股的养子，另一个家族的赘婿，最后被徐锦江这个正统七星家族消灭不也很正常，至于铁华团不就是火星的蟑螂，死了就死了咯。
+
+突然意识到好像这两个阿姨的认知应该差不多。。
+

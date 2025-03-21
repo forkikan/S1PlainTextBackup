@@ -1506,3 +1506,19 @@ UC纪元第一大财团是AE，第二大财团其实是罗商会（也大量参�
 
 吉翁都是谐音梗爱好者（确信）
 
+
+*****
+
+####  Gysumitka  
+##### 9004#       发表于 2025-3-21 10:51
+
+<img src="https://p.sda1.dev/22/c84607acef78c2efe48fb704b96ef544/image.jpg" referrerpolicy="no-referrer">
+http://weibo.com/7985965662/PjxCeo7PP
+
+*****
+
+####  积木23ki  
+##### 9005#       发表于 2025-3-21 10:56
+
+为什么要搞这么社死的营销<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
