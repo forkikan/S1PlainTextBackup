@@ -2652,3 +2652,13 @@ SB，烂透了，逻辑是没有的，剧情是如食了菌子一般的，看了
 -2
 本来舔狗舔到最后应有尽有感觉能给个+0，但是最后的预制饺子一出实在绷不住了直接-2，什么阖家欢乐团圆饭。
 
+
+*****
+
+####  FanKiE  
+##### 271#       发表于 2025-3-22 01:10
+
+祥子到底有多大能量，她本人花了12集才想明白。。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
