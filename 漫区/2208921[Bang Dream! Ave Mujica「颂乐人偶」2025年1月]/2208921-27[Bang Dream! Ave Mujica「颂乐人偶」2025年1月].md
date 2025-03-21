@@ -9281,3 +9281,19 @@ lof：风
 
 顶多狗那边小场地下面来几个老团人负责当拉拉队，鸡这边大场地但是没老人。
 
+
+*****
+
+####  与太郎  
+##### 39332#       发表于 2025-3-21 17:29
+
+<img src="https://img.saraba1st.com/forum/202503/21/172856tskb82y1g2ynb5no.png" referrerpolicy="no-referrer">
+
+<strong>微信截图_20250321172838.png</strong> (78.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-21 17:28 上传
+
+<strong>柿本絶許我怒髪天昇</strong>
+
