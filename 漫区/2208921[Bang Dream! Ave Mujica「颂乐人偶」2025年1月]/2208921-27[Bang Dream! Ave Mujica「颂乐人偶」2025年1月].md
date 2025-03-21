@@ -10020,3 +10020,118 @@ Sumimi散不了吧，社长以为初音回不来才准备安排真奈单飞，�
 
 墨头还要卖周边，应该是不定期放出来
 
+
+*****
+
+####  AraTurambar  
+##### 39393#       发表于 2025-3-21 21:48
+
+ 本帖最后由 AraTurambar 于 2025-3-21 21:50 编辑 
+
+这一集把我看笑的还是海铃和初华那里，别的都看得我一愣一楞的。
+
+*****
+
+####  聋与唬  
+##### 39394#       发表于 2025-3-21 21:49
+
+想了下有待解决的问题
+1.睦的问题:
+融合到底是咋回事？莫提斯还在吗？睦祥关系呢？睦祥表姐妹的伏笔还收吗？睦的家族问题到底咋回事？
+2.初华和初音的问题:
+伏笔搞了那么多，怎么连个人影都没见？初华和初华母呢？大祥一直以为自己是在和幼驯染一起玩才和初音维持着关系，怎么对初华一副无关心的样子？大祥和初音很熟吗？为什么一下子就接受了初音？
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  聋与唬  
+##### 39395#       发表于 2025-3-21 21:52
+
+海铃，大毛这种边缘角色不说了。睦，初华，初音，大祥这几个主要角色个个都是一坨，这写了个啥啊？
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  adretyu67.  
+##### 39396#       发表于 2025-3-21 21:53
+
+1.木头基本上吃的差不多了把。就剩那个剧透里的莫出现在镜子里回收了。
+
+2.三角家母女就是背景啊，不需要她们出场所以直接被安排搬走下线了。
+
+大祥怀念的是哪个看星星的初华，也就是初音。
+
+*****
+
+####  DeltaStriker  
+##### 39397#       发表于 2025-3-21 21:53
+
+纠结这些没有意义 这些问题都不是组一个乐队能解决的 最初我的期望就只是这5个人的缺陷能自愈 没想到一起神人化 行吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  cxj649  
+##### 39398#       发表于 2025-3-21 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67706171&amp;ptid=2208921" target="_blank">Abelfufu 发表于 2025-3-21 21:21</a>
+
+他恐怕不知道什么叫做真正的封建</blockquote>
+不过看下来鸡一些设定让一些键政党观众暴露出低政治智商<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿兹尔  
+##### 39399#       发表于 2025-3-21 21:53
+
+说起来soyo从祥子黑名单里出来了吗，放出来会看到那一堆重力单向发言吗
+
+
+*****
+
+####  cxj649  
+##### 39400#       发表于 2025-3-21 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67706372&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-3-21 21:53</a>
+
+说起来soyo从祥子黑名单里出来了吗，放出来会看到那一堆重力单向发言吗</blockquote>
+这等手游了
+
+
+*****
+
+####  聋与唬  
+##### 39401#       发表于 2025-3-21 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67706365&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-21 21:53</a>
+1.木头基本上吃的差不多了把。就剩那个剧透里的莫出现在镜子里回收了。
+
+至于睦妈，虽然说“多头的怪物”的 ...</blockquote>
+不是，能这样的吗？这种mygo里就有大量伏笔的角色就这么糊弄一下完事了？
+讲道理，睦和墨的故事可以各出一季，睦祥家族故事可以再出一季，睦墨融合还可以出一季，初华初音故事最少可以出两季。
+这么大的热度不继续写，就瞎糊弄一下交差了？太令人失望了
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  adretyu67.  
+##### 39402#       发表于 2025-3-21 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67706366&amp;ptid=2208921" target="_blank">DeltaStriker 发表于 2025-3-21 21:53</a>
+
+纠结这些没有意义 这些问题都不是组一个乐队能解决的 最初我的期望就只是这5个人的缺陷能自愈 没想到一起神 ...</blockquote>
+看完10话live我本来觉得有戏，但是看完12话我觉得还是毁灭好了。
+
+*****
+
+####  聋与唬  
+##### 39403#       发表于 2025-3-21 21:58
+
+双重人格和双子小姨设定这有什么用啊？
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+

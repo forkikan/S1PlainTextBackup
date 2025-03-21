@@ -419,3 +419,22 @@ cybertruck这种一眼又丑又土做工又差的皮卡当初能炒起来也是�
 
 好歹你用个铆钉螺丝结构都好点，反正是赛博风，胶水太抽象了
 
+
+*****
+
+####  熊边上  
+##### 48#       发表于 2025-3-21 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67704420&amp;ptid=2250568" target="_blank">moekyo 发表于 2025-3-21 04:19</a>
+“哼，你们老中的智驾有FSD丝滑吗”</blockquote>
+没事，众所周知ct的fsd目前调教很烂的，别的特斯拉车主也在嘲笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  熊边上  
+##### 49#       发表于 2025-3-21 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67704869&amp;ptid=2250568" target="_blank">永远的访客 发表于 2025-3-21 05:14</a>
+召回几乎所有而不是全部，是指有一部分已经被人烧了是吧</blockquote>
+有些烧了，有些被转卖到海外了，还有的被炸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

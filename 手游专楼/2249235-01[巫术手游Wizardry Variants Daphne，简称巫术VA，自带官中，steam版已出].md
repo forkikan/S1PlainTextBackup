@@ -1776,3 +1776,16 @@ wiki说第三个图（要塞）的垃圾会出苦无和忍者刀，不过我还�
 眼看离喷泉只有没几步了结果被藏着的 ...</blockquote>
 单纯刷石头，洞窟装备那个掉率就当它没有。克属不强求，刷装备船舱开宝箱就行
 
+
+*****
+
+####  森兰丸  
+##### 149#       发表于 2025-3-21 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67706295&amp;ptid=2249235" target="_blank">风浦可符香(P.N) 发表于 2025-3-21 21:41</a>
+
+单纯刷石头，洞窟装备那个掉率就当它没有。克属不强求，刷装备船舱开宝箱就行 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">主要我看攻略说水区最后的BOSS是连战.....起码要给主攻手准备一把+15的土武器
+
+所以没这必要？
+
