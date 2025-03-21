@@ -6738,3 +6738,43 @@ bgm拼命洗独角兽，说什么柿本和独角兽在拉扯云云，感觉是�
 话说牢祥一开始才是反抗家族吧，现在属于顺从了， ...</blockquote>
 一开始的反抗也没法细想，如果速通武士馆靠的不是丰川大手，那她为什么不把这作为成就拿来压制喵梦呢
 
+
+*****
+
+####  ntrntr1  
+##### 39110#       发表于 2025-3-21 08:48
+
+ 本帖最后由 ntrntr1 于 2025-3-21 08:50 编辑 
+
+而且老登的把柄也是自己送上门的
+
+要不是老登非要到祥子面前喊初音回去，私底下发个短信叫她回岛或者大方点给私生女去瑞士报个留学屁事没有
+
+说白了老登终究还是小气了，要是去留学的是初音祥子也就纳闷这逼人怎么说完香草我就跑了
+
+
+*****
+
+####  ads147147  
+##### 39111#       发表于 2025-3-21 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67699827&amp;ptid=2208921" target="_blank">真爱与热情 发表于 2025-3-21 08:33</a>
+这话搞到最后，祥爹成了那个提前看完剧本的人，祥爹真算无遗策，怎奈大祥脑容量不够
+
+啤酒罐扔大祥是想把她 ...</blockquote>
+祥爹没把最重要的信息说给祥子，那就是祖父也是赘婿这事。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  看穿一切的鱼  
+##### 39112#       发表于 2025-3-21 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67699917&amp;ptid=2208921" target="_blank">ntrntr1 发表于 2025-3-21 08:48</a>
+
+而且老登的把柄也是自己送上门的
+
+要不是老登非要到祥子面前喊初音回去，私底下发个短信叫她回岛或者大方点 ...</blockquote>
+还真是，一般来说不应该把私生子送远点才对吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
