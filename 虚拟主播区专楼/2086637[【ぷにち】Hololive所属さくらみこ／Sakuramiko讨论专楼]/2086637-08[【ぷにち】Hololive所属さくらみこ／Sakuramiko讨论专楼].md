@@ -2541,3 +2541,34 @@ SEC一张都没出
 
 那真是惨
 
+
+*****
+
+####  holofan  
+##### 10940#       发表于 2025-3-20 22:44
+
+<img src="https://img.saraba1st.com/forum/202503/20/224402sg6ditzviggeu2dk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (10.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-20 22:44 上传
+
+*****
+
+####  holofan  
+##### 10941#       发表于 2025-3-21 18:02
+
+<img src="https://img.saraba1st.com/forum/202503/21/180149g870un8um3ii80gv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (85.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-21 18:01 上传
+
+拿卡牌市场价值跟一个家用电器的价值比，不知道是蠢还是坏
+
+这还是个卖卡的二手店的帐号
+
