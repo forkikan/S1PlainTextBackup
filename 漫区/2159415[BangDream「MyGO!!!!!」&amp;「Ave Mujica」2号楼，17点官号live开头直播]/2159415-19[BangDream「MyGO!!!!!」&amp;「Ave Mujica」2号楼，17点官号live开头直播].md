@@ -47,3 +47,12 @@ Happy birthday 紗夜&amp;日菜！  
 
 2025-3-20 18:58 上传
 
+
+*****
+
+####  CyDiablo  
+##### 27065#       发表于 2025-3-21 11:15
+
+我们武士道有属于自己的电锯人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太会炒大锅饭了
+<img src="https://p.sda1.dev/22/feb62d8456cd6c5d9ad225002d2c888c/Image_643568678211205.png" referrerpolicy="no-referrer">
+

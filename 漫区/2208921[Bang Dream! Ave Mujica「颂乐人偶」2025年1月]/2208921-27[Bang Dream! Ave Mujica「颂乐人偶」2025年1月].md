@@ -7903,3 +7903,83 @@ mygo第十集主要是演出顶住了吧，mygo第七集和第十集都是梅津
 人偶是母亲的象征，祥子之前一直带着人偶，除了表达对母亲的思念，或许也有希望母亲能一直保护陪伴自己的 ...</blockquote>
 应该是梦醒了，不再选择成为像蝶团或者母亲那样优雅而又坚强的人。
 
+
+*****
+
+####  蜜瓜包  
+##### 39205#       发表于 2025-3-21 11:15
+
+论如何拯救大祥老师，应该给她绑起来听mygo演奏三天三夜的春日影，就能成功净化这个邪神了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  路人庚  
+##### 39206#       发表于 2025-3-21 11:18
+
+母亲的人偶代表过去，mygo灯的笔记本代表未来，祥子最终选择了未来。虽然祥子也知道自己的选择不会长久，因为她早已被浊流冲刷污染了，但她还是想保留片刻的安宁，这便是母鸡卡的主题“一瞬”。
+
+但最终制作组端上来的东西还是太难绷了，心理描写过于缺位导人物心理只能靠猜，目前看来官方漫画做的也许会好点，因为给前面几集的祥子补了一些内心独白
+
+*****
+
+####  adretyu67.  
+##### 39207#       发表于 2025-3-21 11:18
+
+狗团已经治不了成神的大祥老师了，你们还是另请高明吧。
+
+*****
+
+####  南宮凝香  
+##### 39208#       发表于 2025-3-21 11:19
+
+相信祥子 回到母雞卡的世界吧
+
+相信是不需要理由的
+
+*****
+
+####  一心而用  
+##### 39209#       发表于 2025-3-21 11:22
+
+GGnn
+
+<img src="https://img.saraba1st.com/forum/202503/21/112138uaay3vzyvy6jn1zs.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (37.4 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-21 11:21 上传
+
+<img src="https://img.saraba1st.com/forum/202503/21/112147sf4gjzlg2lpgggbj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (33.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-21 11:21 上传
+
+
+*****
+
+####  595505568  
+##### 39210#       发表于 2025-3-21 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67700879&amp;ptid=2208921" target="_blank">路人庚 发表于 2025-3-21 10:32</a>
+忽然发现soyo确实拿下卖狗+母鸡卡全勤奖了，谁才是十五年未有之大女主啊（ ...</blockquote>
+只能叫“乐队的链接者”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 39211#       发表于 2025-3-21 11:23
+
+种苦瓜好，顺便熟透的苦瓜其实是甜的，而且是炸裂开的橙红色
+
+*****
+
+####  看穿一切的鱼  
+##### 39212#       发表于 2025-3-21 11:25
+
+话说牢祥现在直言自己要不择手段了，会用大手打压路边小乐队吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
