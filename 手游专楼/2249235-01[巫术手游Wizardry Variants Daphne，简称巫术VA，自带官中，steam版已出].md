@@ -1802,3 +1802,18 @@ wiki说第三个图（要塞）的垃圾会出苦无和忍者刀，不过我还�
 所以没这必要？ ...</blockquote>
 前排三把土武器当然轻松的多，但是掉率实在太感人了，船舱宝箱已经可以出不少紫装了，还是看个人取舍
 
+
+*****
+
+####  mobdom  
+##### 151#       发表于 2025-3-22 00:26
+
+ 本帖最后由 mobdom 于 2025-3-22 00:29 编辑 
+
+你们打得都好快，我今天刚做完初始3层的树人任务，开始探索4层
+不得不说这4层比前面恶心多了，每次以为自己能走到传送点结果到头是死路，然后就被各种战斗，好好好硬核dnd是吧<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">最后还是没走到，找机关大哥送我上去就结束了。后天有空再下去一次。
+
+另，尸斑问题终于解决了，回去住了晚豪华房，谢谢楼上的大哥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
