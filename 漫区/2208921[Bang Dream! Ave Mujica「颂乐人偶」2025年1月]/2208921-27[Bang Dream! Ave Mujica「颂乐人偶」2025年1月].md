@@ -10338,3 +10338,25 @@ Taki = 海子
 
 木头睦是不是你邦邦历史上死的最窝囊的主角团成员？<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  z-hunter  
+##### 39417#       发表于 2025-3-21 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67706445&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-21 22:06</a>
+
+睦双重人格的作用，就是让最后初祥锁死的时候，睦厨和睦祥厨和普通观众，都不会觉得奇怪
+
+初华小姨的作用 ...</blockquote>
+双子的作用就是真假初华，让后来的和白月光成真，这也算是双子的样板戏了，无论是百合还是普通男女青梅竹马
+
+初华小姨的作用我反而觉得不大，没有这个设定也能让大祥做大女主的。你说显得比较合理也说得通<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 39418#       发表于 2025-3-21 22:39
+
+如果认为真的存在死这个概念，那甚至是第一个，所以什么形容词都对<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
