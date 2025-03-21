@@ -2346,3 +2346,24 @@ QQ图片20250321102409.jpg
 你们不发疯我很困扰的。</blockquote>
 到现在看起来还不疯的那几个看起来是最有问题的
 
+
+*****
+
+####  aptx8285144  
+##### 244#       发表于 2025-3-21 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67701856&amp;ptid=2250507" target="_blank">madbird023 发表于 2025-3-21 11:52</a>
+
+到现在看起来还不疯的那几个看起来是最有问题的</blockquote>
+虽然但是，除了母鸡卡第七话外，不是只有GO团几个还没多疯几次吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  雪霜  
+##### 245#       发表于 2025-3-21 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67701695&amp;ptid=2250507" target="_blank">庸necro 发表于 2025-3-21 11:38</a>
+
+本来打了一长串，但是放弃了你开心就好了</blockquote>
+别啊，我还想知道不喜欢这集怎么就是柿本soulmate了，怎么就是没看明白mygo了，这第12集跟mygo有什么联系，还挺想听你们真正看懂mygo的人说说看的
+
