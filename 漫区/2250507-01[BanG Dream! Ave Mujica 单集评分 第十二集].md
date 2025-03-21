@@ -2178,3 +2178,11 @@ mujica只看过这一集，看完只想说
 
 对这种片子做阅读理解是病，得治
 
+
+*****
+
+####  それは奇跡です  
+##### 229#       发表于 2025-3-21 10:15
+
+上集我还因为有乐子看特别乐所以给了+2，这集突兀的衔接不起来我真绷不住了，重新给回-2，成神是什么JB玩意儿啊<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">
+
