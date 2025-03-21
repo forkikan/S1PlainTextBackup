@@ -1881,3 +1881,12 @@ wsd的粉毛多的好比路边野狗你说对吧<img src="https://static.saraba1
 
 — from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  u2deack  
+##### 200#       发表于 2025-3-21 08:03
+
+我还是能看到有说观感上升的，满足了
+每一集都观感上升这动画一定成神了是吧
+
