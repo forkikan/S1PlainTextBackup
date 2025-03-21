@@ -2572,3 +2572,34 @@ SEC一张都没出
 
 这还是个卖卡的二手店的帐号
 
+
+*****
+
+####  holofan  
+##### 10942#       发表于 2025-3-21 20:56
+
+说到快4月1号了，每年惯例的danye日要到了，但是去年已经出了MV+新曲的豪华阵容情况下今年要安排什么更新的内容我看就很难了，要么就是直接出游戏或者周边之类的
+
+但是之前有一次直播又说希望有人做danye的游戏那反过来意思是说现在还没有，所以今年会搞什么也很难猜
+
+*****
+
+####  holofan  
+##### 10943#       发表于 2025-3-21 22:18
+
+<img src="https://img.saraba1st.com/forum/202503/21/215439yjznvl92sioc9sxv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (16.12 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-21 21:54 上传
+
+<img src="https://img.saraba1st.com/forum/202503/21/221844g7zs7rrsrsppu25m.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (13.53 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-21 22:18 上传
+

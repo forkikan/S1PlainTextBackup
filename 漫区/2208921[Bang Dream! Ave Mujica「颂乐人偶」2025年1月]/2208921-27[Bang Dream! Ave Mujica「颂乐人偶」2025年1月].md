@@ -10270,3 +10270,17 @@ Taki = 海子
 
 让祥子选假初华。
 
+
+*****
+
+####  结衣小比取  
+##### 39412#       发表于 2025-3-21 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67706154&amp;ptid=2208921" target="_blank">万书言 发表于 2025-3-21 21:18</a>
+
+海玲对初音说花心就去告状，不是为了体现海玲的控制欲不允许自己乐队的成员和其他乐队的成员接触嘛。
+
+这一 ...</blockquote>
+有个氪海希CP的UP主，可以看看她的分析
+[https://www.bilibili.com/video/BV1gXXiYZE92/](https://www.bilibili.com/video/BV1gXXiYZE92/)
+

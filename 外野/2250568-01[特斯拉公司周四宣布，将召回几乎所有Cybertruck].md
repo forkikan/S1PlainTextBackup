@@ -438,3 +438,11 @@ cybertruck这种一眼又丑又土做工又差的皮卡当初能炒起来也是�
 召回几乎所有而不是全部，是指有一部分已经被人烧了是吧</blockquote>
 有些烧了，有些被转卖到海外了，还有的被炸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  烦死了  
+##### 50#       发表于 2025-3-21 22:19
+
+这逼车车主痛车比例还挺高，路上存在感很强
+
