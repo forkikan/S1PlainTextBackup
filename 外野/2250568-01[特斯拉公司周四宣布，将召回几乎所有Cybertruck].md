@@ -446,3 +446,13 @@ cybertruck这种一眼又丑又土做工又差的皮卡当初能炒起来也是�
 
 这逼车车主痛车比例还挺高，路上存在感很强
 
+
+*****
+
+####  千代  
+##### 51#       发表于 2025-3-21 22:54
+
+草台理论V2.0：外表看着是坚硬的装甲车，实际里面是用胶水粘的随时会掉零件<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

@@ -10360,3 +10360,46 @@ Taki = 海子
 
 如果认为真的存在死这个概念，那甚至是第一个，所以什么形容词都对<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  z-hunter  
+##### 39419#       发表于 2025-3-21 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67706154&amp;ptid=2208921" target="_blank">万书言 发表于 2025-3-21 21:18</a>
+
+海玲对初音说花心就去告状，不是为了体现海玲的控制欲不允许自己乐队的成员和其他乐队的成员接触嘛。
+
+这一 ...</blockquote>
+这段可以解析为海铃不允许初华自己乐队的成员和其他乐队成员接触
+
+也可以解析为初华你都有祥子这个女友了，还来搞立希（这个我的女友？），是“出轨”吗，来出来打一架
+
+嗯……很有独角兽阴湿特色意味的女女关系描写<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+初华就是想对立希道歉，所以买了个饮料。（这个饮料对海希来说有特殊意义的）
+
+然后花咲川三女终于是开始有接点了
+
+*****
+
+####  卡密sama  
+##### 39420#       发表于 2025-3-21 22:49
+
+祥子的私服是不是没有别的啊？想了想感觉很少见她穿别的衣服
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  是谁的书画  
+##### 39421#       发表于 2025-3-21 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67706677&amp;ptid=2208921" target="_blank">卡密sama 发表于 2025-3-21 22:49</a>
+祥子的私服是不是没有别的啊？想了想感觉很少见她穿别的衣服
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+每个人都只有三套衣服，校服，演出服和常服。不是她很少，是所有人都不多<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
