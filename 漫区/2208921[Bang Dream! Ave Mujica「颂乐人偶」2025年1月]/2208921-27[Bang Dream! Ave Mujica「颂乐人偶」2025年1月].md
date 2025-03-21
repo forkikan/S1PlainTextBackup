@@ -10284,3 +10284,57 @@ Taki = 海子
 有个氪海希CP的UP主，可以看看她的分析
 [https://www.bilibili.com/video/BV1gXXiYZE92/](https://www.bilibili.com/video/BV1gXXiYZE92/)
 
+
+*****
+
+####  结衣小比取  
+##### 39413#       发表于 2025-3-21 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67706350&amp;ptid=2208921" target="_blank">聋与唬 发表于 2025-3-21 21:49</a>
+
+想了下有待解决的问题
+
+1.睦的问题:
+
+融合到底是咋回事？莫提斯还在吗？睦祥关系呢？睦祥表姐妹的伏笔还收吗 ...</blockquote>
+2可参考坛友的分析[39143#](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=2208921&amp;pid=67700230)
+
+*****
+
+####  z-hunter  
+##### 39414#       发表于 2025-3-21 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67706350&amp;ptid=2208921" target="_blank">聋与唬 发表于 2025-3-21 21:49</a>
+
+想了下有待解决的问题
+
+1.睦的问题:
+
+融合到底是咋回事？莫提斯还在吗？睦祥关系呢？睦祥表姐妹的伏笔还收吗 ...</blockquote>
+伏笔只是暗示初音是双子，当双子暴露之后，初华和初华母就是背景，不会出现的，如果出现了初音的道德问题和地位会变得无法解决。所以当作背景板就好。其实我觉得本来只有双子是背景板的……
+
+祥子觉得自己和初华青梅竹马一起玩只是祥子和初音的接点，她怀念的是最后一天一起看星星的初音，并不是初华。
+
+初音做的只是来东京之后，骗了祥子作为她和祥子关系的开始，这个欺骗祥子这集直接原谅初音了。初音在祥子低潮期一直陪伴她，陪她组mujica，借地方给她住，第10集的重组的经历（先别论这些的描写成什么样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）。以及初音现在能呆的地方，只有小岛的别墅管理员，和祥子身边了。
+
+所以祥子接受了初音，直接要初音离开小岛，呆在祥子身边也是顺理成章的了
+
+至于睦的故事，我回答不了，请楼友高手解读<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天空塔书记官  
+##### 39415#       发表于 2025-3-21 22:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 39416#       发表于 2025-3-21 22:37
+
+木头睦是不是你邦邦历史上死的最窝囊的主角团成员？<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
