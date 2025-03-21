@@ -1662,3 +1662,11 @@ wiki说第三个图（要塞）的垃圾会出苦无和忍者刀，不过我还�
 只能继承6次吗我还以为随便继承的</blockquote>
 我母鸡呀，看到显示那0/6于是一直没点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  toblkr  
+##### 139#       发表于 2025-3-21 16:21
+
+那个不是升级6次吗？好像技能最高7级
+

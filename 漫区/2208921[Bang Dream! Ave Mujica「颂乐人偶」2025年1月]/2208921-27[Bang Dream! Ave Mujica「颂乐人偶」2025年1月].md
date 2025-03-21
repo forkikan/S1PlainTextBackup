@@ -9119,3 +9119,14 @@ MyGO哪里王道了，不就是靠剑走偏锋火的吗？
 老登最初也是提出把初音和她妈接过来的，意思就是丰川家他也不干了。不同意的是初音妈，要留在岛上跟渔夫过 ...</blockquote>
 我现在认定老登是坏的，是初妈为了安慰得知身世的初音而编的。 实际上是老登在老婆活着的时候野心一直被压制，性亚裔了。老婆一死老登就染指初妈，不但在岛上搞，可能还带到东京去，于是大宅子的老仆人对于金发女人的有映像。
 
+
+*****
+
+####  Lawliet.L  
+##### 39317#       发表于 2025-3-21 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67703815&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-3-21 16:08</a>
+
+其实我还是比较喜欢这集大女主祥的，不看前11集，单看这集大祥还是很大女主的233 ...</blockquote>
+致敬LLX称帝，不过大男主大女主本来就不好写<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
