@@ -6667,3 +6667,74 @@ bgm拼命洗独角兽，说什么柿本和独角兽在拉扯云云，感觉是�
 
 独角兽的系列构成能力仅限于真空球形中的最多5个jk，单集调度能力写好最多2组女女关系性。一旦牵扯到现实中任何问题，斗财阀，废物老爹，经纪公司，伦理关系，写出来都是没法细想的东西。最搞笑的是这些掌控不了的因素都是她自己非要加进去的
 
+
+*****
+
+####  堆雪若叶  
+##### 39103#       发表于 2025-3-21 08:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67699779&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-21 08:26</a>
+
+原来这也没忘拆一脚</blockquote>
+为了逃避而忘记一切和忘记一切而选择面对的区别，如果祥子早换成现在的心境都不用soyo堵门了
+
+*****
+
+####  安娜导函数  
+##### 39104#       发表于 2025-3-21 08:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698137&amp;ptid=2208921" target="_blank">烂片雷达 发表于 2025-3-20 23:36</a>
+这集把cp定性了
+爱灯，初祥，海希，素睦，大家应该以官方为准以后不要乱嗑了 ...</blockquote>
+哪来的素睦，官方最后不告诉你了，喵睦才是王道嘛<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 39105#       发表于 2025-3-21 08:40
+
+<blockquote>扶桑洛槿 发表于 2025-3-20 23:57
+因为大祥手里没有老登把柄，和老登爆了怕被老登咬下丰川家一口肉。
+
+现在有老登把柄了，老登不听话那就把 ...</blockquote>
+就算有这把柄，穿越回去，就能解决这些现实问题?更何况没有老登的默许，第二次母鸡卡都建立不起来好吗(那时候还不知道初音是私生女呢)
+
+*****
+
+####  看穿一切的鱼  
+##### 39106#       发表于 2025-3-21 08:41
+
+到最后也不知道初音到底为什么这么爱章鱼，一起看星星那个晚上在星空里看见了不该看的东西吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  swessia  
+##### 39107#       发表于 2025-3-21 08:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么说呢，现在的强势苦瓜睦确实算是睦的成长状态，就是留给苦瓜睦的空间不多了哦
+
+但不管JB访谈，第十集演出来的效果就是吉他睦墨提斯双死，现在的苦瓜睦是古神睦
+
+*****
+
+####  秋月孝三  
+##### 39108#       发表于 2025-3-21 08:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67699878&amp;ptid=2208921" target="_blank">看穿一切的鱼 发表于 2025-3-21 08:41</a>
+到最后也不知道初音到底为什么这么爱章鱼，一起看星星那个晚上在星空里看见了不该看的东西吗 ...</blockquote>
+🐧写的诗和skk的臭脚在剧中都是堪比催眠app的神器，不需要考虑理由的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 39109#       发表于 2025-3-21 08:45
+
+<blockquote>看穿一切的鱼 发表于 2025-3-21 07:38
+不是2-11都没有存在意义吗？牢祥要是早点给老登上强度
+
+话说牢祥一开始才是反抗家族吧，现在属于顺从了， ...</blockquote>
+一开始的反抗也没法细想，如果速通武士馆靠的不是丰川大手，那她为什么不把这作为成就拿来压制喵梦呢
+
