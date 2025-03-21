@@ -8100,3 +8100,85 @@ ccc众仿佛记忆退化一样的和解
 其实就是不要再纠结过去在自己身上发生的悲剧，也不要再拿这些过去来把自己垫的高高在上拒绝所有人。仔细看她切割的操作也有这个原动力在里面
 个人觉得拿着灯的笔记本应该是告诫自己一直都有人关心着自己，不要再让身边人伤心，好好回应他人的想法，走出内耗
 
+
+*****
+
+####  ape-apple  
+##### 39224#       发表于 2025-3-21 12:07
+
+其实NGA专版里还是能找到一些豚言豚语的，比如灯祥、素睦和美帝<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  真爱与热情  
+##### 39225#       发表于 2025-3-21 12:07
+
+当然，拿着灯的笔记本很可能只是顺便卖一下灯祥而已。这个可能才是最接近剧组想法的。。
+
+*****
+
+####  一心而用  
+##### 39226#       发表于 2025-3-21 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67700571&amp;ptid=2208921" target="_blank">油画布 发表于 2025-3-21 10:04</a>
+不如让老虚来写吧 说不定真能开启少女乐队黑暗时代</blockquote>
+老虚现在也不行了，隔壁布袋戏写得什么鬼，狗血程度有过之而无不及。
+
+*****
+
+####  ddy2811  
+##### 39227#       发表于 2025-3-21 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67700571&amp;ptid=2208921" target="_blank">油画布 发表于 2025-3-21 10:04</a>
+
+不如让老虚来写吧 说不定真能开启少女乐队黑暗时代</blockquote>
+他这些年也不止一次像Mujica1.0的祥子一样证明自己的能力了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xwr  
+##### 39228#       发表于 2025-3-21 12:11
+
+我觉得NGA是真的看mujica看破防了，S1这边其实还好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 39229#       发表于 2025-3-21 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67701933&amp;ptid=2208921" target="_blank">油画布 发表于 2025-3-21 12:01</a>
+
+祥子最大受害者称号现在是不是该给甜甜圈女士了？</blockquote>
+那得看甜甜圈女士有没有那么在乎sumimi。
+
+如果只是公式运营那也没啥伤害的。
+
+
+*****
+
+####  ddy2811  
+##### 39230#       发表于 2025-3-21 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67701060&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-21 10:49</a>
+
+看台词蝶团还在收集签名战理事长。
+
+这边鸡团已经熟练掌握大手使用方法抽人了。</blockquote>
+看手游剧情里透子邀人来大家都得给面子的情况，还肯和理事长搞个有来有回让msr自己来最后一棒，说实话是考虑到不要过于刺激同样平民出身的msr也说不定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  油画布  
+##### 39231#       发表于 2025-3-21 12:13
+
+<blockquote>一心而用 发表于 2025-3-21 12:09
+老虚现在也不行了，隔壁布袋戏写得什么鬼，狗血程度有过之而无不及。</blockquote>
+我觉得第一第三部还行吧，mujica只拍一季还兜得住（
+
+*****
+
+####  ape-apple  
+##### 39232#       发表于 2025-3-21 12:14
+
+牢虚不是早就不行了吗，我建议回天之后就别关注他了，就和mujica之后不要再关注柿本一样
+

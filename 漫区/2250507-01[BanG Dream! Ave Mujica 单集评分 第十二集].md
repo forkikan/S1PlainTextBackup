@@ -2367,3 +2367,37 @@ QQ图片20250321102409.jpg
 本来打了一长串，但是放弃了你开心就好了</blockquote>
 别啊，我还想知道不喜欢这集怎么就是柿本soulmate了，怎么就是没看明白mygo了，这第12集跟mygo有什么联系，还挺想听你们真正看懂mygo的人说说看的
 
+
+*****
+
+####  madbird023  
+##### 246#       发表于 2025-3-21 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67701897&amp;ptid=2250507" target="_blank">aptx8285144 发表于 2025-3-21 11:56</a>
+
+虽然但是，除了母鸡卡第七话外，不是只有GO团几个还没多疯几次吗</blockquote>
+go团是有意朝温暖人心的方向建设的，不能整活
+
+*****
+
+####  yuandi0120  
+##### 247#       发表于 2025-3-21 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697325&amp;ptid=2250507" target="_blank">枪聆弹语 发表于 2025-3-20 22:43</a>
+如果这都吃得下，哪证明是否豚豚就活该看业界充满了百合烂片呢</blockquote>
+天天喊着“就是为了这碟醋才包的饺子”的人最后果然吃到了包着屎的饺子这不是理所应当的吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 248#       发表于 2025-3-21 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697812&amp;ptid=2250507" target="_blank">琦乐无穷 发表于 2025-3-20 23:11</a>
+
+-2 
+
+最后和经纪人对峙这段笑死，大小姐过家家翻车一次了，还有脸报自己大名，好想问你是哪位啊？ ...</blockquote>
+有一说一，那是社长，经纪人“还没资格”和丰川公主对峙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
