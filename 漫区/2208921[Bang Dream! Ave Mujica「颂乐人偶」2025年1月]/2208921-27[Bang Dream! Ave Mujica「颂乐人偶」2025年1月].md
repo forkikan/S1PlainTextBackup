@@ -8836,3 +8836,66 @@ saki： I did it for me. I liked it. I was good at it. And I was ... really ... 
 
 手游会演祥子脱离丰川家吗，要不到年纪了就得找下一个赘婿了，有点太破坏邦邦世界观了
 
+
+*****
+
+####  秋月孝三  
+##### 39295#       发表于 2025-3-21 14:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">mtm：base model，大莫老师：LoRA
+
+*****
+
+####  everdream  
+##### 39296#       发表于 2025-3-21 14:33
+
+ 本帖最后由 everdream 于 2025-3-21 14:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698288&amp;ptid=2208921" target="_blank">MuramasaSP 发表于 2025-3-20 23:49</a>
+
+这真的是从第六话开始最舒服的一话了。
+
+之前想起自己一直期待的动画和最喜欢的角色被糟蹋成这样，气得饭都 ...</blockquote>
+go13集以来对祥子的喜爱逐渐随着mujica难绷剧情的不断播出不断消退，现在只能把祥子当做不知名番剧/企划皮套好看的角色来看待了，ep12这一尊名为丰川大小姐的神像把我想看到的那个小祥砸死了。
+
+“我可是丰川祥子啊。”
+
+看到这发觉先前‘祥子’的一切都无关紧要，只要捡起‘丰川’一切都会变好，过程中完全没得到成长，只剩下了一个空壳。
+
+乐队折腾到最后也只是大小姐过家家，一切都变成闹麻。
+
+<img src="https://img.saraba1st.com/forum/202503/21/143509br725d6m6rzcdkbi.jpg" referrerpolicy="no-referrer">
+
+<strong>1611ae8fe191f073b697bd520110f8de.jpg</strong> (71.37 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-21 14:35 上传
+
+*****
+
+####  syndrome2032  
+##### 39297#       发表于 2025-3-21 14:34
+
+ 本帖最后由 syndrome2032 于 2025-3-21 14:35 编辑 
+
+大致说一下对12话大祥老师操作的理解吧。
+
+首先是和初华同居做梦。这是对鸡团现状的理解。
+
+鸡团就是大祥反抗现实的梦境。
+但是梦境终归要醒，大祥要做的事就是尽可能挣扎延缓梦醒的一刻。
+
+所以大祥的挣扎就是鸡2.0的重新商业化出道。
+出道成功积攒名气与金钱的话就有了从丰川独立的底气(虽然为了达成这个目标直接就你要违抗丰川的我)。
+
+但是这样的反抗能不能成功就不知道了。
+
+*****
+
+####  swessia  
+##### 39298#       发表于 2025-3-21 14:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">迈巴赫怎么这么爽那张表情包越来越真了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
