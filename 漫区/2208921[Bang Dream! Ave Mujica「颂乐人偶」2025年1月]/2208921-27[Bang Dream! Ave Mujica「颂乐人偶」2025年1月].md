@@ -6778,3 +6778,97 @@ bgm拼命洗独角兽，说什么柿本和独角兽在拉扯云云，感觉是�
 要不是老登非要到祥子面前喊初音回去，私底下发个短信叫她回岛或者大方点 ...</blockquote>
 还真是，一般来说不应该把私生子送远点才对吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 39113#       发表于 2025-3-21 08:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67699580&amp;ptid=2208921" target="_blank">看穿一切的鱼 发表于 2025-3-21 07:38</a>
+不是2-11都没有存在意义吗？牢祥要是早点给老登上强度
+
+话说牢祥一开始才是反抗家族吧，现在属于顺从了， ...</blockquote>
+不是，我的意思是这一集几句话就已经把11集的内容说完了，11集一切的内容里有意义只有一句老登也是赘婿，然而这种信息还不如第十二集补一句就行。
+
+11集的最终目的就是十本觉得自己做独角戏超帅的，你们为什么不喜欢。是啊，为什么呢。
+
+2到11的话，我已经不好评价什么了，既然十本是这种看，你们觉得我的操作帅不帅的心态，还能说什么呢。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  秋月孝三  
+##### 39114#       发表于 2025-3-21 08:59
+
+好像还有👃姐口中的人性肮脏的一面没演，下周还是要准时蹲守abema的。感觉自己上abema看将棋直播都没那么积极过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  syndrome2032  
+##### 39115#       发表于 2025-3-21 09:00
+
+人性脏的一面指的就是初华的身世吧。
+
+总不能转头来下一话告诉你出道live失败，鸡团变身路边乐队。
+
+*****
+
+####  aptx8285144  
+##### 39116#       发表于 2025-3-21 09:02
+
+<blockquote>ntrntr1 发表于 2025-3-21 08:48
+而且老登的把柄也是自己送上门的
+
+要不是老登非要到祥子面前喊初音回去，私底下发个短信叫她回岛或者大方点 ...</blockquote>
+而且当着大祥的面喊初音回去算不算老登莫名其妙的降智商的行为……
+
+*****
+
+####  ads147147  
+##### 39117#       发表于 2025-3-21 09:02
+
+<img src="https://p.sda1.dev/22/29098d80929313bd81757a2bccf6f362/image.jpg" referrerpolicy="no-referrer">
+setsuna：这个世界没有神！（林鼓子：祥子是神。）
+咋说呢，这图包含的梗太多了。
+
+从这句台词就知道soyo漫画那句坏心眼的神不是乱说的，祥子的底层逻辑设计就是，坏心眼的神（所以说真的很古希腊啊，宙斯阿波罗什么的**蠢事，然后用神力给自己擦屁股）
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ads147147  
+##### 39118#       发表于 2025-3-21 09:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67700015&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-3-21 09:00</a>
+人性脏的一面指的就是初华的身世吧。
+
+总不能转头来下一话告诉你出道live失败，鸡团变身路边乐队。 ...</blockquote>
+预告看，已经重回武道馆了吧。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  蜜瓜包  
+##### 39119#       发表于 2025-3-21 09:05
+
+大祥老师都成神了，为什么不把mujica那几个神人都踢掉，重组ccc呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 39120#       发表于 2025-3-21 09:05
+
+<blockquote>看穿一切的鱼 发表于 2025-3-21 08:41
+到最后也不知道初音到底为什么这么爱章鱼，一起看星星那个晚上在星空里看见了不该看的东西吗 ...</blockquote>
+兩個愛著豐川家女人的人生下來的種愛豐川家的女人是理由當然的
+
+這就跟百目鬼+小羽可以生下把四月一日當傳家寶的血系一樣
+
+從基因上的底層邏輯
+
