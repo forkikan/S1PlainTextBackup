@@ -2282,3 +2282,29 @@ https://x.com/beeeeetan/status/1902453970964246962
 
 2025-3-22 00:53 上传
 
+
+*****
+
+####  zzf111  
+##### 9055#       发表于 2025-3-22 03:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67565939&amp;ptid=2209276" target="_blank">zzf111 发表于 2025-3-3 18:55</a>
+
+2ch讨论帖里的复现图</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202503/22/033646vmuzhnnxmonmpauo.png" referrerpolicy="no-referrer">
+
+<strong>1742482191443.png</strong> (51.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-22 03:36 上传
+
+<img src="https://img.saraba1st.com/forum/202503/22/034007iao33myqtt1nau1m.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (61.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-22 03:40 上传
+
