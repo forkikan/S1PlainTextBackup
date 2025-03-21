@@ -9530,3 +9530,28 @@ lof：风
 
 鸡不搞叛逆小祥和阴湿小姨确实解释不了为啥作曲作词把鸡的音乐做成这样<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sauron.j  
+##### 39349#       发表于 2025-3-21 18:51
+
+ 本帖最后由 sauron.j 于 2025-3-21 18:55 编辑 
+
+大祥上午机场逃跑，下午公共交通到岛上徒步十几公里，傍晚逮回初音上船，凌晨时溜回大宅，第二天早上到初音家，只是“稍微浅眠一会儿”又去上学了？
+
+这特种兵体质，起步摔一跤就空血的偷摸零表示<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+（回去路上倒是睡过了）
+
+*****
+
+####  syndrome2032  
+##### 39350#       发表于 2025-3-21 18:56
+
+不是上学。
+
+是第二天上午11点鸡团排练。
+
+反正铁人三项就是铁人三项
+

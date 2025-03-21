@@ -588,3 +588,12 @@ dtcg手游什么时候出啊？dtcg规则看起来比ptcg好玩，想尝试玩�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Piano-Forest  
+##### 58#         楼主| 发表于 2025-3-21 18:47
+
+<img src="https://p.sda1.dev/22/ace4bcbc29da895c62ca67ed37d87a89/20250321_161952.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/fa63dc94b7a9eea86dba1970f6d697d2/20250321_161959.jpg" referrerpolicy="no-referrer">
+
