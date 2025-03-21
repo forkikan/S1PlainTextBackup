@@ -1642,3 +1642,23 @@ wiki说第三个图（要塞）的垃圾会出苦无和忍者刀，不过我还�
 
 结果发现怪物明显变硬了，掉的杂物也变成了出钢级别的。
 
+
+*****
+
+####  Dreki  
+##### 137#       发表于 2025-3-21 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67702693&amp;ptid=2249235" target="_blank">棍机凹升龙 发表于 2025-3-21 13:38</a>
+继承我看只有6次那是不是不用考虑去继承无名还是以后能换呢，仓库一堆无名没入编不知道能干嘛 ...</blockquote>
+只能继承6次吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我还以为随便继承的
+
+*****
+
+####  棍机凹升龙  
+##### 138#       发表于 2025-3-21 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67703597&amp;ptid=2249235" target="_blank">Dreki 发表于 2025-3-21 15:41</a>
+
+只能继承6次吗我还以为随便继承的</blockquote>
+我母鸡呀，看到显示那0/6于是一直没点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
