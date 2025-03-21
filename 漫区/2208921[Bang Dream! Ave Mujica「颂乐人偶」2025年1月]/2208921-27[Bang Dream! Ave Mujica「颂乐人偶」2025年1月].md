@@ -7127,3 +7127,52 @@ soyo the danger不值一提，saki the danger才是真的。
 
 祥子一开始找的就是看星星的初华，初华妹不过是大小姐万花丛中一片而已<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一心而用  
+##### 39144#       发表于 2025-3-21 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67700169&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-3-21 09:16</a>
+
+在我看来就是十本为了炫技，和mygo第一人称对偶强行写了一出独角戏，而且其中初音的自白里有太多莫名其妙 ...</blockquote>
+我个人是感觉第11话还是很有必要的，唯一的初华主视角，展示了这个角色的全部内心，交代设定反倒还是其次。
+
+全剧最大的问题不是这种交代角色内心的内容太多而是太少了，mujica里面就初华和睦有这个待遇，喵梦全是藏着的，海铃就交代了一点，祥子更是全程黑箱除了第一话其余所有时候只能猜她在想什么，戏份上又是完完全全的女主，自然是割裂到极点。
+
+*****
+
+####  ddy2811  
+##### 39145#       发表于 2025-3-21 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67699358&amp;ptid=2208921" target="_blank">S1-an 发表于 2025-3-21 03:41</a>
+
+我说有没有可能，丰川定治跟丰川祥子是祖父与孙女的关系，隔代亲。
+
+然后，除了部分女频文，我是想不到一 ...</blockquote>
+谁爱来谁来，别拦着我组乐队就行，把经费给够了直接玩砸TGW都行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 39146#       发表于 2025-3-21 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67700208&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-3-21 09:20</a>
+
+上一话死活不肯给真初华人设多少就该感觉到见不到了吧。</blockquote>
+所以还有才初华是不是真的存在的，是不是初音编出来的。
+
+其实我感觉到必然存在，因为真初华的作用其实是喊出那句“姐姐不是（养父）亲生的所以不难过”，直接撕破脸所以给了初音接下来一系列行动的推动力。
+
+*****
+
+####  AlterDialog  
+##### 39147#       发表于 2025-3-21 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67700157&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-3-21 09:15</a>
+
+最近太忙了，最新的两集都没时间看，登上s1看了一眼，评价很神秘啊，后面的值得看不 ...</blockquote>
+十一集绝对值得，母鸡卡最牛逼的一集
+
+十二集不好说
+
