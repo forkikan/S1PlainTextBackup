@@ -10507,3 +10507,14 @@ Taki = 海子
 
 不过相比大祥老师集均1.5，鸡团人均两个以上的人物形象来看，也算多一个不嫌多了。
 
+
+*****
+
+####  舞野咲  
+##### 39429#       发表于 2025-3-22 02:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67706818&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-21 23:15</a>
+
+话说大祥把中登扔给老登照顾，这几乎是默认168亿不是老登搞鬼吧，虽然我不知道她是从谁那里知道的，初音自 ...</blockquote>
+可能是真亏了，老登骗初华说是她的原因
+
