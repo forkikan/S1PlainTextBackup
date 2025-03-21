@@ -1994,3 +1994,39 @@ B站上的官方账号
 
 有国内剧场版加持，泥楼在TV前冲击万楼应该是没问题了
 
+
+*****
+
+####  az一串字母  
+##### 9044#       发表于 2025-3-21 20:01
+
+https://x.com/beeeeetan/status/1902453970964246962
+
+地球に降りたシュウジとマチュがシャア(？)を訪ねる妄想
+
+ジークアクス放送開始前に妄想全部大放出しとけスペシャル
+
+<img src="https://img.saraba1st.com/forum/202503/21/200118cx8qsrsvvl1y5yjl.png" referrerpolicy="no-referrer">
+
+<strong>GmbfvM9a4AAuOrW.png</strong> (385.52 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-21 20:01 上传
+
+<img src="https://img.saraba1st.com/forum/202503/21/200123fj00j8f8l0a866rj.png" referrerpolicy="no-referrer">
+
+<strong>GmbfvM_a8AIKlPk.png</strong> (312.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-21 20:01 上传
+
+<img src="https://img.saraba1st.com/forum/202503/21/200127vg1zxt0glx1ltxll.png" referrerpolicy="no-referrer">
+
+<strong>GmbfvM9aIAA_tga.png</strong> (260.68 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-21 20:01 上传
+
