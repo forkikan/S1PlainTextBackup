@@ -1588,3 +1588,18 @@ http://weibo.com/7985965662/PjxCeo7PP
 
 2025-3-21 12:34 上传
 
+
+*****
+
+####  pokemon最爱  
+##### 9010#       发表于 2025-3-21 12:41
+
+骡子的吐槽真好玩啊，不过看这台词别告诉我GQX里会有正史CCA后骡鸭登场吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 9011#       发表于 2025-3-21 12:42
+
+骡：有点像高达，不确定，再看看
+
