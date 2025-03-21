@@ -1688,3 +1688,14 @@ wiki说第三个图（要塞）的垃圾会出苦无和忍者刀，不过我还�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">奈落门都没进开个宝箱就被扎麻痹，想省点钱睡马房第二天醒来就发现被偷钱，后期会缺钱吗
 
+
+*****
+
+####  棍机凹升龙  
+##### 142#       发表于 2025-3-21 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67704158&amp;ptid=2249235" target="_blank">Dreki 发表于 2025-3-21 16:48</a>
+
+那个是技能等级</blockquote>
+原来如此，感谢
+
