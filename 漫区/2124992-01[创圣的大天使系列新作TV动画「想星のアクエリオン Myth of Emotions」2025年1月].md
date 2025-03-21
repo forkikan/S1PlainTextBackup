@@ -216,3 +216,13 @@ AKINO from bless4 - 創聖のアクエリオン / THE FIRST TAKE
 
 至于女神根据现在的表现只能说是究极绿茶了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  真爱与热情  
+##### 293#       发表于 2025-3-22 02:06
+
+百~百~姬<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+不知道木耳听觉是不是出了问题，TFT的版本明显感觉副歌有点吃力的样子，好唏嘘啊
+
