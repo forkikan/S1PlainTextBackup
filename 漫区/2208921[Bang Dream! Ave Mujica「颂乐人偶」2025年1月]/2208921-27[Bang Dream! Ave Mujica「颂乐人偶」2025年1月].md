@@ -9585,3 +9585,24 @@ lof：风
 
 甜甜圈女士起码还活得好好的，猛地一想到小墨、小睦见不到了就有点心塞<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Libartas  
+##### 39354#       发表于 2025-3-21 19:21
+
+说起来初音初华姐妹的发色算亚麻色吗？
+
+
+*****
+
+####  堆雪若叶  
+##### 39355#       发表于 2025-3-21 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67704832&amp;ptid=2208921" target="_blank">GBLMikuHatsune 发表于 2025-3-21 18:08</a>
+
+怎么说呢，无论这是不是阴湿中年樱花妹的本意，12集的cp确实给了我一些不一样的。。。口感？
+
+初祥:</blockquote>
+可惜和遗憾就是灯祥的底色啊。最后祥子选择的是不再打扰灯平静的生活，所以灯永远不会知道祥子对自己情意多深。惦念被对方拯救而不让对方牵挂两人才能走上不同的道路。
+
