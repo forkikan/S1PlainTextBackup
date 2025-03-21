@@ -205,3 +205,11 @@
 之前退坑太久缺了很多2.5%绊礼装就一直没打所长本，惊觉这次限时过本有3石头，还是今晚看看攻略打了吧…… ...</blockquote>
 希望你还有茶壶，否则亏绊又要痛苦了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sandro  
+##### 47095#       发表于 2025-3-22 00:11
+
+所长怎么这么难打啊，不打除了石头还会少啥东西吗
+
