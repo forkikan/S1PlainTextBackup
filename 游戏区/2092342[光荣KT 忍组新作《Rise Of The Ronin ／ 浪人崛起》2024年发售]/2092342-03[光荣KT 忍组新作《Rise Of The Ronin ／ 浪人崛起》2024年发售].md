@@ -2805,3 +2805,18 @@ B站刷到的视频好像大部分都是玩太刀和双刀的，是别的武器�
 [https://youtu.be/EB3J8olZi5E?si=7o9_HL54DKoJqi1N](https://youtu.be/EB3J8olZi5E?si=7o9_HL54DKoJqi1N)
 但是说实话到后面礼物压根不缺，猫打工找给礼物的那几个做就行了
 
+
+*****
+
+####  杜文乐超神归来  
+##### 3677#       发表于 2025-3-21 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67696060&amp;ptid=2092342" target="_blank">cherry__ 发表于 2025-3-20 20:58</a>
+
+B站刷到的视频好像大部分都是玩太刀和双刀的，是别的武器不强吗
+
+我玩长枪和野太刀比较多
+
+宝藏院流我觉得挺 ...</blockquote>
+双刀不知道，太刀感觉独一档。流派少的武器就三四种流派，还包括无明流。太刀整整三排流派，东西太多了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

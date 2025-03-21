@@ -7983,3 +7983,34 @@ GGnn
 
 话说牢祥现在直言自己要不择手段了，会用大手打压路边小乐队吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天空塔书记官  
+##### 39213#       发表于 2025-3-21 11:26
+
+苦瓜最后就是
+
+“md，忍不了和你爆了”是吧
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  蜜瓜包  
+##### 39214#       发表于 2025-3-21 11:30
+
+我想看大祥老师用大手强行拆掉mygo的世界线<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  秋月孝三  
+##### 39215#       发表于 2025-3-21 11:33
+
+用大手找四个阳光开朗敦敦女同把阿农・东京困在敦敦乐不思蜀就行了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
