@@ -8899,3 +8899,25 @@ go13集以来对祥子的喜爱逐渐随着mujica难绷剧情的不断播出不�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  cxj649  
+##### 39299#       发表于 2025-3-21 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67703005&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-3-21 14:23</a>
+
+手游会演祥子脱离丰川家吗，要不到年纪了就得找下一个赘婿了，有点太破坏邦邦世界观了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这事就别管了，这事理论上邦邦所有人都会
+
+大家都是乐奈的奶奶。你懂的。
+
+
+*****
+
+####  睦祥也不会输的  
+##### 39300#       发表于 2025-3-21 14:44
+
+人情世故
+<img src="https://p.sda1.dev/22/94b233f7c68c94185a8246c0430a20c6/image.jpg" referrerpolicy="no-referrer">
+

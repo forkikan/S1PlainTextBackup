@@ -194,3 +194,14 @@
 
 之前退坑太久缺了很多2.5%绊礼装就一直没打所长本，惊觉这次限时过本有3石头，还是今晚看看攻略打了吧……希望临时抱佛脚不会太痛苦<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  marxel  
+##### 47094#       发表于 2025-3-21 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67702805&amp;ptid=1712412" target="_blank">啪嗒啪嗒嘭 发表于 2025-3-21 13:54</a>
+
+之前退坑太久缺了很多2.5%绊礼装就一直没打所长本，惊觉这次限时过本有3石头，还是今晚看看攻略打了吧…… ...</blockquote>
+希望你还有茶壶，否则亏绊又要痛苦了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

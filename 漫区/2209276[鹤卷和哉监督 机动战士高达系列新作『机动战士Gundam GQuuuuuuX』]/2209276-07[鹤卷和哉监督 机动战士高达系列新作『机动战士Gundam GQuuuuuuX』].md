@@ -1677,3 +1677,24 @@ gqx世界线的鸭子也应该不是从其他宇宙来的，但他受到某种�
 
 如果是正史穿越，盘了一下正史的发展，感觉还是只有nt-UC2这个时间段有机会，要不就真的是高维世界了。
 
+
+*****
+
+####  pokemon最爱  
+##### 9018#       发表于 2025-3-21 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67702732&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-3-21 13:44</a>
+
+如果"那一边"是高维世界的话，我倒觉得有点没意思了，有点把独角兽和nt的东西拿出来换个世界再讲一次的感觉 ...</blockquote>
+我个人是觉得痞子他们这帮人应该不会很鸟大文豪在独角和NT里对CCA的诠释<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pokemon最爱  
+##### 9019#       发表于 2025-3-21 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67702840&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-3-21 14:00</a>
+
+如果是正史穿越，盘了一下正史的发展，感觉还是只有nt-UC2这个时间段有机会，要不就真的是高维世界了。 ...</blockquote>
+为什么不能是CCA骡鸭在阿克西斯的奇迹后穿越过来呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
