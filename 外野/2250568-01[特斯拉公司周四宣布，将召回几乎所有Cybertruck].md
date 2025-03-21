@@ -398,3 +398,24 @@ cybertruck这种一眼又丑又土做工又差的皮卡当初能炒起来也是�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  璇瑢子R  
+##### 46#       发表于 2025-3-21 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67704869&amp;ptid=2250568" target="_blank">永远的访客 发表于 2025-3-21 18:14</a>
+
+召回几乎所有而不是全部，是指有一部分已经被人烧了是吧</blockquote>
+主要是没有官方宣布过cybertruck销量。所以基本上都把这次召回数字当成总销量。（4.6万）
+
+但是话不敢说满，所以都是说几乎所有。。。
+
+
+*****
+
+####  wengnaicong  
+##### 47#       发表于 2025-3-21 21:45
+
+好歹你用个铆钉螺丝结构都好点，反正是赛博风，胶水太抽象了
+

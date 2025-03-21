@@ -10003,3 +10003,20 @@ Sumimi散不了吧，社长以为初音回不来才准备安排真奈单飞，�
 我感觉……这LZ才是女频</blockquote>
 哪怕是权倾朝野的大权臣，皇帝有意使绊子的话也是会过得很艰难的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  甲鱼  
+##### 39391#       发表于 2025-3-21 21:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">我的牢墨，能不能下一话回忆下
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  adretyu67.  
+##### 39392#       发表于 2025-3-21 21:42
+
+墨头还要卖周边，应该是不定期放出来
+
