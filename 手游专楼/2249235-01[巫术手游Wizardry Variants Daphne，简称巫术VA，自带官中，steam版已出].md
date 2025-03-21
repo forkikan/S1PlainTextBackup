@@ -1610,3 +1610,11 @@ wiki说第三个图（要塞）的垃圾会出苦无和忍者刀，不过我还�
 
 这次联动剧情里出现了大量巫术3和巫术外传的地名，想了想，这游戏联动本家巫术太方便了，下次联动老巫术给你们来个线条迷宫➕无地图，老登们绝对高潮<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  棍机凹升龙  
+##### 134#       发表于 2025-3-21 13:38
+
+继承我看只有6次那是不是不用考虑去继承无名还是以后能换呢，仓库一堆无名没入编不知道能干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

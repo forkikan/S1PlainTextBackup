@@ -29,3 +29,11 @@
 目前看是非常传统的战斗番虐妹文学，表情画得太有虐妹番口味了，相当细节，主打一个友奈小圆塑。<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">下集预告似乎出现了长得跟女主一样但是蓝瞳的妹子，但莲华和妹妹都是棕瞳，盲猜是重塑肉身，难道是记忆和大金毛由莉酱复制体融合了？不管了先赌一个he结局555<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/22/94ac5745babe54d20b8ad50a315c4e94/Screenshot_20250321_121040_tv.danmaku.bili.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  forgetit  
+##### 165#       发表于 2025-3-21 13:40
+
+最后一集完全不知道会怎么样
+

@@ -8576,3 +8576,39 @@ WSD沒錢
 
 莫头消失了，以后应该看不到苦瓜睦对着爽姐表示想抱抱了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  厉飞雨  
+##### 39272#       发表于 2025-3-21 13:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">唯一塑造成功的就是牢莫，至少作为搞笑角色她是真的可爱，可惜她似了
+
+
+*****
+
+####  6030sylar  
+##### 39273#       发表于 2025-3-21 13:42
+
+<img src="https://img.saraba1st.com/forum/202503/21/134231zjxhbe3rljtlwwxl.jpg" referrerpolicy="no-referrer">
+
+<strong>69d576197d45ffe75417abae42606a90.jpg</strong> (268.69 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-21 13:42 上传
+
+*****
+
+####  qlipho  
+##### 39274#       发表于 2025-3-21 13:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">搞笑角色不用讲逻辑优势太大了
+
+*****
+
+####  阿兹尔  
+##### 39275#       发表于 2025-3-21 13:45
+
+丰川家到底谁管事啊，老登干了这么多年一点自己的党羽都没发展？
+
