@@ -2833,3 +2833,16 @@ B站刷到的视频好像大部分都是玩太刀和双刀的，是别的武器�
 
 比如说义贼鼠小僧的任务，打完了骗他说我来帮你把财务发给穷人，就可以把奖励全毛了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Lorraine_Kinney  
+##### 3679#       发表于 2025-3-21 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67702056&amp;ptid=2092342" target="_blank">cherry__ 发表于 2025-3-21 12:16</a>
+
+感觉多出来的选项一般是好处全占了
+
+比如说义贼鼠小僧的任务，打完了骗他说我来帮你把财务发给穷人，就可 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个倒是
+
