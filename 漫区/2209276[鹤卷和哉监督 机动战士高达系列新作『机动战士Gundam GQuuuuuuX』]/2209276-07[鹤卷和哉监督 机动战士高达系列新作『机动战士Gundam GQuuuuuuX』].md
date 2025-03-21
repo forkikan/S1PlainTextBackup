@@ -1965,3 +1965,32 @@ B站上的官方账号
 
 国内院线有特典吗？虽然没特典也会去看就是了
 
+
+*****
+
+####  岸浪白野  
+##### 9041#       发表于 2025-3-21 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67705455&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-3-21 19:37</a>
+
+国内院线有特典吗？虽然没特典也会去看就是了</blockquote>
+会有，大部分特典赶不上刚上映，官方现在做好的明确只有海报
+
+*****
+
+####  Sliurus  
+##### 9042#       发表于 2025-3-21 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67705469&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-3-21 19:39</a>
+
+会有，大部分特典赶不上刚上映，官方现在做好的明确只有海报</blockquote>
+刚好4.4那天去不了，看看晚一两天能不能拿到
+
+
+*****
+
+####  YU_JI  
+##### 9043#       发表于 2025-3-21 19:47
+
+有国内剧场版加持，泥楼在TV前冲击万楼应该是没问题了
+
