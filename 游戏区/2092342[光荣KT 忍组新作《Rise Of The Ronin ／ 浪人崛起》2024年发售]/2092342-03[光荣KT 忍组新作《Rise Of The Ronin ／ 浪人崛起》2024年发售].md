@@ -2820,3 +2820,16 @@ B站刷到的视频好像大部分都是玩太刀和双刀的，是别的武器�
 宝藏院流我觉得挺 ...</blockquote>
 双刀不知道，太刀感觉独一档。流派少的武器就三四种流派，还包括无明流。太刀整整三排流派，东西太多了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cherry__  
+##### 3678#       发表于 2025-3-21 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698722&amp;ptid=2092342" target="_blank">Lorraine_Kinney 发表于 2025-3-21 00:34</a>
+
+但很多时候对结果没啥影响</blockquote>
+感觉多出来的选项一般是好处全占了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+比如说义贼鼠小僧的任务，打完了骗他说我来帮你把财务发给穷人，就可以把奖励全毛了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

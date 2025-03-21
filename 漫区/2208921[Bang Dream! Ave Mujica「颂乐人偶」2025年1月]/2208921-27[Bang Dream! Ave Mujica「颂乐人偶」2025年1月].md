@@ -8182,3 +8182,76 @@ ccc众仿佛记忆退化一样的和解
 
 牢虚不是早就不行了吗，我建议回天之后就别关注他了，就和mujica之后不要再关注柿本一样
 
+
+*****
+
+####  ddy2811  
+##### 39233#       发表于 2025-3-21 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67701515&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-3-21 11:23</a>
+
+种苦瓜好，顺便熟透的苦瓜其实是甜的，而且是炸裂开的橙红色</blockquote>
+橙红色苦瓜我吃过，还是苦的<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">是还没熟透吗？
+
+*****
+
+####  adretyu67.  
+##### 39234#       发表于 2025-3-21 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67702034&amp;ptid=2208921" target="_blank">ddy2811 发表于 2025-3-21 12:12</a>
+
+看手游剧情里透子邀人来大家都得给面子的情况，还肯和理事长搞个有来有回让msr自己来最后一棒，说实话是 ...</blockquote>
+大战理事长那段讲的是真白自己的勇气。就和狗灯登神差不多。
+
+蝶团讲的不就是化茧成蝶的故事
+
+*****
+
+####  operatbig  
+##### 39235#       发表于 2025-3-21 12:19
+
+下一集能找回之前的阴湿味吗？希望别再是独角兽了。
+
+*****
+
+####  一心而用  
+##### 39236#       发表于 2025-3-21 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67702085&amp;ptid=2208921" target="_blank">operatbig 发表于 2025-3-21 12:19</a>
+下一集能找回之前的阴湿味吗？希望别再是独角兽了。</blockquote>
+剧透说了，下一话基本上都是live，文戏很少。
+
+*****
+
+####  江戸前ルナ  
+##### 39237#       发表于 2025-3-21 12:22
+
+下次来找平坂读写吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ddy2811  
+##### 39238#       发表于 2025-3-21 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67702064&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-21 12:17</a>
+
+大战理事长那段讲的是真白自己的勇气。就和狗灯登神差不多。
+
+蝶团讲的不就是化茧成蝶的故事 ...</blockquote>
+所以其他人没有直接大手一挥我搞乐队办学园祭与你这臭要饭的平民理事长无关，而是陪着小白一起成长蜕变嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  棍机凹升龙  
+##### 39239#       发表于 2025-3-21 12:25
+
+看到一半就放弃思考剧情台词逻辑性了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 39240#       发表于 2025-3-21 12:26
+
+事实就是证明了mygo就是猴子打字机，柿本和绫奈两个人在业界这么多年拿不出像样的简历才是常态
+
