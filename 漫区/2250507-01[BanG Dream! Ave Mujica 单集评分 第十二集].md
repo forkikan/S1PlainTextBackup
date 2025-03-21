@@ -2506,3 +2506,42 @@ B站好多说这集还行的，甚至还有说这集很好的，这些人直到�
 
 坏消息：少女就是财阀
 
+
+*****
+
+####  my707776310  
+##### 259#       发表于 2025-3-21 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67699648&amp;ptid=2250507" target="_blank">u2deack 发表于 2025-3-21 08:03</a>
+
+我还是能看到有说观感上升的，满足了
+
+每一集都观感上升这动画一定成神了是吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://s2.loli.net/2025/03/21/CiJcDAdPI8BUNW2.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  敏感词好多  
+##### 260#       发表于 2025-3-21 19:16
+
+不想打字了
+
+<img src="https://img.saraba1st.com/forum/202503/21/191638hddfe5m5cfketz9f.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20250321_191616.jpg</strong> (99.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-21 19:16 上传
+
+<img src="https://img.saraba1st.com/forum/202503/21/191641g7w4t4c0c9ywxjzf.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20250321_191608.jpg</strong> (21.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-21 19:16 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
