@@ -176,3 +176,21 @@
 
 黑玛丽校服为什么不做成卡面啊，太浪费了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  啪嗒啪嗒嘭  
+##### 47092#       发表于 2025-3-21 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67692581&amp;ptid=1712412" target="_blank">marxel 发表于 2025-3-20 12:29</a>
+
+开仓抽了个太公</blockquote>
+犯错才是月球世界的真理！
+
+*****
+
+####  啪嗒啪嗒嘭  
+##### 47093#       发表于 2025-3-21 13:54
+
+之前退坑太久缺了很多2.5%绊礼装就一直没打所长本，惊觉这次限时过本有3石头，还是今晚看看攻略打了吧……希望临时抱佛脚不会太痛苦<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
