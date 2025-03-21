@@ -7176,3 +7176,92 @@ soyo the danger不值一提，saki the danger才是真的。
 
 十二集不好说
 
+
+*****
+
+####  syndrome2032  
+##### 39148#       发表于 2025-3-21 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67700306&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-3-21 09:30</a>
+所以还有才初华是不是真的存在的，是不是初音编出来的。
+
+其实我感觉到必然存在，因为真初华的作用其实是 ...</blockquote>
+还是老登比较拖延症患者，晚了16?15年才想起来安排一家人离开岛上。
+
+*****
+
+####  一心而用  
+##### 39149#       发表于 2025-3-21 09:36
+
+x: akni105
+
+<img src="https://img.saraba1st.com/forum/202503/21/093653m611sp6u15p6g688.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (57.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-21 09:36 上传
+
+*****
+
+####  595505568  
+##### 39150#       发表于 2025-3-21 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67700191&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-3-21 09:19</a>
+手游爱素还是很好吃，灰一串老师还是很会写素世的，更何况人家有自己视角的漫画（难怪，在这等着呢）。
+
+ ...</blockquote>
+这对不是CB吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，我还是积极推爱灯的（
+
+*****
+
+####  一心而用  
+##### 39151#       发表于 2025-3-21 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67700353&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-3-21 09:36</a>
+
+还是老登比较拖延症患者，晚了16?15年才想起来安排一家人离开岛上。</blockquote>
+那个岛主要的作用就是用来软禁初音的吧。
+
+初音跑了就没必要再继续囚禁另外两人了，初音不听话继续流放初音岛。
+
+*****
+
+####  ads147147  
+##### 39152#       发表于 2025-3-21 09:40
+
+丰川祥子是哪个亚空间邪神的神选啊。。。。
+
+
+*****
+
+####  syndrome2032  
+##### 39153#       发表于 2025-3-21 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67700395&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-3-21 09:40</a>
+丰川祥子是哪个亚空间邪神的神选啊。。。。</blockquote>
+做梦。当然是阿撒托斯
+
+*****
+
+####  airline114514  
+##### 39154#       发表于 2025-3-21 09:43
+
+<blockquote>ads147147 发表于 2025-3-21 09:40
+丰川祥子是哪个亚空间邪神的神选啊。。。。</blockquote>
+亚空间?黄老汉!
+
+*****
+
+####  油画布  
+##### 39155#       发表于 2025-3-21 09:45
+
+<blockquote>AlterDialog 发表于 2025-3-21 09:31
+十一集绝对值得，母鸡卡最牛逼的一集
+
+十二集不好说</blockquote>
+本来是想说十一集评价要等十二集…
+
+现在觉得十二集甚至不如十一集，独角兽的单集脚本写的太平庸了
+
