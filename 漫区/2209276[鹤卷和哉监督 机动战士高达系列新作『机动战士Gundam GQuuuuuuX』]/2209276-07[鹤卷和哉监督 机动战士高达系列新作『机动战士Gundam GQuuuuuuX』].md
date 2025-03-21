@@ -1737,3 +1737,14 @@ B站上的官方账号
 
 特典是不是还没做完<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是现成的难道没图吗
 
+
+*****
+
+####  岸浪白野  
+##### 9024#       发表于 2025-3-21 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67703752&amp;ptid=2209276" target="_blank">积木23ki 发表于 2025-3-21 16:01</a>
+特典是不是还没做完但是现成的难道没图吗</blockquote>
+在前面楼里就说过大部分物料没准备好赶不上刚上映。。
+现在官方做好的只有海报，观影团那些就有列出来是自己印周边+官方海报
+
