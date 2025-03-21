@@ -9130,3 +9130,23 @@ MyGO哪里王道了，不就是靠剑走偏锋火的吗？
 其实我还是比较喜欢这集大女主祥的，不看前11集，单看这集大祥还是很大女主的233 ...</blockquote>
 致敬LLX称帝，不过大男主大女主本来就不好写<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  影伴光生  
+##### 39318#       发表于 2025-3-21 16:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这节奏榜把三大教里俩都涮过了，最后一集不能再带第三个吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ddy2811  
+##### 39319#       发表于 2025-3-21 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67703768&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-3-21 16:02</a>
+
+隔壁人气投票祥子的排名还是高啊，已经看不懂了</blockquote>
+说实话这个祥子最大的问题是出现晚了
+
