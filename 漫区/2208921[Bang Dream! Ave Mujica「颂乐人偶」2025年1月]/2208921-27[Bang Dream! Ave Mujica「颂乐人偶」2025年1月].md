@@ -9931,3 +9931,75 @@ Sumimi散不了吧，社长以为初音回不来才准备安排真奈单飞，�
 我感觉……这LZ才是女频</blockquote>
 他恐怕不知道什么叫做真正的封建<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Qing_Qi_2.0  
+##### 39384#       发表于 2025-3-21 21:30
+
+明天上海百联母鸡卡活动有没有坛友去的，结个伴
+
+*****
+
+####  zhoujin8584  
+##### 39385#       发表于 2025-3-21 21:33
+
+拾一下假药中的干货。
+
+与黄瓜相比，苦瓜是不光滑的、粗粝的，苦味也是更少人能认可的，很难作为礼物的存在。
+
+从黄瓜改种苦瓜，大概也象征着若叶睦不再总是考虑着如何为了别人去行动，自我变得强大而富有余裕吧。
+
+*****
+
+####  cxj649  
+##### 39386#       发表于 2025-3-21 21:33
+
+<img src="https://img.saraba1st.com/forum/202503/21/213305monbowhw5czfcw0h.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (70.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-21 21:33 上传
+
+这个就一语道破了
+
+
+*****
+
+####  聋与唬  
+##### 39387#       发表于 2025-3-21 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67705931&amp;ptid=2208921" target="_blank">GBLMikuHatsune 发表于 2025-3-21 20:42</a>
+从12集回看，前11集内容真的水到不行，就算是爆爆爆也没有实质的人物塑造来填充。
+
+如果单纯以达成12集这些c ...</blockquote>
+真能写明白吗？1-9集也没看见哪个人物塑造好啊？
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  看穿一切的鱼  
+##### 39388#       发表于 2025-3-21 21:35
+
+睦祥已经是熟悉的陌生人了吗
+
+*****
+
+####  adretyu67.  
+##### 39389#       发表于 2025-3-21 21:35
+
+新生睦和祥关系不是访谈里说的吗，熟悉的陌生人
+
+*****
+
+####  ddy2811  
+##### 39390#       发表于 2025-3-21 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67706035&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-3-21 20:56</a>
+
+我感觉……这LZ才是女频</blockquote>
+哪怕是权倾朝野的大权臣，皇帝有意使绊子的话也是会过得很艰难的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
