@@ -2148,3 +2148,13 @@ https://x.com/beeeeetan/status/1902453970964246962
 
 那一段是这样的，从字面上看应该是没装，艾尔美斯在计划阶段没造出来就被取消了，阿尔法塞可缪从一开始就只实装了红高达一台机
 
+
+*****
+
+####  wsktcy  
+##### 9052#       发表于 2025-3-22 00:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67704506&amp;ptid=2209276" target="_blank">az一串字母 发表于 2025-3-21 17:29</a>
+观影团这种组织怎么找</blockquote>
+去小🍠找最快最全，基本各地都在宣发了，连四五线小城市都有。看了下有粉丝做的周边也有官方海报送
+
