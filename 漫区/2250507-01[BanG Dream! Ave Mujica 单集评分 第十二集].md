@@ -2255,3 +2255,20 @@ QQ图片20250321102409.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  saglork  
+##### 235#       发表于 2025-3-21 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67700885&amp;ptid=2250507" target="_blank">plazum 发表于 2025-3-21 10:33</a>
+有一条弹幕说得好啊：既然如此，一开始就用白祥形态不就好了吗</blockquote>
+不早就说了是大小姐没苦硬吃，没有这点矫情，这两季动画都不用拍了<img src="https://static.saraba1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">
+
+*****
+
+####  冷静先找时光机  
+##### 236#       发表于 2025-3-21 10:38
+
+无人关心的mana女士与真初华怎么办？哎☝️🤓️，你俩组建新·sumimi不就行了，初音得到了小祥的心（并没有），初华实现了梦想，mana找到了代餐，祥子成为了卡密，经纪公司保住了一个正常组合，粉丝们还有的看，皆大欢喜，欧咩爹多欧咩爹多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
