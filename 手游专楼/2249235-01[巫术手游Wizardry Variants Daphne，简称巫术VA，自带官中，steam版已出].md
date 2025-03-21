@@ -1588,3 +1588,15 @@ wiki说第三个图（要塞）的垃圾会出苦无和忍者刀，不过我还�
 
 我重开的号全程日光族身上不带现金睡马房打黑工，全队现在从登录界面到游戏里都是黑乎乎脏兮兮的，语音几乎都是吐槽太脏了好难受
 
+
+*****
+
+####  macshi  
+##### 132#       发表于 2025-3-21 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67700117&amp;ptid=2249235" target="_blank">Laie 发表于 2025-3-21 09:11</a>
+尸斑
+
+我重开的号全程日光族身上不带现金睡马房打黑工，全队现在从登录界面到游戏里都是黑乎乎脏兮兮的，语 ...</blockquote>
+想起我在第一章78层练级的时候，转一圈开宝箱清怪，最后在7层泉水休息一下去哈肯回城接着传回来继续练，马房都不睡的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

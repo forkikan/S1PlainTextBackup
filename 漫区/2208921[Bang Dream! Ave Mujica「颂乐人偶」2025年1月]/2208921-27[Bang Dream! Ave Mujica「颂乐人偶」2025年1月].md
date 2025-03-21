@@ -7007,3 +7007,123 @@ soyo the danger不值一提，saki the danger才是真的。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  油画布  
+##### 39133#       发表于 2025-3-21 09:16
+
+<blockquote>南宮凝香 发表于 2025-3-21 09:07
+這話最扯的是11集初華獨白了一整集，
+
+結果祥原來是聽原不到的
+</blockquote>
+真的这里演出太无趣太平铺太浪费时间了，感染力为0
+
+*****
+
+####  ads147147  
+##### 39134#       发表于 2025-3-21 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67700129&amp;ptid=2208921" target="_blank">一心而用 发表于 2025-3-21 09:11</a>
+11话的作用主要是塑造三角初音这个角色，把前面缺的一口气补上了，纯内心独白。其他内容是要她交代给祥子 ...</blockquote>
+在我看来就是十本为了炫技，和mygo第一人称对偶强行写了一出独角戏，而且其中初音的自白里有太多莫名其妙相互矛盾的叙述，自怨自艾到观众都看不清初音这个角色到底什么情况，以至于还不如12话留一个晚上让初音对祥子好好聊个晚上，第二天再回去拿行李。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  与太郎  
+##### 39135#       发表于 2025-3-21 09:16
+
+<img src="https://img.saraba1st.com/forum/202503/21/091326bzzjpxdxqyjmdypy.jpg" referrerpolicy="no-referrer">
+
+<strong>Honeyview_1742515256-YrsICaqFpcSw8m4DgWHNkdK0.jpg</strong> (43.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-21 09:13 上传
+
+片尾放OP的意思是“我们的mujica才刚刚开始！”
+
+*****
+
+####  虚无缥缈的分身  
+##### 39136#       发表于 2025-3-21 09:17
+
+我这集想看得tm是真初华登场，然后初音初华祥子三人岛上见面之后修罗场，三人扭曲关系性而不是这么平铺直叙的包寿司，，，
+
+*****
+
+####  syndrome2032  
+##### 39137#       发表于 2025-3-21 09:18
+
+大猫被睦头吃的死死吧，连家乡话都逼出来了。完全没有鸡开始主动挑拨睦头那味了。
+
+*****
+
+####  ads147147  
+##### 39138#       发表于 2025-3-21 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67700160&amp;ptid=2208921" target="_blank">595505568 发表于 2025-3-21 09:15</a>
+素世这下是Cp全拆完了，恭喜素世在动画结尾的时候一根正经CP箭头都没剩下，那你要给新生代的贝斯妈妈配的CP ...</blockquote>
+手游爱素还是很好吃，灰一串老师还是很会写素世的，更何况人家有自己视角的漫画（难怪，在这等着呢）。
+
+其实mygo里只有爱音会用素世曾经对不起过自己来拿捏她，其他人要么原谅要么无所谓，所以这个关系性还是很不错的。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  一心而用  
+##### 39139#       发表于 2025-3-21 09:20
+
+独角兽发推且开放评论了。
+
+<img src="https://img.saraba1st.com/forum/202503/21/091957d44f2mjyyg2v4uvn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (58.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-21 09:19 上传
+
+
+*****
+
+####  syndrome2032  
+##### 39140#       发表于 2025-3-21 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67700176&amp;ptid=2208921" target="_blank">虚无缥缈的分身 发表于 2025-3-21 09:17</a>
+我这集想看得tm是真初华登场，然后初音初华祥子三人岛上见面之后修罗场，三人扭曲关系性而不是这么平铺直叙 ...</blockquote>
+上一话死活不肯给真初华人设多少就该感觉到见不到了吧。
+
+*****
+
+####  绝地潜兵  
+##### 39141#       发表于 2025-3-21 09:20
+
+素睦还有关系性不，两人互害羁绊很好看的呀
+
+*****
+
+####  qukey  
+##### 39142#       发表于 2025-3-21 09:22
+
+我终于看明白这动画是说啥了
+
+丰川家族其实是母系传承的古代邪神，隐藏在集团背后将触手伸入邦多利世界。
+老登作为代理人接触了很多阴暗面，所以才会总是强调家族真正的恐怖。
+而丰川祥子在这一集中终于明白了自己存在的意义，那就是成为邦多利世界的神！
+每一个接触到丰川祥子的乐队少女都会强制进行sancheck，然后被邪神的重力捕获！
+
+*****
+
+####  堆雪若叶  
+##### 39143#       发表于 2025-3-21 09:22
+
+<img src="https://p.sda1.dev/22/1a37aef0f0428a828fe758552ae45c35/_Nekomoe kissaten_LoliHouse_ BanG Dream! It_s MyGO!!!!! - 08 _WebRip 1080p HEVC-10bit AAC ASSx2_.mkv_000907.608.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/e6b1ee3d2be01c5547baa849bc3a99f1/_Nekomoe kissaten__BanG Dream! Ave Mujica__12__1080p__JPSC_.mp4_001051.877.jpg" referrerpolicy="no-referrer">
+
+祥子一开始找的就是看星星的初华，初华妹不过是大小姐万花丛中一片而已<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
