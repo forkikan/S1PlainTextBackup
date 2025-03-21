@@ -1857,3 +1857,27 @@ mujica 一开始就说了要写病态的乐队关系，大方向是兑现承诺�
 
 —— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
 
+
+*****
+
+####  安娜导函数  
+##### 198#       发表于 2025-3-21 07:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67699581&amp;ptid=2250507" target="_blank">葛葉景明 发表于 2025-3-21 07:39</a>
+说个事，唯独爱音没有单独镜头
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 S1Next-鹅版 v1.3.3.2-play ...</blockquote>
+wsd的粉毛多的好比路边野狗你说对吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  朝霧春嘉  
+##### 199#       发表于 2025-3-21 07:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697893&amp;ptid=2250507" target="_blank">拱猪 发表于 2025-3-20 23:16</a>
+其他都能忍，喵睦我真忍不了，大喵这个战犯从头到尾躲过了审判，还把莫名其妙把系花给泡了，我操了 ...</blockquote>
+还真是
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
