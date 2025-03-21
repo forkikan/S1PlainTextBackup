@@ -8980,3 +8980,37 @@ MyGO哪里王道了，不就是靠剑走偏锋火的吗？
 不过蝶的目标很明确，成为更好的自己。
 狗还处在一辈子乐队的过家家中。
 
+
+*****
+
+####  oyss  
+##### 39305#       发表于 2025-3-21 15:07
+
+老登最初也是提出把初音和她妈接过来的，意思就是丰川家他也不干了。不同意的是初音妈，要留在岛上跟渔夫过日子。
+
+怎么就变成这个样子了老登
+
+*****
+
+####  syndrome2032  
+##### 39306#       发表于 2025-3-21 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67703355&amp;ptid=2208921" target="_blank">oyss 发表于 2025-3-21 15:07</a>
+老登最初也是提出把初音和她妈接过来的，意思就是丰川家他也不干了。不同意的是初音妈，要留在岛上跟渔夫过 ...</blockquote>
+推测是那会祥妈还活着，老登没了这一支还有人兜着。
+
+然后祥妈去世了。
+
+
+*****
+
+####  cxj649  
+##### 39307#       发表于 2025-3-21 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67703209&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-21 14:47</a>
+
+话说大祥和老登在念叨丰川的大手很可怕时，我突然意识到这大手起码比酒店混战时的几个神人热爱音乐，否则 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">大手也没拦着初祥的事业啊
+
+事实上这事闹大还是中登的锅呢233
+
