@@ -1611,3 +1611,19 @@ http://weibo.com/7985965662/PjxCeo7PP
 
 有正史骡鸭那这12话也太丰富了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Steel.Haze  
+##### 9013#       发表于 2025-3-21 13:21
+
+ 本帖最后由 Steel.Haze 于 2025-3-21 13:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67702211&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-3-21 12:34</a>
+
+我在想，所谓的"kirakira"会不会已经给过答案了，也就是Plazma里第一段的这句：
+
+这里应该还是歌词陈诉剧情 ...</blockquote>
+按照新人类的设定，高度互联的那一刻就可以“互相理解”，阿姆罗在79后的采访中试图解释新人类的感觉（但是说不清）有模糊的提到，两个高通感的新人类连接时，就会彼此理解对方的心境、历史、记忆和想法。当然，互相理解不能解决争端（他和拉拉的极高通感度不能阻止双方为了守护自己的东西而厮杀）。
+
+顺便一提，哈曼的特色就是，极度孤独，但是为了逞强，拒绝互通，拒绝自己被救赎。在阴谋和政治角度，她是个"小"气的反派，但是作为女性性格表现，她又很有特色。这是对新人类设定反馈到角色性格上的活用。
+
