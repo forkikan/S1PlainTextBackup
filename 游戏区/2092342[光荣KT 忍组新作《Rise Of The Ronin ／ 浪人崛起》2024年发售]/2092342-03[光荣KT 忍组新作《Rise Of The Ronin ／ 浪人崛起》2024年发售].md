@@ -2846,3 +2846,16 @@ B站刷到的视频好像大部分都是玩太刀和双刀的，是别的武器�
 比如说义贼鼠小僧的任务，打完了骗他说我来帮你把财务发给穷人，就可 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个倒是
 
+
+*****
+
+####  廖化  
+##### 3680#       发表于 2025-3-21 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67699391&amp;ptid=2092342" target="_blank">Horusddt 发表于 2025-3-21 04:16</a>
+
+https://youtu.be/EB3J8olZi5E?si=7o9_HL54DKoJqi1N
+
+但是说实话到后面礼物压根不缺，猫打工找给礼物的那 ...</blockquote>
+多谢！收到！
+

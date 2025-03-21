@@ -8921,3 +8921,45 @@ go13集以来对祥子的喜爱逐渐随着mujica难绷剧情的不断播出不�
 人情世故
 <img src="https://p.sda1.dev/22/94b233f7c68c94185a8246c0430a20c6/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 39301#       发表于 2025-3-21 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697307&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-20 22:42</a>
+
+感觉只有回到白祥的造作，哪有不择手段
+
+以前也就想做做女主角，现在都要成神了 ...</blockquote>
+话说大祥和老登在念叨丰川的大手很可怕时，我突然意识到这大手起码比酒店混战时的几个神人热爱音乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一心而用  
+##### 39302#       发表于 2025-3-21 14:48
+
+0x0igasu
+
+动画应该把这一幕做出来的
+
+<img src="https://img.saraba1st.com/forum/202503/21/144842vjs383vs3i00v3zz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (129.74 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-21 14:48 上传
+
+*****
+
+####  6030sylar  
+##### 39303#       发表于 2025-3-21 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67702829&amp;ptid=2208921" target="_blank">岬开斗 发表于 2025-3-21 13:59</a>
+
+MyGO哪里王道了，不就是靠剑走偏锋火的吗？
+
+—— 来自 鹅球 v3.3.96</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">从主唱角度出发，经历前一个乐队的不欢而散，在这一次不想放手，把乐队再集合起来不是挺王道的吗
+
