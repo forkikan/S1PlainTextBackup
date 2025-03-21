@@ -2237,3 +2237,21 @@ QQ图片20250321102409.jpg
 
 初音这身红色紧身裤还挺对我xp的
 
+
+*****
+
+####  Lyzers  
+##### 233#       发表于 2025-3-21 10:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按理说看到现在应该大家都能看得出来目前所有的主要角色人均一集换一次人设，大祥老师甚至能半集换一次人设，但为什么就每集都有人在给这玩意找补
+
+
+*****
+
+####  plazum  
+##### 234#       发表于 2025-3-21 10:33
+
+有一条弹幕说得好啊：既然如此，一开始就用白祥形态不就好了吗
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
