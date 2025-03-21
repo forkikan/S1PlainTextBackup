@@ -8694,3 +8694,70 @@ QQ截图20250321135342.png
 丰川家到底谁管事啊，老登干了这么多年一点自己的党羽都没发展？</blockquote>
 很可能就和祥子一样，自以为的“党羽”没有一个是肯跟着他单干的，没有了丰川的招牌一文不值
 
+
+*****
+
+####  ads147147  
+##### 39283#       发表于 2025-3-21 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67702055&amp;ptid=2208921" target="_blank">ddy2811 发表于 2025-3-21 12:16</a>
+
+橙红色苦瓜我吃过，还是苦的是还没熟透吗？</blockquote>
+可能是品种不一样的，现在的苦瓜都是培育成没成熟就吃了，成熟后变红，内含的淀粉会转化为糖分，可能是转化的还不够，苦瓜皂甙太多了。
+
+*****
+
+####  钦念以忱  
+##### 39284#       发表于 2025-3-21 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67702210&amp;ptid=2208921" target="_blank">油画布 发表于 2025-3-21 12:34</a>
+
+商业没成功 初音和海铃又得出去兼职了
+
+哦还有喵梦</blockquote>
+你看这集RING的会谈，其他几个人都对商业成绩没有追求了的。
+
+*****
+
+####  南宮凝香  
+##### 39285#       发表于 2025-3-21 14:10
+
+這集其實暗暗洗/黑了老登
+
+漁夫哥一死
+
+老登就把初媽+初妹接到本島上
+
+至於接去那裡、接去幹什麼你就別管了
+
+看好下一季會出現一個三角初樂
+
+*****
+
+####  ads147147  
+##### 39286#       发表于 2025-3-21 14:11
+
+事到如今，先看pico4把。
+
+
+*****
+
+####  一心而用  
+##### 39287#       发表于 2025-3-21 14:13
+
+<img src="https://img.saraba1st.com/forum/202503/21/141337nlneefualf5omc8m.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (66.53 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-21 14:13 上传
+
+<img src="https://img.saraba1st.com/forum/202503/21/141343feta0ahyev0vsyyv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (82.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-21 14:13 上传
+
