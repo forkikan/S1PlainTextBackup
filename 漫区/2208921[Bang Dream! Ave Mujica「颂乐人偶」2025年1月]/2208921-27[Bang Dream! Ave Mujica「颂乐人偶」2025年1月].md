@@ -10450,3 +10450,19 @@ Taki = 海子
 
 更变态的剧情来了<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cxj649  
+##### 39425#       发表于 2025-3-21 23:28
+
+ 本帖最后由 cxj649 于 2025-3-21 23:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67706696&amp;ptid=2208921" target="_blank">是谁的书画 发表于 2025-3-21 22:53</a>
+
+每个人都只有三套衣服，校服，演出服和常服。不是她很少，是所有人都不多
+
+—— 来自 S1Fun ...</blockquote>
+其实部分人四套 灯祥希 初中校服，素睦的月之森初中校服有没有区别我就不知道了
+
+爱音甚至有5套 开场大衣，英国校服（回忆和剧场版
+
