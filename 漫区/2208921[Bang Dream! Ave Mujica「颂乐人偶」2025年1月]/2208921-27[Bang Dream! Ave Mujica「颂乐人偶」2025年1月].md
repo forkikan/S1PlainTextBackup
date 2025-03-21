@@ -9515,3 +9515,18 @@ lof：风
 
 这俩本就是真百圣地水族馆中定终身的关系
 
+
+*****
+
+####  adretyu67.  
+##### 39348#       发表于 2025-3-21 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67704946&amp;ptid=2208921" target="_blank">北条早苗 发表于 2025-3-21 18:25</a>
+
+我倒是很好奇在狗里喜欢上大祥和初华的角色厨是怎么看待初祥这对CP的
+
+初华从伟大的脸和善于察言观色的帅气 ...</blockquote>
+狗就开了个头。
+
+鸡不搞叛逆小祥和阴湿小姨确实解释不了为啥作曲作词把鸡的音乐做成这样<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
