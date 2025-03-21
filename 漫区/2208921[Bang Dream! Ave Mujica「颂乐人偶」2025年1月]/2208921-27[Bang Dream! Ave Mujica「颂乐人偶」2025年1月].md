@@ -7792,3 +7792,86 @@ lof：许苍生（豹房）</blockquote>
 
 突然意识到好像这两个阿姨的认知应该差不多。。
 
+
+*****
+
+####  与太郎  
+##### 39197#       发表于 2025-3-21 10:56
+
+<img src="https://img.saraba1st.com/forum/202503/21/105010fbgbbh87zlg4hvzv.jpg" referrerpolicy="no-referrer">
+
+<strong>Gmfa5X_aoAAlim_.jpg</strong> (127.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-21 10:50 上传
+
+<img src="https://img.saraba1st.com/forum/202503/21/105010hj92f2r2q2cr2e22.png" referrerpolicy="no-referrer">
+
+<strong>v2-20ac7fd57530e77da309fa65b431fd6a_1440w.png</strong> (574.98 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-21 10:50 上传
+
+<img src="https://img.saraba1st.com/forum/202503/21/105614vncg88evwj9rv8jj.jpg" referrerpolicy="no-referrer">
+
+<strong>GmfZF8PaAAAOs0e.jpg</strong> (83.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-21 10:56 上传
+
+<img src="https://img.saraba1st.com/forum/202503/21/105614r84bkkck98jg4m8o.jpg" referrerpolicy="no-referrer">
+
+<strong>maxresdefault.jpg</strong> (92.64 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-21 10:56 上传
+
+*****
+
+####  ads147147  
+##### 39198#       发表于 2025-3-21 10:59
+
+【丰川·F·祥子：这世界上根本没有神】 [https://www.bilibili.com/video/B ... d777835843b1aa7f982](https://www.bilibili.com/video/BV1ioXYYtEb5/?share_source=copy_web&amp;vd_source=130938c4ab257d777835843b1aa7f982)
+
+*****
+
+####  adretyu67.  
+##### 39199#       发表于 2025-3-21 10:59
+
+鸡团就是大祥老师保护自己沉浸自己的梦境。
+
+鸡团的歌就是大祥老师对外部世界的叛逆。
+
+大祥老师最后选择当鸡团的神踩死油门在梦醒之前完成自我实现。
+
+确实该呼叫hhw了。
+
+*****
+
+####  星降る森  
+##### 39200#       发表于 2025-3-21 11:01
+
+丰川家的黑暗——指管不住下体和管理员造私生女，看到自己私生女的事要暴露了把女婿坑了，但对外违约金该付还得付。明明有机会直接掐死初音出道却不做行动，天天复读别接近大祥，实际反映出来的行动只有拿莫须有的黑暗吓大祥老师，只会对外唯唯诺诺，对内重拳出击。
+
+想想这手段还不如as钟岚珠，人家拿了权力校内查封部活，派嫡系把对方同好会唯一有身份的学生会长拔了，校外严查扫荡端了正在举办的live，一手遮天。
+
+
+*****
+
+####  未来起航  
+##### 39201#       发表于 2025-3-21 11:01
+
+金毛犬怎么摇尾乞怜硬贴百合关系、🐘怎么个成神之路，这种执行上的“细节”都一概不论<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+两集以来念叨初华这初华那的，工具人用完你起码丢到个地方，结果初华连个去向都没提一嘴。最合格的工具人，推完屁股直接原地人间蒸发<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+丰川清告事件这种和女女关系一毛钱关系没有、与每日生活吃穿严重相关的本质问题，一句不清不楚的“我干的”打发走了，直接快进到原谅和解流程。
+
+老登更不提了，比唐氏哪吒还要色厉内荏的、毫无意义的fw。
+
+进度塞不下匆匆赶工的大纲型脚本不少，但连一点对原本完整作品的想象空间都留不下来的也确实稀罕。你鸡脚本就属于这种连臆想都没什么价值的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

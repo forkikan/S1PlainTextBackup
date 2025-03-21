@@ -1522,3 +1522,18 @@ http://weibo.com/7985965662/PjxCeo7PP
 
 为什么要搞这么社死的营销<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kuriri  
+##### 9006#       发表于 2025-3-21 10:58
+
+吐了，营销不会做可以不做
+
+*****
+
+####  RE㐅ia  
+##### 9007#       发表于 2025-3-21 11:01
+
+快进到垂直入坑已游大世界
+
