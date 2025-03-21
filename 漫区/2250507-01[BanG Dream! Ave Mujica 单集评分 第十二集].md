@@ -2320,3 +2320,14 @@ QQ图片20250321102409.jpg
 
 你们不发疯我很困扰的。
 
+
+*****
+
+####  庸necro  
+##### 242#       发表于 2025-3-21 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67701137&amp;ptid=2250507" target="_blank">雪霜 发表于 2025-3-21 10:55</a>
+
+“不喜欢这一集的人多半其实mygo也没看明白也不喜欢，和这种人讲话已经完全没必要了” 看笑了，这种话都 ...</blockquote>
+本来打了一长串，但是放弃了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">你开心就好了
+

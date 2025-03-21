@@ -8014,3 +8014,20 @@ GGnn
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  零壹贰叁  
+##### 39216#       发表于 2025-3-21 11:40
+
+说7观感最好我要笑出声了
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">人物逻辑哪里顺畅了？祥子说些莫名其妙的话，莫名其妙的知道了睦的问题
+还有爽姐那个莫名其妙的大笑
+ccc众仿佛记忆退化一样的和解
+以及难听到要死的live
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">然后就是拉稀一样的8910
+就8抛出睦的离谱设定导致那一集不那么无聊
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">真的吃到酣畅又淋漓
+
