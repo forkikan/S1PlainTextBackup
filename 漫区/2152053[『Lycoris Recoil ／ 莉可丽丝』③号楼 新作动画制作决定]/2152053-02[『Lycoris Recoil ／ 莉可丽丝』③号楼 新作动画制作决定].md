@@ -62,3 +62,15 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁被金毛大狗破防的肉体厨转的比你早
 
+
+*****
+
+####  qz66618  
+##### 2103#       发表于 2025-3-21 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67698603&amp;ptid=2152053" target="_blank">灼眼的夏娜酱 发表于 2025-3-21 00:20</a>
+未来还很长</blockquote>
+我记得蒜也有坐电车靠门那一段，也可以放那一个截图<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

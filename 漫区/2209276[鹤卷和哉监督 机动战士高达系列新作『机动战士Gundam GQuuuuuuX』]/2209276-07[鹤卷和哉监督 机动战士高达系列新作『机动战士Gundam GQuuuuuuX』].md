@@ -1483,3 +1483,26 @@ UC纪元第一大财团是AE，第二大财团其实是罗商会（也大量参�
 
 街机卡背面评论都好乐，高达这个名字真的很不符合吉翁审美吗怎么都在吐槽名字
 
+
+*****
+
+####  猪突猛进R  
+##### 9002#       发表于 2025-3-21 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67699802&amp;ptid=2209276" target="_blank">az一串字母 发表于 2025-3-21 08:29</a>
+
+街机卡背面评论都好乐，高达这个名字真的很不符合吉翁审美吗怎么都在吐槽名字 ...</blockquote>
+吉翁的MS大多数都是拟声或双关词（用日文发音），扎克、古夫、德姆、姜等等。
+
+高达确实不在他们的好球区，GM倒是可能在。
+
+之前的初音联动里有部分反映（0079部分类似机战的界面）：
+[https://www.bilibili.com/video/BV1hxRsYeEtG](https://www.bilibili.com/video/BV1hxRsYeEtG)
+
+*****
+
+####  YU_JI  
+##### 9003#       发表于 2025-3-21 10:22
+
+吉翁都是谐音梗爱好者（确信）
+

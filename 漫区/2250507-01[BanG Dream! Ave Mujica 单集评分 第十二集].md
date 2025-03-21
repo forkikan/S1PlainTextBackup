@@ -2186,3 +2186,54 @@ mujica只看过这一集，看完只想说
 
 上集我还因为有乐子看特别乐所以给了+2，这集突兀的衔接不起来我真绷不住了，重新给回-2，成神是什么JB玩意儿啊<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  月神夜  
+##### 230#       发表于 2025-3-21 10:21
+
+我就是新乐队的卡密呀哇哈哈哈哈😄<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  一心而用  
+##### 231#       发表于 2025-3-21 10:21
+
+ 本帖最后由 一心而用 于 2025-3-21 10:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67699674&amp;ptid=2250507" target="_blank">Schwarzess 发表于 2025-3-21 08:08</a>
+
+我必须马上看到在甲板上大喘气的两人.gb
+
+—— 来自 鹅球 v3.4.98</blockquote>
+祥，姨动。
+
+QQ图片20250321102409.jpg
+(64.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-21 10:24 上传
+
+<img src="https://img.saraba1st.com/forum/202503/21/102426jv8898t9g8g82ltl.jpg" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 月神夜| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  吴怀在  
+##### 232#       发表于 2025-3-21 10:22
+
+初音这身红色紧身裤还挺对我xp的
+
