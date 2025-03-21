@@ -10135,3 +10135,114 @@ Sumimi散不了吧，社长以为初音回不来才准备安排真奈单飞，�
 
 —— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
+
+*****
+
+####  adretyu67.  
+##### 39404#       发表于 2025-3-21 22:00
+
+ 本帖最后由 adretyu67. 于 2025-3-21 22:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67706393&amp;ptid=2208921" target="_blank">聋与唬 发表于 2025-3-21 21:57</a>
+
+不是，能这样的吗？这种mygo里就有大量伏笔的角色就这么糊弄一下完事了？
+
+讲道理，睦和墨的故事可以各出 ...</blockquote>
+其实要是看过李子关于初华的访谈的话，就能明白为啥三角家下线了。
+
+初华能待的地方只有祥子身边了。
+
+鸡动画剧情里初音就是不能和家人和解，和解了就不构成这一点了。
+
+*****
+
+####  zhoujin8584  
+##### 39405#       发表于 2025-3-21 22:02
+
+<blockquote>adretyu67. 发表于 2025-3-21 22:00
+其实要是看过李子关于初华的访谈的话，就能明白为啥三角家下线了。
+
+初华能待的地方只有祥子身边了。
+</blockquote>
+怎么抢木箱糖呢？
+
+好吧初祥用一集时间消解了祥子其他所有箭头，睦祥只是被aoe到了
+
+*****
+
+####  adretyu67.  
+##### 39406#       发表于 2025-3-21 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67706424&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-21 22:02</a>
+
+怎么抢木箱糖呢？
+
+好吧初祥用一集时间消解了祥子其他所有箭头，睦祥只是被aoe到了 ...</blockquote>
+那换个更可怕的说法，初华只为祥子而活<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 39407#       发表于 2025-3-21 22:03
+
+<blockquote>阿兹尔 发表于 2025-3-21 21:53
+说起来soyo从祥子黑名单里出来了吗，放出来会看到那一堆重力单向发言吗</blockquote>
+出來了
+
+現在換Soyo 黑名單🐘
+
+（雖然祥也不會傳訊息）
+
+
+*****
+
+####  南宮凝香  
+##### 39408#       发表于 2025-3-21 22:06
+
+<img src="https://img.saraba1st.com/forum/202503/21/220413gxa5cf69p9ntfgne.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5709.jpeg</strong> (112.31 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-21 22:04 上传
+
+<img src="https://img.saraba1st.com/forum/202503/21/220413i77suuba7zsqqk46.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5710.jpeg</strong> (112.4 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-21 22:04 上传
+
+對偶
+
+愛音 = 祥子
+
+燈 = 喵夢
+
+Soyo = 睦
+
+Taki = 海子
+
+貓 = 初華
+
+下一集我要看貓厚入愛音
+
+音樂是不會錯的！
+
+*****
+
+####  钦念以忱  
+##### 39409#       发表于 2025-3-21 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67706407&amp;ptid=2208921" target="_blank">聋与唬 发表于 2025-3-21 21:58</a>
+
+双重人格和双子小姨设定这有什么用啊？
+
+—— 来自 vivo V2361GA, Android 14上的 S1Next-鹅版 v2.4.3 ...</blockquote>
+睦双重人格的作用，就是让最后初祥锁死的时候，睦厨和睦祥厨和普通观众，都不会觉得奇怪
+
+初华小姨的作用，就是让大祥干翻祥爷，恢复C团时期旧貌，显得比较合理
+
+初华双子倒是感觉没啥用
+
