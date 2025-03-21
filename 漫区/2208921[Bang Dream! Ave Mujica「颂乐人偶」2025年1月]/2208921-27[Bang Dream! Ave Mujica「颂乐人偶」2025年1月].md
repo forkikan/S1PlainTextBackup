@@ -10246,3 +10246,27 @@ Taki = 海子
 
 初华双子倒是感觉没啥用
 
+
+*****
+
+####  艾尔奇亚公民  
+##### 39410#       发表于 2025-3-21 22:08
+
+楼有有“我来成为神明”的表情包吗，自己做的不太好
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  adretyu67.  
+##### 39411#       发表于 2025-3-21 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67706445&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-21 22:06</a>
+
+睦双重人格的作用，就是让最后初祥锁死的时候，睦厨和睦祥厨和普通观众，都不会觉得奇怪
+
+初华小姨的作用 ...</blockquote>
+双子作用就是安排真假初华。
+
+让祥子选假初华。
+

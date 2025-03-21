@@ -2101,3 +2101,16 @@ https://x.com/beeeeetan/status/1902453970964246962
 
 有没有可能没那么复杂，夏亚只是单纯被传送走了，现在躲在某个殖民地通过小机器人远程指挥修司而已（
 
+
+*****
+
+####  猪突猛进R  
+##### 9049#       发表于 2025-3-21 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67706097&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-3-21 21:09</a>
+
+我突然想起个事，红高的塞克缪好像就是艾尔美斯的吧，如果触发共鸣的玫瑰是拉拉，这算不算塞克缪认主（） ...</blockquote>
+浮游炮是，塞克缪系统不见得是一种东西。
+
+原作高达和艾尔梅斯都共鸣成那样了也没见触发XX冲击。
+
