@@ -2462,3 +2462,13 @@ B站好多说这集还行的，甚至还有说这集很好的，这些人直到�
 
 2025-3-21 15:59 上传
 
+
+*****
+
+####  septer  
+##### 255#       发表于 2025-3-21 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67697325&amp;ptid=2250507" target="_blank">枪聆弹语 发表于 2025-3-20 22:43</a>
+如果这都吃得下，哪证明是否豚豚就活该看业界充满了百合烂片呢</blockquote>
+豚豚很爱水魔，但它就是一坨，只能说豚豚这种看百合不看片子本身质量真是有福了
+
