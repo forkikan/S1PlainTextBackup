@@ -1639,3 +1639,24 @@ RE引擎已经有一套成熟的reframework插件体系了,   而接下来的D
 
 你说卡婊有没有那个技术力和人力鉴别外观修改还是数值修改呢
 
+
+*****
+
+####  Youszsh  
+##### 177#       发表于 2025-3-21 12:32
+
+为什么要鉴别，全封了不香吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+外观mod就跟二手盘一样，你们全打好看的mod了谁买他的劣质付费dlc啊？
+就看卡婊有没有这个魄力了，隔壁千万体量的法环只要一发现mod也是人头说砍就砍<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Sayuki1025  
+##### 178#       发表于 2025-3-21 12:34
+
+法环有pvp啊
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

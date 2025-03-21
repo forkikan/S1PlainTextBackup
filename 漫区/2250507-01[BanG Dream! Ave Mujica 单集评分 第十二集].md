@@ -2401,3 +2401,13 @@ go团是有意朝温暖人心的方向建设的，不能整活
 最后和经纪人对峙这段笑死，大小姐过家家翻车一次了，还有脸报自己大名，好想问你是哪位啊？ ...</blockquote>
 有一说一，那是社长，经纪人“还没资格”和丰川公主对峙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PascalLefèvre  
+##### 249#       发表于 2025-3-21 12:33
+
+看明白mygo的人：扣字中，少话
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

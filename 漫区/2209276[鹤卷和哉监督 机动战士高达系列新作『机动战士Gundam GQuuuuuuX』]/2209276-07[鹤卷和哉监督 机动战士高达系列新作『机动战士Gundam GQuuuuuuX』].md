@@ -1537,3 +1537,54 @@ http://weibo.com/7985965662/PjxCeo7PP
 
 快进到垂直入坑已游大世界
 
+
+*****
+
+####  YU_JI  
+##### 9008#       发表于 2025-3-21 12:32
+
+所以国内特典给些啥？别来文件夹了，给张视觉图海报都比文件夹强（）
+
+*****
+
+####  纪寞  
+##### 9009#       发表于 2025-3-21 12:34
+
+我在想，所谓的"kirakira"会不会已经给过答案了，也就是Plazma里第一段的这句：
+
+<img src="https://img.saraba1st.com/forum/202503/21/122522tlsy5cmkk1o1oyq1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (292.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-21 12:25 上传
+
+这里应该还是歌词陈诉剧情的部分，结合上下文可知这里是剧中会发生的剧情。
+
+那这个"银河的尽头"很可能就是kirakira的真相，是两边的交界处。
+
+<img src="https://img.saraba1st.com/forum/202503/21/122825jm9s1aw6615w0mwh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (778.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-21 12:28 上传
+
+而中心的光点则是两边之间的"门"，穿过"门"后才是真正的"那一边"。
+
+另外鸭子其实泽克诺瓦说的话也很奇怪，他是直接就说出了"从那一边来的吗"，可知他在泽克诺瓦前就已经有"那一边"的认知，那他又是从哪里得知的？
+
+感觉已经可以下注所谓的"那一边"，到底是正史还是高维世界了。
+
+虽然巴上帝挡手电筒升维那时确实有一个类似的场景（
+
+<img src="https://img.saraba1st.com/forum/202503/21/123404ytnfv5t2wtotniwl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1013.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-21 12:34 上传
+
