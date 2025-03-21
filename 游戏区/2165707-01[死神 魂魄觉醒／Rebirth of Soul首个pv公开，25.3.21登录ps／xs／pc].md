@@ -506,3 +506,13 @@ OK，感谢推荐，不过对史莱姆这个ip不太感兴趣，到时候有闲�
 
 今天发售了，这游戏完全没人玩吗，怎么一点动静都没有。
 
+
+*****
+
+####  DDWarrior  
+##### 57#       发表于 2025-3-21 16:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">发售首日steam评价就褒贬不一了
+
+这个定价还首发的基本是真爱粉了吧，褒贬不一不容乐观啊
+
