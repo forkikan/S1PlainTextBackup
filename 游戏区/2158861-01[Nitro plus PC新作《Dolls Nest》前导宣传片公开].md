@@ -649,3 +649,16 @@ npc白吃我一个补剂demo里也没后续内容了 气晕
 —— 来自 Google Pixel 9 Pro ...</blockquote>
 试玩版就有吃寄生虫自决了啊。虐妹肯定有太重口的就别想了
 
+
+*****
+
+####  madcow  
+##### 63#       发表于 2025-3-21 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67693365&amp;ptid=2158861" target="_blank">Xerxes_2 发表于 2025-3-20 14:19</a>
+
+看了封面图加上是 N+ 出品以为有 ryona 兴致冲冲得玩了，demo 通关大失所望
+
+—— 来自 Google Pixel 9 Pro ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">你选一坦克足或者四脚，直接小腿砍掉
+

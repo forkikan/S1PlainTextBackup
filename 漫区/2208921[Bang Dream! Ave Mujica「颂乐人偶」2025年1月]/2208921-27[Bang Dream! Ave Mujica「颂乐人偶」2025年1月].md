@@ -8620,3 +8620,77 @@ WSD沒錢
 
 看明白了。am的叙事范式就是隔壁论坛说得“贵种流离谭”。
 
+
+*****
+
+####  岬开斗  
+##### 39277#       发表于 2025-3-21 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67702228&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-3-21 12:35</a>
+越是这些小导演小脚本家，越喜欢玩剑走偏锋，mygo那种踏踏实实的王道套路，他们可能真的不乐意玩 ...</blockquote>
+MyGO哪里王道了，不就是靠剑走偏锋火的吗？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  草化木  
+##### 39278#       发表于 2025-3-21 14:01
+
+ 本帖最后由 草化木 于 2025-3-21 14:04 编辑 
+
+包饺子见得多了，但是这种皮是皮、陷是馅、醋是醋，然后给你一指——“看，这是饺子”——的新概念包饺子手法确实罕见。
+
+看的过程中左右脑互博的体验在这一话里达到了巅峰，事实证明人在无语的时候确实会笑出声，这可以说是我看得最乐的一集。
+
+QQ截图20250321135342.png
+(911.32 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-21 14:04 上传
+
+<img src="https://img.saraba1st.com/forum/202503/21/140401lnqg16lvlss3iwsn.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 39279#       发表于 2025-3-21 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67702425&amp;ptid=2208921" target="_blank">秋月艾莉 发表于 2025-3-21 13:03</a>
+
+不知说几次了还是要说太变态太亏贼了
+
+所以到头来小姨设定和多重人格设定根本半斤八两吧，除了让绫奈由仁子 ...</blockquote>
+独角兽剧本被许可时的心态估计就像第10集的初音一样吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  swessia  
+##### 39280#       发表于 2025-3-21 14:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这可说不好
+
+万一苦瓜睦判断要抱抱能拿捏素世，那她可能真这么演
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  师傅没水了  
+##### 39281#       发表于 2025-3-21 14:04
+
+一袋米要抗几楼
+
+*****
+
+####  ddy2811  
+##### 39282#       发表于 2025-3-21 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67702741&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-3-21 13:45</a>
+
+丰川家到底谁管事啊，老登干了这么多年一点自己的党羽都没发展？</blockquote>
+很可能就和祥子一样，自以为的“党羽”没有一个是肯跟着他单干的，没有了丰川的招牌一文不值
+
