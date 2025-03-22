@@ -12605,3 +12605,18 @@ saya家里应该还有个弟弟。
 <img src="https://p.sda1.dev/22/aa7eea895bb53ac9af42c533013fbd1e/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/22/99993e689d2a4550cf219497db95aafc/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  钦念以忱  
+##### 39566#       发表于 2025-3-22 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67710987&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-22 19:38</a>
+
+说到底素世退黄瓜那里本来就是大毒，睦的cp都喜欢玩跳楼机两年过去也岁月史书罢了。
+
+睦在mygo的个人线先是 ...</blockquote>
+这么说来，初音是否也是全动画对祥子表白唯一人，我印象里从睦到素世到灯，也都在说祥子错了，反而初音的说法是都是我的错，都是我害了你。
+
+两位大小姐最终都放弃了自己喜欢的东西，选择接受现实，和接受喜欢自己的人么。
+
