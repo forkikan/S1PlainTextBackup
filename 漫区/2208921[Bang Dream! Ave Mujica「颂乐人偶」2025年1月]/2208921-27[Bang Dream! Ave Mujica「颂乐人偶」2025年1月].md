@@ -12682,3 +12682,90 @@ saya家里应该还有个弟弟。
 
 这些态度和情感，都有一个共性，就是祥子现在的人生道路走错了
 
+
+*****
+
+####  聋与唬  
+##### 39572#       发表于 2025-3-22 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67708572&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-3-22 11:16</a>
+真搞不懂这个真初华到底有什么好在意的，就是一个初音对祥子扭曲的爱的背景板，搞得好像当偶像实现梦想这件 ...</blockquote>
+真的吗？初华可是祥子离家后跟她关系最亲的人。
+
+就好像你老婆某天突然和你说，其实我不是你老婆，我是你的小姨子，其实你老婆在结婚后就换了身份，这些年的生活其实是和小姨子一起过的。
+
+我觉得但凡是个正常人都应该问一句，那以前那个老婆呢？
+
+你不能说大祥心理那个和她从小玩到大，又一起亲密接触的初华（虽然部分是由初音扮演的）是个背景板。
+真初华在剧本里重要性至少不亚于睦。
+
+—— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+*****
+
+####  Victorino  
+##### 39573#       发表于 2025-3-22 21:21
+
+ 本帖最后由 Victorino 于 2025-3-22 21:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67710042&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-22 16:18</a>
+
+狗9话回忆开头那张图就是一家四口啊。
+
+saya家里应该还有个弟弟。</blockquote>
+按中国大陆婚姻法判决惯例，大概是离婚后两个孩子一边一个
+
+编辑：不对啊，又看了一遍狗9，这tm是个印刷的练习册的封面，根本不是soyo自己画的
+
+*****
+
+####  K的字母表  
+##### 39574#       发表于 2025-3-22 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67710533&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-22 18:07</a>
+
+又看了下祥子写给灯的信，写得像诀别书一样，甚至像遗书一样，睦祥这下真半身了。
+
+虽然不太合适，但用mujic ...</blockquote>
+铁暗恋竟然是最真的假药，放开播前告诉别人这一季最稳的cp是素睦都会觉得在妄想吧
+
+*****
+
+####  航母掉头  
+##### 39575#       发表于 2025-3-22 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67700160&amp;ptid=2208921" target="_blank">595505568 发表于 2025-3-21 09:15</a>
+素世这下是Cp全拆完了，恭喜素世在动画结尾的时候一根正经CP箭头都没剩下，那你要给新生代的贝斯妈妈配的CP ...</blockquote>
+16岁jk未亡人又回来了
+
+*****
+
+####  Licheus  
+##### 39576#       发表于 2025-3-22 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67711440&amp;ptid=2208921" target="_blank">聋与唬 发表于 2025-3-22 21:16</a>
+
+真的吗？初华可是祥子离家后跟她关系最亲的人。
+
+就好像你老婆某天突然和你说，其实我不是你老婆，我是你 ...</blockquote>
+而且对于初音而言，“初华”才是她真正渴望的对象。可以说是这个角色一切心结的锁扣。
+
+直接抹掉导致初音的塑造也也就停留在了一条狗的水平。
+
+*****
+
+####  6030sylar  
+##### 39577#       发表于 2025-3-22 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67709141&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-3-22 13:06</a>
+
+可爱捏</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202503/22/212545ma3o6rcy3uxx7c6k.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (366.4 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-22 21:25 上传
+
