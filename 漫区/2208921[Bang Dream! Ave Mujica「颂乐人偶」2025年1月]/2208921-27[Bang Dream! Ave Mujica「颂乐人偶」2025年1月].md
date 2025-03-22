@@ -12769,3 +12769,91 @@ saya家里应该还有个弟弟。</blockquote>
 
 2025-3-22 21:25 上传
 
+
+*****
+
+####  十九号大侠  
+##### 39578#       发表于 2025-3-22 21:30
+
+初华就陪了2，3天，初音后面还发短信，还陪组乐队，祥子重视初音也说的过去哇
+
+*****
+
+####  6030sylar  
+##### 39579#       发表于 2025-3-22 21:31
+
+<img src="https://img.saraba1st.com/forum/202503/22/213117usayuar5g6srshfs.jpg" referrerpolicy="no-referrer">
+
+<strong>c671e0ec2e738bd4b36d811ce78b87d6267ff991.jpg</strong> (377.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-22 21:31 上传
+
+*****
+
+####  堆雪若叶  
+##### 39580#       发表于 2025-3-22 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67711354&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-22 20:52</a>
+
+睦在go13集说祥子坏掉了，灯写贴纸问祥子幸福么、说自己做错了但不知道正确答案，素世飞鸟山否定祥子解散 ...</blockquote>
+睦的意思是不陪着祥子祥子就要坏掉了，类比的是初华意识到自己在拉着祥子堕落就跑回岛上去。soyo想拉祥子重组crychic而初华想拉祥子回母鸡卡甚至回到阁楼上。
+
+至于灯确实是认为祥子走在不幸福的路上，但这已经并非对错问题，实际上初华比起祥子的幸福与否更倾向遵从自己的欲望，这才是她和其余三人不同之处，大概也只有这样才能把祥子抓死在手里。
+
+
+*****
+
+####  十九号大侠  
+##### 39578#       发表于 2025-3-22 21:30
+
+初华就陪了2，3天，初音后面还发短信，还陪组乐队，祥子重视初音也说的过去哇
+
+*****
+
+####  6030sylar  
+##### 39579#       发表于 2025-3-22 21:31
+
+<img src="https://img.saraba1st.com/forum/202503/22/213117usayuar5g6srshfs.jpg" referrerpolicy="no-referrer">
+
+<strong>c671e0ec2e738bd4b36d811ce78b87d6267ff991.jpg</strong> (377.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-22 21:31 上传
+
+*****
+
+####  堆雪若叶  
+##### 39580#       发表于 2025-3-22 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67711354&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-22 20:52</a>
+
+睦在go13集说祥子坏掉了，灯写贴纸问祥子幸福么、说自己做错了但不知道正确答案，素世飞鸟山否定祥子解散 ...</blockquote>
+睦的意思是不陪着祥子祥子就要坏掉了，类比的是初华意识到自己在拉着祥子堕落就跑回岛上去。soyo想拉祥子重组crychic而初华想拉祥子回母鸡卡甚至回到阁楼上。
+
+至于灯确实是认为祥子走在不幸福的路上，但这已经并非对错问题，实际上初华比起祥子的幸福与否更倾向遵从自己的欲望，这才是她和其余三人不同之处，大概也只有这样才能把祥子抓死在手里。
+
+
+*****
+
+####  6030sylar  
+##### 39581#       发表于 2025-3-22 21:40
+
+<img src="https://img.saraba1st.com/forum/202503/22/214011yqxcgxo1ouop7f7i.jpg" referrerpolicy="no-referrer">
+
+<strong>H4T%6WLOKDTJ[7YSB_Z)(LK_tmb.jpg</strong> (72.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-22 21:40 上传
+
+<img src="https://img.saraba1st.com/forum/202503/22/214016rh7v9xhhz3h6e93x.jpg" referrerpolicy="no-referrer">
+
+<strong>9@_UGD]A8~TBI2LP@HH8RL1_tmb.jpg</strong> (66.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-22 21:40 上传
+
