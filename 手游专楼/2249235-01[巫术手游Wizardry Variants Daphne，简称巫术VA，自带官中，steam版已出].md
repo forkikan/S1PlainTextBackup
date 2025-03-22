@@ -1858,3 +1858,11 @@ wiki说第三个图（要塞）的垃圾会出苦无和忍者刀，不过我还�
 
 开宝箱开出一堆道具都给角色塞满了....只能一个个点放进仓库....好烦
 
+
+*****
+
+####  toblkr  
+##### 156#       发表于 2025-3-22 17:35
+
+刷了个20宝箱怪体液一次就过了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">真恶心
+
