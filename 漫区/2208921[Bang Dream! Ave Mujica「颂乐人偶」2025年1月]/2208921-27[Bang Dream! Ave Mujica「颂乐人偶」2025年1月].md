@@ -10714,3 +10714,30 @@ https://x.com/doyasa1629/status/1903004430292881618
 <img src="https://p.sda1.dev/22/f8320fd67e2aff00259fe347bc461a20/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/22/17b99a6e7552b95efa4452916e9088fc/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一心而用  
+##### 39444#       发表于 2025-3-22 08:35
+
+卡片战斗先导者10
+幼年高松灯&amp;高松爹
+<img src="https://p.sda1.dev/22/069ecf8f1d1997f97e90044d54e0b22a/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  syndrome2032  
+##### 39445#       发表于 2025-3-22 08:42
+
+v**场还带时间乱流吗。
+
+之前明明有高松灯(高中ver)了
+
+*****
+
+####  北条早苗  
+##### 39446#       发表于 2025-3-22 08:45
+
+看到个说法，真初华已经登场了，艺名阿拉蕾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
