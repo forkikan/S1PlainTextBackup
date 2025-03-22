@@ -2603,3 +2603,60 @@ SEC一张都没出
 
 2025-3-21 22:18 上传
 
+
+*****
+
+####  holofan  
+##### 10944#       发表于 2025-3-21 22:27
+
+TMD都3月份了才在问衣服发型的事，今年的新衣装还出不出了
+
+*****
+
+####  holofan  
+##### 10945#       发表于 2025-3-22 21:12
+
+今天的七字母要素总结：
+
+1、周边设计相似
+
+<img src="https://img.saraba1st.com/forum/202503/22/210116t7fjth0qqehpat7n.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (310.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-22 21:01 上传
+
+<img src="https://img.saraba1st.com/forum/202503/22/210442lefs46779iaak6km.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (905.11 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-22 21:04 上传
+
+2、MV内容风格相似
+
+<img src="https://img.saraba1st.com/forum/202503/22/210711pa464a68lxraye8m.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (204.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-22 21:07 上传
+
+[【切り抜き漫画】みこちウイルス.exe【ホロライブ/さくらみこ】 - てりたま](https://www.youtube.com/watch?v=DFBjCneqbSo)
+
+3、LINE既读无视非常焦急（而且是惯犯）
+
+<img src="https://img.saraba1st.com/forum/202503/22/210613vel9mj46r6c9w62t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (387.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-22 21:06 上传
+
+网友附评：miko时不时还会提起七字母是商业组合但是星街侧基本没有听到这个词了
+
