@@ -12526,3 +12526,28 @@ saya家里应该还有个弟弟。
 
 對全世界都妥協， 唯獨對妳不管姿態多低下還是只能用真心面對
 
+
+*****
+
+####  cxj649  
+##### 39561#       发表于 2025-3-22 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67710533&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-22 18:07</a>
+
+又看了下祥子写给灯的信，写得像诀别书一样，甚至像遗书一样，睦祥这下真半身了。
+
+虽然不太合适，但用mujic ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">是啊
+
+
+*****
+
+####  qlipho  
+##### 39562#       发表于 2025-3-22 18:26
+
+<blockquote>钦念以忱 发表于 2025-3-22 18:07
+又看了下祥子写给灯的信，写得像诀别书一样，甚至像遗书一样，睦祥这下真半身了。
+
+虽然不太合适，但用mujic ...</blockquote>
+睦头是陪伴派，祥子是柏拉图派，很简单。当然还是要看柿本哥哥访谈怎么说苦瓜睦
+
