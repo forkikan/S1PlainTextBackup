@@ -712,3 +712,20 @@ OK，感谢推荐，不过对史莱姆这个ip不太感兴趣，到时候有闲�
 
 ftg本来就是小众游戏，这作还是那种比较硬核的，不是像大乱斗那样入门门槛低的作品，ftg玩家+动漫的粉丝这个群体还是日本更多，当然这次本身南万估计也没想卖多少吧
 
+
+*****
+
+####  空洞骑士  
+##### 75#       发表于 2025-3-22 18:03
+
+京乐始解这被动效果，这还是格斗游戏吗<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+20250322180001_1.jpg
+(243.87 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-22 18:01 上传
+
+<img src="https://img.saraba1st.com/forum/202503/22/180101mifcfk8zfuxnu7s5.jpg" referrerpolicy="no-referrer">
+
