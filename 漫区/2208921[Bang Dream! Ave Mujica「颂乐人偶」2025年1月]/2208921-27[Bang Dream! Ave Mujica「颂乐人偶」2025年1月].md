@@ -13225,3 +13225,21 @@ Soyo 只會Pua 跟軟暴力
 
 只能说对现在这个剧情走向的推动上，双重人格很好用，但这本质是编剧想不出更合理的展开方式的取巧。而带来的上述两个问题却又极为难搞，事实上也处理得非常灾难。
 
+
+*****
+
+####  椎名真希  
+##### 39609#       发表于 2025-3-23 00:44
+
+<img src="https://img.saraba1st.com/forum/202503/23/004256tamb6q6bhb9qhhst.jpg" referrerpolicy="no-referrer">
+
+<strong>SoyoMutsumiV2.1.jpg</strong> (1.2 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 00:42 上传
+
+约了个素睦素的稿子，欢迎转发
+[#素睦##睦素# 稿... - @午夜灯人的微博 - 微博](https://weibo.com/7571950383/PjMDb6phc)
+[(2) X 上的 午夜灯人：“#そよむつ #むつそよ 稿了最喜欢的素睦素呀🥺💕](https://x.com/_artuvia/status/1903480741620838448)[https://t.co/8W6MbOUnzg](https://t.co/8W6MbOUnzg)” / X
+
