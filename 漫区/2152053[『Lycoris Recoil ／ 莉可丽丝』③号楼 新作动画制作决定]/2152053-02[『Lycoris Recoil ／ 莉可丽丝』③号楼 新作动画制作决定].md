@@ -585,3 +585,47 @@ mmt见了要叫你去治眼睛</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Delicatus545  
+##### 2154#       发表于 2025-3-22 15:37
+
+[https://x.com/oshitabi_update/status/1903295575388459394](https://x.com/oshitabi_update/status/1903295575388459394)
+
+╭━━━━━━━━━━╮
+
+　　📣コラボ決定
+
+╰━ｖ━━━━━━━━╯
+
+✨JR東海×リコリス・リコイル✨
+
+#リコリコ のイベント
+
+『リコリコプロヂュース　墨田区大観光！』
+
+にあわせてコラボ企画を実施🎶
+
+📅実施期間　2025.4.25~6.1
+
+詳細は４月中旬に発表します❣
+
+<img src="https://img.saraba1st.com/forum/202503/22/153724u0kkqu6sis0s4q44.jpg" referrerpolicy="no-referrer">
+
+<strong>20250322_045037.jpg</strong> (475.27 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-22 15:37 上传
+
+池面tkn<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑夜夜夜  
+##### 2155#       发表于 2025-3-22 15:42
+
+哇牵手<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

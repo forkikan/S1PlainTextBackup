@@ -12213,3 +12213,26 @@ Soyo妈也就三四十，可以继续干三四十年，然后直接传给再下�
 
 阿貓阿狗是不配幫助貴種的
 
+
+*****
+
+####  aptx8285144  
+##### 39536#       发表于 2025-3-22 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67709803&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-22 15:29</a>
+
+修正：
+
+主角天生高贵沦落凡间，其他角色是阿猫阿狗在旁邊打雜， 等待主角頓悟升天</blockquote>
+还是当猫猫好，不需要卷入或操心这些人类的乱七八糟的破事<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一心而用  
+##### 39537#       发表于 2025-3-22 15:42
+
+<img src="https://p.sda1.dev/22/0d7ec18ca6d159bd7965466a35492fb0/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/d4213678cfc800a09e593148a7d0d3fd/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/d1a37d5d2b6ed652a1a609b24acaeabf/image.jpg" referrerpolicy="no-referrer">
+
