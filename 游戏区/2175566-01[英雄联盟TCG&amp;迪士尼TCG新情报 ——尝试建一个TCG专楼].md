@@ -117,3 +117,11 @@ dtcg也要有电子版了 据说20号发布会有消息</blockquote>
 
 万代这个运营你跟大伙说是为了环境健康，那我看各种评论区都没人信<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  1140494429  
+##### 268#       发表于 2025-3-22 11:50
+
+万代卡牌最大的短板是万代自己
+

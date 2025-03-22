@@ -443,3 +443,76 @@ mujica完结后有期待值的就是蒜圆和奈叶了<img src="https://static.s
 大 大方方用，用祥子头像的也不全是祥厨（</blockquote>
 识时务的豚豚该奔向四月的舞台了<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  IWS2000  
+##### 2144#       发表于 2025-3-22 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67708804&amp;ptid=2152053" target="_blank">osore 发表于 2025-3-22 11:47</a>
+识时务的豚豚该奔向四月的舞台了</blockquote>
+来推甜甜圈吧！甜甜圈会赢的
+
+*****
+
+####  晓色暮云  
+##### 2145#       发表于 2025-3-22 11:54
+
+ 本帖最后由 晓色暮云 于 2025-3-22 11:55 编辑 
+
+原来蒜楼是这样的啊<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">为什么千束厨和肉体厨在这里没有百综那么串
+
+*****
+
+####  Piano-Forest  
+##### 2146#         楼主| 发表于 2025-3-22 11:55
+
+ショートムービー「リコリス・リコイル Friends are thieves of time.」PV 
+[https://youtu.be/kal-KjsPStU](https://youtu.be/kal-KjsPStU)
+
+2025年4月16日より毎週水曜21:00～各種配信プラットフォームにて全6話配信！
+
+第1話
+
+脚本：足立慎吾
+
+コンテ・演出：佐久間貴史
+
+第2話
+
+ネーム脚本：いみぎむる
+
+コンテ：足立慎吾　
+
+演出：飛田剛
+
+第3話
+
+脚本：森周
+
+コンテ・演出：森公太
+
+第4話
+
+脚本：冨永芳和
+
+コンテ・演出：菊池貴行
+
+第5話
+
+脚本：山本健
+
+コンテ・演出：中西基樹
+
+第6話
+
+脚本：足立慎吾
+
+コンテ・演出：迫井政行
+<img src="https://p.sda1.dev/22/ed90f702b0e8ac3e3c68b5deb63b435b/20250322_115201.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/d32c6917e483bbbc218100c95828bde5/20250322_115219.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/277c1a1c9b2325f80db706131131994f/20250322_115223.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/1545182fd1980cbe7f511433f556f6de/20250322_115227.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/565d7eb2876091565ccadda70084f21b/20250322_115232.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/6fda1695b697f504dc82fc016f8fa9e4/20250322_115238.jpg" referrerpolicy="no-referrer">
+
