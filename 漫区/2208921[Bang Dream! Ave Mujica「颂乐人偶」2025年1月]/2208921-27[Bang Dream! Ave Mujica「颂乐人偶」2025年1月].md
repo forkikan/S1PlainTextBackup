@@ -12563,3 +12563,45 @@ saya家里应该还有个弟弟。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  zhoujin8584  
+##### 39564#       发表于 2025-3-22 19:38
+
+说到底素世退黄瓜那里本来就是大毒，睦的cp都喜欢玩跳楼机两年过去也岁月史书罢了。
+
+睦在mygo的个人线先是为了素祥就ccc黑刀之夜和解而奔波，结果迎来了不属于crychic的春日影。祥子当晚启动AM，之前睦对ccc复辟模棱两可的态度在飞鸟山只能缄默/拒绝。最后选择为素世兜底一把，自己留在黑暗里让素世回归mygo的温暖大家庭。
+
+结果素世不认可睦对她的新婚祝福，退黄瓜搞切割。这个时候睦就只能把对素世的那部分好感深埋心底了，原本消极应对祥子的AM邀约五集也突然转变态度立马答应了。
+
+睦的祥bot属性本身就是mygo时期一点一点走出来的。如果不引入双重人格，习得性无助也一直在吞噬她的自我。
+
+而睦到了mujica，这时候引入双重人格，“自我”与“才能”设定，她对祥的态度还是一贯的，同时身为主人格，更成熟的一方，她在mujica其实打得没问题，却是无自觉的。祥子想要用商业成绩绑死大家，致死量通告是她顶的，大猫是她惊世一坐锁住的，海铃是她唤醒的嫉妒心，初华的占有欲是她堵上性命换来的。第10集就是说了，莫扮演睦，团队场景也是闭嘴给祥子暴君权威。
+
+那么问题出在哪呢？为什么明明打得没问题，大猫再跳她不表态最后也会听祥子指挥，单飞带不走睦就不会单飞，睦为什么要主动向Mortis伸手？
+
+复盘的结论是<strong>没有人来肯定睦，都在说睦做得错了</strong>，“原来小睦也会犯错啊”，连海铃也没忘了掺一脚说睦走错路了。明明打得没问题，还要被祥子忆往昔爱说爱笑致命一击。于是很妙的设计是大莫老师的社交点全发挥到ccc和mygo去了，她身为mujica精灵反而搞不定mujica的神人的。
+
+所以融合睦给人一种强自我也保留利他性的感觉。苦瓜不如黄瓜受欢迎，不考虑做礼物送人，爱种就种了，这下轮到素世说挺好的了。虽然还是喜欢弹吉他，喵梦有需求也愿意陪她下指导棋。
+
+这样说起来喵梦作为对莫表态你打得不如睦但是又对莫表白的人，确实是若叶睦融合回归的关键情感补给。全动画对睦表白唯一人的含金量。
+
+*****
+
+####  一心而用  
+##### 39565#       发表于 2025-3-22 19:38
+
+天才
+
+【【颂乐人偶】章鱼小祥的原罪-哔哩哔哩】 [https://b23.tv/RrxfC6V](https://b23.tv/RrxfC6V)
+<img src="https://p.sda1.dev/22/cef08f95ecf5f624e6fbc0cd4e22c86c/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/e8f4435588ee854337a59f567decf2f0/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/30bb4b0a20ab4c228db417737791c2b2/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/384bc6015b10e8515f22879493f9d163/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/b6515be30cd6534058e1eafdf41c8a91/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/18da8b5517a565a14f4b38268f29db2e/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/19d1ae2c8f1701d9c0e9600ef16ea059/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/aa7eea895bb53ac9af42c533013fbd1e/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/99993e689d2a4550cf219497db95aafc/image.jpg" referrerpolicy="no-referrer">
+

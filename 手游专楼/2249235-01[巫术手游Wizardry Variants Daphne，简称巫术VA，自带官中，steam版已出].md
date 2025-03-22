@@ -1876,3 +1876,19 @@ wiki说第三个图（要塞）的垃圾会出苦无和忍者刀，不过我还�
 
 —— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 158#         楼主| 发表于 2025-3-22 19:36
+
+ 本帖最后由 风浦可符香(P.N) 于 2025-3-22 19:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67710810&amp;ptid=2249235" target="_blank">Meltina 发表于 2025-3-22 19:00</a>
+
+刚开始玩，抽到王女，后开又抽到个变装王女，这是变装是啥？是不是其中一个就没用了？
+
+—— 来自 Xiaomi 2 ...</blockquote>
+可以理解为不同时间线的同一人物，不能同时上场。不拿专武的情况下，放浪王女比普通王女专属技能稍微好一点，其他差不多。
+
+克己、继承和同一化初期理解不足很容易踩坑，不管练哪只另一只王女可以先扔着不管，将来配队方针确定了再决定要不要吃掉。
+
