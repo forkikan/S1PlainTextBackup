@@ -12236,3 +12236,45 @@ Soyo妈也就三四十，可以继续干三四十年，然后直接传给再下�
 <img src="https://p.sda1.dev/22/d4213678cfc800a09e593148a7d0d3fd/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/22/d1a37d5d2b6ed652a1a609b24acaeabf/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  玖羽  
+##### 39538#       发表于 2025-3-22 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67709755&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-22 15:19</a>
+
+一之濑家单纯就是夫妻感情破裂了吧
+
+狗里的一之濑家回忆部分爽姐应该是在客厅的饭桌上翻的一家四口的册子， ...</blockquote>
+我以前看过分析，Soyo妈和Soyo是同类人，对感情很优柔寡断，但是一旦断了就很彻底
+
+Soyo妈有那样的赚钱才能，离婚前还一直住小公寓，怎么想都是为丈夫作出牺牲的结果
+
+*****
+
+####  qlipho  
+##### 39539#       发表于 2025-3-22 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67709800&amp;ptid=2208921" target="_blank">mj240608414 发表于 2025-3-22 15:29</a>
+
+讲道理，你真要研究细节就错了233，这些所谓黑暗的部分都是为了人设而不是为了剧情。人设一旦确立，成人部 ...</blockquote>
+为了烂炒热度。人设别让手游剧情没法写就行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 39540#       发表于 2025-3-22 15:49
+
+ 本帖最后由 adretyu67. 于 2025-3-22 15:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67709874&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-3-22 15:44</a>
+
+我以前看过分析，Soyo妈和Soyo是同类人，对感情很优柔寡断，但是一旦断了就很彻底
+
+Soyo妈有那样的赚钱才 ...</blockquote>
+不过其实分析也没什么意义。
+
+一之濑父子就是单纯背景板，甚至不会有设定，单纯负责给素姐提供单亲家庭的背景、
+
+讨论一之濑家感情关系是没有什么意义的。
+
