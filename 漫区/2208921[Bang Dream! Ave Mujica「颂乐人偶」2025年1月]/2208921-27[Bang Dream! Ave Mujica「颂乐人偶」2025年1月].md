@@ -11078,3 +11078,47 @@ Wsd内部明显是更满意9、10集，宣传物料和访谈都集中在那时�
 
 假设三角初华能当偶像是因为老登的大手，那老登的大手不会去照顾跟自己没有血缘关系的真初华；假如三角初华能当偶像是因为自己的天赋能力，那真初华能不能当偶像也和她自己有没有天赋能力有关<img src="https://static.saraba1st.com/image/smiley/carton2017/487.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Akari  
+##### 39477#       发表于 2025-3-22 11:20
+
+我的关注点：
+
+半夜会去看星星、丢石头叫小伙伴出门的小孩，她怕虫子。
+
+我的理性不能接受！
+
+*****
+
+####  aptx8285144  
+##### 39478#       发表于 2025-3-22 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67708357&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-3-22 10:44</a>
+
+不对，就该是反过来。老登就不该现在这个只会碎碎念”你不知道丰川家的黑暗有多可怕”的定位。
+
+鸡团现在 ...</blockquote>
+我甚至觉得不能完全用“闹麻了“来概况，前期还热衷讨论大瞄怎么洗白，莫女士怎么处理，结果全都是自己内耗自己的工具，不用洗白，不用出去”杀敌“，除了初音那边那边那个海市蜃楼一样的威胁外，剩下几乎都是自己内讧自己<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Cortana  
+##### 39479#       发表于 2025-3-22 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67707794&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-3-22 08:03</a>
+
+虽然大祥老师在鸡12里说我要抗争命运做自己的神明很装逼，小小世界的梦境说不准什么时候就被外部命运压碎， ...</blockquote>
+酒神精神嘛。“上帝已死”，重要的不仅是上帝死了旧的体系崩塌了，而且这个旧的体系本来就是无足轻重的，它不是用来解放人而是用来束缚人的，挣脱这束缚后的新的人也没有必要再找一个新的神来束缚自己，而是自己做自己的神明，从最原始最本真的自我中寻求生命的价值，用艺术和欢笑来嘲弄生命中真实的、永恒的、无处不在的痛苦与悲剧。
+
+*****
+
+####  xyion  
+##### 39480#       发表于 2025-3-22 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67707984&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-22 09:04</a>
+
+不是这个问题，问题出在初音是娱乐明星是和五冠王一起在电视上用初华的名字活跃那么，真初华就这么在本岛 ...</blockquote>
+这一话其实写了初音对自己待在sumimi这件事的认知和待在鸡一样，"总有一天会结束"。至于真初华为啥没反应，编剧想解释一句话就够，比如"偶像梦想淡了无所谓了"。但一句话解释都不给让观众出脑甚至愤怒，只能说都经历了第七话了，顺从吧。
+
