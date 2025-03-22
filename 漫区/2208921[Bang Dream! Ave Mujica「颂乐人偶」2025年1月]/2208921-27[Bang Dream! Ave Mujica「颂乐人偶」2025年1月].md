@@ -12100,3 +12100,95 @@ image.png
 
 —— 来自 HUAWEI PCT-AL10, Android 10, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  玖羽  
+##### 39528#       发表于 2025-3-22 15:16
+
+ 本帖最后由 玖羽 于 2025-3-22 15:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67709724&amp;ptid=2208921" target="_blank">YF29 发表于 2025-3-22 15:09</a>
+
+她都这样了，没事指着自己说是oblivionis了，就顺从她过个家家吧，养只乐队也不费几个钱，找几个小姐妹贴 ...</blockquote>
+站在上帝视角考虑，最合适的其实是一年前祥子和Soyo结婚，Soyo妈掌管丰川家<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+Crychic根本不用解散，她们爱怎么贴就怎么贴，丰川家的利益也可以最大化
+
+Soyo妈也就三四十，可以继续干三四十年，然后直接传给再下一代（克隆一个，或者收养）
+
+*****
+
+####  adretyu67.  
+##### 39529#       发表于 2025-3-22 15:19
+
+一之濑家单纯就是夫妻感情破裂了吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+素妈2年时间从一之濑家居住的小公寓奋斗到长崎家的复式公寓，这发家速度确实是快的夸张了。
+
+
+*****
+
+####  玖羽  
+##### 39528#       发表于 2025-3-22 15:16
+
+ 本帖最后由 玖羽 于 2025-3-22 15:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67709724&amp;ptid=2208921" target="_blank">YF29 发表于 2025-3-22 15:09</a>
+
+她都这样了，没事指着自己说是oblivionis了，就顺从她过个家家吧，养只乐队也不费几个钱，找几个小姐妹贴 ...</blockquote>
+站在上帝视角考虑，最合适的其实是一年前祥子和Soyo结婚，Soyo妈掌管丰川家<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+Crychic根本不用解散，她们爱怎么贴就怎么贴，丰川家的利益也可以最大化
+
+Soyo妈也就三四十，可以继续干三四十年，然后直接传给再下一代（克隆一个，或者收养）
+
+*****
+
+####  adretyu67.  
+##### 39529#       发表于 2025-3-22 15:19
+
+一之濑家单纯就是夫妻感情破裂了吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+素妈2年时间从一之濑家居住的小公寓奋斗到长崎家的复式公寓，这发家速度确实是快的夸张了。
+
+
+*****
+
+####  梅杜莎  
+##### 39530#       发表于 2025-3-22 15:22
+
+<blockquote>adretyu67. 发表于 2025-3-22 14:52
+最搞笑的是三角家的下线方式。
+
+16年前初音出生的时候就该搬走的，结果硬是拖到初音离家出走才被强制下线
+</blockquote>
+说明老登确实能力不行，隐患不出点动静就不处理摆烂，难怪一把年龄了还要怕丰川家的黑暗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Onelooker  
+##### 39531#       发表于 2025-3-22 15:25
+
+还有人担心线下真实
+
+真是把木柜子痴看扁了啊
+
+*****
+
+####  qlipho  
+##### 39532#       发表于 2025-3-22 15:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">素妈炒比特币了吧，祥老师现在不就有点‘姚安娜’吗。怎么精神病都来了
+
+*****
+
+####  adretyu67.  
+##### 39533#       发表于 2025-3-22 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67709708&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-3-22 15:05</a>
+
+素妈很伟大了，我有点好奇现在素爸是怎么心情呢</blockquote>
+也有可能是老婆太事业了，所以干脆分了。
+
+至于为什么儿子归爹，女儿归妈就是单纯配平了。
+
