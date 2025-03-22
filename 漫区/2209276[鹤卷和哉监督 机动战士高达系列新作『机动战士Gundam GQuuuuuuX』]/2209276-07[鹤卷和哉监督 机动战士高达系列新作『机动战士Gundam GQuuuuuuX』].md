@@ -2584,3 +2584,16 @@ khara的官方频道限时公开 上传了原撮集
 
 2025-3-22 21:52 上传
 
+
+*****
+
+####  兔狐子  
+##### 9069#       发表于 2025-3-22 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67711619&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-3-22 21:46</a>
+
+喵安怀里也没个东西抱，要不正片把博美犬直接发给喵安得了，一人带一娃（修司是被带的那个） ...</blockquote>
+博美犬队：狗是我们的招牌啊！<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+（大概是为了给喵安补一个吉祥物才出的剧场限定的挂件吧
+
