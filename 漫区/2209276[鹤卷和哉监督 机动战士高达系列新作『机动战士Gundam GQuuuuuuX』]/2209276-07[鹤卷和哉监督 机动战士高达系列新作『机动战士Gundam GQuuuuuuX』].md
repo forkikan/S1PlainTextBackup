@@ -2676,3 +2676,14 @@ https://youtu.be/9kCq-2EfIz8</blockquote>
 说的也不是贝子这个漫画，毕竟再怎么说有了逆亚再做一部重置也没什么意思海牛和夜莺也不需要靠这个卖胶。 ...</blockquote>
 感觉可能性还不如像创战try主角蹭多蒙那样出个胶达宇宙阿姆罗儿子的可能性大……
 
+
+*****
+
+####  Steel.Haze  
+##### 9077#       发表于 2025-3-23 03:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67712476&amp;ptid=2209276" target="_blank">阿尔巴尼亚 发表于 2025-3-23 01:18</a>
+
+说的也不是贝子这个漫画，毕竟再怎么说有了逆亚再做一部重置也没什么意思海牛和夜莺也不需要靠这个卖胶。 ...</blockquote>
+阿姆罗之子确实是被忽视的话题。不过这个创作比较敏感，官方貌似也一直不想搞这种一代代接续的模式。当然GQX提供了更多可能性，一个外传话题下，就不一样了。
+
