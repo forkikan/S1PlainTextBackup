@@ -3777,7 +3777,7 @@
     "lastedit": 1742643960,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1478318": {
     "totalreply": 1412,
@@ -7398,10 +7398,10 @@
     "update": false
   },
   "2170738": {
-    "totalreply": 5538,
+    "totalreply": 5539,
     "title": "[《碧蓝航线》五号楼｜新年啦]",
     "newtitle": "[《碧蓝航线》五号楼｜7周年了]",
-    "lastedit": 1742640021,
+    "lastedit": 1742675529,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -10854,10 +10854,10 @@
     "update": false
   },
   "2142860": {
-    "totalreply": 147,
+    "totalreply": 149,
     "title": "[喜欢的冲绳妹说方言 TV动画化]",
     "newtitle": "[喜欢的冲绳妹说方言 TV动画化]",
-    "lastedit": 1742622497,
+    "lastedit": 1742675889,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11025,10 +11025,10 @@
     "update": false
   },
   "2179544": {
-    "totalreply": 2121,
+    "totalreply": 2122,
     "title": "[《天国：拯救2》正式公开，2025年2月4日发售]",
     "newtitle": "[《天国：拯救2》正式公开，2025年2月4日发售]",
-    "lastedit": 1742555653,
+    "lastedit": 1742675407,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16574,7 +16574,7 @@
     "newtitle": "[布基纳法索建成两家番茄酱加工厂]",
     "lastedit": 1742416207,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2076121": {
