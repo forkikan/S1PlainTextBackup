@@ -2635,3 +2635,11 @@ https://youtu.be/9kCq-2EfIz8</blockquote>
 
 但是日本人已经感叹youtube的1080P比nico的720P好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿尔巴尼亚  
+##### 9073#       发表于 2025-3-22 23:58
+
+说个不太靠谱的想法或者说暴论，如果gqux做的还好的话，要是有00或者独角兽的成绩可能不仅仅只有part2，搞不好还能让我们见到阿姆罗儿子呢，105-123中间没什么作品，贝子在这期间也是成年了，gqux肯定会放大nt作用，这样贝子的护母诟病就不算什么了，而且这样日升也敢放开做uc了，nextuc里f91和海盗一部有电影一部一直没有做的考虑，那么贝子上做文章也不是不可能<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

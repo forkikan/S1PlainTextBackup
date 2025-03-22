@@ -13180,3 +13180,29 @@ Soyo 只會Pua 跟軟暴力
 
 但是，作为丰川家的我权力是无限的，飞鸟山的后续到了这里何其赤裸裸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  海底铁锚  
+##### 39606#       发表于 2025-3-22 23:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67712201&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-22 23:30</a>
+
+你一个学生能承担别人的人生吗
+
+做不到的事就不要轻易说出口</blockquote>
+“你不过是一届学生，撑死有点小钱。能承担我丰川家唯一正统继承人的人生吗？”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  堆雪若叶  
+##### 39607#       发表于 2025-3-23 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67712156&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-22 23:21</a>
+
+我说的不是祥子做事的对错，是祥子人生道路的对错
+
+正是因为睦觉得祥子不幸福，所以觉得祥子现在的人生道路 ...</blockquote>
+这和初华拉着祥子一同堕落是一回事啊，只是睦接受祥子的痛苦而选择分担，初华接受祥子的痛苦但又满足自己的欲望，祥子无论在哪边都得不到自己的救赎。至于人生道路的对错其实就是在谈祥子的幸福与否，初华认为自己有错毁掉了祥子的人生并不代表她认为祥子选择母鸡卡就是正确的人生道路，反之她清楚祥子并不幸福，不应该和自己囚禁在母鸡卡之内，所以才会离开。
+
