@@ -1866,3 +1866,13 @@ wiki说第三个图（要塞）的垃圾会出苦无和忍者刀，不过我还�
 
 刷了个20宝箱怪体液一次就过了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">真恶心
 
+
+*****
+
+####  Meltina  
+##### 157#       发表于 2025-3-22 19:00
+
+刚开始玩，抽到王女，后开又抽到个变装王女，这是变装是啥？是不是其中一个就没用了？
+
+—— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
