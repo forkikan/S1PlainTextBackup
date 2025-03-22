@@ -2478,3 +2478,53 @@ https://x.com/beeeeetan/status/1902453970964246962
 小机器人conch的发音，非常接近飞跃巅峰里的coach啊，不知道单纯是偶然还是有某种暗示 ...</blockquote>
 面对着“沙仑的玫瑰”的绚烂光影，修司突然摘下面具，露出粉色的长发，“atomusk，终于找你了”。
 
+
+*****
+
+####  岸浪白野  
+##### 9064#       发表于 2025-3-22 16:34
+
+在泽克诺瓦消失的修司与追逐红高达的玛秋与夏利亚队合流的妄想
+
+[X 上的 ハルキ：“ゼクノヴァで消えたシュウジと赤いガンダムを追うマチュがシャリア隊と合流する妄想　今のうちに描いとけ(1/2) [url]https://t.co/Xc6DeRgJ8I](https://x.com/haruki_chise/status/1903107918729449818)” / X[/url]
+
+<img src="https://img.saraba1st.com/forum/202503/22/162802bnushqhhimrkshs1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.93 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-22 16:28 上传
+
+<img src="https://img.saraba1st.com/forum/202503/22/163258n3hqhs2p98lbthq3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.84 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-22 16:32 上传
+
+<img src="https://img.saraba1st.com/forum/202503/22/163404fii80iv4i64rx4ax.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.57 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-22 16:34 上传
+
+<img src="https://img.saraba1st.com/forum/202503/22/163413k566pbrr3zr8gr6t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.8 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-22 16:34 上传
+
+<img src="https://img.saraba1st.com/forum/202503/22/163421eskmg8agkg7gzdus.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.54 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-22 16:34 上传
+

@@ -12356,3 +12356,37 @@ saya家里应该还有个弟弟。
 也有可能没有，只是图配错了 ...</blockquote>
 可重点是那副图画吧，难道素世是在暗示自己想要一个哥哥？
 
+
+*****
+
+####  一心而用  
+##### 39547#       发表于 2025-3-22 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67709268&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-3-22 13:29</a></blockquote>
+<img src="https://p.sda1.dev/22/befc8dcc0e37b2a9611944ebf3db34b6/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/320ff20132d480c95131d52fdae4dd2a/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/3f9ec7820d8857590a34ec51077099c0/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/aef09aef6850cc44a4a8389ef0b4a6e0/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  钦念以忱  
+##### 39548#       发表于 2025-3-22 16:34
+
+这是在演啥，soyo惊世一跪么？
+
+
+*****
+
+####  adretyu67.  
+##### 39549#       发表于 2025-3-22 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67710084&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-22 16:23</a>
+
+可重点是那副图画吧，难道素世是在暗示自己想要一个哥哥？</blockquote>
+也没什么讨论的价值啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+反正就是父母离婚，女儿判给母亲这个事。
+
+图可能单纯就是bug吧。
+
