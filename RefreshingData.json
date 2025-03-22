@@ -3777,7 +3777,7 @@
     "lastedit": 1742643960,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1478318": {
     "totalreply": 1412,
@@ -9909,10 +9909,10 @@
     "update": false
   },
   "2156809": {
-    "totalreply": 277,
+    "totalreply": 278,
     "title": "[蓝箱 动画化 2024年10月]",
     "newtitle": "[蓝箱 动画化 2024年10月]",
-    "lastedit": 1742671210,
+    "lastedit": 1742681289,
     "category": "漫区",
     "active": true,
     "update": false
@@ -16403,7 +16403,7 @@
     "newtitle": "[25.04.02晚9点任天堂直面会（NINTENDO SWITCH 2）专楼]",
     "lastedit": 1742421127,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2250276": {
