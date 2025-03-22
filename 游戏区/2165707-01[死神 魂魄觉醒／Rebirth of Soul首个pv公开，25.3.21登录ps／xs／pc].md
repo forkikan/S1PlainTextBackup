@@ -788,3 +788,18 @@ SCE这块真的出过，死神灵魂燃烧，还带官中的
 
 但是结果不算太好
 
+
+*****
+
+####  bgmilk  
+##### 81#       发表于 2025-3-22 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67711945&amp;ptid=2165707" target="_blank">雲夢淵澤 发表于 2025-3-22 22:46</a>
+
+说实话无双割草死神这个IP不是没试过
+
+SCE这块真的出过，死神灵魂燃烧，还带官中的
+
+但是结果不算太好 ...</blockquote>
+       这个真不是无双的问题，灵魂燃烧真的过于简陋了，先不说它那个系统根本爽不起来关卡设计也奇烂（无双游戏要对空打飞行小怪大多数角色还没有飞行能力你敢信），一个死神游戏不能喊卍解开二状态基本就告别粉丝缘了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
