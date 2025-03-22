@@ -51,3 +51,13 @@ ss和水果没有上可以说声优没了
 <img src="https://files.catbox.moe/rzn7vw.jpg" referrerpolicy="no-referrer">
 <img src="https://files.catbox.moe/7rqhtq.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  舞野咲  
+##### 741#       发表于 2025-3-22 12:15
+
+[https://www.bilibili.com/video/B ... 635090873f4ff3c1a33](https://www.bilibili.com/video/BV15yXiYPEok/?spm_id_from=333.1007.top_right_bar_window_history.content.click&amp;vd_source=f6ebad624b9b2635090873f4ff3c1a33)
+
+这个初华带偶Q看Mujica第11话笑死
+
