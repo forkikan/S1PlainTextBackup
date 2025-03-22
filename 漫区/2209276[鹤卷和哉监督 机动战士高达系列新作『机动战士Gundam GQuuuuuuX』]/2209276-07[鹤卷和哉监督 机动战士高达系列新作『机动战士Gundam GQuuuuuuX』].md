@@ -2618,3 +2618,20 @@ https://youtu.be/9kCq-2EfIz8</blockquote>
 还以为画质会更高清的，没想到还是720p
 （来自订了安彦原画集但被取消两次还没到货的人的怨念）
 
+
+*****
+
+####  岸浪白野  
+##### 9072#       发表于 2025-3-22 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67711972&amp;ptid=2209276" target="_blank">Gaybird 发表于 2025-3-22 22:51</a>
+
+这个b站上有人传过了啦，老东西了
+
+还以为画质会更高清的，没想到还是720p
+
+（来自订了安彦原画集但被取消 ...</blockquote>
+对啊14年的东西
+
+但是日本人已经感叹youtube的1080P比nico的720P好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

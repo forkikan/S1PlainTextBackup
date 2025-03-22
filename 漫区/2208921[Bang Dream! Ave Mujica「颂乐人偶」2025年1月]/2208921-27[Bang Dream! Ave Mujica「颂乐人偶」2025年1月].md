@@ -13035,3 +13035,28 @@ Soyo 只會Pua 跟軟暴力
 
 后面接小象对家族对家长的反抗就挺工整的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  堆雪若叶  
+##### 39595#       发表于 2025-3-22 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67711879&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-22 22:35</a>
+
+祥子是要坏掉了才有的黑刀之夜，从mujica第1话来看，祥子在母亲死后已经坏了，当时的睦带祥子去看蝶团liv ...</blockquote>
+祥子不是因为坏掉才失去而是因为失去才坏掉，听春日影之前睦并没有对祥子的心理状态有任何评价，因为祥子自己还试图在退出crychic后维持内心的平衡，直到最后完全破防。另一方面如何认知祥子的心理状态和是否认可祥子的行为也是两码事，睦从来没指认祥子退出crychic导致解散的责任，甚至还自己去担负内疚，她才是比起对错更在意祥子幸福的。而初华在母鸡卡炸团之后还希望祥子留在自己身边，她会去考虑是否自己会给祥子带来困苦，但结论依然是要和祥子在一块。
+
+*****
+
+####  K的字母表  
+##### 39596#       发表于 2025-3-22 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67711931&amp;ptid=2208921" target="_blank">厉飞雨 发表于 2025-3-22 22:45</a>
+
+有能力写好的话
+
+初音带小象去看星星的意义其实远大于初华陪玩一整个暑假
+
+因为那是小象的第一次叛逆，第一次 ...</blockquote>
+我喜欢你的这个解释<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
