@@ -12551,3 +12551,15 @@ saya家里应该还有个弟弟。
 虽然不太合适，但用mujic ...</blockquote>
 睦头是陪伴派，祥子是柏拉图派，很简单。当然还是要看柿本哥哥访谈怎么说苦瓜睦
 
+
+*****
+
+####  qratosones1337  
+##### 39563#       发表于 2025-3-22 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67709021&amp;ptid=2208921" target="_blank">舞野咲 发表于 2025-3-22 12:26</a>
+就是NGA说的贵种流离谭那个母体的说法吧，主角天生高贵沦落凡间其他角色是帮助他/她重回天上的阿猫阿狗， ...</blockquote>
+等于堂吉诃德到最后大祥真变成骑士了，公主随从友人都齐了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
