@@ -803,3 +803,13 @@ SCE这块真的出过，死神灵魂燃烧，还带官中的
 但是结果不算太好 ...</blockquote>
        这个真不是无双的问题，灵魂燃烧真的过于简陋了，先不说它那个系统根本爽不起来关卡设计也奇烂（无双游戏要对空打飞行小怪大多数角色还没有飞行能力你敢信），一个死神游戏不能喊卍解开二状态基本就告别粉丝缘了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mishidexieyu  
+##### 82#       发表于 2025-3-23 02:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">试了一下
+蓝染：灵压能战胜一切！
+然后在pvp里，碎蜂真的是二击必杀，太牛了
+
