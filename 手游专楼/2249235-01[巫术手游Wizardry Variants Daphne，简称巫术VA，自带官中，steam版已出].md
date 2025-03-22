@@ -1892,3 +1892,21 @@ wiki说第三个图（要塞）的垃圾会出苦无和忍者刀，不过我还�
 
 克己、继承和同一化初期理解不足很容易踩坑，不管练哪只另一只王女可以先扔着不管，将来配队方针确定了再决定要不要吃掉。
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 159#         楼主| 发表于 2025-3-22 21:28
+
+staff太屑了，就为了那一小段剧情这破玩意要打三次，三回啊三回（振声
+
+而且这三周目里大奶妹就死了四次，惨XD 话说二周目那个惨叫听得有点让人兴奋……咳咳，心疼，我是说心疼
+
+<img src="https://img.saraba1st.com/forum/202503/22/212758zblttksdoe2gsrst.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="800" zoomfile="https://img.saraba1st.com/forum/202503/22/212758zblttksdoe2gsrst.jpg">
+
+<strong>20250322202001_1.jpg</strong> (75.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-22 21:27 上传
+
