@@ -642,3 +642,14 @@ OK，感谢推荐，不过对史莱姆这个ip不太感兴趣，到时候有闲�
 因为国内首日steam国区销量排行在50名开外，今天直接掉出100名了。玩的人少怎么会有动静呢，它要10年前出 ...</blockquote>
 国区比其他地区人气更低的类型，其他地区十几名，国区四五十名
 
+
+*****
+
+####  bgmilk  
+##### 70#       发表于 2025-3-22 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67709815&amp;ptid=2165707" target="_blank">clyde-wang 发表于 2025-3-22 15:32</a>
+
+这游戏主要受众日本本土，装机量最大的NS首发不上，哪怕后上ns2都没多少人会关注的… ...</blockquote>
+   那肯定不是，现在bleach海外热度要比日本本土高太多了。
+
