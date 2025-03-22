@@ -10779,3 +10779,40 @@ v**场还带时间乱流吗。
 对了，我看12集最后，还是喊的初华不是初音，意思初音以后都要顶替初华的名字？真初华就干看着？ ...</blockquote>
 真初华大概被🦄和柿本当抹布彻底擦地了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，毕竟连个角色形象都没有
 
+
+*****
+
+####  aptx8285144  
+##### 39451#       发表于 2025-3-22 08:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67707794&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-3-22 08:03</a>
+
+虽然大祥老师在鸡12里说我要抗争命运做自己的神明很装逼，小小世界的梦境说不准什么时候就被外部命运压碎， ...</blockquote>
+这个问题，这周大祥在机场回忆走马灯时说自己“反抗家族和命运”时我就已经在吐槽了，内鬼假药统统破产<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 39452#       发表于 2025-3-22 09:04
+
+<blockquote>syndrome2032 发表于 2025-3-22 08:50
+按照场外李子找补就是。
+
+本名初音是三角初华(角色)和观众之间的秘密。</blockquote>
+不是这个问题，问题出在初音是娱乐明星是和五冠王一起在电视上用初华的名字活跃那么，真初华就这么在本岛看着?非要找补，只能是老登私底下找她妈花钱打点过，不过初音自己一点都不怕妹妹哪天突然出现也挺魔幻的，我觉得不如解释成独角兽和柿本根本不想这些现实的问题，就自说自话地搞这种如同舞台剧一样的设定
+
+*****
+
+####  syndrome2032  
+##### 39453#       发表于 2025-3-22 09:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67707959&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-22 08:58</a>
+这个问题，这周大祥在机场回忆走马灯时说自己“反抗家族和命运”时我就已经在吐槽了，内鬼假药统统破产( ...</blockquote>
+关键是反抗总得有个敌人啊，命运总得有一个执行者啊。
+
+鸡转了一圈回到原点。大概优化的点就是四个人偶忠诚了。
+鸡1.0搞炒作最速出道被说大小姐过家家我没意见。
+结果鸡2.0大祥又来这一套来对抗命运。。。
+那确实得是大小姐过家家2.0了。
+
