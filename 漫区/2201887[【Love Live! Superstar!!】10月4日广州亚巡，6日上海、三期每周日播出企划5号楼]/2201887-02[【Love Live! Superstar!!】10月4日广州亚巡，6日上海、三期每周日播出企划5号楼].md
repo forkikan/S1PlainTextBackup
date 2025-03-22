@@ -712,3 +712,15 @@ btw，这两天时间轴在假设叶月花没去 ...</blockquote>
 
 <img src="https://p.sda1.dev/22/e4bcca8f4d8813949ebbf47a0447c444/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 1579#       发表于 2025-3-22 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67707915&amp;ptid=2201887" target="_blank">一心而用 发表于 2025-3-22 08:43</a></blockquote>
+实物展示
+<img src="https://p.sda1.dev/22/1a657b850215cc928842e2b72765a56e/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
