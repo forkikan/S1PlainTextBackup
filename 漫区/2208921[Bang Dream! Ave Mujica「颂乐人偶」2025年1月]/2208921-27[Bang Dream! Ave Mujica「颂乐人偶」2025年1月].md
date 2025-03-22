@@ -11929,3 +11929,11 @@ MyGo 本質上也是青春文學</blockquote>
 爱灯连体人，灯讲不出话，也不会回答爱音，这种和mygo大相径庭的描写，而灯答一句话叫一声爱音名字，都花不 ...</blockquote>
 几个情感爆发点还是有的，但是没有任何铺垫就观感就很抽象
 
+
+*****
+
+####  qlipho  
+##### 39516#       发表于 2025-3-22 14:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">祥学长看完龙王归来是真都跑了，只剩爱音厨和柿本搜梅特了
+
