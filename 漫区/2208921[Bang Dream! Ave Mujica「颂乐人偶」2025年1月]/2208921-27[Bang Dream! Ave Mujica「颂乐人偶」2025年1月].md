@@ -11959,3 +11959,41 @@ MyGo 本質上也是青春文學</blockquote>
 对的。光看这段，咱的直觉就是，仿佛德川氏回三河，源氏回清和。别说乘个出租了，乡老没拖家带口出来迎接 ...</blockquote>
 要这么看的话，初音她妈告诉初音的身世也合理，在这地方迟早流言蜚语，哪里瞒得住<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  钦念以忱  
+##### 39519#       发表于 2025-3-22 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67709502&amp;ptid=2208921" target="_blank">qlipho 发表于 2025-3-22 14:24</a>
+
+祥学长看完龙王归来是真都跑了，只剩爱音厨和柿本搜梅特了</blockquote>
+不会吧，我昨天看了眼丰川祥子吧，那边对这集评价还行啊，我抨击了几下还被（大概当成祥黑）封号了
+
+
+*****
+
+####  aptx8285144  
+##### 39520#       发表于 2025-3-22 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67709021&amp;ptid=2208921" target="_blank">舞野咲 发表于 2025-3-22 12:26</a>
+
+就是NGA说的贵种流离谭那个母体的说法吧，主角天生高贵沦落凡间其他角色是帮助他/她重回天上的阿猫阿狗， ...</blockquote>
+主角天生高贵沦落凡间，其他角色是帮助他/她重回天上的阿猫阿狗.....12话了，终于理解独角兽和蚀本想写的竟然是这样的故事<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  YF29  
+##### 39521#       发表于 2025-3-22 14:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">讲真的，比起对恶臭姨学三观吉列豆蒸或是顺从，我现在更觉得牢祥可怜，她有点疯的太彻底了。
+
+“我来成为神明大人！”
+
+“我可是Ave Mujica的oblivionis，丰川祥子啊！”
+
+一般情况下，在公开场合开始自说自话高呼我是神，我是太阳的人下场都是进精神病院。
+
+丰川家的恐怖，大概就是被怪病连续折磨了好几代的主家母系继承人终于嗷的一声疯特了吧。
+
