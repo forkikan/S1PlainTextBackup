@@ -12948,3 +12948,61 @@ mujica会炸团这一点在开播前基本是共识就不用讨论了。目前�
 
 也就角姨這種櫻花妹才會覺得怎樣作也要順毛舔是合理的
 
+
+*****
+
+####  是谁的书画  
+##### 39588#       发表于 2025-3-22 22:25
+
+这一集含量极低的艺术性和故事让我对这部剧已经失去了思考和理解的欲望了，好无趣的故事，哪怕是烂也给我烂的不脱俗一点吧，前面都怎么玩了，你凭啥最后就怎么无理简单的大事化小<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+祥子，初华，多么无聊的两个女人<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+好在最后一集是 live，可以开开心心不用大脑的乐了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  堆雪若叶  
+##### 39589#       发表于 2025-3-22 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67711670&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-22 21:57</a>
+
+这就是睦和初音的区别，睦觉得祥子要坏掉了，选择的是和祥子共同赴难，还要把这点对祥子讲出来
+
+而初音觉 ...</blockquote>
+睦觉得祥子要坏掉是因为祥子听完灯和别人演奏春日影意识到自己完全失去crychic濒临崩溃，所以要陪祥子组母鸡卡给她心理支持，而睦对组母鸡卡的对错根本没有评判。初华离开是意识到自己想重组母鸡卡只是在囚禁祥子的人生，同样也不涉及祥子选择的对错，只是初华最后会顺从欲望再次回到祥子身边。所以初华的不同只是在于行动导向更遵从自己的欲望而非祥子的幸福，无论是母鸡卡解散后她依然希望祥子留在身边或是为了和灯睦争夺要把祥子拉回母鸡卡，初华都不在意祥子自己的选择更遑论对错。
+
+*****
+
+####  blackeryuri2  
+##### 39590#       发表于 2025-3-22 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67711767&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-22 22:16</a>
+
+覺得大祥錯了很正常
+
+因為她真的錯了</blockquote>
+可能算是种逆反心理吧
+
+不过mygo的睦确实有点不自觉的刀子嘴，虽然她是好心的。包括对soyo说哟嘎达呐，也被soyo说小黄瓜不需要了
+
+
+*****
+
+####  blackeryuri2  
+##### 39591#       发表于 2025-3-22 22:33
+
+还有人会怀念曾经mygo时的无口小睦吗，甚至很多人只想看motis，看来睦真的被“不需要了”。再见了，ave mujica。
+
+*****
+
+####  钦念以忱  
+##### 39592#       发表于 2025-3-22 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67711834&amp;ptid=2208921" target="_blank">堆雪若叶 发表于 2025-3-22 22:28</a>
+
+睦觉得祥子要坏掉是因为祥子听完灯和别人演奏春日影意识到自己完全失去crychic濒临崩溃，所以要陪祥子组母 ...</blockquote>
+祥子是要坏掉了才有的黑刀之夜，从mujica第1话来看，祥子在母亲死后已经坏了，当时的睦带祥子去看蝶团live给祥子续了一波命，但等祥爹出事，还是断掉了。
+
+而初华是觉得祥爹出事，祥子离家出走，日子过得这么艰苦，都是自己害的，自己继续待在祥子身边，又会有类似祥爹这样的遭遇降落到祥子身上。
+

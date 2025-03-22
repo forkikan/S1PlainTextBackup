@@ -752,3 +752,16 @@ ftg本来就是小众游戏，这作还是那种比较硬核的，不是像大�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  bgmilk  
+##### 78#       发表于 2025-3-22 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67711757&amp;ptid=2165707" target="_blank">jxzeroga0 发表于 2025-3-22 22:14</a>
+
+希望能攒够奶粉钱吧，这作很多素材已经做得不错了，回头做究极风暴那样的新作还有希望
+
+—— 来自 鹅球 v3. ...</blockquote>
+      CC2那套演出真不是随便哪家做的来的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer"> 让tamsoft拿这套素材做个无双出来倒是靠谱点。别的不说这作的对战其实还是能玩的肯定不是烂作，主要还是粉丝真的打对战的太少，就是看个演出爽一下就完事，就这点来说tamsoft还是做无双更符合粉丝期待。
+
