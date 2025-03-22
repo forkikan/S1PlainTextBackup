@@ -12458,3 +12458,22 @@ saya家里应该还有个弟弟。
 
 喵睦CP也和初祥CP有类似，祥子恐怕没多喜欢初音，但也愿意和初音搞CP，搞暧昧，这点还拍得不太明显，睦对喵梦就更加明显了，睦对喵梦更加看不出有什么感情，但还是该搞CP搞该卖暧昧卖。
 
+
+*****
+
+####  LYCZERO  
+##### 39555#       发表于 2025-3-22 17:43
+
+所有母鸡卡终究是一个悲剧的故事，无论画面怎么梦幻终究还是痛苦
+
+—— 来自 Xiaomi 2407FRK8EC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  swessia  
+##### 39556#       发表于 2025-3-22 17:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">编剧那小脑容量哪会想这么多，炒作完了回滚人设再包个饺子完事
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
