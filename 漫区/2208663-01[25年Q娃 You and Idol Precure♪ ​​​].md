@@ -61,3 +61,18 @@ ss和水果没有上可以说声优没了
 
 这个初华带偶Q看Mujica第11话笑死
 
+
+*****
+
+####  紫雨こころ  
+##### 742#       发表于 2025-3-22 14:59
+
+[https://twitter.com/hanamaru_hnkc/status/1903288822022148320](https://twitter.com/hanamaru_hnkc/status/1903288822022148320) <blockquote>上田華子：
+
+明日の7話演出やりました！
+
+ぜひ見てください！
+
+よろしくお願いいたします！</blockquote>
+<img src="https://files.catbox.moe/svkw0c.jpg" referrerpolicy="no-referrer">
+
