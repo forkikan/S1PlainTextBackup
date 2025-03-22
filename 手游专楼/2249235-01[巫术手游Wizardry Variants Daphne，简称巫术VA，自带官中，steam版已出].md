@@ -1825,3 +1825,15 @@ wiki说第三个图（要塞）的垃圾会出苦无和忍者刀，不过我还�
 
 我现在有多出来的一个爱丽丝和两个黛波拉是不是先不要克己留着比较好？还是说拿去喂给主角拿技能？
 
+
+*****
+
+####  琉歌  
+##### 153#       发表于 2025-3-22 13:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67708318&amp;ptid=2249235" target="_blank">sodah 发表于 2025-3-22 10:34</a>
+我现在有多出来的一个爱丽丝和两个黛波拉是不是先不要克己留着比较好？还是说拿去喂给主角拿技能？ ...</blockquote>
+可以的，给主角喂啥都不会亏，不过前期爱丽丝喂给土法更好
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

@@ -876,3 +876,14 @@ Mr.エレガンス：小西克幸
 <img src="https://p.sda1.dev/22/0d11a1acf2c7d3ca5bd966bc5f435b53/20250322_110844.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/22/371c52e5ec672c579ee1258ccb70c15e/20250322_110721.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  发财就收  
+##### 89#       发表于 2025-3-22 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67708504&amp;ptid=2199597" target="_blank">会长辅佐 发表于 2025-3-22 11:06</a>
+
+若本爷竟然还在干活</blockquote>
+说起来若本是不是也有出演过梅津三部曲OVA当中一部的角色？
+
