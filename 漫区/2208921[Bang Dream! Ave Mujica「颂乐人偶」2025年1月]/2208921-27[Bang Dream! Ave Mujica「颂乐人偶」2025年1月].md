@@ -10850,3 +10850,54 @@ v**场还带时间乱流吗。
 
 組織決定了派她去對抗大小姐
 
+
+*****
+
+####  南宮凝香  
+##### 39457#       发表于 2025-3-22 09:26
+
+母雞卡已經可以定性為中二
+
+這五人實際上是沒什麼過不去的牢籠的
+
+那所謂的箱庭就只是大小姐過家家的自限
+
+*****
+
+####  aptx8285144  
+##### 39458#       发表于 2025-3-22 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67708041&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-22 09:21</a>
+
+大小姐說在對抗命運就是在對抗命運
+
+沒敵人就給她制造敵人</blockquote>
+下周如果社长敢违抗拥有丰川姓氏的大公主，我敬她是一个女汉子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  operatbig  
+##### 39459#       发表于 2025-3-22 09:32
+
+真该第10集就完结吧，既有绝望阴湿的氛围又有足够留白，独角兽毁了一切。
+
+*****
+
+####  天空塔书记官  
+##### 39460#       发表于 2025-3-22 09:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Cortana  
+##### 39461#       发表于 2025-3-22 09:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67707984&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-22 09:04</a>
+
+不是这个问题，问题出在初音是娱乐明星是和五冠王一起在电视上用初华的名字活跃那么，真初华就这么在本岛 ...</blockquote>
+越怕才越干啊，你没看出来初音有自毁倾向？要是妹妹真出现在她面前还揭穿她的身份，那初音下一步就是紫砂了。
+
