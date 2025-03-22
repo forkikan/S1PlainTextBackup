@@ -355,3 +355,91 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  千恋万花  
+##### 2133#       发表于 2025-3-22 11:32
+
+宣传的是在 4 月 25 日至 6 月 1 日的快闪店里「先行上映 / 先行公開」，估计就是在店里的电视里播放？去店里买东西的顾客顺道看看
+
+*****
+
+####  osore  
+##### 2134#       发表于 2025-3-22 11:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">会有惊喜的，泡面出的也比预想要早
+
+*****
+
+####  灼眼的夏娜酱  
+##### 2135#       发表于 2025-3-22 11:35
+
+mujica完结后有期待值的就是蒜圆和奈叶了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">希望回天别翻车。
+
+*****
+
+####  半年  
+##### 2136#       发表于 2025-3-22 11:35
+
+出太慢啦
+
+*****
+
+####  Saber琪  
+##### 2137#       发表于 2025-3-22 11:37
+
+6集15分钟做两年，我看蒜二的脚本会议还没开完<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qz66618  
+##### 2138#       发表于 2025-3-22 11:38
+
+躺着联动就能收钱，为什么要做动画<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  HANDAIYV  
+##### 2139#       发表于 2025-3-22 11:38
+
+离开播就不到一个月了，pv里也不放点新画面
+
+*****
+
+####  qz66618  
+##### 2140#       发表于 2025-3-22 11:38
+
+两分钟动漫再放点新画面就没啥可看的了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  HANDAIYV  
+##### 2141#       发表于 2025-3-22 11:42
+
+<blockquote>osore 发表于 2025-3-22 00:00
+因为我已经在百综被打为祥黑了</blockquote>
+
+大 大方方用，用祥子头像的也不全是祥厨（
+
+*****
+
+####  osore  
+##### 2142#       发表于 2025-3-22 11:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是给你放了漫画封面（？）了，还要什么自行车
+
+*****
+
+####  osore  
+##### 2143#       发表于 2025-3-22 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67708776&amp;ptid=2152053" target="_blank">HANDAIYV 发表于 2025-3-22 11:42</a>
+大 大方方用，用祥子头像的也不全是祥厨（</blockquote>
+识时务的豚豚该奔向四月的舞台了<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+

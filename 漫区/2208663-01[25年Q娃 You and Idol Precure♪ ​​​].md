@@ -29,3 +29,25 @@ ss和水果没有上可以说声优没了
 
 2025-3-20 22:43 上传
 
+
+*****
+
+####  紫雨こころ  
+##### 740#       发表于 2025-3-22 11:42
+
+第07話　心おどる♪キュアキュンキュンデビュー！
+
+脚本：加藤陽一
+
+演出：上田華子
+
+作画監督：松浦仁美
+
+美術：倉橋隆
+
+一度はアイドルハートブローチを受け取ったこころ（CV.高森奈津美）だったが、キュアアイドルとキュアウインクがマックランダーとたたかう姿におどろき、自分には無理だ、と去っていく。家に帰ってきたこころは、部屋に飾っていたキュアアイドルたちのグッズをしまい込んでしまう。こころを心配して、翌日の放課後、こころの家を訪ねるうた（CV.松岡美里）となな（髙橋ミナミ）、プリルン。こころはまだ帰ってきておらず、キュアアイドルたちのことを忘れようとダンスの練習に打ち込んでいて───
+<img src="https://files.catbox.moe/ubkex5.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/bp954s.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/rzn7vw.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/7rqhtq.jpg" referrerpolicy="no-referrer">
+
