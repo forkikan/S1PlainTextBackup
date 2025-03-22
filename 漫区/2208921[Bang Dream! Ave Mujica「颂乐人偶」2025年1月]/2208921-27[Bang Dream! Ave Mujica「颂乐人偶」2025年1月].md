@@ -13295,3 +13295,16 @@ BanG Dream！Ave Mujica 前12话 niconico 好评率
 第12话 85.3% 6.2% 2.7% 3.3% 2.5% 约2200人
 <img src="https://p.sda1.dev/22/8c16aeef8b5526dd0ea4f9d714bd3316/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  syndrome2032  
+##### 39614#       发表于 2025-3-23 07:27
+
+ 本帖最后由 syndrome2032 于 2025-3-23 07:29 编辑 
+
+11话独角戏+阴暗爬行还是太拟人了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+果不其然劝退一批。
+
+13话live应该能回升点
+
