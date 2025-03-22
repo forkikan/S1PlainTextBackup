@@ -603,3 +603,14 @@ OK，感谢推荐，不过对史莱姆这个ip不太感兴趣，到时候有闲�
 
 果然成为究极风暴那样的游戏是不可能的
 
+
+*****
+
+####  空洞骑士  
+##### 66#       发表于 2025-3-22 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67704018&amp;ptid=2165707" target="_blank">suzakushi 发表于 2025-3-21 16:30</a>
+
+今天发售了，这游戏完全没人玩吗，怎么一点动静都没有。</blockquote>
+因为国内首日steam国区销量排行在50名开外，今天直接掉出100名了。玩的人少怎么会有动静呢，它要10年前出可能会有更多人讨论吧。
+

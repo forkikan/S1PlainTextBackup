@@ -2706,3 +2706,16 @@ SB，烂透了，逻辑是没有的，剧情是如食了菌子一般的，看了
 我看独角兽厨也都是串子，不惜把整部mygo拉低到跟12集一个水平也要硬吹</blockquote>
 你这样会显得go主唱很尴尬，唯一退步的人
 
+
+*****
+
+####  aptx8285144  
+##### 276#       发表于 2025-3-22 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67704566&amp;ptid=2250507" target="_blank">zhzij111 发表于 2025-3-21 17:36</a>
+
+论百合真碰瓷不了水魔吧，水魔剧情烂归烂，红白从第一集到最后结婚好歹是有始有终的。
+
+这母鸡卡把铺垫一季 ...</blockquote>
+我觉得母鸡卡里的这些深井冰，不如狸猫和妮卡姐的关系好<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

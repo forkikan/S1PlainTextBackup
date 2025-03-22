@@ -12035,3 +12035,68 @@ MyGo 本質上也是青春文學</blockquote>
 16年前初音出生的时候就该搬走的，结果硬是拖到初音离家出走才被强制下线</blockquote>
 搬走是因为要避开”以后初祥回来“的道德尴尬吧<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cxj649  
+##### 39525#       发表于 2025-3-22 15:04
+
+ 本帖最后由 cxj649 于 2025-3-22 15:07 编辑 
+
+风怒了
+
+image.png
+(401.72 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-22 15:03 上传
+
+<img src="https://img.saraba1st.com/forum/202503/22/150312sm6z12hmw626ras9.png" referrerpolicy="no-referrer">
+
+image.png
+(437.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-22 15:03 上传
+
+<img src="https://img.saraba1st.com/forum/202503/22/150328mr6rhmx46jdwy46m.png" referrerpolicy="no-referrer">
+
+image.png
+(181.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-22 15:03 上传
+
+<img src="https://img.saraba1st.com/forum/202503/22/150346l9s6f58l4llolfll.png" referrerpolicy="no-referrer">
+
+image.png
+(183.19 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-22 15:04 上传
+
+<img src="https://img.saraba1st.com/forum/202503/22/150429q5nl2ataltrlildv.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 39526#       发表于 2025-3-22 15:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">素妈很伟大了，我有点好奇现在素爸是怎么心情呢
+
+*****
+
+####  YF29  
+##### 39527#       发表于 2025-3-22 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67709656&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-22 14:55</a>
+如果真得历尽千辛万苦或者战胜强敌，说这些话都是很有逼格的，而现在吗，而且还可能有个让人绷不住的事情 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她都这样了，没事指着自己说是oblivionis了，就顺从她过个家家吧，养只乐队也不费几个钱，找几个小姐妹贴贴就这么过家家过完一生挺好的。
+以后就算要继承家业生孩子，主家分家也得掂量一下后代遗传精神病的可能，收个养子养女继承就行了。
+
+—— 来自 HUAWEI PCT-AL10, Android 10, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
