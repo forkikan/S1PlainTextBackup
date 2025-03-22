@@ -11937,3 +11937,25 @@ MyGo 本質上也是青春文學</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">祥学长看完龙王归来是真都跑了，只剩爱音厨和柿本搜梅特了
 
+
+*****
+
+####  aptx8285144  
+##### 39517#       发表于 2025-3-22 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67709018&amp;ptid=2208921" target="_blank">甲鱼 发表于 2025-3-22 12:25</a>
+
+初祥前2话还是阴湿小姨偷窥我，这一话就直接转变成了霸道总裁爱上你。cp厨真的只要是这两个人就能磕吗。 ...</blockquote>
+非要洗的话，大概是乐队时狂欢说着玩表情有多可怕就多可怕<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 39518#       发表于 2025-3-22 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67709115&amp;ptid=2208921" target="_blank">yy19 发表于 2025-3-22 13:01</a>
+
+对的。光看这段，咱的直觉就是，仿佛德川氏回三河，源氏回清和。别说乘个出租了，乡老没拖家带口出来迎接 ...</blockquote>
+要这么看的话，初音她妈告诉初音的身世也合理，在这地方迟早流言蜚语，哪里瞒得住<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
