@@ -2867,3 +2867,14 @@ https://youtu.be/EB3J8olZi5E?si=7o9_HL54DKoJqi1N
 
 这个逆天道场千叶周作怎么打啊，又是七连斩又是快慢刀的，你真的是还有两年就要病死的老大爷吗
 
+
+*****
+
+####  dazzle  
+##### 3682#       发表于 2025-3-22 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67707874&amp;ptid=2092342" target="_blank">cherry__ 发表于 2025-3-22 08:31</a>
+
+这个逆天道场千叶周作怎么打啊，又是七连斩又是快慢刀的，你真的是还有两年就要病死的老大爷吗 ...</blockquote>
+老头特点就是一套普攻打完会马上霸体再来一套，安心弹就是了，大概8-9连弹可以还手一次，一次可以打他1/3
+
