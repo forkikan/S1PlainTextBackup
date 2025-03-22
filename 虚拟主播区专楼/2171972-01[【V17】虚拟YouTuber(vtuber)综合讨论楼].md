@@ -14,3 +14,14 @@
 
 相信整体水平的上升吧，apex最后也是大师满地走了
 
+
+*****
+
+####  艾特娜  
+##### 1062#       发表于 2025-3-22 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67710871&amp;ptid=2171972" target="_blank">poipanchao 发表于 2025-3-22 19:13</a>
+
+相信整体水平的上升吧，apex最后也是大师满地走了</blockquote>
+对应到apex得是猎杀满地走才行
+
