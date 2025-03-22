@@ -10692,3 +10692,25 @@ Taki = 海子
 
 有一说一，我真的想看下集鸡团在g-wave出道结果被大手一巴掌打回livehouse从头开始的展开了。
 
+
+*****
+
+####  zhoujin8584  
+##### 39442#       发表于 2025-3-22 08:12
+
+虽说按照动画来说，素世是你是哪个首我就喜欢哪个首，真的在心伤反而是喵梦就是了。
+[【【动画】我想你了….莫提斯..-哔哩哔哩】](https://b23.tv/oM5TM9A)
+
+*****
+
+####  一心而用  
+##### 39443#       发表于 2025-3-22 08:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67706844&amp;ptid=2208921" target="_blank">fsfs_freeze 发表于 2025-3-21 23:20</a>
+https://x.com/doyasa1629/status/1903004430292881618
+
+更变态的剧情来了</blockquote>
+可惜和五冠王矛盾了
+<img src="https://p.sda1.dev/22/f8320fd67e2aff00259fe347bc461a20/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/17b99a6e7552b95efa4452916e9088fc/image.jpg" referrerpolicy="no-referrer">
+
