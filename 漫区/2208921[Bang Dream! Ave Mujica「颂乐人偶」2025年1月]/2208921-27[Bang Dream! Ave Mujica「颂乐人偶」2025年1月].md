@@ -12288,3 +12288,71 @@ Soyo妈有那样的赚钱才 ...</blockquote>
 
 我以為邦邦世界的男孩都被滅種了？
 
+
+*****
+
+####  adretyu67.  
+##### 39542#       发表于 2025-3-22 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67710016&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-22 16:15</a>
+
+等等， 一之瀨家還有男孩？
+
+我以為邦邦世界的男孩都被滅種了？</blockquote>
+狗9话回忆开头那张图就是一家四口啊。
+
+saya家里应该还有个弟弟。
+
+不过这属于过于年轻犯下的错误。
+
+现在要么独苗要么姐妹。
+
+*****
+
+####  aptx8285144  
+##### 39543#       发表于 2025-3-22 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67710016&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-22 16:15</a>
+
+等等， 一之瀨家還有男孩？
+
+我以為邦邦世界的男孩都被滅種了？</blockquote>
+飞鸟山之战后的那话开头，素世在画画，那副图画里有父亲和哥哥（？）
+
+*****
+
+####  adretyu67.  
+##### 39544#       发表于 2025-3-22 16:21
+
+ 本帖最后由 adretyu67. 于 2025-3-22 16:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67710048&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-22 16:19</a>
+
+飞鸟山之战后的那话开头，素世在画画，那副图画里有父亲和哥哥（？）</blockquote>
+数了下餐桌的椅子数量只有3把。如果是一家四口应该是四把椅子才对。
+
+所以也有可能没有，只是图配错了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 39545#       发表于 2025-3-22 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67710016&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-22 16:15</a>
+
+等等， 一之瀨家還有男孩？
+
+我以為邦邦世界的男孩都被滅種了？</blockquote>
+有啊，小素世画的图是4口之家
+
+*****
+
+####  aptx8285144  
+##### 39546#       发表于 2025-3-22 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67710064&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-22 16:21</a>
+
+数了下餐桌的椅子数量只有3把。如果是一家四口应该是四把椅子才对。
+
+也有可能没有，只是图配错了 ...</blockquote>
+可重点是那副图画吧，难道素世是在暗示自己想要一个哥哥？
+
