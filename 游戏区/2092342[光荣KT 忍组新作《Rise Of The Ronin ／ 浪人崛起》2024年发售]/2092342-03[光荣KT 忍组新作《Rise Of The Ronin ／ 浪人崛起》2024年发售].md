@@ -2902,3 +2902,13 @@ https://youtu.be/EB3J8olZi5E?si=7o9_HL54DKoJqi1N
 
 笃姬可以攻略的？？？这什么曹操模拟器？？？<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ——啧  
+##### 3685#       发表于 2025-3-23 02:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67712397&amp;ptid=2092342" target="_blank">廖化 发表于 2025-3-23 00:39</a>
+笃姬可以攻略的？？？这什么曹操模拟器？？？</blockquote>
+衫文也行<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
