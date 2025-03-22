@@ -36,3 +36,14 @@
 对应到apex得是猎杀满地走才行</blockquote>
 限定到猎杀最后也有好几个了，猩猩dito之类的，诺宝勉强算
 
+
+*****
+
+####  艾特娜  
+##### 1064#       发表于 2025-3-23 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67711283&amp;ptid=2171972" target="_blank">poipanchao 发表于 2025-3-22 20:28</a>
+
+限定到猎杀最后也有好几个了，猩猩dito之类的，诺宝勉强算</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">花月那样也要用自己不习惯的设备参赛
+
