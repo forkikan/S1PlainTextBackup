@@ -255,3 +255,11 @@ FY10 9HN7 HEWX GJ70
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
 
+
+*****
+
+####  granly  
+##### 1427#       发表于 2025-3-22 14:03
+
+早知道有联动昨天我就不拿票去搏双子了，双子没到手也没票抽战女高了
+

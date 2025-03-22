@@ -897,3 +897,14 @@ Mr.エレガンス：小西克幸
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  会长辅佐  
+##### 91#       发表于 2025-3-22 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67709244&amp;ptid=2199597" target="_blank">发财就收 发表于 2025-3-22 13:24</a>
+
+说起来若本是不是也有出演过梅津三部曲OVA当中一部的角色？</blockquote>
+次强音里有
+

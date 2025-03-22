@@ -2683,3 +2683,15 @@ SB，烂透了，逻辑是没有的，剧情是如食了菌子一般的，看了
 擅自期待 擅自破防
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰寒之月  
+##### 274#       发表于 2025-3-22 13:49
+
++2 笑死 祥子：我就是神
+
+仔细想想其实本来丰川就是母系家族 那作为正统母系继承人的祥子确实比入赘的外公有话语权
+
+原来之前祥子做客服纯粹是想锻炼自己啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
