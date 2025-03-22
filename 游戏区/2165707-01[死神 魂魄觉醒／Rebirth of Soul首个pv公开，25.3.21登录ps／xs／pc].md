@@ -765,3 +765,26 @@ ftg本来就是小众游戏，这作还是那种比较硬核的，不是像大�
 —— 来自 鹅球 v3. ...</blockquote>
       CC2那套演出真不是随便哪家做的来的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer"> 让tamsoft拿这套素材做个无双出来倒是靠谱点。别的不说这作的对战其实还是能玩的肯定不是烂作，主要还是粉丝真的打对战的太少，就是看个演出爽一下就完事，就这点来说tamsoft还是做无双更符合粉丝期待。
 
+
+*****
+
+####  高妹控  
+##### 79#       发表于 2025-3-22 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67711854&amp;ptid=2165707" target="_blank">bgmilk 发表于 2025-3-22 22:30</a>
+CC2那套演出真不是随便哪家做的来的 让tamsoft拿这套素材做个无双出来倒是靠谱点。别的不说这作的 ...</blockquote>
+死神原作漫画大多是1V1，搞无双感觉和题材不搭。我觉得做成大乱斗更适合，最高支持本地/在线2V2，全系列角色参战，不过预算估计不允许（任天堂大乱斗感觉成本就不低）
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  雲夢淵澤  
+##### 80#       发表于 2025-3-22 22:46
+
+说实话无双割草死神这个IP不是没试过
+
+SCE这块真的出过，死神灵魂燃烧，还带官中的
+
+但是结果不算太好
+
