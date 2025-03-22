@@ -729,3 +729,16 @@ ftg本来就是小众游戏，这作还是那种比较硬核的，不是像大�
 
 <img src="https://img.saraba1st.com/forum/202503/22/180101mifcfk8zfuxnu7s5.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gameselect  
+##### 76#       发表于 2025-3-22 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67710345&amp;ptid=2165707" target="_blank">bgmilk 发表于 2025-3-22 17:31</a>
+
+还是那个问题，打起来不像粉丝想象中的bleach的样子 最适合死神的对战风格应该是最终幻想纷争那种或者 ...</blockquote>
+就感觉方向错了
+
+系统设计的很用心，故事演出拉了
+

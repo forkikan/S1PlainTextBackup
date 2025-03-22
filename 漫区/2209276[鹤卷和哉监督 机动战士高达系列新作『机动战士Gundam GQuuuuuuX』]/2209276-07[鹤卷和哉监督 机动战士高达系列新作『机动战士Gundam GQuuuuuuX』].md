@@ -2554,3 +2554,33 @@ https://x.com/beeeeetan/status/1902453970964246962
 
 2025-3-22 20:13 上传
 
+
+*****
+
+####  YU_JI  
+##### 9067#       发表于 2025-3-22 21:46
+
+ 本帖最后由 YU_JI 于 2025-3-22 21:47 编辑 
+<blockquote>兔狐子 发表于 2025-3-22 20:13
+画了</blockquote>
+喵安怀里也没个东西抱，要不正片把博美犬直接发给喵安得了，一人带一娃（修司是被带的那个）<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  岸浪白野  
+##### 9068#       发表于 2025-3-22 21:50
+
+ 本帖最后由 岸浪白野 于 2025-3-22 21:52 编辑 
+
+khara的官方频道限时公开 上传了原撮集
+[https://youtu.be/9kCq-2EfIz8](https://youtu.be/9kCq-2EfIz8)
+
+<img src="https://img.saraba1st.com/forum/202503/22/215201u3dis44q4z6hqvui.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="800" zoomfile="https://img.saraba1st.com/forum/202503/22/215201u3dis44q4z6hqvui.png">
+
+<strong>image.png</strong> (1.02 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-22 21:52 上传
+
