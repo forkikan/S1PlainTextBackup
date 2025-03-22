@@ -2756,3 +2756,11 @@ BanG Dream！Ave Mujica 前12话 niconico 好评率
 第12话 85.3% 6.2% 2.7% 3.3% 2.5% 约2200人
 <img src="https://p.sda1.dev/22/604b624b99bc0fd03f694ad6d5192cea/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  operatbig  
+##### 280#       发表于 2025-3-23 02:11
+
+求求柿本赶快把大角彻底踢了，他不会真暗恋这中年仙女吧？
+

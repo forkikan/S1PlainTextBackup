@@ -3777,7 +3777,7 @@
     "lastedit": 1742643960,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1478318": {
     "totalreply": 1412,
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 155466,
+    "totalreply": 155467,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1742666420,
+    "lastedit": 1742667376,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -10593,10 +10593,10 @@
     "update": false
   },
   "2185149": {
-    "totalreply": 1698,
+    "totalreply": 1701,
     "title": "[2025年的Q娃其一：魔法使光之美少女2]",
     "newtitle": "[2025年的Q娃其一：魔法使光之美少女2]",
-    "lastedit": 1742666346,
+    "lastedit": 1742667251,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10611,10 +10611,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 109266,
+    "totalreply": 109267,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1742666059,
+    "lastedit": 1742667254,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11673,10 +11673,10 @@
     "update": false
   },
   "2247680": {
-    "totalreply": 73,
+    "totalreply": 74,
     "title": "[帮帮我！扫地机器人决赛圈（追觅S40增强／石头P20P／云鲸J5）]",
     "newtitle": "[3月3日更新）扫地机器人决赛圈（追觅S40增强／石头P20P／云鲸J5）]",
-    "lastedit": 1742657173,
+    "lastedit": 1742667133,
     "category": "外野",
     "active": true,
     "update": false
@@ -11709,10 +11709,10 @@
     "update": false
   },
   "2244012": {
-    "totalreply": 124,
+    "totalreply": 125,
     "title": "[Team Ninja × 白金工作室《忍者龙剑传4》公布！2025年秋发售，XGP首发]",
     "newtitle": "[Team Ninja × 白金工作室《忍者龙剑传4》公布！2025年秋发售，XGP首发]",
-    "lastedit": 1742665946,
+    "lastedit": 1742667131,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12681,10 +12681,10 @@
     "update": false
   },
   "2249059": {
-    "totalreply": 89,
+    "totalreply": 97,
     "title": "[一些关于关于变身百合／变身嫁人／变身成为后宫成员／变身男女通吃的一些思考（11044字）]",
     "newtitle": "[一些关于关于变身百合／变身嫁人／变身成为后宫成员／变身男女通吃的一些思考（11044字）]",
-    "lastedit": 1742666774,
+    "lastedit": 1742667376,
     "category": "外野",
     "active": true,
     "update": false
@@ -17055,10 +17055,10 @@
     "update": false
   },
   "2250507": {
-    "totalreply": 279,
+    "totalreply": 280,
     "title": "[BanG Dream! Ave Mujica 单集评分 第十二集]",
     "newtitle": "[BanG Dream! Ave Mujica 单集评分 第十二集]",
-    "lastedit": 1742664497,
+    "lastedit": 1742667254,
     "category": "漫区",
     "active": true,
     "update": false
@@ -17676,10 +17676,10 @@
     "update": false
   },
   "2250584": {
-    "totalreply": 49,
+    "totalreply": 50,
     "title": "[什么是道德？道德的定义是什么？]",
     "newtitle": "[什么是道德？道德的定义是什么？]",
-    "lastedit": 1742665569,
+    "lastedit": 1742667376,
     "category": "外野",
     "active": true,
     "update": false
@@ -17789,6 +17789,15 @@
     "newtitle": "[『地狱老师』2025年新作动画化]",
     "lastedit": 1742664741,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2247256": {
+    "totalreply": 80,
+    "title": "[现在扫地机器人都标配激光雷达，甚至还有双目视觉AI避障，应该卷无可卷了吧？]",
+    "newtitle": "[现在扫地机器人都标配激光雷达，甚至还有双目视觉AI避障，应该卷无可卷了吧？]",
+    "lastedit": 1742667377,
+    "category": "外野",
     "active": true,
     "update": false
   }
