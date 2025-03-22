@@ -11822,3 +11822,44 @@ MyGo 本質上也是青春文學
 
 結果十二話下來兩個主角就變成了社會的形狀 （大祥是直接變成了社會本身）
 
+
+*****
+
+####  6030sylar  
+##### 39507#       发表于 2025-3-22 13:29
+
+<img src="https://img.saraba1st.com/forum/202503/22/132923iy4nf4hn40g0fn4g.jpg" referrerpolicy="no-referrer">
+
+<strong>ZEQ@RLXWH)TCYE_DUZ78JFL_tmb.jpg</strong> (250.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-22 13:29 上传
+
+*****
+
+####  小妻水亚美  
+##### 39508#       发表于 2025-3-22 13:30
+
+<img src="https://p.sda1.dev/22/78729a1f60dfadb4d483061fc0f904d5/IMG_CMP_190812249.jpeg" referrerpolicy="no-referrer">
+nina你在干什么!
+
+—— 来自 OPPO PGFM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  xyion  
+##### 39509#       发表于 2025-3-22 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67709180&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-22 13:12</a>
+
+其實不寫為什麼搞音樂也可以
+
+MyGo 本質上也是青春文學</blockquote>
+鸡要不叫ave mujica，我觉得不写也可以。最开始我就在讲文不对题的事。
+
+至于母题，你看nga前有贵种流离谭，后有唐吉柯德，你楼也有爱而不得，大家都有自己的以为。
+
+都和反抗没关系呢。
+

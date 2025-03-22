@@ -566,3 +566,22 @@ mmt见了要叫你去治眼睛</blockquote>
 你怎么把雪皇也加黑名单了</blockquote>
 看起来不像个人类
 
+
+*****
+
+####  osore  
+##### 2152#       发表于 2025-3-22 13:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该把小祥加黑名单了
+
+*****
+
+####  虚无缥缈的分身  
+##### 2153#       发表于 2025-3-22 13:34
+
+泡面番出了，那第二季是不是快了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+我早已原谅了足哥哥
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
