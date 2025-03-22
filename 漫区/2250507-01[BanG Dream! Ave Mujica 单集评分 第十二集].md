@@ -2764,3 +2764,12 @@ BanG Dream！Ave Mujica 前12话 niconico 好评率
 
 求求柿本赶快把大角彻底踢了，他不会真暗恋这中年仙女吧？
 
+
+*****
+
+####  syndrome2032  
+##### 281#       发表于 2025-3-23 06:12
+
+12话观看人数是爆炸了。
+看起来11话破坏力是实打实的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
