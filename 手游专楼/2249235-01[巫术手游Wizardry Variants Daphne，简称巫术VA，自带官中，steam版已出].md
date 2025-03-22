@@ -1939,3 +1939,15 @@ staff太屑了，就为了那一小段剧情这破玩意要打三次，三回啊
 
 卡20练级到多久比较好，我现在看了下差不多25了，还要接着刷吗
 
+
+*****
+
+####  藤钢剑姬  
+##### 163#       发表于 2025-3-23 01:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67712524&amp;ptid=2249235" target="_blank">Dreki 发表于 2025-3-23 01:30</a>
+卡20练级到多久比较好，我现在看了下差不多25了，还要接着刷吗</blockquote>
+25级足够通关二周目了。二周目通关才更好刷级
+
+—— 来自 HUAWEI MGA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
