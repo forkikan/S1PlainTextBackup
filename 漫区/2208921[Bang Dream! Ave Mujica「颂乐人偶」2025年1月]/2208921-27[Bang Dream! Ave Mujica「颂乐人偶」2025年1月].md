@@ -13243,3 +13243,13 @@ Soyo 只會Pua 跟軟暴力
 [#素睦##睦素# 稿... - @午夜灯人的微博 - 微博](https://weibo.com/7571950383/PjMDb6phc)
 [(2) X 上的 午夜灯人：“#そよむつ #むつそよ 稿了最喜欢的素睦素呀🥺💕](https://x.com/_artuvia/status/1903480741620838448)[https://t.co/8W6MbOUnzg](https://t.co/8W6MbOUnzg)” / X
 
+
+*****
+
+####  烂片雷达  
+##### 39610#       发表于 2025-3-23 01:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67699845&amp;ptid=2208921" target="_blank">安娜导函数 发表于 2025-3-21 08:35</a>
+哪来的素睦，官方最后不告诉你了，喵睦才是王道嘛</blockquote>
+素睦才是底层逻辑好吧，甚至莫妮卡动画就已经定性了，喵睦只是增加素睦情趣的小小外遇罢了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
