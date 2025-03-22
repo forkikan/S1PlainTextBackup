@@ -260,3 +260,31 @@
 
 泡面还先行上映<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  灼眼的夏娜酱  
+##### 2122#       发表于 2025-3-22 10:59
+
+4月16日放第一集，然后22日先行1-4集<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qz66618  
+##### 2123#       发表于 2025-3-22 11:03
+
+所以说到现在也没说一集长度吗，有十分钟没啊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Saber琪  
+##### 2124#       发表于 2025-3-22 11:03
+
+ 本帖最后由 Saber琪 于 2025-3-22 11:04 编辑 
+
+6集总共应该也就15分钟左右，还要搞一个线下先行放映，幽默<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+叠个甲，安济诗音换算的（）
+
