@@ -11997,3 +11997,41 @@ MyGo 本質上也是青春文學</blockquote>
 
 丰川家的恐怖，大概就是被怪病连续折磨了好几代的主家母系继承人终于嗷的一声疯特了吧。
 
+
+*****
+
+####  adretyu67.  
+##### 39522#       发表于 2025-3-22 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67709559&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-22 14:36</a>
+
+要这么看的话，初音她妈告诉初音的身世也合理，在这地方迟早流言蜚语，哪里瞒得住 ...</blockquote>
+最搞笑的是三角家的下线方式。
+
+16年前初音出生的时候就该搬走的，结果硬是拖到初音离家出走才被强制下线<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 39523#       发表于 2025-3-22 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67709606&amp;ptid=2208921" target="_blank">YF29 发表于 2025-3-22 14:46</a>
+
+讲真的，比起对恶臭姨学三观吉列豆蒸或是顺从，我现在更觉得牢祥可怜，她有点疯的太彻底了。
+
+“我来成为神 ...</blockquote>
+如果真得历尽千辛万苦或者战胜强敌，说这些话都是很有逼格的，而现在吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 39524#       发表于 2025-3-22 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67709637&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-22 14:52</a>
+
+最搞笑的是三角家的下线方式。
+
+16年前初音出生的时候就该搬走的，结果硬是拖到初音离家出走才被强制下线</blockquote>
+搬走是因为要避开”以后初祥回来“的道德尴尬吧<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

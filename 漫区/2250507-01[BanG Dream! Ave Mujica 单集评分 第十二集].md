@@ -2695,3 +2695,14 @@ SB，烂透了，逻辑是没有的，剧情是如食了菌子一般的，看了
 
 原来之前祥子做客服纯粹是想锻炼自己啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  550616  
+##### 275#       发表于 2025-3-22 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67707038&amp;ptid=2250507" target="_blank">scorbian 发表于 2025-3-21 23:56</a>
+
+我看独角兽厨也都是串子，不惜把整部mygo拉低到跟12集一个水平也要硬吹</blockquote>
+你这样会显得go主唱很尴尬，唯一退步的人
+
