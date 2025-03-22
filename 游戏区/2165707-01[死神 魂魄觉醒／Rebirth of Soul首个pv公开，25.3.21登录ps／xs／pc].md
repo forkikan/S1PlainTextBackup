@@ -699,3 +699,16 @@ OK，感谢推荐，不过对史莱姆这个ip不太感兴趣，到时候有闲�
 我看粉丝里的FTG玩家的描述，给的评价很高啊，很可惜bleach粉没多少玩FTG的，有种方向没错但又错了的感觉 ...</blockquote>
    还是那个问题，打起来不像粉丝想象中的bleach的样子<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">或者直接套闪乱ev的对战其实也更合适，不过那个就是实际对战起来就是纯娱乐没什么竞技性可言了。
 
+
+*****
+
+####  clyde-wang  
+##### 74#       发表于 2025-3-22 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67710252&amp;ptid=2165707" target="_blank">bgmilk 发表于 2025-3-22 16:59</a>
+
+那肯定不是，现在bleach海外热度要比日本本土高太多了。</blockquote>
+动漫本身热度和漫改热度还是不一样的
+
+ftg本来就是小众游戏，这作还是那种比较硬核的，不是像大乱斗那样入门门槛低的作品，ftg玩家+动漫的粉丝这个群体还是日本更多，当然这次本身南万估计也没想卖多少吧
+
