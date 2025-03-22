@@ -3777,7 +3777,7 @@
     "lastedit": 1742643960,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1478318": {
     "totalreply": 1412,
@@ -7524,10 +7524,10 @@
     "update": false
   },
   "2170852": {
-    "totalreply": 5885,
+    "totalreply": 5886,
     "title": "[helldiver2老司机2steam国区降价了（转型讨论楼）]",
     "newtitle": "[helldiver2老司机2steam国区降价了（转型讨论楼）]",
-    "lastedit": 1742471295,
+    "lastedit": 1742674570,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 155483,
+    "totalreply": 155485,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1742673608,
+    "lastedit": 1742674569,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -16137,12 +16137,12 @@
     "update": false
   },
   "1973699": {
-    "totalreply": 141,
+    "totalreply": 142,
     "title": "[《坂本DAYS／坂本日常》恭喜动画化！]",
     "newtitle": "[《坂本DAYS／坂本日常》恭喜动画化！]",
-    "lastedit": 1742346975,
+    "lastedit": 1742674329,
     "category": "漫区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2250245": {
@@ -17190,10 +17190,10 @@
     "update": false
   },
   "2250530": {
-    "totalreply": 151,
+    "totalreply": 152,
     "title": "[网络“大V”司马南偷税被罚超900万]",
     "newtitle": "[网络“大V”司马南偷税被罚超900万]",
-    "lastedit": 1742672893,
+    "lastedit": 1742674449,
     "category": "外野",
     "active": true,
     "update": false
@@ -17415,10 +17415,10 @@
     "update": false
   },
   "2250582": {
-    "totalreply": 109,
+    "totalreply": 110,
     "title": "[光绪如果没有被慈禧一波带走，君主立宪成功概率很大？]",
     "newtitle": "[光绪如果没有被慈禧一波带走，君主立宪成功概率很大？]",
-    "lastedit": 1742629097,
+    "lastedit": 1742674690,
     "category": "外野",
     "active": true,
     "update": false
