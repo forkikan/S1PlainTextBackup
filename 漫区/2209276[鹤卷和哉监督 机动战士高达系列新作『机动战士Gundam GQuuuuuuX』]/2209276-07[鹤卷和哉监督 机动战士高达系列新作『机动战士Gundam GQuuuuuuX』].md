@@ -2528,3 +2528,13 @@ https://x.com/beeeeetan/status/1902453970964246962
 
 2025-3-22 16:34 上传
 
+
+*****
+
+####  竞自由  
+##### 9065#       发表于 2025-3-22 20:02
+
+二刷去了看 4DX，全程在位置上被震碎了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">跟 2D 完全是两个电影，兄弟们有机会一定要感受一下<img src="https://p.sda1.dev/22/dae58bebaed0a918ad05813a3d91f10d/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
