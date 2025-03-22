@@ -11122,3 +11122,21 @@ Wsd内部明显是更满意9、10集，宣传物料和访谈都集中在那时�
 不是这个问题，问题出在初音是娱乐明星是和五冠王一起在电视上用初华的名字活跃那么，真初华就这么在本岛 ...</blockquote>
 这一话其实写了初音对自己待在sumimi这件事的认知和待在鸡一样，"总有一天会结束"。至于真初华为啥没反应，编剧想解释一句话就够，比如"偶像梦想淡了无所谓了"。但一句话解释都不给让观众出脑甚至愤怒，只能说都经历了第七话了，顺从吧。
 
+
+*****
+
+####  aptx8285144  
+##### 39481#       发表于 2025-3-22 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67708656&amp;ptid=2208921" target="_blank">xyion 发表于 2025-3-22 11:25</a>
+
+这一话其实写了初音对自己待在sumimi这件事的认知和待在鸡一样，"总有一天会结束"。至于真初华为啥没反应 ...</blockquote>
+如果这样解释，初音对音乐和偶像也没啥喜爱，这五个人对音乐的执着好像都很淡？这在乐队番里算是很少见了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 39482#       发表于 2025-3-22 11:30
+
+说起来蚀本，独角兽这些神人在访谈里有提过初音对甜甜圈或甜甜圈对初音是什么看法吗，虽然感觉”可能没啥资格被提一嘴“<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
