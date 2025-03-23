@@ -1951,3 +1951,14 @@ staff太屑了，就为了那一小段剧情这破玩意要打三次，三回啊
 
 —— 来自 HUAWEI MGA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  sodah  
+##### 164#       发表于 2025-3-23 08:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67711874&amp;ptid=2249235" target="_blank">风浦可符香(P.N) 发表于 2025-3-22 22:34</a>
+
+宝箱难度/内容物也受动态等级影响，跟活动剧情的周目关系不大，如果等级低是会开得少一点，但是陷阱难度 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实我说的是主线二周目，之前我还以为会别的什么能多刷点的打法，看来确实是只能跑图硬刷，那就慢慢刷好了。
+
