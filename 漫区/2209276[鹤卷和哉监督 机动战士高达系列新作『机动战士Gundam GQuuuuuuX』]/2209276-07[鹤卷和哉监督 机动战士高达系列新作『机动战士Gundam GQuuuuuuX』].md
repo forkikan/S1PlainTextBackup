@@ -2841,3 +2841,15 @@ GQuuuuuuX和红高的盾一对比，这是有了I-Field？
 
 GTO就是IF啊 夏亚很多细节都是原创的
 
+
+*****
+
+####  Toby_dak  
+##### 9093#       发表于 2025-3-23 14:48
+
+[https://www.youtube.com/live/yD6EqQdjECI?si=WEajLVzAtwGr5sOh](https://www.youtube.com/live/yD6EqQdjECI?si=WEajLVzAtwGr5sOh)
+
+一会4点的AnineJapan舞台直播。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
