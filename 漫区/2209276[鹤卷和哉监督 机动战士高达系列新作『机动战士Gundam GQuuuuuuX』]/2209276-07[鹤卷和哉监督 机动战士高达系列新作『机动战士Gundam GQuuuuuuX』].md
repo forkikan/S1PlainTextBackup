@@ -4896,3 +4896,11 @@ https://youtu.be/hrk9q27qcWQ
 
 原文是这样的：因為知道基督既從死裡復活、就不再死、死也不再作他的主了（Knowing that Christ being raised from the dead dieth no more; death hath no more dominion over him.）
 
+
+*****
+
+####  岸浪白野  
+##### 9256#       发表于 2025-3-24 02:17
+
+前面楼就发过是迪伦的诗了，确实也没补上那首诗重点那句And Death Shall Have No Dominion是新约罗马书的哲学和诗意重构
+
