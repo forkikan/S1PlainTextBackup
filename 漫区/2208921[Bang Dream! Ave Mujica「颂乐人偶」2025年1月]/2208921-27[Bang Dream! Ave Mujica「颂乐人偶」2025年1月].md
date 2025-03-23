@@ -13897,3 +13897,16 @@ BanG Dream！Ave Mujica 前12话 niconico 好评率
 
 睦莫的问题还是等着市一访谈吧，他力推的多重人格和素睦他不可能真就这么不管了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  须贺兰  
+##### 39659#       发表于 2025-3-23 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67713228&amp;ptid=2208921" target="_blank">风道北来 发表于 2025-3-23 09:38</a>
+
+大象最能体现神人本质的点就在这里
+
+两个团十人里只有大象和睦头人的社交范围完全被锁死在十人内</blockquote>
+祥子名字念法比较特殊，如果没有亲密到能喊名字，日常交流「豊川さん」就足够了
+
