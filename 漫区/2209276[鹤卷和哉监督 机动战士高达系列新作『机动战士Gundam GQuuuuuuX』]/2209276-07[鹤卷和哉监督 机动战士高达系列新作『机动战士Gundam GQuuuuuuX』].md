@@ -3833,3 +3833,95 @@ pv里还有张玛秋在驾驶舱里消沉脸的画面，会不会真是突然开
 前半79部分前面宣传确实藏着啊 ...</blockquote>
 但是电影前半部分只叫Beginning，后半只叫GQuuuuuuX（
 
+
+*****
+
+####  刺客ares  
+##### 9174#       发表于 2025-3-23 17:27
+
+<blockquote>纪寞 发表于 2025-3-23 17:21
+不会奥米加开启真要阿尔法在一定范围内或阿尔法驾驶员允许吧，那如果假定修司真在和魔女打后离开，那会不会 ...</blockquote>
+之前匿名版那边猜的是：
+
+1.需要阿尔法塞可缪在附近
+
+2.驾驶员是高强度的NT
+
+3.与红高达驾驶员互为异性
+
+三个条件全部满足才能启动欧米伽塞可缪
+
+*****
+
+####  岸浪白野  
+##### 9175#       发表于 2025-3-23 17:30
+
+修司趋势第5
+
+<img src="https://img.saraba1st.com/forum/202503/23/172935of392h1xoo01j39x.png" referrerpolicy="no-referrer">
+
+<strong>I377(IC4)3P)$S[4QS1O5V4.png</strong> (10.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 17:29 上传
+
+<img src="https://img.saraba1st.com/forum/202503/23/172935szns733r013s44d0.png" referrerpolicy="no-referrer">
+
+<strong>0[(EK2SHJ1I{}E4`VSX(LAF.png</strong> (11.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 17:29 上传
+
+<img src="https://img.saraba1st.com/forum/202503/23/172936zanlaeaizuei0i60.png" referrerpolicy="no-referrer">
+
+<strong>V68G@A8KGC]F~7NHTW3[(}X.png</strong> (11.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 17:29 上传
+
+
+*****
+
+####  纪寞  
+##### 9176#       发表于 2025-3-23 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67715655&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-3-23 17:27</a>
+
+之前匿名版那边猜的是：
+
+1.需要阿尔法塞可缪在附近
+
+2.驾驶员是高强度的NT</blockquote>
+我觉得异性不对，这个条件太怪了，不太可能吧，和之前泄漏的机设图的也对不上。
+
+*****
+
+####  RE㐅ia  
+##### 9177#       发表于 2025-3-23 17:31
+
+牢修上热搜了可还行
+
+*****
+
+####  xwz  
+##### 9178#       发表于 2025-3-23 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67714987&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-3-23 15:31</a></blockquote>
+“你好，我叫加美尤”<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刺客ares  
+##### 9179#       发表于 2025-3-23 17:33
+
+<blockquote>纪寞 发表于 2025-3-23 17:30
+我觉得异性不对，这个条件太怪了，不太可能吧，和之前泄漏的机设图的也对不上。 ...</blockquote>
+其实是根据首席哥无法启动来倒推的
+
+首席哥的nt强度足够，他当时也在红高达附近，但是最终表现就是无法启动欧米伽，那他与玛秋最大的差别不就是性别了
+
+可能正篇里的条件没那么奇怪吧
+
