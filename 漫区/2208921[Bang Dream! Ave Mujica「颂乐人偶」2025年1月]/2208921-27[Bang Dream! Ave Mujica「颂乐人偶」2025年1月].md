@@ -15299,3 +15299,120 @@ HHW真正认不出熊的应该只有育美一个人。
 按照这距离推定这三角家的两小孩也是天生神力啊</blockquote>
 本集时空间上的众多不合理之处只能作“魔幻现实主义”下的写实与非写实的交错理解了，属于是理论上有可能完成但绝不会像剧中表现那样的写意
 
+
+*****
+
+####  结衣小比取  
+##### 39761#       发表于 2025-3-23 23:24
+
+本话大致有三处内容指出初华和定治<strong>可能</strong>有联系
+
+1、初华和祥子在度假别墅重逢后切到丰川大宅，6.3秒又切回度假别墅内部，这个6.3秒时间内 定治疑似在听汇报
+
+<img src="https://img.saraba1st.com/forum/202503/23/201724de7j5ame4mqjamme.jpg" referrerpolicy="no-referrer">
+
+<strong>01.jpg</strong> (806.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 20:17 上传
+
+2、夜间巴士，初华收到了定治本人直接联络，命令她把祥子带回来 「連れ戻せ」
+
+<img src="https://img.saraba1st.com/forum/202503/23/201723nfkrxsvm0wnk5xfp.jpg" referrerpolicy="no-referrer">
+
+<strong>02.jpg</strong> (359.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 20:17 上传
+
+3、如果这个台词能成立，那么对于「あの男と同じ轍」指的是什么，初华和定治是有共识的，但是为什么他俩会有共识？肯定是直接或者间接交流过呗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202503/23/201722i6jnkhnj0gyooyho.jpg" referrerpolicy="no-referrer">
+
+<strong>03.jpg</strong> (174.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 20:17 上传
+
+初华还自述在东京当偶像、玩乐队每天都战战兢兢地，生怕哪天定治像第十话那样把自己驱逐走
+
+<img src="https://img.saraba1st.com/forum/202503/23/201720jm31704g9751g58z.jpg" referrerpolicy="no-referrer">
+
+<strong>04.jpg</strong> (226.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 20:17 上传
+
+<img src="https://img.saraba1st.com/forum/202503/23/201720kkzvqqnogykmk05q.jpg" referrerpolicy="no-referrer">
+
+<strong>05.jpg</strong> (344.37 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 20:17 上传
+
+<img src="https://img.saraba1st.com/forum/202503/23/201719hdg04td8i404z2gx.jpg" referrerpolicy="no-referrer">
+
+<strong>06.jpg</strong> (124.65 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 20:17 上传
+
+那么Ave Mujica一期乐队成员里就还真有一个受制于定治且能交流情报的人—_____,—b
+
+忍不住吐槽一下，初华要是真的自觉朝不保夕，怎么好意思不断说出这些话的？<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer"> 
+
+「ずっと　ここにいていいから」
+
+「一緒に　いてくれる？」
+
+「ずっと一緒にいよう」
+
+「戻ってこない？」
+
+*****
+
+####  cxj649  
+##### 39762#       发表于 2025-3-23 23:27
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/487.png" referrerpolicy="no-referrer">初音内鬼说是真的
+
+*****
+
+####  adretyu67.  
+##### 39763#       发表于 2025-3-23 23:29
+
+12话初华和老登的剧情展开感觉就像是初华内鬼说成立了一样<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+特别是安排初华在别墅当管理员钓大祥<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  6030sylar  
+##### 39764#       发表于 2025-3-23 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67717278&amp;ptid=2208921" target="_blank">结衣小比取 发表于 2025-3-23 23:24</a>
+
+本话大致有三处内容指出初华和定治可能有联系
+
+1、初华和祥子在度假别墅重逢后切到丰川大宅，6.3秒又切回度 ...</blockquote>
+双面间谍特有精神分裂<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qratosones1337  
+##### 39765#       发表于 2025-3-23 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67716195&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-3-23 19:25</a>
+
+篇幅不够删节了，请看pico/广播剧/手游剧情
+
+#12开头祥子在机场奔跑的时候，mujica已经进入魔幻现实主义状态 ...</blockquote>
+这回该独角兽背锅了，机场那段本来可以不写的，直接写前一天晚上大祥下定决心然后从丰川宅翻墙跑路就没这堆破事了。
+

@@ -4767,3 +4767,27 @@ https://youtu.be/hrk9q27qcWQ
 不是，首先还是这作大魔山下做出的设计改动是背上推进器看上去像是装多一条腿，像参考那个</blockquote>
 不矛盾啊，队友死了把机体拆了各背一条腿作加强推进器，“是mav也是三连星”
 
+
+*****
+
+####  岸浪白野  
+##### 9250#       发表于 2025-3-23 23:27
+
+之前有楼友觉得不是同款背包，其实还是一样
+
+<img src="https://img.saraba1st.com/forum/202503/23/232635s759moh305zghdsq.png" referrerpolicy="no-referrer">
+
+<strong>20250323232612.png</strong> (653.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 23:26 上传
+
+<img src="https://img.saraba1st.com/forum/202503/23/232723g51b5cri17hrfprw.png" referrerpolicy="no-referrer">
+
+<strong>C44~K[79KWL7E@D{@A@$W(I.png</strong> (270.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 23:27 上传
+
