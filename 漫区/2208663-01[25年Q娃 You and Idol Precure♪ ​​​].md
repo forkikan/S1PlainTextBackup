@@ -102,3 +102,20 @@ ss和水果没有上可以说声优没了
 突然想到那个看上的好汉不愿意上山就干些破事逼他上山的故事，虽然是很不一样啦 ...</blockquote>
 还是更接近“我仰慕乌塔哥哥已久，只可惜下不了交投名状的狠心”那种吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫雨こころ  
+##### 746#       发表于 2025-3-23 08:22
+
+[https://x.com/sugimoto_mi_ho_/status/1903599857467863274](https://twitter.com/sugimoto_mi_ho_/status/1903599857467863274) <blockquote>杉本海帆：
+
+キミとアイドルプリキュア♪
+
+7話
+
+キュアキュンキュンデビュー回👏👏👏
+
+こころちゃん、頑張った…!!!!!✨😭😭😭✨</blockquote>
+<img src="https://files.catbox.moe/ds03ol.jpg" referrerpolicy="no-referrer">
+
