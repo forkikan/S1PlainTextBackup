@@ -3777,7 +3777,7 @@
     "lastedit": 1742643960,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1478318": {
     "totalreply": 1412,
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 155680,
+    "totalreply": 155682,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1742729065,
+    "lastedit": 1742729889,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -9212,7 +9212,7 @@
     "newtitle": "[波音送上去俩航天员，蹭吃蹭喝快俩月了]",
     "lastedit": 1742470467,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2163563": {
@@ -9558,10 +9558,10 @@
     "update": false
   },
   "2196156": {
-    "totalreply": 562,
+    "totalreply": 563,
     "title": "[《魔法门之英雄无敌：上古纪元》steam商店页面公开，预计2025年第二季度发售]",
     "newtitle": "[《魔法门之英雄无敌：上古纪元》steam商店页面公开，预计2025年第二季度发售]",
-    "lastedit": 1742724024,
+    "lastedit": 1742729654,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -10503,10 +10503,10 @@
     "update": false
   },
   "2208921": {
-    "totalreply": 39706,
+    "totalreply": 39708,
     "title": "[Bang Dream! Ave Mujica「颂乐人偶」2025年1月]",
     "newtitle": "[BanG Dream! Ave Mujica「颂乐人偶」2025年1月]",
-    "lastedit": 1742729065,
+    "lastedit": 1742729428,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10557,10 +10557,10 @@
     "update": false
   },
   "2209276": {
-    "totalreply": 9203,
+    "totalreply": 9205,
     "title": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
     "newtitle": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
-    "lastedit": 1742728214,
+    "lastedit": 1742729655,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10611,10 +10611,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 109646,
+    "totalreply": 109651,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1742728816,
+    "lastedit": 1742729656,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10638,10 +10638,10 @@
     "update": false
   },
   "2210855": {
-    "totalreply": 9383,
+    "totalreply": 9384,
     "title": "[中二电波台真爱楼 2.0]",
     "newtitle": "[中二电波台真爱楼 2.0]",
-    "lastedit": 1742729065,
+    "lastedit": 1742729428,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10863,10 +10863,10 @@
     "update": false
   },
   "2204972": {
-    "totalreply": 1318,
+    "totalreply": 1320,
     "title": "[异度神剑x终极版，2025年3月20日发售！]",
     "newtitle": "[异度神剑x终极版，2025年3月20日发售！]",
-    "lastedit": 1742728821,
+    "lastedit": 1742729422,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11826,10 +11826,10 @@
     "update": false
   },
   "2163625": {
-    "totalreply": 95,
+    "totalreply": 96,
     "title": "[Cygames新作《Shadowverse： Worlds Beyond》发表，已跳票至2025年春季上线]",
     "newtitle": "[Cygames新作《Shadowverse： Worlds Beyond》发表，2025年6月17日上线]",
-    "lastedit": 1742688858,
+    "lastedit": 1742729531,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -13797,10 +13797,10 @@
     "update": false
   },
   "2249726": {
-    "totalreply": 804,
+    "totalreply": 805,
     "title": "[俄乌专楼-2025年3月版]",
     "newtitle": "[俄乌专楼-2025年3月版]",
-    "lastedit": 1742724024,
+    "lastedit": 1742729421,
     "category": "外野",
     "active": true,
     "update": false
@@ -14598,10 +14598,10 @@
     "update": false
   },
   "2249235": {
-    "totalreply": 169,
+    "totalreply": 170,
     "title": "[巫术手游Wizardry Variants Daphne，简称巫术VA，自带官中，steam版已出]",
     "newtitle": "[巫术手游Wizardry Variants Daphne，简称巫术VA，自带官中，3.18联动]",
-    "lastedit": 1742715932,
+    "lastedit": 1742729889,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -14711,7 +14711,7 @@
     "newtitle": "[分享一个新的摸鱼网站给坐办公室的你]",
     "lastedit": 1742470460,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2249941": {
@@ -16317,10 +16317,10 @@
     "update": false
   },
   "2250307": {
-    "totalreply": 50,
+    "totalreply": 52,
     "title": "[小米汽车单台平均亏损 4.5 万元，卢伟冰：还在大投入期，暂无盈利要求]",
     "newtitle": "[小米汽车单台平均亏损 4.5 万元，卢伟冰：还在大投入期，暂无盈利要求]",
-    "lastedit": 1742728584,
+    "lastedit": 1742729428,
     "category": "外野",
     "active": true,
     "update": false
@@ -17046,10 +17046,10 @@
     "update": false
   },
   "2250530": {
-    "totalreply": 162,
+    "totalreply": 163,
     "title": "[网络“大V”司马南偷税被罚超900万]",
     "newtitle": "[网络“大V”司马南偷税被罚超900万]",
-    "lastedit": 1742727153,
+    "lastedit": 1742729421,
     "category": "外野",
     "active": true,
     "update": false
@@ -17109,10 +17109,10 @@
     "update": false
   },
   "2250533": {
-    "totalreply": 87,
+    "totalreply": 88,
     "title": "[吉利桂生悦：有些车企一年多前说智驾是骗局，现在东拼西凑说自己引领中国智驾]",
     "newtitle": "[吉利桂生悦：有些车企一年多前说智驾是骗局，现在东拼西凑说自己引领中国智驾]",
-    "lastedit": 1742654777,
+    "lastedit": 1742729428,
     "category": "外野",
     "active": true,
     "update": false
@@ -17460,10 +17460,10 @@
     "update": false
   },
   "2250629": {
-    "totalreply": 125,
+    "totalreply": 126,
     "title": "[分手了怎么快速走出来]",
     "newtitle": "[分手了怎么快速走出来]",
-    "lastedit": 1742724256,
+    "lastedit": 1742729654,
     "category": "外野",
     "active": true,
     "update": false
@@ -17595,10 +17595,10 @@
     "update": false
   },
   "2250666": {
-    "totalreply": 78,
+    "totalreply": 79,
     "title": "[真成育碧最后一舞，刺客信条：影steam最高在线4w7，销量难了]",
     "newtitle": "[真成育碧最后一舞，刺客信条：影steam最高在线4w7，销量难了]",
-    "lastedit": 1742729065,
+    "lastedit": 1742729428,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17667,10 +17667,10 @@
     "update": false
   },
   "2250684": {
-    "totalreply": 70,
+    "totalreply": 71,
     "title": "[今年看过的最离奇的案子，警察枪击案罗生门]",
     "newtitle": "[今年看过的最离奇的案子，警察枪击案罗生门]",
-    "lastedit": 1742720060,
+    "lastedit": 1742729431,
     "category": "外野",
     "active": true,
     "update": false
@@ -17775,10 +17775,10 @@
     "update": false
   },
   "2250747": {
-    "totalreply": 70,
+    "totalreply": 71,
     "title": "[司马懿违背洛水之誓的影响力有那么深远吗]",
     "newtitle": "[司马懿违背洛水之誓的影响力有那么深远吗]",
-    "lastedit": 1742728580,
+    "lastedit": 1742729430,
     "category": "外野",
     "active": true,
     "update": false
@@ -17802,10 +17802,10 @@
     "update": false
   },
   "2250744": {
-    "totalreply": 51,
+    "totalreply": 52,
     "title": "[点都德作为知名粤菜馆居然没有白切鸡卖。]",
     "newtitle": "[点都德作为知名粤菜馆居然没有白切鸡卖。]",
-    "lastedit": 1742729065,
+    "lastedit": 1742729656,
     "category": "外野",
     "active": true,
     "update": false

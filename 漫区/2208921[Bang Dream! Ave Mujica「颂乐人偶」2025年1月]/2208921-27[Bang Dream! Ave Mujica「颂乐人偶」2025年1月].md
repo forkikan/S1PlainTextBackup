@@ -14589,3 +14589,32 @@ mujica这个情况最接近什么呢，就是一个galgame改在#1-#10完全用�
 
 不过考虑到大祥实际是征用了sumimi的人搞鸡团，甜甜圈女士不满是很正常的行为。
 
+
+*****
+
+####  与太郎  
+##### 39707#       发表于 2025-3-23 19:25
+
+篇幅不够删节了，请看pico/广播剧/手游剧情
+
+#12开头祥子在机场奔跑的时候，mujica已经进入魔幻现实主义状态了（虽然邦邦世界/mujica动画本就不是完全现实的），所以怎么从海关出去的（填表的时间够保镖把祥子抓回去八百回），乱入跑道为什么没被抓，搬到本土的初母及初妹干什么去了，都是不需要考虑的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+如果真要考虑，那就完全没法理顺逻辑了
+
+*****
+
+####  adretyu67.  
+##### 39708#       发表于 2025-3-23 19:27
+
+ 本帖最后由 adretyu67. 于 2025-3-23 19:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67716195&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-3-23 19:25</a>
+
+篇幅不够删节了，请看pico/广播剧/手游剧情
+
+#12开头祥子在机场奔跑的时候，mujica已经进入魔幻现实主义状态 ...</blockquote>
+按照最后翻墙进大宅的剧情，其实开头大祥只要想跑就可以从自己家翻出去。
+
+老登在大宅关大祥禁闭关了个寂寞
+
+非得拖到上飞机才开润只能说是强行对偶狗1话爱音从机场回国<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
