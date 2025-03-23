@@ -149,3 +149,11 @@ ss和水果没有上可以说声优没了
 
 普 利 伦 风 评 触 底 反 弹 不 可 避
 
+
+*****
+
+####  宅音  
+##### 750#       发表于 2025-3-23 13:59
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/006.png" referrerpolicy="no-referrer">这风评还咋转正啊，熊孩子变熊大人
+

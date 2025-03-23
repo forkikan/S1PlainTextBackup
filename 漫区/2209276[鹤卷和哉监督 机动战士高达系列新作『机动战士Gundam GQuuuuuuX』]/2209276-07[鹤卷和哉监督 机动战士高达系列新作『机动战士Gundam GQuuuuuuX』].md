@@ -2803,3 +2803,33 @@ GQuuuuuuX和红高的盾一对比，这是有了I-Field？
 
 2025-3-23 13:53 上传
 
+
+*****
+
+####  中野梓  
+##### 9089#       发表于 2025-3-23 13:58
+
+<blockquote>Toby_dak 发表于 2025-3-23 12:56
+GQuuuuuuX和红高的盾一对比，这是有了I-Field？
+
+</blockquote>
+是的，感觉红色下巴颏把嘴封上了
+
+*****
+
+####  xwr  
+##### 9090#       发表于 2025-3-23 13:59
+
+突然发现，如果企划大成功，这个UC IF可以一直拍下去，堂堂开启UC平行宇宙<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  岸浪白野  
+##### 9091#       发表于 2025-3-23 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67714597&amp;ptid=2209276" target="_blank">xwr 发表于 2025-3-23 13:59</a>
+
+突然发现，如果企划大成功，这个UC IF可以一直拍下去，堂堂开启UC平行宇宙</blockquote>
+这种事情日本人甚至连 安田郎都早吐槽过了，这世界观要想像和思考的东西太多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

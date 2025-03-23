@@ -13910,3 +13910,20 @@ BanG Dream！Ave Mujica 前12话 niconico 好评率
 两个团十人里只有大象和睦头人的社交范围完全被锁死在十人内</blockquote>
 祥子名字念法比较特殊，如果没有亲密到能喊名字，日常交流「豊川さん」就足够了
 
+
+*****
+
+####  cxj649  
+##### 39660#       发表于 2025-3-23 14:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">与其担心素睦，不如担心下喵睦怎么卖
+
+事实上手游里大概祥睦素睦大不了回档成黄瓜睦，但喵睦怎么说呢不如海喵和小猫睦呢。因为剧中都没有效互动
+
+*****
+
+####  cxj649  
+##### 39661#       发表于 2025-3-23 14:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">甚至黄瓜睦和小猫互动我都能脑补，喵睦我脑补不能
+
