@@ -2912,3 +2912,13 @@ https://youtu.be/EB3J8olZi5E?si=7o9_HL54DKoJqi1N
 笃姬可以攻略的？？？这什么曹操模拟器？？？</blockquote>
 衫文也行<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  agsva  
+##### 3686#       发表于 2025-3-23 09:59
+
+刚开始玩，敌人脱战不回血这点也不知道该说好还是坏，而且据点敌人见到尸体也没有太特别的行动，就只是警戒槽变黄，脱战之后还是会回到预设的巡逻路径。
+
+然后一开始越级打了一个据点，全程暗杀，高手一下杀不死就脱战然后回去继续杀。感觉有点滑稽。
+
