@@ -687,3 +687,14 @@ mmt见了要叫你去治眼睛</blockquote>
 
 下季绿毛玩平衡车下楼梯摔死了，意外穿越过来的莫提斯接替反派的位置
 
+
+*****
+
+####  Saber琪  
+##### 2163#       发表于 2025-3-23 12:43
+
+看了熟肉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+就这产能真能期待小动画结束后立马放出第二季情报嘛<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我觉得不太可能
+<img src="https://p.sda1.dev/22/28312a636ad71839e43d65d36cb959a2/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/b40fa18ad5ab7a68a231ece274d938dc/image.jpg" referrerpolicy="no-referrer">
+
