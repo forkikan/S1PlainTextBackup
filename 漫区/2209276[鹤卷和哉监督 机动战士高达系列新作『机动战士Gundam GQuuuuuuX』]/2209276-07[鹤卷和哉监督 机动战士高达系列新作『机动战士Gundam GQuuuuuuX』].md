@@ -4810,3 +4810,13 @@ https://youtu.be/hrk9q27qcWQ
 
 能不能奶一口魔女的MAV是塞拉，塞拉其实所罗门大爆炸跟着一起失踪了（）
 
+
+*****
+
+####  岸浪白野  
+##### 9253#       发表于 2025-3-24 01:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67717495&amp;ptid=2209276" target="_blank">中野梓 发表于 2025-3-24 00:10</a>
+剧场版奥尔迪加正好是塞拉杀的，少一个也可以圆上</blockquote>
+剧场版哪有，你记错了
+
