@@ -2697,3 +2697,34 @@ https://youtu.be/9kCq-2EfIz8</blockquote>
 
 —— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  NBGI  
+##### 9079#       发表于 2025-3-23 10:47
+
+<blockquote>阿尔巴尼亚 发表于 2025-3-22 23:58
+说个不太靠谱的想法或者说暴论，如果gqux做的还好的话，要是有00或者独角兽的成绩可能不仅仅只有part2，搞 ...</blockquote>
+next uc 100刚公布那阵子小形P还信誓旦旦的提过Gaia Gear的事，如果靠GQ让年轻人熟知夏亚，uc0200的事也不是不可以讲
+
+*****
+
+####  Steel.Haze  
+##### 9080#       发表于 2025-3-23 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67713579&amp;ptid=2209276" target="_blank">NBGI 发表于 2025-3-23 10:47</a>
+
+next uc 100刚公布那阵子小形P还信誓旦旦的提过Gaia Gear的事，如果靠GQ让年轻人熟知夏亚，uc0200的事也 ...</blockquote>
+叉开和主UC宇宙世界线，拍个异世界的Gaia Gear其实很不错。GQX甚至都可以成为基础。
+
+
+*****
+
+####  阿尔巴尼亚  
+##### 9081#       发表于 2025-3-23 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67713579&amp;ptid=2209276" target="_blank">NBGI 发表于 2025-3-23 10:47</a>
+
+next uc 100刚公布那阵子小形P还信誓旦旦的提过Gaia Gear的事，如果靠GQ让年轻人熟知夏亚，uc0200的事也 ...</blockquote>
+盖亚齿轮说不定呢，当然这一切都还得是gqux成功，要不然大概就是每年一部剧场版炒冷饭，正作全面转向新世界的悲剧了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
