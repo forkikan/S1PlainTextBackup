@@ -1941,7 +1941,7 @@
     "lastedit": 1742745960,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "1972138": {
     "totalreply": 731,
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 13252,
+    "totalreply": 13253,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》1.2 欢迎莱到黎那汐塔]",
-    "lastedit": 1742731846,
+    "lastedit": 1742756888,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 155789,
+    "totalreply": 155790,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1742756049,
+    "lastedit": 1742756649,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -10557,10 +10557,10 @@
     "update": false
   },
   "2209276": {
-    "totalreply": 9257,
+    "totalreply": 9258,
     "title": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
     "newtitle": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
-    "lastedit": 1742754730,
+    "lastedit": 1742756530,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10611,10 +10611,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 109745,
+    "totalreply": 109746,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1742755932,
+    "lastedit": 1742756530,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11354,7 +11354,7 @@
     "newtitle": "[DE Fanastasis这游戏实在太牛逼了，吐血推荐]",
     "lastedit": 1742496967,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2246093": {
