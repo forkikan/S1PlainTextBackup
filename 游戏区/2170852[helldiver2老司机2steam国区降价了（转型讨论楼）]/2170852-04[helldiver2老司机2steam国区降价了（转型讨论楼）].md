@@ -695,3 +695,11 @@ MG-206重机枪
 看了看steam最近的高赞差评也是这个意思，
 老外最恨的就是搞游戏zz化了。原本大家玩fxs过家家喊口号挺欢乐的，没想到你箭头真当自己是《浪潮》里的老师了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  九十九忍  
+##### 5898#       发表于 2025-3-23 19:15
+
+机器人又改回来了是吧，火箭兵一多各种飞人
+

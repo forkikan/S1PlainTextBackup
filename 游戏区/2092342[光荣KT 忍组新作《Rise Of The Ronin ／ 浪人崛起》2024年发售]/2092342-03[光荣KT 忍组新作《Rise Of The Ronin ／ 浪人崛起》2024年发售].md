@@ -2944,3 +2944,11 @@ https://youtu.be/EB3J8olZi5E?si=7o9_HL54DKoJqi1N
 好玩就行了，安心当个卑鄙浪人，脱战不回血我觉得反而是好事，倒是玩的时候跟群友吐槽的这游戏潜行部分的 ...</blockquote>
 是有种差一口气的感觉，那个潜行主要还是配合进攻用的，感觉压根没想扩展相关玩法。
 
+
+*****
+
+####  虚无连斩  
+##### 3689#       发表于 2025-3-23 19:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">到京都了，感觉难度涨了好多是错觉吗。池田屋和禁门之变打得就比较吃力了，现在打据点感觉杂兵都强了不少啊。
+
