@@ -1602,10 +1602,10 @@
     "update": false
   },
   "2029623": {
-    "totalreply": 10921,
+    "totalreply": 10922,
     "title": "[游戏王MASTER DUEL，1.19已上架]",
     "newtitle": "[游戏王MASTER DUEL，1.19已上架]",
-    "lastedit": 1742738774,
+    "lastedit": 1742767460,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -10812,10 +10812,10 @@
     "totalreply": 422,
     "title": "[原创TV动画『全修。』MAPPA制作]",
     "newtitle": "[原创TV动画『全修。』MAPPA制作]",
-    "lastedit": 1742762408,
+    "lastedit": 1742767560,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2178433": {
     "totalreply": 193,
@@ -17915,6 +17915,15 @@
     "newtitle": "[【轮到我了】婚后你们家里的财政是怎么管呢？]",
     "lastedit": 1742764691,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2250726": {
+    "totalreply": 41,
+    "title": "[Xenoblade系列推荐什么姿势入坑？]",
+    "newtitle": "[Xenoblade系列推荐什么姿势入坑？]",
+    "lastedit": 1742767284,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
