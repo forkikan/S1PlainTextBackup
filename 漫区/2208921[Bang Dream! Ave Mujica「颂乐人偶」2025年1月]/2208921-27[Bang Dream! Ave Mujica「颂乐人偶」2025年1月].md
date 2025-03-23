@@ -14244,3 +14244,19 @@ BanG Dream！Ave Mujica 前12话 niconico 好评率
 
 但偏偏莫只有在高压的mujica里才能满频运行。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  南宮凝香  
+##### 39683#       发表于 2025-3-23 17:55
+
+<blockquote>adretyu67. 发表于 2025-3-23 17:25
+不是鸡团所有人最终底层机制都是难以幸福吗</blockquote>
+是不選擇幸福 而不是難以幸福
+
+由於制作組立不起敵人
+
+導致初祥睦實際上都是只要走出去就能幸福
+
+但同時大手也腦控讓她們固步自封
+
