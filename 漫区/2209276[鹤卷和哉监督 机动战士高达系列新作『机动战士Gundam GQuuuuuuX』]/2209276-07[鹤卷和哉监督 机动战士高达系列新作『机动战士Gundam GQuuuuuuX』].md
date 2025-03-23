@@ -3324,3 +3324,46 @@ ED居然不是midnight reflection
 
 2025-3-23 16:07 上传
 
+
+*****
+
+####  RE㐅ia  
+##### 9130#       发表于 2025-3-23 16:09
+
+<blockquote>AvenueIII 发表于 2025-3-23 16:00
+牢修怎么回事</blockquote>
+sexy担当说是（
+
+
+*****
+
+####  纪寞  
+##### 9131#       发表于 2025-3-23 16:15
+
+既然星街那首确定ed了，那阿尔法、奥米加和kirakira结局在gqx世界线消失应该是预定了
+
+*****
+
+####  xwr  
+##### 9132#       发表于 2025-3-23 16:15
+
+12话是预料之中吧。不过看预告可能早期就下地球了？
+
+*****
+
+####  RE㐅ia  
+##### 9133#       发表于 2025-3-23 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67715170&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-3-23 16:07</a>
+
+魔女的专属纹章</blockquote>
+出自《死亡也并非所向披靡》
+
+<img src="https://img.saraba1st.com/forum/202503/23/161552wmhorehkircshccm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (179.3 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 16:15 上传
+
