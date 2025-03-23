@@ -13756,3 +13756,37 @@ BanG Dream！Ave Mujica 前12话 niconico 好评率
 
 之前忘记在哪看过一个说法，人物真正的锚点是喜欢的饮料，看后面睦头喜欢喝的饮料是不是一样的就知道了，12集祥子成神那里有个镜头，睦头的饮料好像还是一样的
 
+
+*****
+
+####  rizutoaoitori  
+##### 39648#       发表于 2025-3-23 11:54
+
+素莫算是素睦吗
+
+多重人格的CP是不是都得单列一下
+
+*****
+
+####  adretyu67.  
+##### 39649#       发表于 2025-3-23 11:58
+
+ 本帖最后由 adretyu67. 于 2025-3-23 11:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67713894&amp;ptid=2208921" target="_blank">zhzij111 发表于 2025-3-23 11:50</a>
+
+现在还磕素睦的是真牛逼，正主都死了也能磕，是磕cp也有沉没成本吗
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+遗憾文学吧。
+
+现在的她很好，但是我偶尔还会怀念起不会再回来的那个她。
+
+虽然这么想但是真搞这么一段就得接受暖色版“都是木子美的错了”
+
+*****
+
+####  qjw114514  
+##### 39650#       发表于 2025-3-23 11:59
+
+调理好了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
