@@ -3707,3 +3707,70 @@ pv里还有张玛秋在驾驶舱里消沉脸的画面，会不会真是突然开
 就是插入难搞才决定独立出来搞电影一次过........</blockquote>
 我的表达有问题，我是指这些画面是不是剧场版真独占还没有明确说吧
 
+
+*****
+
+####  纪寞  
+##### 9163#       发表于 2025-3-23 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67715355&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-3-23 16:39</a>
+
+牢修消失麻球自闭开不动gqx开始逃避，然后喵安打伞找到她？大概这样的展开。</blockquote>
+现在再多看几次pv，大魔队来袭时修司不在好像确实可能，那到底和魔女打时发生了什么，真的发生了泽克诺瓦转移？
+
+那玛秋又为什么突然开不了奥米加了？和大魔队打时都开gqx打了，上高达了那应该是下定决心了吧，但还是没开，难道开不了奥米加是别的什么原因？
+
+*****
+
+####  刺客ares  
+##### 9164#       发表于 2025-3-23 16:59
+
+世界系机战番天降神秘女主负责卖肉，参考丽和cc，现在性转一下卖肉役可不就是牢修吗。另外鸭叔叔自己洗澡的时候开门缝和卡尔玛讲话，指望他给牢修补男德是难了。
+
+另外喵安能坐在红高上，那正篇她和牢修关系不错吧，能允许她这么坐？
+
+*****
+
+####  az一串字母  
+##### 9165#       发表于 2025-3-23 17:02
+
+<blockquote>刺客ares 发表于 2025-3-23 16:59
+世界系机战番天降神秘女主负责卖肉，参考丽和cc，现在性转一下卖肉役可不就是牢修吗。另外鸭叔叔自己洗澡的 ...</blockquote>
+这个场景感觉牢修看的应该是麻球，对jk的危害不可估量
+
+*****
+
+####  岸浪白野  
+##### 9166#       发表于 2025-3-23 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67715455&amp;ptid=2209276" target="_blank">PascalLefèvre 发表于 2025-3-23 16:53</a>
+
+我的表达有问题，我是指这些画面是不是剧场版真独占还没有明确说吧</blockquote>
+其内容仅限剧场先行版才能体验。
+
+虽然想说是正片会不会回忆要用0079一点画面，但是正片插大段0079内容回忆来占正片内容是不可能的
+
+
+*****
+
+####  纪寞  
+##### 9167#       发表于 2025-3-23 17:07
+
+<img src="https://img.saraba1st.com/forum/202503/23/170723pm8i7m6dk4a464d4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (537.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 17:07 上传
+
+<img src="https://img.saraba1st.com/forum/202503/23/170625df5hzbzk5uuuzu2u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (626.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 17:06 上传
+
+玛秋说出这句话后下集或这集结尾就让她开不了奥米加了吧，回旋镖<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
