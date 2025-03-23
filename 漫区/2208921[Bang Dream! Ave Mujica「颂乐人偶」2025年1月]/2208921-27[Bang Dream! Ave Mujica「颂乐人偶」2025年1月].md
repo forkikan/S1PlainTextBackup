@@ -15416,3 +15416,62 @@ HHW真正认不出熊的应该只有育美一个人。
 #12开头祥子在机场奔跑的时候，mujica已经进入魔幻现实主义状态 ...</blockquote>
 这回该独角兽背锅了，机场那段本来可以不写的，直接写前一天晚上大祥下定决心然后从丰川宅翻墙跑路就没这堆破事了。
 
+
+*****
+
+####  6030sylar  
+##### 39766#       发表于 2025-3-23 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67717320&amp;ptid=2208921" target="_blank">qratosones1337 发表于 2025-3-23 23:31</a>
+
+这回该独角兽背锅了，机场那段本来可以不写的，直接写前一天晚上大祥下定决心然后从丰川宅翻墙跑路就没这 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">答案是狗拍完op这场地得再多场戏摊平成本
+
+其实机场这里最适合hhw出场把祥子扔过去岛上最好了
+
+*****
+
+####  qratosones1337  
+##### 39767#       发表于 2025-3-23 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67716256&amp;ptid=2208921" target="_blank">yy19 发表于 2025-3-23 19:38</a>
+
+附议。
+
+至少2季25话动画看下来，我还是不知道，为啥祥子哪怕要动用家族继承人理论上的权力，哪怕要成为神 ...</blockquote>
+之前的大祥本质上就是扮演悲剧女主角的中二少女罢了，鸡1.0就是闹麻了的大小姐过家家。而第十集之后大祥终于认识到另外四个人并不是NPC，她之前的过家家行为真的把四个人的人生给卷了进来，现在这四个神人队友哭着喊着要继续组乐队——所以现在她从中二毕业了，组建鸡2.0的目的是为了对另外四个人负责任。
+
+大祥演了两季的堂吉诃德，结果发现演着演着自己竟然真当上骑士了（或者说自己本来就是骑士），那接下来为了养老婆和手下，就只能动用一切手段来认真搞事业了。
+
+*****
+
+####  与太郎  
+##### 39768#       发表于 2025-3-23 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67717278&amp;ptid=2208921" target="_blank">结衣小比取 发表于 2025-3-23 23:24</a>
+
+本话大致有三处内容指出初华和定治可能有联系
+
+1、初华和祥子在度假别墅重逢后切到丰川大宅，6.3秒又切回度 ...</blockquote>
+初祥相见这里有个细节挺有意思，就是这个玫瑰走廊
+
+玫瑰走廊和上面的玫瑰使用一种近乎于默认渲染设置的风格，生硬的光影和背景的手绘（风）形成鲜明对比，比较像是有意识地将其作为困住初音的丰川大手的象征
+
+当然制作组懒得调风格化渲染的可能性也不是0<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qratosones1337  
+##### 39769#       发表于 2025-3-23 23:40
+
+ 本帖最后由 qratosones1337 于 2025-3-23 23:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67716313&amp;ptid=2208921" target="_blank">久井路路 发表于 2025-3-23 19:51</a>
+
+依照动画给出的解释的话
+
+首先祥子原本就有着掌控他人、背负他人的人生来满足自己，这么个癖好，所以想通 ...</blockquote>
+海铃的话目前可以看出来的一个是因为自己漠视队友的行为被立希喷了，需要在老婆面前找回场子；另一个是她掌控欲特别强，只有鸡团才能给她一个九千岁的位置让她充分放飞自我。
+
+当然那个莫名其妙的“信任”确实是太难绷了。
+
