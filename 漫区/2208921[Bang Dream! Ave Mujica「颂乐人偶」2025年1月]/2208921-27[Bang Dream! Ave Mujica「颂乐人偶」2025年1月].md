@@ -14158,3 +14158,44 @@ BanG Dream！Ave Mujica 前12话 niconico 好评率
 
 只能说大部分时间拿去水双重人格的要素是一个最后很难回来的点，属于浪费时间了。
 
+
+*****
+
+####  aptx8285144  
+##### 39675#       发表于 2025-3-23 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67714328&amp;ptid=2208921" target="_blank">厉飞雨 发表于 2025-3-23 13:08</a>
+
+幼年丧父，中年失夫，晚年丧女，好惨一16岁</blockquote>
+素世的爸爸：我还活着，麻烦换成失父<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sauron.j  
+##### 39676#       发表于 2025-3-23 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67715010&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-23 15:34</a>
+
+独角兽对睦哪有怜悯
+
+《BanG Dream!》系列里有不觉得玩乐队开心的孩子存在吗！？我想着要让大家震惊一下( ...</blockquote>
+懂了，写大女主不免会得罪很多人，睦头这个人物的意义就是大祥的反应装甲
+
+*****
+
+####  aptx8285144  
+##### 39677#       发表于 2025-3-23 16:56
+
+这群神人主创，大手反正没有具体的角色，需要时暗中搞事，不需要就可以当空气，而老登本质不是坏人，中登也只是能力不行，给鸡团提供场所的睦妈自然也不是坏人，过来背锅的社长下周肯定也要俯首称臣，你就说这是不是寿司吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  久井路路  
+##### 39678#       发表于 2025-3-23 16:56
+
+鸡狗里可能只有两个人把莫当成莫并且喜欢莫，就是素世和野猫，素世拿起鞋子和莫讲电话的时候，野猫说猫们很喜欢莫的时候，只有这种时候莫的存在不仅得到了认同还得到了喜爱。
+
+和Go的人在一起对莫也是幸福，但是她存在的基盘是要把睦放在需要她保护的环境下，不然她就会死，所以她推动鸡团复活也是在主动远离自己的幸福，去一个自己不会被接受的地方
+
+在从一开始就被设计成难以幸福的样子这个意义上，睦莫确实是一体的（
+

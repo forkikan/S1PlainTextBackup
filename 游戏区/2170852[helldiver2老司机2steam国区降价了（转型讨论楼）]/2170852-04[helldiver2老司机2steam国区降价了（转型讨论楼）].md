@@ -663,3 +663,13 @@ MG-206重机枪
 
 杀虫子的计数是不是突然暴涨了一大截<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jy000129  
+##### 5895#       发表于 2025-3-23 16:47
+
+怎么法西斯了，美国除了没有统治地球外大部分政策都和超级气球一样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

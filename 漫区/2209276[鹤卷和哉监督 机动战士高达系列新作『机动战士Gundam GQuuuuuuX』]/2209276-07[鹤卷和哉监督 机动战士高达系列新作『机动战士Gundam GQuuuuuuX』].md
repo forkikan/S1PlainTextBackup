@@ -3640,3 +3640,70 @@ pv里还有张玛秋在驾驶舱里消沉脸的画面，会不会真是突然开
 男德在哪里bro？鸭子真的一点没教吗？</blockquote>
 鸭子以前洗澡都不关门，自己都没有男德
 
+
+*****
+
+####  winda  
+##### 9156#       发表于 2025-3-23 16:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">魔女这人设，豆豆眼加上腮红，谁家小孩啊
+
+然后你告诉我这是追着红高达杀的疯子，还贴个这么狠辣的纹章，反差也太足了
+
+*****
+
+####  CSWQ  
+##### 9157#       发表于 2025-3-23 16:49
+
+越来越感觉正片会是青春异色版ZZ的调子了...
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  岸浪白野  
+##### 9158#       发表于 2025-3-23 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67715408&amp;ptid=2209276" target="_blank">xwr 发表于 2025-3-23 16:47</a>
+
+所以说40分钟的0079 IF怎么办，真就剧场特供？</blockquote>
+说了是电影限定就是限定有什么想的，就暂时限定一段时间后面又是上流媒体和卖BD
+
+*****
+
+####  PascalLefèvre  
+##### 9159#       发表于 2025-3-23 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67715408&amp;ptid=2209276" target="_blank">xwr 发表于 2025-3-23 16:47</a>
+
+所以说40分钟的0079 IF怎么办，真就剧场特供？</blockquote>
+现在看来是的，不过不确定会不会闪回的方式插在里面
+
+*****
+
+####  砂雪  
+##### 9160#       发表于 2025-3-23 16:52
+
+太擦了牢修…
+
+
+*****
+
+####  岸浪白野  
+##### 9161#       发表于 2025-3-23 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67715435&amp;ptid=2209276" target="_blank">PascalLefèvre 发表于 2025-3-23 16:50</a>
+
+现在看来是的，不过不确定会不会闪回的方式插在里面</blockquote>
+就是插入难搞才决定独立出来搞电影一次过........
+
+*****
+
+####  PascalLefèvre  
+##### 9162#       发表于 2025-3-23 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67715445&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-3-23 16:52</a>
+
+就是插入难搞才决定独立出来搞电影一次过........</blockquote>
+我的表达有问题，我是指这些画面是不是剧场版真独占还没有明确说吧
+
