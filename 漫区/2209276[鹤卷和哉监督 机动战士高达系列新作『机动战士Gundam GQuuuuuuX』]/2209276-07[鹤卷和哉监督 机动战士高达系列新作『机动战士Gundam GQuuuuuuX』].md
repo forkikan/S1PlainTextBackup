@@ -4820,3 +4820,47 @@ https://youtu.be/hrk9q27qcWQ
 剧场版奥尔迪加正好是塞拉杀的，少一个也可以圆上</blockquote>
 剧场版哪有，你记错了
 
+
+*****
+
+####  岸浪白野  
+##### 9254#       发表于 2025-3-24 01:28
+
+ 本帖最后由 岸浪白野 于 2025-3-24 01:29 编辑 
+
+[X 上的 いももち：“ジークアクス鑑賞会 #GQuuuuuuX #ジークアクス](https://x.com/imomochi_gndm/status/1903331524713296121)[https://t.co/057gHCp2VC](https://t.co/057gHCp2VC)” / X
+
+<img src="https://img.saraba1st.com/forum/202503/24/012225gn5w8ug1n4dyy5zw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.48 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-24 01:22 上传
+
+[柿 (@kaki_hachinen) / X](https://x.com/kaki_hachinen)
+
+<img src="https://img.saraba1st.com/forum/202503/24/012308qgrlwzwx3edwr33x.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.06 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-24 01:23 上传
+
+<img src="https://img.saraba1st.com/forum/202503/24/012721ofqfarcf4j4c5rf7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.65 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-24 01:27 上传
+
+<img src="https://img.saraba1st.com/forum/202503/24/012812pny5ynz63w1l07z5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.12 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-24 01:28 上传
+
