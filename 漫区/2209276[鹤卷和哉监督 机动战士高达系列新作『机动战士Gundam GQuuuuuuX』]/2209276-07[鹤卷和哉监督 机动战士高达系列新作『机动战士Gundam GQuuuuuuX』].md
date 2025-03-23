@@ -4285,3 +4285,32 @@ anki可以实锤是退役老兵了吧，倒是牢修，制作组里一定有牢�
 
 律师不会是看到了很多致敬桥段吧
 
+
+*****
+
+####  PascalLefèvre  
+##### 9212#       发表于 2025-3-23 20:25
+
+难道其实是无厘头动画
+
+
+*****
+
+####  zzf111  
+##### 9213#       发表于 2025-3-23 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67716452&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-3-23 20:19</a>
+
+这个假药前2个月一出来就说了
+
+现在已经是直接安琪：只有我和鹤卷监督知道一些未在本篇中提及的过去。</blockquote>
+搜了下这个论点都是本楼刺客楼友最早提出来且只能搜到的，之前看到都没在意，强啊，高达吧几个译名都搜不到一点相关讨论
+
+<img src="https://img.saraba1st.com/forum/202503/23/202655yf661sqozo90ss1z.png" referrerpolicy="no-referrer">
+
+<strong>2D5TVKQ]0RM(C~`}KLFH7QD.png</strong> (100.17 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 20:26 上传
+
