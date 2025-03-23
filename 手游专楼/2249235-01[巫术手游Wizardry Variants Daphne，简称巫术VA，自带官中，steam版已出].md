@@ -2077,3 +2077,11 @@ staff太屑了，就为了那一小段剧情这破玩意要打三次，三回啊
 
 武器带个力量适应+是什么意思？说明只说能发挥力量
 
+
+*****
+
+####  Dreki  
+##### 175#       发表于 2025-3-24 03:17
+
+刷了一晚上活动，结果看巴哈说开箱子给的点数也和等级相关<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
