@@ -14618,3 +14618,80 @@ mujica这个情况最接近什么呢，就是一个galgame改在#1-#10完全用�
 
 非得拖到上飞机才开润只能说是强行对偶狗1话爱音从机场回国<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  airline114514  
+##### 39709#       发表于 2025-3-23 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67716195&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-3-23 19:25</a>
+
+篇幅不够删节了，请看pico/广播剧/手游剧情
+
+#12开头祥子在机场奔跑的时候，mujica已经进入魔幻现实主义状态 ...</blockquote>
+海关问题应该不大吧，现在都扫脸出关了，何况还是财阀女儿，VIP席。
+
+离谱的是从羽田怎么到小豆岛的，太离谱了
+
+*****
+
+####  adretyu67.  
+##### 39710#       发表于 2025-3-23 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67716225&amp;ptid=2208921" target="_blank">airline114514 发表于 2025-3-23 19:33</a>
+
+海关问题应该不大吧，现在都扫脸出关了，何况还是财阀女儿，VIP席。
+
+离谱的是从羽田怎么到小豆岛的，太离 ...</blockquote>
+上岛是坐船坐的高松号来着。怎么到码头就不知道了。
+
+不过都不重要。重要的是大祥老师24小时完成了来回过程
+
+*****
+
+####  yy19  
+##### 39711#       发表于 2025-3-23 19:38
+
+<blockquote>南宮凝香 发表于 2025-3-23 17:55
+是不選擇幸福 而不是難以幸福
+
+由於制作組立不起敵人
+</blockquote>
+附议。
+
+至少2季25话动画看下来，我还是不知道，为啥祥子哪怕要动用家族继承人理论上的权力，哪怕要成为神明，都要组乐队，都要组这个颂乐乐队呢？动画一大失格就是没有说明白母鸡卡乐队对其成员，尤其祥子，究竟意味着什么呢？
+
+
+*****
+
+####  adretyu67.  
+##### 39712#       发表于 2025-3-23 19:42
+
+ 本帖最后由 adretyu67. 于 2025-3-23 19:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67716256&amp;ptid=2208921" target="_blank">yy19 发表于 2025-3-23 19:38</a>
+
+附议。
+
+至少2季25话动画看下来，我还是不知道，为啥祥子哪怕要动用家族继承人理论上的权力，哪怕要成为神 ...</blockquote>
+其实你按照12话的思路是能理解为啥大祥想搞鸡团的。
+
+鸡10话大祥是被架在火上烤重组鸡团。
+
+到了鸡12话，对大祥而言，鸡是自我实现的道具。
+
+鸡就是她逃避/对抗现实/命运的梦境。
+
+只不过在“你敢违逆拥有丰川的我”以后，我已经搞不懂什么是梦境什么是现实了。
+
+*****
+
+####  与太郎  
+##### 39713#       发表于 2025-3-23 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67716225&amp;ptid=2208921" target="_blank">airline114514 发表于 2025-3-23 19:33</a>
+
+海关问题应该不大吧，现在都扫脸出关了，何况还是财阀女儿，VIP席。
+
+离谱的是从羽田怎么到小豆岛的，太离 ...</blockquote>
+从海关出去指的是离境手续之后中止离境，再怎么VIP，至少得在护照上盖个「出国中止」的章（话说护照在祥子身上吗？）
+
