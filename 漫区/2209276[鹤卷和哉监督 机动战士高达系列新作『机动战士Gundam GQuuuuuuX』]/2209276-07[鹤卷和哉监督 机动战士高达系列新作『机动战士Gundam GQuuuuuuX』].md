@@ -2762,3 +2762,12 @@ next uc 100刚公布那阵子小形P还信誓旦旦的提过Gaia Gear的事，�
 日本动画（人）展览会作品『安彦良和・板野一郎原摄集』（2014年公开作品）
 [https://youtu.be/9kCq-2EfIz8](https://youtu.be/9kCq-2EfIz8)
 
+
+*****
+
+####  Piano-Forest  
+##### 9086#         楼主| 发表于 2025-3-23 12:22
+
+<img src="https://p.sda1.dev/22/b5d9d8efd631f2c4852d8287a1af3cd4/20250323_122010.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/e6928578352b1d105dcf5e52e6f39455/20250323_122028.jpg" referrerpolicy="no-referrer">
+
