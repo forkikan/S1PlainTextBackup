@@ -4377,3 +4377,47 @@ anki可以实锤是退役老兵了吧，倒是牢修，制作组里一定有牢�
 
 还真只有12集的吗
 
+
+*****
+
+####  kuriri  
+##### 9220#       发表于 2025-3-23 20:53
+
+为什么你们都在说黑色三连星，我看pv里的大魔是两台组的
+
+
+*****
+
+####  岸浪白野  
+##### 9221#       发表于 2025-3-23 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67716293&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-3-23 19:48</a>
+
+舞台访谈
+
+・松澤氏の司会挨拶でTVシリーズは「全12話」とアナウンス
+
+・黒沢 行き詰ったときは鶴巻監督の趣 ...</blockquote>
+
+今天舞台访谈的2个媒体视频
+
+<img src="https://img.saraba1st.com/forum/202503/23/210054k3jrgo301m9txlj7.png" referrerpolicy="no-referrer">
+
+<strong>_Z9{H5U@7J(4890P~%5L6NF.png</strong> (221.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 21:00 上传
+
+[https://youtu.be/hrk9q27qcWQ](https://youtu.be/hrk9q27qcWQ)
+
+<img src="https://img.saraba1st.com/forum/202503/23/210047m16hzyjrrtt4y15z.png" referrerpolicy="no-referrer">
+
+<strong>38DZAT(XAY7{U]$K]~S)W56.png</strong> (190.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 21:00 上传
+
+[https://youtu.be/RXOXPKDi_Rk](https://youtu.be/RXOXPKDi_Rk)
+
