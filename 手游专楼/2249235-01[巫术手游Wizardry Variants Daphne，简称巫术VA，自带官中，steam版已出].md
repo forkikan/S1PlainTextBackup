@@ -2085,3 +2085,15 @@ staff太屑了，就为了那一小段剧情这破玩意要打三次，三回啊
 
 刷了一晚上活动，结果看巴哈说开箱子给的点数也和等级相关<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  霜浪  
+##### 176#       发表于 2025-3-24 05:26
+
+ 本帖最后由 霜浪 于 2025-3-24 05:29 编辑 
+
+继承码又继承错误了，现在在等客服救我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+翻了下前面原来是我直接删游戏没点继承给我删档了，日厂这经典继承码真智障，先买个初始玩玩，还好进度不远
+
