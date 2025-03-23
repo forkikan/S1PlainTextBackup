@@ -3499,3 +3499,144 @@ sexy担当说是（
 
 换人开了还是玛秋突然开不了奥米加了？
 
+
+*****
+
+####  纪寞  
+##### 9144#       发表于 2025-3-23 16:38
+
+<img src="https://img.saraba1st.com/forum/202503/23/163811ml7unu4wugxmwxbl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (953.53 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 16:38 上传
+
+pv里还有张玛秋在驾驶舱里消沉脸的画面，会不会真是突然开不了奥米加了
+
+*****
+
+####  RE㐅ia  
+##### 9145#       发表于 2025-3-23 16:39
+
+<blockquote>纪寞 发表于 2025-3-23 16:35
+有张更清楚的，确认了在宇宙和大魔队打时奥米加是没有开启的，这是怎么回事？
+
+换人开了还是玛秋突然开不了 ...</blockquote>
+牢修消失麻球自闭开不动gqx开始逃避，然后喵安打伞找到她？大概这样的展开。
+
+<img src="https://img.saraba1st.com/forum/202503/23/163857l9bsq8sknmmkmccc.png" referrerpolicy="no-referrer">
+
+<strong>56130610-6F92-4871-AB32-8A5621E40A25.png</strong> (388 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 16:38 上传
+
+<img src="https://img.saraba1st.com/forum/202503/23/163903umx8p0fb275mc0mm.png" referrerpolicy="no-referrer">
+
+<strong>F1F600E7-C84E-4327-8D36-800E932C03FA.png</strong> (238.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 16:39 上传
+
+<img src="https://img.saraba1st.com/forum/202503/23/163911yshuhn5vjm75bb9h.png" referrerpolicy="no-referrer">
+
+<strong>8E3C58E1-A104-431C-8FD6-660CE936E38A.png</strong> (240.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 16:39 上传
+
+*****
+
+####  xwr  
+##### 9146#       发表于 2025-3-23 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67715244&amp;ptid=2209276" target="_blank">纪寞 发表于 2025-3-23 16:22</a>
+
+但是目前来看，大魔队来袭估计是第4集，找夏利尔、其他船员走心路历程和修司交代下地球的真正原因估计都 ...</blockquote>
+没关系，到时候可以结束在众人在地球度假，吉翁内战爆发，地球联邦反攻月球2号，第二季上演地球脱出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+
+*****
+
+####  Toby_dak  
+##### 9147#       发表于 2025-3-23 16:43
+
+能不能别用S1的图床啊。S1那小霸王服务器，浏览器半天打不开。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  a85982313  
+##### 9148#       发表于 2025-3-23 16:45
+
+就和巴上帝一样吧，需要点刺激觉悟什么的才能开ntd
+
+*****
+
+####  巴尔干炮  
+##### 9149#       发表于 2025-3-23 16:46
+
+只有12话没啥看头。
+
+*****
+
+####  YU_JI  
+##### 9150#       发表于 2025-3-23 16:46
+
+<blockquote>xwr 发表于 2025-3-23 16:30
+</blockquote>
+男德在哪里bro？鸭子真的一点没教吗？
+
+*****
+
+####  虛無迴廊  
+##### 9151#       发表于 2025-3-23 16:47
+
+可能就是鸭子教的，用来迷惑女人的装扮
+
+*****
+
+####  AvenueIII  
+##### 9152#       发表于 2025-3-23 16:47
+
+<blockquote>岸浪白野 发表于 2025-3-23 16:23
+死亡也并非是所向披靡，西沉的月亮融为一体；骨头被剔净，而干净的骨头又消失，他们的臂肘和脚底一定会有星 ...</blockquote>
+喔这诗，感觉正片会是个“爱无限”调调的故事
+
+*****
+
+####  xwr  
+##### 9153#       发表于 2025-3-23 16:47
+
+所以说40分钟的0079 IF怎么办，真就剧场特供？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  纪寞  
+##### 9154#       发表于 2025-3-23 16:47
+
+<img src="https://img.saraba1st.com/forum/202503/23/164647viucknknczfsgupu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.6 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 16:46 上传
+
+这里开启奥米加的背景是宇宙，确认了确实是玛秋突然开不了奥米加，但和大魔队打时发生了什么又能开了。
+
+*****
+
+####  az一串字母  
+##### 9155#       发表于 2025-3-23 16:47
+
+<blockquote>YU_JI 发表于 2025-3-23 16:46
+男德在哪里bro？鸭子真的一点没教吗？</blockquote>
+鸭子以前洗澡都不关门，自己都没有男德
+
