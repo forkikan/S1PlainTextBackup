@@ -2771,3 +2771,21 @@ next uc 100刚公布那阵子小形P还信誓旦旦的提过Gaia Gear的事，�
 <img src="https://p.sda1.dev/22/b5d9d8efd631f2c4852d8287a1af3cd4/20250323_122010.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/22/e6928578352b1d105dcf5e52e6f39455/20250323_122028.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Toby_dak  
+##### 9087#       发表于 2025-3-23 12:56
+
+<img src="https://p.sda1.dev/22/681e6682221812c890129abeae3ba923/1000099311.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/100533e7f30aa4cefddf8b7589077fe7/1000099312.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/675fa5e0725881d273d7e9e8331a48a8/1000099313.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/ab9332a5f00110fc6a22ecb087073b77/1000099314.jpg" referrerpolicy="no-referrer">
+GQuuuuuuX和红高的盾一对比，这是有了I-Field？
+
+<img src="https://p.sda1.dev/22/5a9940941e41b76127e4c808a814d38c/1000099315.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/50e03a016a4ece010e216d57ae9abfa3/1000099317.jpg" referrerpolicy="no-referrer">
+台词里说的有牙齿是指这些？
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
