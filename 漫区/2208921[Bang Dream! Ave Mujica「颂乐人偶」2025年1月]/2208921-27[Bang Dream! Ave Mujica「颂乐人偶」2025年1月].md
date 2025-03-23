@@ -13308,3 +13308,31 @@ BanG Dream！Ave Mujica 前12话 niconico 好评率
 
 13话live应该能回升点
 
+
+*****
+
+####  Victorino  
+##### 39615#       发表于 2025-3-23 09:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67711744&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-22 22:12</a>
+
+但是那个镜头比后面三把椅子的镜头还久，所以误导很严重。
+
+三把椅子说明了素世是独子。</blockquote>
+这个一般人都不会误会吧，你会在你自己画的画下方弄一个标准的圆角矩形框写自己的班级姓名吗？这不一眼就能看出来是批量印的本子吗
+
+
+*****
+
+####  Victorino  
+##### 39616#       发表于 2025-3-23 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67712201&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-22 23:30</a>
+
+你一个学生能承担别人的人生吗
+
+做不到的事就不要轻易说出口</blockquote>
+狗当时播出的时候就一直有人说「kkr来了把你们所有人的人生都承担了」
+
+现在丰川家也可以算是0.5个kkr吧，还是有说服力的
+
