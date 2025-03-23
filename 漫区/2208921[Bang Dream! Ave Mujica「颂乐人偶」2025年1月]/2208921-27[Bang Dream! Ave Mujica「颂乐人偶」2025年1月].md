@@ -13578,3 +13578,22 @@ BanG Dream！Ave Mujica 前12话 niconico 好评率
 我覺得可以蓋棺在賣角色上你雞就是失敗的作品</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">素祥怎么这么少，我的红茶呢
 
+
+*****
+
+####  久井路路  
+##### 39632#       发表于 2025-3-23 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67713331&amp;ptid=2208921" target="_blank">Victorino 发表于 2025-3-23 10:01</a>
+
+同意
+
+岔开一句，感觉制作组的问题是不敢把矛盾核心真的设定得很激烈，但又刻意要爆，搞得剧情很悬浮
+
+睦家 ...</blockquote>
+连不拿来卖的配角都不敢写成恶役，确实让人有这种感觉
+
+但是该怎么说呢，不敢把核心设定得激烈，但是手段的激烈程度却有够放飞的。
+
+你看这不就出了个在吉他睦的死这件事上滑坡了的我嘛，如果能为了和并不过激的核心而选取适配的手段的话怎么会成为怪味饺子呢（
+

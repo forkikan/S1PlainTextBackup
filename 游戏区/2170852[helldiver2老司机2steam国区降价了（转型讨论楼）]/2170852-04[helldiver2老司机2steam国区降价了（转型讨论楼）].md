@@ -597,3 +597,38 @@ MG-206重机枪
 
 榴弹发射器被暗改了，现在无论如何都只能打近身，基本废了
 
+
+*****
+
+####  MkChang  
+##### 5889#       发表于 2025-3-23 10:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67712791&amp;ptid=2170852" target="_blank">xinfengj 发表于 2025-3-23 04:11</a>
+温彻斯特还搞了个专属皮肤？</blockquote>
+皮肤系统也是和改造一样早就有但是没加进游戏吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  MkChang  
+##### 5890#       发表于 2025-3-23 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67713217&amp;ptid=2170852" target="_blank">真红眼教授 发表于 2025-3-23 09:34</a>
+榴弹发射器被暗改了，现在无论如何都只能打近身，基本废了</blockquote>
+说是和喷火旅的燃烧榴弹套代码套出的bug<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  真红眼教授  
+##### 5891#       发表于 2025-3-23 10:12
+
+<blockquote>MkChang 发表于 2025-3-23 10:09
+说是和喷火旅的燃烧榴弹套代码套出的bug
+
+—— 来自 鹅球 v3.4.98</blockquote>
+箭头经典的素材复用然后出现各种奇葩问题
+
