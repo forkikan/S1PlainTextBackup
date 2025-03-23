@@ -167,3 +167,15 @@ ss和水果没有上可以说声优没了
 
 算了，这不重要，她真可爱<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leleq  
+##### 752#       发表于 2025-3-23 17:18
+
+这集无论演出还是作画都相当好，本周2Q娃都好看舒服啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+坤坤不对心心好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+因为心心擅长跳舞大招我还以为会是街舞呢。结果很普通的偶像舞而已可惜，估计还是在意小友模仿吧
+
