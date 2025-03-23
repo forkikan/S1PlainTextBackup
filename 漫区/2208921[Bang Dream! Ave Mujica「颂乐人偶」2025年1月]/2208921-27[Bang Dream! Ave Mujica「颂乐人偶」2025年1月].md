@@ -13400,3 +13400,13 @@ BanG Dream！Ave Mujica 前12话 niconico 好评率
 
 你所发的这些，整理一个核心思想就是「我的世界只有我的前任，前任离开了，我也活不下去了」，何必呢，天涯何处无芳草，旧的不去新的不来
 
+
+*****
+
+####  swessia  
+##### 39620#       发表于 2025-3-23 09:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">写一个劣化版kkr，终究还是不如大小姐坠落到平民的祥子有味道啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
