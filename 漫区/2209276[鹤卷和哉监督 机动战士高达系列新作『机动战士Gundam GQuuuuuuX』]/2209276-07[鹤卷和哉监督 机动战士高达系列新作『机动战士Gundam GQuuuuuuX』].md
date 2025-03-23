@@ -4791,3 +4791,14 @@ https://youtu.be/hrk9q27qcWQ
 
 2025-3-23 23:27 上传
 
+
+*****
+
+####  中野梓  
+##### 9251#       发表于 2025-3-24 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67717088&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-3-23 22:22</a>
+
+黑三连还真有可能死了一个，这回的0079IF走的是TV版，而TV版三连星是分两批挂的，在马修战死后，盖亚和奥尔 ...</blockquote>
+剧场版奥尔迪加正好是塞拉杀的，少一个也可以圆上
+

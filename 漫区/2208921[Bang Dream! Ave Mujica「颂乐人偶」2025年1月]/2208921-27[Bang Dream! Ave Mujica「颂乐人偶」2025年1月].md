@@ -15546,3 +15546,76 @@ HHW真正认不出熊的应该只有育美一个人。
 
 这段我初看的时候觉得算是写得比较精炼的一幕了。海铃用极端的方式对抗父母遗传给自己的易胖体质，并因此产生了对放纵这种体质的母亲的厌恶。这种偏执跟她的管人瘾就很匹配，在现实中是让人又敬佩又讨厌的一种性格。可惜的是她在母鸡卡1.0得到管人瘾上的满足这点没有像样的描写，所以就变得莫名其妙了。
 
+
+*****
+
+####  与太郎  
+##### 39776#       发表于 2025-3-24 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67717054&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-23 22:15</a>
+
+極狐就算標準型態也有80公里一小時的速度
+
+區區山路， 十五分鐘就解決了 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202503/23/235840q33j563n2vj8vzbj.jpg" referrerpolicy="no-referrer">
+
+<strong>Honeyview_videoframe_519038.jpg</strong> (376.79 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 23:58 上传
+
+从这里看更明显，二人还没离开别墅的时候，最后一班船已经要进港了
+
+小豆岛的船到港后20分钟就会返程，就算时间按最宽裕算，留给祥子她们的也就是40分钟左右
+
+这两个人要在这不超过40分钟的时间爬到山顶再从山顶下到港口，即使别墅在离山顶更近的位置，下山的时候打车了，这也是几乎不可能完成的任务，如果靠走的那真是可能性准确为0了
+
+所以如果祥子没有任意门也不能变身，这里的时空间关系就完全不能按“现实发生的事”来对待了，祥子将初音接回东京可以是现实，但这中间的过程大概只能视为魔幻现实主义之中的奇迹了
+
+*****
+
+####  adretyu67.  
+##### 39777#       发表于 2025-3-24 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67717438&amp;ptid=2208921" target="_blank">xyion 发表于 2025-3-24 00:02</a>
+
+玩声优梗有场外信息可以证明么？
+
+这段我初看的时候觉得算是写得比较精炼的一幕了。海铃用极端的方式对抗 ...</blockquote>
+有，那会就讨论烂了。然后后面她和大猫说出道那点事的时候最初的乐队有个人是CV本人脸<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  与太郎  
+##### 39778#       发表于 2025-3-24 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67717438&amp;ptid=2208921" target="_blank">xyion 发表于 2025-3-24 00:02</a>
+
+玩声优梗有场外信息可以证明么？
+
+这段我初看的时候觉得算是写得比较精炼的一幕了。海铃用极端的方式对抗 ...</blockquote>
+我指的是海妈脸用了胖宝宝节约的
+
+
+*****
+
+####  xyion  
+##### 39779#       发表于 2025-3-24 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67717463&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-24 00:05</a>
+
+有，那会就讨论烂了。然后后面她和大猫说出道那点事的时候最初的乐队有个人是CV本人脸 ...</blockquote>
+梦以那个我知道，发型过于明显，但这个能得出海妈是玩节约梗吗？
+
+*****
+
+####  adretyu67.  
+##### 39780#       发表于 2025-3-24 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67717499&amp;ptid=2208921" target="_blank">xyion 发表于 2025-3-24 00:12</a>
+
+梦以那个我知道，发型过于明显，但这个能得出海妈是玩节约梗吗？</blockquote>
+[https://tieba.baidu.com/p/9511372750](https://tieba.baidu.com/p/9511372750)
+
