@@ -15276,3 +15276,26 @@ HHW真正认不出熊的应该只有育美一个人。
 
 至于初华这堆要素堆砌，我只能说真进游戏鸡团剧情不如干脆也跟着放飞重置算了。动画13话如果商业出道再次大获成功那就和其他团都不是一个路数了。
 
+
+*****
+
+####  adretyu67.  
+##### 39759#       发表于 2025-3-23 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67717169&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-3-23 22:55</a>
+
+除了港口和山顶之外，剧中还明确出现了现实地点「春日神社前」也就是祥子上出租的车站
+
+从祥子下船的池田 ...</blockquote>
+按照这距离推定这三角家的两小孩也是天生神力啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  与太郎  
+##### 39760#       发表于 2025-3-23 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67717258&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-23 23:19</a>
+
+按照这距离推定这三角家的两小孩也是天生神力啊</blockquote>
+本集时空间上的众多不合理之处只能作“魔幻现实主义”下的写实与非写实的交错理解了，属于是理论上有可能完成但绝不会像剧中表现那样的写意
+
