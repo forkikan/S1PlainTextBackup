@@ -15660,3 +15660,26 @@ https://tieba.baidu.com/p/9511372750</blockquote>
 
 不过也有可能老登年纪一把是功能性文盲，确实用不太惯智能机，不打电话直接下指令已经是努力学习过了。
 
+
+*****
+
+####  与太郎  
+##### 39784#       发表于 2025-3-24 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67717578&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-24 00:51</a>
+
+12话老登和初音用短信联系我其实是比较想笑的。
+
+不过也有可能老登年纪一把是功能性文盲，确实用不太惯智能 ...</blockquote>
+这个介面其实是邮箱啦
+
+*****
+
+####  adretyu67.  
+##### 39785#       发表于 2025-3-24 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67717594&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-3-24 01:01</a>
+
+这个介面其实是邮箱啦</blockquote>
+。。。。有点正式过头了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
