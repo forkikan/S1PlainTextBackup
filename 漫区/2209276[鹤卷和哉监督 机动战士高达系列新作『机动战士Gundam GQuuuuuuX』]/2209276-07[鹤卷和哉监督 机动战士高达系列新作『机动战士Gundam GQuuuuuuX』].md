@@ -4330,3 +4330,50 @@ anki可以实锤是退役老兵了吧，倒是牢修，制作组里一定有牢�
 
 高达吧不代表消息关注讨论很全
 
+
+*****
+
+####  az一串字母  
+##### 9215#       发表于 2025-3-23 20:44
+
+<img src="https://img.saraba1st.com/forum/202503/23/204250ag42vsl4lufrqpjq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250323_160527_tv.danmaku.bili.jpg</strong> (178.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 20:42 上传
+
+其实我觉得这张麻球泳装图光线看起来不像在游泳池旁，反而感觉像在牢修的秘密基地那里，怀疑三个人在下水道里开泳池趴
+
+*****
+
+####  gamedreamer  
+##### 9216#       发表于 2025-3-23 20:47
+
+在下水道开泳池趴
+好TM小众的文字<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  AraTurambar  
+##### 9217#       发表于 2025-3-23 20:47
+
+新图这，修司也要男娘文学吗？
+
+*****
+
+####  PascalLefèvre  
+##### 9218#       发表于 2025-3-23 20:48
+
+怎么想也是呼应“真正的大海”去地球开趴吧
+
+*****
+
+####  赤黑的假面  
+##### 9219#       发表于 2025-3-23 20:49
+
+还真只有12集的吗
+
