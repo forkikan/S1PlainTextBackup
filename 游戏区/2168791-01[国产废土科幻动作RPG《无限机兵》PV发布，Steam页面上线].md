@@ -1198,3 +1198,20 @@ RPG和ACT的区别~~
 
 最大的问题应该是作为二次元游戏没日配<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  高妹控  
+##### 127#       发表于 2025-3-23 23:47
+
+demo暂时还没空打，看评价很不乐观啊（都低配噬血代码了）
+
+*****
+
+####  红魔馆的糖  
+##### 128#       发表于 2025-3-23 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67717379&amp;ptid=2168791" target="_blank">高妹控 发表于 2025-3-23 23:47</a>
+demo暂时还没空打，看评价很不乐观啊（都低配噬血代码了）</blockquote>
+主要太穷了，确实是各种纬度维度上的低配噬血代码。不过对于我这种很喜欢噬血代码的倒是可以期待一下后续的通关评价<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
