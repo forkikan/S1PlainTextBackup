@@ -14803,3 +14803,63 @@ TE则是得知真相：初华已经被初音失手杀死（星象馆前的闪回
 
 对大祥精神伤害最大还是中登233
 
+
+*****
+
+####  adretyu67.  
+##### 39721#       发表于 2025-3-23 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67716320&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-3-23 19:53</a>
+
+想了想，确实更接近初音NE，问题并未完全解决，但是和女主同居了
+
+TE则是得知真相：初华已经被初音失手杀 ...</blockquote>
+鸡12的初祥关系要对应gal剧情大概就是进线后手抖选了个抱的选项，
+
+然后主角俩开始疯狂拔拔拔拔拔，最后告诉你两个人沉溺欲望好开心。
+
+*****
+
+####  南宮凝香  
+##### 39722#       发表于 2025-3-23 20:10
+
+<blockquote>adretyu67. 发表于 2025-3-23 19:42
+其实你按照12话的思路是能理解为啥大祥想搞鸡团的。
+
+鸡10话大祥是被架在火上烤重组鸡团。
+
+</blockquote>
+她都成神了還對抗什麼現實
+
+現實知道自己有那麼強嗎？
+
+
+*****
+
+####  adretyu67.  
+##### 39723#       发表于 2025-3-23 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67716412&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-23 20:10</a>
+
+她都成神了還對抗什麼現實
+
+現實知道自己有那麼強嗎？</blockquote>
+我也不知道要打什么靶，但是她就这么说了
+
+*****
+
+####  结衣小比取  
+##### 39724#       发表于 2025-3-23 20:14
+
+祥子本话走向舷梯时回想起了四位乐队成员
+
+关于初华、海玲、若麦的回想都集中在了第9、10话，关于睦的回想是第7话，看起来祥子对Mortis意见确实不小
+
+<img src="https://img.saraba1st.com/forum/202503/23/201324lemsh7944nyjueos.jpg" referrerpolicy="no-referrer">
+
+<strong>走向舷梯时的回想.jpg</strong> (1.1 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 20:13 上传
+
