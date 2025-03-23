@@ -15619,3 +15619,16 @@ HHW真正认不出熊的应该只有育美一个人。
 梦以那个我知道，发型过于明显，但这个能得出海妈是玩节约梗吗？</blockquote>
 [https://tieba.baidu.com/p/9511372750](https://tieba.baidu.com/p/9511372750)
 
+
+*****
+
+####  xyion  
+##### 39781#       发表于 2025-3-24 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67717503&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-24 00:13</a>
+
+https://tieba.baidu.com/p/9511372750</blockquote>
+感觉拿这个说制作组主动玩梗还是有点牵强，更像是观众玩梗，青木那句话也可以是观众理解为串。
+
+但也无所谓多加一条罪名。
+
