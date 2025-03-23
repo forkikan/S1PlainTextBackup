@@ -2833,3 +2833,11 @@ GQuuuuuuX和红高的盾一对比，这是有了I-Field？
 突然发现，如果企划大成功，这个UC IF可以一直拍下去，堂堂开启UC平行宇宙</blockquote>
 这种事情日本人甚至连 安田郎都早吐槽过了，这世界观要想像和思考的东西太多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wpcc  
+##### 9092#       发表于 2025-3-23 14:08
+
+GTO就是IF啊 夏亚很多细节都是原创的
+
