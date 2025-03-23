@@ -698,3 +698,23 @@ mmt见了要叫你去治眼睛</blockquote>
 <img src="https://p.sda1.dev/22/28312a636ad71839e43d65d36cb959a2/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/22/b40fa18ad5ab7a68a231ece274d938dc/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  osore  
+##### 2164#       发表于 2025-3-23 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67714188&amp;ptid=2152053" target="_blank">Saber琪 发表于 2025-3-23 12:43</a>
+看了熟肉现在五六话的小动画还没录音
+就这产能真能期待小动画结束后立马放出第二季情报嘛我觉得不太可能</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">参考昨天放出的回天情报
+
+*****
+
+####  Saber琪  
+##### 2165#       发表于 2025-3-23 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67714197&amp;ptid=2152053" target="_blank">osore 发表于 2025-3-23 12:45</a>
+参考昨天放出的回天情报</blockquote>
+为什么不参考冰尤呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

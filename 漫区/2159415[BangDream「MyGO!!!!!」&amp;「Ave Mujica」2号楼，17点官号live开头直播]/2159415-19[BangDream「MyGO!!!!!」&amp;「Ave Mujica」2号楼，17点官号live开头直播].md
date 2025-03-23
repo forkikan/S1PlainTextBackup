@@ -56,3 +56,12 @@ Happy birthday 紗夜&amp;日菜！  
 我们武士道有属于自己的电锯人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太会炒大锅饭了
 <img src="https://p.sda1.dev/22/feb62d8456cd6c5d9ad225002d2c888c/Image_643568678211205.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  月島まりな  
+##### 27066#       发表于 2025-3-23 12:49
+
+ASL 今年上了4个团
+<img src="https://s2.loli.net/2025/03/23/UTzakPXQEVyfgvH.png" referrerpolicy="no-referrer">
+
