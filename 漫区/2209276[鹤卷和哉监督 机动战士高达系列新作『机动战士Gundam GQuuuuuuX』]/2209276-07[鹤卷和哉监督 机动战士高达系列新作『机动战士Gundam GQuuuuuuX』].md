@@ -3059,3 +3059,175 @@ PV里有泳装/沙滩装麻球，吃拉面喵安，弱受修司，黑色三连�
 
 anki可以实锤是退役老兵了吧，倒是牢修，制作组里一定有牢修嬷嬷吧
 
+
+*****
+
+####  oi99o  
+##### 9113#       发表于 2025-3-23 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67715023&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-3-23 15:37</a>
+
+真有人想看男人这么卖肉的吗。。</blockquote>
+放pv的时候女声优不都在尖叫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  先手必胜  
+##### 9114#       发表于 2025-3-23 15:38
+
+真的只有一季？还是第二季换标题？
+
+*****
+
+####  岸浪白野  
+##### 9115#       发表于 2025-3-23 15:39
+
+<img src="https://img.saraba1st.com/forum/202503/23/153745mwcsrc1yp8yg11vy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.47 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 15:37 上传
+
+<img src="https://img.saraba1st.com/forum/202503/23/153906cnr1ogznjron7n5f.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.31 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 15:39 上传
+
+<img src="https://img.saraba1st.com/forum/202503/23/153753gmi00j5aznofjkl1.jpg" referrerpolicy="no-referrer">
+
+<strong>LES2TYSIQXD%EJ9SU_$}RCU_tmb.jpg</strong> (83.48 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 15:37 上传
+
+*****
+
+####  RE㐅ia  
+##### 9116#       发表于 2025-3-23 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67715023&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-3-23 15:37</a>
+
+真有人想看男人这么卖肉的吗。。</blockquote>
+台下牢修开口时有尖叫声来着，可能真有吧（
+
+*****
+
+####  NaughtyFish  
+##### 9117#       发表于 2025-3-23 15:43
+
+ED居然不是midnight reflection
+
+
+*****
+
+####  oi99o  
+##### 9113#       发表于 2025-3-23 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67715023&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-3-23 15:37</a>
+
+真有人想看男人这么卖肉的吗。。</blockquote>
+放pv的时候女声优不都在尖叫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  先手必胜  
+##### 9114#       发表于 2025-3-23 15:38
+
+真的只有一季？还是第二季换标题？
+
+*****
+
+####  岸浪白野  
+##### 9115#       发表于 2025-3-23 15:39
+
+<img src="https://img.saraba1st.com/forum/202503/23/153745mwcsrc1yp8yg11vy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.47 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 15:37 上传
+
+<img src="https://img.saraba1st.com/forum/202503/23/153906cnr1ogznjron7n5f.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.31 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 15:39 上传
+
+<img src="https://img.saraba1st.com/forum/202503/23/153753gmi00j5aznofjkl1.jpg" referrerpolicy="no-referrer">
+
+<strong>LES2TYSIQXD%EJ9SU_$}RCU_tmb.jpg</strong> (83.48 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 15:37 上传
+
+*****
+
+####  RE㐅ia  
+##### 9116#       发表于 2025-3-23 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67715023&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-3-23 15:37</a>
+
+真有人想看男人这么卖肉的吗。。</blockquote>
+台下牢修开口时有尖叫声来着，可能真有吧（
+
+*****
+
+####  NaughtyFish  
+##### 9117#       发表于 2025-3-23 15:43
+
+ED居然不是midnight reflection
+
+*****
+
+####  暗黑能乐  
+##### 9118#       发表于 2025-3-23 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67715030&amp;ptid=2209276" target="_blank">oi99o 发表于 2025-3-23 15:38</a>
+
+放pv的时候女声优不都在尖叫</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">梦女市场广阔
+
+*****
+
+####  az一串字母  
+##### 9119#       发表于 2025-3-23 15:45
+
+<blockquote>岸浪白野 发表于 2025-3-23 15:39
+</blockquote>
+最后一张应该是喵安和牢修都在红高上吧，阿姆罗我现在在做着贪得无厌的事情
+
+
+*****
+
+####  虛無迴廊  
+##### 9120#       发表于 2025-3-23 15:46
+
+果然是大富婆麻球和她的两个娇羞小蜜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Toby_dak  
+##### 9121#       发表于 2025-3-23 15:47
+
+3机大魔，0085版Jet Stream Attack？
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
+*****
+
+####  纪寞  
+##### 9122#       发表于 2025-3-23 15:48
+
+基本捶了特别映像修司那个疑似泽克诺瓦的现象并不是让鸭子和红高消失的那个泽克诺瓦，而是就是nt发功塞可缪加数值了吧
+
