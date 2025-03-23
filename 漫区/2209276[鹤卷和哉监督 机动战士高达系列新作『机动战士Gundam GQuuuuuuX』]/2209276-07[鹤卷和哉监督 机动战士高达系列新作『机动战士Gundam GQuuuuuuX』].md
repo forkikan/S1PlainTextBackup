@@ -4314,3 +4314,19 @@ anki可以实锤是退役老兵了吧，倒是牢修，制作组里一定有牢�
 
 2025-3-23 20:26 上传
 
+
+*****
+
+####  岸浪白野  
+##### 9214#       发表于 2025-3-23 20:34
+
+ 本帖最后由 岸浪白野 于 2025-3-23 20:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67716507&amp;ptid=2209276" target="_blank">zzf111 发表于 2025-3-23 20:30</a>
+
+搜了下这个论点都是本楼刺客楼友最早提出来且只能搜到的，之前看到都没在意，强啊，高达吧几个译名都搜不 ...</blockquote>
+日本人先发现
+
+有没有可能讨论最全和消息灵通最快的是只有S1了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+高达吧不代表消息关注讨论很全
+

@@ -14923,3 +14923,58 @@ TE则是得知真相：初华已经被初音失手杀 ...</blockquote>
 
 现在有了初音她跟睦也不再是能够无话不谈的关系了
 
+
+*****
+
+####  Victorino  
+##### 39730#       发表于 2025-3-23 20:34
+
+<blockquote>aptx8285144 发表于 2025-3-23 18:57
+虽然用理性逻辑分析初音那些独白不知道合不合适，反正感觉下周会不会再有笔墨阐述也很存疑了，刚才特意又看 ...</blockquote>
+你真觉得初音遇到的第一个星探就是tgw旗下公司是巧合？
+
+*****
+
+####  钦念以忱  
+##### 39731#       发表于 2025-3-23 20:36
+
+说起来，大喵第10集说的什么强制soulmate那一大串内容，原来第四集大莫老师对着祥子就说过了，说祥子紧紧抓着乐队不放，是为了一辈子在一起。
+
+之后她也先后点评了另几个人，说海玲是想找一个归宿，说初华尽会骗人就想和祥子在一起，只有说喵梦想要火最后说错了。
+
+*****
+
+####  aptx8285144  
+##### 39732#       发表于 2025-3-23 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67716533&amp;ptid=2208921" target="_blank">Victorino 发表于 2025-3-23 20:34</a>
+
+你真觉得初音遇到的第一个星探就是tgw旗下公司是巧合？</blockquote>
+都说了，遥想大手或老登已经很多次了，撇开这种猜想不谈一次也没什么关系<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  钦念以忱  
+##### 39733#       发表于 2025-3-23 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67716524&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-23 20:33</a>
+
+但其实莫祥一体还是有点道理的，祥子也是那个一直在说要保护睦结果睦一直在因为她承受伤害的人。同样是剖白 ...</blockquote>
+小睦是家庭用人格，之前社交人格一直不启用，就是社交甩给了白祥和素世，到了母鸡卡时代，素世没了，白祥也没了，小睦走投无路只好放出Mortis，有相似性很正常。
+
+*****
+
+####  mono  
+##### 39734#       发表于 2025-3-23 20:43
+
+pico3 亚子捡到马西洛笔记本成为神
+
+<img src="https://img.saraba1st.com/forum/202503/23/204251ynlr34bl45rr606r.png" referrerpolicy="no-referrer">
+
+<strong>pico.png</strong> (119.12 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 20:42 上传
+
