@@ -1215,3 +1215,16 @@ demo暂时还没空打，看评价很不乐观啊（都低配噬血代码了）
 demo暂时还没空打，看评价很不乐观啊（都低配噬血代码了）</blockquote>
 主要太穷了，确实是各种纬度维度上的低配噬血代码。不过对于我这种很喜欢噬血代码的倒是可以期待一下后续的通关评价<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  高妹控  
+##### 129#       发表于 2025-3-23 23:58
+
+ 本帖最后由 高妹控 于 2025-3-24 00:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67717389&amp;ptid=2168791" target="_blank">红魔馆的糖 发表于 2025-3-23 23:49</a>
+主要太穷了，确实是各种纬度维度上的低配噬血代码。不过对于我这种很喜欢噬血代码的倒是可以期待一下后续 ...</blockquote>
+听说会出国行实体盘，貌似199？那倒是可以宽容些，MC70分以上可以支持一张
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

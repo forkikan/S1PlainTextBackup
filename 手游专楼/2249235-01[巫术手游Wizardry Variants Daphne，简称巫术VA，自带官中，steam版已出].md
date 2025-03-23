@@ -2059,3 +2059,13 @@ staff太屑了，就为了那一小段剧情这破玩意要打三次，三回啊
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  森兰丸  
+##### 173#       发表于 2025-3-24 00:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">吐了...这2天住在船舱2F刷宝箱刷了大概50多万钱了吧...掉的4星紫武都是锤子和单手斧单手杖之类的...故意恶心我吧这是
+
+一身强化好的的2-3星蓝绿混搭钢装备和水灵装备够不够用了....实在不想再刷了
+
