@@ -4670,3 +4670,61 @@ https://youtu.be/hrk9q27qcWQ
 
 只有十二集篇幅感觉不会搞分线叙事了，周边一直把gqx和红高达放一块，没有要在第三或第四集就分开的气氛。
 
+
+*****
+
+####  az一串字母  
+##### 9242#       发表于 2025-3-23 22:16
+
+<img src="https://img.saraba1st.com/forum/202503/23/221153w1chnzf4iqitffes.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250323_221142_tv.danmaku.bili.jpg</strong> (123.79 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 22:11 上传
+
+这张小森的表情突然犀利了，听台词小森应该是在提议夏利亚回收赛克谬机，但夏利亚多半选择继续放任两台机子在外面，不知道小森会不会做内鬼。艾格萨贝穿常服应该是在做潜入任务吧，然后撞上喵安了就和人一起吃面
+
+*****
+
+####  纪寞  
+##### 9243#       发表于 2025-3-23 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67717033&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-3-23 22:09</a>
+
+应该是打魔女后吧，能看出他和玛秋以及喵安关系更好了，允许她们俩坐在红高达上。
+
+打魔女前的日常场景是 ...</blockquote>
+如果是打魔女之后就有点奇怪了，这时候玛秋还有心情这么聊吗？那玛秋消沉开不了gqx的奥米加到底是因为什么？
+
+从玛秋消沉之后的可能的画面就没感觉到有修司和红高达的存在，如果这个画面都不是的话，那就是从打完魔女之后就没有修司的画面了。
+
+
+*****
+
+####  岸浪白野  
+##### 9244#       发表于 2025-3-23 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67717022&amp;ptid=2209276" target="_blank">kuriri 发表于 2025-3-23 22:07</a>
+
+那可能是死了一个队友就把就各把一条腿背上了</blockquote>
+不是，首先还是这作大魔山下做出的设计改动是背上推进器看上去是装多一条腿，参考那个我再发一次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202503/23/222020c49xt89i6kpkx9zx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (398.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 22:20 上传
+
+*****
+
+####  猪突猛进R  
+##### 9245#       发表于 2025-3-23 22:22
+
+黑三连还真有可能死了一个，这回的0079IF走的是TV版，而TV版三连星是分两批挂的，在马修战死后，盖亚和奥尔迪加先撤退了，也许历史又发生了分歧。
+
+既然塞拉能干掉大扎姆，干掉三连星其中一个也不是不行。
+
