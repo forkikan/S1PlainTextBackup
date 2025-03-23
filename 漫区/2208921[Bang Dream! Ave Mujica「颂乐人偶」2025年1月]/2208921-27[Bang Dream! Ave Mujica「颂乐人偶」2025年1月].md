@@ -14421,3 +14421,44 @@ BanG Dream！Ave Mujica 前12话 niconico 好评率
 可能对于莫党而言很残忍，但是莫女士这种角色真得值得投入很多感情吗，我在贴吧甚至看到有人把她比作铁血第 ...</blockquote>
 责任在爹（柿本），孩子是没有罪的
 
+
+*****
+
+####  aptx8285144  
+##### 39693#       发表于 2025-3-23 18:57
+
+虽然用理性逻辑分析初音那些独白不知道合不合适，反正感觉下周会不会再有笔墨阐述也很存疑了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">，刚才特意又看了一下，如果假设星探隶属于经纪公司或商业公司作为前提，而初音向经纪公司报上老登的名字，对方吃惊都已经是遇到相中她的星探和见到甜甜圈女士<strong>之后了</strong>，不阴谋论大手或假设一开始就是老登帮忙的话，那还是自己颜值给力（星探看中）加上星探引见的是比较好说话的甜甜圈，毕竟一开始肯定不是出道或成立组合<strong>而只是一起搭档做活动</strong>
+
+*****
+
+####  adretyu67.  
+##### 39694#       发表于 2025-3-23 18:58
+
+初音的独白真假已经无所谓了。
+
+大祥在船上说了忘记过去那就是忘记了，真假全部不重要。
+
+
+*****
+
+####  aptx8285144  
+##### 39695#       发表于 2025-3-23 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67716040&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-23 18:51</a>
+
+值呀
+
+你算戲份， 莫小姐至少吃了三集的量</blockquote>
+也就是披着美少女的皮<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  swessia  
+##### 39696#       发表于 2025-3-23 19:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">制作组菜鸡把莫小姐写砸了呗
+
+根本不知道咋写这个双重人格，所以写个小孩剧情演不下去了就都塞给她
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
