@@ -15650,3 +15650,13 @@ https://tieba.baidu.com/p/9511372750</blockquote>
 
 现在谁还记得大猫老师家里还有一群小的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adretyu67.  
+##### 39783#       发表于 2025-3-24 00:51
+
+12话老登和初音用短信联系我其实是比较想笑的。
+
+不过也有可能老登年纪一把是功能性文盲，确实用不太惯智能机，不打电话直接下指令已经是努力学习过了。
+
