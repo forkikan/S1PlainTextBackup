@@ -15228,3 +15228,35 @@ go时期就有这种不正常了，明明错的是大祥，跪地哀求的却是
 
 算是连海铃纯事务官都不如<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  与太郎  
+##### 39756#       发表于 2025-3-23 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67717032&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-23 22:09</a>
+
+鸡11提到幼年初华姐妹就能做到从家里到港口给三角爹送饭，然后回去的路上真初华去别墅找祥子玩。
+
+以小孩 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202503/23/224917ub44nrvf8vtvmf1o.jpg" referrerpolicy="no-referrer">
+
+<strong>春日神社前のバス停.JPG</strong> (368.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 22:49 上传
+
+除了港口和山顶之外，剧中还明确出现了现实地点「春日神社前」也就是祥子上出租的车站
+
+从祥子下船的池田港到春日神社前也要走1个小时的
+
+
+*****
+
+####  金钱与民主  
+##### 39757#       发表于 2025-3-23 23:03
+
+顺带一提，初音的身份还是对乐队内其他三人保密的，一个团队内还要隐瞒家世，这在邦多利也是头一遭吧？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">（米歇尔那个机甲不算的话）
+

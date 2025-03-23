@@ -2038,3 +2038,14 @@ staff太屑了，就为了那一小段剧情这破玩意要打三次，三回啊
 
 那我是不是应该先不打完二周目转去把活动刷了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  废柴失格  
+##### 171#       发表于 2025-3-23 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67716243&amp;ptid=2249235" target="_blank">Dreki 发表于 2025-3-23 19:36</a>
+
+那我是不是应该先不打完二周目转去把活动刷了</blockquote>
+对，别打2周目的大异形，刷活动的要点是回到过去重置，火龙本会刷新固定箱子，加上2个随机箱子，1F、2F一次走通能拿6，7个箱子，只走一层能拿4、5个。
+
