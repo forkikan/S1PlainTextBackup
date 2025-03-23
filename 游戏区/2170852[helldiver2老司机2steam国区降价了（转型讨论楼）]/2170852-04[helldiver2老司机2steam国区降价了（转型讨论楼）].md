@@ -673,3 +673,13 @@ MG-206重机枪
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  FLZB  
+##### 5896#       发表于 2025-3-23 17:53
+
+"We asked ourselves, could we brainwash an entire community to fight for a fascist state? Would they? Would we be okay with that? And turns out, yeah, actually."
+
+被冲的应该是这段话，细品确实不太对味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
