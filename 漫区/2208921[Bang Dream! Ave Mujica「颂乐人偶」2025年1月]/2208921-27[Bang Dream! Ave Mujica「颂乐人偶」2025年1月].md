@@ -15077,3 +15077,66 @@ pico3 亚子捡到马西洛笔记本成为神
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  金钱与民主  
+##### 39744#       发表于 2025-3-23 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67715678&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-23 17:31</a>
+
+其实如果抛开所有先天设定非富即贵的话，海林应该是相对幸福的一个，问题是漏油都揣测她是因为刻意减肥才是 ...</blockquote>
+柿本对海铃的塑造也挺鬼的：俗话说子不嫌母丑，海铃怎么看都和母亲没啥矛盾，但单因为一个体型就看都不想看，只能说柿本这人自己的心理多少沾点不正常。
+
+*****
+
+####  与太郎  
+##### 39745#       发表于 2025-3-23 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67716950&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2025-3-23 21:56</a>
+
+柿本对海铃的塑造也挺鬼的：俗话说子不嫌母丑，海铃怎么看都和母亲没啥矛盾，但单因为一个体型就看都不想 ...</blockquote>
+设定上海铃是家庭和睦的，感觉单纯是想要硬玩声优的梗所以那么设计的镜头
+
+
+*****
+
+####  aptx8285144  
+##### 39746#       发表于 2025-3-23 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67716950&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2025-3-23 21:56</a>
+
+柿本对海铃的塑造也挺鬼的：俗话说子不嫌母丑，海铃怎么看都和母亲没啥矛盾，但单因为一个体型就看都不想 ...</blockquote>
+go时期就有这种不正常了，明明错的是大祥，跪地哀求的却是素世，而且那时候连实上最狂的气氛还没开始呢
+
+*****
+
+####  adretyu67.  
+##### 39747#       发表于 2025-3-23 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67716950&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2025-3-23 21:56</a>
+
+柿本对海铃的塑造也挺鬼的：俗话说子不嫌母丑，海铃怎么看都和母亲没啥矛盾，但单因为一个体型就看都不想 ...</blockquote>
+提出歧视或者80论的人是我。
+
+因为岛国环境真有可能产生这种事。
+
+但是鸡现在人均神人世界反而没那么坏，所以这事就说不准了。
+
+可能就是海铃觉得母亲胖墩墩丢脸所以干脆搬出来独立了。
+
+*****
+
+####  与太郎  
+##### 39748#       发表于 2025-3-23 22:02
+
+刚刚看到一个考察，祥子和初音下山的路徒步的话需要4小时，开车需要40分钟
+
+<img src="https://img.saraba1st.com/forum/202503/23/220046wctecet4v1tdntj9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (207.65 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 22:00 上传
+

@@ -4588,3 +4588,61 @@ https://youtu.be/hrk9q27qcWQ
 大楼那个镜头，三架黑色ms攀升那里</blockquote>
 我慢放看了，那是一长串军警扎古，大概有4到6台
 
+
+*****
+
+####  YU_JI  
+##### 9236#       发表于 2025-3-23 21:53
+
+<blockquote>kuriri 发表于 2025-3-23 21:49
+我慢放看了，那是一长串军警扎古，大概有4到6台</blockquote>
+哦，确实是四台
+
+*****
+
+####  刺客ares  
+##### 9237#       发表于 2025-3-23 21:55
+
+因为0079部分出现的大魔是吉翁绿，可以推测黑色大魔在本作是非标配的ace机涂装，也就是黑色三连星了。对应魔女红白涂装ace机和绿色杂兵机也是一个道理。
+
+镜头里只出现两个并不一定是只来了两个，没有阿姆罗的话，三连星大概率会全部活下来。
+
+*****
+
+####  纪寞  
+##### 9238#       发表于 2025-3-23 21:57
+
+现在有个问题，修司这个时候是在打魔女前还是打魔女后
+
+<img src="https://img.saraba1st.com/forum/202503/23/215600gnhzj4jyuxqa9x4u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (710.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 21:56 上传
+
+但是后面玛秋消沉和打大魔队却没感觉到修司和红高达的存在，修司真在打魔女后消失了吗？
+
+
+*****
+
+####  岸浪白野  
+##### 9239#       发表于 2025-3-23 22:02
+
+<img src="https://img.saraba1st.com/forum/202503/23/220045vlww2mw6ala6v6as.png" referrerpolicy="no-referrer">
+
+<strong>`K1K2~P]O)6IR1]{{`}2LA6.png</strong> (237.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 22:00 上传
+
+<img src="https://img.saraba1st.com/forum/202503/23/220232ovejgagp088o60e0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1022.21 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 22:02 上传
+
