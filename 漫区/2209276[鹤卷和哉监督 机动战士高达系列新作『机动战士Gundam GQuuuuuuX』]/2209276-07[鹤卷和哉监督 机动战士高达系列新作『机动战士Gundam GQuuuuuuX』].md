@@ -4864,3 +4864,35 @@ https://youtu.be/hrk9q27qcWQ
 
 2025-3-24 01:28 上传
 
+
+*****
+
+####  刺客ares  
+##### 9255#       发表于 2025-3-24 01:50
+
+魔女的眼睛也没有高光，应该是NT而不是强化人。
+
+<img src="https://img.saraba1st.com/forum/202503/24/012944rcflsxsk3vsjsslf.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1028.jpeg</strong> (37.48 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-24 01:29 上传
+
+<img src="https://img.saraba1st.com/forum/202503/24/012944vj9ujlululzwlwwp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1029.jpeg</strong> (177.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-24 01:29 上传
+
+另外看到有人说魔女的眼睛内到外是白/红/蓝，与牢修的黑/蓝/红完全相对。
+
+魔女个人标记上的And death shall have no dominion出典是威尔士诗人迪伦·托马斯的诗，但那首诗标题的根本出典是《圣经·新约·罗马书》6.9
+
+所以又是Khara经典的圣经元素植入
+
+原文是这样的：因為知道基督既從死裡復活、就不再死、死也不再作他的主了（Knowing that Christ being raised from the dead dieth no more; death hath no more dominion over him.）
+

@@ -1228,3 +1228,14 @@ demo暂时还没空打，看评价很不乐观啊（都低配噬血代码了）<
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  blackll7  
+##### 130#       发表于 2025-3-24 01:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64649872&amp;ptid=2168791" target="_blank">nage560 发表于 2024-4-19 14:28</a>
+
+场景一看就看出借鉴了blame，美术的确不错，啥时候谁真做个还原blame场景的游戏就好了。 ...</blockquote>
+Bleak Faith: Forsaken
+
