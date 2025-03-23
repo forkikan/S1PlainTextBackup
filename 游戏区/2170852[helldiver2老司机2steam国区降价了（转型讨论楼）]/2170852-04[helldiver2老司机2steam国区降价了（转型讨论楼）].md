@@ -683,3 +683,15 @@ MG-206重机枪
 
 被冲的应该是这段话，细品确实不太对味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cyanwow  
+##### 5897#       发表于 2025-3-23 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67715781&amp;ptid=2170852" target="_blank">FLZB 发表于 2025-3-23 17:53</a>
+"We asked ourselves, could we brainwash an entire community to fight for a fascist state? Would they ...</blockquote>
+这段话说的是真蠢，被冲一点毛病没有<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+看了看steam最近的高赞差评也是这个意思，
+老外最恨的就是搞游戏zz化了。原本大家玩fxs过家家喊口号挺欢乐的，没想到你箭头真当自己是《浪潮》里的老师了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
