@@ -4453,3 +4453,75 @@ anki可以实锤是退役老兵了吧，倒是牢修，制作组里一定有牢�
 还真只有12集的吗</blockquote>
 真的.....
 
+
+*****
+
+####  az一串字母  
+##### 9225#       发表于 2025-3-23 21:24
+
+怪味图
+
+https://x.com/yaitomog/status/1903739706858471638
+
+百合の間に挟まろうとする男（死）
+
+<img src="https://img.saraba1st.com/forum/202503/23/212346zvkncqgkettn05vo.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>GmtxBlJa8AAgINY.jpeg</strong> (128.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 21:23 上传
+
+*****
+
+####  纪寞  
+##### 9226#       发表于 2025-3-23 21:25
+
+<img src="https://img.saraba1st.com/forum/202503/23/212450cbmeebgtoeotmtxh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.4 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 21:24 上传
+
+这个画面的确实不是大魔，是军警扎古，好像画面中出现了6台
+
+*****
+
+####  az一串字母  
+##### 9227#       发表于 2025-3-23 21:25
+
+<blockquote>岸浪白野 发表于 2025-3-23 21:02
+今天舞台访谈的2个媒体视频
+
+https://youtu.be/hrk9q27qcWQ
+</blockquote>
+声优营业好努力
+
+*****
+
+####  纪寞  
+##### 9228#       发表于 2025-3-23 21:27
+
+<img src="https://img.saraba1st.com/forum/202503/23/212648w5phqpr64q0r4z05.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (864.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 21:26 上传
+
+然后pv确实只出现过两台大魔，不会还是黑拳赛吧
+
+
+*****
+
+####  Azcarlo  
+##### 9229#       发表于 2025-3-23 21:32
+
+居然是季番，还希望是半年番来着<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+这能有第二季吗？
+

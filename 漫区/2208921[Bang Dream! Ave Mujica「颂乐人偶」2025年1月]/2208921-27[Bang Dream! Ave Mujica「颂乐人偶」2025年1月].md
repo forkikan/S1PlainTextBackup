@@ -15067,3 +15067,13 @@ pico3 亚子捡到马西洛笔记本成为神
 
 祥子所谓的“翻盘”就是想通了，“我要成为神”，“我可是OBXXX”。连个神降、外挂都不是。对初华的“深情”在之前2次放置初华的对照下更显得像个渣女。有句谚语正好形容她：有事钟无艳，无事夏迎春。她要是来个黑化翻盘、利用团友我还能高看两眼，对祥子和母鸡卡这部动画。现在，算了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 39743#       发表于 2025-3-23 21:27
+
+<img src="https://p.sda1.dev/22/00911deb87c4aaf1a19624a29778d966/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
