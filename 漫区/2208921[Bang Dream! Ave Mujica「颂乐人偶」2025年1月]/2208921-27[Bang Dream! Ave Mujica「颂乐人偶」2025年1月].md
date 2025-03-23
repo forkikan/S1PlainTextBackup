@@ -13874,3 +13874,18 @@ BanG Dream！Ave Mujica 前12话 niconico 好评率
 
 搞CP斗争wsd肯定是点头了的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 39656#       发表于 2025-3-23 13:07
+
+鸡狗互动大结局肯定放手游啊，不然还要不要收米了。
+
+*****
+
+####  厉飞雨  
+##### 39657#       发表于 2025-3-23 13:08
+
+幼年丧父，中年失夫，晚年丧女，好惨一16岁
+
