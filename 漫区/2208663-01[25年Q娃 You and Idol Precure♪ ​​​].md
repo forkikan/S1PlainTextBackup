@@ -91,3 +91,14 @@ ss和水果没有上可以说声优没了
 
 第 07 集的 TVer 源（含日字）：magnet:?xt=urn:btih:5374031ed9da9507976cc8134773e3c1b29de24b
 
+
+*****
+
+####  modedd  
+##### 745#       发表于 2025-3-23 08:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67712942&amp;ptid=2208663" target="_blank">himfsz 发表于 2025-3-23 08:00</a>
+
+突然想到那个看上的好汉不愿意上山就干些破事逼他上山的故事，虽然是很不一样啦 ...</blockquote>
+还是更接近“我仰慕乌塔哥哥已久，只可惜下不了交投名状的狠心”那种吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
