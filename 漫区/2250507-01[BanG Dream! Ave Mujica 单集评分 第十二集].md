@@ -2796,3 +2796,13 @@ BanG Dream！Ave Mujica 前12话 niconico 好评率
 12集前还都挺有活，值得反复看，12集这漂白水谁看啊。</blockquote>
 这么说第10集反而是比第9集还拉的一集是吧，11集比10集还更有能看的点是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  operatbig  
+##### 284#       发表于 2025-3-23 10:31
+
+<blockquote>刑部姬真可爱 发表于 2025-3-23 09:44
+这么说第10集反而是比第9集还拉的一集是吧，11集比10集还更有能看的点是吧 ...</blockquote>
+第10话是神回，确立两段病态关系，然而在第12集全被毁了。
+

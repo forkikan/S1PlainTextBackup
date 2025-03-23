@@ -2922,3 +2922,15 @@ https://youtu.be/EB3J8olZi5E?si=7o9_HL54DKoJqi1N
 
 然后一开始越级打了一个据点，全程暗杀，高手一下杀不死就脱战然后回去继续杀。感觉有点滑稽。
 
+
+*****
+
+####  慕容断月  
+##### 3687#       发表于 2025-3-23 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67713323&amp;ptid=2092342" target="_blank">agsva 发表于 2025-3-23 09:59</a>
+刚开始玩，敌人脱战不回血这点也不知道该说好还是坏，而且据点敌人见到尸体也没有太特别的行动，就只是警戒 ...</blockquote>
+好玩就行了，安心当个卑鄙浪人，脱战不回血我觉得反而是好事，倒是玩的时候跟群友吐槽的这游戏潜行部分的ai功能缺失才是最遗憾的，明明有一整套的暗杀系统，却没法100%利用起来
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
