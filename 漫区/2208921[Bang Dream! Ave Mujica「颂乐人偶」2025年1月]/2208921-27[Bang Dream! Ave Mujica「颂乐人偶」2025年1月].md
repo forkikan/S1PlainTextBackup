@@ -15683,3 +15683,14 @@ https://tieba.baidu.com/p/9511372750</blockquote>
 这个介面其实是邮箱啦</blockquote>
 。。。。有点正式过头了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  与太郎  
+##### 39786#       发表于 2025-3-24 01:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67717596&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-24 01:04</a>
+
+。。。。有点正式过头了</blockquote>
+所以这里也可能是定治作为领导层单方面掌握了下属员工的邮箱，而非二人在此之前就频繁邮件沟通了
+
