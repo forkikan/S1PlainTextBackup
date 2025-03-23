@@ -14863,3 +14863,40 @@ TE则是得知真相：初华已经被初音失手杀 ...</blockquote>
 
 2025-3-23 20:13 上传
 
+
+*****
+
+####  与太郎  
+##### 39725#       发表于 2025-3-23 20:15
+
+[https://www.town.shodoshima.lg.j ... cess_fromtokyo.html](https://www.town.shodoshima.lg.jp/kanko/access/access_fromtokyo.html)
+
+不记途中换乘及等待时间的话东京到小豆岛单程约5小时
+
+*****
+
+####  与太郎  
+##### 39726#       发表于 2025-3-23 20:17
+
+<img src="https://img.saraba1st.com/forum/202503/23/201703u7w19w70v101f141.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (240.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 20:17 上传
+
+想到了三角初華（真）仲町あられ説
+
+*****
+
+####  久井路路  
+##### 39727#       发表于 2025-3-23 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67716445&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-3-23 20:17</a>
+
+想到了三角初華（真）仲町あられ説</blockquote>
+我记得仲町あられ每周都有在**直播看母鸡卡来着<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我支持把她变成真初华，那每集的直播录像肯定都会变得超级值得品味，不管中之人那时知不知道这个设定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（
+
