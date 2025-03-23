@@ -14769,3 +14769,37 @@ mujica这个情况最接近什么呢，就是一个galgame改在#1-#10完全用�
 
 TE则是得知真相：初华已经被初音失手杀死（星象馆前的闪回其实是对推初华下楼梯的暗示），即使如此也要选择初音<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yy19  
+##### 39719#       发表于 2025-3-23 19:58
+
+<blockquote>adretyu67. 发表于 2025-3-23 19:42
+其实你按照12话的思路是能理解为啥大祥想搞鸡团的。
+
+鸡10话大祥是被架在火上烤重组鸡团。
+
+</blockquote>
+然而正如南宫…楼友帖子所言，母鸡卡乐队、祥子，并没有一个明确的、具体的敌人，至少动画是在尽力避免把某个角色、某种势力树立为大反派。
+
+所以我只能得出一个挺冒犯的结论：祥子和她的队友们，如果真觉得组乐队是在反抗什么…，那么，
+
+说好听点，妳们还蛮中二的嘛～
+
+说难听点，精神病人思路广……🤪
+
+*****
+
+####  cxj649  
+##### 39720#       发表于 2025-3-23 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67716343&amp;ptid=2208921" target="_blank">yy19 发表于 2025-3-23 19:58</a>
+
+然而正如南宫…楼友帖子所言，母鸡卡乐队、祥子，并没有一个明确的、具体的敌人，至少动画是在尽力避免把 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说个笑话：根源在老登，闹大在中登
+
+甚至老登对这队障碍没多少
+
+对大祥精神伤害最大还是中登233
+
