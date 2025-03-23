@@ -76,3 +76,18 @@ ss和水果没有上可以说声优没了
 よろしくお願いいたします！</blockquote>
 <img src="https://files.catbox.moe/svkw0c.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  himfsz  
+##### 743#       发表于 2025-3-23 08:00
+
+突然想到那个看上的好汉不愿意上山就干些破事逼他上山的故事，虽然是很不一样啦
+
+*****
+
+####  紫雨こころ  
+##### 744#       发表于 2025-3-23 08:05
+
+第 07 集的 TVer 源（含日字）：magnet:?xt=urn:btih:5374031ed9da9507976cc8134773e3c1b29de24b
+
