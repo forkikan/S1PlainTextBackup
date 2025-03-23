@@ -13597,3 +13597,15 @@ BanG Dream！Ave Mujica 前12话 niconico 好评率
 
 你看这不就出了个在吉他睦的死这件事上滑坡了的我嘛，如果能为了和并不过激的核心而选取适配的手段的话怎么会成为怪味饺子呢（
 
+
+*****
+
+####  595505568  
+##### 39633#       发表于 2025-3-23 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67710154&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-22 16:39</a>
+除非WSD 是沒學習能力的猴子
+
+不然我寧願相信那是Soyo 鐵T的姐姐/妹妹</blockquote>
+塞个姐姐妹妹不就有下个乐队了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，这很好了
+
