@@ -13790,3 +13790,69 @@ BanG Dream！Ave Mujica 前12话 niconico 好评率
 
 调理好了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  南宮凝香  
+##### 39651#       发表于 2025-3-23 12:07
+
+<img src="https://img.saraba1st.com/forum/202503/23/120001wozp9vo9vvsng7pp.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5717.webp</strong> (362.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 12:00 上传
+
+<img src="https://img.saraba1st.com/forum/202503/23/120006jbs772puke7isbd3.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5718.webp</strong> (352.57 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 12:00 上传
+
+<img src="https://img.saraba1st.com/forum/202503/23/120011qllg5te55qllbq5g.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5719.webp</strong> (203.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 12:00 上传
+
+吃的不說
+
+雞狗號稱姐妹團
+
+但二十五集過去了
+
+溝通渠道除了素睦跟海希還有嗎？
+
+這關係能比得過AG 跟蘿嗎？
+
+雞狗十人混抽，能談得上話的有多少對？
+
+角姨把時間都花在3C的屍體上，
+
+不去建設兩團的未來性，
+
+這責任就是要背
+
+*****
+
+####  油画布  
+##### 39652#       发表于 2025-3-23 12:09
+
+<blockquote>刑部姬真可爱 发表于 2025-3-23 11:27
+迫害归迫害卖归卖，更何况论迫害的话素食还逊睦一筹，至于当工具啥的更是不至于。
+
+并且从独角兽挂名的第 ...</blockquote>
+从场外来说素世客场mvp身份不会变，这句复刻只迫害了祥子自己的塑造。独角兽整这种烂活和柿本前面那些台词回旋镖烂的不相上下。
+
+*****
+
+####  adretyu67.  
+##### 39653#       发表于 2025-3-23 12:10
+
+13话都要分开live，起码动画是不准备建设两团的未来性的
+

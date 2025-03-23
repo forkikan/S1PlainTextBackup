@@ -2738,3 +2738,27 @@ next uc 100刚公布那阵子小形P还信誓旦旦的提过Gaia Gear的事，�
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
 
+
+*****
+
+####  灵魂收割机  
+##### 9083#       发表于 2025-3-23 12:10
+
+哈萨维都没搞定呢，哈萨维完了还有UC2，其他企划取号排着吧，两小时后就餐。
+
+*****
+
+####  Gysumitka  
+##### 9084#       发表于 2025-3-23 12:12
+
+<img src="https://p.sda1.dev/22/355d9589e16f92ae0fe55500e9484a7d/image.jpg" referrerpolicy="no-referrer">
+沪爷专属活动来了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 9085#         楼主| 发表于 2025-3-23 12:13
+
+日本动画（人）展览会作品『安彦良和・板野一郎原摄集』（2014年公开作品）
+[https://youtu.be/9kCq-2EfIz8](https://youtu.be/9kCq-2EfIz8)
+
