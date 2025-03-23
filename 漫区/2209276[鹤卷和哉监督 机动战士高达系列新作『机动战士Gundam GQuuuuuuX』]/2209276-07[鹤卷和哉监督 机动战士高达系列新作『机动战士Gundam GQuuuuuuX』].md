@@ -3925,3 +3925,56 @@ pv里还有张玛秋在驾驶舱里消沉脸的画面，会不会真是突然开
 
 可能正篇里的条件没那么奇怪吧
 
+
+*****
+
+####  岸浪白野  
+##### 9180#       发表于 2025-3-23 17:38
+
+<img src="https://img.saraba1st.com/forum/202503/23/173842jebjpyrhithiihoj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.14 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 17:38 上传
+
+*****
+
+####  0aleph37  
+##### 9181#       发表于 2025-3-23 17:38
+
+主视觉图的绿色图形有什么解读思路吗？要说是单纯美学设计的话存在感太强了甚至盖过了GQX
+
+*****
+
+####  刺客ares  
+##### 9182#       发表于 2025-3-23 17:39
+
+<img src="https://img.saraba1st.com/forum/202503/23/173822jpg6g6ofv629cgvi.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1019.jpeg</strong> (239.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 17:38 上传
+
+<img src="https://img.saraba1st.com/forum/202503/23/173822frfxf38f81o1okib.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1020.jpeg</strong> (179 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 17:38 上传
+
+看左边外套颜色一致，喵安吃面的场景，她对面的人是首席哥，是首席哥在请客？
+
+这俩人应该真是兄妹？
+
+*****
+
+####  纪寞  
+##### 9183#       发表于 2025-3-23 17:43
+
+估计大魔队来袭时艾格萨贝在外独走，副官担心，夏利尔说"他也是新人类，船到桥头自然直吧"
+
