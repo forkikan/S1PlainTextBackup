@@ -579,3 +579,13 @@ MG-206重机枪
 <img src="https://p.sda1.dev/22/41377a12b1461929e17520bc5655ce42/CMP_20250323041106821.jpg" referrerpolicy="no-referrer">
 温彻斯特还搞了个专属皮肤？
 
+
+*****
+
+####  jy000129  
+##### 5887#       发表于 2025-3-23 09:07
+
+昨天经常出现躲在掩体里面身上无缘无故着火的情况<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

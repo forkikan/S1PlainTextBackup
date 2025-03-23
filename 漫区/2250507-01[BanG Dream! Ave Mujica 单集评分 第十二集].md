@@ -2773,3 +2773,15 @@ BanG Dream！Ave Mujica 前12话 niconico 好评率
 12话观看人数是爆炸了。
 看起来11话破坏力是实打实的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  operatbig  
+##### 282#       发表于 2025-3-23 09:08
+
+<blockquote>syndrome2032 发表于 2025-3-23 06:12
+12话观看人数是爆炸了。
+
+看起来11话破坏力是实打实的</blockquote>
+12集前还都挺有活，值得反复看，12集这漂白水谁看啊。
+
