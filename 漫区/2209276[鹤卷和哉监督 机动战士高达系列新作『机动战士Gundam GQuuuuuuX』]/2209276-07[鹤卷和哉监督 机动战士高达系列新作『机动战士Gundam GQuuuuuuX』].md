@@ -3774,3 +3774,39 @@ pv里还有张玛秋在驾驶舱里消沉脸的画面，会不会真是突然开
 
 玛秋说出这句话后下集或这集结尾就让她开不了奥米加了吧，回旋镖<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oi99o  
+##### 9168#       发表于 2025-3-23 17:12
+
+之前说由部分tv剧集再构筑成beginning剧场版，现在又说79if只有剧场能体验，是不是宣传欺诈<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  纪寞  
+##### 9169#       发表于 2025-3-23 17:13
+
+夏利尔那句"他也是新人类"说的应该是艾格萨贝，估计有艾格萨贝独走的剧情？
+
+
+*****
+
+####  岸浪白野  
+##### 9170#       发表于 2025-3-23 17:16
+
+前面宣传其实是（用tv剧集的前2集）再构筑成beginning剧场版的（后半部分）
+
+前半79部分前面宣传确实藏着啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刺客ares  
+##### 9171#       发表于 2025-3-23 17:17
+
+看了下外面在吐槽玛秋修司都在努力卖肉，只有喵安局外人一样在大口吃面（
+
+还有黑色三连星粉丝的，分到戏份已经在开香槟了，照这个吉翁ace陆续出场的势头，兰巴也会出来吧
+
