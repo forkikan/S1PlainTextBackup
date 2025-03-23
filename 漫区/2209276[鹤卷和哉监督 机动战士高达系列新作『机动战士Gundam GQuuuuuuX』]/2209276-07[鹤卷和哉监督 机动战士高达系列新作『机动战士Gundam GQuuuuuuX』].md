@@ -4525,3 +4525,47 @@ https://youtu.be/hrk9q27qcWQ
 
 这能有第二季吗？
 
+
+*****
+
+####  刺客ares  
+##### 9230#       发表于 2025-3-23 21:34
+
+第二季感觉悬，
+
+以Khara的风格更可能会选择做完结篇新剧场版。
+
+*****
+
+####  纪寞  
+##### 9231#       发表于 2025-3-23 21:36
+
+<img src="https://img.saraba1st.com/forum/202503/23/213525yihg777g7gn07yzn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.04 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 21:35 上传
+
+关于军警扎古集体出动，plazma mv有类似的一幕，但这个时候红高达还在，而且有类似发功的现象？
+
+
+*****
+
+####  xwz  
+##### 9232#       发表于 2025-3-23 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67715943&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-3-23 18:26</a></blockquote>
+麻球这个尺寸真的很大
+
+*****
+
+####  纪寞  
+##### 9233#       发表于 2025-3-23 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67716584&amp;ptid=2209276" target="_blank">az一串字母 发表于 2025-3-23 20:44</a>
+
+其实我觉得这张麻球泳装图光线看起来不像在游泳池旁，反而感觉像在牢修的秘密基地那里，怀疑三个人在下水 ...</blockquote>
+这里应该不是那个藏身处，因为藏身处地板是涂满涂鸦的
+
