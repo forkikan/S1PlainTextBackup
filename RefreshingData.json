@@ -1941,7 +1941,7 @@
     "lastedit": 1742745960,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "1972138": {
     "totalreply": 731,
@@ -7470,12 +7470,12 @@
     "update": false
   },
   "2052383": {
-    "totalreply": 465,
+    "totalreply": 466,
     "title": "[【KIRARA】芳文社漫画个人读后感+综合讨论楼]",
     "newtitle": "[【KIRARA】芳文社漫画个人读后感+综合讨论楼]",
-    "lastedit": 1742233571,
+    "lastedit": 1742757130,
     "category": "漫区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2110102": {
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 155790,
+    "totalreply": 155791,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1742756649,
+    "lastedit": 1742757008,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -17829,10 +17829,10 @@
     "update": false
   },
   "2250770": {
-    "totalreply": 58,
+    "totalreply": 59,
     "title": "[比大花臂更丑的是什么]",
     "newtitle": "[比大花臂更丑的是什么]",
-    "lastedit": 1742752812,
+    "lastedit": 1742757368,
     "category": "外野",
     "active": true,
     "update": false
