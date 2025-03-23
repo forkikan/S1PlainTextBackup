@@ -4736,3 +4736,34 @@ https://youtu.be/hrk9q27qcWQ
 
 虽然没有阿姆罗，也要考虑塞拉开轻加农干掉哪个的可能性是这样的
 
+
+*****
+
+####  YU_JI  
+##### 9247#       发表于 2025-3-23 22:48
+
+到目前为止还没有任何要离开side6的迹象，甚至明显还要再打一段时间黑拳，下地球可能真的是全篇最后目标吧
+
+*****
+
+####  刺客ares  
+##### 9248#       发表于 2025-3-23 22:50
+
+<img src="https://img.saraba1st.com/forum/202503/23/225012dmzvtii88toti8vt.png" referrerpolicy="no-referrer">
+
+<strong>95314fc624e030e8d0525b0c000eb022.png</strong> (162.05 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-23 22:50 上传
+
+*****
+
+####  kuriri  
+##### 9249#       发表于 2025-3-23 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67717085&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-3-23 22:21</a>
+
+不是，首先还是这作大魔山下做出的设计改动是背上推进器看上去像是装多一条腿，像参考那个</blockquote>
+不矛盾啊，队友死了把机体拆了各背一条腿作加强推进器，“是mav也是三连星”
+

@@ -15212,3 +15212,19 @@ go时期就有这种不正常了，明明错的是大祥，跪地哀求的却是
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  zhoujin8584  
+##### 39755#       发表于 2025-3-23 22:51
+
+初祥这对确实是拔作<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+关于一直萦绕在母鸡卡上空的祥子的幸福议题，睦是直接给答案。灯是问了也发出了邀请让祥子来组乐队。
+
+甚至连大猫都问过祥子幸福吗。
+
+而初华在星空馆对峙场，听着睦说祥子组crychic会更幸福，第一反应是把睦推下去。
+
+算是连海铃纯事务官都不如<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
