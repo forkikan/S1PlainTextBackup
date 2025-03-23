@@ -15632,3 +15632,21 @@ https://tieba.baidu.com/p/9511372750</blockquote>
 
 但也无所谓多加一条罪名。
 
+
+*****
+
+####  adretyu67.  
+##### 39782#       发表于 2025-3-24 00:25
+
+ 本帖最后由 adretyu67. 于 2025-3-24 00:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67717526&amp;ptid=2208921" target="_blank">xyion 发表于 2025-3-24 00:22</a>
+
+感觉拿这个说制作组主动玩梗还是有点牵强，更像是观众玩梗，青木那句话也可以是观众理解为串。
+
+但也无所 ...</blockquote>
+不考虑形象问题，和胖妈妈聊天基本上能做一些猜测。
+
+怎么样也比喵梦强了。
+
+现在谁还记得大猫老师家里还有一群小的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
