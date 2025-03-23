@@ -233,3 +233,11 @@
 希望你还有茶壶，否则亏绊又要痛苦了</blockquote>
 茶壶留了两个用上了！狠狠贪绊，爽！终于能把狂树最后一个宝威点上了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  深渊骑士  
+##### 47098#       发表于 2025-3-23 19:13
+
+点完狂阶后就在存星辉等仇阶这边开放了，今天打完剧情马上去点满，结果发现缺一个极星才能把最后几个点了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">之后就要开始点降临者那边
+

@@ -4169,3 +4169,20 @@ pv里还有张玛秋在驾驶舱里消沉脸的画面，会不会真是突然开
 
 pv尼娅安说的“那个时候”，不会就是驾机逃离的时间？
 
+
+*****
+
+####  刺客ares  
+##### 9202#       发表于 2025-3-23 19:06
+
+<blockquote>YU_JI 发表于 2025-3-23 18:59
+话说三连星在这部这里要怎么体现MAV，俩俩互为MAV吗（）</blockquote>
+感觉这三位像是坚守原本的战术，出来给MAV当高级经验包的（
+
+*****
+
+####  Sliurus  
+##### 9203#       发表于 2025-3-23 19:09
+
+黑色三连星经典垫脚石，高层被打出ptsd，然后被骡子轻取<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
