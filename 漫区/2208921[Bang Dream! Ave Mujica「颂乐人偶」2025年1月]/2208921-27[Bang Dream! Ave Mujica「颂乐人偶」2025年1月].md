@@ -13653,3 +13653,39 @@ BanG Dream！Ave Mujica 前12话 niconico 好评率
 
 不说独角兽的水平问题，但mygo里的剧情睦祥yysy也没咋卖啊，至少我是觉得独角兽推的是素睦而不是睦祥
 
+
+*****
+
+####  595505568  
+##### 39639#       发表于 2025-3-23 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67713711&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-3-23 11:07</a>
+不说独角兽的水平问题，但mygo里的剧情睦祥yysy也没咋卖啊，至少我是觉得独角兽推的是素睦而不是睦祥 ...</blockquote>
+她卖的是喵睦的八零/信徒组，素世🦄这个狗东西一直是拿来当工具和迫害的这点不是go时期就开始了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+你不会觉得🦄这个死厕妹能给素世和立希正常待遇吧
+
+
+*****
+
+####  595505568  
+##### 39639#       发表于 2025-3-23 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67713711&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-3-23 11:07</a>
+不说独角兽的水平问题，但mygo里的剧情睦祥yysy也没咋卖啊，至少我是觉得独角兽推的是素睦而不是睦祥 ...</blockquote>
+她卖的是喵睦的八零/信徒组，素世🦄这个狗东西一直是拿来当工具和迫害的这点不是go时期就开始了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+你不会觉得🦄这个死厕妹能给素世和立希正常待遇吧
+
+*****
+
+####  刑部姬真可爱  
+##### 39640#       发表于 2025-3-23 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67713750&amp;ptid=2208921" target="_blank">595505568 发表于 2025-3-23 11:16</a>
+
+她卖的是喵睦的八零/信徒组，素世🦄这个狗东西一直是拿来当工具和迫害的这点不是go时期就开始了？
+
+你不会 ...</blockquote>
+迫害归迫害卖归卖，更何况论迫害的话还素食还逊睦一筹，至于当工具啥的更是不至于。
+
+并且从独角兽挂名的第一话和第十二话来看，她对素食和立希的待遇都很正常。第12话唯一不爽的点就是祥子复刻“满脑子都是自己”这句话却是与当时对素食完全不同的态度说出来，这点是我唯一觉得过分的，但也不至于用“迫害”这个词，毕竟我认为素祥关系性在第10集就被消解得几乎没有了
+
