@@ -2785,3 +2785,14 @@ BanG Dream！Ave Mujica 前12话 niconico 好评率
 看起来11话破坏力是实打实的</blockquote>
 12集前还都挺有活，值得反复看，12集这漂白水谁看啊。
 
+
+*****
+
+####  刑部姬真可爱  
+##### 283#       发表于 2025-3-23 09:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67713136&amp;ptid=2250507" target="_blank">operatbig 发表于 2025-3-23 09:08</a>
+
+12集前还都挺有活，值得反复看，12集这漂白水谁看啊。</blockquote>
+这么说第10集反而是比第9集还拉的一集是吧，11集比10集还更有能看的点是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
