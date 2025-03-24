@@ -5300,3 +5300,31 @@ FLCL
 
 2025-3-24 12:39 上传
 
+
+*****
+
+####  Toby_dak  
+##### 9290#       发表于 2025-3-24 12:44
+
+ 本帖最后由 Toby_dak 于 2025-3-24 13:48 编辑 
+
+手机浏览器看的话，官网的人物和机器都是填满没有空位，并不是故意留空的，拿这个来脑洞未免太空泛了。
+
+<img src="https://p.sda1.dev/22/4e3b850fd2fd0cbc4260dcc3f8690a55/1000099536.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
+
+*****
+
+####  Toby_dak  
+##### 9290#       发表于 2025-3-24 12:44
+
+ 本帖最后由 Toby_dak 于 2025-3-24 13:48 编辑 
+
+手机浏览器看的话，官网的人物和机器都是填满没有空位，并不是故意留空的，拿这个来脑洞未免太空泛了。
+
+<img src="https://p.sda1.dev/22/4e3b850fd2fd0cbc4260dcc3f8690a55/1000099536.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
