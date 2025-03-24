@@ -1752,3 +1752,26 @@ MyGo第十話一集就包了愛燈素三人餃子，
 
 比如素世不小心捅死了祥子老爹，从此二人成为宿敌（）
 
+
+*****
+
+####  DeltaStriker  
+##### 40088#       发表于 2025-3-25 01:03
+
+令和山本宽说是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/22/b312277e55732bc874bd84c44a513a7c/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  极寒冷焰酋蕾姆  
+##### 40089#       发表于 2025-3-25 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67724859&amp;ptid=2208921" target="_blank">DeltaStriker 发表于 2025-3-25 01:03</a>
+令和山本宽说是
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+跟阿宽比那还是比不上的，毕竟🦄目前还没在zz层面上抽风<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
