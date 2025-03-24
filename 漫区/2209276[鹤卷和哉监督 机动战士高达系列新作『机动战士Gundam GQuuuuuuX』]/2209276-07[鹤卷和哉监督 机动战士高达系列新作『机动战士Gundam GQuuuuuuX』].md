@@ -5520,3 +5520,12 @@ Ortega[8][9] / Ortiga[10][12]
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
 
+
+*****
+
+####  岸浪白野  
+##### 9304#       发表于 2025-3-24 17:02
+
+[X 上的 機動戦士Gundam GQuuuuuuX（ジークアクス）：“◤大ヒット御礼◢ 公開から66日間の興行成績が到着！ ────────── 興行収入：32.9億円 観客動員：200万人 ────────── 動員数が200万人を突破しました！ [url]https://t.co/C4L84T8Dkj](https://x.com/G_GQuuuuuuX/status/1904095886134948052)” / X[/url]
+<img src="https://p.sda1.dev/22/8ab6a9b1f653e619e651085c6916b27c/image.jpg" referrerpolicy="no-referrer">
+
