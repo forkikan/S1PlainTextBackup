@@ -15882,3 +15882,37 @@ https://tieba.baidu.com/p/9511372750</blockquote>
 
 之后突然开始魔女的茶会，意料之外的展开，当然不会揭露答案。
 
+
+*****
+
+####  zhzij111  
+##### 39802#       发表于 2025-3-24 12:34
+
+ 本帖最后由 zhzij111 于 2025-3-24 12:36 编辑 
+
+最火的不就是爱素、素睦、睦祥这三。
+
+一个都没逃过角圣和柿➗的魔掌。爱素差点被第七集干烂，素睦、睦祥因为墨提斯和黄瓜睦死了已经半死不活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  adretyu67.  
+##### 39803#       发表于 2025-3-24 12:37
+
+ 本帖最后由 adretyu67. 于 2025-3-24 12:38 编辑 
+
+看13话live的小剧场了。
+
+从12话的台本来看，应该是旧世界的人偶们纷纷消失到最后只剩爱一个，最后连爱也消失的剧情。
+
+*****
+
+####  天空塔书记官  
+##### 39804#       发表于 2025-3-24 12:39
+
+因为现在磕cp都已经脱离原作靠二创脑补了，所以原作再怎么作都行啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

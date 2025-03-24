@@ -5269,3 +5269,34 @@ FLCL
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
 
+
+*****
+
+####  oi99o  
+##### 9289#       发表于 2025-3-24 12:40
+
+ 本帖最后由 oi99o 于 2025-3-24 12:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67719179&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-3-24 11:39</a>
+
+官网机械页面还有四个空格，角色页面还有八个空格
+
+考虑到篇幅问题，后续新登场角色的数量可能不会太多
+
+ ...</blockquote>把网页拉到全屏，就是占满整行的占位符而已。记得水魔当时也是这样被人猜新角色/机体数量，结果完全无关。
+
+<img src="https://img.saraba1st.com/forum/202503/24/123918uoyzry6o8b7jrpfe.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (197.98 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-24 12:39 上传
+
+<img src="https://img.saraba1st.com/forum/202503/24/123929rg1gsqgiorygq0i1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (136.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-24 12:39 上传
+
