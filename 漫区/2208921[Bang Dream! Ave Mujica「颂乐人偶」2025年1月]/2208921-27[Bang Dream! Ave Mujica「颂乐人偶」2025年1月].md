@@ -15754,3 +15754,46 @@ https://tieba.baidu.com/p/9511372750</blockquote>
 
 后面进手游了又emo了的话另说
 
+
+*****
+
+####  南宮凝香  
+##### 39792#       发表于 2025-3-24 11:00
+
+海玲不是八幡神社的搬出去隔壁單住嗎？
+
+節約寶（不是）電話裡還叫她回家吃飯
+
+怎想也不是京漂吧
+
+*****
+
+####  zhoujin8584  
+##### 39793#       发表于 2025-3-24 11:02
+
+是的，设定上是因为在富裕的家庭环境里长大，所以海铃一直都很顺风顺水，不太通人性。
+
+
+*****
+
+####  一心而用  
+##### 39794#       发表于 2025-3-24 11:06
+
+纯白的冠冕
+
+<img src="https://img.saraba1st.com/forum/202503/24/110543alx1luux1jalzmuj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (30.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-24 11:05 上传
+
+<img src="https://img.saraba1st.com/forum/202503/24/110552x30kc3db7f3rczb8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (428.93 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-24 11:05 上传
+

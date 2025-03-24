@@ -2981,3 +2981,11 @@ https://youtu.be/EB3J8olZi5E?si=7o9_HL54DKoJqi1N
 到京都了，感觉难度涨了好多是错觉吗。池田屋和禁门之变打得就比较吃力了，现在打据点感觉杂兵都强了不少啊 ...</blockquote>
 鸟羽伏见之战那个强度提升有点太大了，前面其实还好
 
+
+*****
+
+####  千秋难诉  
+##### 3693#       发表于 2025-3-24 10:57
+
+明天有所谓的优化更新<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
