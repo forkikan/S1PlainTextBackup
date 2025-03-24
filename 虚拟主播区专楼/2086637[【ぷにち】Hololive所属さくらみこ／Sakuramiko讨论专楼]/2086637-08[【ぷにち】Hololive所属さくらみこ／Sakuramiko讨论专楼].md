@@ -2757,3 +2757,20 @@ TMD都3月份了才在问衣服发型的事，今年的新衣装还出不出了
 
 不要再污染别人的曲子meme求求了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第几首了
 
+
+*****
+
+####  holofan  
+##### 10954#       发表于 2025-3-24 16:21
+
+之前看到一个切片，前两天团长杂谈直播聊到马内甲的事的时候提到一个事之前fes的时候miko上台时miko的现任马内甲在后台跟着一起跳，可以说是平时练舞的时候确实没少跟着了都这么熟练了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holofan  
+##### 10955#       发表于 2025-3-24 22:10
+
+刚才说最近在构思绘本的内容和设计形象，可能会酝酿出一个新的虚拟宠物形象
+
+只让你画绘本都有点屈才了不是
+

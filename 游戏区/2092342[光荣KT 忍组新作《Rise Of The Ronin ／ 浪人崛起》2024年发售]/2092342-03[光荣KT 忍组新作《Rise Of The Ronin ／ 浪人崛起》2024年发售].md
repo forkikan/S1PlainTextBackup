@@ -3092,3 +3092,27 @@ https://youtu.be/EB3J8olZi5E?si=7o9_HL54DKoJqi1N
 二十多个小时还在第一章，选的黄昏难度，感觉难度有点不平衡啊，小兵和一些副本BOSS还行，部分有头有脸的BO ...</blockquote>
 前期久坂应该是比较难的boss了，那些大个子打熟了以后会发现其实很简单，他们出招都有明显前摇，而且招式比较固定，掌握好节奏石火还算容易，相对难的就是爪子<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我基本只能石火红光
 
+
+*****
+
+####  千秋难诉  
+##### 3704#       发表于 2025-3-24 22:08
+
+现在UP做了强制动摇CT
+
+BV19CoBYjErt
+
+忍住摆烂不做DLC改善战斗，只有看玩家自己动手了
+
+
+*****
+
+####  千秋难诉  
+##### 3704#       发表于 2025-3-24 22:08
+
+现在UP做了强制动摇CT
+
+BV19CoBYjErt
+
+忍住摆烂不做DLC改善战斗，只有看玩家自己动手了
+
