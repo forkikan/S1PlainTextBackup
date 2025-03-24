@@ -2172,3 +2172,21 @@ staff太屑了，就为了那一小段剧情这破玩意要打三次，三回啊
 考虑到怪物强度也上去了感觉效率可能不如30级。因为30级我也是 ...</blockquote>
 那看来开30还是有点必要，我还在打二周目全员生还<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  macshi  
+##### 184#       发表于 2025-3-24 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67719855&amp;ptid=2249235" target="_blank">棍机凹升龙 发表于 2025-3-24 13:29</a>
+那看来开30还是有点必要，我还在打二周目全员生还</blockquote>
+最好先去挑战一下火龙试试，据说20级的火龙比较好打一点？反正我30级不用麻痹战术拼尽全力也没法战胜，40级去试了一下感觉更凶残了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  风浦可符香(P.N)  
+##### 185#         楼主| 发表于 2025-3-24 14:26
+
+这次活动不管你多少级，箱子装备一定比你主线能开出来的差，所以大家嫌弃，没动力刷，满级玩家好像也能开出100多石，封顶好像才300左右，更要命了
+
