@@ -4935,3 +4935,13 @@ https://youtu.be/hrk9q27qcWQ
 最重要突显出不畏惧死亡，其次诗歌强调的是正面的精神与爱是长存的
 魔女说即使输了战争我还没有输是有仇恨怨念的，和战友的感情是长存的，所以才是魔女的战争
 
+
+*****
+
+####  57042711  
+##### 9260#       发表于 2025-3-24 09:12
+
+看来魔女就是这次的挽尊哥担当吗，就叫她挽尊妹好了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
