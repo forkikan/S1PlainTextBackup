@@ -17720,3 +17720,76 @@ ex-aid时的高桥悠也
 
 能不能盘点十大和制作组闹矛盾的编剧，冈田斗司夫肯定算一个，这位可是作为创始人直接被宫出gainax了无出其右了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  南宮凝香  
+##### 39954#       发表于 2025-3-24 20:30
+
+角姨還是省省吧
+
+12 話總是她寫的吧
+
+讓這番變極狐的成神，
+
+我是豐川祥子Desuwa 她切割不掉吧
+
+一出事就切割， 以同事來說也是個垃圾
+
+
+*****
+
+####  Dr.Wondering  
+##### 39955#       发表于 2025-3-24 20:34
+
+明明在mygo时期就切割了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  与太郎  
+##### 39956#       发表于 2025-3-24 20:36
+
+ 本帖最后由 与太郎 于 2025-3-24 20:37 编辑 
+<blockquote>運命に、世界に背を向けても何かが変わるわけではありませんわ。
+
+この小さな世界はきっといつか終わる。
+
+朝、夢から覚めるように、突然、否応なく…
+
+けれど、
+
+できるだけ、
+
+もう少しだけ、
+
+まどろみに浸っていたい…
+
+この匂い、
+
+嫌いですわ。</blockquote>
+看来这段话并不是在说祥子的内心，确实，都已经成为神大人祥子了，区区命运又如何能够束缚住她呢
+
+所以这段其实是独角兽自己的心声，从1期开始负责的邦邦世界，喜欢的MyGO Mujica故事，被一个2期来的监督以及上面的大人影响，把自己踢出局了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 39957#       发表于 2025-3-24 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67722163&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-24 18:07</a>
+
+11话播出前我就编过类似的双子假药了，这个双子假药其实可以无缝接进目前的小姨版本的，不这么写看来独角 ...</blockquote>
+鸡的底层设计就是有问题的，要改可能就是全局性的改动。
+
+基本上和按着鸡里观众能接受的设定写二创剧本差不多了。
+
+*****
+
+####  aptx8285144  
+##### 39958#       发表于 2025-3-24 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67721808&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-3-24 17:20</a>
+
+无法理解为啥🦄让这么多人疯狂，鸡狗也不是她的出道作啊，前面还有一堆中低分作品呢 ...</blockquote>
+因为独角兽写了不少百合，而22年以前，百合党也很难想象现在国内这么大的声势浩大的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
