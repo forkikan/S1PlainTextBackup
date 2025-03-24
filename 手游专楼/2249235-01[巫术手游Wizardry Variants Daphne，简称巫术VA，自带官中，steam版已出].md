@@ -2190,3 +2190,19 @@ staff太屑了，就为了那一小段剧情这破玩意要打三次，三回啊
 
 这次活动不管你多少级，箱子装备一定比你主线能开出来的差，所以大家嫌弃，没动力刷，满级玩家好像也能开出100多石，封顶好像才300左右，更要命了
 
+
+*****
+
+####  toblkr  
+##### 186#       发表于 2025-3-24 15:55
+
+这活动箱子还能开到骨头<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  toblkr  
+##### 186#       发表于 2025-3-24 15:55
+
+这活动箱子还能开到骨头<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
