@@ -5932,3 +5932,47 @@ Ortega[8][9] / Ortiga[10][12]
 
 看4d后悔80分钟，不看后悔一辈子（
 
+
+*****
+
+####  kuriri  
+##### 9336#       发表于 2025-3-25 01:53
+
+<blockquote>虛無迴廊 发表于 2025-3-24 23:49
+没有4d吗？</blockquote>
+我小红书上看到上海有的，其他城市应该也有吧？
+
+*****
+
+####  RE㐅ia  
+##### 9337#       发表于 2025-3-25 04:37
+
+看4d后悔80分钟，不看后悔一辈子（
+
+*****
+
+####  Gaybird  
+##### 9338#       发表于 2025-3-25 06:55
+
+<img src="https://img.saraba1st.com/forum/202503/24/175223h90ufjo0jxx970u7.jpg" referrerpolicy="no-referrer">
+
+<strong>鹤卷p1.jpg</strong> (935.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-25 06:52 上传
+
+<img src="https://img.saraba1st.com/forum/202503/24/175232ajmut999tzzajllq.jpg" referrerpolicy="no-referrer">
+
+<strong>鹤卷p2.jpg</strong> (991.19 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-25 06:52 上传
+
+是不是还没有人传过newtype4月号鹤卷的部分
+
+这个40周年特辑是真的特别厚，不愧是全明星阵容
+
+大赞YOASOBI那里太瞩目了w
+
