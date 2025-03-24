@@ -2734,3 +2734,26 @@ TMD都3月份了才在问衣服发型的事，今年的新衣装还出不出了
 
 2025-3-23 11:12 上传
 
+
+*****
+
+####  holofan  
+##### 10952#       发表于 2025-3-23 20:25
+
+播了这么久总算有一次剧情动画不用被486剧透了
+
+*****
+
+####  holofan  
+##### 10953#       发表于 2025-3-24 15:43
+
+<img src="https://img.saraba1st.com/forum/202503/24/154303w77nevnvzyvttn4t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (52.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-24 15:43 上传
+
+不要再污染别人的曲子meme求求了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第几首了
+
