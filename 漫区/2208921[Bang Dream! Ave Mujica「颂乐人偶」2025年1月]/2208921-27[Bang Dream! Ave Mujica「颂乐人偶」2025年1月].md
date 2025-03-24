@@ -17311,3 +17311,27 @@ ex-aid时的高桥悠也
 
 现在这样真的茶爆了
 
+
+*****
+
+####  是谁的书画  
+##### 39916#       发表于 2025-3-24 18:54
+
+我现在就单纯的觉得，她的思考配得上她过去和未来可能会面对的苦难<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  6030sylar  
+##### 39917#       发表于 2025-3-24 18:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">角这跳出来邀功，怕不是老登回去给她发朋友费了，第三季有戏（bushi
+
+*****
+
+####  waaaagh  
+##### 39918#       发表于 2025-3-24 18:56
+
+樱花姨不会开个小号吗？就这b说法，不就是把锅扣在其他staff头上吗？指名道姓都不敢还发个锤子
+

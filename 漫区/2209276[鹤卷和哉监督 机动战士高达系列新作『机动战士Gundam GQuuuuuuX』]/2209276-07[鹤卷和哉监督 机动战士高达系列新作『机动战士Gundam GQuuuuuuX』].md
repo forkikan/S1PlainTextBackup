@@ -5579,3 +5579,23 @@ Ortega[8][9] / Ortiga[10][12]
 <img src="https://p.sda1.dev/22/63aee6c00ba46b882a2241390aaf459b/image.jpg" referrerpolicy="no-referrer">
 [3月23日(日)来場御礼フィナーレ舞台挨拶 オフィシャルレポート | GUNDAM.INFO](https://www.gundam.info/news/video-music/01_16960.html)
 
+
+*****
+
+####  YU_JI  
+##### 9310#       发表于 2025-3-24 18:47
+
+ 本帖最后由 YU_JI 于 2025-3-24 18:49 编辑 
+
+连水口都没磨先组起来过过瘾（水平超渣）
+
+
+*****
+
+####  hosilly  
+##### 9311#       发表于 2025-3-24 18:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">当初跑HK看还是太凯子了
+
+—— 来自 vivo V2284A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
