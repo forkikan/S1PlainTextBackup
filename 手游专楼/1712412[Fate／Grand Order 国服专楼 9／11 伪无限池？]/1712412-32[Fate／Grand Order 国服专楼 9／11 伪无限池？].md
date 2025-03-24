@@ -241,3 +241,11 @@
 
 点完狂阶后就在存星辉等仇阶这边开放了，今天打完剧情马上去点满，结果发现缺一个极星才能把最后几个点了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">之后就要开始点降临者那边
 
+
+*****
+
+####  6030sylar  
+##### 47099#       发表于 2025-3-24 11:57
+
+上周漏了两个周常任务淦
+
