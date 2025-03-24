@@ -1810,3 +1810,41 @@ MyGo第十話一集就包了愛燈素三人餃子，
 
 母鸡卡第0集就成团了，就算中间给Crythic2集（第6第7集），也足够有篇幅。
 
+
+*****
+
+####  钦念以忱  
+##### 40092#       发表于 2025-3-25 01:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67724876&amp;ptid=2208921" target="_blank">Schulze 发表于 2025-3-25 01:11</a>
+
+骂得太脏，破防了</blockquote>
+自作自受呗，邦邦一个轻百企划，既然老登私生女是你讨厌的内容，老老实实把初祥按轻百写，让观众看个明白这就是轻百，不就好了
+
+把初祥写得让武士道英语宣发的员工亲自出来认证gayest，这总不是别人逼你这样写的了吧
+
+*****
+
+####  adretyu67.  
+##### 40093#       发表于 2025-3-25 01:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67724881&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-25 01:16</a>
+
+狗13话鸡1话都写了睦不适应mujica这个乐队，迟早要炸一次团，考虑到中间第7话要C团live，放前面让睦炸是 ...</blockquote>
+其实2-3话回收一次炸团重组是邦tv一贯速度了。
+
+
+*****
+
+####  blackeryuri2  
+##### 40094#       发表于 2025-3-25 01:22
+
+樱花妹还是脸皮子太薄
+
+*****
+
+####  blackeryuri2  
+##### 40095#       发表于 2025-3-25 01:24
+
+我记得脚本团队之一的小川瞳被骂了后好像直接销号跑路了
+
