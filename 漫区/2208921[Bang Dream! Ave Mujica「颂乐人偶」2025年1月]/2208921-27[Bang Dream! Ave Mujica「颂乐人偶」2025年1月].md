@@ -17793,3 +17793,24 @@ ex-aid时的高桥悠也
 无法理解为啥🦄让这么多人疯狂，鸡狗也不是她的出道作啊，前面还有一堆中低分作品呢 ...</blockquote>
 因为独角兽写了不少百合，而22年以前，百合党也很难想象现在国内这么大的声势浩大的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 39959#       发表于 2025-3-24 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67722895&amp;ptid=2208921" target="_blank">野菜一日分 发表于 2025-3-24 19:38</a>
+
+还不是同辈衬托嘛，花田前段时间在评价去年写的集数时候的推文，不也说就像是老手占着新人的工作。独角兽也 ...</blockquote>
+仓田英之的佳作肯定还要推荐一个枪心剑刃<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 39960#       发表于 2025-3-24 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67723227&amp;ptid=2208921" target="_blank">Dr.Wondering 发表于 2025-3-24 20:22</a>
+
+能不能盘点十大和制作组闹矛盾的编剧，冈田斗司夫肯定算一个，这位可是作为创始人直接被宫出gainax了无出其 ...</blockquote>
+福田夫妇可以打包吧，不是这么有个性的夫妇搭档，种命也许会更好（
+
