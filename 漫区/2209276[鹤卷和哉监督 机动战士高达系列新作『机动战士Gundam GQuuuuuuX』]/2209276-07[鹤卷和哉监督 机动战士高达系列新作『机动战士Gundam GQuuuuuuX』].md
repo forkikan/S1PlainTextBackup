@@ -5364,3 +5364,13 @@ Ortega[8][9] / Ortiga[10][12]
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
 
+
+*****
+
+####  岸浪白野  
+##### 9293#       发表于 2025-3-24 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67719829&amp;ptid=2209276" target="_blank">中野梓 发表于 2025-3-24 13:24</a>
+我没记错呀，确实是塞拉杀的，最后2v2，骡子杀盖亚，塞拉杀奥尔迪迦</blockquote>
+好的，看到这截图立刻想起是怎么回事，确实是我忘了，对不起
+
