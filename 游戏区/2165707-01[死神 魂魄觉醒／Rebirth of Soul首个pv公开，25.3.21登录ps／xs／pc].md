@@ -867,3 +867,14 @@ SCE这块真的出过，死神灵魂燃烧，还带官中的
 
 这游戏国内查无此人，在老鼠台还是有不少人播的。所以能否活下来终究还是看欧美宅出多少力。我也贡献了终极版，不过还没玩多少。感觉冲着酷爽可能会有点失望，但这个对战系统我觉得还挺有意思的
 
+
+*****
+
+####  xiongxingyu  
+##### 89#       发表于 2025-3-24 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67718676&amp;ptid=2165707" target="_blank">jimclack 发表于 2025-3-24 10:43</a>
+
+这游戏国内查无此人，在老鼠台还是有不少人播的。所以能否活下来终究还是看欧美宅出多少力。我也贡献了终极 ...</blockquote>
+系统还行，问题是平衡性做得稀烂，我强烈怀疑这帮程序猿没有玩过自己做的东西，强角色一套一管血，各种无限连，弱角色打人刮痧还没法连段，还好制作组对自己做的这一泡还算有点逼数，没有做排位赛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
