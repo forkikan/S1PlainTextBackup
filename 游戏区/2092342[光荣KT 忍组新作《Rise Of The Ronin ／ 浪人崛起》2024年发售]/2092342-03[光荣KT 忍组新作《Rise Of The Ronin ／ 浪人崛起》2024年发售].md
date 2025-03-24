@@ -3138,3 +3138,14 @@ BV19CoBYjErt
 
 等第二章解锁了气焰，野太刀遇事不决就可以开着气焰用怪叫三连斩强行和boss换血，石火真的没必要太过执着
 
+
+*****
+
+####  agsva  
+##### 3707#       发表于 2025-3-24 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67723843&amp;ptid=2092342" target="_blank">手铐君 发表于 2025-3-24 22:03</a>
+
+前期久坂应该是比较难的boss了，那些大个子打熟了以后会发现其实很简单，他们出招都有明显前摇，而且招式 ...</blockquote>
+久坂这机动性真的是太恶心了，那个三连前突躲也不是档也不是，石火又反应不过来。
+

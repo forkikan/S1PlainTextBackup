@@ -594,3 +594,64 @@ I don't care 现在这剧本哪里哪里是谁写的这件事了，反正都已�
 
 当然既然独角兽撞到了群众的枪口，那随意了。
 
+
+*****
+
+####  哈曼的YY  
+##### 40012#       发表于 2025-3-24 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67724150&amp;ptid=2208921" target="_blank">YF29 发表于 2025-3-24 22:52</a>
+
+柿畜比角畜更畜，那和角畜确实又茶又畜又有什么关系呢？只要能比烂，角畜就是好？
+
+作为系构交出来一坨乱 ...</blockquote>
+十本：角色脱离大纲自己动起来了 现在这一坨不就是因为十本搞的双重人格？
+
+系构就是个给监督打工的 监督要发疯她又压不住 想看分镜也没让她看
+
+*****
+
+####  aptx8285144  
+##### 40013#       发表于 2025-3-24 23:03
+
+我觉得很多人还是<strong>低估</strong>了大祥的设定，从go最后两话就几乎定调了大祥的现实性和难以驾驭的168亿（此刻中登的烂醉如泥已经浮现，虽然最终出现是独角兽负责之一的第一话，但是那时就已经基本上是定局了，还有鸡团没有庆功会的那周），哪怕不谈独角兽，<strong>我们甚至要把蚀本，后藤绿等人从go时期就要开始切割哪些是功劳，哪些是锅，那就很可怕了，实际上完美切割是不存在的</strong><img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大户爱  
+##### 40014#       发表于 2025-3-24 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67724188&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-3-24 22:59</a>
+十本：角色脱离大纲自己动起来了 现在这一坨不就是因为十本搞的双重人格？
+
+系构就是个给监督打工的 监督 ...</blockquote>
+标准统一一点也行。监督既然那么重要，系构无足轻重。
+那mygo就是归功于柿本的无上伟作，独角兽就是个打工的。反正之前她也没写出什么好作品来。
+
+可惜柿本晚年不详，还是驾驭不了这个mygo-mujica企划。只是那个打工人，能不能别推特抢戏啊。
+
+
+*****
+
+####  哈曼的YY  
+##### 40015#       发表于 2025-3-24 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67724212&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-3-24 23:04</a>
+
+标准统一一点也行。监督既然那么重要，系构无足轻重。
+
+那mygo就是归功于柿本的无上伟作，独角兽就是个打 ...</blockquote>
+她是被人上推特骂了才回应的 不是自己弄的设定为什么要忍着？
+
+*****
+
+####  aptx8285144  
+##### 40016#       发表于 2025-3-24 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67724212&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-3-24 23:04</a>
+
+标准统一一点也行。监督既然那么重要，系构无足轻重。
+
+那mygo就是归功于柿本的无上伟作，独角兽就是个打 ...</blockquote>
+看我上面指出来的，其实有些人没有意识到，就算不谈独角兽，我们甚至要把蚀本，后藤绿等人从go时期就要开始切割哪些是功劳，哪些是锅，那就很可怕了，实际上完美切割是不存在的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
