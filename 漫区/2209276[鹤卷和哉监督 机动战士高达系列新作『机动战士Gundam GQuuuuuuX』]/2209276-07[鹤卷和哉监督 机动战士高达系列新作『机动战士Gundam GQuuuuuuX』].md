@@ -5657,3 +5657,13 @@ Ortega[8][9] / Ortiga[10][12]
 
 想要特典,有上海观影团的加群途径吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  完美的消费品  
+##### 9318#       发表于 2025-3-24 21:56
+
+预售完全没看见不耽误事的零点场，有点可惜
+
+—— 来自 HONOR FCP-AN10, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+

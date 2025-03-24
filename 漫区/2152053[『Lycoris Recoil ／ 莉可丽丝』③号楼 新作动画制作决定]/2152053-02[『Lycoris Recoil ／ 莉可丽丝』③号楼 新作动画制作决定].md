@@ -729,3 +729,16 @@ mmt见了要叫你去治眼睛</blockquote>
 不是很懂你们给片
 尤里出过泡面吗
 
+
+*****
+
+####  蒜灵  
+##### 2167#       发表于 2025-3-24 21:52
+
+<blockquote>Saber琪 发表于 2025-3-23 12:43
+看了熟肉现在五六话的小动画还没录音
+
+就这产能真能期待小动画结束后立马放出第二季情报嘛我觉得不太可能
+</blockquote>
+现在还没配音？这就不到两个月了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
