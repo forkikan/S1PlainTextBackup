@@ -17427,3 +17427,53 @@ ex-aid时的高桥悠也
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">他不是马上要当Q娃 的脚步了嘛，这女女关系性不是要到位啊
 
+
+*****
+
+####  operatbig  
+##### 39929#       发表于 2025-3-24 19:18
+
+独角兽这推发看着不像成年人。
+
+*****
+
+####  Dr.Wondering  
+##### 39930#       发表于 2025-3-24 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67722731&amp;ptid=2208921" target="_blank">十九号大侠 发表于 2025-3-24 19:17</a>
+
+他不是马上要当Q娃 的脚步了嘛，这女女关系性不是要到位啊</blockquote>
+她近几年还多次当过bg和bl作品脚本甚至系构呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">作为河豚和写bg或bl也不冲突
+
+
+*****
+
+####  Lawliet.L  
+##### 39931#       发表于 2025-3-24 19:26
+
+还是要向大河内学习<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  路人庚  
+##### 39932#       发表于 2025-3-24 19:26
+
+<img src="https://img.saraba1st.com/forum/202503/24/192508pgg1rjxjzag9gkwr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>E8BD1703-5E58-43E7-AD9C-2EE00BB9D561.jpeg</strong> (97.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-24 19:25 上传
+
+大人应该做的.png
+
+（看了看日本人对独角兽如切的评价，感觉还是有一些希望她就这样炎上到接不了活的
+
+*****
+
+####  Dr.Wondering  
+##### 39933#       发表于 2025-3-24 19:28
+
+药屋少女独角兽当了ep08，ep13，ep17，ep21的单集脚本，不过第二季好像没她了，当然第二季质量已经炸了，工期已经算是灾难现场了没了可能算好事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

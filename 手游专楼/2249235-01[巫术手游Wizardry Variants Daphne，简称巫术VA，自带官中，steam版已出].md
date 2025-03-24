@@ -2234,3 +2234,13 @@ staff太屑了，就为了那一小段剧情这破玩意要打三次，三回啊
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">卡要塞7F了 这BOSS 制作组真TM阴暗B啊
 
+
+*****
+
+####  森兰丸  
+##### 190#       发表于 2025-3-24 19:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都说装备要用回避好.....可我看了几个攻略视频要塞最后BOSS的攻击也根本就没见到过有人能闪掉啊
+
+那是不是还是用防御比较好.....反正小怪又无所谓的
+

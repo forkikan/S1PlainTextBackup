@@ -3016,3 +3016,27 @@ https://youtu.be/EB3J8olZi5E?si=7o9_HL54DKoJqi1N
 
 通关+全成就了，真好玩，上一个这么沉迷的还是xb3，350和浪人真是今年上半年预购的最值得的两个游戏
 
+
+*****
+
+####  慕容断月  
+##### 3697#       发表于 2025-3-24 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67719315&amp;ptid=2092342" target="_blank">chan 发表于 2025-3-24 11:57</a>
+
+这游戏真的挺好玩的，可惜技术力有限，而且看起来就充满贫穷的感觉。对马岛英灵殿都玩到一半玩不下去了，就 ...</blockquote>
+这游戏其实探索和成长设计也做得很好，探索成长和战斗的循环能组起来，所以导致停不下来
+
+而这个循环在对马岛和英灵殿里根本没有，这俩玩意几乎没有长期能吸引人继续打下去的强有力的吸引锚，而浪人有（战斗系统和大部分还算有趣的敌人）
+
+
+*****
+
+####  慕容断月  
+##### 3698#       发表于 2025-3-24 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67718792&amp;ptid=2092342" target="_blank">千秋难诉 发表于 2025-3-24 10:57</a>
+
+明天有所谓的优化更新</blockquote>
+呜哇……刚通关，这来得太迟了
+
