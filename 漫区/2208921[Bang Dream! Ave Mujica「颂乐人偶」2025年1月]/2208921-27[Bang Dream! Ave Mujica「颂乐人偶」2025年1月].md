@@ -15712,3 +15712,35 @@ https://tieba.baidu.com/p/9511372750</blockquote>
 
 最后，完成了成长的阵痛，把儿时喜欢的和不喜欢的都接纳下来，成为一个完整的成熟的自己。此时与父母的关系，既不是依附也不是对抗，而是独立了。
 
+
+*****
+
+####  syndrome2032  
+##### 39788#       发表于 2025-3-24 08:29
+
+成长是好事，但是这里是鸡团。
+
+会不会更好我也不知道。
+
+*****
+
+####  Victorino  
+##### 39789#       发表于 2025-3-24 08:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67717077&amp;ptid=2208921" target="_blank">航母掉头 发表于 2025-3-23 22:19</a>
+
+有没可能传奇雇佣兵也是来东京打拼的乡窝宁？
+
+别总觉得传奇雇佣兵也在哎原生家庭 ...</blockquote>
+估计是的吧，不然为什么要独居，市一说她家庭还挺和睦的
+
+*****
+
+####  Victorino  
+##### 39790#       发表于 2025-3-24 08:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67717596&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-24 01:04</a>
+
+。。。。有点正式过头了</blockquote>
+日本人前20年内一直拿邮箱邮件当短信用的，并不是正式，sms在日本没人用
+
