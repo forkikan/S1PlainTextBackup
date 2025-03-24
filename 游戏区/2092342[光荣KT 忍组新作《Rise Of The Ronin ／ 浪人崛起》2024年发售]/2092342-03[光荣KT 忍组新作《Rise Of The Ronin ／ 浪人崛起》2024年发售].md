@@ -3149,3 +3149,14 @@ BV19CoBYjErt
 前期久坂应该是比较难的boss了，那些大个子打熟了以后会发现其实很简单，他们出招都有明显前摇，而且招式 ...</blockquote>
 久坂这机动性真的是太恶心了，那个三连前突躲也不是档也不是，石火又反应不过来。
 
+
+*****
+
+####  cherry__  
+##### 3708#       发表于 2025-3-24 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67724184&amp;ptid=2092342" target="_blank">agsva 发表于 2025-3-24 22:58</a>
+
+久坂这机动性真的是太恶心了，那个三连前突躲也不是档也不是，石火又反应不过来。我后面打道场是用拔刀术 ...</blockquote>
+久坂用野太刀打就是最简单的，怪叫三连全中两次就差不多结束了
+
