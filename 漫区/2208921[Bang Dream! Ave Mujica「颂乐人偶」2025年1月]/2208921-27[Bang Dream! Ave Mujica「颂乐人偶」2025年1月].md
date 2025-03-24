@@ -17088,3 +17088,50 @@ ex-aid时的高桥悠也
 要我 ...</blockquote>
 附议，第七话的烂炒怎么看都是武士道指使的
 
+
+*****
+
+####  ardente  
+##### 39895#       发表于 2025-3-24 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67721808&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-3-24 17:20</a>
+
+无法理解为啥🦄让这么多人疯狂，鸡狗也不是她的出道作啊，前面还有一堆中低分作品呢 ...</blockquote>
+大部分应该是爱吃动漫高手拉的屎，甚至连会去看卖狗都是这个原因<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  K的字母表  
+##### 39896#       发表于 2025-3-24 17:57
+
+【谁是祥卫兵！对比两季中所有角色叫过祥子的次数】 [https://www.bilibili.com/video/B ... 9892f7265262bcac8ec](https://www.bilibili.com/video/BV1u3oBYuEyG/?share_source=copy_web&amp;vd_source=458610ffaf0b29892f7265262bcac8ec)
+
+重力总结大会，恭喜冠军三角初音成为无冕之王，也恭喜若叶睦长期素食获得第二名第三名的好成绩。
+
+*****
+
+####  6030sylar  
+##### 39897#       发表于 2025-3-24 17:57
+
+<img src="https://p.sda1.dev/22/9c5a585253352054819ea501be2539c7/image.jpg" referrerpolicy="no-referrer">导剪版来了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  久井路路  
+##### 39898#       发表于 2025-3-24 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67721965&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-24 17:41</a>
+
+最麻烦的就是黑刀之夜啊，因为家庭原因不能继续玩过家家乐队了，🦄写脚本的狗13话也点出了要打工照顾单独 ...</blockquote>
+其实也好办，可以设计成本来和祥关系好的就只有初华，而不是什么一个可以玩另一个不可以，照老样子最后一天初华生病了，初音本来打算去通知一下，但是看初华不想给祥最后一天的假期留下遗憾，恰好她俩长得一样，就顶替一天。后来初华生的病恶化过世了，初音和初华小时候约好了长大一起去城里当偶像姐妹的，现在只剩自己一个人，初音就想要连妹妹的份一起出道，于是高中来到东京并且起了个艺名“三角初华”，户籍上还是初音，学校里实际上也该是叫初音的，但是因为初华偶像出道后爆火，粉丝很多，所以大家都喜欢叫她初华大人，海铃和立希这些不太care偶像的本来也都只叫她的姓，于是一个背负妹妹的名字而活的姐姐形象就这么完成了。
+
+
+*****
+
+####  久井路路  
+##### 39899#       发表于 2025-3-24 18:01
+
+然后其实一开始并不是初音本人喜欢祥，而是她认为自己带上妹妹的份一起活就要继承妹妹的意志，去当妹妹喜欢的人的友方，然后这之后再想办法让她对祥产生属于自己的感情就行了
+

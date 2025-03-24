@@ -5547,3 +5547,14 @@ Ortega[8][9] / Ortiga[10][12]
 恩，主要是79原作里面在勇士出来前一段时间，09R得到大规模量产，有的前线部队，整船全是09R，所罗门战役 ...</blockquote>
 紫色老太婆说了，主力都去打月神二号。所以留守月面都市只剩最低限度的兵力，突击所罗门只能有啥派啥。而且自护已经全面转生产线了，09R产量缩小不奇怪。
 
+
+*****
+
+####  NBGI  
+##### 9307#       发表于 2025-3-24 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67721747&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-3-24 17:14</a>
+
+要下小红书参加观影团才能拿到特典吗</blockquote>
+特典是发到观影团组织方的，倒时要验截图领票时一起发
+
