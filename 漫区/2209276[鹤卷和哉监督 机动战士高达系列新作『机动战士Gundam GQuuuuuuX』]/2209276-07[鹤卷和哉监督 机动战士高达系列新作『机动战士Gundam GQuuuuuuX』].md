@@ -5474,3 +5474,14 @@ Ortega[8][9] / Ortiga[10][12]
 每个城市都有类似的观影团，去小红书搜电影名加本地观影团就能搜到，跟团买票就行了 ...</blockquote>
 明白了，谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 9300#       发表于 2025-3-24 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67720736&amp;ptid=2209276" target="_blank">sliver1997 发表于 2025-3-24 15:16</a>
+
+观影团是什么？要参加这些团的活动才有吗</blockquote>
+组织人员一起观影，楼友前面说过在小红书上挺容易找
+
