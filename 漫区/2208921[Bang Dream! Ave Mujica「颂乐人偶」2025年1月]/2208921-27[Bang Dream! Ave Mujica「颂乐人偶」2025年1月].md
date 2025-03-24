@@ -17477,3 +17477,28 @@ ex-aid时的高桥悠也
 
 药屋少女独角兽当了ep08，ep13，ep17，ep21的单集脚本，不过第二季好像没她了，当然第二季质量已经炸了，工期已经算是灾难现场了没了可能算好事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 39934#       发表于 2025-3-24 19:35
+
+[https://www.bilibili.com/video/BV1XH6aYJEhu/](https://www.bilibili.com/video/BV1XH6aYJEhu/)
+
+<img src="https://img.saraba1st.com/forum/202503/24/193414bd89nz6h6tt65b8u.png" referrerpolicy="no-referrer">
+
+<strong>U@`[$QDNDHOOYCPVDMW5~6X.png</strong> (324.93 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-24 19:34 上传
+
+这消极营业终于推到我首页了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">这臭脸这美味
+
+*****
+
+####  野菜一日分  
+##### 39935#       发表于 2025-3-24 19:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还不是同辈衬托嘛，花田前段时间在评价去年写的集数时候的推文，不也说就像是老手占着新人的工作。独角兽也快40的人了，同年龄的时候她喜欢的仓田英之和大河内，前者已经拿出过《此时此刻的我》、《Brigadoon》、《读或死》、《神是中学生》这些风格各异的优秀作品了，后者起步晚也快从《返乡战士》到鲁鲁修了。而独角兽在🐕火爆⏰之前根本没什么人提及。
+
