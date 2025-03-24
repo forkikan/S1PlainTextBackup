@@ -59,3 +59,35 @@
 
 其实问题的核心还是，五个神人加上外部没有明确的敌人（丰川的大手就是一个一会儿当空气一会儿被拿来说事，然而除了中登外都是自己折腾自己，酒店的内鬼假药全部破产）这两大核心如果不动，想写好太难了，<strong>因为这两个设定决定了很容易不停的内讧且没人调节内部气氛</strong>（而且不要忘记，你这个片场掀不了桌子，人家少女歌剧起码还能去舞台上干一架，满月之战更不用说了），就算不是双重人格，也容易出现别的破事反复折腾（和音乐无关的破事），大祥的性格问题早在go时期就有露出危险的征兆了，蚀本和独角兽总不敢切割这点吧<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大户爱  
+##### 39966#       发表于 2025-3-24 21:00
+
+啊，独角兽切割也好，甩锅也好，大抵在预料之中。真怎么分锅，怎么也不得而知。
+
+神人楼真是无敌了，他们都觉得独角兽在串，是绝地翻盘前憋不住的坏笑，和wsd的切割也是假的，是铺垫了一年的酝酿，为了就是此刻瞒天过海的诡计。
+
+真是无敌了，感觉活在平行世界。什么传销邪教，之前都和现实有点距离，现在看到活生生的实例，真是别有一番感触。
+
+*****
+
+####  adretyu67.  
+##### 39967#       发表于 2025-3-24 21:01
+
+就只剩一个fan service性质的live回了也能翻盘吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 39968#       发表于 2025-3-24 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67723484&amp;ptid=2208921" target="_blank">大户爱 发表于 2025-3-24 21:00</a>
+
+啊，独角兽切割也好，甩锅也好，大抵在预料之中。真怎么分锅，怎么也不得而知。
+
+神人楼真是无敌了，他们都 ...</blockquote>
+绝地翻盘是啥，还有让12追1的想法吗<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

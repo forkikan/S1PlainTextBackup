@@ -2260,3 +2260,21 @@ staff太屑了，就为了那一小段剧情这破玩意要打三次，三回啊
 
 第三章的三层的人马多少练度才能过<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  茄子自走炮  
+##### 193#       发表于 2025-3-24 21:00
+
+ 本帖最后由 茄子自走炮 于 2025-3-24 21:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67723247&amp;ptid=2249235" target="_blank">toblkr 发表于 2025-3-24 20:25</a>
+
+第三章的三层的人马多少练度才能过</blockquote>
+正常打到这里的练度就能过了
+
+前排闪避堆到130以上 防即死 物理职业有破魔武器正常打就行 僧侣带商店卖的神罚卷轴
+
+注意下半血狂暴加速  前排的闪避buff 法师的减速debuff 都别断 打之前先把小怪清了 回泉水恢复再来打boss
+
+另外 封魔是能起作用的 觉得法术威胁大可以上
+

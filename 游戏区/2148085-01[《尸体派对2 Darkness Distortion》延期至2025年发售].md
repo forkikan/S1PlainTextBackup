@@ -560,3 +560,14 @@ x的 我的侦探绅士完结篇呢？ 为什么就这么没了？<img src="http
 
 这个游戏是不是被叔叔ban了，睿站上搜不出来
 
+
+*****
+
+####  灵魂收割机  
+##### 55#       发表于 2025-3-24 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67723260&amp;ptid=2148085" target="_blank">Esoterica 发表于 2025-3-24 20:27</a>
+
+这个游戏是不是被叔叔ban了，睿站上搜不出来</blockquote>
+“尸体派对”不给结果，但是“尸体派”“体派对”“尸体排队”“尸体派队”“屍体派对”……都行<img src="https://static.saraba1st.com/image/smiley/carton2017/482.png" referrerpolicy="no-referrer">
+
