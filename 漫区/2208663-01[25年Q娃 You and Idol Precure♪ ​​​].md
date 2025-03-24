@@ -273,3 +273,11 @@ ss和水果没有上可以说声优没了
 田中感觉好宠噗莉伦啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 77和心的大招感觉有点素，如果增加一些舞台特效会好一点吧。不知道之后3人合体大招是怎样的
 
+
+*****
+
+####  华发夜眼[CN]  
+##### 762#       发表于 2025-3-24 23:45
+
+我以为会紫毛会叫个cure dancer啥的，cure qq也太拗口了
+
