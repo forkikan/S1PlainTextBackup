@@ -16485,3 +16485,129 @@ Mujica播到现在，也没明确揭晓过go第八话为何祥子对Soyo说这�
 素食自己的打算 ...</blockquote>
 大哥，都25年了，你不会觉得大祥是因为在意爱音和猫猫或者说有两个人而拒绝素世的吧?重点明显是你怎么背负起别人的人生，而且编辑们写了两次大祥在街头哭泣的镜头，强调黑刀之夜与此相关的意义非常明显，大祥的拒绝主要原因只会是自己的难处，而现在用我的权力是无限的，实际上变相解构了黑刀之夜的艰难性与街头哭泣的悲伤性，正如隔壁有人感慨那样很多关键时刻变成了虚无的味道<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  野菜一日分  
+##### 39850#       发表于 2025-3-24 16:38
+
+切老登有啥用，幕后都闹成这样了12话她还要挂名，说明这场初音顶掉初华跟祥子搞CP这条线就是她无论如何都不愿切割的东西，虽然十本的点子也是一等一的恶心，独角兽又哪有脸说别人呢
+
+*****
+
+####  哈曼的YY  
+##### 39851#       发表于 2025-3-24 16:40
+
+把十本的大粪都忘掉挺好的 反正也救不回来 放个白魔法保初祥拉倒
+
+*****
+
+####  指南アキラ  
+##### 39852#       发表于 2025-3-24 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67717423&amp;ptid=2208921" target="_blank">pure_liquid 发表于 2025-3-23 23:58</a>
+
+那为啥打不赢素世？</blockquote>
+因为祥子在让着Soyo，仅凭躺着把爽世推翻150°，真动手就不太可能输<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/202503/01/201503gr8i7t38txnw4vgt.gif" referrerpolicy="no-referrer">
+[32016L](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=2208921&amp;pid=67551945)
+
+*****
+
+####  Onelooker  
+##### 39853#       发表于 2025-3-24 16:41
+
+∠÷和∠厨确实是母鸡卡最难理解的一环，有事缩卵，无事邀功
+
+*****
+
+####  6030sylar  
+##### 39854#       发表于 2025-3-24 16:41
+
+<img src="https://p.sda1.dev/22/2cce4aa22721a43242d1014b629114f6/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  黑猫桑  
+##### 39855#       发表于 2025-3-24 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67721320&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-24 16:34</a>
+大哥，都25年了，你不会觉得大祥是因为在意爱音和猫猫或者说有两个人而拒绝素世的吧?重点明显是你怎么背负 ...</blockquote>
+大哥你能理解成这样？
+祥子眼里要拉她，爱猫就不该存在ok
+
+*****
+
+####  ads147147  
+##### 39856#       发表于 2025-3-24 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67721380&amp;ptid=2208921" target="_blank">指南アキラ 发表于 2025-3-24 16:40</a>
+
+因为祥子在让着Soyo，仅凭躺着把爽世推翻150°，真动手就不太可能输
+
+32016L ...</blockquote>
+祥子这个核心力量真的厉害，完全靠腹部卷上去的力量把一个差不多至少30,40kg的东西从下往上推走。。。
+
+
+*****
+
+####  ads147147  
+##### 39857#       发表于 2025-3-24 16:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">说点难听的，就是编剧这个行当才适合做灵活邀功的，作品表现的不好拿就是导演改我剧本，表现得好就是编剧发挥nb，外人完全没法探究制作现场到底是怎么回事，如果采访大家再避而不谈，就可以完美切割拉。
+
+*****
+
+####  路人庚  
+##### 39858#       发表于 2025-3-24 16:45
+
+发给deepseek研究了一下，它说这三段推文反映了作者主观想切，但客观切不了的矛盾，试图通过强调职业完成度转移批评焦点（）
+
+草生
+
+*****
+
+####  哈曼的YY  
+##### 39859#       发表于 2025-3-24 16:45
+
+邀功的不是在杂志上大吹特吹的十本？
+
+*****
+
+####  operatbig  
+##### 39860#       发表于 2025-3-24 16:46
+
+柿本是技术和剧情上出问题，但是构建角色关系的张力和深度碾压大角没什么问题，光是一句“组乐队就一定要幸福吗？”就爆杀大角了，柿本不介意塑造让角色陷入痛苦的关系性，反观第12话用白魔法把所有角色冲洗了一遍的大角，水平差距可见一斑。
+
+*****
+
+####  南宮凝香  
+##### 39861#       发表于 2025-3-24 16:46
+
+<blockquote>金钱与民主 发表于 2025-3-24 15:50
+Mujica播到现在，也没明确揭晓过go第八话为何祥子对Soyo说这么狠的话，反而显得祥子这人对Soyo特别混账。 ...</blockquote>
+嚴格來說那是素祥糖，
+
+大祥是近戰英雄，
+
+離她越近傷害越高
+
+你看半身就被她活活肘死了
+
+外人像喵夢大祥就不願意肘了
+
+為什麼飛鳥山大祥這麼狠？
+
+一定是因素祥關係近
+
+*****
+
+####  黑猫桑  
+##### 39862#       发表于 2025-3-24 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67721233&amp;ptid=2208921" target="_blank">金钱与民主 发表于 2025-3-24 16:19</a>
+哥们现在是25年不是23年，吵了两年了还以为祥子在上帝视角呢？整得她好像是在给爱猫二人鸣不平一样，Muji ...</blockquote>
+没上帝视角又怎样，c团没爱猫这就是重点，带个爱猫恶心谁？
+
