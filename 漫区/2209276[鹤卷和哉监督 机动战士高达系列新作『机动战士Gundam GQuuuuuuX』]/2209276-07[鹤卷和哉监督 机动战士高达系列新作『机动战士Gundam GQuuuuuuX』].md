@@ -5000,3 +5000,21 @@ https://youtu.be/hrk9q27qcWQ
 <img src="https://p.sda1.dev/22/2ace24047d97fabe29d0555b9dbc6cc4/image.jpg" referrerpolicy="no-referrer">
 上面Qu，下面uuX。应该会有另外两人的图拼起来
 
+
+*****
+
+####  Toby_dak  
+##### 9267#       发表于 2025-3-24 10:28
+
+<blockquote>真爱与热情 发表于 2025-3-24 10:26
+只有13集，估计之后要出剧场版狠狠圈钱了。
+
+还没有看先行版，怎么看着就是一股要凉的气息。希望不要成为反 ...</blockquote>
+TOP
+
+TOP2
+
+FLCL
+
+都是6话每话30分钟，所以宅社这三部是凉透了吧？
+
