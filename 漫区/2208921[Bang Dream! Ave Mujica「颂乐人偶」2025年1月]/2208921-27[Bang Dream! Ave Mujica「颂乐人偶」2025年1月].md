@@ -16099,3 +16099,36 @@ CP 方面柿角二聖基本上在瘋狂肘擊
 这个不知道楼里有没有人发过，P站的cp二创数目。
 <img src="https://p.sda1.dev/22/11179eb41dcb5fc09f3678f4430fbc23/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adretyu67.  
+##### 39818#       发表于 2025-3-24 15:06
+
+老登主要工作就4项吧
+
+搞出私生女初音，赶中登出家门，给鸡1.0擦屁股，拆鸡2.0。
+
+*****
+
+####  一心而用  
+##### 39819#       发表于 2025-3-24 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67717375&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-3-23 23:46</a>
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+<img src="https://p.sda1.dev/22/73cfecabe219af1106142eab213cc03a/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/0054c7e638b9ed0c2737eb6dbb6ffb7c/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/4e58496677df61ef823ce06b00b68721/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/f3ce6ae6887cb55838d9684e6192580e/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/53abe69efa996565a11757b9d90fb5a4/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  故障机器人  
+##### 39820#       发表于 2025-3-24 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67720596&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-3-24 15:02</a>
+目前独角兽最能切割的还是双重人格吧，今天这推意思是和老登相关的也切割？或者至少意思是不背老登相关的大 ...</blockquote>
+双重人格是柿本加的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前访谈不也提了
+本来都写完三集脚本慢慢铺垫的祥子过去，因为柿本加设定推翻重来压缩到了一集里
+

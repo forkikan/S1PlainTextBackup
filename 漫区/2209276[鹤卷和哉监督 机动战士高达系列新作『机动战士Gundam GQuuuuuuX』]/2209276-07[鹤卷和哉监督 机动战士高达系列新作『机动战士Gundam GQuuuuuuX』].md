@@ -5383,3 +5383,45 @@ Ortega[8][9] / Ortiga[10][12]
 观影团的官方特典已经更新不止海报了
 <img src="https://p.sda1.dev/22/e249cdc06891737fa354f0eace543725/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Steel.Haze  
+##### 9295#       发表于 2025-3-24 15:05
+
+<img src="https://img.saraba1st.com/forum/202503/24/145302no0uukxuxluu04w4.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (237.44 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-24 14:53 上传
+
+<img src="https://img.saraba1st.com/forum/202503/24/145322rgjotjygbrojjggr.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (140.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-24 14:53 上传
+
+又看了一下，GQX的大魔非常像哈曼那个专用大魔的动力结构。（哈曼大魔那个大背包不是放浮游炮的，Bit有个机体外的飞行仓搭载，那个背包是放精神力遥控放大设备和因为增重而添加的动力装置）
+
+<img src="https://img.saraba1st.com/forum/202503/24/150158swp42ho3oyk3mhko.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (143.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-24 15:01 上传
+
+<img src="https://img.saraba1st.com/forum/202503/24/150249e9fqm4s6d9aos2fq.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (135.16 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-24 15:02 上传
+
+另外部分镜头可以看到，此次大魔的后裙非常大，有一个可动转轴连接，然后后裙靠近身体一还挂了两个独立的火箭动力单元。等于GQX的大魔有六个动力模块，至少一台主引擎和三台子引擎。这成本我估计高的吓人。所以这剧中的大魔比79的更稀罕，几乎是队长专用机特殊存在。
+
