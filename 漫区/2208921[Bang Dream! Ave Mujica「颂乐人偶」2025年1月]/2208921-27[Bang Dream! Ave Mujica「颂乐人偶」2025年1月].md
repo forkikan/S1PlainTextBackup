@@ -16932,3 +16932,74 @@ d指导分析问题太全面了，无疑是把樱花姨底裤都扒干净了（�
 柿本是技术和剧情上出问题，但是构建角色关系的张力和深度碾压大角没什么问题，光是一句“组乐队就一定要幸 ...</blockquote>
 你在逗我？
 
+
+*****
+
+####  adretyu67.  
+##### 39881#       发表于 2025-3-24 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67721826&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-24 17:21</a>
+
+所以🦄切割掉了祥爷的私生女，那初祥和丰川家的主线剧情该怎么编？双子看起来没切割，这个双子大概原本就是 ...</blockquote>
+就鸡1.0爆炸麻烦点，只靠女高中生的背景收拾不了鸡1.0作为商业乐队爆炸的烂摊子。
+
+双子顶替和追初华好办。
+
+*****
+
+####  野菜一日分  
+##### 39882#       发表于 2025-3-24 17:29
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">现在有表达欲的编剧太少，其中河豚更少，自然追捧者嗓门就大。但就事论事，她在女高中生当地偶还有sidem等片场还是表现出了很不错的水平的，邦的工作也是可圈可点。抛开xp，实力确实可以。但到现在从没有什么属于自己的原创作品，三次跟片场的监督闹翻，上限也就这样了。
+
+—— 来自 Xiaomi 2407FRK8EC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  cqc1021  
+##### 39883#       发表于 2025-3-24 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67721808&amp;ptid=2208921" target="_blank">阿兹尔 发表于 2025-3-24 17:20</a>
+无法理解为啥🦄让这么多人疯狂，鸡狗也不是她的出道作啊，前面还有一堆中低分作品呢 ...</blockquote>
+ex-aid时的高桥悠也
+01前期的高桥悠也
+01商战篇之后的高桥悠也←🦄在这个位置
+极狐时的高桥悠也
+
+—— 来自 samsung SM-N9860, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  Versedust  
+##### 39884#       发表于 2025-3-24 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67721570&amp;ptid=2208921" target="_blank">路人庚 发表于 2025-3-24 16:57</a>
+又发了一句</blockquote>
+用go把人骗进来杀，哈基角......
+
+*****
+
+####  滑稽Captain  
+##### 39885#       发表于 2025-3-24 17:31
+
+理性讨论，切割掉私生女和老登，只留下双子冒名顶替最后暴露的主轴，先不提中登的破产酗酒的锅没地方丢了，按照目前12集的初祥关系，初音对冒名顶替的罪恶感和祥子对初音的接受多少算是核心吧，那在不存在私生女的禁忌关系的情况下，小时候岛上为什么会出现姐妹顶替，初音为什么要嫉妒妹妹盗名追祥，这该怎么创造理由呢
+
+
+*****
+
+####  路人庚  
+##### 39886#       发表于 2025-3-24 17:32
+
+鸡1.0解散改成暂时中止，这样违约金会少点，违约金让大祥老师自己扛着往后拖，至少这样也给了一个必须要继续组母鸡卡的理由（反正现在本篇里1.0到2.0中间也没隔两个月，违约金拖个把月在商业上都不是事
+
+*****
+
+####  6030sylar  
+##### 39887#       发表于 2025-3-24 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67721826&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-3-24 17:21</a>
+所以🦄切割掉了祥爷的私生女，那初祥和丰川家的主线剧情该怎么编？双子看起来没切割，这个双子大概原本就是 ...</blockquote>
+初华这间谍青梅不就是娅娅卡，结合狗时期独角兽那么嗑睦祥，怕不是小姨设定原本是睦的，做到鸡的时候改剧本了，只能整合到初华身上
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
