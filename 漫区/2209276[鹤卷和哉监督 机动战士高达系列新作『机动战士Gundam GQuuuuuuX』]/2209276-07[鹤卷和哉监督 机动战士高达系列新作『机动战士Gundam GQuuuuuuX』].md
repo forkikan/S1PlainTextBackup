@@ -5485,3 +5485,14 @@ Ortega[8][9] / Ortiga[10][12]
 观影团是什么？要参加这些团的活动才有吗</blockquote>
 组织人员一起观影，楼友前面说过在小红书上挺容易找
 
+
+*****
+
+####  岸浪白野  
+##### 9301#       发表于 2025-3-24 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67720625&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-3-24 15:05</a>
+又看了一下，GQX的大魔非常像哈曼那个专用大魔的动力结构。（哈曼大魔那个大背包不是放浮游炮的，Bit有个 ...</blockquote>
+设计的背后推进器粗壮轮廓太像腿了昨天也在被日本人开玩笑，我虽然是感觉不至于的
+以夏利亚开的也是蓝色的大魔，大魔会是少部分的队长限定机是很可能的
+
