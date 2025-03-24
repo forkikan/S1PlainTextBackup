@@ -3116,3 +3116,25 @@ BV19CoBYjErt
 
 忍住摆烂不做DLC改善战斗，只有看玩家自己动手了
 
+
+*****
+
+####  cherry__  
+##### 3705#       发表于 2025-3-24 22:18
+
+喷了，50小时才发现点了回避中开枪的技能后可以枪反，这个机制是一点也没提到啊
+
+*****
+
+####  cherry__  
+##### 3706#       发表于 2025-3-24 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67723821&amp;ptid=2092342" target="_blank">agsva 发表于 2025-3-24 22:00</a>
+
+一开始是硬拼，但感觉不石火的话近不了身啊，有些牲口连招带连招不停的，第一次在据点碰到那个不知火就被 ...</blockquote>
+我就是石火成功率很低玩了50小时还觉得很好玩的人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+我的打法就是要么玩长枪薙刀这种比对面长还有位移的武器，要么玩野太刀这种只要砍中就能和Boss换血的武器
+
+等第二章解锁了气焰，野太刀遇事不决就可以开着气焰用怪叫三连斩强行和boss换血，石火真的没必要太过执着
+

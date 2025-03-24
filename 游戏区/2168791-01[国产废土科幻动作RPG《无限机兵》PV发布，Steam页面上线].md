@@ -1255,3 +1255,15 @@ Bleak Faith: Forsaken
 
 这价格确实不错，支持一个首发好了
 
+
+*****
+
+####  whzfjd  
+##### 133#       发表于 2025-3-24 22:20
+
+ 本帖最后由 whzfjd 于 2025-3-24 22:24 编辑 
+
+感觉主角还是太搓了点，你像小魔女诺贝塔场景没有这个好，但就是买的心安理得<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+不知道 npc 和 boss 们怎么样，看到是有点人样，但也不多
+
