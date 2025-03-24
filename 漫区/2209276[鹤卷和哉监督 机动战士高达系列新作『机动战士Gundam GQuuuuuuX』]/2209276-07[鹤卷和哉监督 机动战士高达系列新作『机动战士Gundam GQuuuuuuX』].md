@@ -5529,3 +5529,11 @@ Ortega[8][9] / Ortiga[10][12]
 [X 上的 機動戦士Gundam GQuuuuuuX（ジークアクス）：“◤大ヒット御礼◢ 公開から66日間の興行成績が到着！ ────────── 興行収入：32.9億円 観客動員：200万人 ────────── 動員数が200万人を突破しました！ [url]https://t.co/C4L84T8Dkj](https://x.com/G_GQuuuuuuX/status/1904095886134948052)” / X[/url]
 <img src="https://p.sda1.dev/22/8ab6a9b1f653e619e651085c6916b27c/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sliurus  
+##### 9305#       发表于 2025-3-24 17:14
+
+要下小红书参加观影团才能拿到特典吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

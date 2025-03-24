@@ -2214,3 +2214,23 @@ staff太屑了，就为了那一小段剧情这破玩意要打三次，三回啊
 
 活动图刷代币，摸完两层楼的箱子就回去开房，几轮下来终于把王女身上的老泥洗干净了
 
+
+*****
+
+####  macshi  
+##### 188#       发表于 2025-3-24 17:12
+
+明明同一化那边模型皮肤都不给随便换，
+
+结果黛博拉好感任务直接脱衣服送一套新皮，金发兽耳妹好起来了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+（但是也不给切换原皮）。
+
+
+*****
+
+####  一之江瑞江  
+##### 189#       发表于 2025-3-24 17:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">卡要塞7F了 这BOSS 制作组真TM阴暗B啊
+
