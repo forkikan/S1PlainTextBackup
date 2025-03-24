@@ -3056,3 +3056,15 @@ https://youtu.be/EB3J8olZi5E?si=7o9_HL54DKoJqi1N
 
 二十多个小时还在第一章，选的黄昏难度，感觉难度有点不平衡啊，小兵和一些副本BOSS还行，部分有头有脸的BOSS就开始上难度了，久坂打了两次，一次是道场一次是救哈里斯，中年人反应慢，那套连段根本挡不过来。另外那些大体型BOSS（相扑手，大只佬版不知火幻庵，斧头手）也是不知道怎么处理，感觉很不好弹，而且精力长的要死几套连段不带停，还能连段红光连段红光这样的。
 
+
+*****
+
+####  cherry__  
+##### 3701#       发表于 2025-3-24 21:42
+
+ 本帖最后由 cherry__ 于 2025-3-24 21:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67723675&amp;ptid=2092342" target="_blank">agsva 发表于 2025-3-24 21:34</a>
+
+二十多个小时还在第一章，选的黄昏难度，感觉难度有点不平衡啊，小兵和一些副本BOSS还行，部分有头有脸的BO ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">别被这些人弹完再打一套的思路影响了，不石火这个游戏也是能玩的，就是打的丑陋一点罢了
+
