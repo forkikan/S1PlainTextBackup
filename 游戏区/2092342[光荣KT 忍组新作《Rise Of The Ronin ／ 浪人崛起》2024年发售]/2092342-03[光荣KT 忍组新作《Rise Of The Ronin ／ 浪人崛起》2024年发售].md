@@ -3068,3 +3068,27 @@ https://youtu.be/EB3J8olZi5E?si=7o9_HL54DKoJqi1N
 二十多个小时还在第一章，选的黄昏难度，感觉难度有点不平衡啊，小兵和一些副本BOSS还行，部分有头有脸的BO ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">别被这些人弹完再打一套的思路影响了，不石火这个游戏也是能玩的，就是打的丑陋一点罢了
 
+
+*****
+
+####  agsva  
+##### 3702#       发表于 2025-3-24 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67723720&amp;ptid=2092342" target="_blank">cherry__ 发表于 2025-3-24 21:42</a>
+
+别被这些人弹完再打一套的思路影响了，不石火这个游戏也是能玩的，就是打的丑陋一点罢了 ...</blockquote>
+一开始是硬拼，但感觉不石火的话近不了身啊，有些牲口连招带连招不停的，第一次在据点碰到那个不知火就被教育了，后来是脱战暗杀干掉的。
+
+现在我的打法是按着挡然后石火，石火判断错了后面至少还能挡几下，就是连段多的话精力不够用。
+
+
+*****
+
+####  手铐君  
+##### 3703#       发表于 2025-3-24 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67723675&amp;ptid=2092342" target="_blank">agsva 发表于 2025-3-24 21:34</a>
+
+二十多个小时还在第一章，选的黄昏难度，感觉难度有点不平衡啊，小兵和一些副本BOSS还行，部分有头有脸的BO ...</blockquote>
+前期久坂应该是比较难的boss了，那些大个子打熟了以后会发现其实很简单，他们出招都有明显前摇，而且招式比较固定，掌握好节奏石火还算容易，相对难的就是爪子<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我基本只能石火红光
+

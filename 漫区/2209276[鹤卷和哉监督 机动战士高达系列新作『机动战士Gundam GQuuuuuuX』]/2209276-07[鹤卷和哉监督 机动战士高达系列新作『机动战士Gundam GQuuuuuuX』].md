@@ -5667,3 +5667,21 @@ Ortega[8][9] / Ortiga[10][12]
 
 —— 来自 HONOR FCP-AN10, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  kuriri  
+##### 9319#       发表于 2025-3-24 22:02
+
+<blockquote>NaughtyFish 发表于 2025-3-24 21:25
+想要特典,有上海观影团的加群途径吗</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202503/24/220246mebpk5ezeblku6eu.png" referrerpolicy="no-referrer">
+
+<strong>IMG_0168.png</strong> (174.89 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-3-24 22:02 上传
+
