@@ -5721,3 +5721,16 @@ Ortega[8][9] / Ortiga[10][12]
 
 如果这都觉得尴尬的话，那岂不是任何人多的地方都不能去了？
 
+
+*****
+
+####  七七見奈波  
+##### 9323#       发表于 2025-3-24 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67723958&amp;ptid=2209276" target="_blank">DataLore 发表于 2025-3-24 22:20</a>
+
+合影是整个影厅的大合照，而且全是举着海报挡脸，根本没可能看清谁是谁。
+
+如果这都觉得尴尬的话，那岂不 ...</blockquote>
+不瞒您说，确实能不去就不去，之前部门组织看芭比，我没去同事去了，回来说合影阶段缩椅子后面去了，公司团建开年终大party所有合影环节我都逃了，前些年还拒掉了一次升职机会因为变成TL就必须得每年给客户发贺年卡附上TL的照片，这世界上是真的有能不集体活动就不集体活动、能不拍照就不拍照的人的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
