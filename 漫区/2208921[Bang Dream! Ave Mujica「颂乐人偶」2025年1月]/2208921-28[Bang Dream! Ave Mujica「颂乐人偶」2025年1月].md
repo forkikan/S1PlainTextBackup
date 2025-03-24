@@ -1857,3 +1857,14 @@ MyGo第十話一集就包了愛燈素三人餃子，
 看了下怎么是木箱uu，不去骂把睦整成难以名状的精神病的柿本骂🦄也是逆天
 <img src="https://p.sda1.dev/22/2590ef73867142a84bae0b4a43181370/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  舞野咲  
+##### 40097#       发表于 2025-3-25 01:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67724501&amp;ptid=2208921" target="_blank">玖羽 发表于 2025-3-24 23:46</a>
+
+转贴，我不完全同意，但值得一看</blockquote>
+草讨论这种乱七八糟的动画不要cue一口Q娃显得自己婆罗门好吗。。。乱说一气
+
