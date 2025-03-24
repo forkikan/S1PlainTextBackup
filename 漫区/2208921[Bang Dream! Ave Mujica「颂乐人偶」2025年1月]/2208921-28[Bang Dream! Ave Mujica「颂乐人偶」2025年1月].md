@@ -1775,3 +1775,38 @@ MyGo第十話一集就包了愛燈素三人餃子，
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Schulze  
+##### 40090#       发表于 2025-3-25 01:11
+
+骂得太脏，破防了
+
+<img src="https://img.saraba1st.com/forum/202503/25/011043t0yx4yevplvnyi0y.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot from 2025-03-25 01-09-45.png</strong> (152.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-25 01:10 上传
+
+
+*****
+
+####  钦念以忱  
+##### 40091#       发表于 2025-3-25 01:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67724782&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-25 00:43</a>
+
+双重人格肯定得删，炸团原因当然也得换。
+
+另外睦其实有个很神奇的底层设定，她练的是七弦吉他，某种意义 ...</blockquote>
+狗13话鸡1话都写了睦不适应mujica这个乐队，迟早要炸一次团，考虑到中间第7话要C团live，放前面让睦炸是比较合适的，这个剧情，有没有双重人格影响恐怕不会太大
+
+现在也一般认为，到第7集为止双重人格都太好用了，而8、9两集进一步深入描写双重人格且10话就要收尾，才是写太烂了。
+
+其实母鸡卡篇幅完全是够用的，mygo也是2次炸团，1次素世级，花了8-10共三集解决，1次爱音不会吉他级，当集就快速解决了。
+
+母鸡卡第0集就成团了，就算中间给Crythic2集（第6第7集），也足够有篇幅。
+
