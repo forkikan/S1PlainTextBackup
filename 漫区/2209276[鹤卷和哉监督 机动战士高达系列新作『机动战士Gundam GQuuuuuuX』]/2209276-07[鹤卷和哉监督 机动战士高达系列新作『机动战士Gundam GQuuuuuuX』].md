@@ -5328,3 +5328,21 @@ FLCL
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
 
+
+*****
+
+####  中野梓  
+##### 9291#       发表于 2025-3-24 13:24
+
+<blockquote>岸浪白野 发表于 2025-3-24 01:13
+剧场版哪有，你记错了</blockquote>
+我没记错呀，确实是塞拉杀的，最后2v2，骡子杀盖亚，塞拉杀奥尔迪迦
+
+<img src="https://img.saraba1st.com/forum/202503/24/132439n7s7qkiww767n7ss.png" referrerpolicy="no-referrer">
+
+<strong>IMG_1254.png</strong> (304.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-24 13:24 上传
+

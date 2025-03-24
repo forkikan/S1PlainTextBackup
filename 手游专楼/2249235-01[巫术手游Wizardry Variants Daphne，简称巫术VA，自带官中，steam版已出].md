@@ -2159,3 +2159,16 @@ staff太屑了，就为了那一小段剧情这破玩意要打三次，三回啊
 
 考虑到怪物强度也上去了感觉效率可能不如30级。因为30级我也是拿的钢级装备，开的点数也没少多少，到了40装备也没什么大的提升怪还变硬了。
 
+
+*****
+
+####  棍机凹升龙  
+##### 183#       发表于 2025-3-24 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67719417&amp;ptid=2249235" target="_blank">macshi 发表于 2025-3-24 12:10</a>
+
+点数在50+~160+吧，大部分时间在100以上。
+
+考虑到怪物强度也上去了感觉效率可能不如30级。因为30级我也是 ...</blockquote>
+那看来开30还是有点必要，我还在打二周目全员生还<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
