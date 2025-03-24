@@ -5425,3 +5425,52 @@ Ortega[8][9] / Ortiga[10][12]
 
 另外部分镜头可以看到，此次大魔的后裙非常大，有一个可动转轴连接，然后后裙靠近身体一还挂了两个独立的火箭动力单元。等于GQX的大魔有六个动力模块，至少一台主引擎和三台子引擎。这成本我估计高的吓人。所以这剧中的大魔比79的更稀罕，几乎是队长专用机特殊存在。
 
+
+*****
+
+####  sliver1997  
+##### 9296#       发表于 2025-3-24 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67720382&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-3-24 14:41</a>
+
+观影团的官方特典已经更新不止海报了</blockquote>
+观影团是什么？要参加这些团的活动才有吗
+
+
+*****
+
+####  wsktcy  
+##### 9297#       发表于 2025-3-24 15:20
+
+ 本帖最后由 wsktcy 于 2025-3-24 15:21 编辑 
+
+我这边IMAX观影团给的物料是这些，主办方说都是高达中国大陆地区发行方路画影视提供的，随IMAX票赠送一共45
+《机动战士高达：跨时之战》IMAX专属海报
+《机动战士高达：跨时之战》官方专属A3海报
+《机动战士高达：跨时之战》官方专属日本原版设定集
+《机动战士高达：跨时之战》官方专属电影票根(GQUX版)
+《机动战士高达：跨时之战》官方专属电影明信片
+<img src="https://p.sda1.dev/22/22577128a00b69f76ba2da7535fa58c0/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/1523b6208ce69d6c260037963dbf9bcc/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/bce444185fd7f8ca7b4544bf9b544b3d/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/fbdfbfbf35bac2e90db2a3dba0653a9c/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  wsktcy  
+##### 9298#       发表于 2025-3-24 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67720736&amp;ptid=2209276" target="_blank">sliver1997 发表于 2025-3-24 15:16</a>
+观影团是什么？要参加这些团的活动才有吗</blockquote>
+每个城市都有类似的观影团，去小红书搜电影名加本地观影团就能搜到，跟团买票就行了
+
+*****
+
+####  sliver1997  
+##### 9299#       发表于 2025-3-24 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67720815&amp;ptid=2209276" target="_blank">wsktcy 发表于 2025-3-24 15:24</a>
+
+每个城市都有类似的观影团，去小红书搜电影名加本地观影团就能搜到，跟团买票就行了 ...</blockquote>
+明白了，谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
