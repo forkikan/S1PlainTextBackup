@@ -3191,3 +3191,14 @@ BV19CoBYjErt
 又香又臭说的就是这游戏，剧情抽象，关卡设计接近于无，画质差优化拉，但真打起来还挺带感，开放世界虽然初 ...</blockquote>
 他这开放世界的唯一优点就是给你便利性拉满了
 
+
+*****
+
+####  agsva  
+##### 3712#       发表于 2025-3-25 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67724513&amp;ptid=2092342" target="_blank">cherry__ 发表于 2025-3-24 23:48</a>
+
+最不爽的就是道场了，把我妙妙小工具都ban了，但敌人还是该扔垃圾就扔垃圾，该火刀就火刀，我连个火抗药 ...</blockquote>
+打佩里看他美式居合我都惊了，虽然这是连段，但是合着我用木刀你小子拔枪是吧。
+
