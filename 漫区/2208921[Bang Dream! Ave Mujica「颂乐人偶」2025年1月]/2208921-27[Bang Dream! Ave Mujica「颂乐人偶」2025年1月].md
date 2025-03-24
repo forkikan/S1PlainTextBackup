@@ -15744,3 +15744,13 @@ https://tieba.baidu.com/p/9511372750</blockquote>
 。。。。有点正式过头了</blockquote>
 日本人前20年内一直拿邮箱邮件当短信用的，并不是正式，sms在日本没人用
 
+
+*****
+
+####  swessia  
+##### 39791#       发表于 2025-3-24 10:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">睦的结局我挺同意b站一个up主的说法，现在的睦是完整睦，别管过程咋样结局是定死这样的
+
+后面进手游了又emo了的话另说
+
