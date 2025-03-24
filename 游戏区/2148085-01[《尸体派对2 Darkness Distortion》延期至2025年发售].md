@@ -540,3 +540,15 @@ x的 我的侦探绅士完结篇呢？ 为什么就这么没了？<img src="http
 
 — from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  灵魂收割机  
+##### 53#       发表于 2025-3-24 18:34
+
+ 本帖最后由 灵魂收割机 于 2025-3-24 18:37 编辑 
+
+[https://www.youtube.com/watch?v=Sj4p8EA6Sjc](https://www.youtube.com/watch?v=Sj4p8EA6Sjc)
+
+比上次的试玩稍微好点，但是依然糟糕。出现了未公开的角色。
+

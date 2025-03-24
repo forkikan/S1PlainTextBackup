@@ -17245,3 +17245,32 @@ ex-aid时的高桥悠也
 
 —— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
+
+*****
+
+####  6030sylar  
+##### 39910#       发表于 2025-3-24 18:29
+
+<img src="https://p.sda1.dev/22/9ddfa46ff4804a05b901a0214c83180b/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  FanFun  
+##### 39911#       发表于 2025-3-24 18:33
+
+这甩锅兼揽功方式也挺恶心的，不讲清楚恶心设定是什么，让观众自己套
+
+等于是自说自话不用任何证据指责同事的设定恶心，好的都是自己的
+
+*****
+
+####  油画布  
+##### 39912#       发表于 2025-3-24 18:34
+
+<blockquote>operatbig 发表于 2025-3-24 16:46
+柿本是技术和剧情上出问题，但是构建角色关系的张力和深度碾压大角没什么问题，光是一句“组乐队就一定要幸 ...</blockquote>
+柿本和角的技术审美之间隔着100个operatbig，至于你是1，0.01 ，0还是-1，就看你自我认知了
+
