@@ -4984,3 +4984,19 @@ https://youtu.be/hrk9q27qcWQ
 真的要凉吗？现在的趋势难道不是潮流大爆款吗？</blockquote>
 没有，我只是看着只有13集，故事有点不好说而已
 
+
+*****
+
+####  Sliurus  
+##### 9265#       发表于 2025-3-24 10:14
+
+大概率就是少年少女的故事，不会拓展太多的
+
+*****
+
+####  Gysumitka  
+##### 9266#       发表于 2025-3-24 10:14
+
+<img src="https://p.sda1.dev/22/2ace24047d97fabe29d0555b9dbc6cc4/image.jpg" referrerpolicy="no-referrer">
+上面Qu，下面uuX。应该会有另外两人的图拼起来
+
