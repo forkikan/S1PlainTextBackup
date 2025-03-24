@@ -17552,3 +17552,30 @@ ex-aid时的高桥悠也
 
 素世在mygo动画的最后说祥子的话是对的，是因为她确实不记仇，且祥子的话歪打正着地正确地批评了素世。
 
+
+*****
+
+####  595505568  
+##### 39938#       发表于 2025-3-24 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67722905&amp;ptid=2208921" target="_blank">MuramasaSP 发表于 2025-3-24 19:40</a>
+对黑刀之夜的理解：黑刀之夜，乃至mygo动画时期的祥子，应该是真心讨厌素世。
+
+首先，祥子性格的一个核心就 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以欺负素世没有一个刺头犟立十足的高压锅青梅之类的，这个事情暴露出去不到母鸡卡祥子就要被堵门揍了，C解散后素世在无名乐队前是纯吃长期伤害的（）
+
+
+*****
+
+####  dqtql  
+##### 39939#       发表于 2025-3-24 19:54
+
+我看这母鸡卡制作现场才是真正的悬疑惊悚推理番啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Dr.Wondering  
+##### 39940#       发表于 2025-3-24 19:56
+
+不是，如果拿出仓田英之出来的话，他不也当年和制作委员会闹矛盾退出过吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且当时可是闹得更严重，直接退隐了，不过后来还是和解回来继续做读死了，独角兽能学仓田和wsd和解吗
+
