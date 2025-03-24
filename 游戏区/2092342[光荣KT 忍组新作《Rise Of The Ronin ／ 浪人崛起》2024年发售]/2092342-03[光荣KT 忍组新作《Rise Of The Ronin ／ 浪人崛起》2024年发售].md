@@ -2970,3 +2970,14 @@ https://youtu.be/EB3J8olZi5E?si=7o9_HL54DKoJqi1N
 到京都了，感觉难度涨了好多是错觉吗。池田屋和禁门之变打得就比较吃力了，现在打据点感觉杂兵都强了不少啊 ...</blockquote>
 感觉伤害高了好多，久坂开气焰一套彼岸萤我就差不多倒了
 
+
+*****
+
+####  慕容断月  
+##### 3692#       发表于 2025-3-24 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67716168&amp;ptid=2092342" target="_blank">虚无连斩 发表于 2025-3-23 19:19</a>
+
+到京都了，感觉难度涨了好多是错觉吗。池田屋和禁门之变打得就比较吃力了，现在打据点感觉杂兵都强了不少啊 ...</blockquote>
+鸟羽伏见之战那个强度提升有点太大了，前面其实还好
+
