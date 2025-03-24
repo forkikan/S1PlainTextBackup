@@ -5802,3 +5802,13 @@ Ortega[8][9] / Ortiga[10][12]
 
 没有4d吗？
 
+
+*****
+
+####  AvenueIII  
+##### 9331#       发表于 2025-3-25 00:21
+
+“年轻人的第一部高达”，“全宇宙最帅的男人夏亚”，“原地入坑”，“日本动画界的黄金阵容（国家队）”，“意识流叙事（哪儿）”，“献给高达迷的情书”
+
+有点搞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
