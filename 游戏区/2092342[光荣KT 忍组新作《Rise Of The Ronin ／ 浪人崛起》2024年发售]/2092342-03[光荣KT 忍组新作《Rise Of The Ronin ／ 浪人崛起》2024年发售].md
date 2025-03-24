@@ -2989,3 +2989,14 @@ https://youtu.be/EB3J8olZi5E?si=7o9_HL54DKoJqi1N
 
 明天有所谓的优化更新<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bm7号  
+##### 3694#       发表于 2025-3-24 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67716168&amp;ptid=2092342" target="_blank">虚无连斩 发表于 2025-3-23 19:19</a>
+
+到京都了，感觉难度涨了好多是错觉吗。池田屋和禁门之变打得就比较吃力了，现在打据点感觉杂兵都强了不少啊 ...</blockquote>
+是，从第二章结尾就可以开始嗑小防御药了。你要是选倒幕侧还有土方岁三冲田总司双打。
+
