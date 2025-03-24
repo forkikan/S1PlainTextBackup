@@ -2146,3 +2146,16 @@ staff太屑了，就为了那一小段剧情这破玩意要打三次，三回啊
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">昨晚主角27级终于把火龙宰了。就是打完这啥都没啊！算了，去把主线二周目通了再说。
 
+
+*****
+
+####  macshi  
+##### 182#       发表于 2025-3-24 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67718470&amp;ptid=2249235" target="_blank">棍机凹升龙 发表于 2025-3-24 10:13</a>
+
+请问40的点数一般有多少呀, 我现在在20开的几十到百来,  看了一眼上万的兑换要求挺绝望 ...</blockquote>
+点数在50+~160+吧，大部分时间在100以上。
+
+考虑到怪物强度也上去了感觉效率可能不如30级。因为30级我也是拿的钢级装备，开的点数也没少多少，到了40装备也没什么大的提升怪还变硬了。
+
