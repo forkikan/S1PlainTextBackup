@@ -453,3 +453,25 @@ sumimi结成和168e还有什么意义吗
 之所以印象深那是因为那时候还 ...</blockquote>
 你这剑冢不带节奏不舒服是吧到处乱窜，楼下贴了23年就切割了又成第七集切割了？
 
+
+*****
+
+####  是谁的书画  
+##### 40000#       发表于 2025-3-24 22:29
+
+I don't care 现在这剧本哪里哪里是谁写的这件事了，反正都已经烂了，还在脑补幻之 mujica 多少有点沉浸在自己的世界里出不来了。
+我只是觉得在还没有完结之前就惹了这样的麻烦，在公域说些不经大脑的话，是很不负责任的行为，如果真的喜欢这部作品就更不应该这样。只是作为单纯的社会上行为逻辑的判断，这很下头<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  aptx8285144  
+##### 40001#       发表于 2025-3-24 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67723975&amp;ptid=2208921" target="_blank">勃列日涅夫 发表于 2025-3-24 22:22</a>
+
+你这剑冢不带节奏不舒服是吧到处乱窜，楼下贴了23年就切割了又成第七集切割了？ ...</blockquote>
+先亮明立场，武士道的责任大于蚀本，蚀本的责任大于独角兽，当然绝对不是说独角兽清白无瑕，acg历史上不存在负责过脚本和统筹的人能清白无瑕，还要让人去分析她的那些推特<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
