@@ -1674,3 +1674,81 @@ MyGo第十話一集就包了愛燈素三人餃子，
 
 再者说，你把改脚本当个事闹出来，这不就是公开跟前同事撕破脸，以日本的环境，以后还想不想有工作，要退出业界直接发个声明比较快
 
+
+*****
+
+####  刑部姬真可爱  
+##### 40082#       发表于 2025-3-25 00:50
+
+一周前我看社区对独角兽12集的预期是能把初祥做好就不错了，一周后对她的期望已经是不仅初祥要搞好，其他的cp也不能落下了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  adretyu67.  
+##### 40083#       发表于 2025-3-25 00:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67724784&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-25 00:44</a>
+
+大祥想组ccc，初华想组mujica
+
+這不行</blockquote>
+我是觉得反向妇科飞鸟山也行。
+
+就是这么搞大祥真就成小丑了。
+
+*****
+
+####  adretyu67.  
+##### 40084#       发表于 2025-3-25 00:51
+
+ 本帖最后由 adretyu67. 于 2025-3-25 00:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67724810&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-3-25 00:50</a>
+
+一周前我看社区对独角兽12集的预期是能把初祥做好就不错了，一周后对她的期望已经是不仅初祥要搞好，其他的 ...</blockquote>
+初祥也没搞好啊。
+
+如果出于爱灯交心，所以初祥得反向操作不能交心。
+
+那12话初祥确实是这个状态。算是搞好了？
+
+*****
+
+####  NOYURINOLIFE  
+##### 40085#       发表于 2025-3-25 00:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67724811&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-25 00:50</a>
+
+我是觉得反向妇科飞鸟山也行。
+
+就是这么搞大祥真就成小丑了。</blockquote>
+太不少女乐队了
+
+还是世界观限制了发挥
+
+*****
+
+####  adretyu67.  
+##### 40086#       发表于 2025-3-25 00:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67724821&amp;ptid=2208921" target="_blank">NOYURINOLIFE 发表于 2025-3-25 00:52</a>
+
+太不少女乐队了
+
+还是世界观限制了发挥</blockquote>
+最严重的问题，鸡现在的成品仍然就一点都不少女乐队。
+
+
+*****
+
+####  NOYURINOLIFE  
+##### 40087#       发表于 2025-3-25 00:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67724825&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-25 00:53</a>
+
+最严重的问题，鸡现在的成品仍然就一点都不少女乐队。</blockquote>
+我是感觉不伦不类，要是真能受伤死人会比较爽。就像双重人格前面爆了几次，后面又淡淡收场，不痛不痒。
+
+比如素世不小心捅死了祥子老爹，从此二人成为宿敌（）
+
