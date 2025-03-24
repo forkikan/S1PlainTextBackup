@@ -17579,3 +17579,116 @@ ex-aid时的高桥悠也
 
 不是，如果拿出仓田英之出来的话，他不也当年和制作委员会闹矛盾退出过吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且当时可是闹得更严重，直接退隐了，不过后来还是和解回来继续做读死了，独角兽能学仓田和wsd和解吗
 
+
+*****
+
+####  z-hunter  
+##### 39941#       发表于 2025-3-24 19:58
+
+独角兽这是切割了小姨呢
+
+看完12集其实我也觉得独角兽在切割小姨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">通篇都在强调的只有双子呢，小姨一笔带过
+
+初华光双子其实很好写的，就是普通双子的例牌戏剧。
+
+阳光的那个给阴暗的那个讲和她玩的青梅竹马，阴暗的那个一边听一遍憧憬，最后一天阳光的那个病了不能赴会，阴暗的就擅自代替去（反正双子，结果一眼万年爱上了，但又不敢表露身份
+
+之后鼓起勇气用一个假身份去接近去争取这个白月光，当然经过各种事情暴露了
+
+最后白月光印象最深的是最后一天的，爱上的其实也是最后一天的这个假的双子。阴暗的双子后来居上抱得白月光归
+
+这种根本不用让阳光的双子死，那个就是助力，核心是阴暗的双子的爱情故事，也解决了祥子眼瞎为什么会认错人的bug<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这属于双子样板戏了，不要说百合，普通BG也有这类剧情
+
+*****
+
+####  ads147147  
+##### 39942#       发表于 2025-3-24 19:58
+
+独角兽最应该学习花田的地方就是，当自己参加的作品很烂的时候，不管是不是因为自己，都应该闭嘴的美德。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  595505568  
+##### 39943#       发表于 2025-3-24 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67723051&amp;ptid=2208921" target="_blank">ads147147 发表于 2025-3-24 19:58</a>
+独角兽最应该学习花田的地方就是，当自己参加的作品很烂的时候，不管是不是因为自己，都应该闭嘴的美德。。 ...</blockquote>
+会主动说自己写了两版的花田<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，也会揽自己锅倒是…
+
+*****
+
+####  Dr.Wondering  
+##### 39944#       发表于 2025-3-24 20:00
+
+ 本帖最后由 Dr.Wondering 于 2025-3-24 20:01 编辑 
+
+不过仓田英之毕竟家底本来就不错，因此直接退隐照样还是有不少人脉，可惜当年没有推特<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 39945#       发表于 2025-3-24 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67723059&amp;ptid=2208921" target="_blank">595505568 发表于 2025-3-24 19:59</a>
+会主动说自己写了两版的花田，也会揽自己锅倒是…</blockquote>
+毕竟石原的那种人生经历，选现在的结局大家可以理解，只是不能接受而已。
+
+花田被要求两版里写一版这事不可能瞒住的，不如大方说出来。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  野菜一日分  
+##### 39946#       发表于 2025-3-24 20:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有创作欲的编剧和上面闹矛盾几乎是必经之路，制委或者是商业动画这种集体创作本身就是压制编剧的，最后还是靠拿出手的作品说事。
+
+—— 来自 Xiaomi 2407FRK8EC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  路人庚  
+##### 39947#       发表于 2025-3-24 20:04
+
+ 本帖最后由 路人庚 于 2025-3-24 20:05 编辑 
+
+反正独角兽已经走到这一步了，建议下一波切割的时候直接暗示ccc不应该有复活live都是上面的大手安排的（反正已经离职了前公司领导怎样也无所谓了，还能狠狠给尬吃强化一波
+
+不如就说自己写了两版c团和解戏，最后领导拍板了这一版罢（
+
+*****
+
+####  Dr.Wondering  
+##### 39948#       发表于 2025-3-24 20:04
+
+那大河内点赞水魔的剧本是一坨屎但是百合很好的回复应该怎么理解呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 39949#       发表于 2025-3-24 20:06
+
+鸡动画就是世界没有坏人，鸡神人化的锅鸡成员自己背吧。
+
+所以睦被安了双重人格，初华被安了小姨作为爆点。
+
+*****
+
+####  adretyu67.  
+##### 39950#       发表于 2025-3-24 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67723048&amp;ptid=2208921" target="_blank">z-hunter 发表于 2025-3-24 19:58</a>
+
+独角兽这是切割了小姨呢
+
+看完12集其实我也觉得独角兽在切割小姨通篇都在强调的只有双子呢，小姨一笔带过</blockquote>
+从12话的角度来说需要安排一个初华当别墅管理员的理由。
+
+但是小姨这个理由也很牵强，就和家人突然搬家一样。
+

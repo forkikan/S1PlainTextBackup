@@ -2833,3 +2833,16 @@ BanG Dream！Ave Mujica 前12话 niconico 好评率
 
 说是因为制作组内部政治斗争，是真的么？
 
+
+*****
+
+####  FanKiE  
+##### 287#       发表于 2025-3-24 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67718572&amp;ptid=2250507" target="_blank">异界送 发表于 2025-3-24 10:29</a>
+说是因为制作组内部政治斗争，是真的么？</blockquote>
+监督大幅修改剧本，系列构成在作品接近完成时切割制作组，这两点是不争的事实。这两点能引出怎样的推论，就是各位观众自由发挥的空间。
+当然还有一个点也必须考虑在内，就是武士道的大手。第七集烂炒ccc复活，应该是上头的死命令。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
