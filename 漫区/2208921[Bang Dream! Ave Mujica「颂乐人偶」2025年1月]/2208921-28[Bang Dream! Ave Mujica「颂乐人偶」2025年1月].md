@@ -142,3 +142,70 @@
 
 只能说人活着有盼头总归是好事吧（）
 
+
+*****
+
+####  aptx8285144  
+##### 39974#       发表于 2025-3-24 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67723578&amp;ptid=2208921" target="_blank">路人庚 发表于 2025-3-24 21:16</a>
+
+已经看到说13集会有十分钟解密part的传言了
+
+只能说人活着有盼头总归是好事吧（） ...</blockquote>
+反正如果最终话和我说什么这几个神人是酒店混战的内鬼之类的说辞，<strong>我只会建议后藤绿和独角兽加上蚀本一起滚回学校学习写剧本<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南宮凝香  
+##### 39975#       发表于 2025-3-24 21:22
+
+相信劇本說不如相信我是豐川定治
+
+給我課50星石
+
+等小祥成神了給你一個Livehouse 職員的位置
+
+*****
+
+####  阿尔巴尼亚  
+##### 39976#       发表于 2025-3-24 21:25
+
+现在还有期待的吗？真稀奇啊，live回演出和歌不拉胯就行了.要求救剧情做不到的
+
+*****
+
+####  aptx8285144  
+##### 39977#       发表于 2025-3-24 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67723604&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-24 21:22</a>
+
+相信劇本說不如相信我是豐川定治
+
+給我課50星石</blockquote>
+说不定其他人都不是内鬼，大祥才是炸团乃至剧情“推动”至今的的幕后黑手<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（素世和go团：？？），其实这样才最出乎意料，也很符合12话她最后装逼的样子（
+
+*****
+
+####  凉良  
+##### 39978#       发表于 2025-3-24 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67720991&amp;ptid=2208921" target="_blank">HereLink 发表于 2025-3-24 15:41</a>
+
+虽然现在这样说会被人说马后炮，不过第一集播的时候我一点都不喜欢，尤其看到泛式直播吹第一集的时候我惊呆 ...</blockquote>
+很多东西吗？ 后面拉拉扯扯九集的双重人格信息含量其实也没多高吧
+
+*****
+
+####  6030sylar  
+##### 39979#       发表于 2025-3-24 21:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">不如相信13集后公布进手游，上周8周年都不公布怕不是又难产了
+
+*****
+
+####  油画布  
+##### 39980#       发表于 2025-3-24 21:27
+
+解密？这还有什么密可解（迷茫)
+
