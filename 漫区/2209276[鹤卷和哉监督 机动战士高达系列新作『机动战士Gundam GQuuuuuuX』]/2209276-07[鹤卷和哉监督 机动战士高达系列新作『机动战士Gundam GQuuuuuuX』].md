@@ -5734,3 +5734,24 @@ Ortega[8][9] / Ortiga[10][12]
 如果这都觉得尴尬的话，那岂不 ...</blockquote>
 不瞒您说，确实能不去就不去，之前部门组织看芭比，我没去同事去了，回来说合影阶段缩椅子后面去了，公司团建开年终大party所有合影环节我都逃了，前些年还拒掉了一次升职机会因为变成TL就必须得每年给客户发贺年卡附上TL的照片，这世界上是真的有能不集体活动就不集体活动、能不拍照就不拍照的人的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  中野梓  
+##### 9324#       发表于 2025-3-24 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67724059&amp;ptid=2209276" target="_blank">七七見奈波 发表于 2025-3-24 22:37</a>
+
+不瞒您说，确实能不去就不去，之前部门组织看芭比，我没去同事去了，回来说合影阶段缩椅子后面去了，公司 ...</blockquote>
+带个夏亚头盔就是了
+
+*****
+
+####  hosilly  
+##### 9325#       发表于 2025-3-24 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67724059&amp;ptid=2209276" target="_blank">七七見奈波 发表于 2025-3-24 22:37</a>
+
+不瞒您说，确实能不去就不去，之前部门组织看芭比，我没去同事去了，回来说合影阶段缩椅子后面去了，公司 ...</blockquote>
+就我自己参加过也不少的观影团来说，其实合影什么的完全不强制，有的场次甚至你买完票拿了特典可以直接走人。观影团在我看来就像一种保底方案（一方面给影院排片保底的观众数，一方面给观众拿保底的特典）
+
