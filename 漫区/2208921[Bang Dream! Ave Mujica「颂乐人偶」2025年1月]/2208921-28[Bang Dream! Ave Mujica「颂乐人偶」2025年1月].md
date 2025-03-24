@@ -1918,3 +1918,21 @@ MyGo第十話一集就包了愛燈素三人餃子，
 
 可惜所有幻想都不会成为现实。
 
+
+*****
+
+####  Hchan  
+##### 40102#       发表于 2025-3-25 03:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67725027&amp;ptid=2208921" target="_blank">GhSap 发表于 2025-3-25 02:53</a>
+
+不知道创作者在大家的眼中是什么样的。大概一个真空中的球形编剧能不带任何个人情感，老板叫你写什么你就能 ...</blockquote>
+但凡独角兽孝子在猛喷柿本的时候也能这么想就好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PascalLefèvre  
+##### 40103#       发表于 2025-3-25 03:43
+
+那么这个对创作者无限温柔的世界也会尊重cbm、jsc和jzds的作者性吗
+
