@@ -65,3 +65,15 @@ Happy birthday 紗夜&amp;日菜！  
 ASL 今年上了4个团
 <img src="https://s2.loli.net/2025/03/23/UTzakPXQEVyfgvH.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CyDiablo  
+##### 27067#       发表于 2025-3-25 10:23
+
+信泽真是神神鬼鬼的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+虽然神不一定有多神，但鬼是够鬼的
+<img src="https://p.sda1.dev/22/bd4d7a268851ff6c2019c292d9200db8/1742868402087.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/77863b7b9b227aeb8dca576ba3c48f35/Image_891303557797971.jpg" referrerpolicy="no-referrer">
+信澤 収 @canvas2929
+
