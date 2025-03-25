@@ -8,3 +8,13 @@
 
 其余曲子将在今年内陆续更新
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 49#       发表于 2025-3-25 09:40
+
+这么抠门的，一个游戏还搞分段更新，那估计喷3剩下的曲子得很久之后才能上了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
