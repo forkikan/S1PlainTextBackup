@@ -2610,3 +2610,16 @@ CGディレクター：山之口 創
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  qratosones1337  
+##### 40152#       发表于 2025-3-25 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67726332&amp;ptid=2208921" target="_blank">HereLink 发表于 2025-3-25 10:42</a>
+
+我是觉得，监督肯定对好/烂作品负最终责任，就算是不管事让其他人自行发挥，也是张绣之于贾诩了。
+
+系构脚 ...</blockquote>
+想起个笑话，去年的蜇后半段动画播的时候大家主要在车59，结果后来59真把小说弄出来了——仔细一看59其实是会写黄棕关系性的（当然幽默80戏码的锅甩不掉），动画里包括自信呦西在内的一大堆恶心人的东西都是竹下加上去的……
+
