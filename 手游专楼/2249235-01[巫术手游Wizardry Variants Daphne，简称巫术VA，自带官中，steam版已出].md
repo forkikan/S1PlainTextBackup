@@ -2303,3 +2303,13 @@ staff太屑了，就为了那一小段剧情这破玩意要打三次，三回啊
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">喜欢我二连动全体魅惑混乱带吸魔的可爱人形吗
 
+
+*****
+
+####  森兰丸  
+##### 196#       发表于 2025-3-25 16:17
+
+越想越不合理....为啥跑图开宝箱出的装备和卖钱的垃圾都是直接扔掉仓库....只有消费道具是直接让队伍成员拿着了
+
+每次刷完图要1个个把队友身上的道具仍仓库真的好烦<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
