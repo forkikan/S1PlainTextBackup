@@ -3443,3 +3443,52 @@ CGディレクター：山之口 創
 
 [https://x.com/Kanon_Takao/status/1904371155114553444](https://x.com/Kanon_Takao/status/1904371155114553444)
 
+
+*****
+
+####  南宮凝香  
+##### 40219#       发表于 2025-3-25 17:57
+
+柿角都合作了多久了？
+
+這兩人的功跟鍋根本分不開吧
+
+這兩人就是現實版睦祥
+
+豐川角在推特上哈氣若葉柿
+
+怪他為什麼不站出來替她講話
+
+*****
+
+####  6030sylar  
+##### 40220#       发表于 2025-3-25 17:58
+
+有很多人觉得剧本修改系构要把关，其实这只存在于系构权力比较大的情况吧，又不是LL那边花田又当系构又写差不多一半集数的剧本，独角兽在这边就最多是高级一点的编剧，她推上玩切割就是又菜又跳
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  联想会  
+##### 40221#       发表于 2025-3-25 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67728729&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-25 17:13</a>
+等13话睦祥反杀了。
+
+节约：我们睦祥不会输的</blockquote>
+十五年未有之最无悬念的让十二二十五追一<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  联想会  
+##### 40222#       发表于 2025-3-25 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67728775&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-3-25 17:22</a>
+就是为爆而爆，柿本非要搞观众猜不到的发展乱改，如果要保留小姨这设定，在睦身上最合适，是比祥子大一辈的 ...</blockquote>
+木箱厨完全不抗拒小姨甚至很欢迎<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不像初祥豚豚们得了便宜还卖乖
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
