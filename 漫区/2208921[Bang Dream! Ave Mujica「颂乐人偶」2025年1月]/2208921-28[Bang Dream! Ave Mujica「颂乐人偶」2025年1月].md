@@ -3006,3 +3006,27 @@ CGディレクター：山之口 創
 
 话说live里大家一起唱歌，也没台词，这些谁看着谁，谁笑谁哭，这种细节是编剧来定，还是分镜演出来定的。
 
+
+*****
+
+####  与太郎  
+##### 40184#       发表于 2025-3-25 15:03
+
+[https://www.oricon.co.jp/news/2375888/](https://www.oricon.co.jp/news/2375888/)
+
+学霸小祥
+
+
+*****
+
+####  与太郎  
+##### 40185#       发表于 2025-3-25 15:07
+
+<img src="https://img.saraba1st.com/forum/202503/25/150602vjmf2c21ydctcmll.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20250325150553.jpg</strong> (174.53 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-25 15:06 上传
+
