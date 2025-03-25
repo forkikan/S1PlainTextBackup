@@ -63,3 +63,14 @@
 
 一个一个捏人捏过去这游戏就别玩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看她リセマラ半天都觉得有点看不下去
 
+
+*****
+
+####  格林卡罗尔  
+##### 1067#       发表于 2025-3-25 08:54
+
+可乐妹这个纯纯是负面宣传<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">完全被力量职棒比下去
+syl 直到v最公布名单我才搞明白为什么有了moka还要有hanabi
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
