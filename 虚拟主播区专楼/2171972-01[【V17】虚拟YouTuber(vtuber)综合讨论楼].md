@@ -55,3 +55,11 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">昨天皇女开虹杏交流战抽卡，拉到最后看了下成品这游戏捏人就只能捏到这种程度？看了下其他先开的人也都差不多……这还不如不捏呢
 
+
+*****
+
+####  Ferrari  
+##### 1066#       发表于 2025-3-25 08:18
+
+一个一个捏人捏过去这游戏就别玩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看她リセマラ半天都觉得有点看不下去
+
