@@ -1332,3 +1332,13 @@ Bleak Faith: Forsaken
 
 和嗜血代码一样玩久了就头晕
 
+
+*****
+
+####  红魔馆的糖  
+##### 140#       发表于 2025-3-25 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67727853&amp;ptid=2168791" target="_blank">zzy516232108 发表于 2025-3-25 14:50</a>
+我在纠结是买这个玩还是买dnf卡赞</blockquote>
+根据我两个demo都玩了的经验，卡赞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

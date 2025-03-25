@@ -2375,3 +2375,24 @@ ana pay（虚拟visa，绑大陆发行的JCB）可以正常在eshop（网页版�
 
 最近日本游戏厂商是不是都在搞防止用户薅汇率羊毛的动作？我之前XSX买MHWS的时候也是莫名其妙，以前哪个服的商店都可以用VISA，这次台服日服都不行，非要换港服才行，不然就显示支付信息和所在地不匹配。
 
+
+*****
+
+####  h122h  
+##### 242#       发表于 2025-3-25 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67728325&amp;ptid=2244683" target="_blank">wfhtony 发表于 2025-3-25 16:13</a>
+
+大陆发行的JCB（招行）确认不能绑定（报错：9008-2471）。
+
+ana pay（虚拟visa，绑大陆发行的JCB）可以正常 ...</blockquote>
+我看ana pay也有公告说不接受海外信用卡充值使用了。难道是有漏洞？
+
+<img src="https://img.saraba1st.com/forum/202503/25/191431lztlz95wkpotwpaz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (153.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-25 19:14 上传
+
