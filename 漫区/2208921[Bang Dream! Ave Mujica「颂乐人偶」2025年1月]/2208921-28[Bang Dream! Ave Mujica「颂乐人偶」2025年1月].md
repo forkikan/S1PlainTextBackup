@@ -3077,3 +3077,16 @@ CGディレクター：山之口 創
 
 看到人起底13集的脚本小川瞳了，铁睦祥党，让大家见笑了，们睦祥又是半身了<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  玖羽  
+##### 40190#       发表于 2025-3-25 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67727311&amp;ptid=2208921" target="_blank">江口夕 发表于 2025-3-25 13:09</a>
+
+你至今都不知道大祥为什么这么恨素世。这也烂尾了。</blockquote>
+我在楼里解释过好几遍了，睦从来没有把Soyo想重组Crychic这件事告诉祥子
+
+所以在祥子看来，Soyo一边组自己的乐队一边纠缠她，肯定是要报复她
+
