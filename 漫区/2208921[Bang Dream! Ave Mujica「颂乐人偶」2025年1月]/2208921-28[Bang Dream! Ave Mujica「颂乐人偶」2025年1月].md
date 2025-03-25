@@ -2700,3 +2700,40 @@ CGディレクター：山之口 創
 最后交上来的剧本一字不改照拍才是少数，先是切割某个设定不是自己想的，接下来说自己认真完成了系构的工作太幽默了。按照这个切割法，mygo是不是也要切割分功劳
 以柿本和绫奈两个人的履历，拍出母鸡卡这种东西算正常发挥，mygo才是不正常的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  北条早苗  
+##### 40158#       发表于 2025-3-25 13:05
+
+最后交上来的剧本一字不改照拍才是少数，先是切割某个设定不是自己想的，接下来说自己认真完成了系构的工作太幽默了。按照这个切割法，mygo是不是也要切割分功劳
+以柿本和绫奈两个人的履历，拍出母鸡卡这种东西算正常发挥，mygo才是不正常的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  盐盐盐盐盐  
+##### 40159#       发表于 2025-3-25 13:09
+
+<blockquote>帝下室の年糕 发表于 2025-3-25 12:20
+别岁了，12集的评论区大部分都是夸的好吧，出来澄清是因为有人把她十多年前很正常的喜欢小孩的言论截出来 ...</blockquote>
+到底哪好评了，阿b评论区吗（）5ch，贴吧，推特，某书微博，风评都不咋地吧，欧美热度底边就不算了
+
+*****
+
+####  江口夕  
+##### 40160#       发表于 2025-3-25 13:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">你至今都不知道大祥为什么这么恨素世。这也烂尾了。
+
+—— 来自 Xiaomi 23113RKC6C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  帝下室の年糕  
+##### 40161#       发表于 2025-3-25 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67727306&amp;ptid=2208921" target="_blank">盐盐盐盐盐 发表于 2025-3-25 13:09</a>
+到底哪好评了，阿b评论区吗（）5ch，贴吧，推特，某书微博，风评都不咋地吧，欧美热度底边就不算了 ...</blockquote>
+当然说的是他私推
+
