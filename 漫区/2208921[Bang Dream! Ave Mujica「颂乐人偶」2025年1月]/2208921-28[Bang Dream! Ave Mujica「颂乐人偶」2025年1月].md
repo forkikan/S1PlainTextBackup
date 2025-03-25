@@ -3620,3 +3620,69 @@ CGディレクター：山之口 創
 
 话又说回来，这是不是独角兽本人的生存逻辑？感觉角神也是特别喜欢跑路的类型
 
+
+*****
+
+####  6030sylar  
+##### 40230#       发表于 2025-3-25 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67729193&amp;ptid=2208921" target="_blank">Victorino 发表于 2025-3-25 18:29</a>
+
+感觉go9集之前，逃避是全局所有角色的底层逻辑
+
+灯说了一辈子乐队被爱音笑了，跑；爱音见了初中同学，跑； ...</blockquote>
+写作就这样很容易融入自身（笑
+
+*****
+
+####  刑部姬真可爱  
+##### 40231#       发表于 2025-3-25 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67729163&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-3-25 18:22</a>
+
+又是大祥脚，这是谁的xp
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+大祥脚谁不爱<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  油画布  
+##### 40232#       发表于 2025-3-25 18:42
+
+别的就算了，手游能不能把第七集那个已读不回的幽默go团传统给删了
+
+*****
+
+####  聪明墨菲特  
+##### 40233#       发表于 2025-3-25 18:43
+
+因为内斗被写成单元剧，那角色以乐队成员的身份存在就立不住了，以cp的形象存在也算是不错的补救了。估计下一季每一话也是这种二人转形式，只要鸡团回归商业一切都会好起来的
+
+*****
+
+####  结衣小比取  
+##### 40234#       发表于 2025-3-25 18:44
+
+看到有坛友聊起若叶家和丰川家的关系，除了第一话座位外，第三话睦的内心小剧场不知是否也在暗示<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202503/25/184312g572xyx6nsd66666.jpg" referrerpolicy="no-referrer">
+
+<strong>第三话和第五话舞蝶和鸟（标注）.jpg</strong> (316.43 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-25 18:43 上传
+
+*****
+
+####  南宮凝香  
+##### 40235#       发表于 2025-3-25 18:45
+
+<blockquote>颂乐人偶 发表于 2025-3-25 18:19
+本月柿本</blockquote>
+看到密麻麻的字我便害怕了
+
+大柿老師的全力肘擊
+
