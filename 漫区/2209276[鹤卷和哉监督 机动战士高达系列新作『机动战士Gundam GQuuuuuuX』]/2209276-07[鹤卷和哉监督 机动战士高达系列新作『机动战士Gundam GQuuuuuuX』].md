@@ -6148,3 +6148,49 @@ IMAX好还是4DX好？
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  RE㐅ia  
+##### 9358#       发表于 2025-3-25 16:36
+
+<blockquote>纪寞 发表于 2025-3-25 09:17
+这已经确定午夜反射的主视角是玛秋了吧，那修司跑路回"那一边"预定了
+
+目前揭露的3首歌都包含"离别"的意向 ...</blockquote>
+这么看来三首都估计是看完了全部分镜后制作的。管人这首和最新的预告也能对得上。
+
+<img src="https://img.saraba1st.com/forum/202503/25/163536n6yff822q2q0i3f6.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>611507D4-BA92-4B9E-8DF9-790E4BEE2EDA.jpeg</strong> (390.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-25 16:35 上传
+
+<img src="https://img.saraba1st.com/forum/202503/25/163536h6ix6d35l53k8zz8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>F8E6B42B-898A-47F5-AF23-9B10DFAF16CE.jpeg</strong> (446.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-25 16:35 上传
+
+
+*****
+
+####  RE㐅ia  
+##### 9359#       发表于 2025-3-25 16:43
+
+三首歌的共同点：
+
+星辰大海和夜空
+
+青与蓝
+
+爱
+
+舍弃丢失或是分别
+
+朝着遥不可及的彼方前进
+
