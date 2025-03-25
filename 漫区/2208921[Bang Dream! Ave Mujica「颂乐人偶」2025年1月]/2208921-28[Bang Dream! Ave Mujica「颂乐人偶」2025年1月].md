@@ -2970,3 +2970,11 @@ CGディレクター：山之口 創
 
 真初华仍然应该是背景角色。
 
+
+*****
+
+####  aptx8285144  
+##### 40180#       发表于 2025-3-25 14:23
+
+这出租车司机知道渔民家的事情，还认的大祥的身份，就是独角兽和柿本派来的万能工具人，不用细想<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
