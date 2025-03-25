@@ -2519,3 +2519,28 @@ CGディレクター：山之口 創
 
 鸡12都11-12月了，再季节变换就得高二了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SakuraのOrigami  
+##### 40144#       发表于 2025-3-25 11:16
+
+哦看了下
+
+ 本帖最后由 SakuraのOrigami 于 2025-3-25 11:20 编辑 
+
+所以柿本这人在鸡动画真就一话分镜演出都没做啊()
+
+*哦看了下第11话有做分镜（）
+
+*****
+
+####  零壹贰叁  
+##### 40145#       发表于 2025-3-25 11:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">角姨柿本切割党本质上也是一种破防人
+处于讨价还价环节的破防人
+不能接受写出mygo的原班人马能把后续写的这么屎，所以生造出了什么内部夺权改剧本想要解释写烂的原因
+事实上柿本和独角兽能力也就这样，mygo完全是意外
+现在回过头来看mygo其实也过誉了，对于mygo的高评价也有一部分是因为留白了，观众能照自己想象来解释这些留白的部分。
+

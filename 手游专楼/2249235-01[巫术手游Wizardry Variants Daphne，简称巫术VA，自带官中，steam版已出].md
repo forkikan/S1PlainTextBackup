@@ -2278,3 +2278,20 @@ staff太屑了，就为了那一小段剧情这破玩意要打三次，三回啊
 
 另外 封魔是能起作用的 觉得法术威胁大可以上
 
+
+*****
+
+####  elven119  
+##### 194#       发表于 2025-3-25 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67721750&amp;ptid=2249235" target="_blank">一之江瑞江 发表于 2025-3-24 17:15</a>
+
+卡要塞7F了 这BOSS 制作组真TM阴暗B啊</blockquote>
+楼里终于有人开始碰舞蹈会了吗
+
+当时开荒真的是打的想死
+
+预感接下来会有很多人卡这boss。这boss可是比火龙什么的牛逼多了
+
+卡玩舞蹈会就是强制眼魔番兵➕大异形三连战！加油
+
