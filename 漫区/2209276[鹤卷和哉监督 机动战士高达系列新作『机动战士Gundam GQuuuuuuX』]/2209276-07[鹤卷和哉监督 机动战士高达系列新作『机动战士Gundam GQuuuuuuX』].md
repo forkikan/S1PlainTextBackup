@@ -6030,3 +6030,21 @@ Ortega[8][9] / Ortiga[10][12]
 
 我这也没有imax<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  maxwellsdemon  
+##### 9345#       发表于 2025-3-25 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67719176&amp;ptid=2209276" target="_blank">ads147147 发表于 2025-3-24 11:39</a>
+
+做12集，如果算上0079if也就是14集的量，给我的感觉其实是，khara的产能真的不太高了，磨得太久。不过打磨 ...</blockquote>
+如果能保持beginning的质量，khara完全有资格在产能方面给日升上课，你们这做的什么玩意
+
+*****
+
+####  Mitiru  
+##### 9346#       发表于 2025-3-25 11:45
+
+四线小城连排片都没出来，不会没排片吧，看个庵野高达还得清明节挤高速开车去省会也太...
+
