@@ -6114,3 +6114,11 @@ Ortega[8][9] / Ortiga[10][12]
 
 所以4DX推荐去吗？我对4D的印象还停留在游乐园里的小短片那种<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  积木23ki  
+##### 9354#       发表于 2025-3-25 14:21
+
+我们这好像全省都没有一家4dx。。。
+
