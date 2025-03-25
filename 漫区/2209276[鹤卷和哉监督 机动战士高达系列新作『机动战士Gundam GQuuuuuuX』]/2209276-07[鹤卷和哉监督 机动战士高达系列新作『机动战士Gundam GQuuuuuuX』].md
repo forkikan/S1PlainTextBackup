@@ -5976,3 +5976,14 @@ Ortega[8][9] / Ortiga[10][12]
 
 大赞YOASOBI那里太瞩目了w
 
+
+*****
+
+####  纪寞  
+##### 9339#       发表于 2025-3-25 09:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67724833&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-3-25 00:55</a>
+
+劇場先行版『機動戦士Gundam GQuuuuuuX -Beginning-』挿入歌として大注目の「ミッドナイト・リフレクション ...</blockquote>
+这已经确定午夜反射的主视角是玛秋了吧，那修司跑路回"那一边"预定了
+
