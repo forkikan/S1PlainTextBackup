@@ -3289,3 +3289,35 @@ CGディレクター：山之口 創
 2、6、9的和场明子，喜欢写素睦，不喜欢 ...</blockquote>
 独角兽有关注晴日，应该是磕一样的cp
 
+
+*****
+
+####  安娜导函数  
+##### 40205#       发表于 2025-3-25 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67727097&amp;ptid=2208921" target="_blank">帝下室の年糕 发表于 2025-3-25 12:20</a>
+别岁了，12集的评论区大部分都是夸的好吧，出来澄清是因为有人把她十多年前很正常的喜欢小孩的言论截出来 ...</blockquote>
+12话除了某些初祥CP厨，还有多少人觉得写的好嘛<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+你们就这么喜欢成为少女乐队的卡密嘛<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  安娜导函数  
+##### 40206#       发表于 2025-3-25 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67727364&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-3-25 13:20</a>
+爛尾列表 （大家可以繼續加上去）： 
+
+祥對素的同性恨原因</blockquote>
+还有在大喵老师看来，睦头精神分裂然后又融合是什么样子的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 40207#       发表于 2025-3-25 17:13
+
+等13话睦祥反杀了。
+
+节约：我们睦祥不会输的
+
