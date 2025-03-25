@@ -703,3 +703,11 @@ MG-206重机枪
 
 机器人又改回来了是吧，火箭兵一多各种飞人
 
+
+*****
+
+####  FLZB  
+##### 5899#       发表于 2025-3-25 19:00
+
+绿皮程序属实招笑，更新前吃了最后一口史，爆裂铳往东北方向打到六七十米开外隐形弹片飞回来给我秒了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
