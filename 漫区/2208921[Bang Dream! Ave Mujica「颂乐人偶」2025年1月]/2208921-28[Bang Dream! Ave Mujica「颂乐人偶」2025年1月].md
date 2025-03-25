@@ -2926,3 +2926,47 @@ CGディレクター：山之口 創
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  IWS2000  
+##### 40177#       发表于 2025-3-25 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67726517&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-3-25 11:06</a>
+搬点纯良的。感觉官方对喵梦代餐说是有点暧昧的，爱素对应睦祥，爱猫是mygo区别于ccc的新篇就好像初祥，海 ...</blockquote>
+🐈对应🐩吗？
+
+*****
+
+####  aptx8285144  
+##### 40178#       发表于 2025-3-25 14:13
+
+<blockquote>极寒冷焰酋蕾姆 发表于 2025-3-25 14:00
+还有一个：真初华究竟去哪了
+
+如果没能让假冒妹妹身份的初音面对（假如）知道真相的初华，那么ep12的初祥 ...</blockquote>
+出粗车司机说去本岛了，至于为什么连司机都知道渔民家的事情，就不要深究了(   
+
+这话现实意义上的漏洞太多了
+
+
+*****
+
+####  adretyu67.  
+##### 40179#       发表于 2025-3-25 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67727595&amp;ptid=2208921" target="_blank">极寒冷焰酋蕾姆 发表于 2025-3-25 14:00</a>
+
+还有一个：真初华究竟去哪了
+
+如果没能让假冒妹妹身份的初音面对（假如）知道真相的初华，那么ep12的初祥 ...</blockquote>
+又在幻想了，预告里说季节变幻。
+
+考虑到鸡目前时间是11月-12月，换季时间就是来年3月，也就是鸡狗高二学年开始。
+
+鸡动画结局是一位金发学生的侧面走过巨大的sumimi宣传看板
+
+以上展开是200%不可能出现的剧情<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+真初华仍然应该是背景角色。
+
