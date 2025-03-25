@@ -281,3 +281,26 @@ ss和水果没有上可以说声优没了
 
 我以为会紫毛会叫个cure dancer啥的，cure qq也太拗口了
 
+
+*****
+
+####  lyflyflxf  
+##### 763#       发表于 2025-3-25 08:39
+
+这一集的演出真是炸裂，眼泪掉一半变色太有创意了
+
+QQ变身前气场已经爆棚，背对镜头昂首挺胸直面反派的样子让我直想到“高达立于大地之上”，果然后面就开护罩挡掉了一次攻击<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lyflyflxf  
+##### 764#       发表于 2025-3-25 08:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67718751&amp;ptid=2208663" target="_blank">粉儿alice 发表于 2025-3-24 10:52</a>
+
+现在全入队了
+
+紫雨心别和同p的凉村珊瑚一样把好牌给打烂就行</blockquote>
+今年音乐的质量普遍一般，连ED都比较水
+
