@@ -3038,3 +3038,34 @@ CGディレクター：山之口 創
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">《雷雨》或者莎士比亚的剧本以前课本上应该都有过节选吧，动画剧本的场景、动作说明的部分要更简化一点，所以你可以认为负责Live的分演作用要大一点。
 
+
+*****
+
+####  秋月孝三  
+##### 40187#       发表于 2025-3-25 15:15
+
+ 本帖最后由 秋月孝三 于 2025-3-25 15:17 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">青学优秀毕设vs立教大学臭打游戏的，高下立判
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  与太郎  
+##### 40188#       发表于 2025-3-25 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67727692&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-3-25 14:23</a>
+
+这出租车司机知道渔民家的事情，还认的大祥的身份，就是独角兽和柿本派来的万能工具人，不用细想 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202503/25/151802ksvpwxrc84y6xz05.jpg" referrerpolicy="no-referrer">
+
+<strong>Honeyview_微信图片_20250325151735.jpg</strong> (166.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-25 15:18 上传
+
+答案是管家装成司机跟着上岛了（确信）
+
