@@ -3737,3 +3737,11 @@ https://x.com/Kanon_Takao/status/1904371155114553444</blockquote>
 
 一眼看到dona eis requiem
 
+
+*****
+
+####  与太郎  
+##### 40240#       发表于 2025-3-25 19:26
+
+祥子手里拿的是「神々の運命」，是指Ragnarok吗<img src="https://static.saraba1st.com/image/smiley/carton2017/482.png" referrerpolicy="no-referrer">
+
