@@ -2808,3 +2808,40 @@ TMD都3月份了才在问衣服发型的事，今年的新衣装还出不出了
 
 5月份的预购单又不能取消订单，瞬间觉得自己是SB
 
+
+*****
+
+####  holofan  
+##### 10958#       发表于 2025-3-25 14:02
+
+<img src="https://img.saraba1st.com/forum/202503/25/140117rh46c99i3wvh6ywa.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (88.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-25 14:01 上传
+
+*****
+
+####  holofan  
+##### 10959#       发表于 2025-3-25 16:32
+
+<img src="https://img.saraba1st.com/forum/202503/25/163023jjjckdcu6e6tjksk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (13.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-25 16:30 上传
+
+<img src="https://img.saraba1st.com/forum/202503/25/163211qm29x2094t9109yz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (22.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-25 16:32 上传
+
+搞不好同一天400万
+
