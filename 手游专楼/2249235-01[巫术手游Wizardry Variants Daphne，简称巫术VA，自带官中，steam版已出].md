@@ -2324,3 +2324,14 @@ staff太屑了，就为了那一小段剧情这破玩意要打三次，三回啊
 越想越不合理....为啥跑图开宝箱出的装备和卖钱的垃圾都是直接扔掉仓库....只有消费道具是直接让队伍成员拿 ...</blockquote>
 宝箱直接开出来的装备是在开箱角色身上的 只有换金道具跟杂物(能开出装备的那个)是直接归进仓库的
 
+
+*****
+
+####  森兰丸  
+##### 198#       发表于 2025-3-25 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67728798&amp;ptid=2249235" target="_blank">UdukiMisato 发表于 2025-3-25 17:26</a>
+
+宝箱直接开出来的装备是在开箱角色身上的 只有换金道具跟杂物(能开出装备的那个)是直接归进仓库的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">是我没表达清楚....我说的就是要去废屋再慢慢开的装备
+

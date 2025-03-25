@@ -3369,3 +3369,14 @@ CGディレクター：山之口 創
 
 —— 来自 vivo V2361GA, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
+
+*****
+
+####  刑部姬真可爱  
+##### 40213#       发表于 2025-3-25 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67728807&amp;ptid=2208921" target="_blank">十九号大侠 发表于 2025-3-25 17:27</a>
+
+什么时候出重置版</blockquote>
+周四完结鸡组进手游后出，相信手游编剧的智慧，让TV追手游<img src="https://static.saraba1st.com/image/smiley/carton2017/482.png" referrerpolicy="no-referrer">
+
