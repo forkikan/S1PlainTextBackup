@@ -5987,3 +5987,13 @@ Ortega[8][9] / Ortiga[10][12]
 劇場先行版『機動戦士Gundam GQuuuuuuX -Beginning-』挿入歌として大注目の「ミッドナイト・リフレクション ...</blockquote>
 这已经确定午夜反射的主视角是玛秋了吧，那修司跑路回"那一边"预定了
 
+
+*****
+
+####  57042711  
+##### 9340#       发表于 2025-3-25 09:34
+
+真要离别啊…修司是要被夏亚绑走去UC0093推阿克西斯吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
