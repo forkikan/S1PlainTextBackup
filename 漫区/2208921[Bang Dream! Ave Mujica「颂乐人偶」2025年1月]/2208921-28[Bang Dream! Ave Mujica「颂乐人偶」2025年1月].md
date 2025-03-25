@@ -3380,3 +3380,66 @@ CGディレクター：山之口 創
 什么时候出重置版</blockquote>
 周四完结鸡组进手游后出，相信手游编剧的智慧，让TV追手游<img src="https://static.saraba1st.com/image/smiley/carton2017/482.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adretyu67.  
+##### 40214#       发表于 2025-3-25 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67728933&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-3-25 17:45</a>
+
+周四完结鸡组进手游后出，相信手游编剧的智慧，让TV追手游</blockquote>
+应该没那么快，感觉甚至可能拖到7月pico吧
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 40215#       发表于 2025-3-25 17:47
+
+每周一问，我鸡团TFT炒作呢
+
+*****
+
+####  刑部姬真可爱  
+##### 40216#       发表于 2025-3-25 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67728949&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-3-25 17:47</a>
+
+应该没那么快，感觉甚至可能拖到7月pico吧</blockquote>
+也有可能，毕竟刚完结的话热度还算高，等一个季度再开始剧情的话又能给wsd炒热度了
+
+
+*****
+
+####  Hchan  
+##### 40217#       发表于 2025-3-25 17:53
+
+柿本作为第一责任人没啥问题，但是角孝子眼里，mygo的成功和柿本这个第一责任人没关系就很招笑，不知道的还以为柿本是母鸡卡空降来的呢，
+
+在我看来mygo的成功很大程度是邦邦组从邦邦第二季开始长期磨合下来的团队配合，以及项目积累下来成熟的三渲二生产管线下能做出的很惊艳的镜头画面和演出调度，再加上武士道愿意适度放宽广告片的束缚让团队集思广益。
+
+组织这三个的当然都是作为监督的柿本啊，有些人脑子里真就二极管
+
+*****
+
+####  半年  
+##### 40218#       发表于 2025-3-25 17:55
+
+<img src="https://img.saraba1st.com/forum/202503/25/175539mndmdm5su2us5518.jpg" referrerpolicy="no-referrer">
+
+<strong>Gm2vYW_akAAJV6e.jpg</strong> (358.56 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-25 17:55 上传
+
+<img src="https://img.saraba1st.com/forum/202503/25/175539yqldtt1wu19adddl.jpg" referrerpolicy="no-referrer">
+
+<strong>Gm2vYW0bEAAEdSu.jpg</strong> (398.64 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-25 17:55 上传
+
+[https://x.com/Kanon_Takao/status/1904371155114553444](https://x.com/Kanon_Takao/status/1904371155114553444)
+
