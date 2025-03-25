@@ -47,3 +47,11 @@
 限定到猎杀最后也有好几个了，猩猩dito之类的，诺宝勉强算</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">花月那样也要用自己不习惯的设备参赛
 
+
+*****
+
+####  高等黑暗  
+##### 1065#       发表于 2025-3-25 08:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">昨天皇女开虹杏交流战抽卡，拉到最后看了下成品这游戏捏人就只能捏到这种程度？看了下其他先开的人也都差不多……这还不如不捏呢
+

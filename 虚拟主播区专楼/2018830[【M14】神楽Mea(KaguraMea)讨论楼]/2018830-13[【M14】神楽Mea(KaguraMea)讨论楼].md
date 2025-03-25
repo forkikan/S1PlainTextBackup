@@ -6298,3 +6298,79 @@ UDX是什么？抱歉真的不知道，UDX是啥？
 因为对芙莉莲那段很感兴趣，并且在一些细节上稍微想再确认一下，就回听了那段，结果越听越绷不住，这还真是有原典的（
 <img src="https://p.sda1.dev/22/d3eb56541c3831a96b9491fd9dc80b4e/image.jpg" referrerpolicy="no-referrer">这是推上的图，搜“僕にフリーレンを買わせてください！”应该就能搜到，九百多万播放（
 
+
+*****
+
+####  术士q  
+##### 18303#       发表于 2025-3-23 22:06
+
+还在辛拉面还在辛拉面
+不过主播既然有了对策应该不会像之前那样了，只是辛拉面就这么好吃吗（
+今晚尤其可爱捏
+
+*****
+
+####  术士q  
+##### 18304#       发表于 2025-3-23 22:07
+
+ 本帖最后由 术士q 于 2025-3-23 23:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67717006&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2025-3-23 22:06</a>
+咿呀哈！(汤姆同款叫声)
+哎呀吼x5</blockquote>
+之前的话我记得是直接掐了ed（）
+这次可能忘了掐，就能看到那些小表情，不过真的挺可爱的，很灵动<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sino__unnko3  
+##### 18305#       发表于 2025-3-23 22:12
+
+ 本帖最后由 sino__unnko3 于 2025-3-23 22:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67717013&amp;ptid=2018830" target="_blank">术士q 发表于 2025-3-23 22:06</a>
+还在辛拉面还在辛拉面
+不过主播既然有了对策应该不会像之前那样了，只是辛拉面就这么好吃吗（
+今晚尤其可爱 ...</blockquote>
+不是生蚝刺身还好罢(
+
+不过主播这个吃法不就国内部队锅吃法，上面加一堆巨难吃的芝士(我也经常整碗辛拉面，这个或者汤达人那个有醋的面，拿锅煮或者微波炉叮一下巨好吃，辣的话用冰牛奶对付，哦上次也跟主播这么推荐了()
+这下拆那胃了(
+
+附个小表情<img src="https://p.sda1.dev/22/43dcaa384c3a9b8fd1d424dae5df3722/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  术士q  
+##### 18306#       发表于 2025-3-23 23:00
+
+?ponycanyon版权炮说是
+歌回回放被gank了，不可原谅啊ponycanyon
+
+*****
+
+####  shmilyhua  
+##### 18307#       发表于 2025-3-23 23:24
+
+根据之前的经验，sony一般是白金disco，ponycanyon是五等分，
+不知道haneru的live是卡了哪一首。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  术士q  
+##### 18308#       发表于 2025-3-24 23:58
+
+ 本帖最后由 术士q 于 2025-3-25 00:08 编辑 
+
+因为对芙莉莲那段很感兴趣，并且在一些细节上稍微想再确认一下，就回听了那段，结果越听越绷不住，这还真是有原典的（
+<img src="https://p.sda1.dev/22/d3eb56541c3831a96b9491fd9dc80b4e/image.jpg" referrerpolicy="no-referrer">这是推上的图，搜“僕にフリーレンを買わせてください！”应该就能搜到，原视频九百多万播放（
+
+*****
+
+####  sino__unnko3  
+##### 18309#       发表于 2025-3-25 08:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67724550&amp;ptid=2018830" target="_blank">术士q 发表于 2025-3-24 23:58</a>
+因为对芙莉莲那段很感兴趣，并且在一些细节上稍微想再确认一下，就回听了那段，结果越听越绷不住，这还真是 ...</blockquote>
+没看懂，怎么就奇酷比了()
+
