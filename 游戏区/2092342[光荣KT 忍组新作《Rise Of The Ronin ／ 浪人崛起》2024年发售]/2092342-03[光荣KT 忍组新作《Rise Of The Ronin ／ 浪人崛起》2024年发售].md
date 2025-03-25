@@ -3223,3 +3223,11 @@ BV19CoBYjErt
 暗耻这次是不是发明历史了，1853年笃姬的丈夫德川家定还没死呢，德川庆喜也还没上位 ...</blockquote>
 这游戏里，历史上病逝、被暗杀的角色可以被玩家救，历史上善终的角色给写殉情了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  萌萌地镜头  
+##### 3715#       发表于 2025-3-25 13:58
+
+这游戏的自动寻路太爽了吧，其他厂商真得学学
+
