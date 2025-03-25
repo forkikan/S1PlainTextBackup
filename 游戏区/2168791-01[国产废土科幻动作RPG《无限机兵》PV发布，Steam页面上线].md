@@ -1287,3 +1287,32 @@ Bleak Faith: Forsaken
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  红魔馆的糖  
+##### 136#       发表于 2025-3-25 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67725957&amp;ptid=2168791" target="_blank">缪斯替 发表于 2025-3-25 09:57</a>
+
+才发现没有日配……有点犹豫了
+
+—— 来自 鹅球 v3.3.96</blockquote>
+我本来也是因为没日配想一票否决的，然后切到英配感觉还行，是那种模仿魂系的配音风格
+
+
+*****
+
+####  iewnay  
+##### 137#       发表于 2025-3-25 11:53
+
+看这名字还以为有坦克开呢。
+
+
+*****
+
+####  iewnay  
+##### 137#       发表于 2025-3-25 11:53
+
+看这名字还以为有坦克开呢。
+
