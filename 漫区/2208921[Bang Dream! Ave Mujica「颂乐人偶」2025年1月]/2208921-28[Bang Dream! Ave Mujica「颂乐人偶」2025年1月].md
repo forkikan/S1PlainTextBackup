@@ -2623,3 +2623,37 @@ CGディレクター：山之口 創
 系构脚 ...</blockquote>
 想起个笑话，去年的蜇后半段动画播的时候大家主要在车59，结果后来59真把小说弄出来了——仔细一看59其实是会写黄棕关系性的（当然幽默80戏码的锅甩不掉），动画里包括自信呦西在内的一大堆恶心人的东西都是竹下加上去的……
 
+
+*****
+
+####  帝下室の年糕  
+##### 40153#       发表于 2025-3-25 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67726920&amp;ptid=2208921" target="_blank">盐盐盐盐盐 发表于 2025-3-25 11:50</a>
+其实还蛮搞笑的，独角兽在12话播出诈尸以为会被夸夸呢结果被狂喷到破防，综合风评还不如所谓的毁誉参半第七 ...</blockquote>
+别岁了，12集的评论区大部分都是夸的好吧，出来澄清是因为有人把她十多年前很正常的喜欢小孩的言论截出来造谣她是乱伦LTP，何况老登LKD的破事儿本来就不是她想出来的，被说写得烂是一回事，被恶意联想造谣成乱伦LTP性质就不一样了，直接用きもい这种词说明是真被恶心到了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  operatbig  
+##### 40154#       发表于 2025-3-25 12:23
+
+最终话不是大角，太好了。
+
+
+*****
+
+####  帝下室の年糕  
+##### 40153#       发表于 2025-3-25 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67726920&amp;ptid=2208921" target="_blank">盐盐盐盐盐 发表于 2025-3-25 11:50</a>
+其实还蛮搞笑的，独角兽在12话播出诈尸以为会被夸夸呢结果被狂喷到破防，综合风评还不如所谓的毁誉参半第七 ...</blockquote>
+别岁了，12集的评论区大部分都是夸的好吧，出来澄清是因为有人把她十多年前很正常的喜欢小孩的言论截出来造谣她是乱伦LTP，何况老登LKD的破事儿本来就不是她想出来的，被说写得烂是一回事，被恶意联想造谣成乱伦LTP性质就不一样了，直接用きもい这种词说明是真被恶心到了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  operatbig  
+##### 40154#       发表于 2025-3-25 12:23
+
+最终话不是大角，太好了。
+
