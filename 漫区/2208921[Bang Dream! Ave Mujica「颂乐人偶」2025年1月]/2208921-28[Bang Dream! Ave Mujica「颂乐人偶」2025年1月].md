@@ -3321,3 +3321,34 @@ CGディレクター：山之口 創
 
 节约：我们睦祥不会输的
 
+
+*****
+
+####  南宮凝香  
+##### 40208#       发表于 2025-3-25 17:18
+
+<blockquote>adretyu67. 发表于 2025-3-25 17:13
+等13话睦祥反杀了。
+
+节约：我们睦祥不会输的</blockquote>
+這裡是什麼肘術回戰片場嗎？
+
+每一集輪流肘對面
+
+*****
+
+####  qlipho  
+##### 40209#       发表于 2025-3-25 17:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">12集的作用就是祥子以后奇怪的家政二创会少点了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  6030sylar  
+##### 40210#       发表于 2025-3-25 17:22
+
+就是为爆而爆，柿本非要搞观众猜不到的发展乱改，如果要保留小姨这设定，在睦身上最合适，是比祥子大一辈的表亲，即森美奈美是祥奶的小很多的妹妹
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
