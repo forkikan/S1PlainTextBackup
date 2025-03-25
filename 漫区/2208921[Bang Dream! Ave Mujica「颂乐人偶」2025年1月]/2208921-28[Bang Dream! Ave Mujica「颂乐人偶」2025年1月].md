@@ -2306,3 +2306,146 @@ MyGo第十話一集就包了愛燈素三人餃子，
 
 🍅这货看起来不是啥好玩意儿，不过正好🦄不是接了新活吗，等着看上映之后多方混战了。
 
+
+*****
+
+####  堀内爱里衣  
+##### 40133#       发表于 2025-3-25 11:01
+
+ 本帖最后由 堀内爱里衣 于 2025-3-25 11:04 编辑 
+
+<strong>#13</strong> <strong>Per asprera ad astra.</strong>
+
+<img src="https://img.saraba1st.com/forum/202503/25/110127c1056pldldqxz2q1.png" referrerpolicy="no-referrer">
+
+<strong>①ドロリス.png</strong> (1.02 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-25 11:01 上传
+
+<img src="https://img.saraba1st.com/forum/202503/25/110132q2iho908hoq81jq0.png" referrerpolicy="no-referrer">
+
+<strong>②モーティス.png</strong> (1.33 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-25 11:01 上传
+
+<img src="https://img.saraba1st.com/forum/202503/25/110136x7tfpirta67iv00w.png" referrerpolicy="no-referrer">
+
+<strong>③ティモリス.png</strong> (1.13 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-25 11:01 上传
+
+<img src="https://img.saraba1st.com/forum/202503/25/110139r17tty1lc5061jua.png" referrerpolicy="no-referrer">
+
+<strong>④アモーリス.png</strong> (872.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-25 11:01 上传
+
+<img src="https://img.saraba1st.com/forum/202503/25/110143na8a8j0z798hw3tc.png" referrerpolicy="no-referrer">
+
+<strong>⑤オブリビオニス.png</strong> (1.05 MB, 下载次数: 0)
+
+下载附件
+
+2025-3-25 11:01 上传
+
+彼女達が辿ってきた道、今いる場所の景色。
+
+「季節が、かわってた……」
+
+她们走过的道路、如今所在之处的风景。
+
+「季节，已经改变了……」
+
+脚本：小川 ひとみ
+
+絵コンテ：森田 紘吏、岡 こずえ
+
+演出：山之口 創
+
+CGディレクター：山之口 創
+[https://anime.bang-dream.com/avemujica/story/](https://anime.bang-dream.com/avemujica/story/)
+[https://t.bilibili.com/1048114615319265302](https://t.bilibili.com/1048114615319265302)
+
+*****
+
+####  AveMujica  
+##### 40134#         楼主| 发表于 2025-3-25 11:02
+
+#13 Per asprera ad astra.
+
+彼女達が辿ってきた道、今いる場所の景色。
+
+「季節が、かわってた……」
+
+脚本：小川 ひとみ
+
+絵コンテ：森田 紘吏、岡 こずえ
+
+演出：山之口 創
+
+CGディレクター：山之口 創
+
+<img src="https://img.saraba1st.com/forum/202503/25/110150lm4m0mmef1menfel.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (901.93 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-25 11:01 上传
+
+<img src="https://img.saraba1st.com/forum/202503/25/110152hiq8zq1uqx992713.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (875.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-25 11:01 上传
+
+<img src="https://img.saraba1st.com/forum/202503/25/110154hevrkrkfqzo6t1b5.png" referrerpolicy="no-referrer">
+
+<strong>3.png</strong> (1015.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-25 11:01 上传
+
+<img src="https://img.saraba1st.com/forum/202503/25/110157sguuzljujjljznog.png" referrerpolicy="no-referrer">
+
+<strong>4.png</strong> (771.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-25 11:01 上传
+
+<img src="https://img.saraba1st.com/forum/202503/25/110159mw6ekaofbwozj3q6.png" referrerpolicy="no-referrer">
+
+<strong>5.png</strong> (948.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-25 11:01 上传
+
+*****
+
+####  ads147147  
+##### 40135#       发表于 2025-3-25 11:05
+
+结果演出服也没换新的，还是那套啊。<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 40136#       发表于 2025-3-25 11:05
+
+<blockquote>本集编剧：小川瞳</blockquote>
+
+         
+
