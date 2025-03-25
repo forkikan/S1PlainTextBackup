@@ -6068,3 +6068,18 @@ Ortega[8][9] / Ortiga[10][12]
 
 —— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  YU_JI  
+##### 9348#       发表于 2025-3-25 12:10
+
+我们这边有IMAX，已经报上观影团的特典场了
+
+*****
+
+####  AvenueIII  
+##### 9349#       发表于 2025-3-25 12:12
+
+有没有漏油去试试国配版本（
+

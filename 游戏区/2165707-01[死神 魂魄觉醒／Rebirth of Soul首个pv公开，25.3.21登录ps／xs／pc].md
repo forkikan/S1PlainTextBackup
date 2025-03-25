@@ -889,3 +889,13 @@ SCE这块真的出过，死神灵魂燃烧，还带官中的
 系统还行，问题是平衡性做得稀烂，我强烈怀疑这帮程序猿没有玩过自己做的东西，强角色一套一管血，各种无 ...</blockquote>
 毕竟不是做硬核格斗出身的，我也不信他能长期运营挑平衡性
 
+
+*****
+
+####  医生狼多  
+##### 91#         楼主| 发表于 2025-3-25 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67720590&amp;ptid=2165707" target="_blank">xiongxingyu 发表于 2025-3-24 15:01</a>
+系统还行，问题是平衡性做得稀烂，我强烈怀疑这帮程序猿没有玩过自己做的东西，强角色一套一管血，各种无 ...</blockquote>
+这不是我们龙珠电光火石吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
