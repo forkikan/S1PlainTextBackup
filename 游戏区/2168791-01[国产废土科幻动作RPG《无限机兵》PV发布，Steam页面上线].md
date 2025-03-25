@@ -1277,3 +1277,13 @@ Bleak Faith: Forsaken
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  fbman  
+##### 135#       发表于 2025-3-25 11:09
+
+这作有盘吗。还挺喜欢它那个一片白的封面的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

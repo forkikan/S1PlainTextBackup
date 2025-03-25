@@ -2449,3 +2449,73 @@ CGディレクター：山之口 創
 
          
 
+
+*****
+
+####  刑部姬真可爱  
+##### 40137#       发表于 2025-3-25 11:06
+
+不知道这个live制作组是就纯做live，还是会在里面塞小动作小表情来从侧面过剧情和人物关系
+
+*****
+
+####  zhoujin8584  
+##### 40138#       发表于 2025-3-25 11:06
+
+搬点纯良的。感觉官方对喵梦代餐说是有点暧昧的，爱素对应睦祥，爱猫是mygo区别于ccc的新篇就好像初祥，海希、素睦团外cp。发散的话什么叫睦是mujica的摆烂妈妈位啊
+
+<img src="https://img.saraba1st.com/forum/202503/25/110604alb4drd6zruuy34d.jpg" referrerpolicy="no-referrer">
+
+<strong>axw3Q19s-xksZeT3cSqy-sg.jpg</strong> (142.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-25 11:06 上传
+
+*****
+
+####  看穿一切的鱼  
+##### 40139#       发表于 2025-3-25 11:07
+
+真是一场酣畅淋漓的赤石啊，终于完结了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhoujin8584  
+##### 40140#       发表于 2025-3-25 11:09
+
+备货量
+
+<img src="https://img.saraba1st.com/forum/202503/25/110858dvw1drlobvrzml1l.jpg" referrerpolicy="no-referrer">
+
+<strong>095104kfszniwpv1zz10pn.jpg</strong> (26.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-25 11:08 上传
+
+*****
+
+####  huxiaopao163  
+##### 40141#       发表于 2025-3-25 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67726272&amp;ptid=2208921" target="_blank">cqc1021 发表于 2025-3-25 10:33</a>
+
+独角兽也不是第一次背刺前同事了。既然不打算在wsd混了，那为啥不能彻底撕破脸。反正只要别跟阿宽一样沾z ...</blockquote>
+话说国内粉丝怎么给一个日本动画编剧爆米啊，请她来给国内动画当编剧吗，还是管人出道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 40142#       发表于 2025-3-25 11:11
+
+13集如无意外还要拿去剪film live 的，循环利用
+
+
+*****
+
+####  adretyu67.  
+##### 40143#       发表于 2025-3-25 11:14
+
+鸡12都11-12月了，再季节变换就得高二了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

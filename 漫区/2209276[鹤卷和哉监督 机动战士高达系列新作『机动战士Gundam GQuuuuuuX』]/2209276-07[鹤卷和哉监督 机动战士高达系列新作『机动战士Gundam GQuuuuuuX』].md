@@ -6006,3 +6006,19 @@ Ortega[8][9] / Ortiga[10][12]
 竟然有imax，有杜比吗？
 没有杜比就买imax了
 
+
+*****
+
+####  王留美  
+##### 9342#       发表于 2025-3-25 11:08
+
+有4DX和MX4D！
+
+
+*****
+
+####  阿尔巴尼亚  
+##### 9343#       发表于 2025-3-25 11:13
+
+我这边全是日语2d没有imax<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
