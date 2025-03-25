@@ -18,3 +18,12 @@
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  wfhtony  
+##### 50#       发表于 2025-3-25 15:33
+
+老任开始在Nintendo Music挤这套OST的牙膏倒是提醒了咱，这份OST还没传到这边过...
+[[240913] 游戏《星之卡比 探索发现》完全原声带](https://bbs.saraba1st.com/2b/thread-2250961-1-1.html)
+
