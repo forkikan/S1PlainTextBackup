@@ -105,7 +105,7 @@ if __name__ == '__main__':
         threadict = {}
         # 仅查看第一页
         for i in range(1,2):
-            RURL = 'https://bbs.saraba1st.com/2b/forum-'+forumdict[k]+'-'+str(i)+'.html'
+            RURL = 'https://stage1st.com/2b/forum-'+forumdict[k]+'-'+str(i)+'.html'
             s1 = session.get(RURL, headers=headers,  cookies=cookies)
             # print(s1.encoding)
             # s1 = requests.get(RURL, headers=headers)

@@ -130,7 +130,7 @@ if __name__ == '__main__':
         with open(根路径+'RefreshingData.json',"r",encoding='utf-8-sig') as f:
             帖子数据=json.load(f)
         for i in range(回帖序号):
-            回帖字符串 = f"{回帖字符串}{i+1}. [url=https://bbs.saraba1st.com/2b/thread-{回帖排序[i][0]}-1-1.html]{帖子数据[回帖排序[i][0]]['title']}[/url]（[b]+{回帖排序[i][1]}[/b]）\n"
+            回帖字符串 = f"{回帖字符串}{i+1}. [url=https://stage1st.com/2b/thread-{回帖排序[i][0]}-1-1.html]{帖子数据[回帖排序[i][0]]['title']}[/url]（[b]+{回帖排序[i][1]}[/b]）\n"
         if 板块 != "手游战斗":
             # 回帖字符串 = f"""{回帖字符串}[b]前10高频词汇[/b]：\n{"，".join([f"{word:<10}{count:>5}" for word, count in 词云排序[:5]])}\n{"，".join([f"{word:<10}{count:>5}" for word, count in 词云排序[5:10]])}\n"""
             回帖字符串 = f"{回帖字符串}===========\n\n"
@@ -144,7 +144,7 @@ if __name__ == '__main__':
         cookies[key] = value
     headers = {'User-agent':'Mozilla/5.0 (Windows NT 10.0; Win64; x64) AppleWebKit/537.36 (KHTML, like Gecko) Chrome/92.0.4515.159 Safari/537.36 Edg/92.0.902.78'}
     ''' 获取formhash'''
-    RURL = 'https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&tid=334540&extra=page%3D1'
+    RURL = 'https://stage1st.com/2b/forum.php?mod=viewthread&tid=334540&extra=page%3D1'
     s1 = requests.get(RURL, headers=headers,  cookies=cookies)
     content = s1.content
     while True:
@@ -159,7 +159,7 @@ if __name__ == '__main__':
             '''回帖ID，手动修改'''
             threadid = 2143473
             '''回帖ID，手动修改'''
-            replyurl = 'https://bbs.saraba1st.com/2b/forum.php?mod=post&action=reply&fid=151&tid='+str(threadid)+'&extra=page%3D1&replysubmit=yes'
+            replyurl = 'https://stage1st.com/2b/forum.php?mod=post&action=reply&fid=151&tid='+str(threadid)+'&extra=page%3D1&replysubmit=yes'
             #url为要回帖的地址
             Data = {'formhash': formhash,'message': 回帖字符串,'subject': subject,'posttime':int(time.time()),'wysiwyg':1,'usesig':1}
             req = requests.post(replyurl,data=Data,headers=headers,cookies=cookies)

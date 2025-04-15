@@ -225,7 +225,7 @@ async def UpdateThread(threaddict,semaphore):
             async with semaphore:
                 lastpage = threaddict['totalreply']//40
                 async with aiohttp.ClientSession(headers=headers,cookies=cookies) as session:
-                    url = 'https://bbs.saraba1st.com/2b/thread-'+threaddict['id']+'-1-1.html'
+                    url = 'https://stage1st.com/2b/thread-'+threaddict['id']+'-1-1.html'
                     async with session.get(url,headers=headers) as response:
                         result = await response.content.read()
             namelist, replylist,totalpage,newtitles= parse_html(result)
@@ -244,7 +244,7 @@ async def UpdateThread(threaddict,semaphore):
             async with semaphore:
                 async with aiohttp.ClientSession(connector=conn,headers=headers,cookies=cookies) as session:
                     for thread in range(lastpage+1,totalpage+1):
-                        rurl = 'https://bbs.saraba1st.com/2b/thread-'+threaddict['id']+'-'+str(thread)+'-1.html'
+                        rurl = 'https://stage1st.com/2b/thread-'+threaddict['id']+'-'+str(thread)+'-1.html'
                         # rresult = rsession.get(rurl, headers=headers,  cookies=cookies)
                         # rdata = rresult.content
                         async with session.get(rurl) as response:
