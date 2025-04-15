@@ -1,0 +1,445 @@
+﻿
+*****
+
+####  联想会  
+##### 40241#       发表于 2025-3-25 18:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67728775&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-3-25 17:22</a>
+就是为爆而爆，柿本非要搞观众猜不到的发展乱改，如果要保留小姨这设定，在睦身上最合适，是比祥子大一辈的 ...</blockquote>
+木箱厨完全不抗拒小姨甚至很欢迎<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不像初祥豚豚们得了便宜还卖乖
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  qlipho  
+##### 40242#       发表于 2025-3-25 18:06
+
+ 本帖最后由 qlipho 于 2025-3-25 18:17 编辑 
+
+柿本哥哥是素世啊，睦头估计是其他编剧
+
+*****
+
+####  Ferrari  
+##### 40243#       发表于 2025-3-25 18:07
+
+现在彻底悟了
+母鸡卡烂成这个样子早有预谋，小烂不如大烂
+烂到无以复加让大家自己主动放弃思考，忽略剧情，反而能自欺欺人地去关注角色和音乐演奏
+反正乐团真实实力在那摆着，海量二创也不愁没粮吃<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">至于作品本身只是提供这一切的一个媒介而已
+
+*****
+
+####  FanFun  
+##### 40244#       发表于 2025-3-25 18:10
+
+独角兽的xp可能还有一层是让女学生在和青梅二选一中选了怪阿姨，睦就是娅娅卡的位置
+
+*****
+
+####  6030sylar  
+##### 40245#       发表于 2025-3-25 18:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67729094&amp;ptid=2208921" target="_blank">FanFun 发表于 2025-3-25 18:10</a>
+独角兽的xp可能还有一层是让女学生在和青梅二选一中选了怪阿姨，睦就是娅娅卡的位置 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">独角兽笔下败犬青梅都能套娅娅卡
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  颂乐人偶  
+##### 40246#       发表于 2025-3-25 18:19
+
+本月柿本
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  6030sylar  
+##### 40247#       发表于 2025-3-25 18:22
+
+又是大祥脚，这是谁的xp
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  Victorino  
+##### 40248#       发表于 2025-3-25 18:29
+
+<blockquote>MuramasaSP 发表于 2025-3-25 16:22
+祥子知道素世想重组crychic就更讨厌素世了。
+
+祥子90%的哈气都是因为别人触及她不愿想起的过往。素世光是 ...</blockquote>
+感觉go9集之前，逃避是全局所有角色的底层逻辑
+
+灯说了一辈子乐队被爱音笑了，跑；爱音见了初中同学，跑；立希死线压力太大了，跑
+
+这么看的话，祥子逃离乐队也是一以贯之的逻辑
+
+话又说回来，这是不是独角兽本人的生存逻辑？感觉角神也是特别喜欢跑路的类型
+
+*****
+
+####  6030sylar  
+##### 40249#       发表于 2025-3-25 18:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67729193&amp;ptid=2208921" target="_blank">Victorino 发表于 2025-3-25 18:29</a>
+
+感觉go9集之前，逃避是全局所有角色的底层逻辑
+
+灯说了一辈子乐队被爱音笑了，跑；爱音见了初中同学，跑； ...</blockquote>
+写作就这样很容易融入自身（笑
+
+*****
+
+####  刑部姬真可爱  
+##### 40250#       发表于 2025-3-25 18:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67729163&amp;ptid=2208921" target="_blank">6030sylar 发表于 2025-3-25 18:22</a>
+
+又是大祥脚，这是谁的xp
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+大祥脚谁不爱<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  油画布  
+##### 40251#       发表于 2025-3-25 18:42
+
+别的就算了，手游能不能把第七集那个已读不回的幽默go团传统给删了
+
+*****
+
+####  聪明墨菲特  
+##### 40252#       发表于 2025-3-25 18:43
+
+因为内斗被写成单元剧，那角色以乐队成员的身份存在就立不住了，以cp的形象存在也算是不错的补救了。估计下一季每一话也是这种二人转形式，只要鸡团回归商业一切都会好起来的
+
+*****
+
+####  结衣小比取  
+##### 40253#       发表于 2025-3-25 18:44
+
+看到有坛友聊起若叶家和丰川家的关系，除了第一话座位外，第三话睦的内心小剧场不知是否也在暗示<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer"> 
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  南宮凝香  
+##### 40254#       发表于 2025-3-25 18:45
+
+<blockquote>颂乐人偶 发表于 2025-3-25 18:19
+本月柿本</blockquote>
+看到密麻麻的字我便害怕了
+
+大柿老師的全力肘擊
+
+*****
+
+####  颂乐人偶  
+##### 40255#       发表于 2025-3-25 19:06
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  adretyu67.  
+##### 40256#       发表于 2025-3-25 19:10
+
+ob一串字母女士直接不当人偶改行当女神了吗。
+
+果然是旧世界毁灭来到新世界的剧情。
+
+*****
+
+####  一心而用  
+##### 40257#       发表于 2025-3-25 19:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67729007&amp;ptid=2208921" target="_blank">半年 发表于 2025-3-25 17:55</a>
+https://x.com/Kanon_Takao/status/1904371155114553444</blockquote>
+团魂
+<img src="https://p.sda1.dev/22/6795af20d36f654671375ce7c5094660/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/cf1b8a691d10cdd5435661c538372d5c/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/22/34bba2d96a7cc1baea40adba1e1e94ad/image.jpg" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| zhoujin8584| + 1|和这个世界和解了|
+
+查看全部评分
+
+*****
+
+####  与太郎  
+##### 40258#       发表于 2025-3-25 19:15
+
+一眼看到dona eis requiem
+
+*****
+
+####  与太郎  
+##### 40259#       发表于 2025-3-25 19:26
+
+祥子手里拿的是「神々の運命」，是指Ragnarok吗<img src="https://static.stage1st.com/image/smiley/carton2017/482.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南風森愛恋  
+##### 40260#       发表于 2025-4-15 20:44
+
+评分贴呢，等不及了
+
+*****
+
+####  哈曼的YY  
+##### 40261#       发表于 2025-4-16 00:13
+
+刚来 什么时候清算十本的小姨
+
+*****
+
+####  航母掉头  
+##### 40262#       发表于 2025-4-16 00:18
+
+好耶，霸权番
+
+*****
+
+####  假面骑士3号  
+##### 40263#       发表于 2025-4-16 00:18
+
+卧槽，复活了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  仟音一心  
+##### 40264#       发表于 2025-4-16 00:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67729522&amp;ptid=2208921" target="_blank">南風森愛恋 发表于 2025-4-15 20:44</a>
+
+评分贴呢，等不及了</blockquote>
+
+我开了一个
+[[TV] [2025.01][TV.13]BanG Dream! Ave Mujica/颂乐人偶](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2250986&amp;page=1&amp;extra=#pid67729669)
+
+*****
+
+####  千本blur  
+##### 40265#       发表于 2025-4-16 00:27
+
+泥潭活了，avm是彻底似了
+
+*****
+
+####  萌二  
+##### 40266#       发表于 2025-4-16 00:37
+
+期待下一部<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  堀内爱里衣  
+##### 40267#       发表于 2025-4-16 00:50
+
+ 本帖最后由 堀内爱里衣 于 2025-4-16 01:55 编辑 
+
+<img src="https://ac.stage3rd.com/upfiles/202503/A1BACA1BB@0796409477155.jpg" referrerpolicy="no-referrer">
+<img src="https://ac.stage3rd.com/upfiles/202503/A1BACA1BB@0796409540211.jpg" referrerpolicy="no-referrer">
+[https://x.com/puracotte117/status/1905092420922233133](https://x.com/puracotte117/status/1905092420922233133)
+
+<img src="https://ac.stage3rd.com/upfiles/202503/A1BACA1BB@0796436494800.jpeg" referrerpolicy="no-referrer">
+<img src="https://ac.stage3rd.com/upfiles/202503/A1BACA1BB@0796436517967.jpg" referrerpolicy="no-referrer">
+[https://x.com/towor_n/status/1905270080092733543](https://x.com/towor_n/status/1905270080092733543)
+
+<img src="https://ac.stage3rd.com/upfiles/202503/A1BACA1BB@0796435332236.jpeg" referrerpolicy="no-referrer">
+<img src="https://ac.stage3rd.com/upfiles/202503/A1BACA1BB@0796435353332.jpg" referrerpolicy="no-referrer">
+[https://x.com/berryverrine/status/1905269927973728290](https://x.com/berryverrine/status/1905269927973728290)
+
+<img src="https://ac.stage3rd.com/upfiles/202503/A1BACA1BB@0796435490457.jpg" referrerpolicy="no-referrer">
+[https://x.com/bang_dream_info/status/1905266170648998361](https://x.com/bang_dream_info/status/1905266170648998361)
+[https://t.co/tQEMsvtRxj](https://t.co/tQEMsvtRxj)
+[https://www.bilibili.com/video/BV1VuZ5YjE1T/](https://www.bilibili.com/video/BV1VuZ5YjE1T/)
+
+[https://x.com/egg_yuda/status/1905459548766568916](https://x.com/egg_yuda/status/1905459548766568916)
+
+[https://x.com/bang_dream_info/status/1906723160252436985](https://x.com/bang_dream_info/status/1906723160252436985)
+[https://mineralnaturallife.bang-dream.com/](https://mineralnaturallife.bang-dream.com/)
+
+【所有线路全熟，包括莫提斯彩蛋】Ave Mujica愚人节活动
+[https://www.bilibili.com/video/BV1sNZsYfEzr/](https://www.bilibili.com/video/BV1sNZsYfEzr/)
+
+哔哩哔哩互动视频
+
+【生肉】【BanGDream!】【睦莫祥】2025愚人节 送水客服祥子接听您的来电
+[https://www.bilibili.com/video/BV11LZHYsEph](https://www.bilibili.com/video/BV11LZHYsEph)
+
+[https://oshi-tabi.voistock.com/ave-mujica](https://oshi-tabi.voistock.com/ave-mujica)
+
+【中字/官方联动】初祥新干线旅行语音
+[https://www.bilibili.com/video/BV12wZ4YzEh1](https://www.bilibili.com/video/BV12wZ4YzEh1)
+
+Ave Mujica - 天球(そら)のMúsica (Official Music Video)
+[https://www.youtube.com/watch?v=2Bo-ULStqLo](https://www.youtube.com/watch?v=2Bo-ULStqLo)
+[https://www.bilibili.com/video/BV1RtZmYGE3a](https://www.bilibili.com/video/BV1RtZmYGE3a)
+
+[https://x.com/yumenokessho/status/1907791061193470280](https://x.com/yumenokessho/status/1907791061193470280)
+
+[https://t.bilibili.com/1051624462609285139](https://t.bilibili.com/1051624462609285139)
+[https://bang-dream.com/news/2064](https://bang-dream.com/news/2064)
+
+[https://x.com/bang_dream_info/status/1908489797569831143](https://x.com/bang_dream_info/status/1908489797569831143)
+[https://www.youtube.com/watch?v=9Z8j_OR21W0](https://www.youtube.com/watch?v=9Z8j_OR21W0)
+
+【试听】Ave Mujica 1st Album「Completeness」（2025.4.23 发售）
+[https://www.bilibili.com/video/BV1D2RdYnEud](https://www.bilibili.com/video/BV1D2RdYnEud)
+
+[https://x.com/nazonodesigner/status/1909171920240803918](https://x.com/nazonodesigner/status/1909171920240803918)
+
+[https://x.com/BUSHIM_ongaku/status/1910329163829088611](https://x.com/BUSHIM_ongaku/status/1910329163829088611)
+
+[https://x.com/bang_dream_info/status/1910643469439398281](https://x.com/bang_dream_info/status/1910643469439398281)
+
+<img src="https://ac.stage3rd.com/upfiles/202504/A1BACA1BB@0797949813555.jpg" referrerpolicy="no-referrer">
+[https://t.bilibili.com/1055540882203213833](https://t.bilibili.com/1055540882203213833)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  堀内爱里衣  
+##### 40268#       发表于 2025-4-16 00:56
+
+「BanG Dream! Ave Mujica」动画制作公司サンジゲン优兔网解说视频 ＃1-6
+
+优兔网频道地址：[https://t.co/qy1EWcPVuM](https://t.co/qy1EWcPVuM)
+
+<img src="https://ac.stage3rd.com/upfiles/202504/A1BACA1BB@0797650391227.gif" referrerpolicy="no-referrer">
+<img src="https://ac.stage3rd.com/upfiles/202504/A1BACA1BB@0797645121121.jpg" referrerpolicy="no-referrer">
+
+＃01 舞台裏から全開コメンタリー: BanG Dream! Ave Mujica 〜禁断の全話ネタバレ解説！〜
+[https://www.youtube.com/watch?v=zz9TLqJjZVg](https://www.youtube.com/watch?v=zz9TLqJjZVg)
+
+柿本&amp;三次元staff带你看Ave Mujica #1
+[https://www.bilibili.com/video/BV19VdLYyE5s](https://www.bilibili.com/video/BV19VdLYyE5s)
+
+＃02 舞台裏から全開コメンタリー: BanG Dream! Ave Mujica 〜禁断の全話ネタバレ解説！〜
+[https://www.youtube.com/watch?v=kD4sfE79cpk](https://www.youtube.com/watch?v=kD4sfE79cpk)
+
+柿本&amp;三次元staff带你看Ave Mujica #2
+[https://www.bilibili.com/video/BV181dDY6E9p](https://www.bilibili.com/video/BV181dDY6E9p)
+
+＃03 舞台裏から全開コメンタリー: BanG Dream! Ave Mujica 〜禁断の全話ネタバレ解説！〜
+[https://www.youtube.com/watch?v=jUZVB2BLAto](https://www.youtube.com/watch?v=jUZVB2BLAto)
+
+柿本&amp;三次元staff带你看Ave Mujica #3
+[https://www.bilibili.com/video/BV1uVdaYSExA](https://www.bilibili.com/video/BV1uVdaYSExA)
+
+＃04 舞台裏から全開コメンタリー: BanG Dream! Ave Mujica 〜禁断の全話ネタバレ解説！〜
+[https://www.youtube.com/watch?v=9MUnNhbrMRg](https://www.youtube.com/watch?v=9MUnNhbrMRg)
+
+柿本&amp;三次元staff带你看Ave Mujica #4
+[https://www.bilibili.com/video/BV1KzdkYkE4z](https://www.bilibili.com/video/BV1KzdkYkE4z)
+
+＃05 舞台裏から全開コメンタリー: BanG Dream! Ave Mujica 〜禁断の全話ネタバレ解説！〜
+[https://www.youtube.com/watch?v=ECobLX1K-5w](https://www.youtube.com/watch?v=ECobLX1K-5w)
+
+柿本&amp;三次元staff带你看Ave Mujica #5
+[https://www.bilibili.com/video/BV1iko7Y4Eyu](https://www.bilibili.com/video/BV1iko7Y4Eyu)
+
+＃06 舞台里から全开コメンタリー: BanG Dream! Ave Mujica 〜禁断の全话ネタバレ解说！〜
+[https://www.youtube.com/watch?v=mm6a-LtC4IQ](https://www.youtube.com/watch?v=mm6a-LtC4IQ)
+
+柿本&amp;三次元staff带你看Ave Mujica #6
+[https://www.bilibili.com/video/BV1gJdfYhERb](https://www.bilibili.com/video/BV1gJdfYhERb)
+
+*****
+
+####  堀内爱里衣  
+##### 40269#       发表于 2025-4-16 01:31
+
+[https://x.com/animecorner_ac/status/1911974005504168322](https://x.com/animecorner_ac/status/1911974005504168322)
+
+[https://x.com/animecorner_ac/status/1911977784596976057](https://x.com/animecorner_ac/status/1911977784596976057)
+
+[https://x.com/animecorner_ac/status/1911978032220303585](https://x.com/animecorner_ac/status/1911978032220303585)
+
+[https://x.com/animecorner_ac/status/1911981555700187143](https://x.com/animecorner_ac/status/1911981555700187143)
+
+[https://x.com/animecorner_ac/status/1911985330204610757](https://x.com/animecorner_ac/status/1911985330204610757)
+
+[https://x.com/animecorner_ac/status/1911996654506721289](https://x.com/animecorner_ac/status/1911996654506721289)
+
+[https://x.com/animecorner_ac/status/1912015530073980945](https://x.com/animecorner_ac/status/1912015530073980945)
+
+[https://x.com/animecorner_ac/status/1912045728697827528](https://x.com/animecorner_ac/status/1912045728697827528)
+
+[https://x.com/animecorner_ac/status/1912068629710975029](https://x.com/animecorner_ac/status/1912068629710975029)
+
+[https://x.com/animecorner_ac/status/1912087251594739926](https://x.com/animecorner_ac/status/1912087251594739926)
+
+[https://x.com/animecorner_ac/status/1912094801589321949](https://x.com/animecorner_ac/status/1912094801589321949)
+
+[https://x.com/animecorner_ac/status/1912108643073577394](https://x.com/animecorner_ac/status/1912108643073577394)
+
+[https://x.com/animecorner_ac/status/1912128859169825211](https://x.com/animecorner_ac/status/1912128859169825211)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  堀内爱里衣  
+##### 40270#       发表于 2025-4-16 01:33
+
+[https://x.com/seiyuucorner/status/1911381350617055556](https://x.com/seiyuucorner/status/1911381350617055556)
+
+[https://x.com/seiyuucorner/status/1911394207756845337](https://x.com/seiyuucorner/status/1911394207756845337)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  堀内爱里衣  
+##### 40271#       发表于 2025-4-16 02:12
+
+<strong>【转载】[百度网盘] mujica杂志.zip 【680.1M】</strong>
+
+链接
+[https://pan.baidu.com/s/1cARLvtQSpnelopP9fVSetw](https://pan.baidu.com/s/1cARLvtQSpnelopP9fVSetw) 提取码: 7i97
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
