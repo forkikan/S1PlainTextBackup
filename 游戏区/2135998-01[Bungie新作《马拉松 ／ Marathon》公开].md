@@ -535,3 +535,11 @@ dmz人还是挺多的，但没氪金点动视自己放弃了。
 
 Bungie表示《马拉松》将是一款付费游戏，但不是“全价”游戏。游戏支持跨平台游玩和存档。官方将在今年夏天公布更多详细信息。
 
+
+*****
+
+####  zzy516232108  
+##### 54#       发表于 2025-4-16 06:53
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么改名了，不是叫 惑星行者吗
+
