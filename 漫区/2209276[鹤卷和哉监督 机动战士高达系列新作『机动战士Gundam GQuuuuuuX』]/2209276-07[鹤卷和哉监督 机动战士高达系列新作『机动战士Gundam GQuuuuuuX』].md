@@ -1122,3 +1122,73 @@ OP一点新信息都没有难绷，而且我没想到主要人物除了修司没
 
 不播0079还好，播了感觉可以鉴定为屎
 
+
+*****
+
+####  Piano-Forest  
+##### 9473#         楼主| 发表于 2025-4-16 12:28
+
+机动战士高达 GQuuuuuuX Newtype访谈合集
+[https://b23.tv/R4WIoqK](https://b23.tv/R4WIoqK)
+
+Newtype2025年5月号 卷首特辑
+
+机动战士高达 GQuuuuuuX访谈：杉谷勇树、黑泽朋世、石川由依、土屋神叶、榎户洋司、山下育人、鹤巻和哉
+
+OP：[https://youtu.be/dcxhZTb_6zs](https://youtu.be/dcxhZTb_6zs)
+
+分镜・演出：鶴巻和哉
+
+<img src="https://p.sda1.dev/23/6d20885f5e3777c926e69627d1ece1ca/20250416_043119.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/ce5c12733d4d2baae681113b304a75ce/20250416_043120.jpg" referrerpolicy="no-referrer">
+
+ED：[https://youtu.be/Rd3Gu4pQURY](https://youtu.be/Rd3Gu4pQURY)
+
+分镜・演出・原画：谷田部透湖
+
+<img src="https://p.sda1.dev/23/d2dac5e474a0b1b4429ac5948c95f66d/20250409_004225.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/94f6e1855ca1f04b66fe1a02739cb894/20250409_004227.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 9474#         楼主| 发表于 2025-4-16 12:28
+
+[https://x.com/_take_oekaki/status/1909593969245536604](https://x.com/_take_oekaki/status/1909593969245536604)
+
+いよいよ今夜、放送開始です～✨✨
+<img src="https://p.sda1.dev/23/360724b723c609e853b4f2e3fe51b977/20250409_000420.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/dowagers/status/1909637572755964271](https://x.com/dowagers/status/1909637572755964271)
+
+EDに原画で参加させて頂きました✍️
+
+かわよい２人を描けてたのしかったです〜！🥳
+<img src="https://p.sda1.dev/23/ccb11f59dd97884d30e772e748902e62/20250409_000424.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/tocodot/status/1909639021967687991](https://x.com/tocodot/status/1909639021967687991)
+
+『機動戦士Gundam GQuuuuuuX』
+
+ＥＤの画コンテ・演出を担当しました🪩✨
+
+（原画も10カットほど）
+
+一緒に走って下さったスタッフの皆様ありがとうございましたー！全セクションの方が心強かったです！
+
+ノンクレジット版が公開されましたのでぜひ🥂
+<img src="https://p.sda1.dev/23/67eb6584294bc0af90cb993e914f4bb7/SaveTwitter.Net_GoBmWJNbwAEk2dT__gif__compressed.gif" referrerpolicy="no-referrer">
+
+[https://x.com/cbrca/status/1909643789456855356](https://x.com/cbrca/status/1909643789456855356)
+
+第一話キャラクター作画監督で参加させていただきました、ご視聴いただきありがとうございました！
+<img src="https://p.sda1.dev/23/da7ef11558a436f9a09f74af49be0e39/20250409_004530.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  gamedreamer  
+##### 9475#       发表于 2025-4-16 12:34
+
+我倒是觉得这目前来看节奏挺好的，机战部分79机战基本全致敬去了，85的话你总不能指望麻球这个刚上机的人能打出什么？强大操作吧？下一集还有修老师带妹上分环节呢
+
