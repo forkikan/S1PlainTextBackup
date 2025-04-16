@@ -540,12 +540,12 @@
     "update": false
   },
   "2094432": {
-    "totalreply": 10640,
+    "totalreply": 10647,
     "title": "[【Mr.Quin／秦川】真爱（？）讨论三号楼]",
     "newtitle": "[【Mr.Quin／秦川】秦智障真爱（？）讨论三号楼]",
-    "lastedit": 1742783067,
+    "lastedit": 1744781047,
     "category": "游戏区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2095306": {
@@ -3123,10 +3123,10 @@
     "update": false
   },
   "1916875": {
-    "totalreply": 1192,
+    "totalreply": 1193,
     "title": "[【Morfonica真爱楼】(联动转生史莱姆)新一代圣音女王·18岁成年JK进藤天音]",
     "newtitle": "[BanG Dream! Morfonica真爱楼-新晋圣音女王·进藤天音一打九]",
-    "lastedit": 1744779845,
+    "lastedit": 1744781047,
     "category": "漫区",
     "active": true,
     "update": false
@@ -7461,10 +7461,10 @@
     "update": false
   },
   "2171134": {
-    "totalreply": 13708,
+    "totalreply": 13709,
     "title": "[少女前线2：追放 五号楼  8号大决战勒]",
     "newtitle": "[少女前线2：追放 五号楼【群工会ID详见主楼】]",
-    "lastedit": 1744775886,
+    "lastedit": 1744781048,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -9009,10 +9009,10 @@
     "update": false
   },
   "2167723": {
-    "totalreply": 1459,
+    "totalreply": 1460,
     "title": "[米泽穗信『小市民系列』TV动画化 2024年7月]",
     "newtitle": "[米泽穗信『小市民系列』TV动画化 2024年7月]",
-    "lastedit": 1744778885,
+    "lastedit": 1744781048,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10521,10 +10521,10 @@
     "update": false
   },
   "2209276": {
-    "totalreply": 9479,
+    "totalreply": 9480,
     "title": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
     "newtitle": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
-    "lastedit": 1744780446,
+    "lastedit": 1744781048,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 111882,
+    "totalreply": 111904,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1744780446,
+    "lastedit": 1744781047,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10593,10 +10593,10 @@
     "update": false
   },
   "2210855": {
-    "totalreply": 9720,
+    "totalreply": 9721,
     "title": "[中二电波台真爱楼 2.0]",
     "newtitle": "[中二电波台真爱楼 2.0]",
-    "lastedit": 1744780446,
+    "lastedit": 1744781047,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10827,10 +10827,10 @@
     "update": false
   },
   "2238336": {
-    "totalreply": 1032,
+    "totalreply": 1033,
     "title": "[任天堂病 栋12楼，山雨欲来风满楼，新年新机新病 栋！／剑指1.16！]",
     "newtitle": "[任天堂病 栋12楼，山雨欲来风满楼，新年新机新病 栋！／传闻ns直面会本周]",
-    "lastedit": 1744780446,
+    "lastedit": 1744780805,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11259,10 +11259,10 @@
     "update": false
   },
   "2125794": {
-    "totalreply": 59,
+    "totalreply": 60,
     "title": "[bilibili × Aniplex 凸变英雄X]",
     "newtitle": "[bilibili × Aniplex 凸变英雄X]",
-    "lastedit": 1744777925,
+    "lastedit": 1744780805,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11412,10 +11412,10 @@
     "update": false
   },
   "2200788": {
-    "totalreply": 83,
+    "totalreply": 84,
     "title": "[苏丹的游戏这游戏还挺乐的]",
     "newtitle": "[苏丹的游戏这游戏还挺乐的]",
-    "lastedit": 1744780446,
+    "lastedit": 1744781046,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11479,6 +11479,15 @@
     "title": "[INTI 少女魔净续作《少女魔役》 银河城／恶魔女仆姐妹]",
     "newtitle": "[INTI 少女魔净续作《少女魔役》 银河城／恶魔女仆姐妹]",
     "lastedit": 1744779246,
+    "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2242386": {
+    "totalreply": 103,
+    "title": "[25.04.02晚9点任天堂直面会（NINTENDO SWITCH 2）专楼]",
+    "newtitle": "[25.04.02晚9点任天堂直面会（NINTENDO SWITCH 2）专楼]",
+    "lastedit": 1744781048,
     "category": "游戏区",
     "active": true,
     "update": false
