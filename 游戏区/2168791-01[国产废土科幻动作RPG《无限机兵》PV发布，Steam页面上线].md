@@ -99,3 +99,46 @@
 
 这游戏还有个运气好的是和卡赞同赛道发售，但是卡赞定价死贵<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dddyghr  
+##### 152#       发表于 2025-4-16 09:08
+
+打通了 不错的国产，就是boss太少了不过瘾 下作预算高点未来可期
+
+
+*****
+
+####  zzy516232108  
+##### 153#       发表于 2025-4-16 09:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67729390&amp;ptid=2168791" target="_blank">红魔馆的糖 发表于 2025-3-25 19:12</a>
+
+根据我两个demo都玩了的经验，卡赞</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">关站快一个月了我才看到这句话，然而我先买了机兵（
+
+*****
+
+####  ParadiseMartyr  
+##### 154#       发表于 2025-4-16 09:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67730264&amp;ptid=2168791" target="_blank">zzy516232108 发表于 2025-4-16 09:12</a>
+关站快一个月了我才看到这句话，然而我先买了机兵（</blockquote>
+机兵光价格就杀死比赛了，便宜碗大质量不差。卡赞看评论就是个丐版仁王，还卖的齁贵
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  红魔馆的糖  
+##### 155#       发表于 2025-4-16 09:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67730271&amp;ptid=2168791" target="_blank">ParadiseMartyr 发表于 2025-4-16 09:14</a>
+机兵光价格就杀死比赛了，便宜碗大质量不差。卡赞看评论就是个丐版仁王，还卖的齁贵
+
+—— 来自 鹅球 v3. ...</blockquote>
+卡赞的动作系统倒是丐版仁王，地图等其他方面和仁王五五开，但是boss战体验秒杀仁王了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+推荐是两个都买，卡赞嫌贵打折买
+
