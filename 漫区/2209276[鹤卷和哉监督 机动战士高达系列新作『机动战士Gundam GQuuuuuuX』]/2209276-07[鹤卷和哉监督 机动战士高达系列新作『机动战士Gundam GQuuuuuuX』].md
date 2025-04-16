@@ -1333,3 +1333,40 @@ OA記念として
 
 这片子不开个每集评分楼吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 9489#       发表于 2025-4-16 15:57
+
+ 本帖最后由 岸浪白野 于 2025-4-16 16:01 编辑 
+
+那我们之前就在的不准备要坐牢4个月了吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YFIIII  
+##### 9490#       发表于 2025-4-16 16:01
+
+又让我想起来庵野用cg还原蒙面好汉片头的树杈子位置这事了<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Buttercry  
+##### 9491#       发表于 2025-4-16 16:02
+
+本身前传就做得够仓促的了，全程推进度讲设定，也只来得及交代大纲
+还不如做满一部剧场版，和TV完全切割开（当然这事情本来就是痞子横插一脚，这么要求更是没道理）
+现在这个画风都不兼容的半吊子前传还要占TV一集，实在是灾难
+遗老看完破口大骂，新人（如果有）点开第二集五分钟就右上角了
+
+
+*****
+
+####  普通哈尼  
+##### 9492#       发表于 2025-4-16 16:04
+
+0079部分本来剧场版就快得一逼，塞一集里更是稀碎，还不如不放等后面出个ova
+
