@@ -1015,3 +1015,34 @@ OP里麻球还在用热能斧，光剑捅机器容易爆炸杀人不好，还是
 
 剧场版的时候就觉得有问题了，文戏多打戏少。一到多机混战就开始拉垮，用各种大特写掩盖机体相对关系上的不足，连当年79TV都比丫强。剧场版上半的打戏就只有黑高达VS白高达一场能看。下半各种大特写光污染尽情偷懒。再结合2VS2的设定，明显鹤卷这帮人不会搞机战。
 
+
+*****
+
+####  别急来过两招  
+##### 9461#       发表于 2025-4-16 11:41
+
+黑高达是哪位<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  暗黑能乐  
+##### 9462#       发表于 2025-4-16 11:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67730930&amp;ptid=2209276" target="_blank">别急来过两招 发表于 2025-4-16 11:41</a>
+
+黑高达是哪位
+
+—— 来自 鹅球 v3.3.96</blockquote>
+额，78-01?
+
+*****
+
+####  leleq  
+##### 9463#       发表于 2025-4-16 11:42
+
+没去看剧场版感觉亏了又感觉赚了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+痞子能不能滚虽然我不是元组遗老派但实在感觉不到79if有哪好看。（虽然音效还有点意思）
+
