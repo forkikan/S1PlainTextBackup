@@ -162,3 +162,13 @@
 推荐是两个都买， ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我仁王是垃圾打法，复读雪月花的，什么上中下切段残心流转紫电真打起来了学不会
 
+
+*****
+
+####  红魔馆的糖  
+##### 158#       发表于 2025-4-16 09:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67730286&amp;ptid=2168791" target="_blank">zzy516232108 发表于 2025-4-16 09:20</a>
+我仁王是垃圾打法，复读雪月花的，什么上中下切段残心流转紫电真打起来了学不会 ...</blockquote>
+那正好，卡赞也是复读性能战技的垃圾打法<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
