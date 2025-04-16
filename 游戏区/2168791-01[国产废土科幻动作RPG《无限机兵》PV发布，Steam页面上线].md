@@ -483,3 +483,25 @@ SD最后的连战会拖慢，其余时候没啥问题，等优化就好了
 就算复活红毛也不是那个人了吧</blockquote>
 资料里有讲，机兵可以模拟人类的一切，直接曹丕怀孕器官一条龙模拟<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ParadiseMartyr  
+##### 183#       发表于 2025-4-16 18:17
+
+这都离回本才差点
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  迷路的石头  
+##### 184#       发表于 2025-4-16 18:24
+
+<blockquote>schneehertz 发表于 2025-4-16 12:02
+没玩过魂，前期有点玩不明白，有没有魂大佬说说加点和武器怎么搭？
+
+—— 来自 Xiaomi 23127PN0CC, Android ...</blockquote>
+先把血加到40
+
