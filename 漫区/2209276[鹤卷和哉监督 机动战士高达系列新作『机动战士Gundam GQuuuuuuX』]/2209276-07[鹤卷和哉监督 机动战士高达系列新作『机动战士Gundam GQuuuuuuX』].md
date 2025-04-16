@@ -1222,3 +1222,23 @@ OA記念として
 <img src="https://p.sda1.dev/23/ba4c8b65e995830d4c1da6d96dfa9b60/20250416_123201.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/23/30af9582780ebea28e10de921796191d/006SCGqIgy1i0hxa0ivg8j30sg0g0dhu.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  downnote  
+##### 9477#       发表于 2025-4-16 12:53
+
+我觉得第二集剪掉所罗门的部分问题不大。事情放在这也说不清楚，后面肯定会详细解释；不止是补充剧场版那些过程，背后的事情也需要说明。
+
+第二集无非就是要让人确立夏亚这个角色的印象，如果能确立就没啥毛病。
+
+*****
+
+####  暗黑能乐  
+##### 9478#       发表于 2025-4-16 12:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67731233&amp;ptid=2209276" target="_blank">downnote 发表于 2025-4-16 12:53</a>
+
+我觉得第二集剪掉所罗门的部分问题不大。事情放在这也说不清楚，后面肯定会详细解释；不止是补充剧场版那些 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">咋说，真懂夏亚的人会觉得很梦男，不懂夏亚的人靠这么一小段也不会懂，这IF真就只是给痞子自己爽的，要我说还不如剧场版全都拿去做IF，至少把几个关键点填充的饱满点而不是一直快进。然后TV和剧场内容不重复，对啥都好
+
