@@ -1565,3 +1565,18 @@ AMYCGALFNL2J2G 有日服互助好友吗
 
 这游戏限定作品的关真没办法，得硬上。
 
+
+*****
+
+####  法拉  
+##### 156#       发表于 2025-4-17 03:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67732582&amp;ptid=2071758" target="_blank">suzakushi 发表于 2025-4-16 19:01</a>
+
+A29NU3EM9FPRBC
+
+日服邀请码，不知道有多少玩日服的。</blockquote>
+填了
+
+顺便放一下我的同日服AMMLHLJYDULY8S
+
