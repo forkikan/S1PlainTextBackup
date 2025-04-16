@@ -87,7 +87,7 @@
     "lastedit": 1744736460,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2041774": {
     "totalreply": 16972,
@@ -2265,7 +2265,7 @@
     "lastedit": 1744736100,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1804478": {
     "totalreply": 1244,
@@ -6324,7 +6324,7 @@
     "lastedit": 1744739880,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2071168": {
     "totalreply": 2233,
@@ -10521,10 +10521,10 @@
     "update": false
   },
   "2209276": {
-    "totalreply": 9423,
+    "totalreply": 9425,
     "title": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
     "newtitle": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
-    "lastedit": 1744759806,
+    "lastedit": 1744762685,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 111562,
+    "totalreply": 111568,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1744761724,
+    "lastedit": 1744762684,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10827,10 +10827,10 @@
     "update": false
   },
   "2238336": {
-    "totalreply": 964,
+    "totalreply": 965,
     "title": "[任天堂病 栋12楼，山雨欲来风满楼，新年新机新病 栋！／剑指1.16！]",
     "newtitle": "[任天堂病 栋12楼，山雨欲来风满楼，新年新机新病 栋！／传闻ns直面会本周]",
-    "lastedit": 1744761604,
+    "lastedit": 1744762204,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11205,10 +11205,10 @@
     "update": false
   },
   "2075348": {
-    "totalreply": 130,
+    "totalreply": 131,
     "title": "[《空洞骑士：丝之歌》实机PV公开，首发XGP]",
     "newtitle": "[《空洞骑士：丝之歌》实机PV公开，首发XGP]",
-    "lastedit": 1744757432,
+    "lastedit": 1744762564,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11277,10 +11277,10 @@
     "update": false
   },
   "2184820": {
-    "totalreply": 43,
+    "totalreply": 44,
     "title": "[『攻壳机动队』新作TV动画系列制作决定 2026年 科学猴制作]",
     "newtitle": "[『攻壳机动队』新作TV动画系列制作决定 2026年 科学猴制作]",
-    "lastedit": 1744757440,
+    "lastedit": 1744762326,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11295,10 +11295,10 @@
     "update": false
   },
   "2145249": {
-    "totalreply": 105,
+    "totalreply": 106,
     "title": "[渡边信一郎 新作「Lazarus」]",
     "newtitle": "[渡边信一郎 新作「Lazarus」]",
-    "lastedit": 1744757442,
+    "lastedit": 1744762685,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11354,6 +11354,24 @@
     "newtitle": "[『赛马娘 芦毛灰姑娘』TV动画化 2025年]",
     "lastedit": 1744760765,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2162832": {
+    "totalreply": 201,
+    "title": "[美妙新作4月《秘密的偶像公主／爱噗哩》]",
+    "newtitle": "[美妙新作4月《秘密的偶像公主／爱噗哩》]",
+    "lastedit": 1744762328,
+    "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2249235": {
+    "totalreply": 200,
+    "title": "[巫术手游Wizardry Variants Daphne，简称巫术VA，自带官中，3.18联动]",
+    "newtitle": "[巫术手游Wizardry Variants Daphne，简称巫术VA，自带官中，3.18联动]",
+    "lastedit": 1744762687,
+    "category": "手游专楼",
     "active": true,
     "update": false
   }
