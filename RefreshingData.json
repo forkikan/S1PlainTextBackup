@@ -87,7 +87,7 @@
     "lastedit": 1744821780,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2041774": {
     "totalreply": 16972,
@@ -6324,7 +6324,7 @@
     "lastedit": 1744818060,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2071168": {
     "totalreply": 2233,
@@ -11520,10 +11520,10 @@
     "update": false
   },
   "2250726": {
-    "totalreply": 69,
+    "totalreply": 70,
     "title": "[Xenoblade系列推荐什么姿势入坑？]",
     "newtitle": "[Xenoblade系列推荐什么姿势入坑？]",
-    "lastedit": 1744808525,
+    "lastedit": 1744844285,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11598,7 +11598,7 @@
     "lastedit": 1744801440,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2049163": {
     "totalreply": 197,
