@@ -584,3 +584,11 @@ Bungie表示《马拉松》将是一款付费游戏，但不是“全价”游�
 
 实机也太挫了吧，首发预告那个写实渲染+justice酸性都拉满了，怎么实机突然降级成类apex画风了
 
+
+*****
+
+####  Midnight.Coup  
+##### 60#       发表于 2025-4-16 10:12
+
+Bungie 为了复用素材还是用这个从 Halo 一路魔改上来的引擎<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这实机水平说是土命3都嫌差
+

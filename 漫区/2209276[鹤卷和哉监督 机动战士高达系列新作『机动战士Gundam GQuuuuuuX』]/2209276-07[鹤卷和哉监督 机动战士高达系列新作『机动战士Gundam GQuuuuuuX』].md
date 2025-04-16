@@ -846,3 +846,15 @@ OP里麻球还在用热能斧，光剑捅机器容易爆炸杀人不好，还是
 
 你说 像水魔一样把剧场版安排成第0话承接动画前的背景铺垫这种最理想的操作他不搞，非要搞一堆重复画面恶心人并且挤占整季集数空间<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">纯纯恶心人
 
+
+*****
+
+####  暗黑能乐  
+##### 9443#       发表于 2025-4-16 10:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67730447&amp;ptid=2209276" target="_blank">バーチャルS1er 发表于 2025-4-16 09:57</a>
+这夏亚开高达打架的表现像打人机，对面那边人的反应呢？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我个人感觉挺像seed的，流星装备一上，激光biubiubiu看烟花，他这还截掉了if后半的战斗，后半战斗基本就是这种吧
+
+—— 来自 HONOR BVL-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
