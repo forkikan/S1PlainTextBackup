@@ -551,3 +551,20 @@ Bungie表示《马拉松》将是一款付费游戏，但不是“全价”游�
 
 按照索尼的定价规则，gaas游戏大概是卖40刀，和绝地战兵星鸣特攻一样，只能说祝索尼好运
 
+
+*****
+
+####  东方定助  
+##### 56#       发表于 2025-4-16 08:48
+
+这风格做个8分钟的概念片确实很性感，做成长运营游戏还是算了吧，太容易腻了
+
+*****
+
+####  ff2077  
+##### 57#       发表于 2025-4-16 08:49
+
+打得过三角洲吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24122RKC7C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
