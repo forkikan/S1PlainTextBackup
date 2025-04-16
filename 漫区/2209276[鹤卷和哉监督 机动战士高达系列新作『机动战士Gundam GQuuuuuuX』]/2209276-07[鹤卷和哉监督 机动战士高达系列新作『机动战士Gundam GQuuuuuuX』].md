@@ -1677,3 +1677,17 @@ OA記念として
 
 这是前三集电影版都放完了？
 
+
+*****
+
+####  民工业  
+##### 9519#       发表于 2025-4-17 01:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67733477&amp;ptid=2209276" target="_blank">韶华白首 发表于 2025-4-17 01:17</a>
+我看过电影版
+
+这是前三集电影版都放完了？</blockquote>
+没有所罗门作战，只是用大纲带过，而且夏亚在闪闪亮里的台词也没有放出来
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
