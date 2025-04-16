@@ -1229,3 +1229,40 @@ DD前有个X-Ω
 
 有群么？求一个
 
+
+*****
+
+####  HEERO.W  
+##### 120#       发表于 2025-4-16 11:27
+
+开了，貌似日服不能选中文？
+
+
+*****
+
+####  leonyang19  
+##### 121#       发表于 2025-4-16 11:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67730876&amp;ptid=2071758" target="_blank">HEERO.W 发表于 2025-4-16 11:27</a>
+
+开了，貌似日服不能选中文？</blockquote>
+超H你进得去么，直连现在报100和101，估计是服务器挤爆了
+
+
+*****
+
+####  zksandy  
+##### 122#       发表于 2025-4-16 11:33
+
+还有必须用氪金钻抽的池…
+
+*****
+
+####  HEERO.W  
+##### 123#       发表于 2025-4-16 11:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67730888&amp;ptid=2071758" target="_blank">leonyang19 发表于 2025-4-16 11:29</a>
+
+超H你进得去么，直连现在报100和101，估计是服务器挤爆了</blockquote>
+2个都能进啊，都在刷初始了
+
