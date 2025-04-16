@@ -963,3 +963,40 @@ OP里麻球还在用热能斧，光剑捅机器容易爆炸杀人不好，还是
 后续大概是撒比家内斗，绿色要塞被诬陷，然后跟着主角一行一起逃亡 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真会有吗，扎比家内斗
 
+
+*****
+
+####  别急来过两招  
+##### 9455#       发表于 2025-4-16 11:18
+
+能入队吗<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">鸭妹
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  AraTurambar  
+##### 9456#       发表于 2025-4-16 11:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67730810&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-4-16 11:14</a>
+
+真会有吗，扎比家内斗</blockquote>
+我还是觉得扎比家内斗只会是背景板，正面描写恶心人吗（）
+
+*****
+
+####  别急来过两招  
+##### 9457#       发表于 2025-4-16 11:20
+
+真不想看这几个畜生内斗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">结尾夏亚回魂一爆弹把她们都炸死修复时间线就好了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  仟音一心  
+##### 9458#       发表于 2025-4-16 11:21
+
+剧场版鉴赏区投票
+[[MOVIE] [2025.04][MOV.1]机动战士高达：跨时之战/機動戦士ガンダム ジークアクス-Beginning](https://stage1st.com/2b/thread-2251016-1-1.html)
+
