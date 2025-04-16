@@ -1242,3 +1242,14 @@ OA記念として
 我觉得第二集剪掉所罗门的部分问题不大。事情放在这也说不清楚，后面肯定会详细解释；不止是补充剧场版那些 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">咋说，真懂夏亚的人会觉得很梦男，不懂夏亚的人靠这么一小段也不会懂，这IF真就只是给痞子自己爽的，要我说还不如剧场版全都拿去做IF，至少把几个关键点填充的饱满点而不是一直快进。然后TV和剧场内容不重复，对啥都好
 
+
+*****
+
+####  阿尔巴尼亚  
+##### 9479#       发表于 2025-4-16 13:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67731233&amp;ptid=2209276" target="_blank">downnote 发表于 2025-4-16 12:53</a>
+
+我觉得第二集剪掉所罗门的部分问题不大。事情放在这也说不清楚，后面肯定会详细解释；不止是补充剧场版那些 ...</blockquote>
+印象吗？这个印象还不如弗朗托来补充夏亚印象呢，现在gqux的tv夏亚有啥印象？就没有嘛，还是得靠79和裤袜脱落cca。倒是夏利尔眼中印象确实有，但coscca有德对骡子腿阿克西斯那段那块反而是删了，这样除了喝酒拿到莫名其妙外的印象确立的什么啊？
+
