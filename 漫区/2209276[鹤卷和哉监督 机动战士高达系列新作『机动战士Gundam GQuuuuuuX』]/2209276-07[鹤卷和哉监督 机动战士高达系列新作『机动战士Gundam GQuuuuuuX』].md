@@ -931,3 +931,35 @@ OP里麻球还在用热能斧，光剑捅机器容易爆炸杀人不好，还是
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  新HGCG  
+##### 9452#       发表于 2025-4-16 11:12
+
+我猜一下
+
+后续大概是撒比家内斗，绿色要塞被诬陷，然后跟着主角一行一起逃亡
+
+
+*****
+
+####  AraTurambar  
+##### 9453#       发表于 2025-4-16 11:14
+
+人设是真的讨喜，🍅算是多少年来最讨人喜欢的高达主角了。
+
+别的现在实在没有东西可以讨论……
+
+*****
+
+####  暗黑能乐  
+##### 9454#       发表于 2025-4-16 11:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67730801&amp;ptid=2209276" target="_blank">新HGCG 发表于 2025-4-16 11:12</a>
+
+我猜一下
+
+后续大概是撒比家内斗，绿色要塞被诬陷，然后跟着主角一行一起逃亡 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真会有吗，扎比家内斗
+
