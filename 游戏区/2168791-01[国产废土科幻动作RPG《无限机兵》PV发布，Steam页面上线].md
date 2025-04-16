@@ -222,3 +222,32 @@
 那正好，卡赞也是复读性能战技的垃圾打法</blockquote>
 真的假的，那不得不玩了。<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  未来起航  
+##### 164#       发表于 2025-4-16 11:58
+
+像是魂游的服务态度拉满的版本。有弹反，有盾，无限精力，无限传送，上手零门槛。
+
+（与之相反的是匹诺曹。不仅盾给拆了还把处决多添了个蓄力重击的步骤，从魂3或者法环之类过来刚上手会非常恶心......
+
+
+*****
+
+####  schneehertz  
+##### 165#       发表于 2025-4-16 12:02
+
+没玩过魂，前期有点玩不明白，有没有魂大佬说说加点和武器怎么搭？
+
+—— 来自 Xiaomi 23127PN0CC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  御坂MKII  
+##### 166#       发表于 2025-4-16 12:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">真的意外之喜 爽玩
+
+—— 来自 Xiaomi 24072PX77C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+

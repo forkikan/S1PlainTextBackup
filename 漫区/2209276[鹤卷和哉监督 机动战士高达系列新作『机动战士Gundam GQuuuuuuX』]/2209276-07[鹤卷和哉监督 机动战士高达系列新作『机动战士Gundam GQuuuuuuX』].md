@@ -1046,3 +1046,39 @@ OP里麻球还在用热能斧，光剑捅机器容易爆炸杀人不好，还是
 
 痞子能不能滚虽然我不是元组遗老派但实在感觉不到79if有哪好看。（虽然音效还有点意思）
 
+
+*****
+
+####  别急来过两招  
+##### 9464#       发表于 2025-4-16 11:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">代哥卖胶的阴谋罢了 不然红高达怎么卖hg 白高达怎么进卡池
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  吴怀在  
+##### 9465#       发表于 2025-4-16 12:01
+
+黑色高达是开始时候的z高达？
+
+
+*****
+
+####  液体显微隧道  
+##### 9466#       发表于 2025-4-16 12:05
+
+还好在ep2之前恶补了一大半0079，不敢想象没看电影又不了解uc的人看这集有多坐牢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  希望之异热同心  
+##### 9467#       发表于 2025-4-16 12:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/142.png" referrerpolicy="no-referrer">看过剧场版那这个月要到月底才有新剧情，这确实难受
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
