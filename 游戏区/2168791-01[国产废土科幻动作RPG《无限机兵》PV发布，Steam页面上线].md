@@ -505,3 +505,18 @@ SD最后的连战会拖慢，其余时候没啥问题，等优化就好了
 —— 来自 Xiaomi 23127PN0CC, Android ...</blockquote>
 先把血加到40
 
+
+*****
+
+####  Sissii  
+##### 185#       发表于 2025-4-16 18:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67731017&amp;ptid=2168791" target="_blank">schneehertz 发表于 2025-4-16 12:02</a>
+
+没玩过魂，前期有点玩不明白，有没有魂大佬说说加点和武器怎么搭？
+
+—— 来自 Xiaomi 23127PN0CC, Android ...</blockquote>
+首先血量点到40，期间根据你缺不缺伤害，武器什么补正，偶尔点一下力敏，力敏第一次软上限在35左右，第二次是50，最多到50就可以不用点了。
+
+玩法师的就是点精神，精神对武器补正软上限和力敏是一样的，不过精神对术式强度提升特别大，可以猛猛点到99。
+
