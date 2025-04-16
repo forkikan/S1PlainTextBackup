@@ -142,3 +142,23 @@
 
 推荐是两个都买，卡赞嫌贵打折买
 
+
+*****
+
+####  kyonkoism  
+##### 156#         楼主| 发表于 2025-4-16 09:19
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">S1复活了，这游戏口碑也反转了，我本来下了个盗版想试试水，打完第贫民窟就直接去买正版了，确实是好游戏，值得支持
+
+*****
+
+####  zzy516232108  
+##### 157#       发表于 2025-4-16 09:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67730276&amp;ptid=2168791" target="_blank">红魔馆的糖 发表于 2025-4-16 09:17</a>
+
+卡赞的动作系统倒是丐版仁王，地图等其他方面和仁王五五开，但是boss战体验秒杀仁王了
+
+推荐是两个都买， ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我仁王是垃圾打法，复读雪月花的，什么上中下切段残心流转紫电真打起来了学不会
+
