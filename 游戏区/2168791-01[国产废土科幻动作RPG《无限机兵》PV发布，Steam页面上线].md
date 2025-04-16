@@ -457,3 +457,17 @@ SD最后的连战会拖慢，其余时候没啥问题，等优化就好了
 
 与其说这个，不如让制作人解释下红毛怎么怀孕把小萝莉生出来的
 
+
+*****
+
+####  schneehertz  
+##### 181#       发表于 2025-4-16 17:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67732158&amp;ptid=2168791" target="_blank">zzy516232108 发表于 2025-4-16 16:49</a>
+制作人真的叫杨滨啊我靠
+
+就算复活红毛也不是那个人了吧</blockquote>
+剧情里有的，机兵就是原浆体团，本质史莱姆娘
+
+—— 来自 Xiaomi 23127PN0CC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
