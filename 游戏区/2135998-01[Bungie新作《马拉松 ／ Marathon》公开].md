@@ -592,3 +592,13 @@ Bungie表示《马拉松》将是一款付费游戏，但不是“全价”游�
 
 Bungie 为了复用素材还是用这个从 Halo 一路魔改上来的引擎<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这实机水平说是土命3都嫌差
 
+
+*****
+
+####  牙狼GARO  
+##### 61#       发表于 2025-4-16 14:54
+
+美术顶中顶
+
+但命运2年一到年六从嫌弃到吹捧沉迷再到幡然悔悟再玩是**的我个人意见是，狗才信棒鸡，狗都不买<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
