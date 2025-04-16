@@ -569,3 +569,11 @@ SD最后的连战会拖慢，其余时候没啥问题，等优化就好了
 
 打了一周目，蛮好的。我这种魂都容易打一半弃坑的人都能通关<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  盒饭鬼魅清蒸鱼  
+##### 190#       发表于 2025-4-16 21:10
+
+遗憾的就是没日语配音
+
