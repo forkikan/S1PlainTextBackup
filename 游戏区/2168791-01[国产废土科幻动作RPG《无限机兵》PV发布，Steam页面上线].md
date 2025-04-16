@@ -82,3 +82,20 @@
 
 先来个dlc再来个机2吧，别再搞发错版这种抽象活了
 
+
+*****
+
+####  ParadiseMartyr  
+##### 150#       发表于 2025-4-16 08:56
+
+国产游戏也是好起来了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  红魔馆的糖  
+##### 151#       发表于 2025-4-16 08:59
+
+这游戏还有个运气好的是和卡赞同赛道发售，但是卡赞定价死贵<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
