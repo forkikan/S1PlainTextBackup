@@ -1261,3 +1261,11 @@ OA記念として
 
 剧场版看完明明感觉还OK的 回来一看TV 特么居然敢浪费三集。。播新作的部分就算了，旧的部分居然也播，意思当时就没考虑过万一有人不看电影，如何巧妙地在TV里讲过去的事 而是直接硬放
 
+
+*****
+
+####  -SLSL-  
+##### 9481#       发表于 2025-4-16 13:36
+
+先讲到电影结尾打赢clan battle也比现在这样的放送顺序好吧<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
