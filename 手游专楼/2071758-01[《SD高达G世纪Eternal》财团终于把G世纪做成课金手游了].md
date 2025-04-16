@@ -1352,3 +1352,21 @@ DD前有个X-Ω
 
 这个游戏怎么捕获？
 
+
+*****
+
+####  HEERO.W  
+##### 134#       发表于 2025-4-16 16:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67731571&amp;ptid=2071758" target="_blank">诗怀雅 发表于 2025-4-16 14:32</a>
+
+这个游戏怎么捕获？</blockquote>
+击破后概率捕获
+
+*****
+
+####  Pumpkin_ccc  
+##### 135#       发表于 2025-4-16 16:15
+
+能无限重置那个UR券是只能出一台么还是说可以双黄以上，是不是就基本20连出一台UR，外加必得券一台就差不多可以开局了？
+
