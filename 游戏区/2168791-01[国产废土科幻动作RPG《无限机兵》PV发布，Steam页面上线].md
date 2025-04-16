@@ -251,3 +251,57 @@
 
 —— 来自 Xiaomi 24072PX77C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  Sopp  
+##### 167#       发表于 2025-4-16 12:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67731017&amp;ptid=2168791" target="_blank">schneehertz 发表于 2025-4-16 12:02</a>
+
+没玩过魂，前期有点玩不明白，有没有魂大佬说说加点和武器怎么搭？
+
+—— 来自 Xiaomi 23127PN0CC, Android ...</blockquote>
+走力敏拿侵蚀机兵大剑，可以用到通关
+
+体力加到35
+
+*****
+
+####  空气先生  
+##### 168#       发表于 2025-4-16 12:09
+
+<blockquote>schneehertz 发表于 2025-4-16 12:02
+没玩过魂，前期有点玩不明白，有没有魂大佬说说加点和武器怎么搭？
+
+—— 来自 Xiaomi 23127PN0CC, Android ...</blockquote>
+
+力敏点到武器够用，先把血量点到40。武器强的太多了，轮椅侵蚀大剑在营地商店买开门钥匙然后进城前就可以拿到
+
+
+*****
+
+####  红魔馆的糖  
+##### 169#       发表于 2025-4-16 12:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67731017&amp;ptid=2168791" target="_blank">schneehertz 发表于 2025-4-16 12:02</a>
+没玩过魂，前期有点玩不明白，有没有魂大佬说说加点和武器怎么搭？
+
+—— 来自 Xiaomi 23127PN0CC, Android ...</blockquote>
+先把血量点到40
+
+然后力敏对点，用侵蚀机兵大剑推图，用侵蚀机兵双刀打boss
+
+*****
+
+####  tyx776  
+##### 170#       发表于 2025-4-16 12:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67731017&amp;ptid=2168791" target="_blank">schneehertz 发表于 2025-4-16 12:02</a>
+没玩过魂，前期有点玩不明白，有没有魂大佬说说加点和武器怎么搭？
+
+—— 来自 Xiaomi 23127PN0CC, Android ...</blockquote>
+看你玩的武器。武器有能力加成，就是武器攻击旁边的+的攻击。近战走力敏居多，血量就是体力。玩法爷就精神
+
+—— 来自 OnePlus PKR110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
