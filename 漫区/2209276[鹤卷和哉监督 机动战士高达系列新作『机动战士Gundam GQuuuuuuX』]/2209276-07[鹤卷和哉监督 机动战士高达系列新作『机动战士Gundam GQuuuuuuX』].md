@@ -693,3 +693,15 @@ op的跑步也太好笑了
 
 悔恨交加,有本事你全放出来吧
 
+
+*****
+
+####  八坂真寻  
+##### 9426#       发表于 2025-4-16 08:28
+
+前几天吹的OP就这<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+写给秃子的情书是吧
+
+秃子：呸
+
