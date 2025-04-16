@@ -1336,3 +1336,19 @@ DD前有个X-Ω
 麻了，挂了梯子显示错误483，不挂梯子显示错误200</blockquote>
 483关gps<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sopp  
+##### 132#       发表于 2025-4-16 14:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">就卡在主画面一点反应也没有……
+
+
+*****
+
+####  诗怀雅  
+##### 133#       发表于 2025-4-16 14:32
+
+这个游戏怎么捕获？
+
