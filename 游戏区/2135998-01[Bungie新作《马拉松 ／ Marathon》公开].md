@@ -543,3 +543,11 @@ Bungie表示《马拉松》将是一款付费游戏，但不是“全价”游�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么改名了，不是叫 惑星行者吗
 
+
+*****
+
+####  赤井稻妻  
+##### 55#       发表于 2025-4-16 08:39
+
+按照索尼的定价规则，gaas游戏大概是卖40刀，和绝地战兵星鸣特攻一样，只能说祝索尼好运
+
