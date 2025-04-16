@@ -655,3 +655,14 @@ X：宮野真守
 
 ×
 
+
+*****
+
+####  Sacross  
+##### 69#       发表于 2025-4-16 22:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67732350&amp;ptid=2125794" target="_blank">达达葱2 发表于 2025-4-16 17:49</a>
+
+十三机兵没接触过，怎样的？</blockquote>
+仔细看了看感觉像苍翼默示录这种，或者说永生之酒无头骑士那种，群像剧每个人一个篇章的风格讲主线，不知道最后会不会穿起来玩个大的，那个X感觉应该是解密篇了
+

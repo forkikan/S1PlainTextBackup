@@ -620,3 +620,22 @@ Ave Mujica - 天球(そら)のMúsica (Official Music Video)
 
 ×
 
+
+*****
+
+####  堀内爱里衣  
+##### 40287#       发表于 2025-4-16 22:08
+
+<img src="https://ac.stage3rd.com/upfiles/202504/A1BACA1BB@0797650391227.gif" referrerpolicy="no-referrer">
+
+＃07 舞台里から全开コメンタリー: BanG Dream! Ave Mujica 〜禁断の全话ネタバレ解说！〜
+[https://www.youtube.com/watch?v=9vF7C1aCUeM](https://www.youtube.com/watch?v=9vF7C1aCUeM)
+
+柿本&amp;三次元staff带你看Ave Mujica #7
+[https://www.bilibili.com/video/BV1mFoTYLEVL](https://www.bilibili.com/video/BV1mFoTYLEVL)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
