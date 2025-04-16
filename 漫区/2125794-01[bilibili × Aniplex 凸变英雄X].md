@@ -603,3 +603,14 @@ X：宮野真守
 两边台词基本一致的吧，按着以前的应该不到终盘不会解释为啥了，第一部凸变那个诡计就是这样藏的 ...</blockquote>
 第一部的哪个诡计来的？
 
+
+*****
+
+####  Sacross  
+##### 64#       发表于 2025-4-16 16:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67731852&amp;ptid=2125794" target="_blank">DARK_HGCG 发表于 2025-4-16 15:38</a>
+
+第一部的哪个诡计来的？</blockquote>
+中间那段作画整体呈现的那种很奇怪的高光应该可以算是诡计吧，看到结局才知道咋回事
+

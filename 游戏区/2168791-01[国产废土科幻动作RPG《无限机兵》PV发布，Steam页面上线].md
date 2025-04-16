@@ -415,3 +415,33 @@ SD最后的连战会拖慢，其余时候没啥问题，等优化就好了
 
 24.漏点料：dlc已经在做了
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 178#       发表于 2025-4-16 16:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67731986&amp;ptid=2168791" target="_blank">Akmenter 发表于 2025-4-16 16:10</a>
+放一下制作人和苍翼混沌效应制作人的对谈大致内容吧。
+
+1.关于双持武器：本作不会轻易改动，下一部可以考虑
+
+ ...</blockquote>
+啊？居然还没回本？
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
+
+*****
+
+####  天剑流星  
+##### 179#       发表于 2025-4-16 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67731017&amp;ptid=2168791" target="_blank">schneehertz 发表于 2025-4-16 12:02</a>
+没玩过魂，前期有点玩不明白，有没有魂大佬说说加点和武器怎么搭？
+
+—— 来自 Xiaomi 23127PN0CC, Android ...</blockquote>
+根据爱用的武器倾向点力敏，感觉有血量压力就5级5级的点血，中期就能拿到无限洗点道具所以不是很有加点压力
+
+—— 来自 Xiaomi 2407FRK8EC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
