@@ -1192,3 +1192,33 @@ EDに原画で参加させて頂きました✍️
 
 我倒是觉得这目前来看节奏挺好的，机战部分79机战基本全致敬去了，85的话你总不能指望麻球这个刚上机的人能打出什么？强大操作吧？下一集还有修老师带妹上分环节呢
 
+
+*****
+
+####  Piano-Forest  
+##### 9476#         楼主| 发表于 2025-4-16 12:37
+
+[https://x.com/HideMatsubara/status/1912174236254568885](https://x.com/HideMatsubara/status/1912174236254568885)
+
+OA記念として
+
+劇場入場特典冊子
+
+「ANNO SCENARIO &amp; DESIGN WORKS 2」
+
+表紙イラストを改訂して着色してみました。
+<img src="https://p.sda1.dev/23/c5ba4e000afb330213d0ed138d9eb9fe/20250416_122452.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/church0620/status/1912173631393960289](https://x.com/church0620/status/1912173631393960289)
+
+ジークアクス2話ご視聴いただきありがとうございました!
+
+引き続きよろしくお願い致します!
+<img src="https://p.sda1.dev/23/a4bc90da8b5682f220b4a5c541beb3ef/20250416_122447.jpg" referrerpolicy="no-referrer">
+
+过场原画·阿部慎吾
+<img src="https://p.sda1.dev/23/96c131c47a44eb913b7aaafe733bcb0c/20250416_123139.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/173ee847eaa03e18abec4bce1f6e3060/20250416_123200.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/ba4c8b65e995830d4c1da6d96dfa9b60/20250416_123201.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/30af9582780ebea28e10de921796191d/006SCGqIgy1i0hxa0ivg8j30sg0g0dhu.jpg" referrerpolicy="no-referrer">
+
