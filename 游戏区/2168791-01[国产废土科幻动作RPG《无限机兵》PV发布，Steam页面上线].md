@@ -172,3 +172,13 @@
 我仁王是垃圾打法，复读雪月花的，什么上中下切段残心流转紫电真打起来了学不会 ...</blockquote>
 那正好，卡赞也是复读性能战技的垃圾打法<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cody198879  
+##### 159#       发表于 2025-4-16 09:55
+
+打起来意外的爽，没有不死人那种超低性能的吃屎感 和boss互搏刀刀到肉爽
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
