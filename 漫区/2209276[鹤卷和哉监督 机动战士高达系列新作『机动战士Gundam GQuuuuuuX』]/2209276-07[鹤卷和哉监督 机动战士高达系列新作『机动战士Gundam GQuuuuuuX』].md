@@ -1656,3 +1656,14 @@ OA記念として
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  oi99o  
+##### 9517#       发表于 2025-4-17 01:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67733360&amp;ptid=2209276" target="_blank">璇瑢子R 发表于 2025-4-16 23:48</a>
+电视动画前三集拿出来提前一个季度剧场版先行上映不是很常见的事吗？
+虽然第一次国内上映，但是以前的偷跑/ ...</blockquote>
+一般来说tv动画的先行上映都是小规模的，大部分都是一两场点映的感觉。gqx这种当一般电影全国大规模上映的才是少数中的少数。
+
