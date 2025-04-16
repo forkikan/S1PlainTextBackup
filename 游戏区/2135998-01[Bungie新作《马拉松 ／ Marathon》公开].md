@@ -602,3 +602,13 @@ Bungie 为了复用素材还是用这个从 Halo 一路魔改上来的引擎<img
 
 但命运2年一到年六从嫌弃到吹捧沉迷再到幡然悔悟再玩是**的我个人意见是，狗才信棒鸡，狗都不买<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  只会双持开拓者  
+##### 62#       发表于 2025-4-16 15:02
+
+一脸暴死相
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
