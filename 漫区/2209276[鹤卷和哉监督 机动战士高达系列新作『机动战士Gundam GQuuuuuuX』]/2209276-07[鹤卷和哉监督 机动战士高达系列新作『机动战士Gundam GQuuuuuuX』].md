@@ -909,3 +909,25 @@ OP里麻球还在用热能斧，光剑捅机器容易爆炸杀人不好，还是
 
 花钱看剧场版的真手欠
 
+
+*****
+
+####  别急来过两招  
+##### 9450#       发表于 2025-4-16 10:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  别急来过两招  
+##### 9451#       发表于 2025-4-16 11:00
+
+国内这么多这个失望那个破防的有点看不懂 说这个第二集结尾没处理好我是同意的 但是超前点播剧场版这个真不好喷 
+很多人拿鹤卷的访谈出来说回旋镖，但那个访谈本身也是模棱两可<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+另外还有说剩9集篇幅不够要烂的 前三集只是你看过了 又不是空过<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
