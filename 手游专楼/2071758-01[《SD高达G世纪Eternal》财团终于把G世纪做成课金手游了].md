@@ -1503,3 +1503,16 @@ AMYCGALFNL2J2G 有日服互助好友吗
 
 感觉有点微妙
 
+
+*****
+
+####  光辉传递者  
+##### 150#       发表于 2025-4-16 22:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67733210&amp;ptid=2071758" target="_blank">blue321 发表于 2025-4-16 22:32</a>
+
+新手初始有啥推荐吗？30抽一个水魔的UR补给舰和沙扎比
+
+感觉有点微妙</blockquote>
+能天使，几乎所有地形都能上。或者凤凰能力觉醒。
+
