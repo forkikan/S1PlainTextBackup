@@ -528,3 +528,28 @@ SD最后的连战会拖慢，其余时候没啥问题，等优化就好了
 
 谢谢大佬们的回答
 
+
+*****
+
+####  Asukalangley33  
+##### 187#       发表于 2025-4-16 18:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67732134&amp;ptid=2168791" target="_blank">半江瑟瑟半江红 发表于 2025-4-16 16:41</a>
+
+啊？居然还没回本？
+
+—— 来自 HUAWEI ALN-AL10, Android 12, 鹅球 v3.4.97-alpha</blockquote>
+算目前50W销量，均价算20刀
+
+7300W RMB收入
+
+平台拿30%，剩下5110W
+
+小成本游戏没啥宣发，发行方算55分成，剩2500W
+
+开发成本3000W，确实还没回本
+
+差不多再卖10W份才开始赚钱
+
+但是看目前状况肯定能长卖小100W的，所以后续投资就很乐观了
+

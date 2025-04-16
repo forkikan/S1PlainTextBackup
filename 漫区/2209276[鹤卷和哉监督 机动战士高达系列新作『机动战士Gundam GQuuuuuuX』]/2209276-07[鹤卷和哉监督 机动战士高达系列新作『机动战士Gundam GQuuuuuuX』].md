@@ -1548,3 +1548,40 @@ OA記念として
 
 ×
 
+
+*****
+
+####  岸浪白野  
+##### 9507#       发表于 2025-4-16 18:58
+
+[X 上的 またへい：“[url]https://t.co/KIrbPvrxpm](https://x.com/matahe_i/status/1912204845454618741)” / X[/url]
+
+[X 上的 サテー@聖牌/OAF：“（コモリ・ハーコート少尉はイイゾ…のｒｋｇｋ２）#GQuuuuuuX [url]https://t.co/3LHJaJ2Vk7](https://x.com/syatey_12/status/1912341671653831117)” / X[/url]
+
+[X 上的 える：“OP後の予想、若者に必死について行くオジサン感… それにしてもこの６人が同じ方向に走っていくの？え、そーなの？？ #GQuuuuuuX #ジークアクス [url]https://t.co/800a9KOZ0t](https://x.com/kfyipy/status/1912327231843815650)” / X[/url]
+
+[X 上的 約およそ：“飛び出していけ　宇宙の彼方 [url]https://t.co/TF1QnBzUQk](https://x.com/yakuoyoso/status/1912445874862715158)” / X[/url]
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  岸浪白野  
+##### 9508#       发表于 2025-4-16 19:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67732570&amp;ptid=2209276" target="_blank">az一串字母 发表于 2025-4-16 18:57</a>
+
+图源推特</blockquote>
+这个早上就看到了，等街机官网发一遍清晰的
+
+
+*****
+
+####  hahah  
+##### 9509#       发表于 2025-4-16 19:03
+
+终于回来了，彻底把外野删掉吧，整天搞搞炸弹。ns2发布会，gqx国内引进、gqx首播，这半个月错过太多了。
+
