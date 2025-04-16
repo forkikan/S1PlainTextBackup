@@ -212,3 +212,13 @@
 
 挺好玩的，就是rpg系统比较简单没什么深度
 
+
+*****
+
+####  zzy516232108  
+##### 163#       发表于 2025-4-16 10:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67730311&amp;ptid=2168791" target="_blank">红魔馆的糖 发表于 2025-4-16 09:29</a>
+那正好，卡赞也是复读性能战技的垃圾打法</blockquote>
+真的假的，那不得不玩了。<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+

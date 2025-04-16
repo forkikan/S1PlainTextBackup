@@ -884,3 +884,20 @@ OP里麻球还在用热能斧，光剑捅机器容易爆炸杀人不好，还是
 
 要吸引新人就别整那么多致敬了，还不如安排点像大青椒打杰钢那样的打戏
 
+
+*****
+
+####  璇瑢子R  
+##### 9447#       发表于 2025-4-16 10:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67730587&amp;ptid=2209276" target="_blank">hsq0596 发表于 2025-4-16 10:24</a>
+给个链接，我去开开眼</blockquote>
+[https://bbs.nga.cn/read.php?tid=43747268](https://bbs.nga.cn/read.php?tid=43747268)
+
+*****
+
+####  supermangunv4  
+##### 9448#       发表于 2025-4-16 10:36
+
+庵野插手搞得效果不三不四的，要我说宇宙世纪拉新人还得独角兽
+
