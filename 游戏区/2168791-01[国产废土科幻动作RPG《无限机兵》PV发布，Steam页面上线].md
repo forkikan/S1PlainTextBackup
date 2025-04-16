@@ -471,3 +471,15 @@ SD最后的连战会拖慢，其余时候没啥问题，等优化就好了
 
 —— 来自 Xiaomi 23127PN0CC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  红魔馆的糖  
+##### 182#       发表于 2025-4-16 17:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67732158&amp;ptid=2168791" target="_blank">zzy516232108 发表于 2025-4-16 16:49</a>
+制作人真的叫杨滨啊我靠
+
+就算复活红毛也不是那个人了吧</blockquote>
+资料里有讲，机兵可以模拟人类的一切，直接曹丕怀孕器官一条龙模拟<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
