@@ -1302,3 +1302,11 @@ OA記念として
 
 之前看设定集2鹤卷那暖味寄言大家都理解错了，结果那剪辑确实是剧场版独享<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fireadol  
+##### 9485#       发表于 2025-4-16 15:07
+
+痞子做其他人IP那股姨姥味太重了，跟网上那些喜欢装老资格婆罗门秀资历的行为一模一样
+
