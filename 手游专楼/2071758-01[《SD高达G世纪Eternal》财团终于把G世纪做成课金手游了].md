@@ -1418,3 +1418,14 @@ DD前有个X-Ω
 
 —— 来自 LENOVO TB321FU, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  劳动改造归来  
+##### 141#       发表于 2025-4-16 16:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67732114&amp;ptid=2071758" target="_blank">王俊凯 发表于 2025-4-16 16:35</a>
+
+战舰只加成同系列，开局基本凑不全一系列一队吧</blockquote>
+G高达女主的战舰是全部都有，不分作品
+
