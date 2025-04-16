@@ -1325,3 +1325,14 @@ DD前有个X-Ω
 
 日服是不是比国际服多两卡池？活动也不一样？
 
+
+*****
+
+####  kenqqex  
+##### 131#       发表于 2025-4-16 14:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67731358&amp;ptid=2071758" target="_blank">wcorvo 发表于 2025-4-16 13:33</a>
+
+麻了，挂了梯子显示错误483，不挂梯子显示错误200</blockquote>
+483关gps<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

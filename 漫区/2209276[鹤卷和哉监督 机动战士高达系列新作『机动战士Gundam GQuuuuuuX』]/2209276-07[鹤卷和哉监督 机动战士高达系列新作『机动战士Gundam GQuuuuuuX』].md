@@ -1269,3 +1269,11 @@ OA記念として
 
 先讲到电影结尾打赢clan battle也比现在这样的放送顺序好吧<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 9482#       发表于 2025-4-16 14:18
+
+隔了这么多天s1没的上，再回来楼里已经多了这么多新人说话
+
