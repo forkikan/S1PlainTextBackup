@@ -1318,3 +1318,18 @@ OA記念として
 
 把前面uc的内容切割掉直接0085开始我还能当个lv5 阿哥看，这么合并屎上加屎
 
+
+*****
+
+####  hcho  
+##### 9487#       发表于 2025-4-16 15:44
+
+不是这个tv三集给剧场版内容，剩下9集说什么？<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">说好的0079部分给剧场版怎么又占一集tv，看了剧场版的坐牢一个月是吧
+
+*****
+
+####  真爱与热情  
+##### 9488#       发表于 2025-4-16 15:45
+
+这片子不开个每集评分楼吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
