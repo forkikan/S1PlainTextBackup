@@ -866,3 +866,21 @@ OP里麻球还在用热能斧，光剑捅机器容易爆炸杀人不好，还是
 
 真就剧场版播三集...
 
+
+*****
+
+####  hsq0596  
+##### 9445#       发表于 2025-4-16 10:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67730461&amp;ptid=2209276" target="_blank">璇瑢子R 发表于 2025-4-16 10:00</a>
+
+这几天nga的鸭子和基西利亚cp论真是太好玩了</blockquote>
+给个链接，我去开开眼
+
+*****
+
+####  yanghuangu  
+##### 9446#       发表于 2025-4-16 10:25
+
+要吸引新人就别整那么多致敬了，还不如安排点像大青椒打杰钢那样的打戏
+
