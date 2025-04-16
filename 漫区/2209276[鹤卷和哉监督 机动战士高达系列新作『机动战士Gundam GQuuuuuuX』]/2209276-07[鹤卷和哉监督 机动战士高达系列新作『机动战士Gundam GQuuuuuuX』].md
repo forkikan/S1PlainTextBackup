@@ -1426,3 +1426,41 @@ OA記念として
 
 ×
 
+
+*****
+
+####  xwz  
+##### 9498#       发表于 2025-4-16 17:18
+
+ 本帖最后由 xwz 于 2025-4-16 17:19 编辑 
+
+╯ 　乀
+ヘ　 へ
+　′
+　﹀ ​​​
+
+“看着麻球和修司关系一天天变好，努力安慰自己，比起独占喜欢的人，让自己喜欢上自己喜欢的人所喜欢的人，像这样人际圈越来越大......不也挺好的吗？”<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  岸浪白野  
+##### 9499#       发表于 2025-4-16 17:24
+
+补发剩下的staff相关插图
+
+[X 上的 YY：“#GQuuuuuuX #ジークアクス [url]https://t.co/0M8JXKis5r](https://x.com/YY_shibata/status/1912175586870759796)” / X[/url]
+
+[X 上的 コウダ：“シャアとシャリアブルの色気すごかった opもかっこよかったです plazmaでテンションあがってるマチュたち #GQuuuuuux #ジークアクス #Plazma #米津玄師 [url]https://t.co/MCPGYKg144](https://x.com/kouda_nyo/status/1912176093437808656)” / X[/url]
+
+[X 上的 おしぼり：“昨晩の第二話をご視聴いただきありがとうございました OPアニメににキャラ作監で参加しておりました 各種配信もよろしくお願いいたします！ #GQuuuuuuX #ジークアクス [url]https://t.co/CnzZAV6PGR](https://x.com/cbrca/status/1912338493508104324)” / X[/url]
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
