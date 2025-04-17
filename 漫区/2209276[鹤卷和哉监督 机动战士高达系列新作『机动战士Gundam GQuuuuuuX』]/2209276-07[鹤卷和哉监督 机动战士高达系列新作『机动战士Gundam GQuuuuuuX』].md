@@ -2339,3 +2339,11 @@ OPアニメににキャラ作監で参加しておりました
 
 【当你用鲁鲁修的方式打开GQuuuuuuX的op-哔哩哔哩】 https://b23.tv/jTu78R8
 
+
+*****
+
+####  johnkamsar  
+##### 9577#       发表于 2025-4-17 23:24
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">还没看这部高达，听说是鸭子拿了rx-78后吉翁赢的世界线，感觉和基连的野望之中一条if线很类似，不会是其中一个if线为基础改编的吧。。。。。
+
