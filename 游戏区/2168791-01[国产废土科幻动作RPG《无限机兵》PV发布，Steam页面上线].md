@@ -742,3 +742,17 @@ SD最后的连战会拖慢，其余时候没啥问题，等优化就好了
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  blackll7  
+##### 207#       发表于 2025-4-18 00:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67735707&amp;ptid=2168791" target="_blank">crow_wine 发表于 2025-4-17 23:43</a>
+就剩圣父没打，深渊哀后弹反硬打打了几个小时……厄休拉也是，弹反打不过。明明我只狼打得还可以的。
+最后 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">他这个弹反判定的问题，demo版更坑，正式版已经放宽判定了。实际上他这个弹反是正面框的一个命中判定，和敌人接触同时敌人攻击就会触发。就会导致大体积敌人抬手即便没命中，你贴脸按弹反也能能弹。而小体积敌人近战类大范围攻击你摸不到命中判定点，根本弹不了一点。
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">很大程度上这是一个在2025年发售的2015年的游戏。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
