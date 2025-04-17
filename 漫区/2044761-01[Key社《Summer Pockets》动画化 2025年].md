@@ -963,3 +963,11 @@ TVアニメ『Summer Pockets』第3話
 
 很有古早gal改的味道，对了
 
+
+*****
+
+####  whzfjd  
+##### 82#       发表于 2025-4-18 01:03
+
+对暑假的描述还挺有感触的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
