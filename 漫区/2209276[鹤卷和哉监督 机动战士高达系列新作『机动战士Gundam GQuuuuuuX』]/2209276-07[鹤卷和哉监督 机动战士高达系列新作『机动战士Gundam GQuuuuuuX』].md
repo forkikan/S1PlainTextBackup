@@ -1865,3 +1865,39 @@ OA記念として
 
 第二集这么放真是想骂都找不到地方，这下GQX成为备战五月新番第一人了
 
+
+*****
+
+####  renkan119  
+##### 9539#       发表于 2025-4-17 12:40
+
+不知道是游戏组乱填还是怎么的 SD里夸克斯和白高达居然是能飞的…
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+
+*****
+
+####  Gaybird  
+##### 9540#       发表于 2025-4-17 12:42
+
+【【中日字幕】初代高达设计师锐评GQX&amp;高达未来 77岁传奇机设师 大河原邦男专访-哔哩哔哩】 https://b23.tv/Wmrjiks
+虽然是在20:49顺便提的，安彦已经看过gqux了啊！真好奇他的评价
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  57042711  
+##### 9541#       发表于 2025-4-17 12:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67734122&amp;ptid=2209276" target="_blank">marlun 发表于 2025-4-17 11:50</a>
+严格来说85剧情不是11集吗</blockquote>
+ova一集30分钟呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+这次感觉安排就有问题吧…
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
