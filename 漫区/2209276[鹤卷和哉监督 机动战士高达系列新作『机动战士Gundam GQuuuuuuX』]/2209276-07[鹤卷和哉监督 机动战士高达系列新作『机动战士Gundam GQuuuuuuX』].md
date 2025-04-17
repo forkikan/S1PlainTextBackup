@@ -2139,3 +2139,27 @@ MS-06-SSP POLICE ZAKU
 
 都在12集嫌少，只有鹤卷在那嫌12集太多
 
+
+*****
+
+####  岸浪白野  
+##### 9560#       发表于 2025-4-17 16:19
+
+ 本帖最后由 岸浪白野 于 2025-4-17 16:20 编辑 
+
+不是12集了是11集，但依然还是鹤卷第一次这么长篇幅
+你在讨论篇幅不够不还是因为不知道这片的格局到哪又在那心挂念着觉得高达很难用这么短篇幅讲故事<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  暗黑能乐  
+##### 9561#       发表于 2025-4-17 16:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67734585&amp;ptid=2209276" target="_blank">Dai-Dai-Dai-Dai 发表于 2025-4-17 15:49</a>
+
+对我来说有和XB2一样的问题，初见人设还以为要做子供向。
+
+闲着时看了第一集马上就陷进“周指活”状态，盼来 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真纯讲kirakira讲这么多集也是会腻歪的吧
+

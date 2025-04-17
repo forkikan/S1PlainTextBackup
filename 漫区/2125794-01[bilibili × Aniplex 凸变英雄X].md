@@ -775,3 +775,17 @@ X：宮野真守
 
 —— 来自 OnePlus IN2020, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  DARK_HGCG  
+##### 80#       发表于 2025-4-17 16:19
+
+<blockquote>Sacross 发表于 2025-4-17 14:14
+台词人设全按着中文环境来的，改成日语的感觉就和无脑按着日语台本做中配一样
+
+—— 来自 OnePlus IN2020 ...</blockquote>
+本来就是中国动画
+
+台词都本土化了反而没味道吧
+
