@@ -466,3 +466,11 @@ PV3：[https://youtu.be/6j-Efr3XIcU](https://youtu.be/6j-Efr3XIcU)
 
 据说后面是每集一首新歌，希望质量都能不错<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AkaiSuisei  
+##### 46#       发表于 2025-4-17 10:57
+
+女主唱歌的腔儿都是照着当时凹酱那个感觉去捏的，各种名词也都各种出戏，给我看出phonic gain来了
+
