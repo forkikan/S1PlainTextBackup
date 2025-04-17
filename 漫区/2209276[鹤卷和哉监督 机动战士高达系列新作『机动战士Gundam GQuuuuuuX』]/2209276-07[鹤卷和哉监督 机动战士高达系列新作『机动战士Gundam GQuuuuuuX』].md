@@ -1786,3 +1786,13 @@ OA記念として
 
 电影院里因为只顾着爽了没什么太多异常感，tv第2集里那个所罗门的下坠的弹道预测画面生怕你看不出是eva里搬过来的一样<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  a85982313  
+##### 9530#       发表于 2025-4-17 09:50
+
+第一集个收1.6，世带3.4
+虽然这个数据明显蹭了前半的综艺节目，不过也是很好的开局
+<img src="https://p.sda1.dev/23/8a63e1ca6f0a8f3729f1b6880fd7a2d5/image.jpg" referrerpolicy="no-referrer">
+

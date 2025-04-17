@@ -456,3 +456,13 @@ PV3：[https://youtu.be/6j-Efr3XIcU](https://youtu.be/6j-Efr3XIcU)
 
 战姬的战斗，美妙的设定，春春的既视感+夏海皇姬友，可以再多观望几集
 
+
+*****
+
+####  qqwliao  
+##### 45#       发表于 2025-4-17 09:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">对比起来角色歌好像都有点差点意思的感觉。
+
+据说后面是每集一首新歌，希望质量都能不错<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
