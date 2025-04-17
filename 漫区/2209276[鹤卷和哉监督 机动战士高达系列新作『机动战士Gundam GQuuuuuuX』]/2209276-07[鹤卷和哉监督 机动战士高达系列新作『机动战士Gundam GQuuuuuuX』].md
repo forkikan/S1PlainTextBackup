@@ -1966,3 +1966,16 @@ ova一集30分钟呢<img src="https://static.stage1st.com/image/smiley/face2017/
 https://bocchinet.com/GQux/
 一个控制麻球跳进gqux的神经小游戏
 
+
+*****
+
+####  夜留歌  
+##### 9548#       发表于 2025-4-17 14:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67733456&amp;ptid=2209276" target="_blank">一个陆仁贾 发表于 2025-4-17 00:47</a>
+
+看了剧场版后一直想说，怎么不出这个模型啊，比正片里的高达好看多了
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+这设定图看第一眼感觉新机是EVA套了个高达壳<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
