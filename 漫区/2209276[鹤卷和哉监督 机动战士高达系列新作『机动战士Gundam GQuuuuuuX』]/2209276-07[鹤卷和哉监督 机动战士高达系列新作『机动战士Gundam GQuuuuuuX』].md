@@ -1796,3 +1796,11 @@ OA記念として
 虽然这个数据明显蹭了前半的综艺节目，不过也是很好的开局
 <img src="https://p.sda1.dev/23/8a63e1ca6f0a8f3729f1b6880fd7a2d5/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oi99o  
+##### 9531#       发表于 2025-4-17 10:14
+
+收视率也跟综艺一起统计啊，无敌了
+

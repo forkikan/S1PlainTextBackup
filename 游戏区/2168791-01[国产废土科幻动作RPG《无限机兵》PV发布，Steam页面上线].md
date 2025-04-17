@@ -669,3 +669,13 @@ SD最后的连战会拖慢，其余时候没啥问题，等优化就好了
 问下二周目继承哪些内容，哪些需要重新刷，一周目感觉自己舔图很仔细了，但还是漏了一大堆东西，准备开个二 ...</blockquote>
 除了剧情道具其他全保留，npc卖武器和刻印强化材料还得按剧情解锁
 
+
+*****
+
+####  Rebirth_DAN  
+##### 200#       发表于 2025-4-17 10:10
+
+人均快慢刀的敌人设计和boss设计真的受不了<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">感觉除了地图设计外一无是处啊
+
+—— 来自 Xiaomi 23013RK75C, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
