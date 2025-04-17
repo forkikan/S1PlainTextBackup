@@ -2391,3 +2391,13 @@ staff太屑了，就为了那一小段剧情这破玩意要打三次，三回啊
 
 你游挺好的<img src="https://static.stage1st.com/image/smiley/face2017/069.png">
 
+
+*****
+
+####  mobdom  
+##### 211#       发表于 2025-4-17 19:02
+
+卡池推荐抽阿贝还是爱丽丝啊，还是两个都不推荐<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
