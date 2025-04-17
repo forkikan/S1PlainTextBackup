@@ -1770,3 +1770,11 @@ OA記念として
 
 林有德是不是一起死在舰桥了？
 
+
+*****
+
+####  朋友费小号  
+##### 9528#       发表于 2025-4-17 08:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">很难评，第二集居然真的原样放送，这个月的机器人能量补充只能靠周末的机战完整pv了
+
