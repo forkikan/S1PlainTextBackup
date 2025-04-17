@@ -1739,3 +1739,34 @@ OA記念として
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  eyeego  
+##### 9525#       发表于 2025-4-17 07:14
+
+所罗门是整个79if最重要的部分了 结果剪了留一堆痞子的宅臭自嗨<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+你说第二集是绿叔叔视角的0079吧 鸭子的遗言又去哪了？不会是脑容量不够忘记了吧<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gundammarkⅡ  
+##### 9526#       发表于 2025-4-17 07:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67320376&amp;ptid=2209276" target="_blank">王留美 发表于 2025-1-31 14:25</a>
+所以木马是“佩嘎萨斯”还是“白色基地”？
+绰号是绰号设定是设定这种事情哪个看敢达的会不知道？</blockquote>
+虽然吉翁换了涂装，但是还是沿用LMSD-70舷号<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/c963a0e25ade6e2096031f8246b56cf5/image.jpg" referrerpolicy="no-referrer">
+实锤了不是白色基地（LMSD-71）而是飞马
+<img src="https://p.sda1.dev/23/af10b2fa9bc550eb8a620c39c7d50f06/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  sdhgak1234  
+##### 9527#       发表于 2025-4-17 07:49
+
+林有德是不是一起死在舰桥了？
+
