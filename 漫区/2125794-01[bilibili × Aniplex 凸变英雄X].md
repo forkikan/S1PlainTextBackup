@@ -751,3 +751,15 @@ X：宮野真守
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67733725&amp;ptid=2125794" target="_blank">DARK_HGCG 发表于 2025-4-17 09:05</a></blockquote>
 这个眉头鼻子和嘴唇实在是太双城/欧美漫了
 
+
+*****
+
+####  DARK_HGCG  
+##### 78#       发表于 2025-4-17 14:11
+
+<blockquote>jiaqi12000 发表于 2025-4-17 11:20
+真是头一次感觉日配不如中配，也没感觉中文配的多好，但是换成日文怎么违和感这么强
+
+—— 来自 鹅球 v3.3. ...</blockquote>
+有这么维和吗
+
