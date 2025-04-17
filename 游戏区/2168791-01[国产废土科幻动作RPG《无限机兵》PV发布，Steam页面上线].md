@@ -679,3 +679,16 @@ SD最后的连战会拖慢，其余时候没啥问题，等优化就好了
 
 —— 来自 Xiaomi 23013RK75C, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  荆棘花冠  
+##### 201#       发表于 2025-4-17 11:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67733728&amp;ptid=2168791" target="_blank">菟原手兒奈 发表于 2025-4-17 09:07</a>
+
+问下二周目继承哪些内容，哪些需要重新刷，一周目感觉自己舔图很仔细了，但还是漏了一大堆东西，准备开个二 ...</blockquote>
+三种强化石头二周契约需要重新拿一下
+
+重要道具剧情类的都不继承
+
