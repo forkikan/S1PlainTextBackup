@@ -719,3 +719,14 @@ SD最后的连战会拖慢，其余时候没啥问题，等优化就好了
 
 工厂大机器人左边第二层有个需要踢下来的楼梯近道在哪踢啊，通关了都没找到
 
+
+*****
+
+####  露综bot一号机  
+##### 205#       发表于 2025-4-17 23:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67734872&amp;ptid=2168791" target="_blank">这次是十块钱 发表于 2025-4-17 18:09</a>
+
+工厂大机器人左边第二层有个需要踢下来的楼梯近道在哪踢啊，通关了都没找到 ...</blockquote>
+三层有个洞踢下去
+

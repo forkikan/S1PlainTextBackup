@@ -43,3 +43,11 @@
 
 [https://pay.biligame.com/h5/#/pa ... 1&amp;isLoginBack=0](https://pay.biligame.com/h5/#/pay?gameBaseId=49&amp;mainchannel1=2&amp;channel2=3_0417_1&amp;isLoginBack=0)
 
+
+*****
+
+####  johnkamsar  
+##### 47105#       发表于 2025-4-17 23:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">思考要不要冲388然后石头留着抽福袋好了
+
