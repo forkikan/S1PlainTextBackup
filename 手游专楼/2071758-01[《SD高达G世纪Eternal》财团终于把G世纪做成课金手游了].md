@@ -1821,3 +1821,34 @@ hard打不打隐藏会不会也有差距？79我6w战力去推可以过，但是
 
 ssr的红蛇把Z和百式研发出来就有了，升ur就要专门的ultimate素材了
 
+
+*****
+
+####  yyccq  
+##### 180#       发表于 2025-4-17 15:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67734489&amp;ptid=2071758" target="_blank">windtrack 发表于 2025-4-17 15:01</a>
+
+哦，看到了，和机体不在一个表了，这支援出的概率好低啊</blockquote>
+我抽了100发已经出了4个UR支援了，MS算上送的也只有3个UR
+
+
+*****
+
+####  Pumpkin_ccc  
+##### 181#       发表于 2025-4-17 15:52
+
+这游戏非氪佬感觉基本是用 开发的满破SSR 或者 活动送的满破SSR + 抽UR附带的UR机师 这样的组合去打高难吧，感觉后期一星UR机体可能还不如一些满破SSR的样子（毕竟万代），氪佬则是满破UR直接推<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Pumpkin_ccc  
+##### 182#       发表于 2025-4-17 15:53
+
+22号开活动
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
