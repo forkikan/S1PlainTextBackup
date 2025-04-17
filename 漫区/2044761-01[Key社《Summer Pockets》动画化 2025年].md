@@ -955,3 +955,11 @@ TVアニメ『Summer Pockets』第3話
 4月21日（月）23時30分より放送！
 <img src="https://p.sda1.dev/23/9d3906d7bcf5c17ed02103d97c30a858/20250417_220631.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  于干  
+##### 81#       发表于 2025-4-17 22:39
+
+很有古早gal改的味道，对了
+
