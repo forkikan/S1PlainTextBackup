@@ -1979,3 +1979,11 @@ https://bocchinet.com/GQux/
 —— 来自 鹅球 v3.3.96 ...</blockquote>
 这设定图看第一眼感觉新机是EVA套了个高达壳<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  砂雪  
+##### 9549#       发表于 2025-4-17 14:51
+
+泥潭终于活了，再不活我就似了
+

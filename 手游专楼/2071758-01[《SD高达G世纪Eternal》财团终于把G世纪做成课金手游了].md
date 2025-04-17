@@ -1705,3 +1705,38 @@ B8U7KFFRJRSLA8
 
 国际服邀请码：BFRN45LVQF94VL
 
+
+*****
+
+####  光辉传递者  
+##### 170#       发表于 2025-4-17 14:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67734085&amp;ptid=2071758" target="_blank">12481632 发表于 2025-4-17 11:34</a>
+
+刚打完Z主线，打hard又要拉一堆ssr的练度，狗粮开始有点不够用了</blockquote>
+现在看起来似乎先把普通难度主线全通了回头再来打hard是最优解？
+
+*****
+
+####  光辉传递者  
+##### 171#       发表于 2025-4-17 14:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67734247&amp;ptid=2071758" target="_blank">windtrack 发表于 2025-4-17 12:49</a>
+
+重开了，自由 EXIA 沙扎比 感觉可以打了
+
+林有德是在哪抽的，UR里没看到啊</blockquote>
+有德在高级补给，6个UR里面4个机体，剩下两个是他和玛琉。
+
+
+*****
+
+####  kenqqex  
+##### 172#       发表于 2025-4-17 14:50
+
+[https://appmedia.jp/ggene_eternal/78640931](https://appmedia.jp/ggene_eternal/78640931)
+
+初期大家还是优先农狗粮吧
+
+商店买金币狗粮 打狗粮本 不打你都拉不起来你的队伍
+
