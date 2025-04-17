@@ -1779,3 +1779,17 @@ B8U7KFFRJRSLA8
 
 主要就是hard的系列部队练度不够打三星容易翻车，不过Z的机体ZZ也可以用，应该会好一点
 
+
+*****
+
+####  光辉传递者  
+##### 176#       发表于 2025-4-17 15:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67734499&amp;ptid=2071758" target="_blank">12481632 发表于 2025-4-17 15:07</a>
+大概的机体等级，0079normal通关你能在联邦线开发出30级的G3，而hard能auto得40级，吉翁的MA线得靠hard
+
+然 ...</blockquote>
+相当于auto通关hard的保障就是开发路线ssr的开发等级+10？
+
+—— 来自 Xiaomi 24031PN0DC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
