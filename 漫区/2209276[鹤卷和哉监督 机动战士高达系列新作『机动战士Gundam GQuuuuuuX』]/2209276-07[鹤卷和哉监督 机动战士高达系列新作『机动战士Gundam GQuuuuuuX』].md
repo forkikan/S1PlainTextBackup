@@ -1987,3 +1987,14 @@ https://bocchinet.com/GQux/
 
 泥潭终于活了，再不活我就似了
 
+
+*****
+
+####  法皇干政  
+##### 9550#       发表于 2025-4-17 15:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67734317&amp;ptid=2209276" target="_blank">上坂莲华 发表于 2025-4-17 13:32</a>
+
+第二集马克贝有镜头的，就是把后面的台词删了</blockquote>
+可是组长还是没开上高达！
+
