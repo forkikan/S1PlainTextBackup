@@ -689,3 +689,20 @@ X：宮野真守
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  DARK_HGCG  
+##### 72#       发表于 2025-4-17 09:05
+
+<blockquote>bartholo4 发表于 2025-4-17 08:10
+3D部分有双城之战的味道
+
+觉得尬的应该看日语版就不会
+</blockquote>
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
