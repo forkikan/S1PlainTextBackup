@@ -799,3 +799,16 @@ X：宮野真守
 日语版每次念潇月卿这名字都让我有点绷不住，而且潇月卿这脸感觉不太好看 ...</blockquote>
 太美式了？
 
+
+*****
+
+####  バーチャルS1er  
+##### 82#       发表于 2025-4-17 23:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67734975&amp;ptid=2125794" target="_blank">达达葱2 发表于 2025-4-17 19:15</a>
+
+太美式了？</blockquote>
+眼睛对这个画风来说太大，眼眶太深、嘴巴有点前突，
+
+特别是生气的时候会难看加剧让我产生一种角色尖酸刻薄的感觉
+

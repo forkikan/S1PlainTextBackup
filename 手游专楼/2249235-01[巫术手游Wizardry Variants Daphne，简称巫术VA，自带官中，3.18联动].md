@@ -2454,3 +2454,11 @@ staff太屑了，就为了那一小段剧情这破玩意要打三次，三回啊
 
 那个活动金币任务，如果当前进度是第三章一周目，金币怪会刷在需要能力打开道路，当前到不了的地方<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  茄子自走炮  
+##### 217#       发表于 2025-4-17 23:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">城塞怎么最后要打小怪连战再打大异形 没看攻略打死球了
+

@@ -2347,3 +2347,14 @@ OPアニメににキャラ作監で参加しておりました
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">还没看这部高达，听说是鸭子拿了rx-78后吉翁赢的世界线，感觉和基连的野望之中一条if线很类似，不会是其中一个if线为基础改编的吧。。。。。
 
+
+*****
+
+####  57042711  
+##### 9578#       发表于 2025-4-17 23:45
+
+鉴于骡子下手太狠把沙扎比驾驶舱都打出来了，也许是那个球形驾仓穿越了呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+这样夸克斯那个超牛逼的驾仓就不违和了吧…
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
