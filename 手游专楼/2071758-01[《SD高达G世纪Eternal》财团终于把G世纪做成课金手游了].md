@@ -1793,3 +1793,31 @@ B8U7KFFRJRSLA8
 
 —— 来自 Xiaomi 24031PN0DC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  12481632  
+##### 177#       发表于 2025-4-17 15:42
+
+前两个剧本看差不多这样，不过auto有时候会脑抽自己上去送，第一遍打三星的时候自军有残血最好还是切手动
+
+*****
+
+####  光辉传递者  
+##### 178#       发表于 2025-4-17 15:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67734499&amp;ptid=2071758" target="_blank">12481632 发表于 2025-4-17 15:07</a>
+大概的机体等级，0079normal通关你能在联邦线开发出30级的G3，而hard能auto得40级，吉翁的MA线得靠hard
+
+然 ...</blockquote>
+hard打不打隐藏会不会也有差距？79我6w战力去推可以过，但是如果要打隐藏，比如第一关的大扎姆，标的是推荐10w战力，就打不动了。
+
+—— 来自 Xiaomi 24031PN0DC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  12481632  
+##### 179#       发表于 2025-4-17 15:46
+
+ssr的红蛇把Z和百式研发出来就有了，升ur就要专门的ultimate素材了
+
