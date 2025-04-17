@@ -1580,3 +1580,14 @@ A29NU3EM9FPRBC
 
 顺便放一下我的同日服AMMLHLJYDULY8S
 
+
+*****
+
+####  无念  
+##### 157#       发表于 2025-4-17 08:19
+
+日服刷了半天告诉我没有中文，被迫再下个国际服
+话说日服play市场能氪金国际服么，有谁试过没
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
