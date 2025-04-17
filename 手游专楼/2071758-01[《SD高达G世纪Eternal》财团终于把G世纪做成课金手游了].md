@@ -1964,3 +1964,18 @@ BPFD8LU3RQ9ZGY
 
 老哥们现在机体 ur 有能天使和自由，支援有木马（话说木马驾驶员怎么不是林有德）能开局了吗
 
+
+*****
+
+####  blue321  
+##### 196#       发表于 2025-4-17 21:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67734951&amp;ptid=2071758" target="_blank">kerorokun 发表于 2025-4-17 19:05</a>
+
+BPFD8LU3RQ9ZGY
+
+国际服，邀请互助</blockquote>
+已填求互助
+
+B4ZCKHRQHDA4WN
+
