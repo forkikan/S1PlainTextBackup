@@ -668,3 +668,226 @@ Ave Mujica - 天球(そら)のMúsica (Official Music Video)
 
 看真柿界基本都是对答案啊，之前每集都认真去理解过了，我从动画中理解到的意图大部分都和动画团队想传达的符合了
 
+
+*****
+
+####  595505568  
+##### 40291#       发表于 2025-4-16 19:59
+
+回来啦<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  堀内爱里衣  
+##### 40292#       发表于 2025-4-16 20:05
+
+【熟肉】Mujica收藏集全语音
+[https://www.bilibili.com/video/BV1YxoNYSEMi](https://www.bilibili.com/video/BV1YxoNYSEMi)
+
+*****
+
+####  丰川祥  
+##### 40293#       发表于 2025-4-16 20:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67732491&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2025-4-16 18:31</a>
+
+鬼图平移警告</blockquote>
+只是上流媒体，不是mv
+
+*****
+
+####  社美胡  
+##### 40294#       发表于 2025-4-16 20:26
+
+[https://x.com/xenoee_/status/1912329206706417894](https://x.com/xenoee_/status/1912329206706417894)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  社美胡  
+##### 40295#       发表于 2025-4-16 20:27
+
+[https://x.com/jenjen_rkgk/status/1912094852772483287](https://x.com/jenjen_rkgk/status/1912094852772483287)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  社美胡  
+##### 40296#       发表于 2025-4-16 20:28
+
+[https://x.com/tenrouza_ray/status/1912430925444730977/photo/1](https://x.com/tenrouza_ray/status/1912430925444730977/photo/1)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  社美胡  
+##### 40297#       发表于 2025-4-16 20:30
+
+[https://x.com/Xiaowu0074/status/1911983497818058968/photo/1](https://x.com/Xiaowu0074/status/1911983497818058968/photo/1)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  社美胡  
+##### 40298#       发表于 2025-4-16 20:31
+
+[https://x.com/rjfqoszm1212/status/1912179445202665979/photo/1](https://x.com/rjfqoszm1212/status/1912179445202665979/photo/1)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  社美胡  
+##### 40299#       发表于 2025-4-16 20:36
+
+[https://x.com/Slug10000/status/1912170053296095470/photo/1](https://x.com/Slug10000/status/1912170053296095470/photo/1)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  社美胡  
+##### 40300#       发表于 2025-4-16 20:42
+
+[https://x.com/Kyou_039/status/1912106198364766428](https://x.com/Kyou_039/status/1912106198364766428)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  丰川祥  
+##### 40301#       发表于 2025-4-16 20:50
+
+请咽下老师重出江湖
+
+还以为初祥双人卡会找ta<img src="https://static.stage1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  社美胡  
+##### 40302#       发表于 2025-4-16 20:52
+
+[https://x.com/mizukitoko/status/1912461575858143376/photo/1](https://x.com/mizukitoko/status/1912461575858143376/photo/1)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  社美胡  
+##### 40303#       发表于 2025-4-16 20:54
+
+[https://x.com/chilichiliejjo_/status/1912151473556693005/photo/1](https://x.com/chilichiliejjo_/status/1912151473556693005/photo/1)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  社美胡  
+##### 40304#       发表于 2025-4-16 20:56
+
+[https://x.com/hyutena/status/1911862420282188049/photo/1](https://x.com/hyutena/status/1911862420282188049/photo/1)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  千変蜈蚣  
+##### 40305#       发表于 2025-4-16 21:50
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  堀内爱里衣  
+##### 40306#       发表于 2025-4-16 22:08
+
+<img src="https://ac.stage3rd.com/upfiles/202504/A1BACA1BB@0797650391227.gif" referrerpolicy="no-referrer">
+
+＃07 舞台里から全开コメンタリー: BanG Dream! Ave Mujica 〜禁断の全话ネタバレ解说！〜
+[https://www.youtube.com/watch?v=9vF7C1aCUeM](https://www.youtube.com/watch?v=9vF7C1aCUeM)
+
+柿本&amp;三次元staff带你看Ave Mujica #7
+[https://www.bilibili.com/video/BV1mFoTYLEVL](https://www.bilibili.com/video/BV1mFoTYLEVL)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  丰川祥  
+##### 40307#       发表于 2025-4-16 22:20
+
+你楼没人赤石啊
+
+我看奥川这爆典能力丝毫不输柿本，幽默ccc葬礼
+
+*****
+
+####  社美胡  
+##### 40308#       发表于 2025-4-16 23:06
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  滑稽Captain  
+##### 40309#       发表于 2025-4-17 00:31
+
+看真柿界基本都是对答案啊，之前每集都认真去理解过了，我从动画中理解到的意图大部分都和动画团队想传达的符合了
+
+*****
+
+####  Cortana  
+##### 40310#       发表于 2025-4-17 09:22
+
+而且拿机翻当令箭被打脸过多少次了？人工翻译出来前看看就好。当然你懂日语就另说。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
