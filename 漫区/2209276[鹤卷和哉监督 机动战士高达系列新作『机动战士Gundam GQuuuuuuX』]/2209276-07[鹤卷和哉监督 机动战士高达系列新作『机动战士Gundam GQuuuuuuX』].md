@@ -1778,3 +1778,11 @@ OA記念として
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">很难评，第二集居然真的原样放送，这个月的机器人能量补充只能靠周末的机战完整pv了
 
+
+*****
+
+####  mhss  
+##### 9529#       发表于 2025-4-17 09:27
+
+电影院里因为只顾着爽了没什么太多异常感，tv第2集里那个所罗门的下坠的弹道预测画面生怕你看不出是eva里搬过来的一样<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
