@@ -1921,3 +1921,26 @@ ova一集30分钟呢<img src="https://static.stage1st.com/image/smiley/face2017/
 
 结尾的“接第一集继续”给我气笑了，鹤卷凑不够12集不能多搞点泳装回温泉回试胆大会回吗，屋檐了
 
+
+*****
+
+####  gawain  
+##### 9544#       发表于 2025-4-17 13:32
+
+真的是前三集全电影剧情吗？ 那这一季能讲多少剧情啊。。。一季前传？
+
+*****
+
+####  上坂莲华  
+##### 9545#       发表于 2025-4-17 13:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67733520&amp;ptid=2209276" target="_blank">Gaybird 发表于 2025-4-17 02:17</a>
+
+突然意识到一个问题，既然马克贝的出场被全部剪掉了，组长的出演岂不是变成剧场版限定了……组长，我可怜的 ...</blockquote>
+第二集马克贝有镜头的，就是把后面的台词删了
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
