@@ -763,3 +763,15 @@ X：宮野真守
 —— 来自 鹅球 v3.3. ...</blockquote>
 有这么维和吗
 
+
+*****
+
+####  Sacross  
+##### 79#       发表于 2025-4-17 14:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67734371&amp;ptid=2125794" target="_blank">DARK_HGCG 发表于 2025-4-17 14:11</a>
+有这么维和吗</blockquote>
+台词人设全按着中文环境来的，改成日语的感觉就和无脑按着日语台本做中配一样
+
+—— 来自 OnePlus IN2020, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
