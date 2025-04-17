@@ -87,7 +87,7 @@
     "lastedit": 1744861020,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2041774": {
     "totalreply": 16972,
@@ -6324,7 +6324,7 @@
     "lastedit": 1744859220,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2071168": {
     "totalreply": 2233,
@@ -10521,10 +10521,10 @@
     "update": false
   },
   "2209276": {
-    "totalreply": 9546,
+    "totalreply": 9547,
     "title": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
     "newtitle": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
-    "lastedit": 1744868885,
+    "lastedit": 1744870085,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 112662,
+    "totalreply": 112666,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1744869244,
+    "lastedit": 1744870085,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11367,10 +11367,10 @@
     "update": false
   },
   "2249235": {
-    "totalreply": 205,
+    "totalreply": 206,
     "title": "[巫术手游Wizardry Variants Daphne，简称巫术VA，自带官中，3.18联动]",
     "newtitle": "[巫术手游Wizardry Variants Daphne，简称巫术VA，自带官中，3.18联动]",
-    "lastedit": 1744864684,
+    "lastedit": 1744869724,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -11502,10 +11502,10 @@
     "update": false
   },
   "2218875": {
-    "totalreply": 155,
+    "totalreply": 156,
     "title": "[3月6日确定公测！ 提前建一个大巴扎专楼，背包乱斗promax，异步联机自走棋]",
     "newtitle": "[3月6日确定公测！ 提前建一个大巴扎专楼，背包乱斗promax，异步联机自走棋]",
-    "lastedit": 1744861805,
+    "lastedit": 1744869845,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11547,10 +11547,10 @@
     "update": false
   },
   "2179402": {
-    "totalreply": 109,
+    "totalreply": 110,
     "title": "[《杀戮尖塔2》公开，2025年Steam EA发售]",
     "newtitle": "[《杀戮尖塔2》公开，2025年Steam EA发售]",
-    "lastedit": 1744788487,
+    "lastedit": 1744869845,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11598,7 +11598,7 @@
     "lastedit": 1744855380,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2049163": {
     "totalreply": 198,
@@ -11619,10 +11619,10 @@
     "update": false
   },
   "2250993": {
-    "totalreply": 64,
+    "totalreply": 65,
     "title": "[ns2正式公开，6／5发售，马车世界直面会4.17]",
     "newtitle": "[ns2正式公开，6／5发售，马车世界直面会4.17]",
-    "lastedit": 1744867324,
+    "lastedit": 1744869845,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11732,6 +11732,15 @@
     "newtitle": "[火凤燎原动画，第二季PV 残兵吕布联手弑董卓，黑暗兵法出世惊天下｜25.1.16开播]",
     "lastedit": 1744867088,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2251014": {
+    "totalreply": 41,
+    "title": "[超级机器人大战Y 25年内发售 NS／PS5／STEAM]",
+    "newtitle": "[超级机器人大战Y 25年内发售 NS／PS5／STEAM]",
+    "lastedit": 1744870085,
+    "category": "游戏区",
     "active": true,
     "update": false
   }

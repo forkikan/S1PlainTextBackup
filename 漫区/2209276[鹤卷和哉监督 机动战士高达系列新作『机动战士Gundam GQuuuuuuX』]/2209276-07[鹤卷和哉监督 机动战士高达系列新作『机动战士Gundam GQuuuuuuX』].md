@@ -1957,3 +1957,12 @@ ova一集30分钟呢<img src="https://static.stage1st.com/image/smiley/face2017/
 
 其实台词我还是挺喜欢的，特别是那句怼下属的那句“你是说我在嫉妒吗”
 
+
+*****
+
+####  cyanwow  
+##### 9547#       发表于 2025-4-17 14:06
+
+https://bocchinet.com/GQux/
+一个控制麻球跳进gqux的神经小游戏
+
