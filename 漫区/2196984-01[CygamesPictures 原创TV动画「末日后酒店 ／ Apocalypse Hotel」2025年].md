@@ -514,3 +514,16 @@ op和ed里的狸猫一家还没出场，不知道究竟是什么定位。这集�
 
 下集的客人太正常了，甚至看着好像还语言互通的样子
 
+
+*****
+
+####  AraTurambar  
+##### 52#       发表于 2025-4-17 20:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67734938&amp;ptid=2196984" target="_blank">没取名啊 发表于 2025-4-17 19:00</a>
+
+下集的客人太正常了，甚至看着好像还语言互通的样子</blockquote>
+我怀疑这个片是科幻奇幻民俗各种大乱炖。
+
+“其实以前人类在的时候我们冒充社畜上班也很辛苦……”
+
