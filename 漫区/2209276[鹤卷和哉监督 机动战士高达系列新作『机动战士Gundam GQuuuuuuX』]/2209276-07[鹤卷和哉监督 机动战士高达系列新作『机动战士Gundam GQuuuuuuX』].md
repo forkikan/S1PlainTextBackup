@@ -2369,3 +2369,16 @@ OPアニメににキャラ作監で参加しておりました
 
 开播前流出的机设介绍里说是战后有公约禁止研究塞克缪，GQX是秘密研发的，但是现在正片没有提到这个设定，而且GQuuuuuux只是塞克缪系统，还没到精骨那个程度
 
+
+*****
+
+####  whzfjd  
+##### 9580#       发表于 2025-4-18 00:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67735236&amp;ptid=2209276" target="_blank">prattwhitney 发表于 2025-4-17 20:53</a>
+
+庵野就真的别来沾边是最好的
+
+作为革新了业界语言的人老了想要做他喜欢的那些IP，大家都以为他会整出点新花 ...</blockquote>
+老登上位后用现代规格重演当年自己喜欢的东西也算人之常情
+
