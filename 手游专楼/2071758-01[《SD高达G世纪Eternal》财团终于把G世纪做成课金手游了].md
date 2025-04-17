@@ -1591,3 +1591,11 @@ A29NU3EM9FPRBC
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  电脑死机  
+##### 158#       发表于 2025-4-17 08:33
+
+体感Exia确实强，EX技太凶了，凤凰和风灵手长，其余慢慢来吧
+
