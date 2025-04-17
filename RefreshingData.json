@@ -9828,12 +9828,12 @@
     "update": false
   },
   "2014256": {
-    "totalreply": 587,
+    "totalreply": 588,
     "title": "[21.07『小林家的龙女仆S／小林さんちのメイドラゴンS』]",
     "newtitle": "[21.07『小林家的龙女仆S／小林さんちのメイドラゴンS』]",
-    "lastedit": 1742782933,
+    "lastedit": 1744898767,
     "category": "漫区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2188260": {
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 112908,
+    "totalreply": 112914,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1744898166,
+    "lastedit": 1744898767,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11421,10 +11421,10 @@
     "update": false
   },
   "2184766": {
-    "totalreply": 300,
+    "totalreply": 302,
     "title": "[DOOM：黑暗时代 发布，2025／5／15发售，xs／pc／ps5，首发xgp]",
     "newtitle": "[DOOM：黑暗时代 发布，2025／5／15发售，xs／pc／ps5，首发xgp]",
-    "lastedit": 1744894685,
+    "lastedit": 1744898767,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11619,10 +11619,10 @@
     "update": false
   },
   "2250993": {
-    "totalreply": 85,
+    "totalreply": 86,
     "title": "[ns2正式公开，6／5发售，马车世界直面会4.17]",
     "newtitle": "[ns2正式公开，6／5发售，马车世界直面会4.17]",
-    "lastedit": 1744898166,
+    "lastedit": 1744898767,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11790,11 +11790,20 @@
     "update": false
   },
   "2249924": {
-    "totalreply": 136,
+    "totalreply": 137,
     "title": "[xbx决定版剧透楼]",
     "newtitle": "[xbx决定版剧透楼]",
-    "lastedit": 1744898167,
+    "lastedit": 1744898767,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2067603": {
+    "totalreply": 61,
+    "title": "[【山田尚子真爱楼】新作动画短篇「Garden of Remembrance」2024年]",
+    "newtitle": "[【山田尚子真爱楼】新作动画短篇「Garden of Remembrance」2024年]",
+    "lastedit": 1744898767,
+    "category": "漫区",
     "active": true,
     "update": false
   }
