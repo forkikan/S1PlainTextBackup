@@ -1979,3 +1979,16 @@ BPFD8LU3RQ9ZGY
 
 B4ZCKHRQHDA4WN
 
+
+*****
+
+####  windtrack  
+##### 197#       发表于 2025-4-17 21:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67735169&amp;ptid=2071758" target="_blank">chivalry 发表于 2025-4-17 20:24</a>
+
+老哥们现在机体 ur 有能天使和自由，支援有木马（话说木马驾驶员怎么不是林有德）能开局了吗 ...</blockquote>
+可以了吧，保底可刷的那个10连拿个天鹅/沙扎比/独角兽，最好再带个SSR带驾驶员的机体就可以了
+
+木马驾驶员就是林有德啊
+
