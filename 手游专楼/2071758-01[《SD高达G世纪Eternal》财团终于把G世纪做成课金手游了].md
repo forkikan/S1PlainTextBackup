@@ -2006,3 +2006,28 @@ B4ZCKHRQHDA4WN
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  windtrack  
+##### 199#       发表于 2025-4-17 23:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67735545&amp;ptid=2071758" target="_blank">无念 发表于 2025-4-17 22:34</a>
+
+没想到吧，芙劳&amp;白色基地也有的
+
+—— 来自 HONOR SDY-AN00, Android 14, 鹅球 v3.5.99 ...</blockquote>
+笑死，看了一下还真是，技能也不一样，看来这个支援机体就是装饰，主要还是看人
+
+
+*****
+
+####  chivalry  
+##### 200#       发表于 2025-4-17 23:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67735311&amp;ptid=2071758" target="_blank">windtrack 发表于 2025-4-17 21:13</a>
+可以了吧，保底可刷的那个10连拿个天鹅/沙扎比/独角兽，最好再带个SSR带驾驶员的机体就可以了
+
+木马驾驶员 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">我就是保底能天使
+
