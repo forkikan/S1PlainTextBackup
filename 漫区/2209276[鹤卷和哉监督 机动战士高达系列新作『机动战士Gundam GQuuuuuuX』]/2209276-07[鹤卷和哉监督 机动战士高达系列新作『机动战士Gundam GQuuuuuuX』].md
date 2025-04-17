@@ -1944,3 +1944,16 @@ ova一集30分钟呢<img src="https://static.stage1st.com/image/smiley/face2017/
 
 ×
 
+
+*****
+
+####  Gaybird  
+##### 9546#       发表于 2025-4-17 13:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67734317&amp;ptid=2209276" target="_blank">上坂莲华 发表于 2025-4-17 00:32</a>
+
+第二集马克贝有镜头的，就是把后面的台词删了</blockquote>
+我看直播的时候光顾着祈祷“0079快在这集内结束吧”，完全没在想马克贝的事情了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+其实台词我还是挺喜欢的，特别是那句怼下属的那句“你是说我在嫉妒吗”
+
