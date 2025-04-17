@@ -2190,3 +2190,13 @@ MS-06-SSP POLICE ZAKU
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  岸浪白野  
+##### 9565#       发表于 2025-4-17 17:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67734761&amp;ptid=2209276" target="_blank">别急来过两招 发表于 2025-4-17 17:02</a>
+【【中日字幕】你们都被骗了 高达GQuuuuuuX的马布战术都是夏利亚的谎言 一年战争时并不存在-哔哩哔哩】 htt ...</blockquote>
+虽然你是新看的，但这个是这楼前几个月早聊过的假药了
+
