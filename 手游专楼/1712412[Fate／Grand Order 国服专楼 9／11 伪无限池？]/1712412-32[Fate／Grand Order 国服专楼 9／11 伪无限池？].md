@@ -33,3 +33,13 @@
 
 五星概率要被吃光了，后面的暗狐兽尼看来又是届不到了吗
 
+
+*****
+
+####  Urakawa  
+##### 47104#       发表于 2025-4-17 22:24
+
+国服出充值羊毛活动了，1次388得150石，3次78得30石
+
+[https://pay.biligame.com/h5/#/pa ... 1&amp;isLoginBack=0](https://pay.biligame.com/h5/#/pay?gameBaseId=49&amp;mainchannel1=2&amp;channel2=3_0417_1&amp;isLoginBack=0)
+

@@ -2446,3 +2446,11 @@ staff太屑了，就为了那一小段剧情这破玩意要打三次，三回啊
 
 专家模式确实挺好的，不过你游什么时候能端出几个传统高难隐藏迷宫来(和古城侧重点不同)，比起主线这玩意也不太耗工时，用点心就行，给老玩家增加点终局玩法，DRPG的D毕竟是dungeon不是debug(听说更新完steam版有不少人一进王城连菜单都卡没了)<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Flechette  
+##### 216#       发表于 2025-4-17 22:20
+
+那个活动金币任务，如果当前进度是第三章一周目，金币怪会刷在需要能力打开道路，当前到不了的地方<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
