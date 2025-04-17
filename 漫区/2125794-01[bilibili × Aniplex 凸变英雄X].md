@@ -722,3 +722,32 @@ X：宮野真守
 
 日语版感觉台词有些含蓄，不是很能跟字幕的意思一一对应？跳过去看了会儿日语版就还是看中文了，即使有千和太太<img src="https://static.stage1st.com/image/smiley/carton2017/092.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新HGCG  
+##### 75#       发表于 2025-4-17 11:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67733832&amp;ptid=2125794" target="_blank">番茄子 发表于 2025-4-17 09:53</a>
+
+日语版感觉台词有些含蓄，不是很能跟字幕的意思一一对应？跳过去看了会儿日语版就还是看中文了，即使有千和 ...</blockquote>
+人在日本，看不了国内B站的中配…………
+
+
+*****
+
+####  jiaqi12000  
+##### 76#       发表于 2025-4-17 11:20
+
+真是头一次感觉日配不如中配，也没感觉中文配的多好，但是换成日文怎么违和感这么强<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  哈扎马  
+##### 77#       发表于 2025-4-17 11:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67733725&amp;ptid=2125794" target="_blank">DARK_HGCG 发表于 2025-4-17 09:05</a></blockquote>
+这个眉头鼻子和嘴唇实在是太双城/欧美漫了
+

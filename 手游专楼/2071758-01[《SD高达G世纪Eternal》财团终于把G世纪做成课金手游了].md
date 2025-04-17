@@ -1627,3 +1627,14 @@ AZJV9UW654QMQA 日服求输~
 
 现在是不是登录不上去了
 
+
+*****
+
+####  劳动改造归来  
+##### 162#       发表于 2025-4-17 11:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67733988&amp;ptid=2071758" target="_blank">MMIno 发表于 2025-4-17 10:53</a>
+
+现在是不是登录不上去了</blockquote>
+白天人多比较卡，就算进了游戏，在主页每个点击指令之间也会卡
+
