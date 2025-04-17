@@ -2329,3 +2329,13 @@ OPアニメににキャラ作監で参加しておりました
 各種配信もよろしくお願いいたします！
 <img src="https://p.sda1.dev/23/ffd366d78aa59891fb118be9af08b013/20250417_212812.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RE㐅ia  
+##### 9576#       发表于 2025-4-17 22:47
+
+果然还是没法和plazma和解（
+
+【当你用鲁鲁修的方式打开GQuuuuuuX的op-哔哩哔哩】 https://b23.tv/jTu78R8
+
