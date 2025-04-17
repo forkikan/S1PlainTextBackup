@@ -2163,3 +2163,11 @@ MS-06-SSP POLICE ZAKU
 闲着时看了第一集马上就陷进“周指活”状态，盼来 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真纯讲kirakira讲这么多集也是会腻歪的吧
 
+
+*****
+
+####  AvenueIII  
+##### 9562#       发表于 2025-4-17 16:44
+
+按声优reaction的说法，应该只有前半kirakira
+
