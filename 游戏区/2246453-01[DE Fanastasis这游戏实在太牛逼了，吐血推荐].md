@@ -4250,3 +4250,11 @@ steam版搞汉化方便吗</blockquote>
 
 其他人像船长、矿工和雷法最高能打3W左右，但后面输出太乏力了。绷带和人造人我完全打不出高输入
 
+
+*****
+
+####  nekomimimisuzu  
+##### 395#       发表于 2025-4-17 10:24
+
+想完全不看攻略通关但还是太困难放弃了，有些地图过于巨大，比如那啥海地隧道，放个2天不玩等于要重打一次<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

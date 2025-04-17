@@ -1804,3 +1804,22 @@ OA記念として
 
 收视率也跟综艺一起统计啊，无敌了
 
+
+*****
+
+####  暗黑能乐  
+##### 9532#       发表于 2025-4-17 10:23
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我和科比合砍81分是吧
+
+—— 来自 HONOR BVL-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  丹德里恩  
+##### 9533#       发表于 2025-4-17 10:25
+
+这剪辑稀碎，真是无敌了
+
+我去看imax还没拿到特典，淦
+
