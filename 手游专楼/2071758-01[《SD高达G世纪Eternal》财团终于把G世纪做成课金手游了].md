@@ -1992,3 +1992,17 @@ B4ZCKHRQHDA4WN
 
 木马驾驶员就是林有德啊
 
+
+*****
+
+####  无念  
+##### 198#       发表于 2025-4-17 22:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67735311&amp;ptid=2071758" target="_blank">windtrack 发表于 2025-4-17 21:13</a>
+可以了吧，保底可刷的那个10连拿个天鹅/沙扎比/独角兽，最好再带个SSR带驾驶员的机体就可以了
+
+木马驾驶员 ...</blockquote>
+没想到吧，芙劳&amp;白色基地也有的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
