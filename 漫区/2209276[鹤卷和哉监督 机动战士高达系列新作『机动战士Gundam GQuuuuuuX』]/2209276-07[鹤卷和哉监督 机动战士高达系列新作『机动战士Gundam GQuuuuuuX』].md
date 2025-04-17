@@ -1839,3 +1839,14 @@ OA記念として
 
 这个高达机设真的好丑啊
 
+
+*****
+
+####  marlun  
+##### 9536#       发表于 2025-4-17 11:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67732382&amp;ptid=2209276" target="_blank">57042711 发表于 2025-4-16 17:56</a>
+
+果然只有6集的量吗，看向飞跃巅峰2</blockquote>
+严格来说85剧情不是11集吗
+
