@@ -489,3 +489,20 @@ op和ed里的狸猫一家还没出场，不知道究竟是什么定位。这集�
 
 告辞
 
+
+*****
+
+####  pzk  
+##### 49#       发表于 2025-4-17 18:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67732977&amp;ptid=2196984" target="_blank">OPCI_0125 发表于 2025-4-16 21:14</a>
+主角有时候很通人性，有时候又很拟人，感觉是当成萌点来做的…而且日本这种“躬匠精神”有点受不了，之前那 ...</blockquote>
+感觉女主就是设定成智商不太高的样子，随机应变能力明显弱于环境探测机。
+
+*****
+
+####  pzk  
+##### 50#       发表于 2025-4-17 18:53
+
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">第二集太好看了呀，感觉这片动不动就来一个荒诞的幽默展开让我喷饭
+
