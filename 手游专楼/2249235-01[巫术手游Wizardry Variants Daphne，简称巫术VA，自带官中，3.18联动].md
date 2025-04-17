@@ -2330,3 +2330,13 @@ staff太屑了，就为了那一小段剧情这破玩意要打三次，三回啊
 
 想问下B8F的大异形第一次打大概多少级比较稳？手头有联动男法和一把王女三连剑
 
+
+*****
+
+####  Dreki  
+##### 205#       发表于 2025-4-17 12:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67733659&amp;ptid=2249235" target="_blank">神手之兔 发表于 2025-4-17 08:26</a>
+想问下B8F的大异形第一次打大概多少级比较稳？手头有联动男法和一把王女三连剑 ...</blockquote>
+我印象里我正常推图过去的等级就够打了，就是最好保持一下状态，清完小怪打boss前可以回7F泉水补一下
+
