@@ -2269,3 +2269,18 @@ Z的HARD第二关是空战，一堆UR用不了太恶心了...
 
 <img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">z有空战图 像我刷了5ur开局只有exia一个能飞那就尴尬
 
+
+*****
+
+####  windtrack  
+##### 224#       发表于 2025-4-18 12:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67736539&amp;ptid=2071758" target="_blank">光辉传递者 发表于 2025-4-18 11:47</a>
+
+所以能天使在前期特别高贵，除了动数之外另一点就是近乎全地形适性，是非常优秀的开荒保障。 ...</blockquote>
+对的，战斗系3动里EXIA全地形太强独一档，有EXIA沙扎比就没用了
+
+支援系自由大范围地图炮，凤凰全地形，这俩最好，其他的都差不多
+
+防御系感觉没啥用，反正UR难强化，用SSR强化后顶就够了
+
