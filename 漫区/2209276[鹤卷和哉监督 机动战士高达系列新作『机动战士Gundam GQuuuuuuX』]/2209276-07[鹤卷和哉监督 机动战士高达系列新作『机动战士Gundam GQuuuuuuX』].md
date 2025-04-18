@@ -2445,3 +2445,11 @@ OPアニメににキャラ作監で参加しておりました
 
 gqx是奥米茄版的赛克缪所以开不动吧。
 
+
+*****
+
+####  花達香奈  
+##### 9587#       发表于 2025-4-18 15:13
+
+psycommu从79的α到85的ω不能全靠脑内试验结果只得两版各实装一台吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
