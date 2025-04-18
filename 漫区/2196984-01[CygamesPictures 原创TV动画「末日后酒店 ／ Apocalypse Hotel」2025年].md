@@ -608,3 +608,27 @@ op和ed里的狸猫一家还没出场，不知道究竟是什么定位。这集�
 —— 来自 Xiaomi 2112123AC, Android 13, 鹅 ...</blockquote>
 鲁邦s6主线越看越无聊弃了，后边是村越繁负责的吗
 
+
+*****
+
+####  ArthurDent  
+##### 61#       发表于 2025-4-18 17:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67737283&amp;ptid=2196984" target="_blank">夜火雷纹 发表于 2025-4-18 17:10</a>
+鲁邦s6主线越看越无聊弃了，后边是村越繁负责的吗</blockquote>
+下半大部分是
+
+—— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  Asukalangley33  
+##### 62#       发表于 2025-4-18 17:44
+
+<blockquote>AkaiSuisei 发表于 2025-4-18 10:43
+牛逼的，第二话就捡钱那一个桥段的戏剧张力就足以证明这片有神作潜质了</blockquote>
+我当时以为会是最土的把外星人扣在打工还钱这种展开
+
+结果下一卡就去金库拿钱了
+
