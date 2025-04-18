@@ -2402,3 +2402,14 @@ OPアニメににキャラ作監で参加しておりました
 作为革新了业界语言的人老了想要做他喜欢的那些IP，大家都以为他会整出点新花 ...</blockquote>
 实相寺那套摄影关键庵野在自己动画就喜欢用，但是老圆谷那批导演里面又不是只有实相寺
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 9583#       发表于 2025-4-18 11:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67736474&amp;ptid=2209276" target="_blank">灵魂收割机 发表于 2025-4-18 11:19</a>
+
+真的操了，S1重开通知在哪？选域名的那条微博？</blockquote>
+一般会留着原地址做域名跳转吧，泥潭这方面还不如谜之资源分享站<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
