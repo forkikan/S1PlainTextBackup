@@ -624,3 +624,12 @@ Bungie 为了复用素材还是用这个从 Halo 一路魔改上来的引擎<img
 
 可惜就是运营非常弱智，一个连通行证都没有的游戏这么逼肝不知道干啥
 
+
+*****
+
+####  Piano-Forest  
+##### 64#         楼主| 发表于 2025-4-18 22:22
+
+《失落星船：马拉松》Fami 通导演访谈：完全围绕团队游玩打造
+[https://gouhuo.qq.com/mainpage/d ... 417120021_GY8gIJVbX](https://gouhuo.qq.com/mainpage/detail?storyid=0_20250417120021_GY8gIJVbX)
+
