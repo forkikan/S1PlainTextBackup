@@ -2428,3 +2428,25 @@ hard有区别吧？扫荡好像不算隐藏敌人的
 
 —— 来自 realme RMX3370, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  HEERO.W  
+##### 239#       发表于 2025-4-18 16:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67737137&amp;ptid=2071758" target="_blank">windtrack 发表于 2025-4-18 16:09</a>
+
+200万下载不送钻了，黑
+
+话说这SSR票居然还能抽出UR？</blockquote>
+SSR本来就分只会出SSR和必出SSR及以上
+
+*****
+
+####  HEERO.W  
+##### 240#       发表于 2025-4-18 16:51
+
+50抽0UR删号，重新研究初始。
+
+战舰其实现在没必要把，生效范围卡的太死了，还不如直接用白嫖的，以后出生效范围更广的限定战舰时再抽
+
