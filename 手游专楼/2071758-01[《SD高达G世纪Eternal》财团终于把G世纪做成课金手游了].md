@@ -2836,3 +2836,11 @@ ez8打高伤爽，也就不能打空战，可以一机无双
 删号重建了，还有没输入的坛友可以用这个BHMYAVHMYAB66E</blockquote>
 已填，我的是BPYUBN9RN49QS8<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  startea15  
+##### 273#       发表于 2025-4-19 07:39
+
+这0079的h-2第二回合卡死不会是只有我遇见的bug吧？读完en回复之后直接就不让操作了，神秘情况卧槽<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
