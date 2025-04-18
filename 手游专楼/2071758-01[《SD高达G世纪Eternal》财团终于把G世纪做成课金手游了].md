@@ -2098,3 +2098,29 @@ BXEYC5JSMVTQS2<img src="https://static.stage1st.com/image/smiley/face2017/037.pn
 
 BYD这思路怎么和打机战30如出一辙，除了这里母舰不能回收机体当缩子只能让一队全程你给卢达哟（
 
+
+*****
+
+####  马桶3  
+##### 208#       发表于 2025-4-18 10:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67736316&amp;ptid=2071758" target="_blank">光辉传递者 发表于 2025-4-18 10:11</a>
+
+我现在开始怀疑一队（系列队）直接不上人或者上系统初始队伍，狗粮全喂二队刷初始得来的几个ur怼高等级， ...</blockquote>
+设计上一队的初始队伍是为了让玩家带着推剧情升级——然后去开发里开发上位——再1队带着进本升级——再开发上位，这样的一种慢悠悠的玩法服务的
+
+当然大多数玩家可能想的还是趁早推完每天一键扫荡收菜<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  光辉传递者  
+##### 209#       发表于 2025-4-18 10:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67736326&amp;ptid=2071758" target="_blank">马桶3 发表于 2025-4-18 10:17</a>
+
+设计上一队的初始队伍是为了让玩家带着推剧情升级——然后去开发里开发上位——再1队带着进本升级——再 ...</blockquote>
+对的，设计思路其实就是如此。
+
+但是有一个比较蛋疼的问题，就是连开发的ur都送得抠抠搜搜。79的卡斯巴尔高达要从ssr升级ur是中期甚至大后期才能做到，前期如果不是特别认真去刷初始的话他这个设计打前期只能玩十里坡剑神，或者不要星数打通就行拿下一个本的初始队伍回来当这里的二队补星。目前几个本从左到右看给的初始队伍等级是越来越高的。
+
