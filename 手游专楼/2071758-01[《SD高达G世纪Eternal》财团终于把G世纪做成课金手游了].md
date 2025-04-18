@@ -2751,3 +2751,20 @@ UR的话 能天/海盗+凤凰/自 ...</blockquote>
 
 —— 来自 Xiaomi 24031PN0DC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  zExs  
+##### 266#       发表于 2025-4-18 21:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67737290&amp;ptid=2071758" target="_blank">windtrack 发表于 2025-4-18 17:20</a>
+
+我目前总结的刷首抽的最佳开局
+
+EXIA/自由，这俩必刷</blockquote>
+我刷了2天的9开模拟器....
+
+目前结果是蒂法,山楂,妖刀,自由,天鹅,凤凰+自选了能天
+
+其实自选犹豫是不是应该选水魔吃蒂法加成的...想想还是优先三动把
+
