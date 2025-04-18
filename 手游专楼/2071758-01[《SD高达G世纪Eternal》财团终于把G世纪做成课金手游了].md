@@ -2249,3 +2249,23 @@ Z的HARD第二关是空战，一堆UR用不了太恶心了...
 之前那个号抽出个 ...</blockquote>
 我和你相反，大号有一只连机带舰全UR的二队，但是资源分配均摊加上去有意点开发导致进度缓慢，另外开了个档用来实验梭哈流思路，有能天使和凤凰应该够顶前期了，EZ8就当附赠的，看看能不能高级池尽量抽出不重复的UR，把新手自选当最后的补强。
 
+
+*****
+
+####  光辉传递者  
+##### 222#       发表于 2025-4-18 11:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67736512&amp;ptid=2071758" target="_blank">windtrack 发表于 2025-4-18 11:36</a>
+
+之前重刷了个牛+独角兽+风灵+林有德+阿加玛的开局，自选拿了EXIA
+
+后面又抽到了自由和妖刀</blockquote>
+所以能天使在前期特别高贵，除了动数之外另一点就是近乎全地形适性，是非常优秀的开荒保障。
+
+*****
+
+####  王俊凯  
+##### 223#       发表于 2025-4-18 11:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">z有空战图 像我刷了5ur开局只有exia一个能飞那就尴尬
+
