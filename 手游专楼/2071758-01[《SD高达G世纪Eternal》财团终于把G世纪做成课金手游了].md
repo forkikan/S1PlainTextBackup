@@ -2825,3 +2825,14 @@ EXIA/自由，这俩必刷</blockquote>
 
 ez8打高伤爽，也就不能打空战，可以一机无双
 
+
+*****
+
+####  nagamasa  
+##### 272#       发表于 2025-4-19 07:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67737343&amp;ptid=2071758" target="_blank">dio999 发表于 2025-4-18 17:41</a>
+
+删号重建了，还有没输入的坛友可以用这个BHMYAVHMYAB66E</blockquote>
+已填，我的是BPYUBN9RN49QS8<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
