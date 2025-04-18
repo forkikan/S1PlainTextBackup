@@ -2323,3 +2323,11 @@ SEED的完美强袭也是全 ...</blockquote>
 
 —— 来自 Xiaomi 24031PN0DC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  qixinno2  
+##### 228#       发表于 2025-4-18 12:39
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本质还是资源给的太抠 刚看到隔壁发图 一个UR开发要100W 拿头凑
+

@@ -573,3 +573,17 @@ op和ed里的狸猫一家还没出场，不知道究竟是什么定位。这集�
 
   喝茶喝出new type也是太日本了
 
+
+*****
+
+####  NBXX  
+##### 58#       发表于 2025-4-18 12:39
+
+在官方推特上更新的单幅漫画和连载漫画补了一些背景设定，还提前剧透了烧水壶功能的作用要在第9集体现。
+[https://x.com/Apo_Hotel/status/1912200749402189923/photo/1](https://x.com/Apo_Hotel/status/1912200749402189923/photo/1)
+<img src="https://p.sda1.dev/23/ecf02ceb9905ed837abb628ce203d45b/image.png" referrerpolicy="no-referrer">
+
+官方连载漫画：[https://storia.takeshobo.co.jp/manga/apo_hotel/](https://storia.takeshobo.co.jp/manga/apo_hotel/)
+
+太喜欢这部作品了，周末我争取把漫画的汉化做出来。
+
