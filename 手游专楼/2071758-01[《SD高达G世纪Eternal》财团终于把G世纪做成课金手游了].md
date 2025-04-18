@@ -2768,3 +2768,30 @@ EXIA/自由，这俩必刷</blockquote>
 
 其实自选犹豫是不是应该选水魔吃蒂法加成的...想想还是优先三动把
 
+
+*****
+
+####  hayate0079  
+##### 267#       发表于 2025-4-18 21:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67737871&amp;ptid=2071758" target="_blank">光辉传递者 发表于 2025-4-18 21:22</a>
+
+这游戏其实有一台保底战舰。就是和小番茄一起送那个，是针对所有独立作品的加成，作为白嫖的二队战舰来说 ...</blockquote>
+这个2个G世纪的战舰1个UC 1个非UC，范围是大但是EN范围、回复量和加成效果都差点
+
+我自己1开始的号没战舰用的德连（0079）+G世纪原创的那2个
+
+后来去刷了个提法+X1+牛+NT 然后保底换了自由，主要加成了不少SSR，补给范围也大
+
+*****
+
+####  hayate0079  
+##### 268#       发表于 2025-4-18 21:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67737843&amp;ptid=2071758" target="_blank">windtrack 发表于 2025-4-18 21:13</a>
+
+机体其实还好说，主要是驾驶员，SSR的驾驶员都没有2支援3动的，更别提那些普通驾驶员了...
+
+而且还没有驾 ...</blockquote>
+希望他以后能开放SSR 驾驶员获取，不然只能抽还是有点恶心
+
