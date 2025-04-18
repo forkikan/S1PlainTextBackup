@@ -2462,3 +2462,16 @@ staff太屑了，就为了那一小段剧情这破玩意要打三次，三回啊
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">城塞怎么最后要打小怪连战再打大异形 没看攻略打死球了
 
+
+*****
+
+####  电脑死机  
+##### 218#       发表于 2025-4-18 08:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67735694&amp;ptid=2249235" target="_blank">茄子自走炮 发表于 2025-4-17 23:40</a>
+
+城塞怎么最后要打小怪连战再打大异形 没看攻略打死球了</blockquote>
+只能回溯去泉水，出来一路小跑，不过一周目还好，我硬杀了三队大眼仔，蓝都见底了一样把boss杀了
+
+实际一周目要杀两队，跑最外面那队不会复活，然后解锁回溯能力时候再杀一队
+
