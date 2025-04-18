@@ -51,3 +51,13 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">思考要不要冲388然后石头留着抽福袋好了
 
+
+*****
+
+####  sandro  
+##### 47106#       发表于 2025-4-18 11:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67735636&amp;ptid=1712412" target="_blank">johnkamsar 发表于 2025-4-17 23:12</a>
+思考要不要冲388然后石头留着抽福袋好了</blockquote>
+这次充完是不是可以抽好几年福袋了
+

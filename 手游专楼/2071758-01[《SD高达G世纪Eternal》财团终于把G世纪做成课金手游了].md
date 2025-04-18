@@ -2162,3 +2162,42 @@ seed的机体可能要等seedd，seed外传，seed剧场版剧情都开了才值
 
 现在的进度不氪金也就够所有资源堆满一到两个ur吧，那限定系列的永恒之路怎么打呢，而且ZZ这种默认等级高的开发图也得花掉很多资源
 
+
+*****
+
+####  qixinno2  
+##### 214#       发表于 2025-4-18 10:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67736230&amp;ptid=2071758" target="_blank">dio999 发表于 2025-4-18 09:31</a>
+
+BXEYC5JSMVTQS2</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">加你了  我的码B4DVYF55BNY2ES
+
+*****
+
+####  无念  
+##### 215#       发表于 2025-4-18 10:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67736418&amp;ptid=2071758" target="_blank">12481632 发表于 2025-4-18 10:53</a>
+现在的进度不氪金也就够所有资源堆满一到两个ur吧，那限定系列的永恒之路怎么打呢，而且ZZ这种默认等级高的 ...</blockquote>
+明显是要么强氪靠卡池ssr推过去 要么等后续开发线
+不过我估计会有单机佬靠低罕高练过关的，毕竟战棋乐趣之一不就是挑战性
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  HEERO.W  
+##### 216#       发表于 2025-4-18 11:00
+
+凹凸或手控1回合打到ZZ了，一直只上一队，压根练不动人
+
+*****
+
+####  hayate0079  
+##### 217#       发表于 2025-4-18 11:01
+
+昨天下午重刷了个提法+自由+X1+牛+NT的5UR初始，把大号扔了，目前刚刚推到ZZ,SEED还没打
+
+之前那个号抽出个莉莉娜，完全没机体可加成，战舰全用送的，现在有提法感觉舒服不少，就是提法的加成好多都是攻击型（
+
