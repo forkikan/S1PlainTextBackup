@@ -2386,3 +2386,15 @@ SEED的完美强袭也是全 ...</blockquote>
 
 扫荡次数用完后手打和扫荡的奖励有区别吗
 
+
+*****
+
+####  无念  
+##### 235#       发表于 2025-4-18 15:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67737003&amp;ptid=2071758" target="_blank">windtrack 发表于 2025-4-18 15:14</a>
+扫荡次数用完后手打和扫荡的奖励有区别吗</blockquote>
+hard有区别吧？扫荡好像不算隐藏敌人的
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
