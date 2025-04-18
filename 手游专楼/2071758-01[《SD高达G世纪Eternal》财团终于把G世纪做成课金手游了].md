@@ -2622,3 +2622,45 @@ AV6S695U5L92TW 日服
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  hayate0079  
+##### 255#       发表于 2025-4-18 19:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67737460&amp;ptid=2071758" target="_blank">光辉传递者 发表于 2025-4-18 18:28</a>
+
+战舰其实就两台是前期比较有用的。一台是花园丽，一台是电视姬。
+
+原因很简单，uc特性，另外就是能天使。
+
+ ...</blockquote>
+你可以看上面的图，有几个TAG泛用的战舰（提法/沈村玲）对于SSR加成也是挺好的
+
+UR的话 能天/海盗+凤凰/自由 然后剩下看爱了
+
+总帅和傻子那可以3动
+
+*****
+
+####  rockroxas  
+##### 256#       发表于 2025-4-18 19:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67737606&amp;ptid=2071758" target="_blank">jackyhuang 发表于 2025-4-18 19:39</a>
+
+AV6S695U5L92TW 日服
+
+这个错误代码100是怎么回事
+
+看人家心得似乎还是集中资源拉一两台机器去无双比较靠谱啊 ...</blockquote>
+因为en，移动，回合数，保NPC不死等诸多问题，拉个5台左右还是要的，除非你非常想体验手操背板打关
+
+要打hard的boss时再考虑把一两台集中拉高去秒
+
+*****
+
+####  silvia  
+##### 257#       发表于 2025-4-18 19:53
+
+目前免费抽ur只抽到了沙扎比和牛，凑合打了
+

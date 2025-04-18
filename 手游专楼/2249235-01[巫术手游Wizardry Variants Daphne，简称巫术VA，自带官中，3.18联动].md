@@ -2522,3 +2522,11 @@ staff太屑了，就为了那一小段剧情这破玩意要打三次，三回啊
 没法给角色升阶了……莫非这也是BUG？</blockquote>
 目前没听说大规模中招，具体是卡哪步，一般点不了大多是牌子数看错了
 
+
+*****
+
+####  UnknownRei  
+##### 224#       发表于 2025-4-18 19:48
+
+出中文后的蒸汽五千多顶峰在线流失一千，这中年抖m留存率还是挺高的<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
