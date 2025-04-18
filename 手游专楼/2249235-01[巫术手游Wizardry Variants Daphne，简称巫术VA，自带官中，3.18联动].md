@@ -2538,3 +2538,13 @@ staff太屑了，就为了那一小段剧情这破玩意要打三次，三回啊
 
 我一开始用steam，后面发现得挂脚本了就转战模拟器了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Flechette  
+##### 226#       发表于 2025-4-18 21:20
+
+确实好玩，找到了以前刷gbf的快乐
+
+就是gbf只要开个网页刷，这游戏的pc版可能是因为后台常驻反作弊，非常吃CPU，而且越玩越卡
+

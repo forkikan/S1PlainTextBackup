@@ -2727,3 +2727,27 @@ seed开发出来的sr自由都有地图炮，纯粹是飞自太拉了（也许�
 
 而且还没有驾驶员升级系统
 
+
+*****
+
+####  grey0310  
+##### 264#       发表于 2025-4-18 21:17
+
+我是ez8加坚牢母舰开荒的 单发伤害快20万了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  光辉传递者  
+##### 265#       发表于 2025-4-18 21:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67737638&amp;ptid=2071758" target="_blank">hayate0079 发表于 2025-4-18 19:49</a>
+你可以看上面的图，有几个TAG泛用的战舰（提法/沈村玲）对于SSR加成也是挺好的
+
+UR的话 能天/海盗+凤凰/自 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这游戏其实有一台保底战舰。就是和小番茄一起送那个，是针对所有独立作品的加成，作为白嫖的二队战舰来说相当不错。
+
+不过我这个验证梭哈能天使开荒的号还抽到元祖和ez8进二队，这下就样衰了（只能加成三台）
+
+—— 来自 Xiaomi 24031PN0DC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
