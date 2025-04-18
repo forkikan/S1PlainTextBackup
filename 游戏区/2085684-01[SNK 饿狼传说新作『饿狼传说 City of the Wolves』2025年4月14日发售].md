@@ -3649,3 +3649,31 @@ S1关的太久，我都没时间概念了，原来已经出了啊
 
 24号发售吧？
 
+
+*****
+
+####  Piano-Forest  
+##### 367#         楼主| 发表于 2025-4-18 20:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67735790&amp;ptid=2085684" target="_blank">Piano-Forest 发表于 2025-4-18 00:04</a>
+
+【《饿狼传说：群狼之城》萨尔瓦多·加纳奇 x 大张正己 特别MV】 
+
+https://b23.tv/gz52uih ...</blockquote>
+[https://x.com/G1_BARI/status/1913197364028014716](https://x.com/G1_BARI/status/1913197364028014716)
+
+ゲームの発売を記念して何処かのタイミングで、今回のMVの絵コンテや原画、イメージボードを皆さまに公開出来ないかな‥？
+
+ポップアップストア形式で🤖⭐️🐺
+<img src="https://p.sda1.dev/23/e4c14df1504b5b2ad10b810015b4a053/20250418_205554.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/3511f6d3eb470949be02aab973c2eec0/20250418_205555.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/yoshiyama_yuu/status/1913082449166504447](https://x.com/yoshiyama_yuu/status/1913082449166504447)
+
+餓狼伝説cotw  MV
+
+少しお手伝いしました。
+
+プリチャとテリーが描けて楽しかったです🐸🤛
+<img src="https://p.sda1.dev/23/98aacc972eb054633161460f430092e2/20250418_205602.jpg" referrerpolicy="no-referrer">
+
