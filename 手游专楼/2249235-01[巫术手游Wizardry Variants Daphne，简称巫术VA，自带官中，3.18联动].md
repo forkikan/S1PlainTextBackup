@@ -2530,3 +2530,11 @@ staff太屑了，就为了那一小段剧情这破玩意要打三次，三回啊
 
 出中文后的蒸汽五千多顶峰在线流失一千，这中年抖m留存率还是挺高的<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Dreki  
+##### 225#       发表于 2025-4-18 20:17
+
+我一开始用steam，后面发现得挂脚本了就转战模拟器了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
