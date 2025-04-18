@@ -2817,3 +2817,11 @@ EXIA/自由，这俩必刷</blockquote>
 
 200抽一井，6W钻，慢慢攒吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kerorokun  
+##### 271#       发表于 2025-4-19 03:11
+
+ez8打高伤爽，也就不能打空战，可以一机无双
+
