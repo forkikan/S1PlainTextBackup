@@ -2284,3 +2284,17 @@ Z的HARD第二关是空战，一堆UR用不了太恶心了...
 
 防御系感觉没啥用，反正UR难强化，用SSR强化后顶就够了
 
+
+*****
+
+####  光辉传递者  
+##### 225#       发表于 2025-4-18 12:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67736580&amp;ptid=2071758" target="_blank">windtrack 发表于 2025-4-18 12:00</a>
+对的，战斗系3动里EXIA全地形太强独一档，有EXIA沙扎比就没用了
+
+支援系自由大范围地图炮，凤凰全地形，这 ...</blockquote>
+这个时候短板反而是驾驶员，前期靠开发可以点出ssr，但是缺乏强力驾驶员，反而比不过卡池里某些连机带人一起给的。否则就得专门去养sr或者r级驾驶员，相当亏。
+
+—— 来自 Xiaomi 24031PN0DC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
