@@ -916,3 +916,242 @@ Ave Mujica - 天球(そら)のMúsica (Official Music Video)
 
 ×
 
+
+*****
+
+####  堀内爱里衣  
+##### 40313#       发表于 2025-4-17 14:25
+
+[https://x.com/bang_dream_info/status/1912710106178789820](https://x.com/bang_dream_info/status/1912710106178789820)
+[https://bang-dream.com/events/mygo-avemujica2025](https://bang-dream.com/events/mygo-avemujica2025)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  丰川祥  
+##### 40314#       发表于 2025-4-17 15:39
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 40315#       发表于 2025-4-17 15:52
+
+鸡狗对邦横K出票秒切，炒作是对的我跟你们说，就是要狠狠的炒作啊！
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 40316#       发表于 2025-4-17 15:55
+
+泥潭死这一个月最大的损失是没法看你楼共振鸡狗B站官号皮下运营私货事件了。
+
+*****
+
+####  丰川祥  
+##### 40317#       发表于 2025-4-17 19:40
+
+https://x.com/mianneiku15863/status/1912785100485407002?s=46&amp;t=f6AHdCYYYf4AJriUAv-uLQ
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  aptx8285144  
+##### 40318#       发表于 2025-4-17 20:08
+
+双重人格和多重人格甚至都不能算这些神人主创最恶毒的，甚至连第二都算不上，第七话和11话狗爬恶毒味道可比这大多了，其中一个就是来自武士道的直接要求，所以只青蒜蚀本哪够
+
+*****
+
+####  丰川祥  
+##### 40319#       发表于 2025-4-17 20:33
+
+八芒星切片上了
+【八芒星ダンス（Octagram Dance）（TV动画「BanG Dream! Ave Mujica」#13 插曲）-哔哩哔哩】 [https://b23.tv/VuQRNmI](https://b23.tv/VuQRNmI)
+
+颜流媒体也上了
+
+*****
+
+####  堀内爱里衣  
+##### 40320#       发表于 2025-4-17 20:43
+
+ 本帖最后由 堀内爱里衣 于 2025-4-17 20:55 编辑 
+
+[https://x.com/BDP_AveMujica/status/1912846002542748021](https://x.com/BDP_AveMujica/status/1912846002542748021)
+[https://t.co/iCYs3Nb4se](https://t.co/iCYs3Nb4se)
+
+[https://x.com/bang_dream_info/status/1912846505079439498](https://x.com/bang_dream_info/status/1912846505079439498)
+[https://www.youtube.com/watch?v=6umH5XQpXws](https://www.youtube.com/watch?v=6umH5XQpXws)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+
+*****
+
+####  AraTurambar  
+##### 40321#       发表于 2025-4-17 20:56
+
+完蛋，Alter Ego越听越嗨。
+
+*****
+
+####  堀内爱里衣  
+##### 40322#       发表于 2025-4-17 21:52
+
+<img src="https://ac.stage3rd.com/upfiles/202504/A1BACA1BB@0797650391227.gif" referrerpolicy="no-referrer">
+
+＃08 舞台里から全开コメンタリー: BanG Dream! Ave Mujica 〜禁断の全话ネタバレ解说！〜
+[https://www.youtube.com/watch?v=cAHJ3motaJU](https://www.youtube.com/watch?v=cAHJ3motaJU)
+
+柿本&amp;三次元staff带你看Ave Mujica #8
+[https://www.bilibili.com/video/BV1ud5qzrE2r](https://www.bilibili.com/video/BV1ud5qzrE2r)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  社美胡  
+##### 40323#       发表于 2025-4-17 21:57
+
+[https://x.com/sinnpeikamo/status/1912860677204791502](https://x.com/sinnpeikamo/status/1912860677204791502)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  社美胡  
+##### 40324#       发表于 2025-4-17 21:58
+
+[https://x.com/LightKIII_/status/1912861727441731798](https://x.com/LightKIII_/status/1912861727441731798)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  社美胡  
+##### 40325#       发表于 2025-4-17 22:00
+
+[https://x.com/dotoram34/status/1912508907358154840/photo/1](https://x.com/dotoram34/status/1912508907358154840/photo/1)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  社美胡  
+##### 40326#       发表于 2025-4-17 22:00
+
+[https://x.com/Oox3O/status/1912767230741467591/photo/1](https://x.com/Oox3O/status/1912767230741467591/photo/1)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  丰川祥  
+##### 40327#       发表于 2025-4-17 22:03
+
+下周邦tv有大量手游情报说是
+
+会是泥鸡实装消息吗
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  社美胡  
+##### 40328#       发表于 2025-4-17 22:05
+
+[https://x.com/xuserpost/status/1912585557940793608/photo/1](https://x.com/xuserpost/status/1912585557940793608/photo/1)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  社美胡  
+##### 40329#       发表于 2025-4-17 22:09
+
+[https://x.com/s0y0ring/status/1912743243109769218/photo/1](https://x.com/s0y0ring/status/1912743243109769218/photo/1)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  社美胡  
+##### 40330#       发表于 2025-4-17 22:11
+
+[https://x.com/mi_nya_to/status/1912463616885878877/photo/1](https://x.com/mi_nya_to/status/1912463616885878877/photo/1)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  社美胡  
+##### 40331#       发表于 2025-4-17 22:13
+
+[https://x.com/MianNeiku15863/status/1912672026294358214/photo/1](https://x.com/MianNeiku15863/status/1912672026294358214/photo/1)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  堀内爱里衣  
+##### 40332#       发表于 2025-4-18 14:16
+
+[Hi-Res][250418]TVアニメ『BanG Dream! Ave Mujica』最終話插曲「顔」／Ave Mujica[96kHz/24bit][FLAC]【106.4MB】
+
+[http://dmhy.org/topics/view/6935 ... kHz_24bit_FLAC.html](http://dmhy.org/topics/view/693581_Hi-Res_250417_TV_BanG_Dream%21_Ave_Mujica_Ave_Mujica_96kHz_24bit_FLAC.html)
+
+Magnet連接: magnet:?xt=urn:btih:43BFC4ZTYYWRQTEPYORXCXRJ5BJRY27H
+
+Magnet連接typeII: magnet:?xt=urn:btih:e6c2517333c62d184c8fc3a3715e29e8531c6be7
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
