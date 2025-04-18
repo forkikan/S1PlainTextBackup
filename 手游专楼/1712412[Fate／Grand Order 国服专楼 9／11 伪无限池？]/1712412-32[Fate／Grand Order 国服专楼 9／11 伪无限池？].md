@@ -61,3 +61,14 @@
 思考要不要冲388然后石头留着抽福袋好了</blockquote>
 这次充完是不是可以抽好几年福袋了
 
+
+*****
+
+####  johnkamsar  
+##### 47107#       发表于 2025-4-18 13:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67736442&amp;ptid=1712412" target="_blank">sandro 发表于 2025-4-18 11:04</a>
+
+这次充完是不是可以抽好几年福袋了</blockquote>
+不是，付费就60个，刚好周年45+新年15
+
