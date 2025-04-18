@@ -24,3 +24,11 @@
 
 我去，战女高怎么还能复活的
 
+
+*****
+
+####  smileboom  
+##### 1431#       发表于 2025-4-18 08:17
+
+虽然现在不玩了，不过还是会用pc版时不时上去看看抽个卡，发现好像说10月份就不支持win10还有低版本的win11了，我现在还是win10钉子户<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
