@@ -2076,3 +2076,25 @@ B4ZCKHRQHDA4WN
 
 BXEYC5JSMVTQS2<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kulanyee  
+##### 206#       发表于 2025-4-18 10:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这两天玩下来觉得SD高达还是适合做单机，抽卡+体力不适合。顺便这演出动画分辨率可真低啊
+
+
+*****
+
+####  光辉传递者  
+##### 207#       发表于 2025-4-18 10:11
+
+ 本帖最后由 光辉传递者 于 2025-4-18 10:12 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67736105&amp;ptid=2071758" target="_blank">12481632 发表于 2025-4-18 08:09</a>
+
+打完zz再回头打seed纯碾压了，看上去还是从左往右一个个打难度小一点。当然初始好的还是直接跳着打，战力提 ...</blockquote>
+我现在开始怀疑一队（系列队）直接不上人或者上系统初始队伍，狗粮全喂二队刷初始得来的几个ur怼高等级，手动把一队龟缩了之后点auto让二队开无双会不会比较合适。
+
+BYD这思路怎么和打机战30如出一辙，除了这里母舰不能回收机体当缩子只能让一队全程你给卢达哟（
+
