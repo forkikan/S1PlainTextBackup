@@ -2450,3 +2450,82 @@ SSR本来就分只会出SSR和必出SSR及以上
 
 战舰其实现在没必要把，生效范围卡的太死了，还不如直接用白嫖的，以后出生效范围更广的限定战舰时再抽
 
+
+*****
+
+####  hayate0079  
+##### 241#       发表于 2025-4-18 16:58
+
+UR不是挺广，我感觉够用了
+
+*****
+
+####  劳动改造归来  
+##### 242#       发表于 2025-4-18 17:00
+
+ 本帖最后由 劳动改造归来 于 2025-4-18 17:03 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67737235&amp;ptid=2071758" target="_blank">HEERO.W 发表于 2025-4-18 16:51</a>
+
+50抽0UR删号，重新研究初始。
+
+战舰其实现在没必要把，生效范围卡的太死了，还不如直接用白嫖的，以后出生效 ...</blockquote>
+UR战舰的数值加成，0星就是25%了，相当于免费增加一个突破的数值，要抽那种对应特性生效的，不要对应作品的。
+
+目前推荐的就是00的托勒密和G高达的花型战舰
+
+只要用初始送的钻抽到我上面说的其中一个战舰，再加2个可以适配战舰加成特性的UR就可以开局了，如果初始的钻没出能天使，可以在初始必定出UR的十连抽那里刷。
+
+耐心点，开服那天我刷了一个白天，一直到凌晨才刷出一个托勒密+能天使的开局，然后免费必出UR的十连就选了凤凰
+
+*****
+
+####  zExs  
+##### 243#       发表于 2025-4-18 17:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67737235&amp;ptid=2071758" target="_blank">HEERO.W 发表于 2025-4-18 16:51</a>
+
+50抽0UR删号，重新研究初始。
+
+战舰其实现在没必要把，生效范围卡的太死了，还不如直接用白嫖的，以后出生效 ...</blockquote>
+这作战舰没有生效范围 就是个小队专武
+
+
+*****
+
+####  无念  
+##### 244#       发表于 2025-4-18 17:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67737194&amp;ptid=2071758" target="_blank">燃烧的石头 发表于 2025-4-18 16:35</a>
+4星之后再扫荡就算了
+
+—— 来自 realme RMX3370, Android 12, 鹅球 v3.5.99-alpha</blockquote>
+是嘛，今天次数用完了，明天看看
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  HEERO.W  
+##### 245#       发表于 2025-4-18 17:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67737261&amp;ptid=2071758" target="_blank">zExs 发表于 2025-4-18 17:00</a>
+
+这作战舰没有生效范围 就是个小队专武</blockquote>
+我说的生效范围是指这个，不在范围内的吃不到攻血加成
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  无念  
+##### 246#       发表于 2025-4-18 17:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67737261&amp;ptid=2071758" target="_blank">zExs 发表于 2025-4-18 17:00</a>
+这作战舰没有生效范围 就是个小队专武</blockquote>
+他说的范围不是地图范围，是机体列表范围
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
