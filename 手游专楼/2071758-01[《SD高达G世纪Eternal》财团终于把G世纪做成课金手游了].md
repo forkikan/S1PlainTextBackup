@@ -2803,3 +2803,17 @@ EXIA/自由，这俩必刷</blockquote>
 
 送的券一抽抽了个UR妖刀<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  马桶3  
+##### 270#       发表于 2025-4-18 23:31
+
+ 本帖最后由 马桶3 于 2025-4-18 23:33 编辑 
+
+抽了个8UR机体开局，什么UR战舰，不存在的<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+开始攒井了，现在机体和驾驶员肯定够开荒，等种系新EX井一个估计就啥都有了
+
+200抽一井，6W钻，慢慢攒吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
