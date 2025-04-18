@@ -2501,3 +2501,24 @@ staff太屑了，就为了那一小段剧情这破玩意要打三次，三回啊
 
 没法给角色升阶了……莫非这也是BUG？
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 222#         楼主| 发表于 2025-4-18 18:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67735516&amp;ptid=2249235" target="_blank">Flechette 发表于 2025-4-17 22:20</a>
+
+那个活动金币任务，如果当前进度是第三章一周目，金币怪会刷在需要能力打开道路，当前到不了的地方 ...</blockquote>
+好像有bug，貌似不管进度在哪都可以去船1解，钱少点但是快
+
+*****
+
+####  风浦可符香(P.N)  
+##### 223#         楼主| 发表于 2025-4-18 18:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67737221&amp;ptid=2249235" target="_blank">易方世界 发表于 2025-4-18 16:47</a>
+
+没法给角色升阶了……莫非这也是BUG？</blockquote>
+目前没听说大规模中招，具体是卡哪步，一般点不了大多是牌子数看错了
+
