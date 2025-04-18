@@ -831,3 +831,13 @@ nds那部走路流汗掉血的创世纪看来是要黑历史了吧，除了这�
 
 这价格实在有点劝退了，等打折吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无动于衷  
+##### 84#       发表于 2025-4-18 22:54
+
+<blockquote>月光乱舞 发表于 2025-1-15 16:50
+nds那部走路流汗掉血的创世纪看来是要黑历史了吧，除了这代当年也只在gba上玩过初代，玩得是挺开心的，但是 ...</blockquote>
+感动一百万人的其实是二代
+
