@@ -2406,3 +2406,25 @@ hard有区别吧？扫荡好像不算隐藏敌人的
 
 200万下载不送钻了，黑
 
+
+*****
+
+####  natmk  
+##### 237#       发表于 2025-4-18 16:31
+
+抽出第二只战舰了但是是水魔的<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  燃烧的石头  
+##### 238#       发表于 2025-4-18 16:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67737058&amp;ptid=2071758" target="_blank">无念 发表于 2025-4-18 15:35</a>
+hard有区别吧？扫荡好像不算隐藏敌人的
+
+—— 来自 HONOR SDY-AN00, Android 14, 鹅球 v3.5.99 ...</blockquote>
+4星之后再扫荡就算了
+
+—— 来自 realme RMX3370, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
