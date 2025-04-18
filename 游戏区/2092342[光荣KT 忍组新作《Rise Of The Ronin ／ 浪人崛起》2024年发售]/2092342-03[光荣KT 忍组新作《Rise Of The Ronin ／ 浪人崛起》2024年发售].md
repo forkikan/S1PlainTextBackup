@@ -130,3 +130,14 @@
 为啥有的区域会把可探索的点全部标出来，有的区域把现有的点探完剩下的也没有标记 ...</blockquote>
 因缘等级高才会标出来，路上随机刷新的任务打得多因缘就高了
 
+
+*****
+
+####  cherry__  
+##### 3729#       发表于 2025-4-18 21:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67737500&amp;ptid=2092342" target="_blank">妄想中毒 发表于 2025-4-18 18:46</a>
+
+为啥有的区域会把可探索的点全部标出来，有的区域把现有的点探完剩下的也没有标记 ...</blockquote>
+因缘等级解锁地图标记
+
