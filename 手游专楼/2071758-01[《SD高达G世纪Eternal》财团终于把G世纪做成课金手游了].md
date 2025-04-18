@@ -2610,3 +2610,15 @@ EXIA/自由，这俩必刷
 
 —— 来自 Xiaomi 24031PN0DC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  jackyhuang  
+##### 254#       发表于 2025-4-18 19:39
+
+AV6S695U5L92TW 日服
+这个错误代码100是怎么回事
+看人家心得似乎还是集中资源拉一两台机器去无双比较靠谱啊
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
