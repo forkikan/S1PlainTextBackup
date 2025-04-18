@@ -2209,3 +2209,14 @@ BXEYC5JSMVTQS2</blockquote>
 
 ez8和妖刀都有30攻30增伤 能天使只有一半
 
+
+*****
+
+####  光辉传递者  
+##### 219#       发表于 2025-4-18 11:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67736418&amp;ptid=2071758" target="_blank">12481632 发表于 2025-4-18 10:53</a>
+
+现在的进度不氪金也就够所有资源堆满一到两个ur吧，那限定系列的永恒之路怎么打呢，而且ZZ这种默认等级高的 ...</blockquote>
+这个思路只能是先搁置永恒之路玩法后续再当十里坡剑神了，先把主线和HARD给过了回头再点开发。
+
