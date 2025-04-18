@@ -806,3 +806,20 @@ nds那部走路流汗掉血的创世纪看来是要黑历史了吧，除了这�
 
 问问有比较全的收集攻略吗
 
+
+*****
+
+####  tansapple  
+##### 81#       发表于 2025-4-18 21:59
+
+价格解锁了，360还是有点小贵，等打折了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  crosz1985  
+##### 82#       发表于 2025-4-18 22:00
+
+实体版400本来还说等steam便宜点，结果还是这么贵
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
