@@ -2474,3 +2474,81 @@ psycommu从79的α到85的ω不能全靠脑内试验结果只得两版各实装�
 
 ×
 
+
+*****
+
+####  Piano-Forest  
+##### 9590#         楼主| 发表于 2025-4-19 01:36
+
+【緊急重版決定！】
+
+安彦良和アニメーション原画集「機動戦士ガンダム」
+
+2013年5月28日に発売され、幾度と増刷を重ねたものの近年は品切れ状態が続いていた「安彦良和アニメーション原画集『機動戦士ガンダム』が重版出来！
+
+ＴＶシリーズだけでなく、劇場版３部作における安彦良和氏自身のアニメーション原画が厳選して収録されています。細く、ときに太く、力強く、荒々しくも繊細に線が奔る安彦の原画の持つ力を存分に堪能できる１冊です。注文開始日については、決まり次第ご案内いたします！　お楽しみに！
+
+責任編集：庵野秀明
+
+構成・編集：氷川竜介
+
+発売・発行：株式会社KADOKAWA
+
+定価：4,300円（値段改訂いたしました）
+<img src="https://p.sda1.dev/23/0a0bc94b86f9c51730f689d661b91fc5/20250326_220634.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/3e1eec542891c02b0b52912e0465ef1d/20250326_220636.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/342f634c419350569389406d482e14ab/20250326_220637.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/23/aef9f834687175f0fd999fd749996b42/20250326_220935.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/f838179738f7c129bb08c17e09dcfc6f/20250326_220953.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/299e73da4732a4d750c3f0585be6f853/20250326_220954.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 9591#         楼主| 发表于 2025-4-19 01:41
+
+香川久 绘
+[https://x.com/DanngoDaisuki/status/1911759913849954668](https://x.com/DanngoDaisuki/status/1911759913849954668)
+
+でもやっぱ今描いてみるならこれだろうとマチュも描いてみた！
+
+らくがきだから気楽に描いている😅
+
+ミライさん描きたい欲は🤔また溢れ出たら描いてみよう…
+<img src="https://p.sda1.dev/23/327773e2bc79cb0e0bfa4333b824ced1/20250419_013546.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/23/3ae2f52cf22cea87bbea700bd5b4204d/20250419_013535.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/90f4a073aeb17c368baf1ab190c28f6b/20250419_013539.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/81d5e9992c86561bfcce81d2b57a1979/20250419_013542.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/t_kotobuki/status/1908236479148810612](https://x.com/t_kotobuki/status/1908236479148810612)
+<img src="https://p.sda1.dev/23/3f43be2d01a6f6898da5524dd4b17411/20250419_013940.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 9592#         楼主| 发表于 2025-4-19 01:43
+
+只要能做动画就足够了——鹤卷和哉（Newtype40周年特刊动画人采访特辑）
+[https://card.weibo.com/article/m/show/id/2309405148146509414432](https://card.weibo.com/article/m/show/id/2309405148146509414432)
+
+[https://www.nikkei.com/article/DGXZQOUC06AHP0W5A300C2000000/](https://www.nikkei.com/article/DGXZQOUC06AHP0W5A300C2000000/)
+
+小形尚弘
+
+"我们在邀请新系列导演时，始终注重启用受年轻人欢迎的创作者，通过不断新陈代谢来持续创作。不论是世界观还是设定，都告诉创作者可以大胆突破以往高达系列的所有框架。就连初代导演富野由悠季先生本人，也一直在不断打破自己前作的模式。"
+
+"我们是从富野监督等前辈手中继承高达的人。如果还有人未曾接触过高达的魅力，我们就有义务去传播。不仅是日本，把高达传承给世界各地的下一代，这就是我们的使命。"
+
+"从现在开始是迈向50周年的庆典期。为了让每年都能推出新作，目前有多个企划在同步推进，既有TV动画也有剧场版。包括《机动战士高达 闪光的哈萨维》续作，我们确实在认真制作中。"
+
+"虽然这次是与Khara合作，但我更倾向于邀请鹤卷和哉担任导演。因为在我看来，如果是他的话应该能创作出真正打动年轻人的作品。今后我们也会积极与心仪创作者所属的制作工作室展开合作。"
+
+"之所以选择提前进行电影上映，是因为TV动画数量过于庞大，单纯依靠TV播放会产生被埋没的危机感。前期宣传仅有一个LOGO标识，大部分宣传工作都是在公开放映后才展开的。虽然存在不安因素，但我们相信故事本身的话题性，将赌注押在了首周上映期间的口碑传播效应上。"
+
+"虽然剧场版多为向一直以来支持我们的粉丝表达感谢的作品，但为了将接力棒传递给新一代观众，新的TV动画要打造成让年轻人觉得'这才是属于我们的高达'的作品。
+
+"自《水星的魔女》之后，我们从企划阶段开始就着眼于面向全球进行制作。为了让全世界各年龄层观众都能观看，在文化和语言方面会避免使用地区性的禁忌内容。不过创作部分我们会尽量保持原汁原味。"
+
