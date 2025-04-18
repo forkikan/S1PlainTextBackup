@@ -2529,3 +2529,23 @@ UR战舰的数值加成，0星就是25%了，相当于免费增加一个突破�
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  无念  
+##### 247#       发表于 2025-4-18 17:09
+
+Z后期大乱斗杀的太快就会en不足了，突然怀念起机战里战舰的范围补给了，夏日花在抚子号边上就是无限en
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  HEERO.W  
+##### 248#       发表于 2025-4-18 17:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67737259&amp;ptid=2071758" target="_blank">劳动改造归来 发表于 2025-4-18 17:00</a>
+
+UR战舰的数值加成，0星就是25%了，相当于免费增加一个突破的数值，要抽那种对应特性生效的，不要对应作品 ...</blockquote>
+问题是这种手游肯定每隔一段时间就有人权限定出来，到时候给新限定低加成的母舰可能更实用
+

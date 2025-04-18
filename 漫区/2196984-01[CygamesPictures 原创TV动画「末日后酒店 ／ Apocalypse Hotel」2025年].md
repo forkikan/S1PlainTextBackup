@@ -595,3 +595,16 @@ op和ed里的狸猫一家还没出场，不知道究竟是什么定位。这集�
 
 柜姐对酒店管理就像狂信徒一样，要求像机器，抛异常又直接魔怔变人，还像复读api文档一样贴标签……
 
+
+*****
+
+####  夜火雷纹  
+##### 60#       发表于 2025-4-18 17:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67735343&amp;ptid=2196984" target="_blank">ArthurDent 发表于 2025-4-17 21:26</a>
+
+鲁邦s6后面挺拉的，看来村越繁是得完全自由才能发挥的类型？
+
+—— 来自 Xiaomi 2112123AC, Android 13, 鹅 ...</blockquote>
+鲁邦s6主线越看越无聊弃了，后边是村越繁负责的吗
+
