@@ -2298,3 +2298,28 @@ Z的HARD第二关是空战，一堆UR用不了太恶心了...
 
 —— 来自 Xiaomi 24031PN0DC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  windtrack  
+##### 226#       发表于 2025-4-18 12:32
+
+ 本帖最后由 windtrack 于 2025-4-18 12:34 编辑 
+
+开发SSR现在看来最值得投入资源刷的就是Z，全地形（空战变形），Z/ZZ/宇宙世纪可用
+
+SEED的完美强袭也是全地形，但是打不了目前版本的永恒之路就尴尬点
+
+*****
+
+####  光辉传递者  
+##### 227#       发表于 2025-4-18 12:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67736675&amp;ptid=2071758" target="_blank">windtrack 发表于 2025-4-18 12:32</a>
+开发SSR现在看来最值得投入资源刷的就是Z，全地形（空战变形），Z/ZZ/宇宙世纪可用
+
+SEED的完美强袭也是全 ...</blockquote>
+完美强袭开发前置要的东西太多了，不只是尴尬与否的问题，而是资源完全不够用。
+
+—— 来自 Xiaomi 24031PN0DC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
