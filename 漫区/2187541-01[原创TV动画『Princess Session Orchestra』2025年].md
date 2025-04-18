@@ -500,3 +500,18 @@ OP：[https://youtu.be/2390XLZujGg](https://youtu.be/2390XLZujGg)
 
 ED：[https://youtu.be/jZ5wMAXph-k](https://youtu.be/jZ5wMAXph-k)
 
+
+*****
+
+####  Piano-Forest  
+##### 50#         楼主| 发表于 2025-4-19 00:26
+
+[https://x.com/MariShimazaki/status/1911217289736929447](https://x.com/MariShimazaki/status/1911217289736929447)
+
+2話ありがとうございましたー！
+
+OPED映像解禁ーOPクセになる。
+
+リップル変身＆必殺技バンクもかわい強かった！
+<img src="https://p.sda1.dev/23/4ee581a4f2432c9397885033aef55168/20250419_002450.jpg" referrerpolicy="no-referrer">
+
