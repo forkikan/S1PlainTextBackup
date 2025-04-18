@@ -2795,3 +2795,11 @@ EXIA/自由，这俩必刷</blockquote>
 而且还没有驾 ...</blockquote>
 希望他以后能开放SSR 驾驶员获取，不然只能抽还是有点恶心
 
+
+*****
+
+####  ドロロ  
+##### 269#       发表于 2025-4-18 22:38
+
+送的券一抽抽了个UR妖刀<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
