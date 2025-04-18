@@ -2365,3 +2365,16 @@ SEED的完美强袭也是全 ...</blockquote>
 
 开服第一个活动如果要求太高玩家过不了就蛋疼了
 
+
+*****
+
+####  hayate0079  
+##### 233#       发表于 2025-4-18 14:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67736527&amp;ptid=2071758" target="_blank">光辉传递者 发表于 2025-4-18 11:41</a>
+
+我和你相反，大号有一只连机带舰全UR的二队，但是资源分配均摊加上去有意点开发导致进度缓慢，另外开了个 ...</blockquote>
+现在感觉是40连凹一下战舰+1-2UR在自选战舰指定加成UR机体
+
+比如能天的突破力是有几个战舰挂钩的，凤凰也是突破力
+
