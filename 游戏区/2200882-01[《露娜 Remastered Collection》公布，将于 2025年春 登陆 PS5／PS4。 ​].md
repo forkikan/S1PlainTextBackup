@@ -878,3 +878,13 @@ nds那部走路流汗掉血的创世纪看来是要黑历史了吧，除了这�
 
 没有实体版吗
 
+
+*****
+
+####  医生狼多  
+##### 89#       发表于 2025-4-20 02:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67739385&amp;ptid=2200882" target="_blank">新HGCG 发表于 2025-4-19 20:41</a>
+没有实体版吗</blockquote>
+有 出货很少直接断货发行商在滑轨了
+
