@@ -2673,3 +2673,17 @@ X 上的 スミカ：“Ｇのジークアクス（Ｇレコパロトレス） [
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  民工业  
+##### 9604#       发表于 2025-4-19 21:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67739222&amp;ptid=2209276" target="_blank">azbhg1 发表于 2025-4-19 19:28</a>
+二刷了一遍拿特典，这趟看完，感觉夏利亚根本就没指望过首席哥能启动赛克缪
+
+感觉他一开始就是想把鸡夸扔出 ...</blockquote>
+对的，很明显在收到塞可缪启动的信号后他是疑问态度“这小子真的成了？”<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
