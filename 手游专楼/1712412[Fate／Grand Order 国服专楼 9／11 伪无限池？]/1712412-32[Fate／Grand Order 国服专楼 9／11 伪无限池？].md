@@ -101,3 +101,14 @@
 不是，付费就60个，刚好周年45+新年15</blockquote>
 新年是双福袋，30吧
 
+
+*****
+
+####  johnkamsar  
+##### 47111#       发表于 2025-4-20 00:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67739666&amp;ptid=1712412" target="_blank">snakeling 发表于 2025-4-19 22:45</a>
+
+新年是双福袋，30吧</blockquote>
+命定30，常规15
+
