@@ -645,3 +645,21 @@ op和ed里的狸猫一家还没出场，不知道究竟是什么定位。这集�
 キャラデザに一目惚れして、駆け込みで参加しましたが参加して良かった〜〜〜！！！！！
 <img src="https://p.sda1.dev/23/cfc97ca2bf056dffc511284ede9699a6/20250419_002245.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NBXX  
+##### 64#       发表于 2025-4-20 01:56
+
+<img src="https://p.sda1.dev/23/f6b125a5af2772e46e0624be858f22c3/0001.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/fc2c355bf3024221b76cd4dcd865f834/02-03.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/9aaed87ccec6c0d7c1d75939f10888f5/0004.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/2bd3dfd6f83e7e1953807625fd8faea6/0005.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/fdbfaf254ad38bb598f27ed4d4387623/0006.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/180f93344318605ed804cf6d3a33f988/0007.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/cdf5ab212b4e2562e80162df2928a5bc/0008.png" referrerpolicy="no-referrer">
+
+アポカリプスホテルぷすぷす 01話 漫画汉化。
+
+半夜做的有点困，有错误欢迎指出。
+
