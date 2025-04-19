@@ -2978,3 +2978,26 @@ ez8打高伤爽，也就不能打空战，可以一机无双
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  kerorokun  
+##### 287#       发表于 2025-4-19 14:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67738759&amp;ptid=2071758" target="_blank">无念 发表于 2025-4-19 14:22</a>
+天鹅要是会飞评价应该还可以高一档
+或者说，啥时候开放给陆战机体配sfs的功能</blockquote>
+不太可能，请参考mk2飞行版
+
+*****
+
+####  suzakushi  
+##### 288#       发表于 2025-4-19 15:02
+
+图都推完了，每天收菜等活动了，目前甚至感觉比单机的好玩，也可能是太久没新作憋的。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
