@@ -3405,3 +3405,13 @@ B79YYMC2BCTZSA
 
 国际服
 
+
+*****
+
+####  kulanyee  
+##### 328#       发表于 2025-4-20 01:07
+
+[https://appmedia.jp/ggene_eternal](https://appmedia.jp/ggene_eternal)
+
+贴一下appmedia攻略站，资料速查停方便。另外节奏榜一日一变可太有意思了
+
