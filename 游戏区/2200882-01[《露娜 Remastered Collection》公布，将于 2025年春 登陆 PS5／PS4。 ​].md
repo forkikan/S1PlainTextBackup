@@ -854,3 +854,11 @@ nds那部走路流汗掉血的创世纪看来是要黑历史了吧，除了这�
 
 ×
 
+
+*****
+
+####  Kojimaru  
+##### 86#       发表于 2025-4-19 17:35
+
+只收集和打奖杯看rpgsite的全流程攻略也不错[https://www.rpgsite.net/guide/17 ... r-story-walkthrough](https://www.rpgsite.net/guide/17159-lunar-remastered-collection-guide-lunar-silver-star-story-walkthrough)
+

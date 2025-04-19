@@ -3157,3 +3157,52 @@ ez8打高伤爽，也就不能打空战，可以一机无双
 
 —— 来自 Xiaomi 24031PN0DC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  horacio  
+##### 304#       发表于 2025-4-19 17:39
+
+前面其实可以放几个人不放机体，全资源把二队养起来，基本上都可以自动三星，前面我带着一堆炮灰每次第一回合都要往回走，后面发现这个套路大概半天就能把图打光了
+
+*****
+
+####  光辉传递者  
+##### 305#       发表于 2025-4-19 17:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67738963&amp;ptid=2071758" target="_blank">hayate0079 发表于 2025-4-19 17:05</a>
+这个招待码是不是只能填1次</blockquote>
+邀请码只能一次。
+
+—— 来自 Xiaomi 24031PN0DC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  光辉传递者  
+##### 306#       发表于 2025-4-19 17:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67739012&amp;ptid=2071758" target="_blank">horacio 发表于 2025-4-19 17:39</a>
+前面其实可以放几个人不放机体，全资源把二队养起来，基本上都可以自动三星，前面我带着一堆炮灰每次第一回 ...</blockquote>
+一队有机师没人可以蹭经验吃？
+
+—— 来自 Xiaomi 24031PN0DC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  windtrack  
+##### 307#       发表于 2025-4-19 17:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">手打H图到底和SKIP奖励一样不一样 我刷了10把就没见过设计图...
+
+*****
+
+####  光辉传递者  
+##### 308#       发表于 2025-4-19 17:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67739022&amp;ptid=2071758" target="_blank">windtrack 发表于 2025-4-19 17:43</a>
+手打H图到底和SKIP奖励一样不一样 我刷了10把就没见过设计图...</blockquote>
+我也想问这个，手打能选打不打隐藏，skip是默认不打吗？
+
+—— 来自 Xiaomi 24031PN0DC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
