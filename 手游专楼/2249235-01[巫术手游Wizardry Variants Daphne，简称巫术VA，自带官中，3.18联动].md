@@ -2548,3 +2548,17 @@ staff太屑了，就为了那一小段剧情这破玩意要打三次，三回啊
 
 就是gbf只要开个网页刷，这游戏的pc版可能是因为后台常驻反作弊，非常吃CPU，而且越玩越卡
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 227#         楼主| 发表于 2025-4-19 15:08
+
+reddit 有人打赢死神了，有成就，有个戒指
+
+https://www.reddit.com/r/wizardry/comments/1k1p83t/god_slayed/
+
+然后他又打了一遍，录了视频，戒指貌似和圣典那类奖励一样有冷却，可能是一个月
+
+https://www.reddit.com/r/wizardry/comments/1k2l5my/god_slayed_again_but_with_4_light_gear_with_video/
+
