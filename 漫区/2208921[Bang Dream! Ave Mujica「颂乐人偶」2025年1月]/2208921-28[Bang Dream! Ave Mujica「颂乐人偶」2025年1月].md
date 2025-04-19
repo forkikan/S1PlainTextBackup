@@ -1390,3 +1390,32 @@ mygo是proem
 原文链接：https://note.com/shotttteqkilla/n/n3f97b9a699f6</blockquote>
 兄弟，转的内容挺有意思的，但能不能不要一口气放这么多大图，有点影响爬楼了（
 
+
+*****
+
+####  堀内爱里衣  
+##### 40348#       发表于 2025-4-19 21:55
+
+<img src="https://ac.stage3rd.com/upfiles/202504/A1BACA1BB@0797650391227.gif" referrerpolicy="no-referrer">
+
+＃10 舞台里から全开コメンタリー: BanG Dream! Ave Mujica 〜禁断の全话ネタバレ解说！〜
+[https://www.youtube.com/watch?v=0SgvCP3jvuE](https://www.youtube.com/watch?v=0SgvCP3jvuE)
+
+柿本&amp;三次元staff带你看Ave Mujica #10
+[https://www.bilibili.com/video/BV1bi54zCEDm](https://www.bilibili.com/video/BV1bi54zCEDm)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  堀内爱里衣  
+##### 40349#       发表于 2025-4-19 21:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67739491&amp;ptid=2208921" target="_blank">滑稽Captain 发表于 2025-4-19 21:16</a>
+
+兄弟，转的内容挺有意思的，但能不能不要一口气放这么多大图，有点影响爬楼了（ ...</blockquote>
+已经修改。
+
