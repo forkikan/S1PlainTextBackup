@@ -2967,3 +2967,14 @@ ez8打高伤爽，也就不能打空战，可以一机无双
 
 那些单抽券能不能用在up池的？
 
+
+*****
+
+####  无念  
+##### 286#       发表于 2025-4-19 14:22
+
+天鹅要是会飞评价应该还可以高一档<img src="https://static.stage1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+或者说，啥时候开放给陆战机体配sfs的功能<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
