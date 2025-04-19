@@ -3085,3 +3085,23 @@ ez8打高伤爽，也就不能打空战，可以一机无双
 
 系列队只放一个人死就死，ur队去开无双就好
 
+
+*****
+
+####  hayate0079  
+##### 298#       发表于 2025-4-19 17:05
+
+这个招待码是不是只能填1次
+
+*****
+
+####  leonyang19  
+##### 299#       发表于 2025-4-19 17:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67738954&amp;ptid=2071758" target="_blank">windtrack 发表于 2025-4-19 16:57</a>
+
+刷个好开局很重要 有5ur+小番茄就随便推三星普通图了
+
+系列队只放一个人死就死，ur队去开无双就好</blockquote>
+既然你把楼上的填了，我把你的填了
+
