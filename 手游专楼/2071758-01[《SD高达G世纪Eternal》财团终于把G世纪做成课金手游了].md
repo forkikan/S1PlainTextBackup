@@ -3040,3 +3040,48 @@ ez8打高伤爽，也就不能打空战，可以一机无双
 
 开发奖励的ULT机体是不是只有一台？升UR之后也没法三星吧
 
+
+*****
+
+####  leonyang19  
+##### 294#       发表于 2025-4-19 16:50
+
+你们怎么都能推这么快，我这又缺机体又缺机师，只能开发里慢慢搞，还在奋斗ZZ
+
+顺便日服求互填ASNLDX5PWDHYDW
+
+
+*****
+
+####  natmk  
+##### 295#       发表于 2025-4-19 16:54
+
+<blockquote>leonyang19 发表于 2025-4-19 16:50
+你们怎么都能推这么快，我这又缺机体又缺机师，只能开发里慢慢搞，还在奋斗ZZ
+
+顺便日服求互填ASNLDX5PWDHYD ...</blockquote>
+
+已填 我的日服招待码AVGQMN2JX2VRZ6 空战真是难打资源什么都缺
+
+*****
+
+####  windtrack  
+##### 296#       发表于 2025-4-19 16:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67738949&amp;ptid=2071758" target="_blank">natmk 发表于 2025-4-19 16:54</a>
+已填 我的日服招待码AVGQMN2JX2VRZ6 空战真是难打资源什么都缺</blockquote>
+填了你的 求填AEDSC7PATB7C7E
+
+*****
+
+####  windtrack  
+##### 297#       发表于 2025-4-19 16:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67738945&amp;ptid=2071758" target="_blank">leonyang19 发表于 2025-4-19 16:50</a>
+你们怎么都能推这么快，我这又缺机体又缺机师，只能开发里慢慢搞，还在奋斗ZZ
+
+顺便日服求互填ASNLDX5PWDHYD ...</blockquote>
+刷个好开局很重要 有5ur+小番茄就随便推三星普通图了
+
+系列队只放一个人死就死，ur队去开无双就好
+
