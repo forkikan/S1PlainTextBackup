@@ -3312,3 +3312,16 @@ SKIP是有隐藏的掉落的。手打和skip奖励理论上一样，我skip已�
 
 —— 来自 Xiaomi 24031PN0DC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  suzakushi  
+##### 319#       发表于 2025-4-19 20:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67739320&amp;ptid=2071758" target="_blank">光辉传递者 发表于 2025-4-19 20:19</a>
+
+多嘴问一句，漏油有没有试过用完skip次数继续手动打的情况？这种情况下能出ssr的设计图吗？
+
+—— 来自 X ...</blockquote>
+能出，今天进Z的hard去auto了一次，出了张百式的。
+
