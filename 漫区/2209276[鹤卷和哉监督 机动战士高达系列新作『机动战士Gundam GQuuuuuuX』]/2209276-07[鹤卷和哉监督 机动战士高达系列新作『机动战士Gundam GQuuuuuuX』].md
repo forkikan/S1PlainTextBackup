@@ -2634,3 +2634,19 @@ psycommu从79的α到85的ω不能全靠脑内试验结果只得两版各实装�
 X 上的 スミカ：“Ｇのジークアクス（Ｇレコパロトレス） [https://t.co/cHTDFWRIlo” / X](https://t.co/cHTDFWRIlo” / X)</blockquote>
 这第一张图，不是很吉利<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  azbhg1  
+##### 9601#       发表于 2025-4-19 19:28
+
+二刷了一遍拿特典，这趟看完，感觉夏利亚根本就没指望过首席哥能启动赛克缪<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+感觉他一开始就是想把鸡夸扔出去试试赛克缪能不能和红高达共鸣，看看红高里头是不是总帅<img src="https://static.stage1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+后来他感觉到红高里头肯定不是总帅，之后赛克缪启动后，大伙都在狂吹首席哥，就他嗯的疑惑了一下然后就直接懒得管了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+再后面看军团战秀操作水平的时候才开始好奇鸡夸到底是谁在开<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+可怜的小白鼠首席哥<img src="https://static.stage1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
