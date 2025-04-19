@@ -2895,3 +2895,15 @@ ez8打高伤爽，也就不能打空战，可以一机无双
 已填，我的是BPYUBN9RN49QS8</blockquote>
 我也是删号重开了，已填，我的邀请码是BY249DSETVY46Y，国际服没填的可以互填一下~
 
+
+*****
+
+####  startea15  
+##### 279#       发表于 2025-4-19 10:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67738466&amp;ptid=2071758" target="_blank">马桶3 发表于 2025-4-18 19:19</a>
+另外评分没拿满会影响掉落奖励吗，我之前打的时候没怎么注意</blockquote>
+评分满1w解锁扫荡就可以了吧，掉落感觉就是纯随机，跟pcr差不多吧
+
+—— 来自 samsung SM-S918U1, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
