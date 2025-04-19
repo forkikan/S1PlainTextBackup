@@ -1377,3 +1377,16 @@ mygo是proem
 
 ×
 
+
+*****
+
+####  滑稽Captain  
+##### 40347#       发表于 2025-4-19 21:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67739016&amp;ptid=2208921" target="_blank">堀内爱里衣 发表于 2025-4-19 17:41</a>
+
+三角初华 Diggy-MO'说
+
+原文链接：https://note.com/shotttteqkilla/n/n3f97b9a699f6</blockquote>
+兄弟，转的内容挺有意思的，但能不能不要一口气放这么多大图，有点影响爬楼了（
+
