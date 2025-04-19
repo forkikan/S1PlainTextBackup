@@ -411,3 +411,15 @@ PVPVE：？
 
 感觉就是个血缘类的永劫无间真不好玩
 
+
+*****
+
+####  笨蛋，我知道的  
+##### 43#       发表于 2025-4-19 08:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67733407&amp;ptid=2250995" target="_blank">outerish 发表于 2025-4-17 00:10</a>
+小高做的多人游戏是怎么被老任签下来的？大股东索尼明明对服务型游戏都饥不择食了，怎么会放过这个游戏 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小高访谈说2017年就开始构思想，2017年有个新闻就是小高去任天堂大楼兜了一圈，有可能在其他场合和任天堂的人聊起来了，双方都觉得很不错，最后去任天堂大楼确定合作开发了。至于为什么没索尼的事，要么就是这个企划任天堂也提供了想法最终是双方共同策划拍板的，要么就是索尼也觉得pvpve太奇葩不干。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
