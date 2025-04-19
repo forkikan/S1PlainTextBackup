@@ -3226,3 +3226,20 @@ SKIP是有隐藏的掉落的。手打和skip奖励理论上一样，我skip已�
 
 B4ZCKHRQHDA4WN
 
+
+*****
+
+####  captoon  
+##### 311#       发表于 2025-4-19 18:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67739105&amp;ptid=2071758" target="_blank">blue321 发表于 2025-4-19 18:34</a>
+
+请问还有国际服的有多余的招待位吗……
+
+楼友的互助邀请跑单了
+
+B4ZCKHRQHDA4WN ...</blockquote>
+BFRN45LVQF94VL
+
+填你的了
+
