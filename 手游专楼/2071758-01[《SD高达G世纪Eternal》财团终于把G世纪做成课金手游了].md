@@ -2907,3 +2907,27 @@ ez8打高伤爽，也就不能打空战，可以一机无双
 
 —— 来自 samsung SM-S918U1, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  captoon  
+##### 280#       发表于 2025-4-19 10:48
+
+夏亚专用高达是真的帅
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+
+*****
+
+####  光辉传递者  
+##### 281#       发表于 2025-4-19 10:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67738466&amp;ptid=2071758" target="_blank">马桶3 发表于 2025-4-19 10:19</a>
+
+另外评分没拿满会影响掉落奖励吗，我之前打的时候没怎么注意</blockquote>
+你是说三星吗？那个只会影响你能不能后续扫荡而已。
+
