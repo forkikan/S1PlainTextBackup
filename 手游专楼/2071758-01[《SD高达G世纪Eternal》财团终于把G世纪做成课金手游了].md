@@ -3355,3 +3355,15 @@ SKIP是有隐藏的掉落的。手打和skip奖励理论上一样，我skip已�
 
 国际服邀请码：B95VSQ3SBSJR5J
 
+
+*****
+
+####  光辉传递者  
+##### 323#       发表于 2025-4-19 21:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67739341&amp;ptid=2071758" target="_blank">suzakushi 发表于 2025-4-19 20:27</a>
+能出，今天进Z的hard去auto了一次，出了张百式的。</blockquote>
+妙极，我正发愁去哪带老板刷级，这下直接进79hard让老板们蹭经验了，反正有能天使和沙扎比兜底满分稳拿。
+
+—— 来自 Xiaomi 24031PN0DC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
