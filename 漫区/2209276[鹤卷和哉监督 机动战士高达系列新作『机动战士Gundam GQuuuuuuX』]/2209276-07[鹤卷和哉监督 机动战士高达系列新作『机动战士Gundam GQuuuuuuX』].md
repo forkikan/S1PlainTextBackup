@@ -2734,3 +2734,21 @@ X 上的 スミカ：“Ｇのジークアクス（Ｇレコパロトレス） [
 
 倒不是说夏利亚坏，只是感觉把城府都隐藏起来了，小九九多得很
 
+
+*****
+
+####  genki  
+##### 9609#       发表于 2025-4-19 22:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67739504&amp;ptid=2209276" target="_blank">az一串字母 发表于 2025-4-19 21:23</a>
+
+突然想到之后要是魔女战里红高真的消失了，那夏利亚岂不是又没追到红高，而且没追到的原因是自己天天在那om ...</blockquote>
+小绿要追的是鸭子不是红高达啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  operatbig  
+##### 9610#       发表于 2025-4-19 22:21
+
+后面剧情会不会出现夏利亚发现吉翁某设施里有夏亚踪迹，结果救出来后发现是cca的夏亚。
+
