@@ -90,3 +90,14 @@
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  snakeling  
+##### 47110#       发表于 2025-4-19 22:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67736789&amp;ptid=1712412" target="_blank">johnkamsar 发表于 2025-4-18 13:16</a>
+
+不是，付费就60个，刚好周年45+新年15</blockquote>
+新年是双福袋，30吧
+
