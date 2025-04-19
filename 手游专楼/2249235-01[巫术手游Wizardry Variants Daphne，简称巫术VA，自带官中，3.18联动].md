@@ -2575,3 +2575,26 @@ reddit 有人打赢死神了，有成就，有个戒指
 https://www.reddit.com/r/wizardry/comments/1k1p83t/god_slaye ...</blockquote>
 吓人了，氪佬专用boss
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 229#         楼主| 发表于 2025-4-19 20:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67738923&amp;ptid=2249235" target="_blank">elven119 发表于 2025-4-19 16:31</a>
+
+吓人了，氪佬专用boss</blockquote>
+今天有个做攻略的在YT直播(虽然不是石油佬级别的)，打了两个多小时没打过，节目效果是出来了XD
+
+[https://www.youtube.com/watch?v=t9ObjLTnygc](https://www.youtube.com/watch?v=t9ObjLTnygc)
+
+
+*****
+
+####  风浦可符香(P.N)  
+##### 230#         楼主| 发表于 2025-4-19 21:03
+
+哦对了，之前因为很多人反映steam版诅咒之轮有问题时泥潭正好挂了(新玩家水路三线没全通进第三章再回第二章，诅咒之轮可能会出问题)
+
+想说平时只玩PC版的，有条件的最好装一下手机版，至少绑一下你google帐号，防止那天手抽，再一个有什么独占bug很多时候可以通过登手机版点两下来解决
+
