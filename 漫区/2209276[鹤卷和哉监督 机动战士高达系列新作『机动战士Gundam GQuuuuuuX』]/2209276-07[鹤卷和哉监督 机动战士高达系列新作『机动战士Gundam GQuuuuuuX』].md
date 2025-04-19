@@ -2624,3 +2624,13 @@ psycommu从79的α到85的ω不能全靠脑内试验结果只得两版各实装�
 
 依我看歌在高达站起来后就该停了。
 
+
+*****
+
+####  没取名啊  
+##### 9600#       发表于 2025-4-19 17:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67738865&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-4-19 15:53</a>
+X 上的 スミカ：“Ｇのジークアクス（Ｇレコパロトレス） [https://t.co/cHTDFWRIlo” / X](https://t.co/cHTDFWRIlo” / X)</blockquote>
+这第一张图，不是很吉利<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
