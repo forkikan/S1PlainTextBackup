@@ -3325,3 +3325,15 @@ SKIP是有隐藏的掉落的。手打和skip奖励理论上一样，我skip已�
 —— 来自 X ...</blockquote>
 能出，今天进Z的hard去auto了一次，出了张百式的。
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 320#       发表于 2025-4-19 20:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">之前没多想，头铁单UR开局，玩了几天痛定思痛毅然把号删了重新刷初始。凹了一天实在凹不动了，海盗X1+独角兽+EXIA就这样开局吧
+
+国际服邀请码 BYAW2Y4X7GZB8U
+
+等我慢慢把楼上所有人都填一遍
+

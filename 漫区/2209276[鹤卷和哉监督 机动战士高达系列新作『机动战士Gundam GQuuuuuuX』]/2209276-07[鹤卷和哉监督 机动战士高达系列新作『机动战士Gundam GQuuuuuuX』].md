@@ -2660,3 +2660,16 @@ X 上的 スミカ：“Ｇのジークアクス（Ｇレコパロトレス） [
 
 来，喵安，给他们整个活！
 
+
+*****
+
+####  风夏  
+##### 9603#       发表于 2025-4-19 20:46
+
+没看tv，刚看完剧场版
+
+感想：鹤卷和哉就是神，我太爱鹤卷和哉了。
+鹤卷和哉跟我亲爹有什么区别，他跟我亲爹唯一区别就是他跟我不亲，对不对<img src="https://static.stage1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
