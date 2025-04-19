@@ -2864,3 +2864,16 @@ ez8打高伤爽，也就不能打空战，可以一机无双
 
 越早能刷最高难度效率越高啊<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  光辉传递者  
+##### 276#       发表于 2025-4-19 10:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67737945&amp;ptid=2071758" target="_blank">hayate0079 发表于 2025-4-18 21:48</a>
+
+这个2个G世纪的战舰1个UC 1个非UC，范围是大但是EN范围、回复量和加成效果都差点
+
+我自己1开始的号没战舰 ...</blockquote>
+思路不一样，我是奔着梭哈能天使开荒C的思路去构建的。考虑SSR的话提法肯定更好，但现在光是拉UR自由队伍就很吃力了，其实前期是没啥余力去指望ssr的。玩了一晚上看来反而是尽快能打高难日常本攒资源很重要。目前就这法子能把雪球滚起来。
+
