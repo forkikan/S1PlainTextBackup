@@ -3206,3 +3206,11 @@ ez8打高伤爽，也就不能打空战，可以一机无双
 
 —— 来自 Xiaomi 24031PN0DC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  suzakushi  
+##### 309#       发表于 2025-4-19 18:10
+
+SKIP是有隐藏的掉落的。手打和skip奖励理论上一样，我skip已经两天没出FAZZ设计图了。
+
