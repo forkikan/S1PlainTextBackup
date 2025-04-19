@@ -687,3 +687,11 @@ tiger引擎太落伍了，不管是渲染管线还是开发工具
 
 命运2至今只支持FXAA和SMAA，你敢信<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  prattwhitney  
+##### 70#       发表于 2025-4-19 19:15
+
+这个八分钟短片看着也太像Jibaro了，结果一看就是Jibaro的导演做的……
+

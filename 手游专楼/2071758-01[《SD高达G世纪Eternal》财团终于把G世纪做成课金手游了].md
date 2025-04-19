@@ -3270,3 +3270,20 @@ BFRN45LVQF94VL
 
 暂时卡在永恒之路hard第二关，非uc除了能天使全是臭鱼烂虾，不过估计明天也能过了
 
+
+*****
+
+####  nagamasa  
+##### 315#       发表于 2025-4-19 19:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">实在推不动重开了，国际服B3B7RCJGQMC2V4
+
+*****
+
+####  光辉传递者  
+##### 316#       发表于 2025-4-19 19:24
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">思路确定之后今天重开的号把79，z和zz三部normal主线打通了，顺便打了个79的hard。少了拖后腿的系列队和累赘的系统队直接一次过不用补星，妈的早知道能打这么激进我直接刷深村玲了，三个三动人点出来三动之后凶的雅痞，留电视姬就怕系统队这几个活爹被围殴挂了，看看后面能不能抽出来吧。不过因为只有一队彩虹也不敢打永恒之路。要不先把其他几个作品的normal主线打了拉倒。
+
+—— 来自 Xiaomi 24031PN0DC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
