@@ -3105,3 +3105,55 @@ ez8打高伤爽，也就不能打空战，可以一机无双
 系列队只放一个人死就死，ur队去开无双就好</blockquote>
 既然你把楼上的填了，我把你的填了
 
+
+*****
+
+####  光辉传递者  
+##### 300#       发表于 2025-4-19 17:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67738954&amp;ptid=2071758" target="_blank">windtrack 发表于 2025-4-19 16:57</a>
+刷个好开局很重要 有5ur+小番茄就随便推三星普通图了
+
+系列队只放一个人死就死，ur队去开无双就好</blockquote>
+系列队放一个人？我系列队直接不上人的，死了还要往回扣计分。怎么都划不来。
+
+—— 来自 Xiaomi 24031PN0DC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  windtrack  
+##### 301#       发表于 2025-4-19 17:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67738991&amp;ptid=2071758" target="_blank">光辉传递者 发表于 2025-4-19 17:27</a>
+
+系列队放一个人？我系列队直接不上人的，死了还要往回扣计分。怎么都划不来。
+
+—— 来自 Xiaomi 24031PN ...</blockquote>
+原来可以不放人吗<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer"> 我还以为必须放一个，反正死一个也是三星
+
+*****
+
+####  光辉传递者  
+##### 302#       发表于 2025-4-19 17:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67738945&amp;ptid=2071758" target="_blank">leonyang19 发表于 2025-4-19 16:50</a>
+你们怎么都能推这么快，我这又缺机体又缺机师，只能开发里慢慢搞，还在奋斗ZZ
+
+顺便日服求互填ASNLDX5PWDHYD ...</blockquote>
+因为开服送的钻直接拿来刷开局了，没有足够的合用ur直接删档下一个。
+缺机师的问题其实可以直接依靠刷开局解决，只要有ur就是必送机师的，部分ssr也是连人带机一起送，连带机体问题也能解决。至于地形适应性，反而问题不大，到了后面俘获和高难首通隐藏机给ssr不愁没机开，只愁没资源养。
+
+—— 来自 Xiaomi 24031PN0DC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  光辉传递者  
+##### 303#       发表于 2025-4-19 17:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67738998&amp;ptid=2071758" target="_blank">windtrack 发表于 2025-4-19 17:32</a>
+原来可以不放人吗 我还以为必须放一个，反正死一个也是三星</blockquote>
+可以，直接把那个用卸下替换即可。
+
+—— 来自 Xiaomi 24031PN0DC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
