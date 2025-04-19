@@ -3214,3 +3214,15 @@ ez8打高伤爽，也就不能打空战，可以一机无双
 
 SKIP是有隐藏的掉落的。手打和skip奖励理论上一样，我skip已经两天没出FAZZ设计图了。
 
+
+*****
+
+####  blue321  
+##### 310#       发表于 2025-4-19 18:34
+
+请问还有国际服的有多余的招待位吗……
+
+楼友的互助邀请跑单了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+B4ZCKHRQHDA4WN
+
