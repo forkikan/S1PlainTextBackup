@@ -3300,3 +3300,15 @@ EXIA拉到一百，多找几个支援机直接一人斩3个，我觉得比UC那�
 
 支援机有风灵自由最好，没有的话可以做W里的飞翼0，SEED那边的几个流星号也能勉强用
 
+
+*****
+
+####  光辉传递者  
+##### 318#       发表于 2025-4-19 20:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67739062&amp;ptid=2071758" target="_blank">suzakushi 发表于 2025-4-19 18:10</a>
+SKIP是有隐藏的掉落的。手打和skip奖励理论上一样，我skip已经两天没出FAZZ设计图了。 ...</blockquote>
+多嘴问一句，漏油有没有试过用完skip次数继续手动打的情况？这种情况下能出ssr的设计图吗？
+
+—— 来自 Xiaomi 24031PN0DC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

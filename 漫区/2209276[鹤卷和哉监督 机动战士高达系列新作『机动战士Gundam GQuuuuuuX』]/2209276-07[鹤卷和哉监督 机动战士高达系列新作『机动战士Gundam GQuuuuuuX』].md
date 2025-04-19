@@ -2650,3 +2650,13 @@ X 上的 スミカ：“Ｇのジークアクス（Ｇレコパロトレス） [
 
 可怜的小白鼠首席哥<img src="https://static.stage1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  灵魂收割机  
+##### 9602#       发表于 2025-4-19 20:18
+
+[https://tieba.baidu.com/p/9655047203](https://tieba.baidu.com/p/9655047203)
+
+来，喵安，给他们整个活！
+
