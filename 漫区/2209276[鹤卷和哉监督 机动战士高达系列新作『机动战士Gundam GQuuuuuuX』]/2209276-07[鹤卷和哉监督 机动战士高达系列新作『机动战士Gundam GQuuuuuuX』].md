@@ -2591,3 +2591,11 @@ psycommu从79的α到85的ω不能全靠脑内试验结果只得两版各实装�
 
 然后一帮米津粉赶来护驾，说骂的都是高达遗老，个顶个的没品不懂欣赏。
 
+
+*****
+
+####  ardente  
+##### 9597#       发表于 2025-4-19 15:42
+
+小打小闹，腐姐没到都不算上强度<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
