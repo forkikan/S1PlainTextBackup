@@ -2852,3 +2852,15 @@ ez8打高伤爽，也就不能打空战，可以一机无双
 
 这个锁时代队伍还是挺反人类的，核心还是经验少，到第三层（ZZ和W）中期锁时代队和剧情队都很难顶住，全靠自由队发挥。
 
+
+*****
+
+####  马桶3  
+##### 275#       发表于 2025-4-19 09:41
+
+我现在觉得把主C拉上去一个高等级队，优先击杀每日材料最高难度本才是最重要的<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+现在如果进场距离合适，能天使叠3个援护射击debuff能打掉大哈罗8~10成血量，剩下一队高级肉盾抗住小哈罗等主力部队回头救
+
+越早能刷最高难度效率越高啊<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
