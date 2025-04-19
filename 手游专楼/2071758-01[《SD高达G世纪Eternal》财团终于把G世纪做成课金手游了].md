@@ -3287,3 +3287,16 @@ BFRN45LVQF94VL
 
 —— 来自 Xiaomi 24031PN0DC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  windtrack  
+##### 317#       发表于 2025-4-19 19:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67739187&amp;ptid=2071758" target="_blank">12481632 发表于 2025-4-19 19:11</a>
+
+暂时卡在永恒之路hard第二关，非uc除了能天使全是臭鱼烂虾，不过估计明天也能过了 ...</blockquote>
+EXIA拉到一百，多找几个支援机直接一人斩3个，我觉得比UC那边的简单
+
+支援机有风灵自由最好，没有的话可以做W里的飞翼0，SEED那边的几个流星号也能勉强用
+
