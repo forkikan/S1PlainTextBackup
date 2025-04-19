@@ -665,3 +665,25 @@ Bungie 为了复用素材还是用这个从 Halo 一路魔改上来的引擎<img
 可见土命的素材浪费有多严重<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是一半内容扔进库存后的体积也有上百G
 不过就它这个图，6队18人而言也小了点，搜打撤的探索味不够
 
+
+*****
+
+####  andychen  
+##### 68#       发表于 2025-4-19 18:14
+
+美术仍然在线，不过这tiger引擎万年不换真的玩不下去
+
+感觉bungie也差不多到头了，我个人心中bioware垮了以后最可惜的就他们
+
+*****
+
+####  andychen  
+##### 69#       发表于 2025-4-19 18:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67730319&amp;ptid=2135998" target="_blank">zao 发表于 2025-4-16 09:30</a>
+
+这演示是着色器没写好么……概念美术的工业塑料表面其实还挺好看的，结果实机演示这表面材质，糊成一坨的光 ...</blockquote>
+tiger引擎太落伍了，不管是渲染管线还是开发工具
+
+命运2至今只支持FXAA和SMAA，你敢信<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
