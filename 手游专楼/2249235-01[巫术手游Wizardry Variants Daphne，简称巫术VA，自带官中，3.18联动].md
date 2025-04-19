@@ -2562,3 +2562,16 @@ https://www.reddit.com/r/wizardry/comments/1k1p83t/god_slayed/
 
 https://www.reddit.com/r/wizardry/comments/1k2l5my/god_slayed_again_but_with_4_light_gear_with_video/
 
+
+*****
+
+####  elven119  
+##### 228#       发表于 2025-4-19 16:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67738804&amp;ptid=2249235" target="_blank">风浦可符香(P.N) 发表于 2025-4-19 15:08</a>
+
+reddit 有人打赢死神了，有成就，有个戒指
+
+https://www.reddit.com/r/wizardry/comments/1k1p83t/god_slaye ...</blockquote>
+吓人了，氪佬专用boss
+
