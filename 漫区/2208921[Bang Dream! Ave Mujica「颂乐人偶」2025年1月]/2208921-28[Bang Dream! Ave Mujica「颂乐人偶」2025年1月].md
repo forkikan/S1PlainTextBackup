@@ -1304,3 +1304,14 @@ eplus线上直播购票：
 
 ×
 
+
+*****
+
+####  ardente  
+##### 40342#       发表于 2025-4-19 16:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67724091&amp;ptid=2208921" target="_blank">FanFun 发表于 2025-3-24 22:43</a>
+
+怪阿姨艹小辈可不是什么大众XP，独角兽主笔的两部作品都拿这作为重点收尾还真是巧合呢，绝不是塞私货呢 ...</blockquote>
+柿本自己认领了捏<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
