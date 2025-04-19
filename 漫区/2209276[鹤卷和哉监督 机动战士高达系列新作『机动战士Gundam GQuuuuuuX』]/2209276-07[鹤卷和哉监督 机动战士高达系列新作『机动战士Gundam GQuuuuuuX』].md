@@ -2581,3 +2581,13 @@ psycommu从79的α到85的ω不能全靠脑内试验结果只得两版各实装�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">姨姥发力！
 
+
+*****
+
+####  cyberalogo  
+##### 9596#       发表于 2025-4-19 12:38
+
+笑死，看B站第一集弹幕，都在骂米津那歌放在开高达BGM太特么吵，太特么影响观感了。<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+然后一帮米津粉赶来护驾，说骂的都是高达遗老，个顶个的没品不懂欣赏。
+
