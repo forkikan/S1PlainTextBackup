@@ -1476,3 +1476,299 @@ https://x.com/uis410/status/1913577397670347256?s=46&amp;t=f6AHdCYYYf4AJriUAv-uL
 颜itunes日榜单曲第8</blockquote>
 算是怎么样的成绩
 
+
+*****
+
+####  堀内爱里衣  
+##### 40355#       发表于 2025-4-19 01:30
+
+[https://t.bilibili.com/1057113518847819795](https://t.bilibili.com/1057113518847819795)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  堀内爱里衣  
+##### 40356#       发表于 2025-4-19 10:37
+
+[https://t.bilibili.com/1057361892494802951](https://t.bilibili.com/1057361892494802951)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  纯田まな  
+##### 40357#       发表于 2025-4-19 10:59
+
+感觉这个解谜没啥大活
+
+*****
+
+####  丰川祥  
+##### 40358#       发表于 2025-4-19 11:35
+
+第一题（hint:名字中有片假名的人）
+
+长崎爽世：红茶（こうちょ） E
+
+祐天寺若麦：熊本（くまもと） T
+
+纯田真奈：偶像（あいどる）ERE
+
+第二题（hint:唱歌的人）
+
+灯：人类（にんげん）O
+
+初华：回忆（おもいで）H
+
+真奈：偶像（あいどる）ERE
+
+第三题(hint:黑发的人)
+
+立希（泷）：发现（はっけん）R
+
+海铃（海）：信用（しんよう）R
+
+真奈（玉）：偶像（あいどる）ERE
+
+第四题（hint:擅长演戏的人）
+
+睦:镜像(かがみうつし) T
+
+第五题（hint：会弹钢琴的人）
+
+祥子：树荫（こかげ）U
+
+最后成员代表的字母拼起来：
+
+ave mujica： truth
+
+sumimi：here
+
+crychic：route
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  الطائر  
+##### 40359#       发表于 2025-4-19 13:11
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  堀内爱里衣  
+##### 40360#       发表于 2025-4-19 13:27
+
+ 本帖最后由 堀内爱里衣 于 2025-4-19 13:28 编辑 
+
+[https://t.bilibili.com/1057422668467273737](https://t.bilibili.com/1057422668467273737)
+
+eplus线上直播购票：
+[https://ib.eplus.jp/mygo-avemujica2025_st](https://ib.eplus.jp/mygo-avemujica2025_st)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+
+*****
+
+####  ardente  
+##### 40361#       发表于 2025-4-19 16:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67724091&amp;ptid=2208921" target="_blank">FanFun 发表于 2025-3-24 22:43</a>
+
+怪阿姨艹小辈可不是什么大众XP，独角兽主笔的两部作品都拿这作为重点收尾还真是巧合呢，绝不是塞私货呢 ...</blockquote>
+柿本自己认领了捏<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  الطائر  
+##### 40362#       发表于 2025-4-19 16:29
+
+笑死，題还没出，答案就被破解了：
+
+千早爱音是M
+
+[https://tieba.baidu.com/p/9654539623](https://tieba.baidu.com/p/9654539623)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  丰川祥  
+##### 40363#       发表于 2025-4-19 16:34
+
+猫猫的也破解了
+
+而且字母和对邦图站位对应
+
+mygo是proem
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  堀内爱里衣  
+##### 40364#       发表于 2025-4-19 17:41
+
+ 本帖最后由 堀内爱里衣 于 2025-4-19 21:53 编辑 
+
+<strong>三角初华 Diggy-MO'说</strong>
+
+原文链接：[https://note.com/shotttteqkilla/n/n3f97b9a699f6](https://note.com/shotttteqkilla/n/n3f97b9a699f6) 第一张图片 https://i.111666.best/image/avSS9QwPyhHH4Tocf2iiYt.jpg 第二张图片 https://i.111666.best/image/DG8u3Un3YQl6UlQkoFiWdJ.jpg 第三张图片 https://i.111666.best/image/vGPfwxYH6dR2FGyIIa2ZrN.jpg 第四张图片 https://i.111666.best/image/fDi8YBqguqzRv7bSnVU5Fp.jpg 第五张图片 https://i.111666.best/image/ptIYddNEm3xWAI4HbQatK7.jpg复制代码
+
+*****
+
+####  堀内爱里衣  
+##### 40365#       发表于 2025-4-19 17:43
+
+[https://x.com/tanda_hazuki/status/1913389987263058022](https://x.com/tanda_hazuki/status/1913389987263058022)
+[https://t.co/FhgjXeOS0g](https://t.co/FhgjXeOS0g)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  滑稽Captain  
+##### 40366#       发表于 2025-4-19 21:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67739016&amp;ptid=2208921" target="_blank">堀内爱里衣 发表于 2025-4-19 17:41</a>
+
+三角初华 Diggy-MO'说
+
+原文链接：https://note.com/shotttteqkilla/n/n3f97b9a699f6</blockquote>
+兄弟，转的内容挺有意思的，但能不能不要一口气放这么多大图，有点影响爬楼了（
+
+*****
+
+####  堀内爱里衣  
+##### 40367#       发表于 2025-4-19 21:55
+
+<img src="https://ac.stage3rd.com/upfiles/202504/A1BACA1BB@0797650391227.gif" referrerpolicy="no-referrer">
+
+＃10 舞台里から全开コメンタリー: BanG Dream! Ave Mujica 〜禁断の全话ネタバレ解说！〜
+[https://www.youtube.com/watch?v=0SgvCP3jvuE](https://www.youtube.com/watch?v=0SgvCP3jvuE)
+
+柿本&amp;三次元staff带你看Ave Mujica #10
+[https://www.bilibili.com/video/BV1bi54zCEDm](https://www.bilibili.com/video/BV1bi54zCEDm)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  堀内爱里衣  
+##### 40368#       发表于 2025-4-19 21:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67739491&amp;ptid=2208921" target="_blank">滑稽Captain 发表于 2025-4-19 21:16</a>
+
+兄弟，转的内容挺有意思的，但能不能不要一口气放这么多大图，有点影响爬楼了（ ...</blockquote>
+已经修改。
+
+*****
+
+####  丰川祥  
+##### 40369#       发表于 2025-4-19 22:30
+
+https://x.com/_satsunyan/status/1913423394059829440?s=46&amp;t=f6AHdCYYYf4AJriUAv-uLQ
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  丰川祥  
+##### 40370#       发表于 2025-4-19 22:32
+
+https://x.com/love8evill/status/1913551817172193584?s=46&amp;t=f6AHdCYYYf4AJriUAv-uLQ
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  丰川祥  
+##### 40371#       发表于 2025-4-19 22:32
+
+https://x.com/uis410/status/1913577397670347256?s=46&amp;t=f6AHdCYYYf4AJriUAv-uLQ
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 40372#       发表于 2025-4-19 22:41
+
+颜itunes日榜单曲第8
+
+*****
+
+####  凉良  
+##### 40373#       发表于 2025-4-20 02:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67739659&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-4-19 22:41</a>
+
+颜itunes日榜单曲第8</blockquote>
+算是怎么样的成绩
+
+*****
+
+####  堀内爱里衣  
+##### 40374#       发表于 2025-4-20 13:17
+
+[https://x.com/concon777/status/1913168375536042144](https://x.com/concon777/status/1913168375536042144)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  堀内爱里衣  
+##### 40375#       发表于 2025-4-20 13:18
+
+我们把木谷高明抓到了弔人的地下室里，并问了他一些奇妙的小问题～【神奇Club】
+[https://www.bilibili.com/video/BV1ap5szyEzE](https://www.bilibili.com/video/BV1ap5szyEzE)
+
+「Ave Mujica」相关内容在12:54这一句
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
