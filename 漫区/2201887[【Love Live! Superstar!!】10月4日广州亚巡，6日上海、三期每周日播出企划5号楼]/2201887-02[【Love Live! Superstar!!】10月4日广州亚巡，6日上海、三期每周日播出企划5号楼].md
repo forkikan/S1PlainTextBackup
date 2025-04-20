@@ -77,3 +77,15 @@ Liella! 1期生ReviveLive决定举办 ​​​
 
 时间完美地错开，去不了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  csolfans  
+##### 1591#       发表于 2025-4-20 20:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67741197&amp;ptid=2201887" target="_blank">starring 发表于 2025-4-20 18:48</a>
+时间完美地错开，去不了</blockquote>
+8月机票好贵我淦
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

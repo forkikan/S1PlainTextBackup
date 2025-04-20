@@ -37,3 +37,16 @@
 
 主楼群号似乎已经死了一段时间，如有s1烤群请拉我一下谢谢……
 
+
+*****
+
+####  jaewoongh_  
+##### 798#       发表于 2025-4-20 20:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">状态真是个玄学，今天突然读谱力劲增暴增，然后第一次fc了红消失，紧接着又fc了一首30的紫
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+

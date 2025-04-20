@@ -811,3 +811,15 @@ SD最后的连战会拖慢，其余时候没啥问题，等优化就好了
 
 BOSS战方面，前期几个都挺简单以为会一路简单下去，结果昨天打了一下午的机兵狩猎者差点心态打崩了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">死磕了十几次弹反还是不熟练，最后换瞬步才勉强打过
 
+
+*****
+
+####  Quelaan  
+##### 214#       发表于 2025-4-20 20:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67740535&amp;ptid=2168791" target="_blank">starring 发表于 2025-4-20 11:40</a>
+目前18小时打完深渊哀后，真的好玩
+
+地图设计是闭环路，就算走了岔路也能绕回去不用担心跑图浪费时间，而且 ...</blockquote>
+机兵狩猎者举盾巨好打，但不知道为什么这游戏大伙都喜欢弹反，就是不用盾<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
