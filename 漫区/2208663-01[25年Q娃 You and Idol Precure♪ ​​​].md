@@ -307,3 +307,15 @@ ep8，独角兽负责回意外的很不错；ep9，大小姐写了个非常奇�
 特报PV：[https://youtu.be/p73_Lc5uUDA](https://youtu.be/p73_Lc5uUDA)
 <img src="https://p.sda1.dev/23/63bb5c40ba13cdc32a9303c0984b2070/20250420_225809.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  我吃诗人  
+##### 788#       发表于 2025-4-20 23:23
+
+凯特桑不是一眼前辈大哥系角色，怎么还能想着BG的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+感觉今年的上限令人绝望，小歌懵的一下我都以为要问出偶像是什么了结果还是拐回cure idol了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+怎么这周打三个人只掉落一个蝴蝶结<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
