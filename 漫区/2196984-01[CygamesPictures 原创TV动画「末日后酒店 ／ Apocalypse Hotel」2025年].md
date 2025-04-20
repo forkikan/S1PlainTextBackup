@@ -697,3 +697,33 @@ op和ed里的狸猫一家还没出场，不知道究竟是什么定位。这集�
 
 植物星人是不是想把ok手势扶成植物萌芽的样子
 
+
+*****
+
+####  Piano-Forest  
+##### 69#         楼主| 发表于 2025-4-20 22:45
+
+[https://x.com/kouhei_honda_/status/1909656830009393162](https://x.com/kouhei_honda_/status/1909656830009393162)
+
+TVアニメ　#アポカリプスホテル 
+
+第1話ご視聴ありがとうございました！
+
+崩壊した銀座を描くことができてとても楽しかったです。
+
+来週もよろしくお願いします！
+<img src="https://p.sda1.dev/23/aaa6ff6ac66bd30a9153712a9a176c85/20250420_224407.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/07ffbfef58ec0ee5ea78d766e50b6753/20250420_224408.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/9c01b7de8da30a9ecfbfa90f92a88290/20250420_224409.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/2ddd2e7047e14bde19a08dcc55838d58/20250420_224411.jpg" referrerpolicy="no-referrer">
+
+TVアニメ　#アポカリプスホテル 
+
+第2話ご視聴ありがとうございました！
+
+来週もよろしくお願いします！
+<img src="https://p.sda1.dev/23/71103d96ecdc8fa2f1ef795451da5b69/20250420_224415.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/cd88b9720824b5c58200567a5a33e001/20250420_224416.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/e222263037ef6663623835626730e4b0/20250420_224417.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/a685837abd959e5777149f82d5711365/20250420_224418.jpg" referrerpolicy="no-referrer">
+
