@@ -319,3 +319,11 @@ ep8，独角兽负责回意外的很不错；ep9，大小姐写了个非常奇�
 
 怎么这周打三个人只掉落一个蝴蝶结<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jaewoongh_  
+##### 789#       发表于 2025-4-20 23:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">我现在就担心加藤阳一突然找回了写狗Q剧场版时的初心……
+
