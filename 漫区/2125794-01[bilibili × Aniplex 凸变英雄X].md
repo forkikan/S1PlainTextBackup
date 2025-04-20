@@ -870,3 +870,14 @@ X：宮野真守
 
 不过站立的姿势要怎么拉屎呢
 
+
+*****
+
+####  冷静先找时光机  
+##### 89#       发表于 2025-4-20 22:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67741421&amp;ptid=2125794" target="_blank">新HGCG 发表于 2025-4-20 20:26</a>
+
+不过站立的姿势要怎么拉屎呢</blockquote>
+有端联想<img src="https://p.sda1.dev/23/f3aee672c59481b7e512d3445ba3902e/1745157287085.jpg" referrerpolicy="no-referrer">
+
