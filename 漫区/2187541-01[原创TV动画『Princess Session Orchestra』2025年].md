@@ -515,3 +515,11 @@ OPED映像解禁ーOPクセになる。
 リップル変身＆必殺技バンクもかわい強かった！
 <img src="https://p.sda1.dev/23/4ee581a4f2432c9397885033aef55168/20250419_002450.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jaewoongh_  
+##### 51#       发表于 2025-4-20 08:53
+
+<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">作画依旧拉满，能不能重铸幼女动画荣光！
+
