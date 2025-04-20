@@ -671,3 +671,13 @@ op和ed里的狸猫一家还没出场，不知道究竟是什么定位。这集�
 
 阿西もふ草
 
+
+*****
+
+####  有钱多买小人  
+##### 66#       发表于 2025-4-20 11:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67736439&amp;ptid=2196984" target="_blank">木板春香 发表于 2025-4-18 11:03</a>
+喝茶喝出new type也是太日本了</blockquote>
+给外星生物一点小小的地球生物碱震撼
+
