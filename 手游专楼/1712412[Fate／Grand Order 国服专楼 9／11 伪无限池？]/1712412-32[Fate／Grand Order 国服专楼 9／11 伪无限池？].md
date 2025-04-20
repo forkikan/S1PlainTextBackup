@@ -112,3 +112,14 @@
 新年是双福袋，30吧</blockquote>
 命定30，常规15
 
+
+*****
+
+####  snakeling  
+##### 47112#       发表于 2025-4-20 11:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67740069&amp;ptid=1712412" target="_blank">johnkamsar 发表于 2025-4-20 00:57</a>
+
+命定30，常规15</blockquote>
+不是，我的意思是，新年可以抽两次常规福袋。
+
