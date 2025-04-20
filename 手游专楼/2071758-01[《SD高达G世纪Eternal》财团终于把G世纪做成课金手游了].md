@@ -3658,3 +3658,15 @@ BMKD3WZUX9YL68，国际服邀请码，欢迎互填。
 
 —— 来自 motorola XT2125-4, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  光辉传递者  
+##### 350#       发表于 2025-4-20 18:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67741102&amp;ptid=2071758" target="_blank">kulanyee 发表于 2025-4-20 18:01</a>
+开发机不用太纠结，打永恒之路每个系列都得出</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">现在正是处于为了打永恒之路在拉这一帮活爹的阶段。
+
+—— 来自 Xiaomi 24031PN0DC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
