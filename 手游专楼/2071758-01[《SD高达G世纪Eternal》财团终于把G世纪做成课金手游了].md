@@ -3712,3 +3712,14 @@ BMKD3WZUX9YL68，国际服邀请码，欢迎互填。
 
 —— 来自 LENOVO TB321FU, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  zExs  
+##### 355#       发表于 2025-4-20 22:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67741571&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2025-4-20 21:30</a>
+
+国际服连数据同步都不行，想代充也要有账号吧，找都找不到，要是日服有中文我就玩日服了，起码方便点 ...</blockquote>
+同步数据注册BN账号选非中国区可以
+
