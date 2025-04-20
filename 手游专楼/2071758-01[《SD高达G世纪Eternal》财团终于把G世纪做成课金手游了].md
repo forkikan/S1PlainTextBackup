@@ -3757,3 +3757,11 @@ BMKD3WZUX9YL68，国际服邀请码，欢迎互填。
 
 看来SP化低稀有度的更赚啊，SR自由不SP只有7000攻，SP之后11000攻<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  光辉传递者  
+##### 360#       发表于 2025-4-21 00:37
+
+在想要不要再一次重开。目前看下来如果不追满破gquuuuuux的话完全没有强越永恒之路关卡的必要，能天使+沙扎比+EZ8+X1C+妖刀这五个打主线凶得一批。
+

@@ -2598,3 +2598,14 @@ https://www.reddit.com/r/wizardry/comments/1k1p83t/god_slaye ...</blockquote>
 
 想说平时只玩PC版的，有条件的最好装一下手机版，至少绑一下你google帐号，防止那天手抽，再一个有什么独占bug很多时候可以通过登手机版点两下来解决
 
+
+*****
+
+####  钟于123  
+##### 231#       发表于 2025-4-21 00:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67739454&amp;ptid=2249235" target="_blank">风浦可符香(P.N) 发表于 2025-4-19 21:03</a>
+
+哦对了，之前因为很多人反映steam版诅咒之轮有问题时泥潭正好挂了(新玩家水路三线没全通进第三章再回第二章 ...</blockquote>
+今天用pc打第二章最后一遍的王女线的时候，发现可以切诅咒之轮了。不确定是不是修好了
+

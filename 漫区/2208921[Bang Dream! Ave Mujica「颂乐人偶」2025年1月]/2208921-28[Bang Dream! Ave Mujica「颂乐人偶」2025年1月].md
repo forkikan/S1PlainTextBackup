@@ -1816,3 +1816,13 @@ https://x.com/uis410/status/1913577397670347256?s=46&amp;t=f6AHdCYYYf4AJriUAv-uL
 
 ×
 
+
+*****
+
+####  osore  
+##### 40379#       发表于 2025-4-21 00:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67741539&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-4-20 21:21</a>
+鸡团收藏集超狗团应该稳了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">发卖才第三天日销量已经跌到3w了，颓势尽显
+
