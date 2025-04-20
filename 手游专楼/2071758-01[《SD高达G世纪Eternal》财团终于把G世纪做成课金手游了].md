@@ -3779,3 +3779,62 @@ BMKD3WZUX9YL68，国际服邀请码，欢迎互填。
 
 这是用脚作的？也太不平衡了吧
 
+
+*****
+
+####  kulanyee  
+##### 362#       发表于 2025-4-21 00:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67742097&amp;ptid=2071758" target="_blank">森兰丸 发表于 2025-4-21 00:43</a>
+
+支援攻击每回合只能支援一次
+
+支援攻击角色乘支援攻击机体也只是减轻EN消耗....并不能增加支援回数或者攻击 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有的兄弟。有的
+
+比如UR基神
+
+*****
+
+####  光辉传递者  
+##### 363#       发表于 2025-4-21 00:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67741879&amp;ptid=2071758" target="_blank">ParukiaMKII 发表于 2025-4-20 23:06</a>
+
+没想到SP化后的满破SR自由才是真神</blockquote>
+请细说，这是怎么个真神法？
+
+*****
+
+####  光辉传递者  
+##### 364#       发表于 2025-4-21 00:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67742097&amp;ptid=2071758" target="_blank">森兰丸 发表于 2025-4-21 00:43</a>
+
+支援攻击每回合只能支援一次
+
+支援攻击角色乘支援攻击机体也只是减轻EN消耗....并不能增加支援回数或者攻击 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这就不得不提从机战以来的反应（回避）大师阿姆罗了，在这里面UR是坦加上回避简直欢乐多。
+
+
+*****
+
+####  okey3m  
+##### 365#       发表于 2025-4-21 00:50
+
+抽卡的机体是不是不能进行开发？那抽出来的SR以下的都可以放心解体咯？
+
+*****
+
+####  xinfengj  
+##### 366#       发表于 2025-4-21 00:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67742097&amp;ptid=2071758" target="_blank">森兰丸 发表于 2025-4-21 00:43</a>
+
+支援攻击每回合只能支援一次
+
+支援攻击角色乘支援攻击机体也只是减轻EN消耗....并不能增加支援回数或者攻击 ...</blockquote>
+? 支援回数完全看驾驶员，非ur的只有被动的一技能一次，UR的升到45级三技能有的能加一次。
+
+每回合次数在机体图标上右下角显示，无论用一次消耗一个。
+
