@@ -3740,3 +3740,20 @@ BMKD3WZUX9YL68，国际服邀请码，欢迎互填。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没想到SP化后的满破SR自由才是真神
 
+
+*****
+
+####  森兰丸  
+##### 358#       发表于 2025-4-21 00:11
+
+这游戏现在有啥好用的模拟器么...试了下雷电和蓝叠都很卡
+
+特别是每次机体爆炸的时候都直接卡住不动<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Meiien  
+##### 359#       发表于 2025-4-21 00:14
+
+看来SP化低稀有度的更赚啊，SR自由不SP只有7000攻，SP之后11000攻<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
