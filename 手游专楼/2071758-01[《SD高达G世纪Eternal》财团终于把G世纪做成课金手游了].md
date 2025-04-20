@@ -3640,3 +3640,11 @@ g3是支援系，反而是骡鸭都能开。你说的让鸭妹开怕不是红高
 
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">把钻都用了 结果毛都没出一个
 
+
+*****
+
+####  kulanyee  
+##### 348#       发表于 2025-4-20 18:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">开发机不用太纠结，打永恒之路每个系列都得出
+
