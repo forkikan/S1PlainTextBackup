@@ -3862,3 +3862,16 @@ BMKD3WZUX9YL68，国际服邀请码，欢迎互填。
 
 怎么看起来越来越有机战味了。
 
+
+*****
+
+####  森兰丸  
+##### 369#       发表于 2025-4-21 01:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67742134&amp;ptid=2071758" target="_blank">光辉传递者 发表于 2025-4-21 01:06</a>
+
+说到这个看到其他地方有说法。闪避是被援护单位触发的，援护的那位必定是防御。如果被援护的人闪避成功了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我用的是1.5高达....被动是4000以下的伤害无效化
+
+对面小兵打我都是0伤害.....印象里触发了起码3次以上的援护防御吧
+

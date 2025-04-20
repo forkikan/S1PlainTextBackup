@@ -878,3 +878,20 @@ BOSS战方面，前期几个都挺简单以为会一路简单下去，结果昨�
 
 还是说发售后挖的
 
+
+*****
+
+####  ネロ  
+##### 220#       发表于 2025-4-21 01:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67740535&amp;ptid=2168791" target="_blank">starring 发表于 2025-4-20 11:40</a>
+
+目前18小时打完深渊哀后，真的好玩
+
+地图设计是闭环路，就算走了岔路也能绕回去不用担心跑图浪费时间，而且 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">至少没强制你走路，算比较克制的粪池了
+
+这么多对话提到北方，还有“莉莉丝”等人这个组织，应该是DLC或续作的重点吧
+
+快端上来吧，我已经等不及了
+
