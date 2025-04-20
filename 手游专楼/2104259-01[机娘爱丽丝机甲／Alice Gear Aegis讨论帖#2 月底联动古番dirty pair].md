@@ -54,3 +54,11 @@
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
 
+
+*****
+
+####  madcow  
+##### 1434#       发表于 2025-4-20 10:47
+
+啊？阿嘎PC不是挂在DMM下边的吗，这就不支持WIN10了？
+
