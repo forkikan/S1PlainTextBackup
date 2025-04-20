@@ -3691,3 +3691,11 @@ BMKD3WZUX9YL68，国际服邀请码，欢迎互填。
 
 ×
 
+
+*****
+
+####  洛克萨斯  
+##### 353#       发表于 2025-4-20 21:30
+
+国际服连数据同步都不行，想代充也要有账号吧，找都找不到，要是日服有中文我就玩日服了，起码方便点<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

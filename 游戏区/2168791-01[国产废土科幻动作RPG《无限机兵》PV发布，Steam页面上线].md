@@ -845,3 +845,18 @@ BOSS战方面，前期几个都挺简单以为会一路简单下去，结果昨�
 
 —— 来自 Xiaomi 2407FRK8EC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  ネコカイザー  
+##### 217#       发表于 2025-4-20 21:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67736700&amp;ptid=2168791" target="_blank">溴麝香草酚蓝 发表于 2025-4-18 12:38</a>
+
+很好玩，特别特别魂
+
+地图设计是一大亮点，学到精髓了，让人特别有探索欲
+
+处女作很不错了，期待dlc和续作 ...</blockquote>
+据说几个关卡被挖去湮灭之潮那边了
+
