@@ -3699,3 +3699,16 @@ BMKD3WZUX9YL68，国际服邀请码，欢迎互填。
 
 国际服连数据同步都不行，想代充也要有账号吧，找都找不到，要是日服有中文我就玩日服了，起码方便点<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  光辉传递者  
+##### 354#       发表于 2025-4-20 22:24
+
+<img src="https://pic1.imgdb.cn/item/6805034358cb8da5c8ba26cc.png" referrerpolicy="no-referrer">
+
+可算把这活爹养完了，还是g3好养活，单线开发就完事了。虽然图纸本可以捕获剑炮装空霸，但是强袭特么是双线开发，吐了。
+接下来还有11台神谕要做，难顶。
+
+—— 来自 LENOVO TB321FU, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
