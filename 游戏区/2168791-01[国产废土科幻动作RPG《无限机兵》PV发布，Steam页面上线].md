@@ -823,3 +823,13 @@ BOSS战方面，前期几个都挺简单以为会一路简单下去，结果昨�
 地图设计是闭环路，就算走了岔路也能绕回去不用担心跑图浪费时间，而且 ...</blockquote>
 机兵狩猎者举盾巨好打，但不知道为什么这游戏大伙都喜欢弹反，就是不用盾<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  红魔馆的糖  
+##### 215#       发表于 2025-4-20 20:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67741390&amp;ptid=2168791" target="_blank">Quelaan 发表于 2025-4-20 20:15</a>
+机兵狩猎者举盾巨好打，但不知道为什么这游戏大伙都喜欢弹反，就是不用盾 ...</blockquote>
+这游戏盾牌这个设计充分提现了，只要多一步麻烦的切换操作，玩家就会选择性无视这种系统的设计理论<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
