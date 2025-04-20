@@ -895,3 +895,14 @@ BOSS战方面，前期几个都挺简单以为会一路简单下去，结果昨�
 
 快端上来吧，我已经等不及了
 
+
+*****
+
+####  Sopp  
+##### 221#       发表于 2025-4-21 03:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67741610&amp;ptid=2168791" target="_blank">ネコカイザー 发表于 2025-4-20 21:37</a>
+
+据说几个关卡被挖去湮灭之潮那边了</blockquote>
+？？湮灭不是魔女鬼泣类的游戏吗？
+
