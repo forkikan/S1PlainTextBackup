@@ -219,3 +219,13 @@ ep8，独角兽负责回意外的很不错；ep9，大小姐写了个非常奇�
 角色歌专辑07月23日
 剧场版09月12日
 
+
+*****
+
+####  粉儿alice  
+##### 783#       发表于 2025-4-20 15:49
+
+这集标题就叫ed了 大招不用ed才怪呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+之前东映老古董这样用一年都没有问题 问题是PO已经贴脸开大了说后期歌很多了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
