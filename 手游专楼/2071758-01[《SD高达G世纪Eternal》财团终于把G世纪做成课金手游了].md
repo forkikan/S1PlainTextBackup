@@ -3559,3 +3559,17 @@ ZZFA感觉挺好的。就是飞不了
 
 打了两关H永恒还想着去开发urZ三号机，100万开发费，再见<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  光辉传递者  
+##### 341#       发表于 2025-4-20 14:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67740608&amp;ptid=2071758" target="_blank">windtrack 发表于 2025-4-20 12:26</a>
+仔细研究了下开发机这边
+
+UC</blockquote>
+g3是支援系，反而是骡鸭都能开。你说的让鸭妹开怕不是红高。
+
+—— 来自 LENOVO TB321FU, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
