@@ -3632,3 +3632,11 @@ g3是支援系，反而是骡鸭都能开。你说的让鸭妹开怕不是红高
 开发的时候有提示，吃掉多个机体的情况下，开发出来的按等级最高的机体算 ...</blockquote>
 感谢，应该是我之前直接快速点就没细看。
 
+
+*****
+
+####  qixinno2  
+##### 347#       发表于 2025-4-20 17:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">把钻都用了 结果毛都没出一个
+
