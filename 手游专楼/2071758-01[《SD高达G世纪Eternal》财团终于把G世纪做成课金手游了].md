@@ -3838,3 +3838,14 @@ BMKD3WZUX9YL68，国际服邀请码，欢迎互填。
 
 每回合次数在机体图标上右下角显示，无论用一次消耗一个。
 
+
+*****
+
+####  kulanyee  
+##### 367#       发表于 2025-4-21 00:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67742113&amp;ptid=2071758" target="_blank">okey3m 发表于 2025-4-21 00:50</a>
+
+抽卡的机体是不是不能进行开发？那抽出来的SR以下的都可以放心解体咯？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">有收藏癖的可以合了三星之后再把多余的分解
+
