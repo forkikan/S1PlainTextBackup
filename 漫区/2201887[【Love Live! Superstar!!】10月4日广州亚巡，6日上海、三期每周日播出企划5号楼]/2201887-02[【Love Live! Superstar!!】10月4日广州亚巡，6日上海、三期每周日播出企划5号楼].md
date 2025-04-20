@@ -89,3 +89,16 @@ Liella! 1期生ReviveLive决定举办 ​​​
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  starring  
+##### 1592#       发表于 2025-4-20 20:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67741411&amp;ptid=2201887" target="_blank">csolfans 发表于 2025-4-20 20:23</a>
+
+8月机票好贵我淦
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+HK起飞的话，廉航往返的价格不到2K还是可以
+
