@@ -3478,3 +3478,30 @@ AXRSHN758UX7VU
 
 如果我打通了隐藏的话，那扫荡的时候是按打了隐藏BOSS的进度来核算的吗？
 
+
+*****
+
+####  windtrack  
+##### 335#       发表于 2025-4-20 11:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67740507&amp;ptid=2071758" target="_blank">blue321 发表于 2025-4-20 11:18</a>
+
+请问一下关于HD难度的扫荡
+
+如果我打通了隐藏的话，那扫荡的时候是按打了隐藏BOSS的进度来核算的吗？ ...</blockquote>
+是，你扫荡的时候有的战利品下面会有秘密标签，就是扫了隐藏
+
+*****
+
+####  blue321  
+##### 336#       发表于 2025-4-20 11:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67740515&amp;ptid=2071758" target="_blank">windtrack 发表于 2025-4-20 11:31</a>
+
+是，你扫荡的时候有的战利品下面会有秘密标签，就是扫了隐藏</blockquote>
+谢谢
+
+现在有8W多战斗力但是不太想手操，还是等后面战力高了再回头打隐藏吧
+
+10W战力要求有点高了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -87,7 +87,7 @@
     "lastedit": 1745058420,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2041774": {
     "totalreply": 16972,
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 114476,
+    "totalreply": 114479,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1745119325,
+    "lastedit": 1745120284,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11331,10 +11331,10 @@
     "update": false
   },
   "2071758": {
-    "totalreply": 334,
+    "totalreply": 336,
     "title": "[《SD高达G世纪Eternal》财团终于把G世纪做成课金手游了]",
     "newtitle": "[《SD高达G世纪Eternal》财团终于把G世纪做成课金手游了]",
-    "lastedit": 1745119444,
+    "lastedit": 1745120164,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -11880,10 +11880,10 @@
     "update": false
   },
   "2200882": {
-    "totalreply": 89,
+    "totalreply": 90,
     "title": "[《露娜 Remastered Collection》公布，将于 2025年春 登陆 PS5／PS4。 ​]",
     "newtitle": "[《露娜 Remastered Collection》公布，将于 2025年春 登陆 PS5／PS4。 ​]",
-    "lastedit": 1745087044,
+    "lastedit": 1745120044,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12047,6 +12047,15 @@
     "newtitle": "[就在今天！EDG取得冠军——《瓦罗兰特／无畏契约》讨论专楼，开黑讨论群：684459828]",
     "lastedit": 1745118250,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2246449": {
+    "totalreply": 59,
+    "title": "[大家有因为喜欢立本动漫而在虚拟网络中结识到志同道合的网友，现实里也成好朋友的吗]",
+    "newtitle": "[大家有因为喜欢立本动漫而在虚拟网络中结识到志同道合的网友，现实里也成好朋友的吗]",
+    "lastedit": 1745119925,
+    "category": "漫区",
     "active": true,
     "update": false
   }
