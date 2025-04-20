@@ -110,3 +110,14 @@ HK起飞的话，廉航往返的价格不到2K还是可以
 
 <img src="https://p.sda1.dev/23/987eca5817ea8afc7ae82963419d6ed8/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  csolfans  
+##### 1594#       发表于 2025-4-20 23:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67741467&amp;ptid=2201887" target="_blank">starring 发表于 2025-4-20 20:52</a>
+
+HK起飞的话，廉航往返的价格不到2K还是可以</blockquote>
+目前考虑怎么去香港比较方便
+

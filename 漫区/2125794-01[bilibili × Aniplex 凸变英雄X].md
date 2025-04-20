@@ -891,3 +891,13 @@ X：宮野真守
 
 不知道下个篇章是什么风格了
 
+
+*****
+
+####  没取名啊  
+##### 91#       发表于 2025-4-20 23:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67741421&amp;ptid=2125794" target="_blank">新HGCG 发表于 2025-4-20 20:26</a>
+不过站立的姿势要怎么拉屎呢</blockquote>
+拉还是能拉出来的吧，就是瞄准比较难，擦屁股会比较费纸
+

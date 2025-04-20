@@ -1797,3 +1797,22 @@ https://x.com/uis410/status/1913577397670347256?s=46&amp;t=f6AHdCYYYf4AJriUAv-uL
 
 ×
 
+
+*****
+
+####  堀内爱里衣  
+##### 40378#       发表于 2025-4-20 23:46
+
+<img src="https://ac.stage3rd.com/upfiles/202504/A1BACA1BB@0797650391227.gif" referrerpolicy="no-referrer">
+
+＃11 舞台里から全开コメンタリー: BanG Dream! Ave Mujica 〜禁断の全话ネタバレ解说！〜
+[https://www.youtube.com/watch?v=7rnnLFw318o](https://www.youtube.com/watch?v=7rnnLFw318o)
+
+柿本&amp;三次元staff带你看Ave Mujica #11
+[https://www.bilibili.com/video/BV1gVLwzjE9v](https://www.bilibili.com/video/BV1gVLwzjE9v)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
