@@ -3581,3 +3581,32 @@ g3是支援系，反而是骡鸭都能开。你说的让鸭妹开怕不是红高
 
 nt太废物了，哭
 
+
+*****
+
+####  windtrack  
+##### 343#       发表于 2025-4-20 14:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67740831&amp;ptid=2071758" target="_blank">光辉传递者 发表于 2025-4-20 14:35</a>
+
+g3是支援系，反而是骡鸭都能开。你说的让鸭妹开怕不是红高，还是说奔着驾驶员主动技强行上机？
+
+—— 来 ...</blockquote>
+你看错了吧，G3是战斗机啊
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  光辉传递者  
+##### 344#       发表于 2025-4-20 15:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67740862&amp;ptid=2071758" target="_blank">windtrack 发表于 2025-4-20 14:58</a>
+你看错了吧，G3是战斗机啊</blockquote>
+焯，我的，这下样衰了。
+
+—— 来自 LENOVO TB321FU, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
