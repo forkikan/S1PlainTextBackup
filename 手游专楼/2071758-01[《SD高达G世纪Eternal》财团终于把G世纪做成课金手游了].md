@@ -3648,3 +3648,13 @@ g3是支援系，反而是骡鸭都能开。你说的让鸭妹开怕不是红高
 
 <img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">开发机不用太纠结，打永恒之路每个系列都得出
 
+
+*****
+
+####  Azathoth_shu  
+##### 349#       发表于 2025-4-20 18:08
+
+BMKD3WZUX9YL68，国际服邀请码，欢迎互填。
+
+—— 来自 motorola XT2125-4, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
