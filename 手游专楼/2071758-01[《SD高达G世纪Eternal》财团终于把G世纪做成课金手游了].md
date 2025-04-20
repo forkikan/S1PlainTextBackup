@@ -3505,3 +3505,11 @@ AXRSHN758UX7VU
 
 10W战力要求有点高了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王俊凯  
+##### 337#       发表于 2025-4-20 11:47
+
+新手任务后面中上级者向有很高的战力要求，虽然最后也就是两张ur票
+
