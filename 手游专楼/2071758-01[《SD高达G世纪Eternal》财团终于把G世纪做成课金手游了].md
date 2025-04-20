@@ -3723,3 +3723,20 @@ BMKD3WZUX9YL68，国际服邀请码，欢迎互填。
 国际服连数据同步都不行，想代充也要有账号吧，找都找不到，要是日服有中文我就玩日服了，起码方便点 ...</blockquote>
 同步数据注册BN账号选非中国区可以
 
+
+*****
+
+####  nukecole  
+##### 356#       发表于 2025-4-20 23:05
+
+现在这游戏国际服和日服有什么区别吗？
+
+—— 来自 vivo V2329A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  ParukiaMKII  
+##### 357#       发表于 2025-4-20 23:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没想到SP化后的满破SR自由才是真神
+
