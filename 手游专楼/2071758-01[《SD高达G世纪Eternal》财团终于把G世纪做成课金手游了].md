@@ -3849,3 +3849,16 @@ BMKD3WZUX9YL68，国际服邀请码，欢迎互填。
 抽卡的机体是不是不能进行开发？那抽出来的SR以下的都可以放心解体咯？</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">有收藏癖的可以合了三星之后再把多余的分解
 
+
+*****
+
+####  光辉传递者  
+##### 368#       发表于 2025-4-21 01:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67742114&amp;ptid=2071758" target="_blank">xinfengj 发表于 2025-4-21 00:50</a>
+
+? 支援回数完全看驾驶员，非ur的只有被动的一技能一次，UR的升到45级三技能有的能加一次。（垃圾EX骡三技 ...</blockquote>
+说到这个看到其他地方有说法。闪避是被援护单位触发的，援护的那位必定是防御。如果被援护的人闪避成功了就不消耗盾机的援护次数。那这么看的话最适配盾机的就是79阿姆罗，反应值800+，但是要给他换一台进攻的大炮单位？
+
+怎么看起来越来越有机战味了。
+
