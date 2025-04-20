@@ -3610,3 +3610,14 @@ g3是支援系，反而是骡鸭都能开。你说的让鸭妹开怕不是红高
 
 —— 来自 LENOVO TB321FU, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  leonyang19  
+##### 345#       发表于 2025-4-20 17:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67740868&amp;ptid=2071758" target="_blank">光辉传递者 发表于 2025-4-20 15:01</a>
+
+焯，我的，这下样衰了，升级体力溢出过快昨晚拿去刷完美强袭图纸刷到神志不清，多嘴问一句，像这种三只要 ...</blockquote>
+开发的时候有提示，吃掉多个机体的情况下，开发出来的按等级最高的机体算
+
