@@ -4354,3 +4354,28 @@ SR 自由 ZZ SP化后不错
 SSR开发机里Z WZ 风灵改修都不错</blockquote>
 谢谢啦。
 
+
+*****
+
+####  行政裁定书  
+##### 416#       发表于 2025-4-21 16:10
+
+目前gp和稀有奖章有什么快速获取方式吗？
+
+*****
+
+####  leonyang19  
+##### 417#       发表于 2025-4-21 16:12
+
+国际服的朋友有抽卡券领了，前提得绑定账号
+
+网址：[https://ww.gget-promo.jp/sc](https://ww.gget-promo.jp/sc)
+
+兑换码：GBASE1
+
+GBASE2
+
+TSTGGET1
+
+TSTGGET2
+
