@@ -964,3 +964,14 @@ PS5版战斗有触觉反馈吗？
 游戏是好游戏，地图设计和引导做的很合适，前面不看攻略靠直觉基本能舔个七七八八，侵蚀大剑和收割者也是真 ...</blockquote>
 嘿您猜怎么着？监视塔有特别路线1分钟关闭大眼<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kaornao  
+##### 227#       发表于 2025-4-22 00:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67744902&amp;ptid=2168791" target="_blank">fcssnake 发表于 2025-4-21 23:22</a>
+
+嘿您猜怎么着？监视塔有特别路线1分钟关闭大眼</blockquote>
+一开始就想到可以关，但是看了攻略才知道还有邪道，我是正常打到下层死灵那边红砖关的<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
