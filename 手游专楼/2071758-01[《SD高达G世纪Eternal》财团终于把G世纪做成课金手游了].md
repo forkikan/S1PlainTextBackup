@@ -4542,3 +4542,13 @@ TSTGGET2
 我见有人说节点得和万代ID的地址一致，万代整得太小家子气了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这个时候就该高贵的大湾区蓝卡原生ip启动了，还好防了一手。
 
+
+*****
+
+####  lighttt  
+##### 434#       发表于 2025-4-21 17:28
+
+我香港的地址领到了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">香港节点
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
