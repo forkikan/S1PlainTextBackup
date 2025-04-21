@@ -2875,3 +2875,11 @@ X 上的 スミカ：“Ｇのジークアクス（Ｇレコパロトレス） [
 
 然后再看一遍魔女的战争 预告的省略版<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cayon  
+##### 9624#       发表于 2025-4-21 12:58
+
+至少下集预告的配音是新配的
+
