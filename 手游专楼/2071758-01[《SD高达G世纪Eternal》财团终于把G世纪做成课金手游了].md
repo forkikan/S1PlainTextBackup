@@ -4619,3 +4619,27 @@ TSTGGET2
 
 —— 来自 Xiaomi 24031PN0DC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  mobdom  
+##### 440#       发表于 2025-4-21 19:19
+
+刚开了个号，请问月底是不是有新池子？那我要留到那时候再抽吗？
+顺便留个国际服邀请码
+BHJVKSGCFQ4CBY
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  帕蕾莉亚  
+##### 441#       发表于 2025-4-21 19:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67744223&amp;ptid=2071758" target="_blank">光辉传递者 发表于 2025-4-21 18:41</a>
+很奇怪。跳转到的页面总是叫我重新登陆和重启应用程序，而不是地区问题那个此地区无法使用。
+
+湾区蓝卡试 ...</blockquote>
+代哥什么尿性体验太多次了所以现在跟代哥账号相关操作我都保持全程全局对应帐户地区梯子……实在不行就重新注册吧
+
