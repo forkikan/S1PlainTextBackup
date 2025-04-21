@@ -4793,3 +4793,14 @@ BYD连79都别出去， 就在79当十里坡剑神。小番茄和凤凰可以塞
 
 反正现有内容又不像国内手游那样奖励过时不候。
 
+
+*****
+
+####  windtrack  
+##### 455#       发表于 2025-4-21 23:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67744908&amp;ptid=2071758" target="_blank">光辉传递者 发表于 2025-4-21 23:23</a>
+
+这几天反复重开玩下来感觉三动人保姆梭哈思路没有错，十里坡剑神思路也没有错，那么这俩玩意加一起最笨的思 ...</blockquote>
+不开新主线还有个好就是角色任务只会刷那几个，可以快速刷角色好感拿5级奖励，大概<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
