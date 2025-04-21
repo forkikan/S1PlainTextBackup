@@ -4188,3 +4188,11 @@ ur里那一堆支援机体都能多次支援，打Boss就靠他们了
 
 狗币万代不会知道强自人气高然后第一个版本不给红机吧<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 399#       发表于 2025-4-21 11:30
+
+你们打剧情是自动还是手操的
+
