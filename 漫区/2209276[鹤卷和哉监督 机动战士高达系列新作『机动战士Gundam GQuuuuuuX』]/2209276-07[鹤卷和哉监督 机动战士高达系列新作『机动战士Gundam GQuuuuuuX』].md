@@ -2798,3 +2798,22 @@ X 上的 スミカ：“Ｇのジークアクス（Ｇレコパロトレス） [
 
 <img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暗黑能乐  
+##### 9616#       发表于 2025-4-21 11:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67742652&amp;ptid=2209276" target="_blank">Gysumitka 发表于 2025-4-21 10:55</a>
+
+意味不明</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这还有人去吗。。
+
+
+*****
+
+####  璇瑢子R  
+##### 9617#       发表于 2025-4-21 11:21
+
+日本好像也延长上映了
+
