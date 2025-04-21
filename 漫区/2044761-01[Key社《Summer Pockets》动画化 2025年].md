@@ -11,3 +11,11 @@ OP：https://youtu.be/REuUOArc0W4
 2025年4月</blockquote>
 ED：[https://youtu.be/dD8acaodHRk](https://youtu.be/dD8acaodHRk)
 
+
+*****
+
+####  镜hinata  
+##### 86#       发表于 2025-4-22 01:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">前两话一句话都没的人这集占满一话啊
+

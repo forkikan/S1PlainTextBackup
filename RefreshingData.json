@@ -87,7 +87,7 @@
     "lastedit": 1745246940,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2041774": {
     "totalreply": 16972,
@@ -2232,10 +2232,10 @@
     "update": false
   },
   "2068301": {
-    "totalreply": 15168,
+    "totalreply": 15169,
     "title": "[【绝区零】调率测试结束 咖啡馆 141718492]",
     "newtitle": "[绝区零 咖啡馆 交流群 141718492 更多情报 2024年公布]",
-    "lastedit": 1745248205,
+    "lastedit": 1745255044,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 115670,
+    "totalreply": 115675,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1745254564,
+    "lastedit": 1745255164,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11628,10 +11628,10 @@
     "update": false
   },
   "2187541": {
-    "totalreply": 63,
+    "totalreply": 64,
     "title": "[原创TV动画『Princess Session Orchestra』2025年]",
     "newtitle": "[原创TV动画『公主的管弦乐团 ／ Princess Session Orchestra』2025年]",
-    "lastedit": 1745247245,
+    "lastedit": 1745255164,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11808,10 +11808,10 @@
     "update": false
   },
   "2044761": {
-    "totalreply": 85,
+    "totalreply": 86,
     "title": "[Key社《Summer Pockets》动画化 2025年]",
     "newtitle": "[Key社《Summer Pockets》动画化 2025年]",
-    "lastedit": 1745227086,
+    "lastedit": 1745255164,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11930,7 +11930,7 @@
     "newtitle": "[『花如修罗一般，绽放』动画化 2025年]",
     "lastedit": 1744995847,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2250995": {
@@ -12015,10 +12015,10 @@
     "update": false
   },
   "2188167": {
-    "totalreply": 141,
+    "totalreply": 142,
     "title": "[小高&amp;打越新作，百日战记 最终防卫学园2025.4.24发售，ns／pc]",
     "newtitle": "[小高&amp;打越新作，百日战记 最终防卫学园2025.4.24发售，ns／pc]",
-    "lastedit": 1745250125,
+    "lastedit": 1745255285,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12123,10 +12123,10 @@
     "update": false
   },
   "2251170": {
-    "totalreply": 101,
+    "totalreply": 102,
     "title": "[steam扩列🙂]",
     "newtitle": "[steam扩列🙂]",
-    "lastedit": 1745248685,
+    "lastedit": 1745255285,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12183,6 +12183,6 @@
     "lastedit": 1745241780,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   }
 }
