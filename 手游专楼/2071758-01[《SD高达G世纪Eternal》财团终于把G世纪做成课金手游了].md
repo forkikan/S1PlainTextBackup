@@ -4444,3 +4444,46 @@ TSTGGET2
 
 又是歧视香港地区？万代什么鬼
 
+
+*****
+
+####  诗怀雅  
+##### 424#       发表于 2025-4-21 16:58
+
+合了流星自由正义
+
+简直狗屎。。。
+
+要重新练了
+
+*****
+
+####  帕蕾莉亚  
+##### 425#       发表于 2025-4-21 17:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67743850&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2025-4-21 16:48</a>
+
+我的号游戏里可以同步啊，为啥这个就用不了，太怪了</blockquote>
+清cookie或者浏览器开新用户，开全局梯子重新登陆
+
+
+*****
+
+####  洛克萨斯  
+##### 426#       发表于 2025-4-21 17:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67743898&amp;ptid=2071758" target="_blank">帕蕾莉亚 发表于 2025-4-21 17:00</a>
+
+清cookie或者浏览器开新用户，开全局梯子重新登陆</blockquote>
+还是不行
+
+*****
+
+####  光辉传递者  
+##### 427#       发表于 2025-4-21 17:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67743898&amp;ptid=2071758" target="_blank">帕蕾莉亚 发表于 2025-4-21 17:00</a>
+
+清cookie或者浏览器开新用户，开全局梯子重新登陆</blockquote>
+也还是不行。发的什么颠？
+
