@@ -4166,3 +4166,25 @@ ur里那一堆支援机体都能多次支援，打Boss就靠他们了
 
 4.30强袭自由卡池+1个常驻的新的SEED剧本
 
+
+*****
+
+####  hayate0079  
+##### 397#       发表于 2025-4-21 11:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67742704&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-4-21 11:06</a>
+
+说的是过阵子肯定会出的限时up池吧，不知道up完是直接进普池还是过一阵子进
+
+单抽券应该是只能用在普池（ ...</blockquote>
+国际服好像并没有有偿这一说，可能是通用的也说不定，单抽卷应该就只有普池了
+
+希望是UP完进普池或者直接进保底池
+
+*****
+
+####  12481632  
+##### 398#       发表于 2025-4-21 11:15
+
+狗币万代不会知道强自人气高然后第一个版本不给红机吧<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
