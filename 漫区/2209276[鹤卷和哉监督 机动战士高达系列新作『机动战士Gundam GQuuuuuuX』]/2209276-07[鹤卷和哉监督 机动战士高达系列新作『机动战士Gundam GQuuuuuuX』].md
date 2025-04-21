@@ -3058,3 +3058,13 @@ https://x.com/mn38ka/status/1913952406636761286
 
 ×
 
+
+*****
+
+####  璇瑢子R  
+##### 9642#       发表于 2025-4-21 21:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67743254&amp;ptid=2209276" target="_blank">Viteeee 发表于 2025-4-21 13:32</a>
+居然是鸭妹代替阿姆罗当上联邦ACE了吗？可惜这段TV没剪出来要不然还可以再笑三分钟的 ...</blockquote>
+所以鸭妹战后是什么样的待遇呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
