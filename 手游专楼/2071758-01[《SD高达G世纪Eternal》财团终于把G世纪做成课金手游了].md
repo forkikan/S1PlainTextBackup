@@ -4073,3 +4073,50 @@ SR自由基本上造出来就是打种的永恒吧，看你是不是这么急着
 
 这是要出新作品的节奏吗
 
+
+*****
+
+####  棍机凹升龙  
+##### 388#       发表于 2025-4-21 10:39
+
+主线通完了之后全部可以扫荡还是挺爽的,剩下就是凑一些SSR去打永恒然后等活动。不知道上级的UR卷能不能留到以后通常池进新UR再抽
+
+想GB换完商店的每月商品但操作有点难顶，就不能一键买999部坦克么<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">你分解都做批量了开发怎么只能+1+1
+
+*****
+
+####  rockroxas  
+##### 389#       发表于 2025-4-21 10:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67742513&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2025-4-21 10:06</a>
+
+为什么飞升自由不算种系机体？</blockquote>
+因为是剧场版的（
+
+哪怕强自都不算种，算种命吧
+
+不过卡碧尼Z跟ZZ分开才是最离谱的
+
+*****
+
+####  blue321  
+##### 390#       发表于 2025-4-21 10:41
+
+sr自由评价那么高？之前开图鉴给整流星装了
+回头重新搞满突破要花不少时间啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  邪恶的shah  
+##### 391#       发表于 2025-4-21 10:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67742097&amp;ptid=2071758" target="_blank">森兰丸 发表于 2025-4-21 00:43</a>
+
+支援攻击每回合只能支援一次
+
+支援攻击角色乘支援攻击机体也只是减轻EN消耗....并不能增加支援回数或者攻击 ...</blockquote>
+ur里那一堆支援机体都能多次支援，打Boss就靠他们了
+

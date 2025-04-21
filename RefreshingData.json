@@ -87,7 +87,7 @@
     "lastedit": 1745198340,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2041774": {
     "totalreply": 16972,
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 13523,
+    "totalreply": 13524,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》4.17 回头是岸]",
-    "lastedit": 1745202725,
+    "lastedit": 1745203684,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 114971,
+    "totalreply": 114972,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1745202604,
+    "lastedit": 1745203565,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10827,10 +10827,10 @@
     "update": false
   },
   "2238336": {
-    "totalreply": 1184,
+    "totalreply": 1185,
     "title": "[任天堂病 栋12楼，山雨欲来风满楼，新年新机新病 栋！／剑指1.16！]",
     "newtitle": "[任天堂病 栋12楼，山雨欲来风满楼，新年新机新病 栋！／传闻ns直面会本周]",
-    "lastedit": 1745202966,
+    "lastedit": 1745203325,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11304,10 +11304,10 @@
     "update": false
   },
   "2163103": {
-    "totalreply": 83,
+    "totalreply": 84,
     "title": "[长井龙雪×冈田麿里×田中将贺 剧场动画『ふれる。／ 触碰你』2024年秋]",
     "newtitle": "[长井龙雪×冈田麿里×田中将贺 剧场动画『ふれる。／ 触碰你』2024年秋]",
-    "lastedit": 1745156164,
+    "lastedit": 1745203565,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11331,10 +11331,10 @@
     "update": false
   },
   "2071758": {
-    "totalreply": 387,
+    "totalreply": 391,
     "title": "[《SD高达G世纪Eternal》财团终于把G世纪做成课金手游了]",
     "newtitle": "[《SD高达G世纪Eternal》财团终于把G世纪做成课金手游了]",
-    "lastedit": 1745202365,
+    "lastedit": 1745203684,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -11421,10 +11421,10 @@
     "update": false
   },
   "2184766": {
-    "totalreply": 321,
+    "totalreply": 322,
     "title": "[DOOM：黑暗时代 发布，2025／5／15发售，xs／pc／ps5，首发xgp]",
     "newtitle": "[DOOM：黑暗时代 发布，2025／5／15发售，xs／pc／ps5，首发xgp]",
-    "lastedit": 1745201765,
+    "lastedit": 1745203324,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11466,10 +11466,10 @@
     "update": false
   },
   "2176537": {
-    "totalreply": 69,
+    "totalreply": 70,
     "title": "[「mono」TV动画化]",
     "newtitle": "[「mono」TV动画化]",
-    "lastedit": 1745202604,
+    "lastedit": 1745203566,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11628,10 +11628,10 @@
     "update": false
   },
   "2187541": {
-    "totalreply": 55,
+    "totalreply": 56,
     "title": "[原创TV动画『Princess Session Orchestra』2025年]",
     "newtitle": "[原创TV动画『公主的管弦乐团 ／ Princess Session Orchestra』2025年]",
-    "lastedit": 1745190364,
+    "lastedit": 1745203566,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11736,10 +11736,10 @@
     "update": false
   },
   "2251014": {
-    "totalreply": 227,
+    "totalreply": 229,
     "title": "[超级机器人大战Y 25年内发售 NS／PS5／STEAM]",
     "newtitle": "[超级机器人大战Y 25年8月28日发售 NS／PS5／STEAM]",
-    "lastedit": 1745202725,
+    "lastedit": 1745203444,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12110,6 +12110,15 @@
     "newtitle": "[NS2出了之后是不是ps在日本更难了]",
     "lastedit": 1745200925,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2251101": {
+    "totalreply": 42,
+    "title": "[以后别的高达正统作是不是也能搞这种what if剧情]",
+    "newtitle": "[以后别的高达正统作是不是也能搞这种what if剧情]",
+    "lastedit": 1745203566,
+    "category": "漫区",
     "active": true,
     "update": false
   }
