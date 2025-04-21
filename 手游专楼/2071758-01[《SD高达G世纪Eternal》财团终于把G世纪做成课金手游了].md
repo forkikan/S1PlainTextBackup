@@ -4216,3 +4216,13 @@ ur里那一堆支援机体都能多次支援，打Boss就靠他们了
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  无念  
+##### 402#       发表于 2025-4-21 11:57
+
+话说这龙骑兵强袭不会是开发隐藏吧？我还猜是闪电背包强袭或者iwsp嫣红呢
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
