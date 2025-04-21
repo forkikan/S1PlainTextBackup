@@ -3934,3 +3934,35 @@ sr自由的武器配置好，自带map和五彩炮，sp化后的攻击力在sr�
 小号现在在重开想试试不一样的打法，能天使， ...</blockquote>
 援护意义是给菜刀叠buff，永恒之路hard就是靠支援一轮前期垫刀上buff+菜刀机上去一刀秒BOSS的
 
+
+*****
+
+####  光辉传递者  
+##### 375#       发表于 2025-4-21 08:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67742323&amp;ptid=2071758" target="_blank">马桶3 发表于 2025-4-21 08:52</a>
+
+援护意义是给菜刀叠buff，永恒之路hard就是靠支援一轮前期垫刀上buff+菜刀机上去一刀秒BOSS的 ...</blockquote>
+永恒之路不是限制作品吗？这种情况下岂不是还得给seed找个菜刀机。UC的援护一大堆就无所谓了。
+
+*****
+
+####  马桶3  
+##### 376#       发表于 2025-4-21 08:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67742334&amp;ptid=2071758" target="_blank">光辉传递者 发表于 2025-4-21 08:56</a>
+
+永恒之路不是限制作品吗？这种情况下岂不是还得给seed找个菜刀机。UC的援护一大堆就无所谓了。 ...</blockquote>
+是的，所以才说要练SR自由，因为SR自由是菜刀<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  光辉传递者  
+##### 377#       发表于 2025-4-21 09:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67742336&amp;ptid=2071758" target="_blank">马桶3 发表于 2025-4-21 08:57</a>
+
+是的，所以才说要练SR自由，因为SR自由是菜刀</blockquote>
+明白了。机师方面用谁？UR基和SR基互换自由还是？
+
