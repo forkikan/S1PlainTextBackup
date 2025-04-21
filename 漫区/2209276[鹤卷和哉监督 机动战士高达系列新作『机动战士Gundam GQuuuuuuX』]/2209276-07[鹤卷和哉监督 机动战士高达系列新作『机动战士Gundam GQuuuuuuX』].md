@@ -3068,3 +3068,11 @@ https://x.com/mn38ka/status/1913952406636761286
 居然是鸭妹代替阿姆罗当上联邦ACE了吗？可惜这段TV没剪出来要不然还可以再笑三分钟的 ...</blockquote>
 所以鸭妹战后是什么样的待遇呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bandage_n2_ki  
+##### 9643#       发表于 2025-4-21 21:24
+
+日本那边影院周边3300两本的册子韩国影院直接送了吗<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">而且看封面像翻译版…
+
