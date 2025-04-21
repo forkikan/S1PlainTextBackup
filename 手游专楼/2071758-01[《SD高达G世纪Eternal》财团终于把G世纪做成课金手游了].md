@@ -4021,3 +4021,27 @@ SP化后的SR自由确实可以，100J后记得11000攻，我现在小号没SP�
 请细说，这是怎么个真神法？</blockquote>
 因为是攻击型机体，攻击数值比UR自由高，然后突破成本低，不过需要吃SP。武器面板伤害高，地图炮伤害也高，SP后纯纯的数值怪
 
+
+*****
+
+####  马桶3  
+##### 383#       发表于 2025-4-21 09:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67742350&amp;ptid=2071758" target="_blank">光辉传递者 发表于 2025-4-21 09:02</a>
+
+明白了。机师方面用谁？UR基和SR基互换自由还是？</blockquote>
+目前是只能上SR驾驶员，但是SR数值不行，如果愿意憋一下就等活动送SSR驾驶员
+
+
+*****
+
+####  光辉传递者  
+##### 384#       发表于 2025-4-21 10:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67742381&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-4-21 09:19</a>
+
+SR自由基本上造出来就是打种的永恒吧，看你是不是这么急着打了
+
+卡池有剑装灾厄，开发图没完以后可能有更好 ...</blockquote>
+流星正义的问题和完美强袭其实是一致的，就是seed这个开发系谱太坑，很难靠捕获来点，变相成为吞金兽。我大号完美强袭是满破的，合出来累得够呛。现在我都怀疑是不是该大号在神谕图纸本打地铺做他两台满破了。
+
