@@ -4772,3 +4772,24 @@ BHJVKSGCFQ4CBY
 
 ×
 
+
+*****
+
+####  okey3m  
+##### 453#       发表于 2025-4-21 23:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67744853&amp;ptid=2071758" target="_blank">kulanyee 发表于 2025-4-21 22:53</a>
+角色要求任务是捕获一台W机体，用了我240体力也是绝了</blockquote>
+接了两次这种任务，反复刷第一关或第二关三四次基本都能捕获成功
+
+*****
+
+####  光辉传递者  
+##### 454#       发表于 2025-4-21 23:23
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这几天反复重开玩下来感觉三动人保姆梭哈思路没有错，十里坡剑神思路也没有错，那么这俩玩意加一起最笨的思路开局是啥？我姑且讲一个博大伙一笑。
+
+BYD连79都别出去， 就在79当十里坡剑神。小番茄和凤凰可以塞进一队（作品队）位置，剩五个位置你可以练能天使和总帅两个三动人，还剩三个位置可以练三个支援机师。练够6W战力直接上79Hard难度刷hard发育小钱钱和轮换自由队的老板位练各路机师，当自闭流机战玩。
+
+反正现有内容又不像国内手游那样奖励过时不候。
+

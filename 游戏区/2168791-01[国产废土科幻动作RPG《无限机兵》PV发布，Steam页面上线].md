@@ -953,3 +953,14 @@ PS5版战斗有触觉反馈吗？
 
 —— 来自 Xiaomi 23078RKD5C, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  fcssnake  
+##### 226#       发表于 2025-4-21 23:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67744147&amp;ptid=2168791" target="_blank">Kaornao 发表于 2025-4-21 18:12</a>
+
+游戏是好游戏，地图设计和引导做的很合适，前面不看攻略靠直觉基本能舔个七七八八，侵蚀大剑和收割者也是真 ...</blockquote>
+嘿您猜怎么着？监视塔有特别路线1分钟关闭大眼<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
