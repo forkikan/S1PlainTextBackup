@@ -4063,3 +4063,13 @@ SR自由基本上造出来就是打种的永恒吧，看你是不是这么急着
 
 为什么飞升自由不算种系机体？<img src="https://static.stage1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hayate0079  
+##### 387#       发表于 2025-4-21 10:24
+
+概要: 「SDガンダム ジージェネレーション エターナル」のために制作された「機動戦士ガンダムSEED Recollection」では、TVシリーズ「機動戦士ガンダムSEED」と続編「機動戦士ガンダムSEED DESTINY」の間の出来事が描かれます。
+
+这是要出新作品的节奏吗
+
