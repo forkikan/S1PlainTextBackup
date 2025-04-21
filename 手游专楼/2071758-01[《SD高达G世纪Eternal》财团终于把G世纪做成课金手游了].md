@@ -4204,3 +4204,15 @@ ur里那一堆支援机体都能多次支援，打Boss就靠他们了
 
 开局把咸鱼机体往后拉，然后挂自动
 
+
+*****
+
+####  无念  
+##### 401#       发表于 2025-4-21 11:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67742733&amp;ptid=2071758" target="_blank">12481632 发表于 2025-4-21 11:15</a>
+狗币万代不会知道强自人气高然后第一个版本不给红机吧</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

@@ -911,3 +911,16 @@ X：宮野真守
 拉还是能拉出来的吧，就是瞄准比较难，擦屁股会比较费纸</blockquote>
 呃……不如用纸尿裤……
 
+
+*****
+
+####  新HGCG  
+##### 93#       发表于 2025-4-21 11:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67742005&amp;ptid=2125794" target="_blank">没取名啊 发表于 2025-4-20 23:51</a>
+
+拉还是能拉出来的吧，就是瞄准比较难，擦屁股会比较费纸</blockquote>
+感觉略凄惨
+
+妹子真的是好心
+
