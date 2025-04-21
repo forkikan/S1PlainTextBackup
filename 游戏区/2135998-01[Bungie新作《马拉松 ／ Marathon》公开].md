@@ -725,3 +725,13 @@ tiger引擎太落伍了，不管是渲染管线还是开发工具
 
 实机画面这土掉渣的美术是怎么回事
 
+
+*****
+
+####  樽——見  
+##### 74#       发表于 2025-4-21 20:06
+
+[https://www.youtube.com/watch?v=NZqoVNjfOHo](https://www.youtube.com/watch?v=NZqoVNjfOHo)
+
+这个视频讲的不错 玩法设计美术都概括了
+
