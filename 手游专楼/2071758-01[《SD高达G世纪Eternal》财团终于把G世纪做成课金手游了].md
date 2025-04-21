@@ -4128,3 +4128,41 @@ ur里那一堆支援机体都能多次支援，打Boss就靠他们了
 
 有没有日服的朋友讲讲，送的劵和UR票能抽限定池吗？
 
+
+*****
+
+####  rockroxas  
+##### 393#       发表于 2025-4-21 10:58
+
+群里有人问敌人援攻多怎么处理，一开始想说射程外逐个打光的，群友说处理不来之后再想想好像必闪碰瓷更快更方便（
+
+*****
+
+####  hayate0079  
+##### 394#       发表于 2025-4-21 11:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67742644&amp;ptid=2071758" target="_blank">邪恶的shah 发表于 2025-4-21 10:51</a>
+
+有没有日服的朋友讲讲，送的劵和UR票能抽限定池吗？</blockquote>
+日服那个限定是10连保底个随机UR，并不是限定池把，只不过是有偿钻限定
+
+
+*****
+
+####  rockroxas  
+##### 395#       发表于 2025-4-21 11:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67742680&amp;ptid=2071758" target="_blank">hayate0079 发表于 2025-4-21 11:02</a>
+
+日服那个限定是10连保底个随机UR，并不是限定池把，只不过是有偿钻限定</blockquote>
+说的是过阵子肯定会出的限时up池吧，不知道up完是直接进普池还是过一阵子进
+
+单抽券应该是只能用在普池（高级机体补给）
+
+*****
+
+####  hayate0079  
+##### 396#       发表于 2025-4-21 11:07
+
+4.30强袭自由卡池+1个常驻的新的SEED剧本
+
