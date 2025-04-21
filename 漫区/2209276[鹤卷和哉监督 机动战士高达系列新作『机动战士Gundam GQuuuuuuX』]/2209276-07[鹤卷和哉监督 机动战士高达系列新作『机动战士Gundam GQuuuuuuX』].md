@@ -2943,3 +2943,11 @@ X 上的 スミカ：“Ｇのジークアクス（Ｇレコパロトレス） [
 那两分钟是夏亚先和鸭妹过了几招，砍掉了轻加农的一只手臂，然后鸭妹溜了，不知道什么东西和阿尔法赛克谬 ...</blockquote>
 居然是鸭妹代替阿姆罗当上联邦ACE了吗？可惜这段TV没剪出来要不然还可以再笑三分钟的<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  秋月孝三  
+##### 9631#       发表于 2025-4-21 13:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">已经有人考据出来夏亚招待绿叔叔用的酒是拉菲了
+
