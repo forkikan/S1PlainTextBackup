@@ -2825,3 +2825,17 @@ X 上的 スミカ：“Ｇのジークアクス（Ｇレコパロトレス） [
 
 夏利亚本来是紫婆派过来的吧，现在指不定还跟紫婆那边有什么联系<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 9619#       发表于 2025-4-21 12:34
+
+ 本帖最后由 岸浪白野 于 2025-4-21 12:37 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67742880&amp;ptid=2209276" target="_blank">ykyin09 发表于 2025-4-21 11:43</a>
+
+夏利亚本来是紫婆派过来的吧，现在指不定还跟紫婆那边有什么联系</blockquote>
+是基连忌讳紫婆的势力扩张被基连派去安插在紫婆的部队，基连还要假问夏利亚知道我这样做的目的是什么吗，夏利亚心领神会说句我并不理解但我会努力去尝试理解
+
+夏利亚知道深陷政治漩涡中间这一点觉得痛苦
+
