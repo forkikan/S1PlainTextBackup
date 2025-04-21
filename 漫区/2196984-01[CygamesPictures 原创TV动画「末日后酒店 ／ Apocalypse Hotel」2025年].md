@@ -745,3 +745,14 @@ TVアニメ　#アポカリプスホテル
 <img src="https://wx3.sinaimg.cn/large/a62f5f4bgy1i0k4y5v133j20oh0pmacn.jpg" referrerpolicy="no-referrer">
 <img src="https://wx4.sinaimg.cn/large/a62f5f4bgy1i0k4y5fpvaj20wi0nz78l.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 71#         楼主| 发表于 2025-4-21 17:08
+
+第2話に登場した旅人宇宙人のセリフの音は、台本上に細かい指定がなく演じられた野津山幸宏さんが考えたものです。
+
+どんな意味の言葉を喋っているのか、想像してみながら改めて第2話をご視聴してみてはいかがでしょうか？
+<img src="https://p.sda1.dev/23/1ed462eaf0bfb71a091b29035e4d2bfc/20250421_170613.jpg" referrerpolicy="no-referrer">
+
