@@ -87,7 +87,7 @@
     "lastedit": 1745246940,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2041774": {
     "totalreply": 16972,
@@ -752,7 +752,7 @@
     "newtitle": "[『JOJO的奇妙冒险』动画楼 ／ 第七部飙马野郎 动画制作决定]",
     "lastedit": 1744997404,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2010578": {
@@ -11349,10 +11349,10 @@
     "update": false
   },
   "2196270": {
-    "totalreply": 75,
+    "totalreply": 77,
     "title": "[『赛马娘 芦毛灰姑娘』TV动画化 2025年]",
     "newtitle": "[『赛马娘 芦毛灰姑娘』TV动画化 2025年]",
-    "lastedit": 1745244845,
+    "lastedit": 1745256845,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11439,10 +11439,10 @@
     "update": false
   },
   "2236215": {
-    "totalreply": 113,
+    "totalreply": 114,
     "title": "[原创TV动画「日々は過ぎれど飯うまし」]",
     "newtitle": "[原创TV动画『时光流逝 饭菜依旧美味』]",
-    "lastedit": 1745249044,
+    "lastedit": 1745256845,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12114,10 +12114,10 @@
     "update": false
   },
   "2251101": {
-    "totalreply": 48,
+    "totalreply": 49,
     "title": "[以后别的高达正统作是不是也能搞这种what if剧情]",
     "newtitle": "[以后别的高达正统作是不是也能搞这种what if剧情]",
-    "lastedit": 1745236565,
+    "lastedit": 1745256844,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12183,7 +12183,7 @@
     "lastedit": 1745241780,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2251159": {
     "totalreply": 42,
