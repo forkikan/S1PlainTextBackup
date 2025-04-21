@@ -87,7 +87,7 @@
     "lastedit": 1745246940,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2041774": {
     "totalreply": 16972,
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 13673,
+    "totalreply": 13677,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》4.17 回头是岸]",
-    "lastedit": 1745246645,
+    "lastedit": 1745247604,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -6327,10 +6327,10 @@
     "update": false
   },
   "2071168": {
-    "totalreply": 2260,
+    "totalreply": 2262,
     "title": "[逸剑风云决，类hd-2d风格武侠rpg／9.15发售]",
     "newtitle": "[逸剑风云决，类hd-2d风格武侠rpg，9.15发售／烟尘回响24.10.25更新]",
-    "lastedit": 1745245565,
+    "lastedit": 1745247724,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -10476,10 +10476,10 @@
     "update": false
   },
   "2208921": {
-    "totalreply": 40403,
+    "totalreply": 40404,
     "title": "[Bang Dream! Ave Mujica「颂乐人偶」2025年1月]",
     "newtitle": "[BanG Dream! Ave Mujica「颂乐人偶」2025年1月]",
-    "lastedit": 1745247244,
+    "lastedit": 1745247843,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11331,10 +11331,10 @@
     "update": false
   },
   "2071758": {
-    "totalreply": 451,
+    "totalreply": 452,
     "title": "[《SD高达G世纪Eternal》财团终于把G世纪做成课金手游了]",
     "newtitle": "[《SD高达G世纪Eternal》财团终于把G世纪做成课金手游了]",
-    "lastedit": 1745247004,
+    "lastedit": 1745247604,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12123,19 +12123,19 @@
     "update": false
   },
   "2251170": {
-    "totalreply": 99,
+    "totalreply": 100,
     "title": "[steam扩列🙂]",
     "newtitle": "[steam扩列🙂]",
-    "lastedit": 1745240284,
+    "lastedit": 1745247964,
     "category": "游戏区",
     "active": true,
     "update": false
   },
   "2251156": {
-    "totalreply": 89,
+    "totalreply": 90,
     "title": "[《苏丹的游戏》大家觉得热度怎么样啊？]",
     "newtitle": "[《苏丹的游戏》大家觉得热度怎么样啊？]",
-    "lastedit": 1745246764,
+    "lastedit": 1745247724,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12183,6 +12183,6 @@
     "lastedit": 1745241780,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   }
 }

@@ -2104,3 +2104,14 @@ https://x.com/uis410/status/1913577397670347256?s=46&amp;t=f6AHdCYYYf4AJriUAv-uL
 确实，之前睦头播到第10集，我之后就有疑惑，这说好的5神人，睦头虽然中间也DID了，但最后治好了啊，大家都 ...</blockquote>
 话说莫女士是怎么“死的”或者说什么时候死的，我总感觉看漏了什么<img src="https://static.stage1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  路人庚  
+##### 40404#       发表于 2025-4-21 22:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67744848&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-4-21 22:51</a>
+
+话说莫女士是怎么“死的”或者说什么时候死的，我总感觉看漏了什么</blockquote>
+ep10香草祥子之歌后半，在心像空间里自己跳下去找黄瓜睦的这个时候死了
+
