@@ -1826,3 +1826,231 @@ https://x.com/uis410/status/1913577397670347256?s=46&amp;t=f6AHdCYYYf4AJriUAv-uL
 鸡团收藏集超狗团应该稳了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">发卖才第三天日销量已经跌到3w了，颓势尽显
 
+
+*****
+
+####  钦念以忱  
+##### 40380#       发表于 2025-4-20 15:33
+
+确实，之前睦头播到第10集，我之后就有疑惑，这说好的5神人，睦头虽然中间也DID了，但最后治好了啊，大家都神人就你不是，是不是有些不太合群。直到访谈出来锤了双死，这个我其实是有预料的，还补充说了新睦头没有主人格，恢复到小时候的“多首怪物”状态了。
+
+*****
+
+####  堀内爱里衣  
+##### 40381#       发表于 2025-4-20 15:36
+
+[https://x.com/bang_dream_info/status/1913844636487160024](https://x.com/bang_dream_info/status/1913844636487160024)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  aptx8285144  
+##### 40382#       发表于 2025-4-20 15:41
+
+说是五神人，海林这都算被“轻轻放过”了，她那个主场的病态时间和厚度（双人格撕逼了那么久，最后都搞出人命来，大瞄前期不断搞事，剩下两个更不用说了）还是比不了其他几个
+
+*****
+
+####  航母掉头  
+##### 40383#       发表于 2025-4-20 15:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67740906&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-4-20 15:33</a>
+确实，之前睦头播到第10集，我之后就有疑惑，这说好的5神人，睦头虽然中间也DID了，但最后治好了啊，大家都 ...</blockquote>
+长崎女士敦刻尔克大撤退的时候也没想到会是见小墨最后一面吧
+
+*****
+
+####  6030sylar  
+##### 40384#       发表于 2025-4-20 18:46
+
+啊啊啊
+
+啊啊啊
+
+啊啊啊
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  6030sylar  
+##### 40385#       发表于 2025-4-20 18:51
+
+[https://tieba.baidu.com/p/9657243741](https://tieba.baidu.com/p/9657243741)
+[https://tieba.baidu.com/p/9657132602](https://tieba.baidu.com/p/9657132602)
+
+姐姐姐姐我好喜欢你啊
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 40386#       发表于 2025-4-20 21:21
+
+鸡团收藏集超狗团应该稳了
+
+*****
+
+####  社美胡  
+##### 40387#       发表于 2025-4-20 23:13
+
+[https://x.com/yanderesword/status/1913682572967887314/photo/1](https://x.com/yanderesword/status/1913682572967887314/photo/1)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  社美胡  
+##### 40388#       发表于 2025-4-20 23:14
+
+[https://x.com/gooseprince21/status/1913938625555038598/photo/1](https://x.com/gooseprince21/status/1913938625555038598/photo/1)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  社美胡  
+##### 40389#       发表于 2025-4-20 23:16
+
+[https://x.com/xuan_wine/status/1913553830866010247/photo/1](https://x.com/xuan_wine/status/1913553830866010247/photo/1)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  社美胡  
+##### 40390#       发表于 2025-4-20 23:18
+
+[https://x.com/hero45439083942/status/1913949845703868665](https://x.com/hero45439083942/status/1913949845703868665)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  社美胡  
+##### 40391#       发表于 2025-4-20 23:22
+
+[https://x.com/TUTAIiiiii/status/1913955224898945147/photo/1](https://x.com/TUTAIiiiii/status/1913955224898945147/photo/1)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  社美胡  
+##### 40392#       发表于 2025-4-20 23:23
+
+[https://x.com/Bulkobon27/status/1913678660869009557](https://x.com/Bulkobon27/status/1913678660869009557)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  社美胡  
+##### 40393#       发表于 2025-4-20 23:23
+
+[https://x.com/clelo678/status/1913899817438449671/photo/1](https://x.com/clelo678/status/1913899817438449671/photo/1)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  社美胡  
+##### 40394#       发表于 2025-4-20 23:26
+
+[https://x.com/hanamukes/status/1913778393801203866/photo/1](https://x.com/hanamukes/status/1913778393801203866/photo/1)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  社美胡  
+##### 40395#       发表于 2025-4-20 23:26
+
+[https://x.com/kimiJUNN/status/1913559199449244152/photo/1](https://x.com/kimiJUNN/status/1913559199449244152/photo/1)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  社美胡  
+##### 40396#       发表于 2025-4-20 23:29
+
+[https://x.com/bucishiro/status/1913638823273382172/photo/1](https://x.com/bucishiro/status/1913638823273382172/photo/1)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  堀内爱里衣  
+##### 40397#       发表于 2025-4-20 23:46
+
+<img src="https://ac.stage3rd.com/upfiles/202504/A1BACA1BB@0797650391227.gif" referrerpolicy="no-referrer">
+
+＃11 舞台里から全开コメンタリー: BanG Dream! Ave Mujica 〜禁断の全话ネタバレ解说！〜
+[https://www.youtube.com/watch?v=7rnnLFw318o](https://www.youtube.com/watch?v=7rnnLFw318o)
+
+柿本&amp;三次元staff带你看Ave Mujica #11
+[https://www.bilibili.com/video/BV1gVLwzjE9v](https://www.bilibili.com/video/BV1gVLwzjE9v)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  osore  
+##### 40398#       发表于 2025-4-21 00:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67741539&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-4-20 21:21</a>
+鸡团收藏集超狗团应该稳了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">发卖才第三天日销量已经跌到3w了，颓势尽显
+
+*****
+
+####  syndrome2032  
+##### 40399#       发表于 2025-4-21 08:34
+
+哦，牛批。柿本还真说初音的身份爆出去老登就完蛋了。
+

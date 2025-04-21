@@ -3896,3 +3896,14 @@ sr自由的武器配置好，自带map和五彩炮，sp化后的攻击力在sr�
 sr自由的武器配置好，自带map和五彩炮，sp化后的攻击力在sr红机里是最高一档基本和ssr红机一个水平，大概在 ...</blockquote>
 受教了。但SP目前能获取的数量和获取渠道都不多吧？感觉还是蛮宝贵的资源？
 
+
+*****
+
+####  马桶3  
+##### 372#       发表于 2025-4-21 08:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67742267&amp;ptid=2071758" target="_blank">光辉传递者 发表于 2025-4-21 08:23</a>
+
+受教了。但SP目前能获取的数量和获取渠道都不多吧？感觉还是蛮宝贵的资源？ ...</blockquote>
+这些事情是为了打后续锁系列高难，图还没推完的话UR大队混排推图优先
+
