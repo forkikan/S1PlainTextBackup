@@ -727,3 +727,21 @@ TVアニメ　#アポカリプスホテル
 <img src="https://p.sda1.dev/23/e222263037ef6663623835626730e4b0/20250420_224417.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/23/a685837abd959e5777149f82d5711365/20250420_224418.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NBXX  
+##### 70#       发表于 2025-4-21 12:49
+
+来自本作演出 廖程芝 的微博：[https://weibo.com/2788122443/PnIJI0oWG?refer_flag=1001030103_](https://weibo.com/2788122443/PnIJI0oWG?refer_flag=1001030103_) <blockquote>末日后酒店ep1，感觉看的人应该很少，宣传一下。俺负责了第一集的演出。[干饭人]（原创作品的第一集演出怎么可以丢给别人（喂） 分镜是监督画的[赞]
+
+总之…虽然不知道这个片子的初衷是面向哪种类型的观众，但是看完了一般都会觉得挺好看的。可以当作与各种作品都不太一样的口味的点心来看。女主人设虽然属于是我扫番的话很可能跳过的人设，但是很努力往让人觉得喜欢的方向上演了w
+
+真的有在演.jpg
+
+…
+
+好看的（认真） 下面是演出修的时候因为画不好完全脱力的感觉，当时自拍的参考照片hhh</blockquote>
+<img src="https://wx3.sinaimg.cn/large/a62f5f4bgy1i0k4y5v133j20oh0pmacn.jpg" referrerpolicy="no-referrer">
+<img src="https://wx4.sinaimg.cn/large/a62f5f4bgy1i0k4y5fpvaj20wi0nz78l.jpg" referrerpolicy="no-referrer">
+
