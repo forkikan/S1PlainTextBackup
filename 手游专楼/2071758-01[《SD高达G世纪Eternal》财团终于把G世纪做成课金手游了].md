@@ -4010,3 +4010,14 @@ SR主要是凑标签开精神，纯粹按作品分，上一页有提到当前用
 请细说，这是怎么个真神法？</blockquote>
 SP化后的SR自由确实可以，100J后记得11000攻，我现在小号没SP化80J+战舰9000多攻了已经，5000的五彩大炮账面2-4射程，MAP因为是攻击型所以伤害也比UR自由高，唯一的问题是消耗有点小高
 
+
+*****
+
+####  ParukiaMKII  
+##### 382#       发表于 2025-4-21 09:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67742107&amp;ptid=2071758" target="_blank">光辉传递者 发表于 2025-4-21 00:45</a>
+
+请细说，这是怎么个真神法？</blockquote>
+因为是攻击型机体，攻击数值比UR自由高，然后突破成本低，不过需要吃SP。武器面板伤害高，地图炮伤害也高，SP后纯纯的数值怪
+
