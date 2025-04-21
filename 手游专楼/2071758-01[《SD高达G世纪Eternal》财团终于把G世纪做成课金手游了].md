@@ -4419,3 +4419,28 @@ TSTGGET2
 直接显示地区无法使用该服务</blockquote>
 这是地区检测了，和选区选这边不能使用绑号一样的。
 
+
+*****
+
+####  洛克萨斯  
+##### 421#       发表于 2025-4-21 16:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67743831&amp;ptid=2071758" target="_blank">光辉传递者 发表于 2025-4-21 16:42</a>
+
+这是地区检测了，和选区选这边不能使用绑号一样的。</blockquote>
+我的号游戏里可以同步啊，为啥这个就用不了，太怪了
+
+*****
+
+####  kulanyee  
+##### 422#       发表于 2025-4-21 16:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">香港地区领不了
+
+*****
+
+####  洛克萨斯  
+##### 423#       发表于 2025-4-21 16:51
+
+又是歧视香港地区？万代什么鬼
+
