@@ -2138,3 +2138,242 @@ ep10香草祥子之歌后半，在心像空间里自己跳下去找黄瓜睦的�
 怎么回事，初音的欲望之歌竟然逼出莫女士自杀</blockquote>
 制作组的大手岂是区区杂鱼莫女士可以违抗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  堀内爱里衣  
+##### 40407#       发表于 2025-4-21 21:14
+
+[https://x.com/ow9xb/status/1914245604060143892](https://x.com/ow9xb/status/1914245604060143892)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  堀内爱里衣  
+##### 40408#       发表于 2025-4-21 21:21
+
+[https://x.com/LERNI_STICKS/status/1914156087965811000](https://x.com/LERNI_STICKS/status/1914156087965811000)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  zhoujin8584  
+##### 40409#       发表于 2025-4-21 21:30
+
+想找一段快完结的时候杂志设定披露，忘了是在哪个楼了，反正不是访谈，但是把祥子的乐队性上的一无所有讲明白的设定披露
+
+*****
+
+####  堀内爱里衣  
+##### 40410#       发表于 2025-4-21 21:54
+
+<strong>话数</strong><strong>放送时间</strong>BanG Dream! Ave Mujica ep012025 年 1 月 2 日BanG Dream! Ave Mujica ep022025 年 1 月 9 日BanG Dream! Ave Mujica ep032025 年 1 月 16 日BanG Dream! Ave Mujica ep042025 年 1 月 23 日BanG Dream! Ave Mujica ep052025 年 1 月 30 日BanG Dream! Ave Mujica ep062025 年 2 月 6 日BanG Dream! Ave Mujica ep072025 年 2 月 13 日BanG Dream! Ave Mujica ep082025 年 2 月 20 日BanG Dream! Ave Mujica ep092025 年 2 月 27 日BanG Dream! Ave Mujica ep102025 年 3 月 6 日BanG Dream! Ave Mujica ep112025 年 3 月 13 日BanG Dream! Ave Mujica ep122025 年 3 月 20 日BanG Dream! Ave Mujica ep132025 年 3 月 27 日
+
+*****
+
+####  堀内爱里衣  
+##### 40411#       发表于 2025-4-21 21:59
+
+<img src="https://ac.stage3rd.com/upfiles/202504/A1BACA1BB@0797650391227.gif" referrerpolicy="no-referrer">
+
+＃12 舞台里から全开コメンタリー: BanG Dream! Ave Mujica 〜禁断の全话ネタバレ解说！〜
+[https://www.youtube.com/watch?v=4zfj31droTY](https://www.youtube.com/watch?v=4zfj31droTY)
+
+柿本&amp;三次元staff带你看Ave Mujica #12
+[https://www.bilibili.com/video/BV1Jt52zDEEa](https://www.bilibili.com/video/BV1Jt52zDEEa)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  堀内爱里衣  
+##### 40412#       发表于 2025-4-21 22:17
+
+ 本帖最后由 堀内爱里衣 于 2025-4-21 22:19 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67744650&amp;ptid=2208921" target="_blank">zhoujin8584 发表于 2025-4-21 21:30</a>
+
+想找一段快完结的时候杂志设定披露，忘了是在哪个楼了，反正不是访谈，但是把祥子的乐队性上的一无所有讲明 ...</blockquote>
+坛友先看看，是不是这个：
+[https://ac.stage3rd.com/forumTopicRead.asp?id=1640&amp;page=4](https://ac.stage3rd.com/forumTopicRead.asp?id=1640&amp;page=4)
+
+118楼
+
+*****
+
+####  社美胡  
+##### 40413#       发表于 2025-4-21 22:33
+
+[https://x.com/nnneemmooo/status/1914237637076066802](https://x.com/nnneemmooo/status/1914237637076066802)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  社美胡  
+##### 40414#       发表于 2025-4-21 22:33
+
+[https://x.com/wkrhfhsk/status/1913969002680094990](https://x.com/wkrhfhsk/status/1913969002680094990)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  社美胡  
+##### 40415#       发表于 2025-4-21 22:34
+
+[https://x.com/0n00x0/status/1913913159091654973/photo/1](https://x.com/0n00x0/status/1913913159091654973/photo/1)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  社美胡  
+##### 40416#       发表于 2025-4-21 22:35
+
+[https://x.com/GGnn0529/status/1914234928901800268/photo/1](https://x.com/GGnn0529/status/1914234928901800268/photo/1)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  社美胡  
+##### 40417#       发表于 2025-4-21 22:36
+
+[https://x.com/love8evill/status/1888217378305015809/photo/1](https://x.com/love8evill/status/1888217378305015809/photo/1)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  社美胡  
+##### 40418#       发表于 2025-4-21 22:36
+
+[https://x.com/methhhn/status/1913928194883035481/photo/1](https://x.com/methhhn/status/1913928194883035481/photo/1)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  社美胡  
+##### 40419#       发表于 2025-4-21 22:37
+
+[https://x.com/sasakwaowo/status/1914281385617236008/photo/1](https://x.com/sasakwaowo/status/1914281385617236008/photo/1)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  社美胡  
+##### 40420#       发表于 2025-4-21 22:37
+
+[https://x.com/joshu0707/status/1914197338480062715/photo/1](https://x.com/joshu0707/status/1914197338480062715/photo/1)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  社美胡  
+##### 40421#       发表于 2025-4-21 22:38
+
+[https://x.com/DGLight14/status/1913752102670909909/photo/1](https://x.com/DGLight14/status/1913752102670909909/photo/1)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  aptx8285144  
+##### 40422#       发表于 2025-4-21 22:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67740906&amp;ptid=2208921" target="_blank">钦念以忱 发表于 2025-4-20 15:33</a>
+
+确实，之前睦头播到第10集，我之后就有疑惑，这说好的5神人，睦头虽然中间也DID了，但最后治好了啊，大家都 ...</blockquote>
+话说莫女士是怎么“死的”或者说什么时候死的，我总感觉看漏了什么<img src="https://static.stage1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">
+
+*****
+
+####  路人庚  
+##### 40423#       发表于 2025-4-21 22:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67744848&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-4-21 22:51</a>
+
+话说莫女士是怎么“死的”或者说什么时候死的，我总感觉看漏了什么</blockquote>
+ep10香草祥子之歌后半，在心像空间里自己跳下去找黄瓜睦的这个时候死了
+
+*****
+
+####  aptx8285144  
+##### 40424#       发表于 2025-4-21 23:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67744867&amp;ptid=2208921" target="_blank">路人庚 发表于 2025-4-21 22:59</a>
+
+ep10香草祥子之歌后半，在心像空间里自己跳下去找黄瓜睦的这个时候死了
+
+ ...</blockquote>
+怎么回事，初音的欲望之歌竟然逼出莫女士自杀<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  路人庚  
+##### 40425#       发表于 2025-4-21 23:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67744874&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-4-21 23:05</a>
+
+怎么回事，初音的欲望之歌竟然逼出莫女士自杀</blockquote>
+制作组的大手岂是区区杂鱼莫女士可以违抗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhoujin8584  
+##### 40426#       发表于 2025-4-22 06:34
+
+<blockquote>堀内爱里衣 发表于 2025-4-21 22:17
+坛友先看看，是不是这个：
+
+https://ac.stage3rd.com/forumTopicRead.asp?id=1640&amp;page=4
+
+118楼 ...</blockquote>
+好大啊，谢谢，我翻了下应该是这篇软文，类似于全集回顾那种感觉。
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
