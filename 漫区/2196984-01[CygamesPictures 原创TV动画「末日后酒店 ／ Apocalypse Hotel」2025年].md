@@ -756,3 +756,13 @@ TVアニメ　#アポカリプスホテル
 どんな意味の言葉を喋っているのか、想像してみながら改めて第2話をご視聴してみてはいかがでしょうか？
 <img src="https://p.sda1.dev/23/1ed462eaf0bfb71a091b29035e4d2bfc/20250421_170613.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KDConan  
+##### 72#       发表于 2025-4-21 18:34
+
+4月的原创科幻番是不是就这个最稳了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

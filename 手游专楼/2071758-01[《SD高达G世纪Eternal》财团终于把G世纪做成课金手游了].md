@@ -4603,3 +4603,19 @@ TSTGGET2
 
 感觉你阵容不是特别缺了……留着后面再看看呗
 
+
+*****
+
+####  光辉传递者  
+##### 439#       发表于 2025-4-21 18:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67743969&amp;ptid=2071758" target="_blank">帕蕾莉亚 发表于 2025-4-21 17:19</a>
+万代确实比较那啥，我之前的老帐号不能绑，特意开全局梯子注册个新账号+全局梯子绑定的
+
+刚才换码也是浏览 ...</blockquote>
+很奇怪。我和其他漏油的情况不同，跳转到的页面总是叫我重新登陆和重启应用程序，而不是地区问题。
+
+湾区蓝卡试了，全局也试了，都这样，网页的提示是errors/missingCountryCode
+
+—— 来自 Xiaomi 24031PN0DC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
