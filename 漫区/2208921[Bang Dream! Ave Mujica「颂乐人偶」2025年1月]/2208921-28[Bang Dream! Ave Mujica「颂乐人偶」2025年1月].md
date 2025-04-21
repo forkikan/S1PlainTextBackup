@@ -2115,3 +2115,26 @@ https://x.com/uis410/status/1913577397670347256?s=46&amp;t=f6AHdCYYYf4AJriUAv-uL
 话说莫女士是怎么“死的”或者说什么时候死的，我总感觉看漏了什么</blockquote>
 ep10香草祥子之歌后半，在心像空间里自己跳下去找黄瓜睦的这个时候死了
 
+
+*****
+
+####  aptx8285144  
+##### 40405#       发表于 2025-4-21 23:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67744867&amp;ptid=2208921" target="_blank">路人庚 发表于 2025-4-21 22:59</a>
+
+ep10香草祥子之歌后半，在心像空间里自己跳下去找黄瓜睦的这个时候死了
+
+ ...</blockquote>
+怎么回事，初音的欲望之歌竟然逼出莫女士自杀<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  路人庚  
+##### 40406#       发表于 2025-4-21 23:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67744874&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-4-21 23:05</a>
+
+怎么回事，初音的欲望之歌竟然逼出莫女士自杀</blockquote>
+制作组的大手岂是区区杂鱼莫女士可以违抗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
