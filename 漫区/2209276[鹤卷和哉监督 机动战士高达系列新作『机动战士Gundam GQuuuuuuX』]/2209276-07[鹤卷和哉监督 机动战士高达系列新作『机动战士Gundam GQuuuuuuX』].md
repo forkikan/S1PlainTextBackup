@@ -3109,3 +3109,11 @@ https://x.com/mn38ka/status/1913952406636761286
 
 我重看了特别映像，怎么感觉是麻球引发了泽克诺瓦
 
+
+*****
+
+####  花達香奈  
+##### 9647#       发表于 2025-4-22 01:37
+
+不如假药一下小番茄第一次kirakira看(?)到的其实是79红高达的叙诡<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

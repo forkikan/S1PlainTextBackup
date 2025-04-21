@@ -766,3 +766,23 @@ TVアニメ　#アポカリプスホテル
 
 —— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  NBXX  
+##### 73#       发表于 2025-4-22 01:40
+
+<img src="https://p.sda1.dev/23/462473879ffb95efa87a74d2296ccfaa/0001.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/d84331fed935eb971a0c61e0d8e0d3bc/002-3.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/0176ad8f96ad75868455b733fbf73359/0004.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/0baa0a3b74b88ecc963db030c56b97eb/0005.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/58cd96a7ba63820d3c3026881b4130cf/0006.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/61df5bedcfac2e3f1eaffe8ccaeaa08d/0007.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/2650629f25d062d80ad9c1977a4e8e50/0008.jpg" referrerpolicy="no-referrer">
+
+アポカリプスホテルぷすぷす 02話 漫画汉化。
+
+少数对白使用了偏口语化表达。
+
+这篇没补什么设定，专注于卖萌。
+
