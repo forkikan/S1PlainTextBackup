@@ -2883,3 +2883,13 @@ X 上的 スミカ：“Ｇのジークアクス（Ｇレコパロトレス） [
 
 至少下集预告的配音是新配的
 
+
+*****
+
+####  冬月老师  
+##### 9625#       发表于 2025-4-21 13:07
+
+<img src="https://static.stage1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2361GA, Android 14, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
