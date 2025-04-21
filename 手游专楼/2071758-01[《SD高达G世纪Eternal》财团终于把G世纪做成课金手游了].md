@@ -4379,3 +4379,18 @@ TSTGGET1
 
 TSTGGET2
 
+
+*****
+
+####  光辉传递者  
+##### 418#       发表于 2025-4-21 16:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67743713&amp;ptid=2071758" target="_blank">leonyang19 发表于 2025-4-21 16:12</a>
+
+国际服的朋友有抽卡券领了，前提得绑定账号
+
+网址：https://ww.gget-promo.jp/sc
+
+兑换码：GBASE1</blockquote>
+老是提示说重启应用程序和重新进入页面可咋整？登录在这里死循环了。
+
