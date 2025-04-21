@@ -2054,3 +2054,29 @@ https://x.com/uis410/status/1913577397670347256?s=46&amp;t=f6AHdCYYYf4AJriUAv-uL
 
 哦，牛批。柿本还真说初音的身份爆出去老登就完蛋了。
 
+
+*****
+
+####  社美胡  
+##### 40400#       发表于 2025-4-21 22:37
+
+[https://x.com/sasakwaowo/status/1914281385617236008/photo/1](https://x.com/sasakwaowo/status/1914281385617236008/photo/1)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+
+*****
+
+####  社美胡  
+##### 40401#       发表于 2025-4-21 22:37
+
+[https://x.com/joshu0707/status/1914197338480062715/photo/1](https://x.com/joshu0707/status/1914197338480062715/photo/1)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
