@@ -4226,3 +4226,13 @@ ur里那一堆支援机体都能多次支援，打Boss就靠他们了
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  windtrack  
+##### 403#       发表于 2025-4-21 12:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67742849&amp;ptid=2071758" target="_blank">纯白花火 发表于 2025-4-21 11:36</a>
+开局把咸鱼机体往后拉，然后挂自动</blockquote>
+普通图可以不上系列队，ur队直接去无双就好，就有几个图需要注意别让剧情机送就好
+
