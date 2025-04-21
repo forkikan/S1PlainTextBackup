@@ -4045,3 +4045,21 @@ SR自由基本上造出来就是打种的永恒吧，看你是不是这么急着
 卡池有剑装灾厄，开发图没完以后可能有更好 ...</blockquote>
 流星正义的问题和完美强袭其实是一致的，就是seed这个开发系谱太坑，很难靠捕获来点，变相成为吞金兽。我大号完美强袭是满破的，合出来累得够呛。现在我都怀疑是不是该大号在神谕图纸本打地铺做他两台满破了。
 
+
+*****
+
+####  光辉传递者  
+##### 385#       发表于 2025-4-21 10:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67742473&amp;ptid=2071758" target="_blank">马桶3 发表于 2025-4-21 09:57</a>
+
+目前是只能上SR驾驶员，但是SR数值不行，如果愿意憋一下就等活动送SSR驾驶员 ...</blockquote>
+明白，那不着急了，回头大号先做Z和ZZ的永恒之路normal把gquuuuuux满破给拿了。
+
+*****
+
+####  洛克萨斯  
+##### 386#       发表于 2025-4-21 10:06
+
+为什么飞升自由不算种系机体？<img src="https://static.stage1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
