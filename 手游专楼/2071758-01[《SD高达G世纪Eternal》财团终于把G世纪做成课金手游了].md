@@ -4738,3 +4738,16 @@ BHJVKSGCFQ4CBY
 
 机战里更突出的是射击和计量把，命回确实也是一线，印象中和主流NT 或者马裤螺丝的差距没前面2个那么大
 
+
+*****
+
+####  光辉传递者  
+##### 450#       发表于 2025-4-21 20:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67744474&amp;ptid=2071758" target="_blank">hayate0079 发表于 2025-4-21 20:23</a>
+
+其实红和蓝做的还行，黄做的比较IMBA，指援护攻击2次
+
+机战里更突出的是射击和计量把，命回确实也是一线， ...</blockquote>
+援护攻击这玩意本来就挺不做人的，机战的保留节目之一就是一群援护蹭完然后爆发主C进场暴扣boss……
+
