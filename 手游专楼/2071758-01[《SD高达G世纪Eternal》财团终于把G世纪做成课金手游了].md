@@ -3885,3 +3885,14 @@ sr自由的武器配置好，自带map和五彩炮，sp化后的攻击力在sr�
 
 其他sr机本身的武器配置普遍不太行，而且同样sp后sr的属性整体还是比ssr略差一点的。
 
+
+*****
+
+####  光辉传递者  
+##### 371#       发表于 2025-4-21 08:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67742201&amp;ptid=2071758" target="_blank">12481632 发表于 2025-4-21 03:25</a>
+
+sr自由的武器配置好，自带map和五彩炮，sp化后的攻击力在sr红机里是最高一档基本和ssr红机一个水平，大概在 ...</blockquote>
+受教了。但SP目前能获取的数量和获取渠道都不多吧？感觉还是蛮宝贵的资源？
+
