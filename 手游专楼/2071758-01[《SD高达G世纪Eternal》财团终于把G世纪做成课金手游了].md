@@ -4290,3 +4290,28 @@ UR自由我目前扔到自有队伍中去的。<img src="https://static.stage1st
 
 google台服是没有礼品卡的？
 
+
+*****
+
+####  行政裁定书  
+##### 410#       发表于 2025-4-21 15:45
+
+目前ssr里那些可以升级ur的是不是必练的？
+
+其他ssr里还有哪些必练的？
+
+
+*****
+
+####  hayate0079  
+##### 411#       发表于 2025-4-21 15:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67743613&amp;ptid=2071758" target="_blank">行政裁定书 发表于 2025-4-21 15:45</a>
+
+目前ssr里那些可以升级ur的是不是必练的？
+
+其他ssr里还有哪些必练的？</blockquote>
+SR 自由 ZZ SP化后不错
+
+SSR开发机里Z WZ 风灵改修都不错
+
