@@ -4582,3 +4582,24 @@ TSTGGET2
 
 打完Z才发现是剧场版，靠永恒入坑的新人继续往下打UC剧情不会觉得奇怪么
 
+
+*****
+
+####  帕蕾莉亚  
+##### 438#       发表于 2025-4-21 17:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67744065&amp;ptid=2071758" target="_blank">lighttt 发表于 2025-4-21 17:51</a>
+
+抽到了沙扎比，00，自由风灵，必得还有，是不是可以留钻抽后面的了，必得抽啥好
+
+—— 来自 鹅球 v3.3.96-a ...</blockquote>
+00还没开呢，exia吗？
+
+风灵打降防
+
+自由打光束增伤
+
+山楂饼exia灌伤害
+
+感觉你阵容不是特别缺了……留着后面再看看呗
+
