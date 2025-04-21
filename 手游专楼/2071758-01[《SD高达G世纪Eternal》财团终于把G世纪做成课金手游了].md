@@ -4502,3 +4502,43 @@ TSTGGET2
 
 不想送可以不送的，外服游戏领抽奖那么多怎么就万代那么多屁事啊。国际服还要分地区歧视的么<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  帕蕾莉亚  
+##### 430#       发表于 2025-4-21 17:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67743930&amp;ptid=2071758" target="_blank">光辉传递者 发表于 2025-4-21 17:07</a>
+
+也还是不行。发的什么颠？注册的时候就得全局吗？</blockquote>
+万代确实比较那啥，我之前的老帐号不能绑，特意开全局梯子注册个新账号+全局梯子绑定的
+
+刚才换码也是浏览器开了个新用户+全局梯子登陆
+
+*****
+
+####  hayate0079  
+##### 431#       发表于 2025-4-21 17:20
+
+刚试了下拿梯子开HK节点再开网页也不行
+
+*****
+
+####  kulanyee  
+##### 432#       发表于 2025-4-21 17:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67743955&amp;ptid=2071758" target="_blank">leonyang19 发表于 2025-4-21 17:14</a>
+
+我见有人说节点得和万代ID的地址一致，万代整得太小家子气了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">不。这说明你玩的是正儿八经的万代游戏
+
+*****
+
+####  光辉传递者  
+##### 433#       发表于 2025-4-21 17:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67743955&amp;ptid=2071758" target="_blank">leonyang19 发表于 2025-4-21 17:14</a>
+
+我见有人说节点得和万代ID的地址一致，万代整得太小家子气了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这个时候就该高贵的大湾区蓝卡原生ip启动了，还好防了一手。
+
