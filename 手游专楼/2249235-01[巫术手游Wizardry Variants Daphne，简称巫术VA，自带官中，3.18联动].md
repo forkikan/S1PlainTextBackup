@@ -2627,3 +2627,18 @@ https://www.reddit.com/r/wizardry/comments/1k1p83t/god_slaye ...</blockquote>
 想问下现在二周目4BF，要不要卡剧情卡等级等活动刷</blockquote>
 一般没必要，第二章难度不高，二章后半刷钱和紫装很方便，早进早爽
 
+
+*****
+
+####  电脑死机  
+##### 234#       发表于 2025-4-22 08:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67742430&amp;ptid=2249235" target="_blank">神手之兔 发表于 2025-4-21 09:39</a>
+
+想问下现在二周目4BF，要不要卡剧情卡等级等活动刷</blockquote>
+没必要，尽快通了水路，有船2这个刷东西圣地
+
+要塞开始就是折磨，东西少怪物强，水路大只佬人鱼也就几百血，土属性人物挂上对应属性武器随便杀，进了要塞的死灵法师一只2k血，肉的很
+
+好奇你知道后面打到人神共愤的娃娃有11k血会是什么表情
+

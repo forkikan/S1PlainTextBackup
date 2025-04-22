@@ -357,3 +357,14 @@ Jump festa更新的介绍
 
 顺便有补强的闪刀出访码真的很费劲吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  电脑死机  
+##### 42#       发表于 2025-4-22 08:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67745038&amp;ptid=2214067" target="_blank">7do 发表于 2025-4-22 00:39</a>
+
+闪刀这个卡图又难看 剧情也没啥东西 战力也是路边一条，折腾半天跳个accesscodetalker的卡组为什么能拿到资 ...</blockquote>
+有萌妹有百合有机甲，绝对领域大肉腿好顶赞，md这边周年庆相关礼包卖爆了，这样的人气还不趁热打铁？
+

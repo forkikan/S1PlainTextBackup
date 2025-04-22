@@ -3117,3 +3117,16 @@ https://x.com/mn38ka/status/1913952406636761286
 
 不如假药一下小番茄第一次kirakira看(?)到的其实是79红高达的叙诡<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  1255779309  
+##### 9648#       发表于 2025-4-22 08:29
+
+不知道楼友之前有没有讨论过这个
+我昨晚画修司的时候想加个背景，于是去临摹修司的漩涡涂鸦，画着画着突然发现漩涡中心很像玫瑰，中间黄色/红色的部分是花心
+并且漩涡有黑白两种颜色，可能象征着沙伦玫瑰的两面性?
+<img src="https://p.sda1.dev/23/8eb2d70a8770928593a3c22234556976/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/c79053d9c850669dfbb0e384de41a8a2/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/6c8d099fff3ab4f0a5f6af6ae72be2bb/image.jpg" referrerpolicy="no-referrer">
+
