@@ -3611,3 +3611,16 @@ tight, tight, tight!
 
 第二集的剧本真的是庵野写的吗，怎么有种钢弹桑的生草感
 
+
+*****
+
+####  伊露伊道格拉斯  
+##### 9698#       发表于 2025-4-22 21:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67743643&amp;ptid=2209276" target="_blank">az一串字母 发表于 2025-4-21 15:53</a>
+
+https://x.com/mn38ka/status/1913952406636761286
+
+吉翁爱情故事</blockquote>
+戏说不是胡说，改编不是乱编<img src="https://static.stage1st.com/image/smiley/carton2017/424.png" referrerpolicy="no-referrer">
+

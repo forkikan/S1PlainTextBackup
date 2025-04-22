@@ -2377,3 +2377,70 @@ https://ac.stage3rd.com/forumTopicRead.asp?id=1640&amp;page=4
 
 ×
 
+
+*****
+
+####  社美胡  
+##### 40427#       发表于 2025-4-22 21:59
+
+[https://x.com/hashtag/%E3%81%86% ... ag_click&amp;f=live](https://x.com/hashtag/%E3%81%86%E3%81%84%E3%81%95%E3%81%8D?src=hashtag_click&amp;f=live)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  社美胡  
+##### 40428#       发表于 2025-4-22 22:00
+
+[https://x.com/YRK_ev/status/1914331232613310957/photo/1](https://x.com/YRK_ev/status/1914331232613310957/photo/1)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  社美胡  
+##### 40429#       发表于 2025-4-22 22:00
+
+[https://x.com/r4661t0x0/status/1914244113660334311/photo/1](https://x.com/r4661t0x0/status/1914244113660334311/photo/1)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  社美胡  
+##### 40430#       发表于 2025-4-22 22:01
+
+[https://x.com/abanekoo/status/1914651200739545226/photo/1](https://x.com/abanekoo/status/1914651200739545226/photo/1)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  堀内爱里衣  
+##### 40431#       发表于 2025-4-22 22:03
+
+<img src="https://ac.stage3rd.com/upfiles/202504/A1BACA1BB@0797650391227.gif" referrerpolicy="no-referrer">
+
+＃13 舞台里から全开コメンタリー: BanG Dream! Ave Mujica 〜禁断の全话ネタバレ解说！〜
+[https://www.youtube.com/watch?v=KtmPyV2l8ME](https://www.youtube.com/watch?v=KtmPyV2l8ME)
+
+柿本&amp;三次元staff带你看Ave Mujica #13
+[https://www.bilibili.com/video/BV1CR59zLEeY](https://www.bilibili.com/video/BV1CR59zLEeY)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
