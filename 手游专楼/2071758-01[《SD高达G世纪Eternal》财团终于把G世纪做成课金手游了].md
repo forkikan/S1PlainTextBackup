@@ -5729,3 +5729,38 @@ ult机体开发哪个？</blockquote>
 
 ×
 
+
+*****
+
+####  zExs  
+##### 547#       发表于 2025-4-22 20:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67746261&amp;ptid=2071758" target="_blank">xinfengj 发表于 2025-4-22 14:58</a>
+
+打了20把EX拿到一个，万代很不做人了
+
+估计是怕刷一堆ssr去分解换GP？</blockquote>
+....我20把没掉落 疯了
+
+
+*****
+
+####  棍机凹升龙  
+##### 548#       发表于 2025-4-22 20:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67746889&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-4-22 19:45</a>
+
+我这是0突机体/驾驶100，母舰是ur铃80，加了100防op
+
+母舰拉到100，或者一突估计就能顶住两发了？</blockquote>
+看到个是exia配合夸克斯上去的打法感觉也还行，红高会先干掉exia然后过来打夸克斯被夸克斯反杀
+
+*****
+
+####  rockroxas  
+##### 549#       发表于 2025-4-22 20:13
+
+试了下拆100防也就是47068……不如1000血组件
+
+挨两发要9w5HP？100级母舰感觉达不到啊，大概一定要突破吧
+

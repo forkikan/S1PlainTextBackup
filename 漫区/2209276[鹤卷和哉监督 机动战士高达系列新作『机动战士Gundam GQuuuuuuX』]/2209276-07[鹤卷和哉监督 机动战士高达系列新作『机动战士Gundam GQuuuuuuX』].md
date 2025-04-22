@@ -3449,3 +3449,13 @@ tight, tight, tight!
 
 强化过后失去记忆了<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  秋月孝三  
+##### 9681#       发表于 2025-4-22 20:14
+
+强化过头了.jpg
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
