@@ -98,3 +98,13 @@ SP相比KEY之前的全价GAL系统可以说大幅简化，共通线实际只有
 扣掉sp的人物我就是海未普通 欧 紬 苍 白羽这样打的<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 大半夜看的好舒服啊，可以睡个好觉了
 
+
+*****
+
+####  冬月老师  
+##### 94#       发表于 2025-4-23 06:27
+
+问一下，这部主线剧情是什么，有剧透吗
+
+—— 来自 vivo V2361GA, Android 14, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
