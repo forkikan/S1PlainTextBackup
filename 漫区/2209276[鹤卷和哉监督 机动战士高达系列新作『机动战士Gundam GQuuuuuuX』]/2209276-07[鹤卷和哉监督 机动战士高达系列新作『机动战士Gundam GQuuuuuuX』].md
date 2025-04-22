@@ -3282,3 +3282,16 @@ https://x.com/mn38ka/status/1913952406636761286
 所以鸭妹战后是什么样的待遇呢</blockquote>
 当医生
 
+
+*****
+
+####  闽明  
+##### 9664#       发表于 2025-4-22 17:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67746277&amp;ptid=2209276" target="_blank">ykyin09 发表于 2025-4-22 15:05</a>
+
+联邦魔女大概率是强化人吧，怎么联邦战败了还在搞这种东西</blockquote>
+其实也正常，原版里NT对联邦来说太玄乎，虽然在所罗门也吃了拉拉的亏，但是好歹大局上没太大影响
+
+这次直接被红高达和绿叔叔割草，多少要研究一下这玩意儿的
+

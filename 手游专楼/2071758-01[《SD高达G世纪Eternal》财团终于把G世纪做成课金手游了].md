@@ -5584,3 +5584,11 @@ EX难度手刷
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">刹那单机gqu一回合单骑讨过ex都有了，三动真是无赖呢
 
+
+*****
+
+####  okey3m  
+##### 534#       发表于 2025-4-22 17:22
+
+EXIA三动在2格处打一下红高达，敌方回合红高达最先动直接反击打死收工<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
