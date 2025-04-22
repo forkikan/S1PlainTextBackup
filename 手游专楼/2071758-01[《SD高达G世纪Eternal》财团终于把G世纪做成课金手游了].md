@@ -5822,3 +5822,16 @@ ult机体开发哪个？</blockquote>
 国际服不能日本和中国（</blockquote>
 好吧，再注册个新加坡的试试
 
+
+*****
+
+####  rockroxas  
+##### 556#       发表于 2025-4-22 21:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67747102&amp;ptid=2071758" target="_blank">leonyang19 发表于 2025-4-22 21:20</a>
+
+试了下把刹那和能天使都拉满，送的船拉满，0突能天使抗不住红高达两发
+
+同样阵容的建议先不要盲目投入资源了 ...</blockquote>
+算了一下数据，UR船也挨不了两发，不算op的话血到不了9w3
+
