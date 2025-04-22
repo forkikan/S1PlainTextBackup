@@ -3217,3 +3217,13 @@ https://x.com/mn38ka/status/1913952406636761286
 影院的特别映象估计是后面几集的内容，第四集应该讲不到那么多内容</blockquote>
 荒木哲郎标得是单集演出，所以我估计从ep4开始就进入单元剧的节奏了，就这样一集一集演一段时间。
 
+
+*****
+
+####  zzf111  
+##### 9658#       发表于 2025-4-22 15:39
+
+这三周时间终于搞捱过去了
+
+但还要再等七天才有新内容啊<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
