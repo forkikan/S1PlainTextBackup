@@ -620,3 +620,16 @@ npc白吃我一个补剂demo里也没后续内容了 气晕
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">企划立项就是因为宫崎英高不做人装甲核心十年不出新作
 
+
+*****
+
+####  慕容断月  
+##### 65#       发表于 2025-4-22 19:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67746694&amp;ptid=2158861" target="_blank">madcow 发表于 2025-4-22 17:49</a>
+
+https://automaton-media.com/articles/interviewsjp/dollsnest-20250422-335959/
+
+看到出了篇访谈</blockquote>
+1617年前后冒出来好几个ac精神续作，不就是因为fs当了几年魂工厂还一点风声没透露
+
