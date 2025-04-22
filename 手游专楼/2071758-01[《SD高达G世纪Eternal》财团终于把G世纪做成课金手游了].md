@@ -5205,3 +5205,36 @@ SR自由总是要练的，要撑阵容的阿
 
 —— 来自 LENOVO TB321FU, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  森兰丸  
+##### 496#       发表于 2025-4-22 12:56
+
+现在开发机里除了SR自由以外还有啥破格的机体值得SP化么<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yyccq  
+##### 497#       发表于 2025-4-22 12:59
+
+小蕃茄必闪扛一刀，肉身再扛一刀，然后一群援护机围殴至死。能天使？能天使走位失误被对面的小蕃茄秒了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  光辉传递者  
+##### 498#       发表于 2025-4-22 13:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67745952&amp;ptid=2071758" target="_blank">yyccq 发表于 2025-4-22 12:59</a>
+
+小蕃茄必闪扛一刀，肉身再扛一刀，然后一群援护机围殴至死。能天使？能天使走位失误被对面的小蕃茄秒了 ...</blockquote>
+BYD这小番茄血量比红高还多，服了
+
+*****
+
+####  zExs  
+##### 499#       发表于 2025-4-22 13:01
+
+还是总帅给力 单机突入ex
+
