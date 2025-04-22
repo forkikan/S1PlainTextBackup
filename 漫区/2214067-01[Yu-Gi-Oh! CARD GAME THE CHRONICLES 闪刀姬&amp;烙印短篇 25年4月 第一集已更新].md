@@ -368,3 +368,15 @@ Jump festa更新的介绍
 闪刀这个卡图又难看 剧情也没啥东西 战力也是路边一条，折腾半天跳个accesscodetalker的卡组为什么能拿到资 ...</blockquote>
 有萌妹有百合有机甲，绝对领域大肉腿好顶赞，md这边周年庆相关礼包卖爆了，这样的人气还不趁热打铁？
 
+
+*****
+
+####  恶意之刃  
+##### 43#       发表于 2025-4-22 08:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67745052&amp;ptid=2214067" target="_blank">Wondering 发表于 2025-4-22 00:55</a>
+如果论人气的话，魔导世界观不是更是路边一条吗比得上星遗物教导dt甚至可以说没啥剧情的罪宝世坏吗，十几年 ...</blockquote>
+那边厢伟魔漫画同一拨演员即将上演魔导编了，恩底魔导书甚至魔女术都要翻炒一下了
+
+闪刀初出是吃饼常客，后面吃规制也有使用率再后面退环境了，新卡一直续投1301后估计也会有很多人用。就是原画实在太丑了，给了异画很大的提升空间<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">但是做成泡面番人设也输了一头吧
+
