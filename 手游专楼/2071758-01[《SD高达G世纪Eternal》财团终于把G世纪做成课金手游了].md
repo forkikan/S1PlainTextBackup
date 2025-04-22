@@ -5618,3 +5618,24 @@ EXIA应当同理。
 
 有楼友试过解体过捕获的0085吗？能拿多少币？
 
+
+*****
+
+####  ddlsyo  
+##### 537#       发表于 2025-4-22 18:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67746710&amp;ptid=2071758" target="_blank">kulanyee 发表于 2025-4-22 17:59</a>
+
+有楼友试过解体过捕获的0085吗？能拿多少币？</blockquote>
+点解体进入选单界面就能看到，5000金币，100GP
+
+*****
+
+####  棍机凹升龙  
+##### 538#       发表于 2025-4-22 18:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67746663&amp;ptid=2071758" target="_blank">光辉传递者 发表于 2025-4-22 17:37</a>
+
+试了一下，甚至连妖刀都不需要。双百的总帅+沙扎比直接就是三动打上去，射界+1打一次红高，然后结束回合， ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">提醒我该去升级总帅的武器等级了，或者装个加攻零件试试能不能一回合
+
