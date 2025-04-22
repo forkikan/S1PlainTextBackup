@@ -3146,3 +3146,15 @@ https://x.com/mn38ka/status/1913952406636761286
 
 一想到今晚终于要有新的预告看真是燃起来了呀（有气无力
 
+
+*****
+
+####  ヒトニナル  
+##### 9651#       发表于 2025-4-22 13:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67745969&amp;ptid=2209276" target="_blank">woui003woui 发表于 2025-4-22 13:08</a>
+一想到今晚终于要有新的预告看真是燃起来了呀（有气无力</blockquote>
+新，新吗？
+今天的预告应该就是日本院线放的那个“特别映像”，有联邦魔女的那个
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">如果不是的话那最好
+

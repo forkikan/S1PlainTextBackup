@@ -5246,3 +5246,25 @@ BYD这小番茄血量比红高还多，服了
 
 搭了Z和流星自由去降防欺负小短手过了，癫狗三连配合红高达支援会被一刀一个。爆两部还是能三星
 
+
+*****
+
+####  棍机凹升龙  
+##### 501#       发表于 2025-4-22 13:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67745953&amp;ptid=2071758" target="_blank">光辉传递者 发表于 2025-4-22 13:00</a>
+
+BYD这小番茄血量比红高还多，服了</blockquote>
+估计初衷是让人拉走小番茄然后去秒红高<img src="https://static.stage1st.com/image/smiley/bundam2017/016.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  blue321  
+##### 502#       发表于 2025-4-22 13:22
+
+练度不够手操不能三星过关…今天先回头扫荡n吧…
+感觉不能再鳖石头了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
