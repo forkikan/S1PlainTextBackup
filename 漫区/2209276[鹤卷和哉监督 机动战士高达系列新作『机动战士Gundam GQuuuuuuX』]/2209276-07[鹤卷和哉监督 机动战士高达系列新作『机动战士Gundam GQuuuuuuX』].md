@@ -4287,3 +4287,24 @@ TMD鹤卷，你这选的新曲完全没有剧场版里ED前奏和nt面对面神�
  ...</blockquote>
 那骡爹还是得没吧，不然骡爹在的话没资料也能继续开发
 
+
+*****
+
+####  ardente  
+##### 9770#       发表于 2025-4-23 05:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67744555&amp;ptid=2209276" target="_blank">璇瑢子R 发表于 2025-4-21 21:04</a>
+
+所以鸭妹战后是什么样的待遇呢</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">打赢了软禁禁育，打输的情况大概会被关起来造克隆人
+
+*****
+
+####  ardente  
+##### 9771#       发表于 2025-4-23 05:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67747630&amp;ptid=2209276" target="_blank">oi99o 发表于 2025-4-23 00:34</a>
+
+牢骡都142台了，100多真不算什么</blockquote>
+你这是啥比法，牢骡世界线联邦统共也就两个100多的
+
