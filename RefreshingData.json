@@ -87,7 +87,7 @@
     "lastedit": 1745246940,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2041774": {
     "totalreply": 16972,
@@ -4833,12 +4833,12 @@
     "update": false
   },
   "1337602": {
-    "totalreply": 2685,
+    "totalreply": 2686,
     "title": "[来自深渊这漫画太特么黑了，都黑哭了]",
     "newtitle": "[来自深渊这漫画太特么黑了，都黑哭了]",
-    "lastedit": 1744812485,
+    "lastedit": 1745282644,
     "category": "漫区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "1212718": {
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 13714,
+    "totalreply": 13715,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》4.17 回头是岸]",
-    "lastedit": 1745281685,
+    "lastedit": 1745282644,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -11939,7 +11939,7 @@
     "newtitle": "[FS社新作 PvPvE多人游戏《The Duskbloods》2026年发售]",
     "lastedit": 1745023324,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2123357": {
@@ -12183,7 +12183,7 @@
     "lastedit": 1745241780,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2251159": {
     "totalreply": 45,
