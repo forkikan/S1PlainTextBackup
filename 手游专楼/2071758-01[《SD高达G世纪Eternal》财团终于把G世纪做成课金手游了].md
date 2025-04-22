@@ -5661,3 +5661,13 @@ EXIA应当同理。
 一动肯定打不死的，满级主动+反击基本都能打死</blockquote>
 是指不进入我第二回合，顺便exia应该不行？挨不了红高两发吧
 
+
+*****
+
+####  blue321  
+##### 541#       发表于 2025-4-22 18:48
+
+虽然想刷素材，但是手动打EX打了几把就受不了了
+
+后面随缘吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
