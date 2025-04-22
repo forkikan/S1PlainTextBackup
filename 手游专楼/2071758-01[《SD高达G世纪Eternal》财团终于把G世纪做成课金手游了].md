@@ -4936,3 +4936,29 @@ BYD连79都别出去， 就在79当十里坡剑神。小番茄和凤凰可以塞
 但蓝色感觉更像是给敌人用，玩家这边防御几乎没什么 ...</blockquote>
 初期怪数值没上去，整点秒红黄机的怪就能凸显防御机的好处了
 
+
+*****
+
+####  光辉传递者  
+##### 469#       发表于 2025-4-22 10:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67745507&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-4-22 10:21</a>
+
+红色三动，黄色驾红机或者db机，应该是这个思路没错？
+
+但蓝色感觉更像是给敌人用，玩家这边防御几乎没什么 ...</blockquote>
+蓝机目前看就是永恒之路护送菜刀机用的，尤其是神谕。
+
+*****
+
+####  马桶3  
+##### 470#       发表于 2025-4-22 11:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67745507&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-4-22 10:21</a>
+红色三动，黄色驾红机或者db机，应该是这个思路没错？
+
+但蓝色感觉更像是给敌人用，玩家这边防御几乎没什么 ...</blockquote>
+永恒之路hard里，盾机保大哥还是有必要的
+
+—— 来自 vivo V2408A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
