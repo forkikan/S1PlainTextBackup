@@ -5639,3 +5639,14 @@ EXIA应当同理。
 试了一下，甚至连妖刀都不需要。双百的总帅+沙扎比直接就是三动打上去，射界+1打一次红高，然后结束回合， ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">提醒我该去升级总帅的武器等级了，或者装个加攻零件试试能不能一回合
 
+
+*****
+
+####  rockroxas  
+##### 539#       发表于 2025-4-22 18:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67746738&amp;ptid=2071758" target="_blank">棍机凹升龙 发表于 2025-4-22 18:16</a>
+
+提醒我该去升级总帅的武器等级了，或者装个加攻零件试试能不能一回合</blockquote>
+一动肯定打不死的，满级主动+反击基本都能打死
+
