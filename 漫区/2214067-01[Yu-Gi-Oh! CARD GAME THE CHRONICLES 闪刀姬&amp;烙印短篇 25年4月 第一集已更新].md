@@ -476,3 +476,12 @@ k社卖卡是有基本逻辑的，老卡获得强力补强前一般都有预组�
 
 另外，闪刀是因为有人气才出漫画的，并不是有漫画才有人气然后出大腿的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  恶意之刃  
+##### 53#       发表于 2025-4-22 09:52
+
+没人关注问题不大，有漫画有官方物料说明k社惦记，就有希望了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">新主题出完只有下个数字盒补两张卡意思一下的主题可太多了，既然有人气主题开了产品线就有它们填坑的机会。
+另外其实勇者也很好补强，旧卡只留原来外挂部分，新卡补到将任意一卡打成保底勇者狮鹫外法本家陷阱也差不多够赢。要是大胆点补上无自肃陀螺调整。。。
+
