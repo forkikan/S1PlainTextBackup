@@ -5134,3 +5134,17 @@ BJV65D2UG9A6FC    邀请码求一个，谢谢~
 那这就只能练台SP过的SR自由了！</blockquote>
 SR自由总是要练的，要撑阵容的阿
 
+
+*****
+
+####  光辉传递者  
+##### 489#       发表于 2025-4-22 12:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67745808&amp;ptid=2071758" target="_blank">12481632 发表于 2025-4-22 12:01</a>
+敌方的小番茄二动不需要砍爆也可以触发，开自动能天使冲上去直接被秒了。
+
+不过我被打爆两台过了也能满1W分 ...</blockquote>
+这次满破的话都是在第一关反复捕获吗？看后面给的好像都是零件。
+
+—— 来自 LENOVO TB321FU, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
