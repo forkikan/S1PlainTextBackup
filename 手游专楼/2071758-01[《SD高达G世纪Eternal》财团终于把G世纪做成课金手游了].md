@@ -5379,3 +5379,31 @@ EX过了，第一回合全员清杂兵，把防御机顶小番茄前接3刀，�
 
 这次活动的红高达和机师值得练吗？
 
+
+*****
+
+####  马桶3  
+##### 514#       发表于 2025-4-22 14:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67746160&amp;ptid=2071758" target="_blank">行政裁定书 发表于 2025-4-22 14:28</a>
+
+这次活动的红高达和机师值得练吗？</blockquote>
+如果你永恒之路hard3还没过，就可以练
+
+*****
+
+####  kenqqex  
+##### 515#       发表于 2025-4-22 14:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67745943&amp;ptid=2071758" target="_blank">森兰丸 发表于 2025-4-22 12:56</a>
+
+现在开发机里除了SR自由以外还有啥破格的机体值得SP化么</blockquote>
+wingzero<img src="https://static.stage1st.com/image/smiley/bundam2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kulanyee  
+##### 516#       发表于 2025-4-22 14:38
+
+我看了下描述，这个【[强敌来袭]武装强化材料】应该是通用的，这次没升满，下次强敌来袭再开掉的材料应该还能升级这次的0085
+
