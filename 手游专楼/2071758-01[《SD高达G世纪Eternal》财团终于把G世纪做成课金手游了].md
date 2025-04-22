@@ -5996,3 +5996,13 @@ wingzero</blockquote>
 
 红高达直接送你满破.....送你的SSR机师也不差<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rockroxas  
+##### 572#       发表于 2025-4-23 05:53
+
+想刷个蒂法的小号，结果出了沙扎比+独角兽+自由+能天使+凤凰，只有新手教程的SSR母舰，自选没用。
+
+国际服的，有人要吗？
+
