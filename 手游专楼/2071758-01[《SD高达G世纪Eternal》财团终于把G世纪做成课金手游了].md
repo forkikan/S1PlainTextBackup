@@ -5304,3 +5304,11 @@ EX难度手刷
 
 auto打了一把最高难度 发现没打过 晚上回家手动打一把试试
 
+
+*****
+
+####  洛克萨斯  
+##### 506#       发表于 2025-4-22 13:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只打得过活动第一关，太菜了
+

@@ -3158,3 +3158,15 @@ https://x.com/mn38ka/status/1913952406636761286
 今天的预告应该就是日本院线放的那个“特别映像”，有联邦魔女的那个
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">如果不是的话那最好
 
+
+*****
+
+####  woui003woui  
+##### 9652#       发表于 2025-4-22 13:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67745994&amp;ptid=2209276" target="_blank">ヒトニナル 发表于 2025-4-22 13:18</a>
+新，新吗？
+今天的预告应该就是日本院线放的那个“特别映像”，有联邦魔女的那个
+如果不是的话那最好 ...</blockquote>
+是的话那就真的随便演两集三人日常就豹变……？虽说我没意见……
+
