@@ -6006,3 +6006,14 @@ wingzero</blockquote>
 
 国际服的，有人要吗？
 
+
+*****
+
+####  夜之光  
+##### 573#       发表于 2025-4-23 06:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67747695&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2025-4-23 01:06</a>
+
+好辛苦，全副身家梭哈exia（100级）和刹那（80级），总算过了活动难度2，后面真的打不过了 ...</blockquote>
+100/80应该是可以单杀最高难度，第一回合三动到红高达同一列（背景卫星交界那）等反击对面半血，下面去个牺牲品中间勾GQX，第二回合（有需要其他人打杂兵补分）EXIA补一刀红高达（伤害不够加精神）结束。
+
