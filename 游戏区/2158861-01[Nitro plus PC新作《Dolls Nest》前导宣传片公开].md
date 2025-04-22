@@ -641,3 +641,11 @@ https://automaton-media.com/articles/interviewsjp/dollsnest-20250422-335959/
 
 就快发售了，期待<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  whzfjd  
+##### 67#       发表于 2025-4-22 22:54
+
+感觉连中大型ADV级别的宣发都没有，N+来搞慈善的？
+
