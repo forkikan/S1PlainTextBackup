@@ -380,3 +380,16 @@ Jump festa更新的介绍
 
 闪刀初出是吃饼常客，后面吃规制也有使用率再后面退环境了，新卡一直续投1301后估计也会有很多人用。就是原画实在太丑了，给了异画很大的提升空间<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">但是做成泡面番人设也输了一头吧
 
+
+*****
+
+####  Wondering  
+##### 44#       发表于 2025-4-22 09:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67745263&amp;ptid=2214067" target="_blank">恶意之刃 发表于 2025-4-22 08:56</a>
+
+那边厢伟魔漫画同一拨演员即将上演魔导编了，恩底魔导书甚至魔女术都要翻炒一下了
+
+闪刀初出是吃饼常客， ...</blockquote>
+恩底灵摆卡组在目前环境下本身就有很大限制，魔导书和魔女术的系统本身就是根本救不起来的那种，就算放在当年也非常古旧，不觉得有新卡能出现双子或者闪刀那种级别的补强
+
