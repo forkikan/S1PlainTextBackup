@@ -108,3 +108,14 @@ SP相比KEY之前的全价GAL系统可以说大幅简化，共通线实际只有
 
 —— 来自 vivo V2361GA, Android 14, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  Earendil_C  
+##### 95#       发表于 2025-4-23 06:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67747805&amp;ptid=2044761" target="_blank">冬月老师 发表于 2025-4-23 06:27</a>
+ 问一下，这部主线剧情是什么，有剧透吗  —— 来自 vivo V2361GA, Android 14, 鹅球 v3.5.99-alpha ...</blockquote>
+主线剧情就是  过暑假，跟不同的人过暑假，过奇幻的暑假<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+真要完整剧透的话去看 sp gal 的评论区吧，这毕竟是动画楼
+
