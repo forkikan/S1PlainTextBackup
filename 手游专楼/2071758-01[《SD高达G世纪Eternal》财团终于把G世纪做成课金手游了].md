@@ -5711,3 +5711,21 @@ ult机体开发哪个？</blockquote>
 
 我的99级exia没带加血防装备可以挨两发剩下血皮，但是万一出暴击就会死
 
+
+*****
+
+####  rockroxas  
+##### 546#       发表于 2025-4-22 19:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67746775&amp;ptid=2071758" target="_blank">棍机凹升龙 发表于 2025-4-22 18:38</a>
+
+是指不进入我第二回合，顺便exia应该不行？挨不了红高两发吧</blockquote>
+我这是0突机体/驾驶100，母舰是ur铃80，加了100防op
+
+母舰拉到100，或者一突估计就能顶住两发了？
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
