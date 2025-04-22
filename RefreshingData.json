@@ -87,7 +87,7 @@
     "lastedit": 1745246940,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2041774": {
     "totalreply": 16972,
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 13713,
+    "totalreply": 13714,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》4.17 回头是岸]",
-    "lastedit": 1745269684,
+    "lastedit": 1745281685,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12183,7 +12183,7 @@
     "lastedit": 1745241780,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2251159": {
     "totalreply": 45,
@@ -12199,6 +12199,15 @@
     "title": "[Yu-Gi-Oh! CARD GAME THE CHRONICLES 闪刀姬&amp;烙印短篇 25年4月 第一集已更新]",
     "newtitle": "[Yu-Gi-Oh! CARD GAME THE CHRONICLES 闪刀姬&amp;烙印短篇 25年4月 第一集已更新]",
     "lastedit": 1745256485,
+    "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2198136": {
+    "totalreply": 41,
+    "title": "[原创TV动画『前橋ウィッチーズ ／ 前桥魔女』 2025年4月]",
+    "newtitle": "[原创TV动画『前橋ウィッチーズ ／ 前桥魔女』 2025年4月]",
+    "lastedit": 1745281324,
     "category": "漫区",
     "active": true,
     "update": false
