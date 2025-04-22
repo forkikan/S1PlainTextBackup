@@ -423,3 +423,27 @@ Jump festa更新的介绍
 少看了陀螺之力啊，这么说吧，只要本家有检索本家的旧卡，就没有陀螺不能解决问题的，如果不能，那就再印 ...</blockquote>
 k社卖卡是有基本逻辑的，老卡获得强力补强前一般都有预组骗一波钱，漫画卡大多数就是纯垃圾，就问如果现在出个魔女术预组你会不会买吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当圣诞礼盒卖吗
 
+
+*****
+
+####  恶意之刃  
+##### 48#       发表于 2025-4-22 09:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67745327&amp;ptid=2214067" target="_blank">Wondering 发表于 2025-4-22 09:25</a>
+k社卖卡是有基本逻辑的，老卡获得强力补强前一般都有预组骗一波钱，漫画卡大多数就是纯垃圾，就问如果现在 ...</blockquote>
+闪刀不就漫画刷了点小辣鸡给大腿了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Wondering  
+##### 49#       发表于 2025-4-22 09:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67745324&amp;ptid=2214067" target="_blank">恶意之刃 发表于 2025-4-22 09:25</a>
+
+召唤师觉得弱是因为现在通召等于一光车，还吃灰遮泡z
+
+要是补个link1，补张卡组融合或者类似的召唤兽，让通 ...</blockquote>
+召唤兽这种ocg因为体系卡贫乏且占额外只能纯外挂的卡组除了你补强一整套体系，光是一个陀螺可解决不了初动问题
+
+单纯当做外挂的话，k社哪有把老无自肃外挂小系统还拉出来重新补强卖的先例啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新卡还卖不卖了
+
