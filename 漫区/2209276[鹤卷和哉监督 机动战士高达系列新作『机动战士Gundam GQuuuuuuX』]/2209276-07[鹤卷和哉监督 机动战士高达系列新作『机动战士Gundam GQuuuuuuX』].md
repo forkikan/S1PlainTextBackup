@@ -3509,3 +3509,49 @@ tight, tight, tight!
 
 ×
 
+
+*****
+
+####  mhss  
+##### 9687#       发表于 2025-4-22 20:31
+
+难道软萌的石川由依是障眼法，最终还是会变成女汉子战神么<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 9688#       发表于 2025-4-22 20:31
+
+这个就是，22年企划书的阿尔法杀手和红高达
+
+*****
+
+####  YU_JI  
+##### 9689#       发表于 2025-4-22 20:32
+
+我去？有新泄露了？真上机啊喵安
+
+
+*****
+
+####  AvenueIII  
+##### 9690#       发表于 2025-4-22 20:34
+
+高堡奇人，0079if，lies heavy，真实历史，alpha杀手，alpha塞可缪，“红高达是否真实存在”
+
+是这个修正时间线的意思吗鹤卷gg（
+
+*****
+
+####  a85982313  
+##### 9691#       发表于 2025-4-22 20:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67747018&amp;ptid=2209276" target="_blank">AvenueIII 发表于 2025-4-22 20:34</a>
+
+高堡奇人，0079if，lies heavy，真实历史，alpha杀手，alpha塞可缪，“红高达是否真实存在”
+
+是这个修正时 ...</blockquote>
+现在gqux是奥米伽塞克缪，红高达是阿尔法塞克缪
+
+阿尔法杀手这个应该还是存在的
+
