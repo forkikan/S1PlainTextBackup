@@ -633,3 +633,11 @@ https://automaton-media.com/articles/interviewsjp/dollsnest-20250422-335959/
 看到出了篇访谈</blockquote>
 1617年前后冒出来好几个ac精神续作，不就是因为fs当了几年魂工厂还一点风声没透露
 
+
+*****
+
+####  蓝雉  
+##### 66#       发表于 2025-4-22 20:02
+
+就快发售了，期待<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

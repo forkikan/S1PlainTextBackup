@@ -3430,3 +3430,22 @@ tight, tight, tight!
 
 这图怎么感觉见过
 
+
+*****
+
+####  kuluwu  
+##### 9679#       发表于 2025-4-22 20:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67746916&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-4-22 19:53</a>
+肤色都不一样，怎么看都是二创吧，字体又不是什么商用版，找一样的又不难 ...</blockquote>
+越假越真，真是同人感觉反而不会出现肤色画错的乌龙
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  ykyin09  
+##### 9680#       发表于 2025-4-22 20:03
+
+强化过后失去记忆了<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
