@@ -5112,3 +5112,14 @@ BJV65D2UG9A6FC    邀请码求一个，谢谢~
 
 不过我被打爆两台过了也能满1W分，这种不限制阵容的活动还是太简单了
 
+
+*****
+
+####  光辉传递者  
+##### 487#       发表于 2025-4-22 12:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67745776&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2025-4-22 11:50</a>
+
+我打算留着钻石梭哈喜欢的卡池，就没刷初始了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那这就只能练台SP过的SR自由了！
+
