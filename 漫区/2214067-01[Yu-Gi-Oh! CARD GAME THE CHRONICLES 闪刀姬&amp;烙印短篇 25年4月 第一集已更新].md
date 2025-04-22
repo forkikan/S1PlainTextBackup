@@ -505,3 +505,11 @@ k社卖卡是有基本逻辑的，老卡获得强力补强前一般都有预组�
 
 — from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  永恒的王牌  
+##### 56#       发表于 2025-4-23 01:50
+
+烙印不知道会选什么场景，要是烙印之光变结婚龙就好了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
