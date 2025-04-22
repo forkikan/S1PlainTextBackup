@@ -5800,3 +5800,25 @@ ult机体开发哪个？</blockquote>
 
 绑定账号怎么回事我选了日本和中国两个账号都说所在区域无法使用服务，挂了梯子的。
 
+
+*****
+
+####  hayate0079  
+##### 554#       发表于 2025-4-22 21:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67747110&amp;ptid=2071758" target="_blank">Marseille 发表于 2025-4-22 21:23</a>
+
+绑定账号怎么回事我选了日本和中国两个账号都说所在区域无法使用服务，挂了梯子的。 ...</blockquote>
+国际服不能日本和中国（
+
+
+*****
+
+####  Marseille  
+##### 555#       发表于 2025-4-22 21:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67747129&amp;ptid=2071758" target="_blank">hayate0079 发表于 2025-4-22 21:31</a>
+
+国际服不能日本和中国（</blockquote>
+好吧，再注册个新加坡的试试
+
