@@ -4068,3 +4068,55 @@ https://x.com/mn38ka/status/1913952406636761286
 
 水魔万事转决斗的不安感
 
+
+*****
+
+####  民工业  
+##### 9749#       发表于 2025-4-23 00:55
+
+ 本帖最后由 民工业 于 2025-4-23 00:56 编辑 
+
+看剧场版的时候觉得这里很可爱想做成表情了<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/7ab9fc26d8b44df30354ef7838d30609/1000116022.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  KharaLaplace  
+##### 9750#       发表于 2025-4-23 00:56
+
+每次战斗都有新歌听？你这让隔壁史上最狂少女乐队动画怎么看<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  岸浪白野  
+##### 9751#       发表于 2025-4-23 01:00
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  蕾洁之风  
+##### 9752#       发表于 2025-4-23 01:00
+
+阿尔法杀手
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 9753#       发表于 2025-4-23 01:03
+
+《コロニーの彼女》明明可以播久一点，之后小番茄在学校和出走修司见面期间BGM完全静默，有点怪。
+
+新曲一般。
+
