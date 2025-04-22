@@ -5437,3 +5437,24 @@ SSR驾驶员里算非常出色了
 
 以后GQUX系列实装如果有其他远程红黄机修司含金量还能上升
 
+
+*****
+
+####  MMIno  
+##### 520#       发表于 2025-4-22 14:57
+
+这真的能直接捕获到红高达吗？这几率也太低了吧
+
+
+*****
+
+####  xinfengj  
+##### 521#       发表于 2025-4-22 14:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67746256&amp;ptid=2071758" target="_blank">MMIno 发表于 2025-4-22 14:57</a>
+
+这真的能直接捕获到红高达吗？这几率也太低了吧</blockquote>
+打了20把EX拿到一个，万代很不做人了
+
+估计是怕刷一堆ssr去分解换GP？
+
