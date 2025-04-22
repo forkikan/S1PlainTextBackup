@@ -5513,3 +5513,33 @@ SSR驾驶员里算非常出色了
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  棍机凹升龙  
+##### 528#       发表于 2025-4-22 15:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67746039&amp;ptid=2071758" target="_blank">zExs 发表于 2025-4-22 13:42</a>
+
+EX难度手刷
+
+总帅一路笔直朝上到底线 开射界+1浮游飘第一轮 然后妖刀也直线上去2动去吸引番茄
+
+1回合结束 总 ...</blockquote>
+试了下效果不错，甚至能3星过
+
+
+*****
+
+####  棍机凹升龙  
+##### 529#       发表于 2025-4-22 15:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67746296&amp;ptid=2071758" target="_blank">blue321 发表于 2025-4-22 15:17</a>
+
+想请教一下关于掉落的问题
+
+像这次活动关，直接针对红高达通关的掉落和刷满小兵的掉落有差距吗？
+
+因为无氪还 ...</blockquote>
+任务有送突破素材
+
