@@ -5543,3 +5543,16 @@ EX难度手刷
 因为无氪还 ...</blockquote>
 任务有送突破素材
 
+
+*****
+
+####  帕蕾莉亚  
+##### 530#       发表于 2025-4-22 15:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67746326&amp;ptid=2071758" target="_blank">lighttt 发表于 2025-4-22 15:24</a>
+
+有人要初始的私信一下。有个能天使 自由 沙扎比 风灵和玲那个突破力的母舰，自选选的自由前几天刷的
+
+——  ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这要是自选还在就神初始了，略可惜
+
