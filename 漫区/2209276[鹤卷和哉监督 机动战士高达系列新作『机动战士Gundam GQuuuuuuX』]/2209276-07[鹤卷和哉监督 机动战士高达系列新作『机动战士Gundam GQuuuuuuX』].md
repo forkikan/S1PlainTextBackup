@@ -4239,3 +4239,21 @@ TMD鹤卷，你这选的新曲完全没有剧场版里ED前奏和nt面对面神�
 看到一个很合理的推测，就是真正的魔女其实指的是塞拉，黑发女是塞拉的mav；塞拉和夏亚一起失踪了，一直在 ...</blockquote>
 我之前就这么猜的
 
+
+*****
+
+####  岸浪白野  
+##### 9766#       发表于 2025-4-23 02:55
+
+ 本帖最后由 岸浪白野 于 2025-4-23 02:57 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67747712&amp;ptid=2209276" target="_blank">AvenueIII 发表于 2025-4-23 01:24</a>
+
+TMD鹤卷，你这选的新曲完全没有剧场版里ED前奏和nt面对面神交那种冲击力啊
+
+都可以算静音了 ...</blockquote>
+选曲这块已经和以前是鹤卷能纯按自己喜欢找乐队不同了
+
+现在基本是鹤卷提议出发点是人声配乐，然后再大家讨论得出核心要求是流行歌，然后是照井順政负责选曲
+
+供曲那部分就基本是看资方看谁热门塞谁唱歌了现在看来<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
