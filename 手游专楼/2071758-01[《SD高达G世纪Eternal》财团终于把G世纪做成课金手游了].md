@@ -5938,3 +5938,14 @@ B35NH8LTABV2D6
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">总帅一拖九在EX当幼儿园保姆真辛苦啊
 
+
+*****
+
+####  燃烧的石头  
+##### 567#       发表于 2025-4-23 00:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67747589&amp;ptid=2071758" target="_blank">棍机凹升龙 发表于 2025-4-23 00:19</a>
+
+我都怀疑活动图可获得物品里的红高是不是标错了，理论上用沙扎比去干掉假如炸了就立马重开就能一直刷到夺取 ...</blockquote>
+那个不是掠夺到的，就是掉落，这个没办法靠重开的
+

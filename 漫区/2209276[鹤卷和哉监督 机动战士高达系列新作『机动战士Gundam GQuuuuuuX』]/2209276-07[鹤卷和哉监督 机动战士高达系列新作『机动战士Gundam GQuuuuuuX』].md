@@ -3979,3 +3979,59 @@ https://x.com/mn38ka/status/1913952406636761286
 
 还是没新画面嘛，太对了鹤卷和哉。接下来是命运的第四集吗
 
+
+*****
+
+####  斯大林的拖拉机  
+##### 9739#       发表于 2025-4-23 00:27
+
+从0079就想吐槽了，联邦也太不重视我好兄弟提姆雷了吧
+
+这次也飞出去脑缺氧了吗
+
+*****
+
+####  Sliurus  
+##### 9740#       发表于 2025-4-23 00:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67747591&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-4-23 00:19</a>
+
+打完之后麻球快紧张死了，牢修一脸轻松</blockquote>
+马秋一直在躲子弹高速移动，修司没被针对相对轻松点
+
+*****
+
+####  kykawaiii  
+##### 9741#       发表于 2025-4-23 00:28
+
+什么b战力膨胀，100多击坠数的ace<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  azbhg1  
+##### 9742#       发表于 2025-4-23 00:32
+
+魔女CV公布了吗
+
+*****
+
+####  璇瑢子R  
+##### 9743#       发表于 2025-4-23 00:33
+
+这比赛不分组真的能开得下去吗
+
+*****
+
+####  oi99o  
+##### 9744#       发表于 2025-4-23 00:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67747615&amp;ptid=2209276" target="_blank">kykawaiii 发表于 2025-4-23 00:28</a>
+
+什么b战力膨胀，100多击坠数的ace
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+牢骡都142台了，100多真不算什么
+
