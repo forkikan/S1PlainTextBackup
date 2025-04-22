@@ -4999,3 +4999,25 @@ BYD连79都别出去， 就在79当十里坡剑神。小番茄和凤凰可以塞
 我打到zz中期已经觉得很吃力了，就50级的exia和45级的夸克斯打得动，z百式自由这些伤害不太够，都是45级左 ...</blockquote>
 资源都投给UR机体，只上UR一队无双就是了
 
+
+*****
+
+####  洛克萨斯  
+##### 475#       发表于 2025-4-22 11:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67745688&amp;ptid=2071758" target="_blank">windtrack 发表于 2025-4-22 11:24</a>
+
+资源都投给UR机体，只上UR一队无双就是了</blockquote>
+就一台exia，很努力砍完三个，然后夸克斯靠队友垫一刀勉强也能砍三个，剩下的兄弟们就很难了
+
+
+*****
+
+####  光辉传递者  
+##### 476#       发表于 2025-4-22 11:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67745671&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2025-4-22 11:20</a>
+
+我打到zz中期已经觉得很吃力了，就50级的exia和45级的夸克斯打得动，z百式自由这些伤害不太够，都是45级左 ...</blockquote>
+搞平均就是这种情况。现阶段卡狗粮要么集中能力让三动人先把雪球滚起来给其他队友当保姆，要么就只能去十里坡练级。
+
