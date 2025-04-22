@@ -3690,3 +3690,32 @@ https://x.com/mn38ka/status/1913952406636761286
 
 ×
 
+
+*****
+
+####  岸浪白野  
+##### 9705#       发表于 2025-4-22 23:52
+
+新歌来了
+
+*****
+
+####  kenqqex  
+##### 9706#       发表于 2025-4-22 23:52
+
+新歌!<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 9707#       发表于 2025-4-22 23:53
+
+第三集军团战部分bgm换了，不是星街彗星的ed
+
+*****
+
+####  暗黑能乐  
+##### 9708#       发表于 2025-4-22 23:53
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再看一遍还是觉得这个黑拳打的巨烂
+

@@ -837,3 +837,13 @@ TVアニメ　#アポカリプスホテル
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  KDConan  
+##### 79#       发表于 2025-4-22 23:53
+
+这个OP就很串的感觉太魔性了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
