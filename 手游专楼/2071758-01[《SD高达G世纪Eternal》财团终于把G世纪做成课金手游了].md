@@ -5764,3 +5764,14 @@ ult机体开发哪个？</blockquote>
 
 挨两发要9w5HP？100级母舰感觉达不到啊，大概一定要突破吧
 
+
+*****
+
+####  jackyhuang  
+##### 550#       发表于 2025-4-22 20:59
+
+好不容易终于零被击坠拿到EX三星了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+在HARD打地铺差距也不大…吧？
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
