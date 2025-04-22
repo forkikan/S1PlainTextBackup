@@ -812,3 +812,16 @@ TVアニメ　#アポカリプスホテル
 
 机械零件的备件可以理解，但是酒店有品质要求的床品之流的备件是怎么留存100年的，比如浴帽危机，正常来说这些备品早没了吧，中间或者平时有补货么资金结算如何进行。
 
+
+*****
+
+####  AraTurambar  
+##### 77#       发表于 2025-4-22 19:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67745289&amp;ptid=2196984" target="_blank">ParadiseMartyr 发表于 2025-4-22 09:10</a>
+
+他们的主厨机器人不是天天备菜么，怎么就没剩菜了
+
+—— 来自 鹅球 v3.3.96</blockquote>
+估计是这么细节的设定没传达给漫画家，当平行世界吧。
+

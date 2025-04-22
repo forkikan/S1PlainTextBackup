@@ -5679,3 +5679,27 @@ EXIA应当同理。
 
 ult机体开发哪个？
 
+
+*****
+
+####  光辉传递者  
+##### 543#       发表于 2025-4-22 19:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67746775&amp;ptid=2071758" target="_blank">棍机凹升龙 发表于 2025-4-22 18:38</a>
+是指不进入我第二回合，顺便exia应该不行？挨不了红高两发吧</blockquote>
+exia的话，等我这几天刷满了实验一下。
+我虽然机体满了但是刹那只有60级。
+
+—— 来自 LENOVO TB321FU, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  windtrack  
+##### 544#       发表于 2025-4-22 19:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67746814&amp;ptid=2071758" target="_blank">kerorokun 发表于 2025-4-22 18:57</a>
+
+ult机体开发哪个？</blockquote>
+都是对系列敌人特化加成，泛用性差，目前不推荐投入资源
+
