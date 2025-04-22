@@ -5312,3 +5312,14 @@ auto打了一把最高难度 发现没打过 晚上回家手动打一把试试
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只打得过活动第一关，太菜了
 
+
+*****
+
+####  光辉传递者  
+##### 507#       发表于 2025-4-22 14:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67746068&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2025-4-22 13:57</a>
+
+只打得过活动第一关，太菜了</blockquote>
+这倒不是菜不菜的问题，这个本就是小弟随便割草，番茄和红高难搞的一批需要专门培养高等级攻坚手或者援护围殴。如果之前是平均培养的打这个本特别吃亏。
+
