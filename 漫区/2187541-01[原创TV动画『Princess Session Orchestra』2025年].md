@@ -723,3 +723,11 @@ OPED映像解禁ーOPクセになる。
 
 这集红蓝真的让人完美幻视春春和小南，鸟窝头的公主和完美的前辈<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lydia5989  
+##### 70#       发表于 2025-4-22 20:21
+
+总觉得是敌我同源的作品。。无法回到音乐世界的jk的怨念构成了反派，不然也不会多次强调年龄和性别。。保不齐这里面还有前公主
+
