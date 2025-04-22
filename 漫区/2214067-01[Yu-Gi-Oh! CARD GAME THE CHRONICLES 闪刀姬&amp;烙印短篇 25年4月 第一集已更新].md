@@ -393,3 +393,33 @@ Jump festa更新的介绍
 闪刀初出是吃饼常客， ...</blockquote>
 恩底灵摆卡组在目前环境下本身就有很大限制，魔导书和魔女术的系统本身就是根本救不起来的那种，就算放在当年也非常古旧，不觉得有新卡能出现双子或者闪刀那种级别的补强
 
+
+*****
+
+####  恶意之刃  
+##### 45#       发表于 2025-4-22 09:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67745292&amp;ptid=2214067" target="_blank">Wondering 发表于 2025-4-22 09:12</a>
+恩底灵摆卡组在目前环境下本身就有很大限制，魔导书和魔女术的系统本身就是根本救不起来的那种，就算放在 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">少看了陀螺之力啊，这么说吧，只要本家有检索本家的旧卡，就没有陀螺不能解决问题的，如果不能，那就再印多个link1，还不能，就加个link1能找的假卡级场地。魔导书最强，有这种级别的新卡旧卡只要奥义书士带个1神判，其它踢进垃圾堆行了
+更别说一张魔法卡印了三个效果能当三张使的13期<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  恶意之刃  
+##### 46#       发表于 2025-4-22 09:25
+
+召唤师觉得弱是因为现在通召等于一光车，还吃灰遮泡z
+要是补个link1，补张卡组融合或者类似的召唤兽，让通召甚至一次融合通过后等于光车光体风兽+埃律西昂你怕不怕<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Wondering  
+##### 47#       发表于 2025-4-22 09:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67745311&amp;ptid=2214067" target="_blank">恶意之刃 发表于 2025-4-22 09:18</a>
+
+少看了陀螺之力啊，这么说吧，只要本家有检索本家的旧卡，就没有陀螺不能解决问题的，如果不能，那就再印 ...</blockquote>
+k社卖卡是有基本逻辑的，老卡获得强力补强前一般都有预组骗一波钱，漫画卡大多数就是纯垃圾，就问如果现在出个魔女术预组你会不会买吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当圣诞礼盒卖吗
+
