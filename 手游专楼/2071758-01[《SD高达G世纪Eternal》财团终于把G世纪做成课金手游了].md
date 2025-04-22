@@ -5566,3 +5566,13 @@ EX难度手刷
 
 资源全丢沙扎比和EXIA、2回合干了EX红高达刚好1W分3星通关<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  行政裁定书  
+##### 532#       发表于 2025-4-22 16:08
+
+活动刷的素材是红高达专用的？
+
+怎么用不了呢？点进去，用的还是普通素材
+
