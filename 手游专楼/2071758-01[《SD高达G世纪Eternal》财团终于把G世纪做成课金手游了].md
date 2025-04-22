@@ -5650,3 +5650,14 @@ EXIA应当同理。
 提醒我该去升级总帅的武器等级了，或者装个加攻零件试试能不能一回合</blockquote>
 一动肯定打不死的，满级主动+反击基本都能打死
 
+
+*****
+
+####  棍机凹升龙  
+##### 540#       发表于 2025-4-22 18:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67746758&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-4-22 18:31</a>
+
+一动肯定打不死的，满级主动+反击基本都能打死</blockquote>
+是指不进入我第二回合，顺便exia应该不行？挨不了红高两发吧
+
