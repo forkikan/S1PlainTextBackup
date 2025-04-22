@@ -5165,3 +5165,43 @@ SR自由总是要练的，要撑阵容的阿
 
 <img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">rank21，邀请码还没填，来个rank20的坛友互换一下呗
 
+
+*****
+
+####  行政裁定书  
+##### 492#       发表于 2025-4-22 12:46
+
+目前80级ur自由、ur风灵、urExia、以及送的Qux（目前67级），机师大约55级到60级左右，其他机体都没怎么练。
+
+目前这阵容状态能打活动吗？
+
+*****
+
+####  行政裁定书  
+##### 493#       发表于 2025-4-22 12:47
+
+另外，机体被打爆了只扣评分，不扣其他的数据的是吗？
+
+*****
+
+####  kenqqex  
+##### 494#       发表于 2025-4-22 12:47
+
+活动刷完15次exp了
+
+还行
+
+
+*****
+
+####  光辉传递者  
+##### 495#       发表于 2025-4-22 12:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67745913&amp;ptid=2071758" target="_blank">windtrack 发表于 2025-4-22 12:43</a>
+看奖励列表HARD也掉机体，不过我扫荡手刷都没出
+
+倒是HARD固定掉10个机体金狗粮，比刷HARD剧情实在多了，这 ...</blockquote>
+新的十里坡，诞生了！
+
+—— 来自 LENOVO TB321FU, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
