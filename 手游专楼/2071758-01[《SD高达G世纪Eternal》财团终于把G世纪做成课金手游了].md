@@ -5021,3 +5021,23 @@ BYD连79都别出去， 就在79当十里坡剑神。小番茄和凤凰可以塞
 我打到zz中期已经觉得很吃力了，就50级的exia和45级的夸克斯打得动，z百式自由这些伤害不太够，都是45级左 ...</blockquote>
 搞平均就是这种情况。现阶段卡狗粮要么集中能力让三动人先把雪球滚起来给其他队友当保姆，要么就只能去十里坡练级。
 
+
+*****
+
+####  马桶3  
+##### 477#       发表于 2025-4-22 11:43
+
+活动三关都过了，前两个自动脚打，第三面清完杂兵后需要手操一下，敌方红高达小脆皮，但是刚跨死怎么那么硬<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2408A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  windtrack  
+##### 478#       发表于 2025-4-22 11:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67745704&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2025-4-22 11:27</a>
+
+就一台exia，很努力砍完三个，然后夸克斯靠队友垫一刀勉强也能砍三个，剩下的兄弟们就很难了 ...</blockquote>
+就一台EXIA重开刷初始吧
+
