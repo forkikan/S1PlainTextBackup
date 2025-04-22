@@ -3624,3 +3624,15 @@ https://x.com/mn38ka/status/1913952406636761286
 吉翁爱情故事</blockquote>
 戏说不是胡说，改编不是乱编<img src="https://static.stage1st.com/image/smiley/carton2017/424.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 9699#       发表于 2025-4-22 22:18
+
+ 本帖最后由 岸浪白野 于 2025-4-22 22:20 编辑 
+
+这的确是22年企划书里的，不用觉得是P图了
+
+但正如上面有楼友猜的一样，有些是成废案了
+

@@ -5835,3 +5835,21 @@ ult机体开发哪个？</blockquote>
 同样阵容的建议先不要盲目投入资源了 ...</blockquote>
 算了一下数据，UR船也挨不了两发，不算op的话血到不了9w3
 
+
+*****
+
+####  无念  
+##### 557#       发表于 2025-4-22 22:16
+
+目前来看能天使想速刷要么你换个射程+1的机师cos总帅，要么带小弟一起上去，支援机或者菜刀都行，前者可能需要防住小番茄，后者要等能天使被砍爆后红高达自动下来打你<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  zExs  
+##### 558#       发表于 2025-4-22 22:24
+
+后悔自选能天了....还不如选个风灵凑一击必杀队.....
+
