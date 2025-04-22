@@ -4133,3 +4133,22 @@ https://x.com/mn38ka/status/1913952406636761286
 
 ×
 
+
+*****
+
+####  AvenueIII  
+##### 9755#       发表于 2025-4-23 01:24
+
+TMD鹤卷，你这选的新曲完全没有剧场版里ED前奏和nt面对面神交那种冲击力啊
+
+都可以算静音了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  冷静先找时光机  
+##### 9756#       发表于 2025-4-23 01:25
+
+有个细节之前没注意到，他都散布米粒了，这还怎么直播的<img src="https://static.stage1st.com/image/smiley/bundam2017/037.png" referrerpolicy="no-referrer">
+<[img src="https://s21.ax1x.com/2025/04/23/pEImtYR.png" referrerpolicy="no-referrer">
+<[img src="https://s21.ax1x.com/2025/04/23/pEImYk9.png" referrerpolicy="no-referrer">
+
