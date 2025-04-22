@@ -5041,3 +5041,50 @@ BYD连79都别出去， 就在79当十里坡剑神。小番茄和凤凰可以塞
 就一台exia，很努力砍完三个，然后夸克斯靠队友垫一刀勉强也能砍三个，剩下的兄弟们就很难了 ...</blockquote>
 就一台EXIA重开刷初始吧
 
+
+*****
+
+####  xinfengj  
+##### 479#       发表于 2025-4-22 11:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67745750&amp;ptid=2071758" target="_blank">马桶3 发表于 2025-4-22 11:43</a>
+
+活动三关都过了，前两个自动脚打，第三面清完杂兵后需要手操一下，敌方红高达小脆皮，但是刚跨死怎么那么硬 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">想让小番茄对砍一下，结果随手一点100级SP化过的QUX被一刀秒了，李鬼被李逵制裁了这是
+
+*****
+
+####  马桶3  
+##### 480#       发表于 2025-4-22 11:49
+
+说一下第三面要点，红高浮游炮超猛的，如果不能秒掉，最好带一个盾机骗一轮防反垫刀，不然出手我方就会减员。
+刚跨死小短手，远程可白嫖，但是很硬，建议各种debuff上齐后菜刀秒了，不然会连砍三刀，我不知道是什么机制，但她真的一回合连砍了我凤凰三刀，还好凤凰血厚顶住了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2408A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  洛克萨斯  
+##### 481#       发表于 2025-4-22 11:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67745755&amp;ptid=2071758" target="_blank">windtrack 发表于 2025-4-22 11:44</a>
+
+就一台EXIA重开刷初始吧</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">我打算留着钻石梭哈喜欢的卡池，就没刷初始了
+
+
+*****
+
+####  Meiien  
+##### 482#       发表于 2025-4-22 11:52
+
+得刷技能书<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">，扫荡到活动结束能够吗
+
+*****
+
+####  帕蕾莉亚  
+##### 483#       发表于 2025-4-22 11:56
+
+ex一关20体，技能素材限定活动机，机体菜，技师绑死，这活动从关卡到奖励都是垃圾啊
+
