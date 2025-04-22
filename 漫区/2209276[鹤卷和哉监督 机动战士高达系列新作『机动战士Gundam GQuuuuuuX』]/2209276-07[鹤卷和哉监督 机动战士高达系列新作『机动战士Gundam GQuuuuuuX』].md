@@ -4275,3 +4275,15 @@ TMD鹤卷，你这选的新曲完全没有剧场版里ED前奏和nt面对面神�
 
 喵安和麻球，经典的一个没头脑，一个不高兴<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mintslime  
+##### 9769#       发表于 2025-4-23 04:07
+
+<blockquote>ryanghj 发表于 2025-4-23 00:08
+看描述，地球军丢失了元祖的设计资料，所以只有拿到机体进行逆向工程的吉翁才能进行继续研发
+
+ ...</blockquote>
+那骡爹还是得没吧，不然骡爹在的话没资料也能继续开发
+
