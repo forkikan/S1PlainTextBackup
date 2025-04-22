@@ -38,3 +38,16 @@ ED：[https://youtu.be/dD8acaodHRk](https://youtu.be/dD8acaodHRk)
 
 不清楚是不是我眼睛有毛病，这个片子怎么好像分辨率非常低，好像是720p upscaling出来一样，还是后期用滤镜做了模糊效果。
 
+
+*****
+
+####  南風森愛恋  
+##### 89#       发表于 2025-4-22 21:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67745388&amp;ptid=2044761" target="_blank">乙津夢 发表于 2025-4-22 09:49</a>
+
+SP相比KEY之前的全价GAL系统可以说大幅简化，共通线实际只有个序章（动画前2集），之后每天白天就是在岛 ...</blockquote>
+地图翻牌子怕不是新岛老贼从sp社带过来的天赋哦
+
+不过一上来进鸥线感觉怪怪的，按推荐攻略顺序应该是老色批线最前面吧
+

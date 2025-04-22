@@ -3582,3 +3582,14 @@ tight, tight, tight!
 这个22年的企划书应该已经是七台幻之高达废案之后的那个版本了吧，感觉和正片设定已经会大差不差了，机设也 ...</blockquote>
 幻之高达那个应该是21年的企划书，这个你对照之前庵野在2号机列的时间表就行
 
+
+*****
+
+####  中野梓  
+##### 9695#       发表于 2025-4-22 21:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67746847&amp;ptid=2209276" target="_blank">a85982313 发表于 2025-4-22 19:20</a>
+
+逛k岛看到的，好像没人转过？不知道出处，多了个驾驶服人设</blockquote>
+不知道为什么，就是觉得挺真的
+
