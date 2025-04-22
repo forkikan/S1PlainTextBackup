@@ -447,3 +447,32 @@ k社卖卡是有基本逻辑的，老卡获得强力补强前一般都有预组�
 
 单纯当做外挂的话，k社哪有把老无自肃外挂小系统还拉出来重新补强卖的先例啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新卡还卖不卖了
 
+
+*****
+
+####  Wondering  
+##### 50#       发表于 2025-4-22 09:38
+
+如果阿莱召唤兽系统能作为外挂进行补强的话，那我要为我们勇者小系统鸣不平了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  恶意之刃  
+##### 51#       发表于 2025-4-22 09:38
+
+看你怎么定义外挂了，阿莱加冰火书的时候除了自己就是光属性素材手坑，算是个正儿八经的系列，只是主卡没有召唤兽字段没有召唤师字段罢了。教召你说召挂教还是教挂召。本家的小系统更适应现在20主轴20系统外的时代，只是主轴牌效太低，放现在阿莱高低得是双召检索，躺墓地诈尸（没错说的是1301男主）加个空场特召
+说外挂，勇者才是比较惨的，纯勇者只能md杯赛整活玩，现在连外挂牌效都过低被淘汰了
+
+
+*****
+
+####  Wondering  
+##### 52#       发表于 2025-4-22 09:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67745339&amp;ptid=2214067" target="_blank">恶意之刃 发表于 2025-4-22 09:30</a>
+
+闪刀不就漫画刷了点小辣鸡给大腿了</blockquote>
+然后漫画设定都快被k婊废弃了（说实话设定是后启示录世界观的确意义不明不知道想啥），新卡和漫画没半毛钱关系<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+另外，闪刀是因为有人气才出漫画的，并不是有漫画才有人气然后出大腿的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

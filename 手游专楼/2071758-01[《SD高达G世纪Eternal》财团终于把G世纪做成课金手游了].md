@@ -4854,3 +4854,25 @@ BYD连79都别出去， 就在79当十里坡剑神。小番茄和凤凰可以塞
 
 希望手游赚足奶粉钱后，出家用机正统高清续作，机体全一点。
 
+
+*****
+
+####  lighttt  
+##### 461#       发表于 2025-4-22 09:42
+
+机师不够用，感觉抽ur机师比机体还重要点<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  xinfengj  
+##### 462#       发表于 2025-4-22 09:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67745338&amp;ptid=2071758" target="_blank">行政裁定书 发表于 2025-4-22 09:29</a>
+
+新机体很多，可惜战斗画面都是低清视频，
+
+希望手游赚足奶粉钱后，出家用机正统高清续作，机体全一点。 ...</blockquote>
+剧情过场直接用动画高糊截图是最难绷的，和隔壁UE一比太丢人了
+
