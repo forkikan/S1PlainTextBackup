@@ -5949,3 +5949,15 @@ B35NH8LTABV2D6
 我都怀疑活动图可获得物品里的红高是不是标错了，理论上用沙扎比去干掉假如炸了就立马重开就能一直刷到夺取 ...</blockquote>
 那个不是掠夺到的，就是掉落，这个没办法靠重开的
 
+
+*****
+
+####  棍机凹升龙  
+##### 568#       发表于 2025-4-23 00:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67747616&amp;ptid=2071758" target="_blank">燃烧的石头 发表于 2025-4-23 00:28</a>
+那个不是掠夺到的，就是掉落，这个没办法靠重开的</blockquote>
+那太好了不用刻意刷了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
