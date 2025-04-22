@@ -5961,3 +5961,11 @@ B35NH8LTABV2D6
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  洛克萨斯  
+##### 569#       发表于 2025-4-23 01:06
+
+好辛苦，全副身家梭哈exia（100级）和刹那（80级），总算过了活动难度2，后面真的打不过了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

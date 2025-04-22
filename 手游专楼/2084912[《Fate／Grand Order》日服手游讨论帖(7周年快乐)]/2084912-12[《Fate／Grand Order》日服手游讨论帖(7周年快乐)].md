@@ -75,3 +75,14 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">200石下去没出强度美，连飞嫂都没补宝，怎么会这样
 
+
+*****
+
+####  alucardcz  
+##### 16526#       发表于 2025-4-23 01:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67744230&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-4-21 18:45</a>
+
+石头清空 1宝汇呆</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">太欧了 萌新allin连个4星都没有
+
