@@ -3186,3 +3186,15 @@ https://x.com/mn38ka/status/1913952406636761286
 
 联邦魔女大概率是强化人吧，怎么联邦战败了还在搞这种东西
 
+
+*****
+
+####  双菜  
+##### 9655#       发表于 2025-4-22 15:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67745994&amp;ptid=2209276" target="_blank">ヒトニナル 发表于 2025-4-22 13:18</a>
+新，新吗？
+今天的预告应该就是日本院线放的那个“特别映像”，有联邦魔女的那个
+如果不是的话那最好 ...</blockquote>
+影院的特别映象估计是后面几集的内容，第四集应该讲不到那么多内容
+

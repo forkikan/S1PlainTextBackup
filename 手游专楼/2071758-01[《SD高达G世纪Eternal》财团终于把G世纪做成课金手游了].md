@@ -5458,3 +5458,11 @@ SSR驾驶员里算非常出色了
 
 估计是怕刷一堆ssr去分解换GP？
 
+
+*****
+
+####  胖达君  
+##### 522#       发表于 2025-4-22 15:09
+
+啊？我扫荡1次就出捕获了一个红高达，还以为很好吃<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
