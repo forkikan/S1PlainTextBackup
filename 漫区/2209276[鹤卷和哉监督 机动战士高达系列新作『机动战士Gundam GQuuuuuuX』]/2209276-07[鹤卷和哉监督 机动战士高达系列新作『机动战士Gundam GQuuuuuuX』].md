@@ -3271,3 +3271,14 @@ https://x.com/mn38ka/status/1913952406636761286
 
 要是下集预告再唐突插入一集所罗门之战就无敌了
 
+
+*****
+
+####  chilno  
+##### 9663#       发表于 2025-4-22 17:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67744555&amp;ptid=2209276" target="_blank">璇瑢子R 发表于 2025-4-21 21:04</a>
+
+所以鸭妹战后是什么样的待遇呢</blockquote>
+当医生
+
