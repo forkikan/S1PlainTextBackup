@@ -5920,3 +5920,21 @@ B35NH8LTABV2D6
 
 笑死，GQUX第三话给的石头比打红高达活动给的还多
 
+
+*****
+
+####  棍机凹升龙  
+##### 565#       发表于 2025-4-23 00:19
+
+我都怀疑活动图可获得物品里的红高是不是标错了，理论上用沙扎比去干掉假如炸了就立马重开就能一直刷到夺取为止？但太累了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  xinfengj  
+##### 566#       发表于 2025-4-23 00:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">总帅一拖九在EX当幼儿园保姆真辛苦啊
+
