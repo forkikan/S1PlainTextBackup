@@ -5969,3 +5969,15 @@ B35NH8LTABV2D6
 
 好辛苦，全副身家梭哈exia（100级）和刹那（80级），总算过了活动难度2，后面真的打不过了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  光辉传递者  
+##### 570#       发表于 2025-4-23 02:13
+
+byd大号颗粒无收小号在normal难度刷出来仨红高，我已经开始怀疑活动打完这小号能满破俩红高了。
+
+现在问题是机师缺升级手段，狗粮不够用，哪怕机体拉满了机师上不去也是难搞。
+
+—— 来自 LENOVO TB321FU, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
