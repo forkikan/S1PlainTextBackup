@@ -5853,3 +5853,30 @@ ult机体开发哪个？</blockquote>
 
 后悔自选能天了....还不如选个风灵凑一击必杀队.....
 
+
+*****
+
+####  光辉传递者  
+##### 559#       发表于 2025-4-22 22:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67747253&amp;ptid=2071758" target="_blank">无念 发表于 2025-4-22 22:16</a>
+目前来看能天使想速刷要么你换个射程+1的机师cos总帅，要么带小弟一起上去，支援机或者菜刀都行，前者可能 ...</blockquote>
+这么看的话就是需要卖小弟了。我之前有看到过个视频就是能天使和gquuuuuux左右开弓打上去，但是是控和红高距离把夸克斯卖了，能天最后再补刀。
+
+—— 来自 LENOVO TB321FU, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  Abomination  
+##### 560#       发表于 2025-4-22 22:57
+
+国际服邀请码BYNLU9J26RXY56<img src="https://static.stage1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+没刷ur没花钻抽过自选牛高达打完今天活动，难度不是很大。
+
+一开始向中间走，等小番茄走下来十机围她一机(因为她三动所以只有她能走过来)。
+
+之后清杂出援兵，用魔霸+zz map清援兵，boss自己会走过来的，算好距离不要被boss打。
+
+来了先把支持攻击的放好位置，用100%闪避打boss开支持攻击再补刀就可以轻松过关。<img src="https://static.stage1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
