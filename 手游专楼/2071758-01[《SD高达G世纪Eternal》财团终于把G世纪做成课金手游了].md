@@ -5981,3 +5981,18 @@ byd大号颗粒无收小号在normal难度刷出来仨红高，我已经开始�
 
 —— 来自 LENOVO TB321FU, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  森兰丸  
+##### 571#       发表于 2025-4-23 03:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67746183&amp;ptid=2071758" target="_blank">kenqqex 发表于 2025-4-22 14:35</a>
+
+wingzero</blockquote>
+在犹豫是SP飞翼0还是SP这次活动送的红高达
+
+飞翼0我现在才1破....靠每天扫荡3次H本不知道要哪年哪月才能满破....（手动刷是不可能的
+
+红高达直接送你满破.....送你的SSR机师也不差<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

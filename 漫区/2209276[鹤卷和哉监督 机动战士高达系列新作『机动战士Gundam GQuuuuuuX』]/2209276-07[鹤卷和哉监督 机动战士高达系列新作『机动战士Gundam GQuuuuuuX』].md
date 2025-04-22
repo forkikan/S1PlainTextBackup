@@ -4267,3 +4267,11 @@ TMD鹤卷，你这选的新曲完全没有剧场版里ED前奏和nt面对面神�
 看到一个很合理的推测，就是真正的魔女其实指的是塞拉，黑发女是塞拉的mav；塞拉和夏亚一起失踪了，一直在 ...</blockquote>
 你意思是，塞拉在没有被各种部队持续不断的追击的情况下，从平民直接成为拍骆驼，然后没两个月就拿下和骡子一个级别的击坠数吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xwz  
+##### 9768#       发表于 2025-4-23 03:25
+
+喵安和麻球，经典的一个没头脑，一个不高兴<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
