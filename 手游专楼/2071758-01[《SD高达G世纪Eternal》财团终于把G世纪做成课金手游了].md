@@ -5148,3 +5148,20 @@ SR自由总是要练的，要撑阵容的阿
 
 —— 来自 LENOVO TB321FU, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  windtrack  
+##### 490#       发表于 2025-4-22 12:43
+
+看奖励列表HARD也掉机体，不过我扫荡手刷都没出
+
+倒是HARD固定掉10个机体金狗粮，比刷HARD剧情实在多了，这几天多余体力都扔这了
+
+*****
+
+####  帕蕾莉亚  
+##### 491#       发表于 2025-4-22 12:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">rank21，邀请码还没填，来个rank20的坛友互换一下呗
+
