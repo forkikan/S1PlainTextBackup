@@ -5888,3 +5888,27 @@ ult机体开发哪个？</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我牛都二星了 为什么不给我山楂饼
 
+
+*****
+
+####  zExs  
+##### 562#       发表于 2025-4-22 23:40
+
+ 本帖最后由 zExs 于 2025-4-22 23:42 编辑 
+
+邀请码活动居然还有限时的?最后一天了...
+
+*****
+
+####  zExs  
+##### 563#       发表于 2025-4-22 23:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67747345&amp;ptid=2071758" target="_blank">Abomination 发表于 2025-4-22 22:57</a>
+
+国际服邀请码BYNLU9J26RXY56
+
+没刷ur没花钻抽过自选牛高达打完今天活动，难度不是很大。</blockquote>
+填了求回填
+
+B35NH8LTABV2D6
+

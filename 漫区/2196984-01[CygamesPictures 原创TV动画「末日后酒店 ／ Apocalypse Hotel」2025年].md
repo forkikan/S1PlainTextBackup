@@ -825,3 +825,15 @@ TVアニメ　#アポカリプスホテル
 —— 来自 鹅球 v3.3.96</blockquote>
 估计是这么细节的设定没传达给漫画家，当平行世界吧。
 
+
+*****
+
+####  concert  
+##### 78#       发表于 2025-4-22 23:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67743151&amp;ptid=2196984" target="_blank">NBXX 发表于 2025-4-21 12:49</a>
+来自本作演出 廖程芝 的微博：https://weibo.com/2788122443/PnIJI0oWG?refer_flag=1001030103_</blockquote>
+都没注意原来是廖导负责主演出 厉害了
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
