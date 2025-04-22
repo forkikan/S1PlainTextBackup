@@ -4981,3 +4981,21 @@ BYD连79都别出去， 就在79当十里坡剑神。小番茄和凤凰可以塞
 送的修司是双支援，不过只能开GQuX的机才能触发，绑定红高了...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">卜要慌，慢慢打就是了。反正现在都是卡狗粮阶段，养不起几个高战力的。
 
+
+*****
+
+####  洛克萨斯  
+##### 473#       发表于 2025-4-22 11:20
+
+我打到zz中期已经觉得很吃力了，就50级的exia和45级的夸克斯打得动，z百式自由这些伤害不太够，都是45级左右
+
+*****
+
+####  windtrack  
+##### 474#       发表于 2025-4-22 11:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67745671&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2025-4-22 11:20</a>
+
+我打到zz中期已经觉得很吃力了，就50级的exia和45级的夸克斯打得动，z百式自由这些伤害不太够，都是45级左 ...</blockquote>
+资源都投给UR机体，只上UR一队无双就是了
+
