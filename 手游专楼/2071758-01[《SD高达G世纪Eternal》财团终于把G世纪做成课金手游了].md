@@ -5268,3 +5268,18 @@ BYD这小番茄血量比红高还多，服了</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  光辉传递者  
+##### 503#       发表于 2025-4-22 13:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67745998&amp;ptid=2071758" target="_blank">棍机凹升龙 发表于 2025-4-22 13:18</a>
+
+估计初衷是让人拉走小番茄然后去秒红高</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我大号能过hard，小号们一个都过不去，只能在normal当十里坡剑圣了。
+
+hard只能说我自己的大号高练路线不能算错，双百级三动人保姆加上90级的小番茄，双满破G3和满破完美强袭围殴小番茄再打红高，一群老板拿去清场子混经验。
+
+等下试试更高难度。
+
