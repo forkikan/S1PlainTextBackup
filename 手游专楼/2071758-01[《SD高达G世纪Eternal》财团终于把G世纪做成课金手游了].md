@@ -4827,3 +4827,20 @@ BYD连79都别出去， 就在79当十里坡剑神。小番茄和凤凰可以塞
 
 —— 来自 OnePlus PKR110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  蒂芙尼的早餐  
+##### 458#       发表于 2025-4-22 08:54
+
+照着新闻对了下开发树的位置 seed新坦克和黑盖茨是sr 龙骑强袭和村雨都是ssr？
+
+那村雨还挺有牌面的 
+
+*****
+
+####  行政裁定书  
+##### 459#       发表于 2025-4-22 08:55
+
+角色需求是不是升满5级以后，就不用全都去满足了吧？需求的东西成本越来越高<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

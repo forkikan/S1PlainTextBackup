@@ -3130,3 +3130,11 @@ https://x.com/mn38ka/status/1913952406636761286
 <img src="https://p.sda1.dev/23/c79053d9c850669dfbb0e384de41a8a2/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/23/6c8d099fff3ab4f0a5f6af6ae72be2bb/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nagamasa  
+##### 9649#       发表于 2025-4-22 09:03
+
+看完第二集被撩起来才去看的电影，感觉第二集剪得挺有水准的。各种玩元祖TV梗就不说了，故意把几台大扎姆的镜头留着，提到大猩猩战死那段也留了，知道正史的人应该会好奇为什么没了高达都能到这种程度，然后剪掉的那6 7分钟刚好就引了鸭妹这么关键的角色出来<img src="https://static.stage1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
