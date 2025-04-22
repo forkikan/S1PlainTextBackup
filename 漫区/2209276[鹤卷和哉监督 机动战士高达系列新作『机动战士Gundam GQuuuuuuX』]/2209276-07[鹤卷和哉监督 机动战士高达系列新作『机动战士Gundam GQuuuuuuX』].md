@@ -4035,3 +4035,21 @@ https://x.com/mn38ka/status/1913952406636761286
 —— 来自 鹅球 v3.3.96-alpha</blockquote>
 牢骡都142台了，100多真不算什么
 
+
+*****
+
+####  バーチャルS1er  
+##### 9745#       发表于 2025-4-23 00:37
+
+两个new type就这水平？而且机体差距也挺小的，当初元祖不防御别人拿着机炮都打不动<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  无名小卒  
+##### 9746#       发表于 2025-4-23 00:41
+
+也就是说，gqx电影里有一首男女主共同战斗的BGM，然后tv版这首歌被拿来做了个百合ED，结果播到男女主共同战斗的剧情，又找同一个歌手唱了另一首bgm吗
+
+—— 来自 Xiaomi 23013RK75C, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
