@@ -5556,3 +5556,13 @@ EX难度手刷
 ——  ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这要是自选还在就神初始了，略可惜
 
+
+*****
+
+####  blue321  
+##### 531#       发表于 2025-4-22 16:05
+
+多谢楼友的思路
+
+资源全丢沙扎比和EXIA、2回合干了EX红高达刚好1W分3星通关<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
