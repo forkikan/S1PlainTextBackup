@@ -4257,3 +4257,13 @@ TMD鹤卷，你这选的新曲完全没有剧场版里ED前奏和nt面对面神�
 
 供曲那部分就基本是看资方看谁热门塞谁唱歌了现在看来<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  azbhg1  
+##### 9767#       发表于 2025-4-23 03:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67747756&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-4-23 02:24</a>
+看到一个很合理的推测，就是真正的魔女其实指的是塞拉，黑发女是塞拉的mav；塞拉和夏亚一起失踪了，一直在 ...</blockquote>
+你意思是，塞拉在没有被各种部队持续不断的追击的情况下，从平民直接成为拍骆驼，然后没两个月就拿下和骡子一个级别的击坠数吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
