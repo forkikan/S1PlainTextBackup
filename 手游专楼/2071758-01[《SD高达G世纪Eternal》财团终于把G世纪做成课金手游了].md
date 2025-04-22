@@ -5466,3 +5466,50 @@ SSR驾驶员里算非常出色了
 
 啊？我扫荡1次就出捕获了一个红高达，还以为很好吃<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blue321  
+##### 523#       发表于 2025-4-22 15:17
+
+ 本帖最后由 blue321 于 2025-4-22 15:19 编辑 
+
+想请教一下关于掉落的问题
+
+像这次活动关，直接针对红高达通关的掉落和刷满小兵的掉落有差距吗？
+
+因为无氪还是挺需要红高达这种免费SSR强度的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  leonyang19  
+##### 524#       发表于 2025-4-22 15:18
+
+不管强度如何算是目前唯二入手门槛低的满突SSR，而且还有一个配套机师，值得投入资源
+
+只是这10天左右的时间只靠skip的话不知道能不能满突
+
+*****
+
+####  12481632  
+##### 525#       发表于 2025-4-22 15:18
+
+任务已经给了突破素材了，就别指望万代会好心再给你高捕获率了
+
+
+*****
+
+####  洛克萨斯  
+##### 526#       发表于 2025-4-22 15:24
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">我这种只打得过第一关的没办法满破啊，第一个活动不能亲民一点么
+
+*****
+
+####  lighttt  
+##### 527#       发表于 2025-4-22 15:24
+
+有人要初始的私信一下。有个能天使 自由 沙扎比 风灵和玲那个突破力的母舰，自选选的自由<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">前几天刷的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
