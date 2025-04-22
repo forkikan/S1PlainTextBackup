@@ -89,3 +89,12 @@ SP相比KEY之前的全价GAL系统可以说大幅简化，共通线实际只有
 不清楚是不是我眼睛有毛病，这个片子怎么好像分辨率非常低，好像是720p upscaling出来一样，还是后期用滤镜 ...</blockquote>
 垃圾滤镜，自带一层灰
 
+
+*****
+
+####  医生狼多  
+##### 93#       发表于 2025-4-23 01:34
+
+扣掉sp的人物我就是海未普通 欧 紬 苍 白羽这样打的<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+大半夜看的好舒服啊，可以睡个好觉了
+
