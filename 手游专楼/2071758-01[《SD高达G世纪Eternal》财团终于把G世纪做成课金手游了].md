@@ -4962,3 +4962,22 @@ BYD连79都别出去， 就在79当十里坡剑神。小番茄和凤凰可以塞
 
 —— 来自 vivo V2408A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  windtrack  
+##### 471#       发表于 2025-4-22 11:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">送的修司是双支援，不过只能开GQuX的机才能触发，绑定红高了...
+
+
+*****
+
+####  光辉传递者  
+##### 472#       发表于 2025-4-22 11:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67745630&amp;ptid=2071758" target="_blank">windtrack 发表于 2025-4-22 11:04</a>
+
+送的修司是双支援，不过只能开GQuX的机才能触发，绑定红高了...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">卜要慌，慢慢打就是了。反正现在都是卡狗粮阶段，养不起几个高战力的。
+
