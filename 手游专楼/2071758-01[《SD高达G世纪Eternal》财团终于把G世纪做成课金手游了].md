@@ -5592,3 +5592,21 @@ EX难度手刷
 
 EXIA三动在2格处打一下红高达，敌方回合红高达最先动直接反击打死收工<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  光辉传递者  
+##### 535#       发表于 2025-4-22 17:37
+
+ 本帖最后由 光辉传递者 于 2025-4-22 17:39 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67746039&amp;ptid=2071758" target="_blank">zExs 发表于 2025-4-22 13:42</a>
+
+EX难度手刷
+
+总帅一路笔直朝上到底线 开射界+1浮游飘第一轮 然后妖刀也直线上去2动去吸引番茄
+
+1回合结束 总 ...</blockquote>
+试了一下，甚至连妖刀都不需要。双百的总帅+沙扎比直接就是三动打上去，射界+1打一次红高，然后结束回合，红高会第一个动直接来送，反击送走。
+
+EXIA应当同理。
+
