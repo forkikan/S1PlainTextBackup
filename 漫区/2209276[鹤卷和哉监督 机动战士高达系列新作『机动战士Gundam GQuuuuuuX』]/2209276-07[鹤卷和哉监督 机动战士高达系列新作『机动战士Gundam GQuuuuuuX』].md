@@ -5833,3 +5833,14 @@ Sci-Fi这列的介绍图可以
 
 ×
 
+
+*****
+
+####  gamedreamer  
+##### 9902#       发表于 2025-4-24 07:11
+
+话说回来，喵安那驾驶服很明显新吉翁的吧
+ 到时候会不会出现类似于“一年战争的难民成了新吉翁的王牌”这种地狱笑话<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
