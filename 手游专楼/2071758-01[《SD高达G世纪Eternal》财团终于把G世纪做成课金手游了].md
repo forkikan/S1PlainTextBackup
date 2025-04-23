@@ -6076,3 +6076,13 @@ wingzero</blockquote>
 
 这公告，有人因为bug过了永恒之路EX1么？
 
+
+*****
+
+####  kenqqex  
+##### 580#       发表于 2025-4-23 11:35
+
+【【G世代 永恒】 永恒之路EX1(优化版)】 [https://www.bilibili.com/video/B ... c7c459dc1b01014d6ad](https://www.bilibili.com/video/BV1nr5XzKEJ8/?share_source=copy_web&amp;vd_source=9a9a522437e8cc7c459dc1b01014d6ad)
+
+这个攻略不错
+

@@ -731,3 +731,15 @@ OPED映像解禁ーOPクセになる。
 
 总觉得是敌我同源的作品。。无法回到音乐世界的jk的怨念构成了反派，不然也不会多次强调年龄和性别。。保不齐这里面还有前公主
 
+
+*****
+
+####  modedd  
+##### 71#       发表于 2025-4-23 11:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67746989&amp;ptid=2187541" target="_blank">lydia5989 发表于 2025-4-22 20:21</a>
+总觉得是敌我同源的作品。。无法回到音乐世界的jk的怨念构成了反派，不然也不会多次强调年龄和性别。。保不 ...</blockquote>
+这几个帅哥里面出个前公主也太变态了，绝对不可能这么搞，少女的怨念集合体也有点难绷<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
