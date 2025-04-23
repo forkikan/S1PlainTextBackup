@@ -6360,3 +6360,14 @@ SSR除非真爱否则没必要SP化，提升太小
 
 最后还是打了w的h1然后花34票做了癌变，这剧情的掉率也太低了
 
+
+*****
+
+####  zExs  
+##### 607#       发表于 2025-4-23 19:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67748761&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2025-4-23 14:07</a>
+
+exia100了，后面资源是砸给夸克斯还是z还是sr自由呢</blockquote>
+看你有啥机师
+
