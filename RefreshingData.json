@@ -87,7 +87,7 @@
     "lastedit": 1745387880,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2041774": {
     "totalreply": 16972,
@@ -6324,7 +6324,7 @@
     "lastedit": 1745423220,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2071168": {
     "totalreply": 2270,
@@ -8415,10 +8415,10 @@
     "update": false
   },
   "2145840": {
-    "totalreply": 2897,
+    "totalreply": 2898,
     "title": "[学园偶像大师]",
     "newtitle": "[学园偶像大师]",
-    "lastedit": 1745341805,
+    "lastedit": 1745429165,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -10593,10 +10593,10 @@
     "update": false
   },
   "2210855": {
-    "totalreply": 9818,
+    "totalreply": 9820,
     "title": "[中二电波台真爱楼 2.0]",
     "newtitle": "[中二电波台真爱楼 2.0]",
-    "lastedit": 1745428324,
+    "lastedit": 1745429284,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12285,10 +12285,10 @@
     "update": false
   },
   "2249871": {
-    "totalreply": 157,
+    "totalreply": 158,
     "title": "[b社官宣：4.22晚11点公开上古卷轴4 湮灭复刻版]",
     "newtitle": "[上古卷轴4：湮没 复刻版正式公布并直接发售，登陆PC／XS／PS5，Game Pass首发游戏]",
-    "lastedit": 1745426764,
+    "lastedit": 1745429166,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12327,7 +12327,7 @@
     "lastedit": 1745418660,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2249132": {
     "totalreply": 45,
@@ -12411,10 +12411,10 @@
     "update": false
   },
   "2251258": {
-    "totalreply": 45,
+    "totalreply": 46,
     "title": "[《光与影：33号远征队》mc开分92，ign9，gs9]",
     "newtitle": "[《光与影：33号远征队》mc开分92，ign9，gs9]",
-    "lastedit": 1745427004,
+    "lastedit": 1745429165,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12425,6 +12425,15 @@
     "newtitle": "[大鱼海棠2 先导PV]",
     "lastedit": 1745426524,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2251171": {
+    "totalreply": 41,
+    "title": "[【性癖发言】轩3外传天之痕，小雪出场一下勾起了许多回忆]",
+    "newtitle": "[【性癖发言】轩3外传天之痕，小雪出场一下勾起了许多回忆]",
+    "lastedit": 1745429166,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
