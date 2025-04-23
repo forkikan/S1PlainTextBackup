@@ -6157,3 +6157,27 @@ AP4XSFYVSGR36C
 
 刷的EX没见过掉红高，楼里拿到的好像都是hard和normal？是不是老万觉得能过EX就不需要掉落所以几率调低了
 
+
+*****
+
+####  kenqqex  
+##### 588#       发表于 2025-4-23 12:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67748503&amp;ptid=2071758" target="_blank">棍机凹升龙 发表于 2025-4-23 12:30</a>
+
+刷的EX没见过掉红高，楼里拿到的好像都是hard和normal？是不是老万觉得能过EX就不需要掉落所以几率调低了 ...</blockquote>
+
+我打ex滚了2台
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  Schw  
+##### 589#       发表于 2025-4-23 12:36
+
+夺取是有什么条件吗，造癌变差一个蓝色的前继机，一直刷w的最后一关怎么都不掉的呀<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
