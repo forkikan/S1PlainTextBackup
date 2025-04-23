@@ -6352,3 +6352,11 @@ SSR除非真爱否则没必要SP化，提升太小
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没必要存，单抽券只能抽普池
 
+
+*****
+
+####  Schw  
+##### 606#       发表于 2025-4-23 18:14
+
+最后还是打了w的h1然后花34票做了癌变，这剧情的掉率也太低了
+
