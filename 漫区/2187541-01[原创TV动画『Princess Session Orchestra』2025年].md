@@ -768,3 +768,16 @@ OPED映像解禁ーOPクセになる。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  lydia5989  
+##### 74#       发表于 2025-4-23 12:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67748575&amp;ptid=2187541" target="_blank">modedd 发表于 2025-4-23 12:56</a>
+
+就是单纯的故事从主角出场才算正式开始吧
+
+—— 来自 鹅球 v3.5.99</blockquote>
+但看这集红色问跟班的话看，公主跟怪物战斗的传说打了很久，仙境人甚至不知道有干部和高等级怪就很迷。。仙境又存在了很久，反正是年番，5月凑齐人就不错，op已经把这一年受害者都列出来了 2333
+

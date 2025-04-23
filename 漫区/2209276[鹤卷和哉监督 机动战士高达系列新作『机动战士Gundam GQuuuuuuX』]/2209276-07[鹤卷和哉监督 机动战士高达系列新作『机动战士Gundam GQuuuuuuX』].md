@@ -4989,3 +4989,17 @@ GQ世界线下联邦军MS驾驶员的击坠数据较正史膨胀是有其内在�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  zzf111  
+##### 9829#       发表于 2025-4-23 13:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67748232&amp;ptid=2209276" target="_blank">灵魂收割机 发表于 2025-4-23 10:55</a>
+
+安琪离过婚这个设定早晚得用上吧，用在谁身上呢……</blockquote>
+之前讨论说安琪要是西姆斯的话除了哈罗其他都能解释
+
+早期塞可缪系统开发者，至少认识塞可缪。正史里是绿叔叔下属，同一集里和绿叔叔一起被阿姆罗击坠（显得在吉吉高达里抱着哈罗更地狱了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+<img src="https://p.sda1.dev/23/d3f9161525165140fd08e458fee3675e/213134.png" referrerpolicy="no-referrer">
+
