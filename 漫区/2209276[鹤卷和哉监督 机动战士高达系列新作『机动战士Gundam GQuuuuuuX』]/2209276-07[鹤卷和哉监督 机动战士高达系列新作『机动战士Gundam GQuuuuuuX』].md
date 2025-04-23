@@ -4540,3 +4540,32 @@ TMD鹤卷，你这选的新曲完全没有剧场版里ED前奏和nt面对面神�
 
 剧场版终于放完了
 
+
+*****
+
+####  岸浪白野  
+##### 9794#       发表于 2025-4-23 10:12
+
+虽然是玛秋幻想的报道，整成速度就过去就是想让人暂停来看，伊兹玛的官方语言设成日语报道就能都是使用日文，也体现了鹤卷使用日文是想在画面上表达很多内容
+
+将路人听说来表达父亲是外交官 母亲是监察局职员，对上了场刊说的父亲在别的side工作
+
+[X 上的 えんぎよし：“[url]https://t.co/PeSyoUNeCq](https://x.com/ENGIYOSI/status/1914849722059350179)” / X[/url]
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  newise  
+##### 9795#       发表于 2025-4-23 10:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67748089&amp;ptid=2209276" target="_blank">57042711 发表于 2025-4-23 09:59</a>
+
+斧头丢出去转一圈又回来了，然后女主发功预判了运动轨迹
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+不是盖塔的トマホークブーメラン在太空真的能回旋吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
