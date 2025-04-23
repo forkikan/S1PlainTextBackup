@@ -6086,3 +6086,24 @@ wingzero</blockquote>
 
 这个攻略不错
 
+
+*****
+
+####  dio999  
+##### 581#       发表于 2025-4-23 11:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67748354&amp;ptid=2071758" target="_blank">kenqqex 发表于 2025-4-23 11:35</a>
+【【G世代 永恒】 永恒之路EX1(优化版)】 https://www.bilibili.com/video/BV1nr5XzKEJ8/?share_source=cop ...</blockquote>
+可以抄作业了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  windtrack  
+##### 582#       发表于 2025-4-23 11:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67747933&amp;ptid=2071758" target="_blank">邪恶的shah 发表于 2025-4-23 09:08</a>
+你们都在那研究反复刷掉落红高达干啥
+
+红高达满破的材料做日常任务送啊，不是只能用机体升星。刷完几天就送3 ...</blockquote>
+主要ex难度固定给金狗粮，比刷剧情h收益略高。剧情h没活动时候慢慢刷就行了。
+
