@@ -794,3 +794,28 @@ OPED映像解禁ーOPクセになる。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  lydia5989  
+##### 76#       发表于 2025-4-23 13:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67748656&amp;ptid=2187541" target="_blank">modedd 发表于 2025-4-23 13:25</a>
+
+感觉是有意在藏反派的信息，所以故意让剧中的人物对他们全是一问三不知的状态
+
+第一话专门强调了是只有女 ...</blockquote>
+访谈又说原作有点黑暗的意思？等等人凑齐看看有没有新跟班，目前这跟班和仙境存在感不强倒是，而且后期肯定是传统艺能，怪物去现实世界打架
+
+
+*****
+
+####  modedd  
+##### 77#       发表于 2025-4-23 13:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67748673&amp;ptid=2187541" target="_blank">lydia5989 发表于 2025-4-23 13:30</a>
+访谈又说原作有点黑暗的意思？等等人凑齐看看有没有新跟班，目前这跟班和仙境存在感不强倒是，而且后期肯 ...</blockquote>
+还有战姬方老大是个什么设定也还不知道，总不可能真的要一只银兽过劳死吧（
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

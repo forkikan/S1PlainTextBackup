@@ -6202,3 +6202,61 @@ AP4XSFYVSGR36C
 
 B3RV4GE28HRFUU
 
+
+*****
+
+####  閻魔愛  
+##### 592#       发表于 2025-4-23 13:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67748498&amp;ptid=2071758" target="_blank">两仪式29 发表于 2025-4-23 12:29</a>
+重新在日服刷了个初始，这里有人玩日服吗？求个互邀谢谢
+
+AP4XSFYVSGR36C</blockquote>
+A3K8X5EQNVWZ3S 我的日服码，互相邀请下吧～
+
+*****
+
+####  xinfengj  
+##### 593#       发表于 2025-4-23 13:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67748525&amp;ptid=2071758" target="_blank">Schw 发表于 2025-4-23 12:36</a>
+夺取是有什么条件吗，造癌变差一个蓝色的前继机，一直刷w的最后一关怎么都不掉的呀 ...</blockquote>
+<img src="https://p.sda1.dev/23/d73fff2dc73ebf6ef87fcd456ade867d/CMP_20250423132849239.jpg" referrerpolicy="no-referrer">
+首先不是捕获，没有捕获动画
+是过关结算掉落，爆率体感1–2%？
+
+
+*****
+
+####  xinfengj  
+##### 594#       发表于 2025-4-23 13:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67748503&amp;ptid=2071758" target="_blank">棍机凹升龙 发表于 2025-4-23 12:30</a>
+刷的EX没见过掉红高，楼里拿到的好像都是hard和normal？是不是老万觉得能过EX就不需要掉落所以几率调低了 ...</blockquote>
+<img src="https://p.sda1.dev/23/acaefe05e87303cedc12bada63b2aea2/CMP_20250423133236781.jpg" referrerpolicy="no-referrer">
+挺难掉的，但是EX确实会掉
+
+*****
+
+####  帕蕾莉亚  
+##### 595#       发表于 2025-4-23 13:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67748674&amp;ptid=2071758" target="_blank">xinfengj 发表于 2025-4-23 13:31</a>
+
+就嗯打，几率有时候很低，一直不出建议大退游戏重进试试</blockquote>
+他问的是剧本里的捕获……造艾比安用的
+
+*****
+
+####  xinfengj  
+##### 596#       发表于 2025-4-23 13:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67748681&amp;ptid=2071758" target="_blank">帕蕾莉亚 发表于 2025-4-23 13:33</a>
+
+他问的是剧本里的捕获……造艾比安用的</blockquote>
+剧本里的捕获感觉有时候连续捕获几台机会“卡住”
+
+怎么再刷都不会捕获
+
+要重进游戏才会刷新
+

@@ -5045,3 +5045,12 @@ GQ世界线下联邦军MS驾驶员的击坠数据较正史膨胀是有其内在�
 
 话说那个好像硬盘一样的钥匙，原型是不是0079里面提姆·雷的回路<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  iceddd  
+##### 9834#       发表于 2025-4-23 13:33
+
+影院是没看清打了啥 tv版看清了也没看明白<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+剧场版最后斩杀是米奇律师吗 这tv换了个bgm好怪
+
