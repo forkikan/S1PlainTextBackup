@@ -4569,3 +4569,50 @@ TMD鹤卷，你这选的新曲完全没有剧场版里ED前奏和nt面对面神�
 —— 来自 鹅球 v3.3.96 ...</blockquote>
 不是盖塔的トマホークブーメラン在太空真的能回旋吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  serj005  
+##### 9796#       发表于 2025-4-23 10:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67748089&amp;ptid=2209276" target="_blank">57042711 发表于 2025-4-23 09:59</a>
+斧头丢出去转一圈又回来了，然后女主发功预判了运动轨迹
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+斧子不会飞回来吧，只是把扎古引到了斧子的移动轨道上，斧子本身运动速度不快，用扎古反向移动的相对速度达成的杀伤力。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  暗黑能乐  
+##### 9797#       发表于 2025-4-23 10:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这战斗我是真看晕了，修斯开局直接掉线两分钟，这挂机挂的真没啥道理吧，高达告诉他让他挂机锻炼一下麻球吗。
+
+然后这个闪光弹把人闪瞎后，对手扎古过来冲撞一下是什么意思，都能结实的撞这一下了为啥不直接把头砍掉。然后红高就突然闪现到边上把她扔飞了，然后敌机明明二打一还踢中了修斯（这里再吐槽一下莫名其妙的飞脚，都夹击态势了为啥不砍头），踢完又把修斯扔一边去了跑去追麻球，神了，真就没想赢吧
+
+
+*****
+
+####  Keiji  
+##### 9798#       发表于 2025-4-23 10:23
+
+总算是看到电影院看不到的完整画面了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DARK_HGCG  
+##### 9799#       发表于 2025-4-23 10:27
+
+我觉得最扯的是，散布了米诺夫斯基粒子后，军警的探测器材都没用了，但是民用无线网络却能实况转播
+
+*****
+
+####  别急来过两招  
+##### 9800#       发表于 2025-4-23 10:27
+
+歌烂就直接骂歌烂好了 又是剧要烂又是制作人不务正业的 戏来了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
