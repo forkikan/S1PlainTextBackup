@@ -5293,3 +5293,15 @@ MAV战的机体登记一个是未注册一个是空白
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">一周了才发现s1复活了（之前不是说要一个月吗
 
+
+*****
+
+####  ParadiseMartyr  
+##### 9855#       发表于 2025-4-23 17:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67749204&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-4-23 16:45</a>
+以至于让我疑问这一话和第一话红高真是同一个人开的吗。。</blockquote>
+也许真不是一个人。主要是前一个有子机，应该是有开火程式的。男主这个还得安软件
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

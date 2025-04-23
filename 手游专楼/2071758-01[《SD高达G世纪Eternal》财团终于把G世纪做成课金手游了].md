@@ -6344,3 +6344,11 @@ SSR除非真爱否则没必要SP化，提升太小
 
 新手任务送的那个高级票看描述好像只能抽高级池子吧，是不是没必要存了
 
+
+*****
+
+####  纯白花火  
+##### 605#       发表于 2025-4-23 16:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没必要存，单抽券只能抽普池
+
