@@ -2642,3 +2642,16 @@ https://www.reddit.com/r/wizardry/comments/1k1p83t/god_slaye ...</blockquote>
 
 好奇你知道后面打到人神共愤的娃娃有11k血会是什么表情
 
+
+*****
+
+####  sodah  
+##### 235#       发表于 2025-4-23 11:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67745224&amp;ptid=2249235" target="_blank">电脑死机 发表于 2025-4-22 08:34</a>
+
+没必要，尽快通了水路，有船2这个刷东西圣地
+
+要塞开始就是折磨，东西少怪物强，水路大只佬人鱼也就几百 ...</blockquote>
+我现在也在刷船2，现在是凑合用铁的紫装还是要把钢的合上去？
+

@@ -4727,3 +4727,13 @@ TMD鹤卷，你这选的新曲完全没有剧场版里ED前奏和nt面对面神�
 
 说实话这集战斗水准确实不行，看剧场版的时候因为和之前红高打GQ那段连着的所以没感觉，现在拆成两集之后一看发现战斗编排根本不是一个水平
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 9811#       发表于 2025-4-23 10:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67748143&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-4-23 10:20</a>
+这战斗我是真看晕了，修斯开局直接掉线两分钟，这挂机挂的真没啥道理吧，高达告诉他让他挂机锻炼一下麻球吗 ...</blockquote>
+可以用exvs解释，红高是完全抓不住的后卫，所以让3000cost的前卫落两次<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -6058,3 +6058,13 @@ wingzero</blockquote>
 红高达满破的材料做日常任务送啊，不是只能用机体升星。刷完几天就送3 ...</blockquote>
 可能是想分解换G币
 
+
+*****
+
+####  ercai1  
+##### 578#       发表于 2025-4-23 10:55
+
+试了一圈下来貌似从HARD开始的经验素材掉落效率比别的什么普通关卡都高（HARD15体5张金经验，EXPERT20体10张金经验，别处的剧情副本10体一般也就1张金）
+
+练度实在上不来的话翻来覆去的周回HARD恰经验恰出两台90级机体之后再去自动周回EXPERT看起来也是个不错的选择<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
