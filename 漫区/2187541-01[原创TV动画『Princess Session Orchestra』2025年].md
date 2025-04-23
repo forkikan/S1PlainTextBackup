@@ -819,3 +819,16 @@ OPED映像解禁ーOPクセになる。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  lydia5989  
+##### 78#       发表于 2025-4-23 13:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67748682&amp;ptid=2187541" target="_blank">modedd 发表于 2025-4-23 13:34</a>
+
+还有战姬方老大是个什么设定也还不知道，总不可能真的要一只银兽过劳死吧（
+
+—— 来自 鹅球 v3.5.99 ...</blockquote>
+早期和中期肯定还是拿仙境做文章的，但感觉不会引入其他跟班了，目前看更多跟班作用也不大，隔壁妖精还绑定个变身器，这边就是纯报警器和世界观介绍
+
