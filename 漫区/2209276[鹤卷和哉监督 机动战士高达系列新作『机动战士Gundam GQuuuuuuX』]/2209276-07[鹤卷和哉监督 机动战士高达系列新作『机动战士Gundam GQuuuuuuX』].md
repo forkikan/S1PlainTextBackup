@@ -4449,3 +4449,21 @@ TMD鹤卷，你这选的新曲完全没有剧场版里ED前奏和nt面对面神�
 
 ×
 
+
+*****
+
+####  岸浪白野  
+##### 9785#       发表于 2025-4-23 09:16
+
+ 本帖最后由 岸浪白野 于 2025-4-23 09:18 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67747934&amp;ptid=2209276" target="_blank">仟音一心 发表于 2025-4-23 09:08</a>
+作画：竹</blockquote>
+早发过了，待会钢琴再发一遍就第三次了
+
+*****
+
+####  好想吃猪肉  
+##### 9786#       发表于 2025-4-23 09:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">什么情况，看了电影目前完全没看动画，第二集有新内容？
+
