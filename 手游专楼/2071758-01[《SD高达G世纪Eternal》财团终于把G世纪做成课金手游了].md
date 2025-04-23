@@ -6371,3 +6371,15 @@ SSR除非真爱否则没必要SP化，提升太小
 exia100了，后面资源是砸给夸克斯还是z还是sr自由呢</blockquote>
 看你有啥机师
 
+
+*****
+
+####  棍机凹升龙  
+##### 608#       发表于 2025-4-23 21:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67749211&amp;ptid=2071758" target="_blank">windtrack 发表于 2025-4-23 16:50</a>
+新手任务送的那个高级票看描述好像只能抽高级池子吧，是不是没必要存了</blockquote>
+10连才有ssr保底所以还是要凑10张
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
