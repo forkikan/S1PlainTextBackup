@@ -4518,3 +4518,25 @@ TMD鹤卷，你这选的新曲完全没有剧场版里ED前奏和nt面对面神�
 
 隐含的意思大概是又不务正业不好好打磨剧情做动画，光想着找大物引流搞年轻化扩圈呗。跟是不是管人没啥关系，我看找让米奇律师跟压缩比唱也是一样的
 
+
+*****
+
+####  57042711  
+##### 9792#       发表于 2025-4-23 09:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67747731&amp;ptid=2209276" target="_blank">Dai-Dai-Dai-Dai 发表于 2025-4-23 01:37</a>
+战斗也有问题，关于飞斧能说细点吗？流星锤停下敌人的分镜不直观。
+
+三集下来对这作的滤镜也没了，不会对后 ...</blockquote>
+斧头丢出去转一圈又回来了，然后女主发功预判了运动轨迹<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  林登·万  
+##### 9793#       发表于 2025-4-23 10:06
+
+剧场版终于放完了
+
