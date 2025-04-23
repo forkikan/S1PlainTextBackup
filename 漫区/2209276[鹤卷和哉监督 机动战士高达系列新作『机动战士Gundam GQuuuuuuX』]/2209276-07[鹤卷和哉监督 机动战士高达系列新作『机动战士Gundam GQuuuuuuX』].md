@@ -5410,3 +5410,17 @@ MAV战的机体登记一个是未注册一个是空白
 
 那这么说确实，必须肉身才能开气阀，解惑了
 
+
+*****
+
+####  岸浪白野  
+##### 9865#       发表于 2025-4-23 18:32
+
+[X 上的 (株)カラー 2号機：“◤◤Backgroundworks of GQuuuuuuX◢◢ #ジークアクス 制作の裏側にまつわる様々なモノをチラ見せ！ 3Dモデルのターンテーブル動画をご紹介。 第10弾は「軍警ザク 特殊部隊仕様」です！ #BGWoGQX #GQuuuuuuX ◤本日放送◢ 次回「クランバトルのマチュ」 本日24時29分から、日テレ系30局ネットで放送！ [url]https://t.co/JjjQE3aZrA](https://x.com/khara_inc2/status/1914644141440639166)” / X[/url]
+[X 上的 (株)カラー 2号機：“◤◤Backgroundworks of GQuuuuuuX◢◢ #ジークアクス 制作の裏側にまつわる様々なモノをチラ見せ！ 3Dモデルのターンテーブル動画をご紹介。 第11弾は「軍警ザク 特殊部隊仕様(指揮官機)」です！ #BGWoGQX #GQuuuuuuX TVシリーズ『機動戦士Gundam GQuuuuuuX』 最新話はPrime [url]https://t.co/73tbopXXVr](https://x.com/khara_inc2/status/1914990239900377314)” / X[/url]
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
