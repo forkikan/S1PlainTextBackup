@@ -6482,3 +6482,11 @@ exia100了，后面资源是砸给夸克斯还是z还是sr自由呢</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  hayate0079  
+##### 618#       发表于 2025-4-23 23:41
+
+稍微试了下EX1，发现虽然我有海盗（另外个输出预定是S高，吃SSR突破卷倒是能满破），但是没有凤凰，DEBUFF属性只有特殊（牛）降防（红高），UC好像也没有5格手的光束降防，感觉不管阵容还是练度都有一定的差距<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
