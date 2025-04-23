@@ -5184,3 +5184,11 @@ MAV战的机体登记一个是未注册一个是空白
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  ヒトニナル  
+##### 9845#       发表于 2025-4-23 16:05
+
+再看一遍还是觉得节奏飞快，玛秋修司喵安这段放其他片场少说可以纠结个10分钟，这边NT对一下电波喵安看到红高达震惊一下然后4分钟左右就搞定了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
