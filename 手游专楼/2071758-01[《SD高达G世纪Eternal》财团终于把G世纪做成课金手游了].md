@@ -6068,3 +6068,11 @@ wingzero</blockquote>
 
 练度实在上不来的话翻来覆去的周回HARD恰经验恰出两台90级机体之后再去自动周回EXPERT看起来也是个不错的选择<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xinfengj  
+##### 579#       发表于 2025-4-23 11:07
+
+这公告，有人因为bug过了永恒之路EX1么？
+

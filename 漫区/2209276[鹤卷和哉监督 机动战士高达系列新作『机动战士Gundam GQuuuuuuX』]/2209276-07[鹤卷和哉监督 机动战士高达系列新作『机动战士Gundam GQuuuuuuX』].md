@@ -4737,3 +4737,75 @@ TMD鹤卷，你这选的新曲完全没有剧场版里ED前奏和nt面对面神�
 这战斗我是真看晕了，修斯开局直接掉线两分钟，这挂机挂的真没啥道理吧，高达告诉他让他挂机锻炼一下麻球吗 ...</blockquote>
 可以用exvs解释，红高是完全抓不住的后卫，所以让3000cost的前卫落两次<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 9812#         楼主| 发表于 2025-4-23 11:08
+
+[https://x.com/_take_oekaki/status/1914687595063468359](https://x.com/_take_oekaki/status/1914687595063468359)
+
+今夜、第3話放送です～
+<img src="https://p.sda1.dev/23/c815d6e6b7ed732d392dda67db3b6cb8/20250423_110214.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/dowagers/status/1914710149543104741](https://x.com/dowagers/status/1914710149543104741)
+
+3話ご視聴ありがとうございました！
+
+キャラクター作画監督で参加してました✍️
+
+4話もたのしみ〜
+<img src="https://p.sda1.dev/23/a78ee6da2fe53c32d54139fdd2c3423f/20250423_110218.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/lilya_litvak/status/1914710612883738798](https://x.com/lilya_litvak/status/1914710612883738798)
+
+本日放送の機動戦士Gundom GQuuuuuuX 第3話『クランバトルのマチュ』に原画で参加させて頂きました！
+
+念願のガンダム...
+
+見てください！
+<img src="https://p.sda1.dev/23/33db0940dd804337d3c88d534c233547/20250423_110258.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/nkn_ruka/status/1914710488061239508](https://x.com/nkn_ruka/status/1914710488061239508)
+
+機動戦士Gundam GQuuuuuuX
+
+第3話、動画で参加してました！！！
+
+ありがとうございました！！！！！！！
+<img src="https://p.sda1.dev/23/4c0b21abfcf49c45f37ca36377bbbfa7/20250423_110234.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/tocodot/status/1914710534693511444](https://x.com/tocodot/status/1914710534693511444)
+
+『機動戦士Gundam GQuuuuuuX』
+
+3話の画コンテ一部と演出を担当しました！
+
+一緒に走って下さったスタッフの皆様ありがとうございました！
+
+「愛媛みかん」は鶴巻監督のラフから描かれてました。
+<img src="https://p.sda1.dev/23/17af467672aea15e44f80a2d978e30d4/20250423_110223.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/matatabeat/status/1914710346075685193](https://x.com/matatabeat/status/1914710346075685193)
+
+機動戦士ガンダムGQuuuuuuX 3話「クランバトルのマチュ」にてLO原画をお手伝いさせていただきました！
+
+デカグラサンニャアンかわいい(自分のパートではないです
+
+(SNS掲載許可いただきました。ありがとうございます)
+<img src="https://p.sda1.dev/23/29a58fb4fae9b0fc00cdda01ca93dc38/20250423_110231.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  千叶铁矢  
+##### 9813#       发表于 2025-4-23 11:09
+
+女主好色
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 9814#       发表于 2025-4-23 11:11
+
+loli体型+紧身衣凸显小笼包，是优秀xp
+
