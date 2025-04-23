@@ -4931,3 +4931,29 @@ loli体型+紧身衣凸显小笼包，是优秀xp
 
 牢修这是花了多少钱买喷漆<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ferrari  
+##### 9824#       发表于 2025-4-23 12:24
+
+<blockquote>serj005 发表于 2025-4-23 09:43
+以前没了解过星街彗星，这位风评这么差吗？
+
+是有什么黑历史，还是单纯因为她的音乐水平不够高的问题？
+</blockquote>
+单纯就是曲子难听，唱功也一般
+
+至于国籍或者管人之类的不在这讨论，要黑料可以去v区找
+
+*****
+
+####  KDConan  
+##### 9825#       发表于 2025-4-23 12:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67748451&amp;ptid=2209276" target="_blank">璇瑢子R 发表于 2025-4-23 12:12</a>
+牢修这是花了多少钱买喷漆</blockquote>
+我觉得值得黑市专人送货来买的东西应该不便宜，要是我肯定还是先捞那5000块<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
