@@ -5729,3 +5729,11 @@ Sci-Fi这列的介绍图可以
 
 首先我不会日语，但是mav是日语原本有的词吧，可能就只是单纯指代搭档，而不一定是mav战术的队友吧（麻球也说过喵安是mav来着
 
+
+*****
+
+####  a85982313  
+##### 9892#       发表于 2025-4-23 22:57
+
+说起剧透，怎么这次122没有来剧透<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">下集真未知的领域了，会来吗
+

@@ -1050,3 +1050,11 @@ cr字幕错误漏翻就算了，还自己加戏翻出来台词里没有的词，
 话说得真敞亮，直说人类噶了没拿来吊胃口</blockquote>
 只是这一艘飞船无了，应该还有很多其他飞船吧
 
+
+*****
+
+####  Delicatus545  
+##### 101#       发表于 2025-4-23 22:56
+
+马拉松机器人能打得过动画里的开门机器人吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
