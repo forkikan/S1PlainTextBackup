@@ -6383,3 +6383,33 @@ exia100了，后面资源是砸给夸克斯还是z还是sr自由呢</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  dio999  
+##### 609#       发表于 2025-4-23 21:33
+
+永恒ex1过了 看了下ex2应该是过不了了<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  光辉传递者  
+##### 610#       发表于 2025-4-23 21:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">笑不出来了，高级票把大号总帅抽到二破，但是现在好机师比机体缺的多啊。
+
+—— 来自 LENOVO TB321FU, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  光辉传递者  
+##### 611#       发表于 2025-4-23 21:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67750014&amp;ptid=2071758" target="_blank">棍机凹升龙 发表于 2025-4-23 21:16</a>
+10连才有ssr保底所以还是要凑10张
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+十连只有钻才保吧，票保么？
+
+—— 来自 LENOVO TB321FU, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
