@@ -5003,3 +5003,37 @@ GQ世界线下联邦军MS驾驶员的击坠数据较正史膨胀是有其内在�
 早期塞可缪系统开发者，至少认识塞可缪。正史里是绿叔叔下属，同一集里和绿叔叔一起被阿姆罗击坠（显得在吉吉高达里抱着哈罗更地狱了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
 <img src="https://p.sda1.dev/23/d3f9161525165140fd08e458fee3675e/213134.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hahah  
+##### 9830#       发表于 2025-4-23 13:12
+
+<blockquote>yanghuangu 发表于 2025-4-23 10:30
+战斗完全看不懂打得是啥，估计只能用外行人靠机体性能硬吃老兵是高达传统的角度洗了，希望后面别那么抽象了 ...</blockquote>
+逻辑这么清晰的机战都看不明白?
+
+*****
+
+####  暗黑能乐  
+##### 9831#       发表于 2025-4-23 13:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67748505&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-4-23 12:30</a>
+
+优先减员啊，解决老手的时间会更长，就算搭档是新手也会有一定程度的阻挠，但输掉的人是不会构成威胁 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但还是解释不了两个超近身机会不直接斩首在那又撞又踢的
+
+*****
+
+####  Toby_dak  
+##### 9832#       发表于 2025-4-23 13:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67747573&amp;ptid=2209276" target="_blank">cayon 发表于 2025-4-23 01:11</a>
+
+打魔女2打1应该不是军团战吧</blockquote>
+<img src="https://p.sda1.dev/23/7fe920e63d8d6675b0b600b65b5e326d/_New-raws_ Kidou Senshi Gundam GQuuuuuuX - 03 _1080p_ _AMZN_.mkv_snapshot_24.24.956.jpg" referrerpolicy="no-referrer">
+
+两台GM，右边的肩膀有魔女标识。
+
+奇怪的是联邦的魔女怎么搞到GM的。
+
