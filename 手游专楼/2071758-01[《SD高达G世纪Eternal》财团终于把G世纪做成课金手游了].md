@@ -6181,3 +6181,14 @@ AP4XSFYVSGR36C
 
 夺取是有什么条件吗，造癌变差一个蓝色的前继机，一直刷w的最后一关怎么都不掉的呀<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kenqqex  
+##### 590#       发表于 2025-4-23 12:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67748525&amp;ptid=2071758" target="_blank">Schw 发表于 2025-4-23 12:36</a>
+
+夺取是有什么条件吗，造癌变差一个蓝色的前继机，一直刷w的最后一关怎么都不掉的呀 ...</blockquote>
+纯运气<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

@@ -756,3 +756,15 @@ OPED映像解禁ーOPクセになる。
 —— 来自 鹅球 v ...</blockquote>
 不然我觉得这怪出了这么久，然后这第三集合着才知道怪有等级？前一代公主肯定也跟着个小跟班，前代就唱歌跳舞打小怪？感觉每一代都会重置掉，然后献祭点啥构成新的仙境
 
+
+*****
+
+####  modedd  
+##### 73#       发表于 2025-4-23 12:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67748521&amp;ptid=2187541" target="_blank">lydia5989 发表于 2025-4-23 12:34</a>
+不然我觉得这怪出了这么久，然后这第三集合着才知道怪有等级？前一代公主肯定也跟着个小跟班，前代就唱歌 ...</blockquote>
+就是单纯的故事从主角出场才算正式开始吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
