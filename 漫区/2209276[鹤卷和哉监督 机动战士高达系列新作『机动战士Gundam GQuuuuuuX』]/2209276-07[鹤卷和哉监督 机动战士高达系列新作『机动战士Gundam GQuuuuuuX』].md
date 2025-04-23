@@ -4890,3 +4890,36 @@ loli体型+紧身衣凸显小笼包，是优秀xp
 
 ×
 
+
+*****
+
+####  Sliurus  
+##### 9820#       发表于 2025-4-23 12:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67748143&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-4-23 10:20</a>
+
+这战斗我是真看晕了，修斯开局直接掉线两分钟，这挂机挂的真没啥道理吧，高达告诉他让他挂机锻炼一下麻球吗 ...</blockquote>
+首席哥说了句马秋被看出来是新手，大概是想着先捏软柿子再二打一
+
+
+*****
+
+####  变老的大二  
+##### 9821#       发表于 2025-4-23 12:05
+
+这个时间点谁有浮游炮+赛克缪谁就牛逼吧。 
+
+0093的沙扎比和牛高达也就是出力提升和精神感应框架。
+
+后面看是nt斗法还是有人掏出精神感应框架。
+
+*****
+
+####  暗黑能乐  
+##### 9822#       发表于 2025-4-23 12:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67748424&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-4-23 12:01</a>
+
+首席哥说了句马秋被看出来是新手，大概是想着先捏软柿子再二打一</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这就不对了吧，如果有一个是新手一个是老手，应该是多打少围攻老手才是，因为新手帮不上忙，先围攻解决有战斗力的人才是对的，你围攻新手给老手在边上找机会攻击你吗（虽然这集红高基本全程看戏了，我也不知道他为啥不动手，但你不能提前假定对手会看戏吧）
+
