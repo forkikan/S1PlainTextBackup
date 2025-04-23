@@ -5247,3 +5247,41 @@ MAV战的机体登记一个是未注册一个是空白
 
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">看看下一场战斗吧，这场感觉是真不太行，不如上一话鸭子那段一根
 
+
+*****
+
+####  YU_JI  
+##### 9851#       发表于 2025-4-23 16:43
+
+<blockquote>暗黑能乐 发表于 2025-4-23 16:34
+看看下一场战斗吧，这场感觉是真不太行，不如上一话鸭子那段一根</blockquote>
+最好看的还是首席GQ打修司红高那段，逻辑清楚动作流畅分镜得劲，红高火神炮射击光束步枪那段的分镜太带感了
+
+*****
+
+####  暗黑能乐  
+##### 9852#       发表于 2025-4-23 16:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67749195&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-4-23 16:43</a>
+
+最好看的还是首席GQ打修司红高那段，逻辑清楚动作流畅分镜得劲，红高火神炮射击光束步枪那段的分镜太带感 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">以至于让我疑问这一话和第一话红高真是同一个人开的吗。。
+
+*****
+
+####  灵魂收割机  
+##### 9853#       发表于 2025-4-23 16:46
+
+[https://x.com/Char_Tweet/status/1914741491861184566](https://x.com/Char_Tweet/status/1914741491861184566)
+
+天手在家吃饭部分可能模仿0080阿尔在家吃饭部分：
+
+[https://x.com/Char_Tweet/status/1914876889208119767](https://x.com/Char_Tweet/status/1914876889208119767)
+
+尼娅安和修司对暗号部分模仿0079对暗号部分：
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+

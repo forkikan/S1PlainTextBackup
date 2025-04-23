@@ -762,3 +762,11 @@ tiger引擎太落伍了，不管是渲染管线还是开发工具
 
 ×
 
+
+*****
+
+####  herryk159  
+##### 77#       发表于 2025-4-23 16:38
+
+这种大色块加上一堆线条，点点，叉叉，我还以为是贴图错误<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
