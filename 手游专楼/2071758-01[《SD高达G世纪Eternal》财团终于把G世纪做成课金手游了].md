@@ -6413,3 +6413,29 @@ exia100了，后面资源是砸给夸克斯还是z还是sr自由呢</blockquote>
 
 —— 来自 LENOVO TB321FU, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  droglo  
+##### 612#       发表于 2025-4-23 21:40
+
+票不保的
+
+*****
+
+####  windtrack  
+##### 613#       发表于 2025-4-23 21:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">把手里20来张票抽了结果就自由+1 SSR机师都不给我一个
+
+等30号池子了
+
+*****
+
+####  里村紅葉  
+##### 614#       发表于 2025-4-23 21:43
+
+狗粮血缺<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">过主线给的那点只够塞牙缝
+
+还有副标题都叫永恒了怎么永恒号这么弱<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一定要我搞几台大扎姆吗
+
