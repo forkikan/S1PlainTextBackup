@@ -6045,3 +6045,16 @@ wingzero</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">总算15级能把sr自由sp化了，阵容还是太单薄了，石头存到2w8，不知道啥时候才存够一井
 
+
+*****
+
+####  棍机凹升龙  
+##### 577#       发表于 2025-4-23 09:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67747933&amp;ptid=2071758" target="_blank">邪恶的shah 发表于 2025-4-23 09:08</a>
+
+你们都在那研究反复刷掉落红高达干啥
+
+红高达满破的材料做日常任务送啊，不是只能用机体升星。刷完几天就送3 ...</blockquote>
+可能是想分解换G币
+
