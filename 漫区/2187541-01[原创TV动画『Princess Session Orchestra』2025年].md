@@ -743,3 +743,16 @@ OPED映像解禁ーOPクセになる。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  lydia5989  
+##### 72#       发表于 2025-4-23 12:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67748325&amp;ptid=2187541" target="_blank">modedd 发表于 2025-4-23 11:26</a>
+
+这几个帅哥里面出个前公主也太变态了，绝对不可能这么搞，少女的怨念集合体也有点难绷
+
+—— 来自 鹅球 v ...</blockquote>
+不然我觉得这怪出了这么久，然后这第三集合着才知道怪有等级？前一代公主肯定也跟着个小跟班，前代就唱歌跳舞打小怪？感觉每一代都会重置掉，然后献祭点啥构成新的仙境
+
