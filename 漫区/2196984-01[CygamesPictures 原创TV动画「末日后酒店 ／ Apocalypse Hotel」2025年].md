@@ -907,3 +907,30 @@ Cpart最一卡这个骷髅裸飘，验证了前面留白的猜测，表现力很
 
 女主和狸猫都好可爱<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  我是大鲨鱼1453  
+##### 87#       发表于 2025-4-23 14:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67748662&amp;ptid=2196984" target="_blank">kwin_ 发表于 2025-4-23 13:27</a>
+
+每集解锁一个新的彩蛋功能~希望接下来也有各式各样的新品种外星人来光临</blockquote>
+不会到了最后失去一切寻找人类的希望之后，解锁的最终功能是以八千代为母体繁育新的人类吧。
+
+话说“八千代”本来就是生生不息的意思吧，日本国歌里是不是就有这个词来着？
+
+
+*****
+
+####  フォニイ  
+##### 88#       发表于 2025-4-23 14:35
+
+第一集觉得很有趣
+
+第二集觉得还可以
+
+第三集就觉得无聊了
+
+机器人开门都要看吐了
+
