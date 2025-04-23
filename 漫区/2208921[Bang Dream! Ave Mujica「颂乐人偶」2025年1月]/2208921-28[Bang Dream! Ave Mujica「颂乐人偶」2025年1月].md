@@ -2502,3 +2502,236 @@ https://ac.stage3rd.com/forumTopicRead.asp?id=1640&amp;page=4
 
 ×
 
+
+*****
+
+####  久井路路  
+##### 40437#       发表于 2025-4-22 21:04
+
+本身莫的设定就是朝着死而去的，她没有别的路可以走。
+
+要么睦有所成长、不再需要莫人格抗压，职责没了莫就直接被抹除了。
+要么杀了睦然后自己顶号，但是首先这就意味着莫要放弃自己的喜好彻底去扮演睦，那也相当于莫的死，而且第七集的时候莫就说了，她并不想当一个坏孩子，做了无可挽回的事情会承受不住罪恶感
+
+反正不管怎么样都是死，至少莫还配拥有一项绝对的自由，那就是决定自己要怎么死，所以她看向自己亲手杀死的睦留下的痕迹，选择和她一样的死法
+
+和香草祥子之歌本身关系应该不大
+
+*****
+
+####  路人庚  
+##### 40438#       发表于 2025-4-22 21:29
+
+[https://www.bilibili.com/video/BV1QE5RzfErH/](https://www.bilibili.com/video/BV1QE5RzfErH/)
+
+八芒星dance完整版偷跑
+
+*****
+
+####  adretyu67.  
+##### 40439#       发表于 2025-4-22 21:45
+
+莫头这个角色就不该加，加了还疯狂加剧情。
+
+最后再弄死退场，现在又说随时可以切出来就越来越突出一个不知所谓。
+
+*****
+
+####  路人庚  
+##### 40440#       发表于 2025-4-22 21:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一睦三吃说是，喜欢无口吃黄瓜，喜欢小孩吃大莫，喜欢强度吃古神，制作组可太会营业了
+
+
+*****
+
+####  社美胡  
+##### 40441#       发表于 2025-4-22 21:55
+
+[https://x.com/Ten__B/status/1914323929096982910/photo/1](https://x.com/Ten__B/status/1914323929096982910/photo/1)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  社美胡  
+##### 40442#       发表于 2025-4-22 21:56
+
+[https://x.com/smmrromance/status/1914170900024578335/photo/1](https://x.com/smmrromance/status/1914170900024578335/photo/1)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  社美胡  
+##### 40443#       发表于 2025-4-22 21:57
+
+[https://x.com/elan_ouo/status/1914486516266754138/photo/1](https://x.com/elan_ouo/status/1914486516266754138/photo/1)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  社美胡  
+##### 40444#       发表于 2025-4-22 21:57
+
+[https://x.com/Junji_17/status/1914448487313265092/photo/1](https://x.com/Junji_17/status/1914448487313265092/photo/1)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  社美胡  
+##### 40445#       发表于 2025-4-22 21:58
+
+[https://x.com/_doyoufeellucky/status/1914339657023967326/photo/1](https://x.com/_doyoufeellucky/status/1914339657023967326/photo/1)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  社美胡  
+##### 40446#       发表于 2025-4-22 21:59
+
+[https://x.com/hashtag/%E3%81%86% ... ag_click&amp;f=live](https://x.com/hashtag/%E3%81%86%E3%81%84%E3%81%95%E3%81%8D?src=hashtag_click&amp;f=live)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  社美胡  
+##### 40447#       发表于 2025-4-22 22:00
+
+[https://x.com/YRK_ev/status/1914331232613310957/photo/1](https://x.com/YRK_ev/status/1914331232613310957/photo/1)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  社美胡  
+##### 40448#       发表于 2025-4-22 22:00
+
+[https://x.com/r4661t0x0/status/1914244113660334311/photo/1](https://x.com/r4661t0x0/status/1914244113660334311/photo/1)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  社美胡  
+##### 40449#       发表于 2025-4-22 22:01
+
+[https://x.com/abanekoo/status/1914651200739545226/photo/1](https://x.com/abanekoo/status/1914651200739545226/photo/1)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  堀内爱里衣  
+##### 40450#       发表于 2025-4-22 22:03
+
+<img src="https://ac.stage3rd.com/upfiles/202504/A1BACA1BB@0797650391227.gif" referrerpolicy="no-referrer">
+
+＃13 舞台里から全开コメンタリー: BanG Dream! Ave Mujica 〜禁断の全话ネタバレ解说！〜
+[https://www.youtube.com/watch?v=KtmPyV2l8ME](https://www.youtube.com/watch?v=KtmPyV2l8ME)
+
+柿本&amp;三次元staff带你看Ave Mujica #13
+[https://www.bilibili.com/video/BV1CR59zLEeY](https://www.bilibili.com/video/BV1CR59zLEeY)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  adretyu67.  
+##### 40451#       发表于 2025-4-22 22:15
+
+13话你以为是卖海臀，其实是卖腿的言论我也不知道说什么好。太幽默了
+
+*****
+
+####  yy19  
+##### 40452#       发表于 2025-4-22 22:30
+
+还不如用“演技”论统摄所有的角色面具哩。翻来覆去的角色、人格、人格、角色，10一没腻我都早饱了。。
+
+说到腿，强烈推荐睦子米在八芒星后半边芭蕾舞步边伴奏那段😍
+
+*****
+
+####  堀内爱里衣  
+##### 40453#       发表于 2025-4-22 23:13
+
+[https://x.com/bushi_creative/status/1914601361330856287](https://x.com/bushi_creative/status/1914601361330856287)
+[https://bang-dream.com/events/mygo-avemujica2025](https://bang-dream.com/events/mygo-avemujica2025)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  堀内爱里衣  
+##### 40454#       发表于 2025-4-23 00:09
+
+[https://x.com/bushi_creative/status/1914597595718279549](https://x.com/bushi_creative/status/1914597595718279549)
+[https://bang-dream.com/events/mygo-avemujica2025](https://bang-dream.com/events/mygo-avemujica2025)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  堀内爱里衣  
+##### 40455#       发表于 2025-4-23 00:10
+
+[https://t.bilibili.com/1058613233360830472](https://t.bilibili.com/1058613233360830472)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  AlterDialog  
+##### 40456#       发表于 2025-4-23 08:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67747159&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-4-22 21:45</a>
+
+莫头这个角色就不该加，加了还疯狂加剧情。
+
+最后再弄死退场，现在又说随时可以切出来就越来越突出一个不知 ...</blockquote>
+是可以切出来，但不是一个具有独立性的人格，而是随若叶睦心意而扮演的角色
+
