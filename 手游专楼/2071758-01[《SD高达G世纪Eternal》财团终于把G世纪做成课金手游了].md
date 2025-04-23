@@ -6289,3 +6289,14 @@ syl，看上去好像已经有人输入了我的，不晓得是不是你，是�
 
 如果用掉落的红高合出第二台3突，把它卖了会不会返通用SSR突破材料？
 
+
+*****
+
+####  kenqqex  
+##### 600#       发表于 2025-4-23 14:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67748828&amp;ptid=2071758" target="_blank">马桶3 发表于 2025-4-23 14:30</a>
+
+如果用掉落的红高合出第二台3突，把它卖了会不会返通用SSR突破材料？</blockquote>
+不会 你可以试试 和1凸返的材料一样的  5000c 和100gp
+
