@@ -87,7 +87,7 @@
     "lastedit": 1745387880,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2041774": {
     "totalreply": 16972,
@@ -6324,7 +6324,7 @@
     "lastedit": 1745429700,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2071168": {
     "totalreply": 2270,
@@ -11412,10 +11412,10 @@
     "update": false
   },
   "2200788": {
-    "totalreply": 171,
+    "totalreply": 172,
     "title": "[苏丹的游戏这游戏还挺乐的]",
     "newtitle": "[苏丹的游戏这游戏还挺乐的]",
-    "lastedit": 1745334005,
+    "lastedit": 1745441284,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12327,7 +12327,7 @@
     "lastedit": 1745418660,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2249132": {
     "totalreply": 45,
@@ -12453,6 +12453,6 @@
     "lastedit": 1745435400,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   }
 }
