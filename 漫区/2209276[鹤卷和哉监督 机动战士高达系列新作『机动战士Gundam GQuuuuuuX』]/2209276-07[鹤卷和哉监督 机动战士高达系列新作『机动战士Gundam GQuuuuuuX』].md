@@ -4923,3 +4923,11 @@ loli体型+紧身衣凸显小笼包，是优秀xp
 首席哥说了句马秋被看出来是新手，大概是想着先捏软柿子再二打一</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这就不对了吧，如果有一个是新手一个是老手，应该是多打少围攻老手才是，因为新手帮不上忙，先围攻解决有战斗力的人才是对的，你围攻新手给老手在边上找机会攻击你吗（虽然这集红高基本全程看戏了，我也不知道他为啥不动手，但你不能提前假定对手会看戏吧）
 
+
+*****
+
+####  璇瑢子R  
+##### 9823#       发表于 2025-4-23 12:12
+
+牢修这是花了多少钱买喷漆<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

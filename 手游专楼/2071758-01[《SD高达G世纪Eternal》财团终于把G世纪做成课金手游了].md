@@ -6107,3 +6107,17 @@ wingzero</blockquote>
 红高达满破的材料做日常任务送啊，不是只能用机体升星。刷完几天就送3 ...</blockquote>
 主要ex难度固定给金狗粮，比刷剧情h收益略高。剧情h没活动时候慢慢刷就行了。
 
+
+*****
+
+####  saber614  
+##### 583#       发表于 2025-4-23 12:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67747933&amp;ptid=2071758" target="_blank">邪恶的shah 发表于 2025-4-23 09:08</a>
+你们都在那研究反复刷掉落红高达干啥
+
+红高达满破的材料做日常任务送啊，不是只能用机体升星。刷完几天就送3 ...</blockquote>
+打不了最高难度差一个阿
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
