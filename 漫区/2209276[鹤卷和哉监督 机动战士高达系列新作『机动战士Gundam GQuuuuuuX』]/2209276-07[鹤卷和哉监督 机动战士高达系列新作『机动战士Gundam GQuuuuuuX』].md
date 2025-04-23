@@ -4616,3 +4616,27 @@ TMD鹤卷，你这选的新曲完全没有剧场版里ED前奏和nt面对面神�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  yanghuangu  
+##### 9801#       发表于 2025-4-23 10:30
+
+ 本帖最后由 yanghuangu 于 2025-4-23 10:31 编辑 
+
+战斗完全看不懂打得是啥，估计只能用外行人靠机体性能硬吃老兵是高达传统的角度洗了，希望后面别那么抽象了
+
+
+*****
+
+####  Toby_dak  
+##### 9802#       发表于 2025-4-23 10:32
+
+ 本帖最后由 Toby_dak 于 2025-4-23 11:34 编辑 
+
+完全没留意到S1换了网址<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+泥潭因为外野被塞抹布前，说开播前能1万楼的flag倒了。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.45)
+
