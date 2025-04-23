@@ -4809,3 +4809,13 @@ TMD鹤卷，你这选的新曲完全没有剧场版里ED前奏和nt面对面神�
 
 loli体型+紧身衣凸显小笼包，是优秀xp
 
+
+*****
+
+####  Toby_dak  
+##### 9815#       发表于 2025-4-23 11:16
+
+剧场版上映后自己说的话，留个存档。
+
+<img src="https://p.sda1.dev/23/a66a2368929c01472e318aa1c1ff0d21/キャプチャ.JPG" id="aimg_VSKH6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+

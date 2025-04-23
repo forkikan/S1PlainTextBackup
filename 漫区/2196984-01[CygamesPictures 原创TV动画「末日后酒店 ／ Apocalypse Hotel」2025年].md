@@ -873,3 +873,13 @@ TVアニメ　#アポカリプスホテル
 
 Cpart最一卡这个骷髅裸飘，验证了前面留白的猜测，表现力很不错。
 
+
+*****
+
+####  leleq  
+##### 83#       发表于 2025-4-23 11:24
+
+恭喜银河楼迎来新员工<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+这一下又跳了50年，感觉是为了植物星人留的东西作铺垫的。
+
