@@ -679,3 +679,11 @@ https://automaton-media.com/articles/interviewsjp/dollsnest-20250422-335959/
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉是玩票来的
 
+
+*****
+
+####  半分宅  
+##### 70#       发表于 2025-4-24 01:08
+
+已发售，上班前进去看了一眼，开局选装备、训练直到重生点周围的区域都和Demo一样，除了中央电梯有个“暂时无法互动”的提示。
+
