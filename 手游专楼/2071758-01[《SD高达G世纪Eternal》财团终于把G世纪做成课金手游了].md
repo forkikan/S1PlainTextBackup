@@ -6260,3 +6260,24 @@ A3K8X5EQNVWZ3S 我的日服码，互相邀请下吧～
 
 要重进游戏才会刷新
 
+
+*****
+
+####  洛克萨斯  
+##### 597#       发表于 2025-4-23 14:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">exia100了，后面资源是砸给夸克斯还是z还是sr自由呢
+
+*****
+
+####  两仪式29  
+##### 598#       发表于 2025-4-23 14:09
+
+ 本帖最后由 两仪式29 于 2025-4-23 14:11 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67748665&amp;ptid=2071758" target="_blank">閻魔愛 发表于 2025-4-23 13:27</a>
+
+A3K8X5EQNVWZ3S 我的日服码，互相邀请下吧～</blockquote>
+晚了一步，我看日服玩的人少，就随便找一个群里的人要了个码输入拿500石头~不好意思，你如果还没输入的话，可以别输了
+
+syl，看上去好像已经有人输入了我的，不晓得是不是你，是的话，抱歉了~，我手快了
+

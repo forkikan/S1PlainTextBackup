@@ -5065,3 +5065,47 @@ GQ世界线下联邦军MS驾驶员的击坠数据较正史膨胀是有其内在�
 话说那个好像硬盘一样的钥匙，原型是不是0079里面提姆·雷的回路</blockquote>
 是的，一模一样
 
+
+*****
+
+####  上坂莲华  
+##### 9836#       发表于 2025-4-23 14:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67748568&amp;ptid=2209276" target="_blank">希望之异热同心 发表于 2025-4-23 12:53</a>
+
+才想起博美犬这只有1架扎古1个机师，而打黑拳要2架，现在也没透露搭档的机体哪来，可能和其他的只有单架机 ...</blockquote>
+勾引麻球打军团战那段对话里提到了，要借别人的扎古跟麻球组队，应该就是原定打算组队的人了
+
+而且第二天很明显已经借到了，依然是对话体现
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+
+*****
+
+####  gogoneogg  
+##### 9837#       发表于 2025-4-23 14:14
+
+影院里后半部分真是把我看麻了。。。不知道从什么时候日本动画里的主题曲都是这种咿咿呀呀的二次元风格了。。。
+
+历代那种或向上、或追求理想、或愤怒、或哀歌等各类风格的乐曲了，已然没了朝气。
+
+一个国家衰落，果然是能直接反映在文艺作品中。。。
+
+*****
+
+####  Gysumitka  
+##### 9838#       发表于 2025-4-23 14:16
+
+reddit上关于第二集的考据
+<img src="https://p.sda1.dev/23/ea2f29ec9d85d71c265593b8002695ad/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/28b1a35ed776d421c47d6e52f881e609/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/79a92d6fb33810c8b5ba7c4f57f27c96/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/2b920515269c874a7deabee95aa9ae30/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/3bb169e4524945329e9086cfcb20958f/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/8c4**ab210aa9b7f1f6e75f2e29f77/image.jpg" referrerpolicy="no-referrer">
+[来源](https://www.reddit.com/r/anime/s/bMdTcY8wOH)
+
