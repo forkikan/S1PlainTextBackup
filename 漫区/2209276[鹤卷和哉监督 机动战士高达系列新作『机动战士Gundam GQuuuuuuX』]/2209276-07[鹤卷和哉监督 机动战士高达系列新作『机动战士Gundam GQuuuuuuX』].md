@@ -5753,3 +5753,15 @@ Sci-Fi这列的介绍图可以
 
 这么短篇幅就别透了，没意思
 
+
+*****
+
+####  marlun  
+##### 9895#       发表于 2025-4-23 23:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67750208&amp;ptid=2209276" target="_blank">cayon 发表于 2025-4-23 22:18</a>
+假如是鸭妹的搭档的话为啥第2集把鸭妹剧情删光，而且很怪的是，mav战术是夏亚和绿叔叔开发的战术，为什么联 ...</blockquote>
+第一点前面回答过了，猜测因为第二集实际上是夏利尔的视角讲述的夏亚的故事，而夏亚在所罗门是偷偷干坏事后偶然碰到的鸭妹，并且短时间开战后马上发生了zknv事件，所以除了夏亚吉翁这边完全不知道现场还有鸭妹的信息
+
+—— 来自 vivo V2408A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
