@@ -5424,3 +5424,22 @@ MAV战的机体登记一个是未注册一个是空白
 
 ×
 
+
+*****
+
+####  伊露伊道格拉斯  
+##### 9866#       发表于 2025-4-23 18:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67747756&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-4-23 02:24</a>
+
+看到一个很合理的推测，就是真正的魔女其实指的是塞拉，黑发女是塞拉的mav；塞拉和夏亚一起失踪了，一直在 ...</blockquote>
+我本来没想到，但是预告一出来就觉得有这种可能。
+
+因为预告里说的100击坠太夸张了，原0079也就骡和那个狙击k头王有100+，更不用说战况对联邦更不利得多的，只有轻加农的gqux世界观。
+
+要达到这个水平，起码得是相较于鸭骡，档次不能差太多的NT吧。
+
+而看预告里豆豆眼魔女这个打急眼的样子，又显然不像层次很高，所以估计她搭档才是正牌的魔女。
+
+而gqux里排得上号的联邦女性驾驶员也就鸭妹了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
