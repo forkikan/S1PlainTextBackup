@@ -1021,3 +1021,13 @@ cr字幕错误漏翻就算了，还自己加戏翻出来台词里没有的词<im
 不头铁就稍微等等，喵萌接了。</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">B原来买了吗， 应该没有删减吧
 
+
+*****
+
+####  民工业  
+##### 98#       发表于 2025-4-23 22:26
+
+B站没有删减吧，这个也没有什么可以删减的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
