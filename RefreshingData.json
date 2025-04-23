@@ -87,7 +87,7 @@
     "lastedit": 1745387880,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2041774": {
     "totalreply": 16972,
@@ -6324,7 +6324,7 @@
     "lastedit": 1745429700,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2071168": {
     "totalreply": 2270,
@@ -7470,12 +7470,12 @@
     "update": false
   },
   "2052383": {
-    "totalreply": 468,
+    "totalreply": 469,
     "title": "[【KIRARA】芳文社漫画个人读后感+综合讨论楼]",
     "newtitle": "[【KIRARA】芳文社漫画个人读后感+综合讨论楼]",
-    "lastedit": 1744911245,
+    "lastedit": 1745434085,
     "category": "漫区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2110102": {
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 116891,
+    "totalreply": 116892,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1745430844,
+    "lastedit": 1745434084,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12327,7 +12327,7 @@
     "lastedit": 1745418660,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2249132": {
     "totalreply": 45,
@@ -12357,10 +12357,10 @@
     "update": false
   },
   "2207249": {
-    "totalreply": 47,
+    "totalreply": 48,
     "title": "[2025年新奥  奥美迦奥特曼]",
     "newtitle": "[2025年新奥  奥美迦奥特曼]",
-    "lastedit": 1745408044,
+    "lastedit": 1745433724,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12434,6 +12434,15 @@
     "newtitle": "[【性癖发言】轩3外传天之痕，小雪出场一下勾起了许多回忆]",
     "lastedit": 1745429166,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "1992785": {
+    "totalreply": 361,
+    "title": "[推个漫《舞冰的祈愿》（官方译名《金牌得主》）]",
+    "newtitle": "[推个漫《舞冰的祈愿》（官方译名《金牌得主》）]",
+    "lastedit": 1745433728,
+    "category": "漫区",
     "active": true,
     "update": false
   }
