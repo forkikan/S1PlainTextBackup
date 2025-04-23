@@ -6439,3 +6439,18 @@ exia100了，后面资源是砸给夸克斯还是z还是sr自由呢</blockquote>
 
 还有副标题都叫永恒了怎么永恒号这么弱<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一定要我搞几台大扎姆吗
 
+
+*****
+
+####  windtrack  
+##### 615#       发表于 2025-4-23 21:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67750109&amp;ptid=2071758" target="_blank">里村紅葉 发表于 2025-4-23 21:43</a>
+
+狗粮血缺过主线给的那点只够塞牙缝
+
+还有副标题都叫永恒了怎么永恒号这么弱一定要我搞几台大扎姆吗 ...</blockquote>
+机体狗粮去刷红高EX，一次10张，目前最效率的
+
+机师狗粮是真的缺
+
