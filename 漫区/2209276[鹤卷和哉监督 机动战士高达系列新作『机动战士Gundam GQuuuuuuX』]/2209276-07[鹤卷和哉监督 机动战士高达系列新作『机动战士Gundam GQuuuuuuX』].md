@@ -5037,3 +5037,11 @@ GQ世界线下联邦军MS驾驶员的击坠数据较正史膨胀是有其内在�
 
 奇怪的是联邦的魔女怎么搞到GM的。
 
+
+*****
+
+####  07579394  
+##### 9833#       发表于 2025-4-23 13:18
+
+话说那个好像硬盘一样的钥匙，原型是不是0079里面提姆·雷的回路<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
