@@ -5798,3 +5798,17 @@ Sci-Fi这列的介绍图可以
 
 只是当扬声器吧，加点粒子特效啥的
 
+
+*****
+
+####  岸浪白野  
+##### 9899#       发表于 2025-4-24 00:38
+
+ 本帖最后由 岸浪白野 于 2025-4-24 00:41 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67750271&amp;ptid=2209276" target="_blank">NaughtyFish 发表于 2025-4-23 22:50</a>
+
+首先我不会日语，但是mav是日语原本有的词吧，可能就只是单纯指代搭档，而不一定是mav战术的队友吧（麻球也 ...</blockquote>
+是在85年 马布(マヴ)这个词成为了一般市民生活都会用的词
+
+工作搭档，友人，恋人都能称呼为 马布
+
