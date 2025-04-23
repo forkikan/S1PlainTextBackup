@@ -5455,3 +5455,15 @@ MAV战的机体登记一个是未注册一个是空白
 因为预告里说的100击坠太夸张了，原0079也就骡和那个狙 ...</blockquote>
 会是“我顶替着你的名号，努力变成你的样子”的戏码吗？
 
+
+*****
+
+####  pmoe  
+##### 9868#       发表于 2025-4-23 20:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67749615&amp;ptid=2209276" target="_blank">伊露伊道格拉斯 发表于 2025-4-23 18:58</a>
+我本来没想到，但是预告一出来就觉得有这种可能。
+
+因为预告里说的100击坠太夸张了，原0079也就骡和那个狙 ...</blockquote>
+魔女卡缪<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
