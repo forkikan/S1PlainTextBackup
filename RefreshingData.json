@@ -87,7 +87,7 @@
     "lastedit": 1745387880,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2041774": {
     "totalreply": 16972,
@@ -6324,7 +6324,7 @@
     "lastedit": 1745429700,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2071168": {
     "totalreply": 2270,
@@ -12327,7 +12327,7 @@
     "lastedit": 1745418660,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2249132": {
     "totalreply": 45,
@@ -12453,6 +12453,6 @@
     "lastedit": 1745435400,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   }
 }
