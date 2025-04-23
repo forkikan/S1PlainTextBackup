@@ -1008,3 +1008,16 @@ Cpart最一卡这个骷髅裸飘，验证了前面留白的猜测，表现力很
 
 cr字幕错误漏翻就算了，还自己加戏翻出来台词里没有的词<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，
 
+
+*****
+
+####  暗黑能乐  
+##### 97#       发表于 2025-4-23 22:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67749888&amp;ptid=2196984" target="_blank">库德里尔 发表于 2025-4-23 20:40</a>
+
+头铁就看b大陆和cr中字。
+
+不头铁就稍微等等，喵萌接了。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">B原来买了吗， 应该没有删减吧
+
