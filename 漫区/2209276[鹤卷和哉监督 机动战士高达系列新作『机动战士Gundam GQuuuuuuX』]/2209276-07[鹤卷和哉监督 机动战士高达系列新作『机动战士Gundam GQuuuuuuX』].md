@@ -5467,3 +5467,41 @@ MAV战的机体登记一个是未注册一个是空白
 因为预告里说的100击坠太夸张了，原0079也就骡和那个狙 ...</blockquote>
 魔女卡缪<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  未来起航  
+##### 9869#       发表于 2025-4-23 20:08
+
+几首歌听的最舒服还是积木p的，提供了熟悉的、令人惬意的那种带点夹子味儿的少女氛围。
+米津和星街的歌不知道是在耍什么潮流装什么酷<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23116PN5BC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  岸浪白野  
+##### 9870#       发表于 2025-4-23 20:11
+
+[X 上的 緒方のらくがき：“「魔女ちゃんのらくがき」 #GQuuuuuuX #ジークアクス [url]https://t.co/2zrggVzuvm](https://x.com/mm_ogata_rkgk/status/1914952671242654118)” / X[/url]
+
+[X 上的 白樺：“#GQuuuuuuX #ジークアクス 魔女さん気になるよ･･･ [url]https://t.co/IXTGCuKvwf](https://x.com/shirakaba_CHIPS/status/1914730407381360759)” / X[/url]
+
+[えんぎよし (@ENGIYOSI) 的媒体帖子 / X](https://x.com/ENGIYOSI/media)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+
+*****
+
+####  Toby_dak  
+##### 9871#       发表于 2025-4-23 20:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67749492&amp;ptid=2209276" target="_blank">樽——見 发表于 2025-4-23 19:15</a>
+
+那这么说确实，必须肉身才能开气阀，解惑了</blockquote>
+其实就跟开车出故障一样，不也要下车用肉眼去检查确认。待在驾驶位置能看到的东西始终有死角的。
+
