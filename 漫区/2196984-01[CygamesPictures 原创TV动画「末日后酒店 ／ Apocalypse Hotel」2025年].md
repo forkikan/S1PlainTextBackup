@@ -1058,3 +1058,11 @@ cr字幕错误漏翻就算了，还自己加戏翻出来台词里没有的词，
 
 马拉松机器人能打得过动画里的开门机器人吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 102#       发表于 2025-4-23 23:12
+
+有点末日氛围下的童话之感，外星动物们也算比较好说话了
+

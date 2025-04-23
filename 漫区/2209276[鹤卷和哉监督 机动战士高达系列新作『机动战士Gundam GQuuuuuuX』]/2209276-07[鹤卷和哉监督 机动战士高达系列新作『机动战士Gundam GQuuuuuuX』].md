@@ -5737,3 +5737,11 @@ Sci-Fi这列的介绍图可以
 
 说起剧透，怎么这次122没有来剧透<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">下集真未知的领域了，会来吗
 
+
+*****
+
+####  暗黑能乐  
+##### 9893#       发表于 2025-4-23 23:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">咋了，不会真有人喜欢看剧透吧
+
