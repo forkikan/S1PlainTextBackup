@@ -6516,3 +6516,14 @@ exia100了，后面资源是砸给夸克斯还是z还是sr自由呢</blockquote>
 
 马上要月底了，请教下坛友们G商店每月更新的物品都打算买些什么。
 
+
+*****
+
+####  xinfengj  
+##### 622#       发表于 2025-4-24 07:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67750484&amp;ptid=2071758" target="_blank">ddlsyo 发表于 2025-4-24 00:51</a>
+
+马上要月底了，请教下坛友们G商店每月更新的物品都打算买些什么。</blockquote>
+G币获取太麻烦了，总不能造几百个61式分解吧
+
