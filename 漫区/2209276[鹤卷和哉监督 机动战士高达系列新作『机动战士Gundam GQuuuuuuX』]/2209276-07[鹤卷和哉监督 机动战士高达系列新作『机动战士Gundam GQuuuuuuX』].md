@@ -4678,3 +4678,52 @@ TMD鹤卷，你这选的新曲完全没有剧场版里ED前奏和nt面对面神�
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.45)
 
+
+*****
+
+####  psycho_Gadfly  
+##### 9806#       发表于 2025-4-23 10:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67748161&amp;ptid=2209276" target="_blank">别急来过两招 发表于 2025-4-23 10:27</a>
+
+歌烂就直接骂歌烂好了 又是剧要烂又是制作人不务正业的 戏来了
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+只是觉得明明可以做得更好。。主线和人物都可以，结果在想不到的地方拉跨了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+战斗这块只能剑指下集了
+
+
+*****
+
+####  灵魂收割机  
+##### 9807#       发表于 2025-4-23 10:55
+
+安琪离过婚这个设定早晚得用上吧，用在谁身上呢……
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  秋月孝三  
+##### 9808#       发表于 2025-4-23 10:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">盲猜绿叔叔前妻呗
+
+*****
+
+####  ykyin09  
+##### 9809#       发表于 2025-4-23 10:57
+
+怎么就不能是有德呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 9810#       发表于 2025-4-23 10:57
+
+说实话这集战斗水准确实不行，看剧场版的时候因为和之前红高打GQ那段连着的所以没感觉，现在拆成两集之后一看发现战斗编排根本不是一个水平
+
