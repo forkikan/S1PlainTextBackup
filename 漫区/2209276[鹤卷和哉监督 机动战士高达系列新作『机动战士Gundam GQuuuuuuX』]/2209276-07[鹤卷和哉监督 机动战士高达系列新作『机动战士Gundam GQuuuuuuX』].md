@@ -4640,3 +4640,41 @@ TMD鹤卷，你这选的新曲完全没有剧场版里ED前奏和nt面对面神�
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.45)
 
+
+*****
+
+####  Toby_dak  
+##### 9803#       发表于 2025-4-23 10:38
+
+<blockquote>引用第9524楼sdhgak1234于2025-04-17 08:49发表的  :
+
+林有德是不是一起死在舰桥了？</blockquote>
+剧场版时候就讨论过，当时林有德军衔还太低，大概是上不了舰桥的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.45)
+
+
+*****
+
+####  Toby_dak  
+##### 9804#       发表于 2025-4-23 10:43
+
+<blockquote>引用第9550楼syndrome2032于2025-04-17 16:26发表的  :
+
+这个if世界线鸡瘟是量产gm当ms了吧。组长应该不开强人了?</blockquote>
+按照场刊设定，自护在MS-14之后项目都砍掉了。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.45)
+
+*****
+
+####  Toby_dak  
+##### 9805#       发表于 2025-4-23 10:47
+
+<blockquote>引用第9738楼斯大林的拖拉机于2025-04-23 01:27发表的  :
+
+从0079就想吐槽了，联邦也太不重视我好兄弟提姆雷了吧这次也飞出去脑缺氧了吗</blockquote>
+第一集渣古没炸反应炉，卫星没破洞，应该没机会缺氧吧。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.45)
+
