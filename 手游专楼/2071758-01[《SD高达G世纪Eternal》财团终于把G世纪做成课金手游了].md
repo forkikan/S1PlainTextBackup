@@ -6323,3 +6323,16 @@ syl，看上去好像已经有人输入了我的，不晓得是不是你，是�
 
 ×
 
+
+*****
+
+####  HEERO.W  
+##### 603#       发表于 2025-4-23 16:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67747778&amp;ptid=2071758" target="_blank">森兰丸 发表于 2025-4-23 03:30</a>
+
+在犹豫是SP飞翼0还是SP这次活动送的红高达
+
+飞翼0我现在才1破....靠每天扫荡3次H本不知道要哪年哪月才能 ...</blockquote>
+SSR除非真爱否则没必要SP化，提升太小
+

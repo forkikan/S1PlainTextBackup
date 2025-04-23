@@ -5212,3 +5212,14 @@ MAV战的机体登记一个是未注册一个是空白
 </blockquote>
 营销日系美少女，但是被盒出是典型菲律宾土著长相，让粉丝破防
 
+
+*****
+
+####  07579394  
+##### 9848#       发表于 2025-4-23 16:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67749121&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-4-23 16:14</a>
+
+修司下线怕不是去捡斧头了，太空中没阻力斧头早飘走了</blockquote>
+很合理，但这样都不画出来的话，不是就没有意义了吗
+
