@@ -4467,3 +4467,15 @@ TMD鹤卷，你这选的新曲完全没有剧场版里ED前奏和nt面对面神�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">什么情况，看了电影目前完全没看动画，第二集有新内容？
 
+
+*****
+
+####  psycho_Gadfly  
+##### 9787#       发表于 2025-4-23 09:26
+
+这到底和星街签了多少？？个人实在不喜欢中间插这么潮的人声歌曲（年纪大了。。 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+旋律唯一还行的就是ED 天津人那首旋律一般但歌词还行吧
+
+别的不说 本作有望挑战高达系列音乐最差了
+

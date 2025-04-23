@@ -6037,3 +6037,11 @@ wingzero</blockquote>
 
 要说刷武器素材我还能理解
 
+
+*****
+
+####  洛克萨斯  
+##### 576#       发表于 2025-4-23 09:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">总算15级能把sr自由sp化了，阵容还是太单薄了，石头存到2w8，不知道啥时候才存够一井
+
