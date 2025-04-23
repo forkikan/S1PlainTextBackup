@@ -5109,3 +5109,28 @@ reddit上关于第二集的考据
 <img src="https://p.sda1.dev/23/8c4**ab210aa9b7f1f6e75f2e29f77/image.jpg" referrerpolicy="no-referrer">
 [来源](https://www.reddit.com/r/anime/s/bMdTcY8wOH)
 
+
+*****
+
+####  蓝色有脚⑨倍速  
+##### 9839#       发表于 2025-4-23 14:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67748780&amp;ptid=2209276" target="_blank">上坂莲华 发表于 2025-4-23 14:12</a>
+
+勾引麻球打军团战那段对话里提到了，要借别人的扎古跟麻球组队，应该就是原定打算组队的人了
+
+而且第二天 ...</blockquote>
+你在说啥，杰奇就是香肠嘴，纳布就是那个黑发啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之异热同心  
+##### 9840#       发表于 2025-4-23 14:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67748780&amp;ptid=2209276" target="_blank">上坂莲华 发表于 2025-4-23 14:12</a>
+
+勾引麻球打军团战那段对话里提到了，要借别人的扎古跟麻球组队，应该就是原定打算组队的人了
+
+而且第二天 ...</blockquote>
+鹤卷哥哥每集节奏实在太快了很多东西一句台词就提了不重复看都没法全部看明白<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
