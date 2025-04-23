@@ -1000,3 +1000,11 @@ Cpart最一卡这个骷髅裸飘，验证了前面留白的猜测，表现力很
 
 不头铁就稍微等等，喵萌接了。
 
+
+*****
+
+####  leleq  
+##### 96#       发表于 2025-4-23 21:53
+
+cr字幕错误漏翻就算了，还自己加戏翻出来台词里没有的词<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，
+

@@ -6454,3 +6454,17 @@ exia100了，后面资源是砸给夸克斯还是z还是sr自由呢</blockquote>
 
 机师狗粮是真的缺
 
+
+*****
+
+####  光辉传递者  
+##### 616#       发表于 2025-4-23 21:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67750109&amp;ptid=2071758" target="_blank">里村紅葉 发表于 2025-4-23 21:43</a>
+狗粮血缺过主线给的那点只够塞牙缝
+
+还有副标题都叫永恒了怎么永恒号这么弱一定要我搞几台大扎姆吗 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来红高本打地铺吧。
+
+—— 来自 LENOVO TB321FU, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+

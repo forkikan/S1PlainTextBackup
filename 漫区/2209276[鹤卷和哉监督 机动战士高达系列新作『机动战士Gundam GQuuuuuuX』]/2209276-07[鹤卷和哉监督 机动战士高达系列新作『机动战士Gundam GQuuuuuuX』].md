@@ -5630,3 +5630,25 @@ Sci-Fi这列的介绍图可以
 还有特典小册子始终不会剧透，驾驶服和日常装是不同一回事
 企划书大部分成了废案，但还是那样，你看GQX和红高达大体基本采用，喵安的采用多少虽然不敢确保但你可以先期待
 
+
+*****
+
+####  变老的大二  
+##### 9883#       发表于 2025-4-23 21:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67750125&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-4-23 21:47</a>
+
+这里早发过了
+
+前面有楼友看这肤色差距觉得是假图
+
+但这确实是22年6月的企划书里的，企划书还是3人的封面</blockquote>
+不过这版本gqx的头要比正式版的工业风浓厚很多<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">正式版本应该是随着剧情大改过的
+
+*****
+
+####  突发性哮喘病患  
+##### 9884#       发表于 2025-4-23 21:55
+
+哀川润和石凪萌太转生UC宇宙
+
