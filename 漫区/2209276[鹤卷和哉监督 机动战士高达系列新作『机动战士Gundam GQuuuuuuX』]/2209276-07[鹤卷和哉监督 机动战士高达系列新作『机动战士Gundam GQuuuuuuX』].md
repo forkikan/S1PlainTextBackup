@@ -5305,3 +5305,27 @@ MAV战的机体登记一个是未注册一个是空白
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  樽——見  
+##### 9856#       发表于 2025-4-23 17:13
+
+明明是逃跑过程，首席为什么肉身要从高达里钻出来？太不符合常识了吧。完全就是给麻球开高达送助攻
+
+*****
+
+####  岸浪白野  
+##### 9857#       发表于 2025-4-23 17:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67749251&amp;ptid=2209276" target="_blank">ParadiseMartyr 发表于 2025-4-23 17:03</a>
+
+也许真不是一个人。主要是前一个有子机，应该是有开火程式的。男主这个还得安软件
+
+—— 来自 鹅球 v3.3. ...</blockquote>
+虽然第3集让楼友觉得迷惑，但不至于真的不是他开<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+一红色Gundam出现在两个时代，但其动作是否因驾驶员而异呢？
+
+鹤卷：如果说夏亚的战斗风格是潇洒且优雅，那么修司则显得粗犷不羁。作为GQuuuuuuX的驾驶员，艾格萨贝应该听过许多关于夏亚的传说，因此在追击红色Gundam时会有一种“这好像有点不对”的困惑感，这一点也特意表现了出来。
+
