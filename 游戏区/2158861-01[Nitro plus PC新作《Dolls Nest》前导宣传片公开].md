@@ -717,3 +717,11 @@ Boost槽恢复很快，地面机动性大致接近了AC6的水平。跳跃、浮
 
 感觉敌人变脆了很多，但弹药消耗速度也大幅度提升了。
 
+
+*****
+
+####  蓝雉  
+##### 73#       发表于 2025-4-24 11:40
+
+颠倒森林场景好有感觉，不过一上来就堆这么多怪啊，感觉推这图，血换蓝必不可少了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
