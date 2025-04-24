@@ -1096,3 +1096,13 @@ cr字幕错误漏翻就算了，还自己加戏翻出来台词里没有的词，
 
 人类就这么寄了吗<img src="https://static.stage1st.com/image/smiley/face2017/262.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天剑流星  
+##### 106#       发表于 2025-4-24 08:38
+
+按照这片的尿性，人类就算还活着也只会最后两集才出场吧，或许可能前几集来点落单人类<img src="https://static.stage1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2407FRK8EC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
