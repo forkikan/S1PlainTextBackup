@@ -3866,3 +3866,15 @@ MARY有點是弱氣，感情FREEMAN有機會出場? 而B JANET就非常強氣，
 我了个石油爹, 直接干到史上奖金最高的格斗游戏赛事了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">冠军搞不好是C罗亲自颁奖
 
+
+*****
+
+####  风夏  
+##### 383#       发表于 2025-4-24 18:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67752565&amp;ptid=2085684" target="_blank">yanhan0410 发表于 2025-4-24 17:19</a>
+冠军搞不好是C罗亲自颁奖</blockquote>
+有一说一，snk的比赛在美国举办，瓦罗应该没法入境美帝
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
