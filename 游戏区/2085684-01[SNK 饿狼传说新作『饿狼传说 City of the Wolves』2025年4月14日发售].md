@@ -3842,3 +3842,17 @@ MARY有點是弱氣，感情FREEMAN有機會出場? 而B JANET就非常強氣，
 
 不过狼城结局更像是快进到龙虎一家耍宝阶段了。父子大战直接跳过，尤莉从”那个人是你爹”直接快进到2的天降武学奇才了。
 
+
+*****
+
+####  肥胖的道奇兔  
+##### 381#       发表于 2025-4-24 17:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67752501&amp;ptid=2085684" target="_blank">syndrome2032 发表于 2025-4-24 17:01</a>
+牙刀在kof的目的又没变过，接的mow剧情。
+
+不过狼城结局更像是快进到龙虎一家耍宝阶段了。父子大战直接跳 ...</blockquote>
+比起来还是牙刀那边剧情比较合适
+
+—— 来自 Xiaomi 23117RK66C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

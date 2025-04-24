@@ -1151,3 +1151,28 @@ TVアニメ　#アポカリプスホテル
 
 <img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">这狸猫星人乱搞有点强行了点，以至于后面一转嘭子打工我觉得好生硬啊
 
+
+*****
+
+####  kwin_  
+##### 111#       发表于 2025-4-24 17:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67750141&amp;ptid=2196984" target="_blank">leleq 发表于 2025-4-23 21:53</a>
+
+cr字幕错误漏翻就算了，还自己加戏翻出来台词里没有的词，</blockquote>
+确实 CR中字真的多很多奇奇怪怪的东西，但也凑合看了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kwin_  
+##### 112#       发表于 2025-4-24 17:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67748820&amp;ptid=2196984" target="_blank">我是大鲨鱼1453 发表于 2025-4-23 14:27</a>
+
+不会到了最后失去一切寻找人类的希望之后，解锁的最终功能是以八千代为母体繁育新的人类吧。
+
+话说“八千 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我设想的反而是到最后真的人类全嘎了，银河楼逐渐成为多元星系文化的聚集地每天热热闹闹
+
+成为名副其实的银河楼
+
