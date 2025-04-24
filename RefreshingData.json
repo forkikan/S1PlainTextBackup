@@ -87,7 +87,7 @@
     "lastedit": 1745387880,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2041774": {
     "totalreply": 16972,
@@ -6324,7 +6324,7 @@
     "lastedit": 1745429700,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2071168": {
     "totalreply": 2270,
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 116898,
+    "totalreply": 116901,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1745452445,
+    "lastedit": 1745452804,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12101,7 +12101,7 @@
     "newtitle": "[CLAMP『xxxHOLiC・戻』4月21日连载再开]",
     "lastedit": 1745193484,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2251009": {
@@ -12327,7 +12327,7 @@
     "lastedit": 1745418660,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2249132": {
     "totalreply": 45,
@@ -12411,10 +12411,10 @@
     "update": false
   },
   "2251258": {
-    "totalreply": 50,
+    "totalreply": 51,
     "title": "[《光与影：33号远征队》mc开分92，ign9，gs9]",
     "newtitle": "[《光与影：33号远征队》mc开分92，ign9，gs9]",
-    "lastedit": 1745446445,
+    "lastedit": 1745453044,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12453,7 +12453,7 @@
     "lastedit": 1745435400,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2251025": {
     "totalreply": 42,
