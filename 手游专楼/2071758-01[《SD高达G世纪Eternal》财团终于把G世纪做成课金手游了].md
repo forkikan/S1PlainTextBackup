@@ -6633,3 +6633,16 @@ G币获取太麻烦了，总不能造几百个61式分解吧</blockquote>
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  光辉传递者  
+##### 633#       发表于 2025-4-24 10:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67750873&amp;ptid=2071758" target="_blank">棍机凹升龙 发表于 2025-4-24 09:31</a>
+61是500拿20
+0高达是2500拿30</blockquote>
+卧槽还有这种好事？懂了该攒金币了
+
+—— 来自 Xiaomi 24031PN0DC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
