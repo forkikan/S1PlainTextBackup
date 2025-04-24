@@ -3736,3 +3736,16 @@ https://b23.tv/gz52uih ...</blockquote>
 【狼城又一个无限连-哔哩哔哩】 https://b23 ...</blockquote>
 不愧是SNK,总能整出花活
 
+
+*****
+
+####  肥胖的道奇兔  
+##### 373#       发表于 2025-4-24 09:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67744528&amp;ptid=2085684" target="_blank">jackyhuang 发表于 2025-4-21 20:52</a>
+
+【【饿狼传说 群狼之城】比利结局CG-哔哩哔哩】 https://b23.tv/kTag3wi
+
+填旧坑，挖新坑</blockquote>
+不知道当年有没有想这么多，但是至少把以前的坑都圆上了
+
