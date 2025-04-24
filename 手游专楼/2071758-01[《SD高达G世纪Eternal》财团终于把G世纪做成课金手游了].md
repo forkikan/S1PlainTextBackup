@@ -7296,3 +7296,14 @@ ip和注册地一致还不够，得谷歌商店区域也一致，我就这一步
 
 —— 来自 Xiaomi 24031PN0DC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  rockroxas  
+##### 694#       发表于 2025-4-24 22:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67753514&amp;ptid=2071758" target="_blank">光辉传递者 发表于 2025-4-24 22:38</a>
+
+试图用自动连点器录制总帅一拖九三动打红高失败，循环一次之后就会出现触控位置变形。看来只能是总帅单刷才 ...</blockquote>
+不要在地图上选单位，在下边那些机体立绘选中试试？我2拖8循环这么久都没发生什么变形
+
