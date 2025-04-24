@@ -179,3 +179,13 @@ c呆耐久耗尽了，惨！
 
 400石头加60呼符没出，剩下1200石头留给有珠了……希耶尔大人，愿她一切都好
 
+
+*****
+
+####  rollingusagi  
+##### 47120#       发表于 2025-4-25 00:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">去年日服号抽光了也没出，国服两百石两宝收手
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
