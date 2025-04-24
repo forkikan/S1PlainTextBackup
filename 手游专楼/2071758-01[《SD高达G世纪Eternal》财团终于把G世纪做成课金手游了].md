@@ -7348,3 +7348,20 @@ GGETPB送的票
 没见过不出的情况，是平板独有的吗……</blockquote>
 也有可能是我手点导致的问题。回头试试模拟器好了。
 
+
+*****
+
+####  hayate0079  
+##### 699#       发表于 2025-4-24 23:41
+
+ 本帖最后由 hayate0079 于 2025-4-24 23:45 编辑 
+
+下午拉了下辅助的大招，总算过了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+左上是靠海盗（0破），下面靠S高（2破+提法）+骡子
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+

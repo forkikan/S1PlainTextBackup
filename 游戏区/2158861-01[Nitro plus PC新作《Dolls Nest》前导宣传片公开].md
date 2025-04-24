@@ -846,3 +846,22 @@ PS：怎么捡来的尽是五花八门的近战武器
 
 <img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">刚打完无限机兵就有娃娃窝玩，我们萌二这半年也吃太好了
 
+
+*****
+
+####  oidoid  
+##### 85#       发表于 2025-4-24 23:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67752747&amp;ptid=2158861" target="_blank">Ehekatl 发表于 2025-4-24 18:22</a>
+
+有人知道这个群体仓库BOSS怎么打吗，拼尽全力无法破防啊。
+
+太神必了这个boss，不知道为什么护盾梆硬，不知 ...</blockquote>
+攻击几次之后就会开盾蓄力放波，打几枪躲墙角清小怪就行
+
+颠倒森林的怪有点粪
+
+高伤害高追尾，空中敌人还贼硬而且极为难以打中
+
+BOSS非常难锁定，暂时卡住了
+

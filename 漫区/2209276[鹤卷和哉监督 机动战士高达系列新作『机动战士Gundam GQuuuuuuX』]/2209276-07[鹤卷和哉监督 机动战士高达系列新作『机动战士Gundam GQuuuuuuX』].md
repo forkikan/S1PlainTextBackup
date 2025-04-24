@@ -6431,3 +6431,11 @@ naoki_yamauchi @MsTwiJHq4zwbbTh
 
 我得了一种听到Plazma就会笑的怪病<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 機動武闘伝Zガンダム
 
+
+*****
+
+####  YU_JI  
+##### 9944#       发表于 2025-4-24 23:33
+
+榎户绝大部分时间不都是在写青春期的那点小九九，哪怕在飞跃巅峰2，topless的概念也和青春期紧密联系
+
