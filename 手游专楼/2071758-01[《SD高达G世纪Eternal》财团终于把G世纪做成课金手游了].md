@@ -7051,3 +7051,44 @@ ULT机体的升级材料是靠刷永恒之路hard和expert吗？除了第一次�
 
 0突能天使不行，抗不了两刀，不过带个有加移动力的垫刀机就行了
 
+
+*****
+
+####  HEERO.W  
+##### 671#       发表于 2025-4-24 17:46
+
+ip和注册地一致还不够，得谷歌商店区域也一致，我就这一步卡死放弃
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  windtrack  
+##### 672#       发表于 2025-4-24 17:54
+
+ 本帖最后由 windtrack 于 2025-4-24 17:56 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67752374&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-4-24 16:20</a>
+
+点ULT升星会提示开发后升，应该是SSR材料开发升UR，UR材料开发突或者直接三突（从战力看应该是直接三突） ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">不，你到机体介绍那边去看ULT机体，然后点击查看最强属性，系统直接给你看的就是0星属性
+
+其他机体都是三星
+
+所以...
+
+但是我估计开发到最后一级UR属性可能和其他机体3星是一个档位的
+
+*****
+
+####  胖达君  
+##### 673#       发表于 2025-4-24 17:54
+
+安卓版本国际服领兑换券的条件：必须你梯子的区域，谷歌商店的区域，以及你游戏下载时候用的谷歌商店区域，这三者必须相同
+
+比如：梯子挂HK，谷歌商店也是HK服，游戏也是在这个HK服商店下载安装，就可以
+
+比如：梯子挂HK，谷歌商店也是HK服，但是游戏是用QOO APP下载安装的，就不行
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

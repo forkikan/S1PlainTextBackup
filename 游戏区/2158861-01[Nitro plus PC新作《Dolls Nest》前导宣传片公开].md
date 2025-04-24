@@ -798,3 +798,28 @@ PS：怎么捡来的尽是五花八门的近战武器
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  madcow  
+##### 80#       发表于 2025-4-24 17:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67752620&amp;ptid=2158861" target="_blank">ParadiseMartyr 发表于 2025-4-24 17:43</a>
+
+没玩demo只玩过ac6，这游戏能玩吗
+
+—— 来自 鹅球 v3.3.96</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比AC6还正统点，就是得先找两个视频看看，能接受这个画面再谈其他的
+
+
+*****
+
+####  ParadiseMartyr  
+##### 81#       发表于 2025-4-24 17:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67752635&amp;ptid=2158861" target="_blank">madcow 发表于 2025-4-24 17:48</a>
+比AC6还正统点，就是得先找两个视频看看，能接受这个画面再谈其他的</blockquote>
+二次元就是最大的画质
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
