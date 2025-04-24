@@ -6228,3 +6228,16 @@ Plazma
 除了《夜に咲く》都喜欢，这些歌都符合预期，毕竟我不是冲着严肃宏大叙事来的，看的是kirakira。 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看kirakira到底是看啥。。
 
+
+*****
+
+####  岸浪白野  
+##### 9927#       发表于 2025-4-24 20:14
+
+5月追加语音
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+

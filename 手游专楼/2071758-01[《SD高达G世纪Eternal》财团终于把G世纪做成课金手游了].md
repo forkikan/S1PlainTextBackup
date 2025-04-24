@@ -7214,3 +7214,11 @@ ip和注册地一致还不够，得谷歌商店区域也一致，我就这一步
 
 配信完了 不送石头不送抽 真有你的啊 万南<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  HEERO.W  
+##### 686#       发表于 2025-4-24 20:06
+
+注册了个美区谷歌小号终于搞定了兑换码
+
