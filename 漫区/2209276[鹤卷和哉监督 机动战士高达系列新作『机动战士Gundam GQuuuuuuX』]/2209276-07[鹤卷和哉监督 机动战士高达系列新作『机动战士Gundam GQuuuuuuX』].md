@@ -5878,3 +5878,13 @@ NT聊天室里出现拉——拉——的声音之前是不是有点像列车的
 
 这集我个人有一个看电影时就挺喜欢的点是GQX和扎古从“战地记者”上面擦过的时候台词和音效，很像动画里常见的有人突然超车或者穿进马路中央司机们急刹车鸣笛头伸出车窗骂人<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  a85982313  
+##### 9906#       发表于 2025-4-24 10:27
+
+第二集一小时番组平均个收1.6，世带3.1
+单独GQuuuuuuX部分实时收视率平均约2.5
+<img src="https://p.sda1.dev/23/7f27bda1fd95ca920b343378f7d19365/image.jpg" referrerpolicy="no-referrer">
+
