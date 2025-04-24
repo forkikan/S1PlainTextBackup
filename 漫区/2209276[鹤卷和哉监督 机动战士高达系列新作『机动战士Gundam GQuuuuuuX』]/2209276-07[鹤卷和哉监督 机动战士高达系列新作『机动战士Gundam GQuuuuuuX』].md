@@ -6419,3 +6419,15 @@ naoki_yamauchi @MsTwiJHq4zwbbTh
 
 上一次看拿歌词磕CP还是在古丽特专楼<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ヒトニナル  
+##### 9943#       发表于 2025-4-24 23:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67753519&amp;ptid=2209276" target="_blank">newise 发表于 2025-4-24 22:40</a>
+
+写歌前看过剧情没错，但是什么剧情不好说吧，例如老八看的大概率是Z里挽尊哥相关剧情 ...</blockquote>
+
+我得了一种听到Plazma就会笑的怪病<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 機動武闘伝Zガンダム
+

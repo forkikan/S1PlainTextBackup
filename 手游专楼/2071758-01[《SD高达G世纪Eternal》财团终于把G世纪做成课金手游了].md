@@ -7317,3 +7317,34 @@ ip和注册地一致还不够，得谷歌商店区域也一致，我就这一步
 
 GGETPB送的票
 
+
+*****
+
+####  光辉传递者  
+##### 696#       发表于 2025-4-24 23:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67753558&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-4-24 22:49</a>
+
+不要在地图上选单位，在下边那些机体立绘选中试试？我2拖8循环这么久都没发生什么变形 ...</blockquote>
+我是在平板上录制的，现在就是机体立绘列表有时候出有时候不出，导致操作变形，有没有什么办法定位一下这个机体立绘列表？
+
+*****
+
+####  rockroxas  
+##### 697#       发表于 2025-4-24 23:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67753625&amp;ptid=2071758" target="_blank">光辉传递者 发表于 2025-4-24 23:08</a>
+
+我是在平板上录制的，现在就是机体立绘列表有时候出有时候不出，导致操作变形，有没有什么办法定位一下这 ...</blockquote>
+没见过不出的情况，是平板独有的吗……
+
+*****
+
+####  光辉传递者  
+##### 698#       发表于 2025-4-24 23:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67753632&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-4-24 23:10</a>
+
+没见过不出的情况，是平板独有的吗……</blockquote>
+也有可能是我手点导致的问题。回头试试模拟器好了。
+
