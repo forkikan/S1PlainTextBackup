@@ -6540,3 +6540,11 @@ G币获取太麻烦了，总不能造几百个61式分解吧</blockquote>
 
 —— 来自 Xiaomi 24031PN0DC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  洛克萨斯  
+##### 624#       发表于 2025-4-24 09:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">100级exia只能吃红高达两下，打不了难度3
+
