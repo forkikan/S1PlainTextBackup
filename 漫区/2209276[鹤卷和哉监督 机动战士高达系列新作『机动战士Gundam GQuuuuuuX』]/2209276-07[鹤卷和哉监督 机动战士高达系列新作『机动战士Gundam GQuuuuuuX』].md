@@ -6241,3 +6241,54 @@ Plazma
 
 ×
 
+
+*****
+
+####  ryanghj  
+##### 9928#       发表于 2025-4-24 20:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67753023&amp;ptid=2209276" target="_blank">psycho_Gadfly 发表于 2025-4-24 19:56</a>
+
+知道全部剧情写的只有Plamza吧。。。
+
+其他的都没啥好分析的
+
+（无聊到分析MV...都是没有新剧情的错 ...</blockquote>
+不好说知不知道剧情，Plazma是因为8爷访谈里透露的消息，但是其他乐曲没有访谈所以并不清楚是不是了解剧情后才创作的，至少宣传的时候的确宣称是“专为GQuX创作的歌曲”
+
+　星街すいせいの新曲「夜に咲く」が、アニメ『機動戦士Gundam GQuuuuuuX』第3話にて挿入歌として起用。本編で初オンエアされた。
+
+星街彗星的新曲《夜中绽放》被选为动画《机动战士高达 GQuuuuuuX》第 3 话的插曲，并在正片中首次播出。
+
+　TVシリーズのエンディングテーマとして、新曲「もうどうなってもいいや」が起用されている星街すいせい。このたび初オンエアされた新曲は、エンディングテーマと同様に『機動戦士Gundam GQuuuuuuX』のために書き下ろされた楽曲となっている。
+
+作为 TV 系列的片尾曲，星街彗星的新歌《もうどうなってもいいや》被选用。此次首次播出的新曲与片尾曲一样，是为《机动战士 Gundam GQuuuuuuX》全新创作的歌曲。
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 9929#       发表于 2025-4-24 20:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67753047&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-4-24 20:03</a>
+
+看kirakira到底是看啥。。</blockquote>
+一言蔽之就是看“青春”，再说细点就是：
+
+想看些有活力的东西，什么东西有活力，年轻人=有活力、时尚时髦=有活力。
+
+还有年轻人的迷茫、感伤，从中迸发出冲动并驱使其行为。
+
+
+*****
+
+####  ryanghj  
+##### 9930#       发表于 2025-4-24 20:53
+
+ 本帖最后由 ryanghj 于 2025-4-24 20:56 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67753184&amp;ptid=2209276" target="_blank">Dai-Dai-Dai-Dai 发表于 2025-4-24 20:50</a>
+
+一言蔽之就是看“青春”，再说细点就是：
+
+想看些有活力的东西，什么东西有活力，年轻人=有活力、时尚时 ...</blockquote>
+本作主题也不是青春啊<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">按鹤卷访谈的说法，更贴切的是个体在宏大历史中如何直面虚假、追寻自由与自我认同
+
