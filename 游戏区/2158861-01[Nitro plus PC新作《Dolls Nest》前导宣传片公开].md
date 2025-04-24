@@ -831,3 +831,18 @@ PS：怎么捡来的尽是五花八门的近战武器
 
 昨晚睡前通了第一个图到了传火祭祀场，打到的魂（？）不知道怎么用，是不是只有买装备素体和升级装备这两个npc能花钱？
 
+
+*****
+
+####  Ehekatl  
+##### 83#       发表于 2025-4-24 18:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">有人知道这个群体仓库BOSS怎么打吗，拼尽全力无法破防啊。
+
+*****
+
+####  缪斯替  
+##### 84#       发表于 2025-4-24 18:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">刚打完无限机兵就有娃娃窝玩，我们萌二这半年也吃太好了
+
