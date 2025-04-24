@@ -6852,3 +6852,15 @@ bluestacks在开发界面基本是流畅的，我录制了一个15秒的脚本�
 —— 来自 HONOR SDY-AN00, Android 14, ...</blockquote>
 不行，没办法按照视频里反击打死，伤害差了几万，还是我的练度不够
 
+
+*****
+
+####  无念  
+##### 652#       发表于 2025-4-24 14:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67751931&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2025-4-24 14:44</a>
+不行，没办法按照视频里反击打死，伤害差了几万，还是我的练度不够</blockquote>
+没事，多半明天狗粮本刷新了喂一下就可以了，或者你升一下G夸克的斧子和能天使的ex
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
