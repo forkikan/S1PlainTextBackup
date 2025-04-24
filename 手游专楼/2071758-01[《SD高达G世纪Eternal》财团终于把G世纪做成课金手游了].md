@@ -6761,3 +6761,27 @@ bluestacks在开发界面基本是流畅的，我录制了一个15秒的脚本�
 
 目前刷钱有什么好方法吗？
 
+
+*****
+
+####  HEERO.W  
+##### 644#       发表于 2025-4-24 14:07
+
+ 本帖最后由 HEERO.W 于 2025-4-24 14:09 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67751683&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-4-24 13:35</a>
+
+不是非常缺母舰的话不值得换吧，10000sp破满才跟送的两艘一样，而且技能是HP恢复用处比较小 ...</blockquote>
+问题是两者加成范围完全不同啊，商店的主角加成是泛用性最广的没有之一
+
+*****
+
+####  rockroxas  
+##### 645#       发表于 2025-4-24 14:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67751718&amp;ptid=2071758" target="_blank">qixinno2 发表于 2025-4-24 13:46</a>
+
+但加成范围比较广吧 一个是主角 一个是宿敌</blockquote>
+敌人多的时候缺EN，敌人少的时候缺加成，我觉得只要有一个泛用性高点的UR都不用考虑换这个
+
+尤其是宿敌机现在很少，等以后多起来估计也有一两个UR了
+
