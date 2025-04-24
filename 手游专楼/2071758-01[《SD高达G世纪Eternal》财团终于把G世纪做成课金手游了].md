@@ -7278,3 +7278,11 @@ ip和注册地一致还不够，得谷歌商店区域也一致，我就这一步
 抽的SSR驾驶是IWSP跟卡嘉莉 ...</blockquote>
 你看游戏内的公告，红蓝金的机师都是SSR
 
+
+*****
+
+####  nagamasa  
+##### 692#       发表于 2025-4-24 21:56
+
+红高这个武装升级材料N级的是不是ex反而掉率会低，刷一天ex没掉几个<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
