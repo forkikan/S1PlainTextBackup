@@ -7399,3 +7399,17 @@ GGETPB送的票
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  一个陆仁贾  
+##### 703#       发表于 2025-4-25 07:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67753928&amp;ptid=2071758" target="_blank">HEERO.W 发表于 2025-4-25 06:45</a>
+抠门和数值膨胀是必然的，如果心态不好且忍不住手的，千万别玩
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+这游戏想刷初始要申请删除账号是要自己写邮件申请？
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
