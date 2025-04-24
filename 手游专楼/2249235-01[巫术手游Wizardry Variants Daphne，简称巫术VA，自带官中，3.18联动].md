@@ -2711,3 +2711,16 @@ https://www.reddit.com/r/wizardry/comments/1k1p83t/god_slaye ...</blockquote>
 
 这次前置是“夺回被偷走的铠甲”
 
+
+*****
+
+####  sodah  
+##### 242#       发表于 2025-4-24 18:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67752667&amp;ptid=2249235" target="_blank">风浦可符香(P.N) 发表于 2025-4-24 17:58</a>
+
+活动基本都是固定套路，你一进王城就会看到NPC对话，告诉你“听说最近发现了XXX”，然后去工会接新委托
+
+ ...</blockquote>
+去王城也没触发，看了眼攻略网站给的触发条件是※交易水路を一定以上進める必要がる 我现在是刚打完口臭哥，这进度应该可以了吧。
+
