@@ -7126,3 +7126,15 @@ ip和注册地一致还不够，得谷歌商店区域也一致，我就这一步
 爬了楼才知道刷初始是拿送的钻刷N个UR<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 算了，不高兴删号刷了，目前有个一突水星，一个能天使，一个凤凰，就这么玩吧
 
+
+*****
+
+####  windtrack  
+##### 677#       发表于 2025-4-24 19:11
+
+ 本帖最后由 windtrack 于 2025-4-24 19:12 编辑 
+
+看来活动就是一台限定一台开发SSR一堆开发小垃圾
+
+全自动PVP<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
