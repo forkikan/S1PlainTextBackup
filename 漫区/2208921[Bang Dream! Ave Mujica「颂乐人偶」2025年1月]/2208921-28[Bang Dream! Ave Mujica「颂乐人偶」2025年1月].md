@@ -3006,3 +3006,52 @@ mv似乎有救，看起来也不像邪教风格<img src="https://p.sda1.dev/23/5
 
 初华手上拿了。。。个鸡肉卷？
 
+
+*****
+
+####  adretyu67.  
+##### 40480#       发表于 2025-4-24 22:31
+
+爱音一个玩吉他的，对邦对位居然是鼓手。
+
+不管怎么想都有点幽默
+
+
+*****
+
+####  堀内爱里衣  
+##### 40481#       发表于 2025-4-24 22:35
+
+[https://x.com/bang_dream_info/status/1915390816752722108](https://x.com/bang_dream_info/status/1915390816752722108)
+[https://t.co/a6xT8UqTQH](https://t.co/a6xT8UqTQH)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  堀内爱里衣  
+##### 40482#       发表于 2025-4-24 22:36
+
+[https://x.com/bang_dream_info/status/1915391534008328236](https://x.com/bang_dream_info/status/1915391534008328236)
+[https://t.co/a6xT8UrrGf](https://t.co/a6xT8UrrGf)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  堀内爱里衣  
+##### 40483#       发表于 2025-4-24 22:37
+
+[https://x.com/Schecter_JAPAN/status/1915405465506512920](https://x.com/Schecter_JAPAN/status/1915405465506512920)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+

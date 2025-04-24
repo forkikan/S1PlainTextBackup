@@ -2777,3 +2777,24 @@ https://www.reddit.com/r/wizardry/comments/1k1p83t/god_slaye ...</blockquote>
 人马血不算多，前排注意看时机防御赌破绽，主力战士强袭等级尽量喂高，最高级强袭猛敲，法系可以撕神罚卷 ...</blockquote>
 是不是不卡级进阶比较好
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 248#         楼主| 发表于 2025-4-24 22:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67753467&amp;ptid=2249235" target="_blank">karastar 发表于 2025-4-24 22:23</a>
+
+是不是不卡级进阶比较好</blockquote>
+刚才没打完，编辑了一下，你再看一眼，肯定进阶比较好，人马后边的怪数值很夸张
+
+*****
+
+####  karastar  
+##### 249#       发表于 2025-4-24 22:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67753494&amp;ptid=2249235" target="_blank">风浦可符香(P.N) 发表于 2025-4-24 22:31</a>
+
+刚才没打完，编辑了一下，你再看一眼，肯定进阶比较好，人马后边的怪数值很夸张 ...</blockquote>
+我现在40级是回第二章刷敌击退到50级升阶，还是就在第三章跑图升级
+
