@@ -2698,3 +2698,16 @@ https://www.reddit.com/r/wizardry/comments/1k1p83t/god_slaye ...</blockquote>
 
 活动是今天开的?没找到地方进啊，还是要接任务？
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 241#         楼主| 发表于 2025-4-24 17:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67752644&amp;ptid=2249235" target="_blank">sodah 发表于 2025-4-24 17:50</a>
+
+活动是今天开的?没找到地方进啊，还是要接任务？</blockquote>
+活动基本都是固定套路，你一进王城就会看到NPC对话，告诉你“听说最近发现了XXX”，然后去工会接新委托
+
+这次前置是“夺回被偷走的铠甲”
+

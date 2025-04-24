@@ -7092,3 +7092,15 @@ ip和注册地一致还不够，得谷歌商店区域也一致，我就这一步
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无念  
+##### 674#       发表于 2025-4-24 18:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67752658&amp;ptid=2071758" target="_blank">胖达君 发表于 2025-4-24 17:54</a>
+安卓版本国际服领兑换券的条件：必须你梯子的区域，谷歌商店的区域，以及你游戏下载时候用的谷歌商店区域， ...</blockquote>
+最后一项应该不用，我安装包是qoo下的，在删了手机谷歌账号后重新登录台服小号就成功领到了，我感觉客户端主要判定还是看钻石商城的货币最靠谱，我一开始谷歌市场在日服，游戏里货币是日元，连氪金都提示该区域不提供
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
