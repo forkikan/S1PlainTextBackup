@@ -6892,3 +6892,16 @@ bluestacks在开发界面基本是流畅的，我录制了一个15秒的脚本�
 
 经验到后面肯定溢出的，我已经拉了4个50级战舰了，包括新手任务送的2个
 
+
+*****
+
+####  rockroxas  
+##### 656#       发表于 2025-4-24 15:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67752051&amp;ptid=2071758" target="_blank">纯白花火 发表于 2025-4-24 15:07</a>
+
+经验到后面肯定溢出的，我已经拉了4个50级战舰了，包括新手任务送的2个</blockquote>
+低级是这样，我UR战舰80级，一天经验关只够升1级
+
+存了到85的经验喂给1级SSR都能升40级了
+
