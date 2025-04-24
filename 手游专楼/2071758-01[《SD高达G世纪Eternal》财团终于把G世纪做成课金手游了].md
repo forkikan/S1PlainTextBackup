@@ -7158,3 +7158,33 @@ ip和注册地一致还不够，得谷歌商店区域也一致，我就这一步
 
 6月主线SEED-D 活动雷霆宙域
 
+
+*****
+
+####  windtrack  
+##### 680#       发表于 2025-4-24 19:33
+
+ 本帖最后由 windtrack 于 2025-4-24 19:34 编辑 
+
+小番茄和修司追加语音
+
+一步到位开发功能追加，不过好像依然不能批量..
+
+
+*****
+
+####  ddlsyo  
+##### 681#       发表于 2025-4-24 19:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">批量开发终于来了
+
+*****
+
+####  windtrack  
+##### 682#       发表于 2025-4-24 19:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67752952&amp;ptid=2071758" target="_blank">ddlsyo 发表于 2025-4-24 19:33</a>
+
+批量开发终于来了</blockquote>
+结果不是批量...那个一括是指可以一步开发到目标机...
+

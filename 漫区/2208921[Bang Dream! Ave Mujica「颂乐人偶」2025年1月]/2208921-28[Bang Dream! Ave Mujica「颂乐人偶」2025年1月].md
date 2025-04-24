@@ -2933,3 +2933,27 @@ mv似乎有救，看起来也不像邪教风格<img src="https://p.sda1.dev/23/5
 
 ×
 
+
+*****
+
+####  堀内爱里衣  
+##### 40473#       发表于 2025-4-24 19:34
+
+ 本帖最后由 堀内爱里衣 于 2025-4-24 19:36 编辑 
+
+[https://x.com/Billboard_JAPAN/status/1915345233669394685](https://x.com/Billboard_JAPAN/status/1915345233669394685)
+[https://t.co/t2Hz8sgc9B](https://t.co/t2Hz8sgc9B)
+
+＜访谈＞将伤痕也化作羁绊的 Ave Mujica——铭刻坚实"前进"的首张专辑《Completeness》
+
+机翻
+
+第一页https://s2.loli.net/2025/04/24/QXkB5uGR9sMzjie.jpg复制代码
+第二页https://s2.loli.net/2025/04/24/N9Kr6cq2f7yXvaF.jpg复制代码
+第三页https://s2.loli.net/2025/04/24/qXjOMNQlJcyh7gC.jpg复制代码
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
