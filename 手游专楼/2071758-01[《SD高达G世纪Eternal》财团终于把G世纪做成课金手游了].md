@@ -6610,3 +6610,14 @@ G币获取太麻烦了，总不能造几百个61式分解吧</blockquote>
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  洛克萨斯  
+##### 631#       发表于 2025-4-24 10:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67751005&amp;ptid=2071758" target="_blank">无念 发表于 2025-4-24 10:02</a>
+
+【《SD高达G世纪永恒》一回合快速刷红高达活动三星教学！1分钟一把太快了！-哔哩哔哩】 https://b23.tv/1 ...</blockquote>
+我的exia做不到两刀打死，应该是装备等级不够
+
