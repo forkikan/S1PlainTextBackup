@@ -3814,3 +3814,17 @@ MARY有點是弱氣，感情FREEMAN有機會出場? 而B JANET就非常強氣，
 
 当年牙王是往反派boss塑造的。现在和牙刀一起成了修炼废人
 
+
+*****
+
+####  肥胖的道奇兔  
+##### 379#       发表于 2025-4-24 16:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67752221&amp;ptid=2085684" target="_blank">syndrome2032 发表于 2025-4-24 15:45</a>
+牙刀家事明显改完了。
+
+当年牙王是往反派boss塑造的。现在和牙刀一起成了修炼废人 ...</blockquote>
+有人认为拳皇2003极限流剧情里面偷袭琢磨的就是牙王，这应该和11的队伍故事有关系
+
+—— 来自 Xiaomi 23117RK66C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
