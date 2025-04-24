@@ -6785,3 +6785,33 @@ bluestacks在开发界面基本是流畅的，我录制了一个15秒的脚本�
 
 尤其是宿敌机现在很少，等以后多起来估计也有一两个UR了
 
+
+*****
+
+####  无念  
+##### 646#       发表于 2025-4-24 14:26
+
+ 本帖最后由 无念 于 2025-4-24 14:27 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67751702&amp;ptid=2071758" target="_blank">HEERO.W 发表于 2025-4-24 13:42</a>
+国际服这兑换真坑，我打开钻石商店是日元，问题我不可能注册个日本号去绑国际服啊 ...</blockquote>
+你这种一般是进游戏的时候手机上的Google账号在日区，手机设置里删掉所有Google账号，然后你想去哪个区就自己注册一个新号，tw比较保险，注册完进游戏绑定新号，绑完挂对应国家梯子看货币符号就好了，如果变成对应国家了就成功了
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  rockroxas  
+##### 647#       发表于 2025-4-24 14:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67751794&amp;ptid=2071758" target="_blank">HEERO.W 发表于 2025-4-24 14:07</a>
+
+问题是两者加成范围完全不同啊，商店的主角加成是泛用性最广的没有之一 ...</blockquote>
+主线缺的大部分时候是en，永恒基本没机会上那么多主角机……？
+
+*****
+
+####  ドロロ  
+##### 648#       发表于 2025-4-24 14:28
+
+尼玛终于抽到EXIA了，可以打00剧情了
+
