@@ -1124,3 +1124,12 @@ TVアニメ　#アポカリプスホテル
 <img src="https://p.sda1.dev/23/02c9f183b97965c9266d1a0c445560e0/20250424_124144.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/23/2eddcea054848481dbec41c711dcbbba/20250424_124236.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  哈尔路尼亚  
+##### 108#       发表于 2025-4-24 12:58
+
+如果来脑洞一点的话，人类有可能不是回不来而是不想回来了。毕竟150年，旧人类都死光了，新人类对地球可能没啥感情
+然后因为银河楼在外星人中口碑很好，一起来地球旅游什么的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
