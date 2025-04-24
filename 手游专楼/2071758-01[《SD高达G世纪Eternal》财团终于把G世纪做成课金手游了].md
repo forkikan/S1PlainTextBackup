@@ -7243,3 +7243,38 @@ ip和注册地一致还不够，得谷歌商店区域也一致，我就这一步
 
 听说异端的SSR机师免费送？
 
+
+*****
+
+####  blue321  
+##### 689#       发表于 2025-4-24 21:34
+
+活动排期算手游正常水平，但是无氪钻收入貌似不多
+
+想抽卡还是得囤……
+
+*****
+
+####  rockroxas  
+##### 690#       发表于 2025-4-24 21:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67753225&amp;ptid=2071758" target="_blank">hayate0079 发表于 2025-4-24 21:04</a>
+
+听说异端的SSR机师免费送？</blockquote>
+没有，招募SR，目前公开的后续都没有送的SSR机师
+
+抽的SSR驾驶是IWSP跟卡嘉莉
+
+
+*****
+
+####  HEERO.W  
+##### 691#       发表于 2025-4-24 21:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67753303&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-4-24 21:35</a>
+
+没有，招募SR，目前公开的后续都没有送的SSR机师
+
+抽的SSR驾驶是IWSP跟卡嘉莉 ...</blockquote>
+你看游戏内的公告，红蓝金的机师都是SSR
+
