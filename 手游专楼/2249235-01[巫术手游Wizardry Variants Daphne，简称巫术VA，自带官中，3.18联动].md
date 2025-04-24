@@ -2753,3 +2753,27 @@ https://www.reddit.com/r/wizardry/comments/1k1p83t/god_slaye ...</blockquote>
 
 卡40级队伍到第三章，人马打不过，接下来怎么练级好
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 246#         楼主| 发表于 2025-4-24 22:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67753268&amp;ptid=2249235" target="_blank">karastar 发表于 2025-4-24 21:23</a>
+
+卡40级队伍到第三章，人马打不过，接下来怎么练级好</blockquote>
+人马血不算多，前排注意看时机防御赌破绽，主力战士强袭等级尽量喂高，最高级强袭猛敲，法系可以撕神罚卷轴，安排最菜的人保土法的血(土法最好沙漠杖+15或更高)，堆尸也要输出，输出不要断，40区间最头痛的是抗性，运气成分还是蛮高
+
+按第三章的难度，卡等收益远追不上难度提升，只靠法爹伤害不够用了，需要养近战，很多场合要拿战士54级大招轮流敲，早打死对方比什么都强。当然60阶不是说升就升，但至少也得先升50阶边打边刷，不然你莽死人马全队上了B4一样被路边野兽一刀秒，老刺激了
+
+
+*****
+
+####  karastar  
+##### 247#       发表于 2025-4-24 22:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67753454&amp;ptid=2249235" target="_blank">风浦可符香(P.N) 发表于 2025-4-24 22:20</a>
+
+人马血不算多，前排注意看时机防御赌破绽，主力战士强袭等级尽量喂高，最高级强袭猛敲，法系可以撕神罚卷 ...</blockquote>
+是不是不卡级进阶比较好
+
