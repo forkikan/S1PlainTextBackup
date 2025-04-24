@@ -6570,3 +6570,22 @@ G币获取太麻烦了，总不能造几百个61式分解吧</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  xinfengj  
+##### 627#       发表于 2025-4-24 09:37
+
+<img src="https://p.sda1.dev/23/e2e1660274161a1b940f688a33eddd71/CMP_20250424093612510.jpg" referrerpolicy="no-referrer">
+红高爆率大概5%？EX扫荡也会出
+
+
+*****
+
+####  马桶3  
+##### 628#       发表于 2025-4-24 09:44
+
+造坦克再卖了换GP这个过程太精污了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+他什么时候出一个一键建造指定数量<img src="https://static.stage1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">
+
