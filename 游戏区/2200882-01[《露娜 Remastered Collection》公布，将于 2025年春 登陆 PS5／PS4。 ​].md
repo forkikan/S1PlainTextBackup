@@ -941,3 +941,14 @@ Steam上360元后面打折都要掂量一下<img src="https://static.stage1st.co
 
 诚意还不如幻水，做成psp那样倒也认了，结果冷饭都不加热就端上来卖海鲜的价格，那豆丁大的像素人物看得我都笑了，游戏是送的，400卖的是情怀
 
+
+*****
+
+####  等等等灯等灯  
+##### 96#       发表于 2025-4-25 06:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67752836&amp;ptid=2200882" target="_blank">MobileMeowbot 发表于 2025-4-24 18:51</a>
+
+关站前的专楼可以地址栏搜索再手动把saraba改成stage</blockquote>
+这种方法漏的很多，比如我记得有个用分享PCem封装老游戏的专楼这种方法就搜不到（当然也可能我记错标题了）
+

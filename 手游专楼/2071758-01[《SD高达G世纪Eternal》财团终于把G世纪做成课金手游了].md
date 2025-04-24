@@ -7385,3 +7385,17 @@ GGETPB送的票
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  HEERO.W  
+##### 702#       发表于 2025-4-25 06:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67753751&amp;ptid=2071758" target="_blank">一个陆仁贾 发表于 2025-4-25 00:17</a>
+有点想入坑玩玩，不过听说以前高达的手游也没有运营得特别好的，这游戏不会到后面不投钱会很难受吧
+
+——  ...</blockquote>
+抠门和数值膨胀是必然的，如果心态不好且忍不住手的，千万别玩
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
