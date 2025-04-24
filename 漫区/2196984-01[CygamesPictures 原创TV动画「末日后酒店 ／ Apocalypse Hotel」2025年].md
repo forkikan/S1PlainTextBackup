@@ -1188,3 +1188,14 @@ cr字幕错误漏翻就算了，还自己加戏翻出来台词里没有的词，
 
 不过感觉故事舞台还是稍小了些，最新集一口气加入狸猫一家五口也算一种解法，至少能填充些前中期的剧情，中期和后期应该会利用那瓶绿色生物和彩蛋系统做些反转和展开，以及… 无端联想到佐贺那边歼星舰都搞出来了估计也要上太空，还都是cy参与的企划 系构也是村越繁，不搞些联动彩蛋吗<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AraTurambar  
+##### 114#       发表于 2025-4-25 04:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67748852&amp;ptid=2196984" target="_blank">jacket 发表于 2025-4-23 14:42</a>
+
+话说得真敞亮，直说人类噶了没拿来吊胃口</blockquote>
+人类出发了很多船啊，也不一定是全灭了。
+
