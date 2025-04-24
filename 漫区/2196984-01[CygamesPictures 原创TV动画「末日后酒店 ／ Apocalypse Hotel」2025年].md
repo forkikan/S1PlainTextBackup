@@ -1106,3 +1106,21 @@ cr字幕错误漏翻就算了，还自己加戏翻出来台词里没有的词，
 
 —— 来自 Xiaomi 2407FRK8EC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  Piano-Forest  
+##### 107#         楼主| 发表于 2025-4-24 12:43
+
+[https://x.com/kouhei_honda_/status/1914755007305695615](https://x.com/kouhei_honda_/status/1914755007305695615)
+
+TVアニメ　#アポカリプスホテル 
+
+たぬき星人の母星を描くのがとても楽しかったです！
+
+第3話ご視聴ありがとうございました！
+<img src="https://p.sda1.dev/23/42b9b27083593aceb721a9542faaa8aa/20250424_124141.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/6236dc70cca93eaec86da9f4c7c7935a/20250424_124143.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/02c9f183b97965c9266d1a0c445560e0/20250424_124144.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/2eddcea054848481dbec41c711dcbbba/20250424_124236.jpg" referrerpolicy="no-referrer">
+
