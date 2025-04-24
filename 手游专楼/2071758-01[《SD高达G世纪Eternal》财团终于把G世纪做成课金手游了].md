@@ -6548,3 +6548,25 @@ G币获取太麻烦了，总不能造几百个61式分解吧</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">100级exia只能吃红高达两下，打不了难度3
 
+
+*****
+
+####  纯白花火  
+##### 625#       发表于 2025-4-24 09:27
+
+100级exia摸到boss身边待机，等他打你反击，第二回合再搞死他
+
+
+*****
+
+####  棍机凹升龙  
+##### 626#       发表于 2025-4-24 09:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67750775&amp;ptid=2071758" target="_blank">光辉传递者 发表于 2025-4-24 09:00</a>
+什么，不是造一堆0高达拆了去换商店的sr舰？
+我记得之前说的是81w金币换sr舰满破来着，加成全主角的那个 ...</blockquote>
+61是500拿20
+0高达是2500拿30
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
