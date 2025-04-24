@@ -7413,3 +7413,17 @@ GGETPB送的票
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  光辉传递者  
+##### 704#       发表于 2025-4-25 07:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67753946&amp;ptid=2071758" target="_blank">一个陆仁贾 发表于 2025-4-25 07:21</a>
+这游戏想刷初始要申请删除账号是要自己写邮件申请？
+
+—— 来自 vivo V2419A, Android 15, 鹅球 v3.5.99 ...</blockquote>
+完全不需要，本地删除使用者数据就是删档了。万代南梦宫账号只是一个用来给你迁移本地数据到其他设备的平台。
+
+—— 来自 Xiaomi 24031PN0DC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
