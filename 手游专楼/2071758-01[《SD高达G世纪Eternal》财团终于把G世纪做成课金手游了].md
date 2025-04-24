@@ -6905,3 +6905,11 @@ bluestacks在开发界面基本是流畅的，我录制了一个15秒的脚本�
 
 存了到85的经验喂给1级SSR都能升40级了
 
+
+*****
+
+####  kulanyee  
+##### 657#       发表于 2025-4-24 15:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今晚生放送应该会给石头吧，给石头的话国际服一定也有，你说是吧代哥？
+
