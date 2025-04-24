@@ -7138,3 +7138,23 @@ ip和注册地一致还不够，得谷歌商店区域也一致，我就这一步
 
 全自动PVP<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Meiien  
+##### 678#       发表于 2025-4-24 19:16
+
+防御机的价值来了，PVP放个防御机很恶心
+
+
+*****
+
+####  windtrack  
+##### 679#       发表于 2025-4-24 19:24
+
+4月30日SEED新剧情
+
+5月活动0083
+
+6月主线SEED-D 活动雷霆宙域
+
