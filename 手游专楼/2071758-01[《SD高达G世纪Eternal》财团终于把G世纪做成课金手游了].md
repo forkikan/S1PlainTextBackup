@@ -6956,3 +6956,14 @@ bluestacks在开发界面基本是流畅的，我录制了一个15秒的脚本�
 
 万代就不能在游戏里搞个输入兑换码的功能吗，他那个傻逼网页真恶心
 
+
+*****
+
+####  MMIno  
+##### 662#       发表于 2025-4-24 15:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67752166&amp;ptid=2071758" target="_blank">silvia 发表于 2025-4-24 15:36</a>
+
+我是日服，挂台湾ip，注册一个日本id就可以了</blockquote>
+我是国际服，挂日本ip，没成功过
+
