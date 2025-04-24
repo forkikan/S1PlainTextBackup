@@ -6292,3 +6292,35 @@ Plazma
 想看些有活力的东西，什么东西有活力，年轻人=有活力、时尚时 ...</blockquote>
 本作主题也不是青春啊<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">按鹤卷访谈的说法，更贴切的是个体在宏大历史中如何直面虚假、追寻自由与自我认同
 
+
+*****
+
+####  ryanghj  
+##### 9931#       发表于 2025-4-24 20:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67752682&amp;ptid=2209276" target="_blank">蕾洁之风 发表于 2025-4-24 18:04</a>
+
+没这条消息说不定就不会撞上尼娅安</blockquote>
+命运石之门是吧
+
+*****
+
+####  岸浪白野  
+##### 9932#       发表于 2025-4-24 20:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67753183&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-4-24 20:49</a>
+
+不好说知不知道剧情，Plazma是因为8爷访谈里透露的消息，但是其他乐曲没有访谈所以并不清楚是不是了解剧情 ...</blockquote>
+[https://stage1st.com/2b/forum.ph ... 76&amp;pid=67724833](https://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=2209276&amp;pid=67724833)
+
+我早就在这楼发过ミッドナイト・リフレクション的访谈了，回去看楼
+
+*****
+
+####  日野下花帆  
+##### 9933#       发表于 2025-4-24 21:00
+
+本作根本没有银河美少年那种全篇都在歌颂青春调性，目前唯一能有青春感的角色也只有小番茄了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
