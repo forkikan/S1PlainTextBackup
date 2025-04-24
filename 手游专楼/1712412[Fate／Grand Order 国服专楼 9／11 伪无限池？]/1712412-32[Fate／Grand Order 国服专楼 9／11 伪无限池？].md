@@ -147,3 +147,11 @@ c呆耐久耗尽了，惨！
 
 日常已经变成打三次荒野消耗罐子了，结果莫名其妙莎士比亚来到了12羁绊<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lcn  
+##### 47116#       发表于 2025-4-24 20:24
+
+大概耗费了70呼符和300石头……
+
