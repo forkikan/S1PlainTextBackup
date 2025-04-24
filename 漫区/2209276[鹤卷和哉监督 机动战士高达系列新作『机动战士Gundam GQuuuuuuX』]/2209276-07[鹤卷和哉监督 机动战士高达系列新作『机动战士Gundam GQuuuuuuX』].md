@@ -6164,3 +6164,22 @@ NT聊天室里出现拉——拉——的声音之前是不是有点像列车的
 
 目前3首有词的歌都好烂好烂，反而是BGM很动听，殖民卫星的她以及修司开门那段氛围太棒了，军团站初战上机那段也很紧张
 
+
+*****
+
+####  ヒトニナル  
+##### 9921#       发表于 2025-4-24 19:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">现在有词的其实是四首
+Plazma
+ミッドナイト・リフレクション
+もうどうなってもいいや
+夜に咲く
+
+*****
+
+####  暗黑能乐  
+##### 9922#       发表于 2025-4-24 19:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">分析场外分析的这么认真也是没谁了
+

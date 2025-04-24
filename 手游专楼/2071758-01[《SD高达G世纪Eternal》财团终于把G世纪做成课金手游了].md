@@ -7188,3 +7188,29 @@ ip和注册地一致还不够，得谷歌商店区域也一致，我就这一步
 批量开发终于来了</blockquote>
 结果不是批量...那个一括是指可以一步开发到目标机...
 
+
+*****
+
+####  ddlsyo  
+##### 683#       发表于 2025-4-24 19:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67752959&amp;ptid=2071758" target="_blank">windtrack 发表于 2025-4-24 19:35</a>
+
+结果不是批量...那个一括是指可以一步开发到目标机...</blockquote>
+。。。只能说也算是实用更新
+
+
+*****
+
+####  rockroxas  
+##### 684#       发表于 2025-4-24 19:43
+
+结果有说强自是红机还是黄机吗
+
+*****
+
+####  windtrack  
+##### 685#       发表于 2025-4-24 19:45
+
+配信完了 不送石头不送抽 真有你的啊 万南<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
