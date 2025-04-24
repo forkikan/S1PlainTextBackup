@@ -6209,3 +6209,22 @@ Plazma
 
 （无聊到分析MV...都是没有新剧情的错
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 9925#       发表于 2025-4-24 19:58
+
+除了《夜に咲く》都喜欢，这些歌都符合预期，毕竟我不是冲着严肃宏大叙事来的，看的是kirakira。
+
+
+*****
+
+####  暗黑能乐  
+##### 9926#       发表于 2025-4-24 20:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67753032&amp;ptid=2209276" target="_blank">Dai-Dai-Dai-Dai 发表于 2025-4-24 19:58</a>
+
+除了《夜に咲く》都喜欢，这些歌都符合预期，毕竟我不是冲着严肃宏大叙事来的，看的是kirakira。 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看kirakira到底是看啥。。
+
