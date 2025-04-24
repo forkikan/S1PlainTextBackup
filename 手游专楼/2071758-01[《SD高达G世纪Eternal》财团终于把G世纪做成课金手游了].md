@@ -6987,3 +6987,26 @@ ULT机体的升级材料是靠刷永恒之路hard和expert吗？除了第一次�
 
 倒是不知道哪来一个高达79加成7%的op，装上之后夸克可以直接打死不用反击，估计SP化破满100级的夸克也可以吧
 
+
+*****
+
+####  燃烧的石头  
+##### 665#       发表于 2025-4-24 16:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67752339&amp;ptid=2071758" target="_blank">行政裁定书 发表于 2025-4-24 16:12</a>
+ULT机体的升级材料是靠刷永恒之路hard和expert吗？除了第一次通的时候送的50个材料，其他是反复刷这些本一 ...</blockquote>
+就是第一次过给，所以现在资源有限，以后永恒之路应该也会更新新关卡的
+
+—— 来自 realme RMX3370, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  rockroxas  
+##### 666#       发表于 2025-4-24 16:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67750393&amp;ptid=2071758" target="_blank">windtrack 发表于 2025-4-23 23:47</a>
+
+永恒路根本不着急打，一次性奖励跑不了，而且ULT机体不能升星也没多大用</blockquote>
+点ULT升星会提示开发后升，应该是SSR材料开发升UR，UR材料开发突或者直接三突
+
