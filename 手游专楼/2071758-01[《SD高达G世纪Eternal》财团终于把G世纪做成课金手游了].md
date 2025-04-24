@@ -6589,3 +6589,24 @@ G币获取太麻烦了，总不能造几百个61式分解吧</blockquote>
 
 他什么时候出一个一键建造指定数量<img src="https://static.stage1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  風卷豹  
+##### 629#       发表于 2025-4-24 09:57
+
+红高达掉落是完全概率玄学，我每日EX扫荡+手动打一次没掉过，今早起来AUTO一次死到只剩一台机6000分反而掉了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  无念  
+##### 630#       发表于 2025-4-24 10:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67750811&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2025-4-24 09:12</a>
+100级exia只能吃红高达两下，打不了难度3</blockquote>
+【《SD高达G世纪永恒》一回合快速刷红高达活动三星教学！1分钟一把太快了！-哔哩哔哩】 https://b23.tv/1OIlnSz
+拉个小番茄，双机联动砍上去就过关
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
