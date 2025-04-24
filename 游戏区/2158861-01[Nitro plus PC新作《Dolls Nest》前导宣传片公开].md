@@ -887,3 +887,11 @@ BOSS非常难锁定，暂时卡住了
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  nianiania  
+##### 88#       发表于 2025-4-25 00:15
+
+今天买了玩了会儿，这操作也太僵硬了吧，感觉还没我私下做的仿AC的demo手感好，一下子就有信心了艹<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
