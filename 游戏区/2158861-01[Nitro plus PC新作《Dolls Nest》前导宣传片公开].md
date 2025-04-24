@@ -865,3 +865,25 @@ PS：怎么捡来的尽是五花八门的近战武器
 
 BOSS非常难锁定，暂时卡住了
 
+
+*****
+
+####  蓝雉  
+##### 86#       发表于 2025-4-24 23:56
+
+气抖冷,下巢佬什么时候能站起来<img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  ParadiseMartyr  
+##### 87#       发表于 2025-4-24 23:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这游戏的配色有点难顶，想调好看好难
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
