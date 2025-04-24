@@ -2724,3 +2724,16 @@ https://www.reddit.com/r/wizardry/comments/1k1p83t/god_slaye ...</blockquote>
  ...</blockquote>
 去王城也没触发，看了眼攻略网站给的触发条件是※交易水路を一定以上進める必要がる 我现在是刚打完口臭哥，这进度应该可以了吧。
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 243#         楼主| 发表于 2025-4-24 18:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67752772&amp;ptid=2249235" target="_blank">sodah 发表于 2025-4-24 18:29</a>
+
+去王城也没触发，看了眼攻略网站给的触发条件是※交易水路を一定以上進める必要がる 我现在是刚打完口臭 ...</blockquote>
+公告就写“水路到达一定进度”，我本来觉得水4就可以，刚才看巴哈也有人问到船2了没开
+
+那之后的重要节点我猜应该就竞技场第三战，再就是水路一周目(不完美)通关了，不行再往前打一点吧，不过不着急，这活动也常驻
+
