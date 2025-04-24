@@ -6527,3 +6527,16 @@ exia100了，后面资源是砸给夸克斯还是z还是sr自由呢</blockquote>
 马上要月底了，请教下坛友们G商店每月更新的物品都打算买些什么。</blockquote>
 G币获取太麻烦了，总不能造几百个61式分解吧
 
+
+*****
+
+####  光辉传递者  
+##### 623#       发表于 2025-4-24 09:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67750612&amp;ptid=2071758" target="_blank">xinfengj 发表于 2025-4-24 07:45</a>
+G币获取太麻烦了，总不能造几百个61式分解吧</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">什么，不是造一堆0高达拆了去换商店的sr舰？
+我记得之前说的是81w金币换sr舰满破来着，加成全主角的那个。
+
+—— 来自 Xiaomi 24031PN0DC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
