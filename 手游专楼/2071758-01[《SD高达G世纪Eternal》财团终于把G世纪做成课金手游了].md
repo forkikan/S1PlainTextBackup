@@ -7286,3 +7286,13 @@ ip和注册地一致还不够，得谷歌商店区域也一致，我就这一步
 
 红高这个武装升级材料N级的是不是ex反而掉率会低，刷一天ex没掉几个<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  光辉传递者  
+##### 693#       发表于 2025-4-24 22:38
+
+试图用自动连点器录制总帅一拖九三动打红高失败，循环一次之后就会出现触控位置变形。看来只能是总帅单刷才不会有这种波动？
+
+—— 来自 Xiaomi 24031PN0DC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

@@ -6403,3 +6403,19 @@ naoki_yamauchi @MsTwiJHq4zwbbTh
 
 动画tie曲大多数都是有看过剧情写的啊，只不过歌词要多对应剧情这完全是看歌手和委托方（动画制作组）的意向…制作组希望tie曲贴合剧情自然会主动提供剧情内容，无所谓的话就放歌曲制作方随便做
 
+
+*****
+
+####  newise  
+##### 9941#       发表于 2025-4-24 22:40
+
+写歌前看过剧情没错，但是什么剧情不好说吧，例如老八看的大概率是Z里挽尊哥相关剧情<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  唯一的裂痕  
+##### 9942#       发表于 2025-4-24 22:45
+
+上一次看拿歌词磕CP还是在古丽特专楼<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
