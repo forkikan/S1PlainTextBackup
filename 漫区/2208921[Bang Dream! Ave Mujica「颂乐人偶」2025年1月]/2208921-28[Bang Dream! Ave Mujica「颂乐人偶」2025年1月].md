@@ -2735,3 +2735,17 @@ https://ac.stage3rd.com/forumTopicRead.asp?id=1640&amp;page=4
 最后再弄死退场，现在又说随时可以切出来就越来越突出一个不知 ...</blockquote>
 是可以切出来，但不是一个具有独立性的人格，而是随若叶睦心意而扮演的角色
 
+
+*****
+
+####  堀内爱里衣  
+##### 40457#       发表于 2025-4-24 15:01
+
+[https://x.com/BUSHIM_ongaku/status/1915216623159697477](https://x.com/BUSHIM_ongaku/status/1915216623159697477)
+[https://bushiroad-music.com/musics/brmm-10785/](https://bushiroad-music.com/musics/brmm-10785/)
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
