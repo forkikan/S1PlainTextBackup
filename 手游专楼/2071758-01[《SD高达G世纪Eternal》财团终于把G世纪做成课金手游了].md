@@ -7117,3 +7117,12 @@ ip和注册地一致还不够，得谷歌商店区域也一致，我就这一步
 
 ×
 
+
+*****
+
+####  fxc731  
+##### 676#       发表于 2025-4-24 18:57
+
+爬了楼才知道刷初始是拿送的钻刷N个UR<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+算了，不高兴删号刷了，目前有个一突水星，一个能天使，一个凤凰，就这么玩吧
+
