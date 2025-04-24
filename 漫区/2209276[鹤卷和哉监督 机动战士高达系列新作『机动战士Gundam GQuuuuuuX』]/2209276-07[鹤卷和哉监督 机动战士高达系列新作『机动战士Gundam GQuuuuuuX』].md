@@ -5857,3 +5857,14 @@ Sci-Fi这列的介绍图可以
 
 ×
 
+
+*****
+
+####  千恋万花  
+##### 9904#       发表于 2025-4-24 09:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67750902&amp;ptid=2209276" target="_blank">七七見奈波 发表于 2025-4-24 09:38</a>
+
+鉴于魔女本集在预告出声了，是不是可以猜ED卡司表里的岛野花就是魔女的声优（不过也可能是索顿进场时一群 ...</blockquote>
+目前这几集的预告部分都是只有玛秋和尼娅安两个人在说话吧
+

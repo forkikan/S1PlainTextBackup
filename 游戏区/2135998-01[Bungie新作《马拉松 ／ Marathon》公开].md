@@ -770,3 +770,22 @@ tiger引擎太落伍了，不管是渲染管线还是开发工具
 
 这种大色块加上一堆线条，点点，叉叉，我还以为是贴图错误<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  JasonBourne  
+##### 78#       发表于 2025-4-24 09:49
+
+色彩和图形元素能看到很多老科幻艺术大师的影子
+
+<strong>Chris Foss</strong>
+<img src="https://image.gcores.com/a747ebae-f185-4f0f-baaa-15b13c86db06.jpg?x-oss-process=image/resize,limit_1,m_lfit,w_700/quality,q_90/format,webp/watermark,image_d2F0ZXJtYXJrLnBuZw,g_se,x_10,y_10" id="aimg_nA0Af" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://image.gcores.com/59735d4d-46f3-421c-81d2-e5670a543407.jpg?x-oss-process=image/resize,limit_1,m_lfit,w_700/quality,q_90/format,webp/watermark,image_d2F0ZXJtYXJrLnBuZw,g_se,x_10,y_10" id="aimg_AIXKq" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://image.gcores.com/86cdcb64-644b-49b6-93c2-a6a97ddb951d.jpg?x-oss-process=image/resize,limit_1,m_lfit,w_700/quality,q_90/format,webp/watermark,image_d2F0ZXJtYXJrLnBuZw,g_se,x_10,y_10" id="aimg_RP4Z5" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://image.gcores.com/fb4ea245-5dab-40da-b0e9-521fc8ddf520.jpg?x-oss-process=image/resize,limit_1,m_lfit,w_700/quality,q_90/format,webp/watermark,image_d2F0ZXJtYXJrLnBuZw,g_se,x_10,y_10" id="aimg_sVYZg" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+<strong>John Harris</strong>
+<img src="https://image.gcores.com/f835103a-d9ff-4ea8-8cc9-854fd469e81c.jpg?x-oss-process=image/resize,limit_1,m_lfit,w_700/quality,q_90/format,webp/watermark,image_d2F0ZXJtYXJrLnBuZw,g_se,x_10,y_10" id="aimg_eoDr9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://image.gcores.com/0d7f419e-3b8c-4855-b3ad-bfe807e29e2d.jpg?x-oss-process=image/resize,limit_1,m_lfit,w_700/quality,q_90/format,webp/watermark,image_d2F0ZXJtYXJrLnBuZw,g_se,x_10,y_10" id="aimg_F1P3S" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://image.gcores.com/4e9efde4-e7ee-4f90-87a0-8ff677572b2a.jpg?x-oss-process=image/resize,limit_1,m_lfit,w_700/quality,q_90/format,webp/watermark,image_d2F0ZXJtYXJrLnBuZw,g_se,x_10,y_10" id="aimg_Wd292" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
