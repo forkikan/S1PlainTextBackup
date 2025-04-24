@@ -6913,3 +6913,38 @@ bluestacks在开发界面基本是流畅的，我录制了一个15秒的脚本�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今晚生放送应该会给石头吧，给石头的话国际服一定也有，你说是吧代哥？
 
+
+*****
+
+####  无念  
+##### 658#       发表于 2025-4-24 15:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67752013&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2025-4-24 14:59</a>
+感觉是战舰和麻球等级不够？我麻球才45，夸克斯还没满破，进度才到zz，没做完任务，战舰不是很敢练，送的 ...</blockquote>
+其实你有能天使和G夸克双加成的船比如oo的电视姬的话，可以把这两人塞一条船里
+因为他们上去的路线砍的小怪是分开的，可以用同一条船
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  洛克萨斯  
+##### 659#       发表于 2025-4-24 15:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67752129&amp;ptid=2071758" target="_blank">无念 发表于 2025-4-24 15:28</a>
+
+其实你有能天使和G夸克双加成的船比如oo的电视姬的话，可以把这两人塞一条船里
+
+因为他们上去的路线砍的小 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没有，我只有老太婆和姆塞，一个是加uc一个加电光石火的，然后就是送的两条
+
+*****
+
+####  silvia  
+##### 660#       发表于 2025-4-24 15:36
+
+<blockquote>MMIno 发表于 2025-4-24 15:06
+我受不了了，这个万代账号同步就没成功过，有没有人讲讲到底该怎么搞？</blockquote>
+我是日服，挂台湾ip，注册一个日本id就可以了
+
