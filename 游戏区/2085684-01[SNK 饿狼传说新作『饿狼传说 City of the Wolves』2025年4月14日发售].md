@@ -3828,3 +3828,17 @@ MARY有點是弱氣，感情FREEMAN有機會出場? 而B JANET就非常強氣，
 
 —— 来自 Xiaomi 23117RK66C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  syndrome2032  
+##### 380#       发表于 2025-4-24 17:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67752448&amp;ptid=2085684" target="_blank">肥胖的道奇兔 发表于 2025-4-24 16:45</a>
+有人认为拳皇2003极限流剧情里面偷袭琢磨的就是牙王，这应该和11的队伍故事有关系
+
+—— 来自 Xiaomi 231 ...</blockquote>
+牙刀在kof的目的又没变过，接的mow剧情。
+
+不过狼城结局更像是快进到龙虎一家耍宝阶段了。父子大战直接跳过，尤莉从”那个人是你爹”直接快进到2的天降武学奇才了。
+

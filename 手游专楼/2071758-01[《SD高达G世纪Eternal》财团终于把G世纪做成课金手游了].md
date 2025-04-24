@@ -7010,3 +7010,11 @@ ULT机体的升级材料是靠刷永恒之路hard和expert吗？除了第一次�
 永恒路根本不着急打，一次性奖励跑不了，而且ULT机体不能升星也没多大用</blockquote>
 点ULT升星会提示开发后升，应该是SSR材料开发升UR，UR材料开发突或者直接三突
 
+
+*****
+
+####  kulanyee  
+##### 667#       发表于 2025-4-24 17:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">IP与注册地一致兑换码仍然还换不了的试试清理cookies再登录，我这么操作后能换了
+
