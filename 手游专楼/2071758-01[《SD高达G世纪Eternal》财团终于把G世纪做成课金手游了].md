@@ -6815,3 +6815,40 @@ bluestacks在开发界面基本是流畅的，我录制了一个15秒的脚本�
 
 尼玛终于抽到EXIA了，可以打00剧情了
 
+
+*****
+
+####  洛克萨斯  
+##### 649#       发表于 2025-4-24 14:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67751378&amp;ptid=2071758" target="_blank">无念 发表于 2025-4-24 11:50</a>
+
+你是不是没看视频
+
+—— 来自 HONOR SDY-AN00, Android 14, 鹅球 v3.5.99</blockquote>
+他打我残血exia，和视频演示的不一样
+
+*****
+
+####  无念  
+##### 650#       发表于 2025-4-24 14:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67751897&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2025-4-24 14:36</a>
+他打我残血exia，和视频演示的不一样</blockquote>
+多半是走位不对，G夸克离红高达更近的情况下没道理去打能天使的
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  洛克萨斯  
+##### 651#       发表于 2025-4-24 14:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67751905&amp;ptid=2071758" target="_blank">无念 发表于 2025-4-24 14:38</a>
+
+多半是走位不对，G夸克离红高达更近的情况下没道理去打能天使的
+
+—— 来自 HONOR SDY-AN00, Android 14, ...</blockquote>
+不行，没办法按照视频里反击打死，伤害差了几万，还是我的练度不够
+
