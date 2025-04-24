@@ -6693,3 +6693,34 @@ exia待机反击红高达加再来一次回合砍不死</blockquote>
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  光辉传递者  
+##### 638#       发表于 2025-4-24 12:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67751377&amp;ptid=2071758" target="_blank">ddlsyo 发表于 2025-4-24 11:50</a>
+按解体一台61式战车20GP计算，
+
+UR武器强化零件1500GP，需要开发75次
+
+SR战舰一艘2500GP，需要开发125次</blockquote>
+主要是这b玩意太卡。不卡的话模拟器按键精灵启动直接秒了。金币反而不是问题，嗯刷就完事了。
+
+—— 来自 LENOVO TB321FU, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  ddlsyo  
+##### 639#       发表于 2025-4-24 12:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67751497&amp;ptid=2071758" target="_blank">光辉传递者 发表于 2025-4-24 12:27</a>
+
+主要是这b玩意太卡。不卡的话模拟器按键精灵启动直接秒了。金币反而不是问题，嗯刷就完事了。
+
+—— 来自 ...</blockquote>
+用脚本确实是个好办法。
+
+bluestacks在开发界面基本是流畅的，我录制了一个15秒的脚本，可以稳定开发61式战车了。
+
