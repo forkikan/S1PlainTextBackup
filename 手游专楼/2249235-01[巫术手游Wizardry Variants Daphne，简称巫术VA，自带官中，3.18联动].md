@@ -2745,3 +2745,11 @@ https://www.reddit.com/r/wizardry/comments/1k1p83t/god_slaye ...</blockquote>
 
 晚上随便刷了几轮，掉落都比垃圾蜡烛好太多了。垃圾蜡烛滚了
 
+
+*****
+
+####  karastar  
+##### 245#       发表于 2025-4-24 21:23
+
+卡40级队伍到第三章，人马打不过，接下来怎么练级好
+

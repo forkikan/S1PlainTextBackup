@@ -6350,3 +6350,33 @@ naoki_yamauchi @MsTwiJHq4zwbbTh
 
 ×
 
+
+*****
+
+####  psycho_Gadfly  
+##### 9936#       发表于 2025-4-24 21:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67753261&amp;ptid=2209276" target="_blank">ヒトニナル 发表于 2025-4-24 21:19</a>
+
+至少ミッドナイト・リフレクション也是看过剧本再写的</blockquote>
+这些歌应该都是看了企划书创作的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+但感觉大部分歌词讲究一个氛围感，非要对应具体剧情不太可能（吧
+
+
+*****
+
+####  woui003woui  
+##### 9937#       发表于 2025-4-24 21:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拿歌词对具体剧情纯属没假药蒽造吧，不是我说，是ave mujica把你们变成这样的吗
+
+*****
+
+####  AvenueIII  
+##### 9938#       发表于 2025-4-24 21:37
+
+说是青春片倒也没问题啦，毕竟这种困境基本都是青春期开始懵懵懂懂地降临到人身上
+
+主角团除了绿叔叔也是一水的年轻人，拍出来再怎么样也是jkdk找自己，而不会是在眼角开始长鱼尾纹的年纪回过味来，陷入存在主义危机的“泰勒德顿”和出租车司机
+
