@@ -7018,3 +7018,28 @@ ULT机体的升级材料是靠刷永恒之路hard和expert吗？除了第一次�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">IP与注册地一致兑换码仍然还换不了的试试清理cookies再登录，我这么操作后能换了
 
+
+*****
+
+####  体制  
+##### 668#       发表于 2025-4-24 17:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67746088&amp;ptid=2071758" target="_blank">胖达君 发表于 2025-4-22 14:06</a>
+15万的红高达击破建议玩突击流，找1-2个满级强机比如LV100的能天使，直接开局三动冲到他面前开干，一般1-2 ...</blockquote>
+用了你的方法100级能天使带50级凤凰援攻，然后另一边90级沙扎比和80级Gux一人一刀过了。
+援攻在主攻之前打是好文明。
+
+—— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  体制  
+##### 669#       发表于 2025-4-24 17:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67746663&amp;ptid=2071758" target="_blank">光辉传递者 发表于 2025-4-22 17:37</a>
+试了一下，甚至连妖刀都不需要。双百的总帅+沙扎比直接就是三动打上去，射界+1打一次红高，然后结束回合， ...</blockquote>
+100级能天使不行，能天使在射程内，第一刀会被boss反击打半血，然后boss动直接秒能天使，反击不了，除非带个援护防御机跟着。
+
+—— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

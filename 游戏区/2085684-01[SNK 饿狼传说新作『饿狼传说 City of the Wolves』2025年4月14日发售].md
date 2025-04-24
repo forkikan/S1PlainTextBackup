@@ -3856,3 +3856,13 @@ MARY有點是弱氣，感情FREEMAN有機會出場? 而B JANET就非常強氣，
 
 —— 来自 Xiaomi 23117RK66C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  yanhan0410  
+##### 382#       发表于 2025-4-24 17:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67751273&amp;ptid=2085684" target="_blank">风夏 发表于 2025-4-24 12:21</a>
+我了个石油爹, 直接干到史上奖金最高的格斗游戏赛事了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">冠军搞不好是C罗亲自颁奖
+

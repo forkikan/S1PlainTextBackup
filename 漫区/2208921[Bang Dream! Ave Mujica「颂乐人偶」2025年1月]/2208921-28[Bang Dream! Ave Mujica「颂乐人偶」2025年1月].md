@@ -2837,3 +2837,12 @@ https://ac.stage3rd.com/forumTopicRead.asp?id=1640&amp;page=4
 
 好像不少人上山了
 
+
+*****
+
+####  仟音一心  
+##### 40465#       发表于 2025-4-24 17:17
+
+不到150的李子可以被背得动160的茜。
+<img src="https://p.sda1.dev/23/fdeb98a017f5053e8eb2d2d34fd5cf5b/image.jpg" referrerpolicy="no-referrer">
+
