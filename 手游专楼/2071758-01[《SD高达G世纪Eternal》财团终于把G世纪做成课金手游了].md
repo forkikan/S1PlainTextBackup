@@ -6654,3 +6654,16 @@ G币获取太麻烦了，总不能造几百个61式分解吧</blockquote>
 
 目前有什么赚钱的方法吗？不容易吧
 
+
+*****
+
+####  洛克萨斯  
+##### 635#       发表于 2025-4-24 11:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67751117&amp;ptid=2071758" target="_blank">无念 发表于 2025-4-24 10:33</a>
+
+？能天使只砍一刀啊，你说的是G夸克吧
+
+—— 来自 HONOR SDY-AN00, Android 14, 鹅球 v3.5.99 ...</blockquote>
+exia待机反击红高达加再来一次回合砍不死
+
