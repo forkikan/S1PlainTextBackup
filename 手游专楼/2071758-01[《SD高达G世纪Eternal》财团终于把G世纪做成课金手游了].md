@@ -6667,3 +6667,29 @@ G币获取太麻烦了，总不能造几百个61式分解吧</blockquote>
 —— 来自 HONOR SDY-AN00, Android 14, 鹅球 v3.5.99 ...</blockquote>
 exia待机反击红高达加再来一次回合砍不死
 
+
+*****
+
+####  ddlsyo  
+##### 636#       发表于 2025-4-24 11:50
+
+按解体一台61式战车20GP计算，
+
+UR武器强化零件1500GP，需要开发75次
+
+SR战舰一艘2500GP，需要开发125次
+
+SSR突破材料30000GP，需要开发1500次
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">明明就有批量解体功能，怎么就没有批量开发功能呢
+
+*****
+
+####  无念  
+##### 637#       发表于 2025-4-24 11:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67751265&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2025-4-24 11:17</a>
+exia待机反击红高达加再来一次回合砍不死</blockquote>
+你是不是没看视频<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
