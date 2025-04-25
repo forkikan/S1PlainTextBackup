@@ -895,3 +895,11 @@ BOSS非常难锁定，暂时卡住了
 
 今天买了玩了会儿，这操作也太僵硬了吧，感觉还没我私下做的仿AC的demo手感好，一下子就有信心了艹<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  madcow  
+##### 89#       发表于 2025-4-25 10:03
+
+为什么往左前方移动的时候喷口会有很明显的转向往右前方不会，好神秘
+
