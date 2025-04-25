@@ -7509,3 +7509,26 @@ GGETPB送的票
 
 所以不知道到底哪个才是正确的刷取关卡<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  帕蕾莉亚  
+##### 713#       发表于 2025-4-25 13:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67754720&amp;ptid=2071758" target="_blank">行政裁定书 发表于 2025-4-25 13:16</a>
+
+确实，n级材料刷了半天才三个，
+
+但打hard难度，材料掉落总量也少。
+
+所以不知道到底哪个才是正确的刷取关 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">把金武器素材刷满之前N和R早就溢出了
+
+
+*****
+
+####  螺旋的小夜曲  
+##### 714#       发表于 2025-4-25 14:01
+
+seed开发路线末尾还有几个问号，这次更新有说要补全吗
+
