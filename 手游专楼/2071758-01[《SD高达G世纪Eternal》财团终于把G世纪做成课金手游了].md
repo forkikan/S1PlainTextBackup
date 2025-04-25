@@ -7486,3 +7486,11 @@ GGETPB送的票
 
 猛玩4天，似乎内容差不多了。。。剩下的就是把练度拉起来就行了。长草期来得太快了。。。。<img src="https://static.stage1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  丹德里恩  
+##### 711#       发表于 2025-4-25 13:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">本来推图挺顺的，一路到X的hard被暴揍，这3隐藏一出来2盾+2支援*2要怎么打....傻子那和小番茄都扛不住2下
+
