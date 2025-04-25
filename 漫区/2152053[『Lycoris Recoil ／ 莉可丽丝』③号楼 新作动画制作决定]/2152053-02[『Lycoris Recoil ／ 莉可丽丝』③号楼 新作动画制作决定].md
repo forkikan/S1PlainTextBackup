@@ -946,3 +946,13 @@ https://forum.gamer.com.tw/C.php?bsn=73316&amp;snA=1848&amp;tnum=2
 
 狂犬还是舔狗好
 
+
+*****
+
+####  Saber琪  
+##### 2250#       发表于 2025-4-25 23:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67755618&amp;ptid=2152053" target="_blank">Delicatus545 发表于 2025-4-25 19:47</a>
+https://x.com/AzJames34/status/1915731780012745111?t=VgpuGJns9Irza8rFINXXXA&amp;s=19</blockquote>
+支持井之上猫塑喵<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
