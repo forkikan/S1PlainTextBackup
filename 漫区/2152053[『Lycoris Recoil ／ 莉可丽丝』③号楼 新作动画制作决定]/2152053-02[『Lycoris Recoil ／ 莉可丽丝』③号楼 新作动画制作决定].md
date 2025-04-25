@@ -956,3 +956,11 @@ https://forum.gamer.com.tw/C.php?bsn=73316&amp;snA=1848&amp;tnum=2
 https://x.com/AzJames34/status/1915731780012745111?t=VgpuGJns9Irza8rFINXXXA&amp;s=19</blockquote>
 支持井之上猫塑喵<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  osore  
+##### 2251#       发表于 2025-4-25 23:09
+
+为时已晚<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

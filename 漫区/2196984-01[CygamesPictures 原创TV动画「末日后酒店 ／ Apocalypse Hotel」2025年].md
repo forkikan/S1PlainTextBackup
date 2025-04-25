@@ -1235,3 +1235,11 @@ I did LO\Genga on Apocalypse Hotel ep3
 Here's some of the cuts I did! ✨
 <img src="https://p.sda1.dev/23/b785afe4e9e49c8f78b92fa4f5015a5c/SaveTwitter.Net_vDumqPac9QRF-Cz0__720p_.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  山代风我  
+##### 117#       发表于 2025-4-25 23:12
+
+第二集那种外星人塑造还不错，第三集把霓虹的狸猫传说硬搞成外星人就有点怪
+
