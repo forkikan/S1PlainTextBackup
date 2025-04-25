@@ -6884,3 +6884,14 @@ Sweetsub吧，可以的。
 
 遗老做的片就是遗老片<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  YU_JI  
+##### 9987#       发表于 2025-4-25 23:20
+
+<blockquote>碳. 发表于 2025-4-25 22:43
+这老人臭都溢出来了谁还看不出是遗老片啊，外在上够明显了，光是这完全脱离时代的BGM作曲和使用方式，第 ...</blockquote>
+
+说的不是剧场版上映前的第一印象吗？剧场版宣传阶段能看得出这些就见鬼了
+
