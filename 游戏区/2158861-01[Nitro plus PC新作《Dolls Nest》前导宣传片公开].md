@@ -1003,3 +1003,11 @@ BOSS非常难锁定，暂时卡住了
 
 大空洞遇到NPC商人的房间里藏了一把热能机枪
 
+
+*****
+
+####  madcow  
+##### 101#       发表于 2025-4-25 20:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">沃日这降积地带进去被喷子小蜘蛛追的满地乱跑（
+
