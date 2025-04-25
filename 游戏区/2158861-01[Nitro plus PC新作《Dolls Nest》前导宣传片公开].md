@@ -938,3 +938,14 @@ BOSS非常难锁定，暂时卡住了
 
 啊？红色屏障是这样解锁的？
 
+
+*****
+
+####  Ehekatl  
+##### 94#       发表于 2025-4-25 17:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67755126&amp;ptid=2158861" target="_blank">Sissii 发表于 2025-4-25 16:31</a>
+
+逆天引导，红色的屏障原来贴上去等几秒会自动开，我都推到圣柜了，发现没路了，回头去树巢BOSS和净水层看屏 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">贴了没反应啊，是不是缺了什么道具。
+
