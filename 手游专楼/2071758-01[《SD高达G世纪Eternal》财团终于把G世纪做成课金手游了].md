@@ -7456,3 +7456,14 @@ GGETPB送的票
 正しいプロモーションコードを入力してください ...</blockquote>
 兑换码仅限国际服可用
 
+
+*****
+
+####  GameTheory  
+##### 708#       发表于 2025-4-25 10:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67754235&amp;ptid=2071758" target="_blank">leonyang19 发表于 2025-4-25 09:55</a>
+
+兑换码仅限国际服可用</blockquote>
+原来如此...
+
