@@ -6452,3 +6452,13 @@ naoki_yamauchi @MsTwiJHq4zwbbTh
 
 ×
 
+
+*****
+
+####  pmoe  
+##### 9946#       发表于 2025-4-25 12:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67752682&amp;ptid=2209276" target="_blank">蕾洁之风 发表于 2025-4-24 18:04</a>
+没这条消息说不定就不会撞上尼娅安</blockquote>
+我猜是宇宙男鬼夏亚发的，消失前说自己看到了时间，这会说不定躲在时间缝隙或者nt聊天室里，和星际穿越一样只能间接改变时间线的走向，比如发发短信或者冒充高达和修司通信什么的
+
