@@ -6607,3 +6607,13 @@ ps：安彦的作画太好舔了
 
 别的不谈二创热度还是挺好的，上X看麻球同人图看的很开心
 
+
+*****
+
+####  王留美  
+##### 9960#       发表于 2025-4-25 14:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67754858&amp;ptid=2209276" target="_blank">Wondering 发表于 2025-4-25 14:25</a>
+ 这播出时段不是稳第一吗，肯定说明不了啥啊播出时段拿不到第一才不正常吧 ...</blockquote>
+那我就要说个悲伤的故事了，当年AGE他……
+
