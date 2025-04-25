@@ -6837,3 +6837,14 @@ Sweetsub吧，可以的。
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  伊露伊道格拉斯  
+##### 9982#       发表于 2025-4-25 22:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67754932&amp;ptid=2209276" target="_blank">ardente 发表于 2025-4-25 15:00</a>
+
+好奇这部拿夏亚尬吹一波双机编队什么思路，快一百年前的东西了要不你下集直接说联邦魔女叫维尔娜吧 ...</blockquote>
+感觉不如，三连星的三机编队战术<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
