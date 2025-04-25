@@ -1037,3 +1037,11 @@ X：宮野真守
 
 英文版叫miss J
 
+
+*****
+
+####  山代风我  
+##### 105#       发表于 2025-4-26 02:43
+
+在mal这种比较大众的平台，竟然是这季度第一，不过搞笑的是/r anime板块禁止讨论这部，明明几年前最早那部凸变英雄还有分集的讨论串，这直接开除anime籍了给<img src="https://p.sda1.dev/23/abc2a2faf42f0ea297d2326b1237d851/image.jpg" referrerpolicy="no-referrer">
+
