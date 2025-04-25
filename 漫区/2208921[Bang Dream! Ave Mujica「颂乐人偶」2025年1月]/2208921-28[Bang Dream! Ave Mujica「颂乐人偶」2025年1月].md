@@ -3814,3 +3814,12 @@ Photo：堀内彩香
 <img src="https://p.sda1.dev/23/0dbaa222b51d0f0582ee7f009d6cb290/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/23/ac191de2f094224bbac01472e390b0dc/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  丰川祥  
+##### 40524#       发表于 2025-4-25 23:54
+
+海祥语音生肉<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+【【懒得烤了】对邦会场海祥特别语音-哔哩哔哩】 [https://b23.tv/CrS1Ovn](https://b23.tv/CrS1Ovn)
+
