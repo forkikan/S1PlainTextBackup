@@ -7494,3 +7494,18 @@ GGETPB送的票
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">本来推图挺顺的，一路到X的hard被暴揍，这3隐藏一出来2盾+2支援*2要怎么打....傻子那和小番茄都扛不住2下
 
+
+*****
+
+####  行政裁定书  
+##### 712#       发表于 2025-4-25 13:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67753376&amp;ptid=2071758" target="_blank">nagamasa 发表于 2025-4-24 21:56</a>
+
+红高这个武装升级材料N级的是不是ex反而掉率会低，刷一天ex没掉几个</blockquote>
+确实，n级材料刷了半天才三个，
+
+但打hard难度，材料掉落总量也少。
+
+所以不知道到底哪个才是正确的刷取关卡<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
