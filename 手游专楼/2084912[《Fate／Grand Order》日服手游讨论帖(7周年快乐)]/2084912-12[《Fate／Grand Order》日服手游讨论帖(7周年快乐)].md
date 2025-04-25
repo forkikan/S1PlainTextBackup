@@ -154,3 +154,38 @@
 
 近卫记得是fa画师来着，红莲圣女终于要实装了吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 16535#       发表于 2025-4-25 18:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67755276&amp;ptid=2084912" target="_blank">克苏鲁系青骑士 发表于 2025-4-25 17:18</a>
+这小翅膀，村姑这是？要正式帮鸽子传话了？</blockquote>
+或者某个天使附身？
+
+*****
+
+####  الطائر  
+##### 16536#       发表于 2025-4-25 18:23
+
+黑色的翅膀，是堕天使
+
+*****
+
+####  JackTitor  
+##### 16537#       发表于 2025-4-25 18:42
+
+所以乔老师真没新马甲吗，米迦勒马甲都要被抢了？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  克苏鲁系青骑士  
+##### 16538#       发表于 2025-4-25 18:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67755426&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-4-25 18:19</a>
+或者某个天使附身？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">因为是火刑，所以炽天使上身…吗？
+
