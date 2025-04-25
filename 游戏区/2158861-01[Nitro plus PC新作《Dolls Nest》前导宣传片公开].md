@@ -979,3 +979,19 @@ BOSS非常难锁定，暂时卡住了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">再次造访禁区的BOSS房间会遇到一个神秘铠灵BOSS，超高机动性，打赢了爆两件装备
 
+
+*****
+
+####  madcow  
+##### 98#       发表于 2025-4-25 18:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">刚打完第一关那个坦克掉了个左眼，开不了红门
+
+
+*****
+
+####  慕容断月  
+##### 99#       发表于 2025-4-25 18:44
+
+打完战车给的眼睛不是到火鸡场给那个谁装上吗？装上了是不是短时间内没法打开红色屏障？
+
