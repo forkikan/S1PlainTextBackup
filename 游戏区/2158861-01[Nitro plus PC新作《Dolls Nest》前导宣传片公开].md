@@ -1108,3 +1108,18 @@ BOSS非常难锁定，暂时卡住了
 
 打完坦克之后地图传送怎么全开了 攻略顺序是啥？
 
+
+*****
+
+####  RinC  
+##### 110#       发表于 2025-4-26 05:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67756352&amp;ptid=2158861" target="_blank">Sissii 发表于 2025-4-26 01:36</a>
+
+还有和村正联动的装备到底在哪，不会是后续更新吧
+
+我
+
+要</blockquote>
+是后续更新 公布那条推说过阵子会说实装日期
+
