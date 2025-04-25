@@ -6788,3 +6788,11 @@ gqx不是一眼遗老狂喜片，不如说有现在这个热度都是远超想�
 
 背靠宝可梦这么个大ip，竹的人设就不可能算得上小众，x上宝可梦同人数量这么可观，你竹姐人设功不可没好吧
 
+
+*****
+
+####  nagamasa  
+##### 9977#       发表于 2025-4-25 20:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">求问现在哪个组翻译好一点，浮士德不出不知道看哪个组好
+
