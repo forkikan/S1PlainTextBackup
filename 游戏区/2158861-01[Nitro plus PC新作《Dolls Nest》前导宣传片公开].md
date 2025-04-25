@@ -960,3 +960,14 @@ BOSS非常难锁定，暂时卡住了
 贴了没反应啊，是不是缺了什么道具。</blockquote>
 看了眼，应该是道具效果，主灵的右眼，忘了打谁掉的
 
+
+*****
+
+####  Markorca  
+##### 96#       发表于 2025-4-25 17:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67755286&amp;ptid=2158861" target="_blank">Sissii 发表于 2025-4-25 17:22</a>
+
+看了眼，应该是道具效果，主灵的右眼，忘了打谁掉的</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">应该就是那个战车boss，还是掉的是左眼来着，有点记不清了
+
