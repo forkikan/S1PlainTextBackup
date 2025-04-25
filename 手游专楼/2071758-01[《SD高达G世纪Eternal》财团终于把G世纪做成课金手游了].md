@@ -7580,3 +7580,35 @@ seed开发路线末尾还有几个问号，这次更新有说要补全吗</block
 我觉得喜欢种系打算长期玩的这次就憋一下别抽了，攒到6W ...</blockquote>
 其实先看看井能不能保留跨池就行了，反正就当个单机玩，能保留跨池就随便抽了
 
+
+*****
+
+####  xinfengj  
+##### 719#       发表于 2025-4-25 15:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67754690&amp;ptid=2071758" target="_blank">丹德里恩 发表于 2025-4-25 13:01</a>
+本来推图挺顺的，一路到X的hard被暴揍，这3隐藏一出来2盾+2支援*2要怎么打....傻子那和小番茄都扛不住2下 ...</blockquote>
+<img src="https://p.sda1.dev/23/9c5b012f3e9b4bfdcfa17b77d18bf015/CMP_20250425154621900.jpg" referrerpolicy="no-referrer">
+
+x支援机都是小短手，用远程支援嫖前面红机给蓝机上buff削血量，然后红机上去斩杀。只要能一击斩杀了黄机就不会支援攻击，没盾这俩就是菜了
+
+
+*****
+
+####  洛克萨斯  
+##### 720#       发表于 2025-4-25 15:50
+
+有没有什么sr驾驶员值得培养的，还有好用的盾机（能开发的，非抽卡）
+
+
+*****
+
+####  无念  
+##### 721#       发表于 2025-4-25 15:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67755021&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2025-4-25 15:50</a>
+有没有什么sr驾驶员值得培养的，还有好用的盾机（能开发的，非抽卡）</blockquote>
+我看精神病评价就挺高啊，虽然我喜欢上葵曼莎
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

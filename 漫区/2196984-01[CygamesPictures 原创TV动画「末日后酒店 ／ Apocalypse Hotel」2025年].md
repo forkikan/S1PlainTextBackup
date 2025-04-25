@@ -1207,3 +1207,31 @@ cr字幕错误漏翻就算了，还自己加戏翻出来台词里没有的词，
 
 CR的翻译烂完了，B的我对比看了下没有删减
 
+
+*****
+
+####  Piano-Forest  
+##### 116#         楼主| 发表于 2025-4-25 15:49
+
+[https://x.com/kzmtkm1/status/1914340622561087510](https://x.com/kzmtkm1/status/1914340622561087510)
+
+OPと1話は原画、2話は作監で参加してます！
+
+3話は本日22日の深夜2時半から放送です！
+
+よろしければ、是非。
+<img src="https://p.sda1.dev/23/4e541c1a273cf49deafd58fa9fc58927/SaveTwitter.Net_GpEapORaUAAM9Eh__gif_.gif" referrerpolicy="no-referrer">
+
+[https://x.com/SolalGirardin/status/1914982361978323211](https://x.com/SolalGirardin/status/1914982361978323211)
+
+『#アポカリプスホテル 』第3話
+
+LO/原画で参加させていただきました！
+
+よろしくお願いします
+
+I did LO\Genga on Apocalypse Hotel ep3
+
+Here's some of the cuts I did! ✨
+<img src="https://p.sda1.dev/23/b785afe4e9e49c8f78b92fa4f5015a5c/SaveTwitter.Net_vDumqPac9QRF-Cz0__720p_.gif" referrerpolicy="no-referrer">
+
