@@ -87,7 +87,7 @@
     "lastedit": 1745553540,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2041774": {
     "totalreply": 16972,
@@ -693,10 +693,10 @@
     "update": false
   },
   "2043123": {
-    "totalreply": 41117,
+    "totalreply": 41118,
     "title": "[🎸孤独摇滚🎸 TV动画 2022年10月]",
     "newtitle": "[2022.10 🎸孤独摇滚🎸 专楼 二期制作决定！！]",
-    "lastedit": 1745322125,
+    "lastedit": 1745561886,
     "category": "漫区",
     "active": true,
     "update": false
@@ -6324,7 +6324,7 @@
     "lastedit": 1745528760,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2071168": {
     "totalreply": 2283,
@@ -10521,10 +10521,10 @@
     "update": false
   },
   "2209276": {
-    "totalreply": 9949,
+    "totalreply": 9952,
     "title": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
     "newtitle": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
-    "lastedit": 1745560924,
+    "lastedit": 1745561886,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 117989,
+    "totalreply": 117993,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1745561164,
+    "lastedit": 1745561886,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11367,10 +11367,10 @@
     "update": false
   },
   "2249235": {
-    "totalreply": 250,
+    "totalreply": 251,
     "title": "[巫术手游Wizardry Variants Daphne，简称巫术VA，自带官中，3.18联动]",
     "newtitle": "[巫术手游Wizardry Variants Daphne，简称巫术VA，自带官中，半周年]",
-    "lastedit": 1745506085,
+    "lastedit": 1745561764,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -11979,10 +11979,10 @@
     "update": false
   },
   "2186945": {
-    "totalreply": 260,
+    "totalreply": 264,
     "title": "[RPG游戏光与影：33号远征队发布，2025／4／24发售，xs／ps5／pc，首发xgp]",
     "newtitle": "[RPG游戏光与影：33号远征队发布，2025／4／24发售，xs／ps5／pc，首发xgp]",
-    "lastedit": 1745559366,
+    "lastedit": 1745561764,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12183,7 +12183,7 @@
     "lastedit": 1745493420,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2251159": {
     "totalreply": 50,
@@ -12327,7 +12327,7 @@
     "lastedit": 1745495040,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2249132": {
     "totalreply": 48,
@@ -12560,6 +12560,15 @@
     "newtitle": "[所以说现在买switch2的正确姿势是什么]",
     "lastedit": 1745560205,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2048174": {
+    "totalreply": 417,
+    "title": "[【百合／NTR】「岩见树代子」《因为今天女友不在》]",
+    "newtitle": "[【百合／NTR】「岩见树代子」《因为今天女友不在》]",
+    "lastedit": 1745561891,
+    "category": "漫区",
     "active": true,
     "update": false
   }

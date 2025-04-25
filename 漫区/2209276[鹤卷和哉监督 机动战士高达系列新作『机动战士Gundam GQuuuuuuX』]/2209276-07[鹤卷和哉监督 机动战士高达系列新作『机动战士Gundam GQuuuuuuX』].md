@@ -6493,3 +6493,36 @@ naoki_yamauchi @MsTwiJHq4zwbbTh
 
 社媒热度受播放时间段影响很大，水魔是周末黄金档，这部是周中深夜档，肯定不是一个级别的啊
 
+
+*****
+
+####  Wondering  
+##### 9950#       发表于 2025-4-25 14:06
+
+ 本帖最后由 Wondering 于 2025-4-25 14:07 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67754803&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-4-25 13:58</a>
+
+社媒热度受播放时间段影响很大，水魔是周末黄金档，这部是周中深夜档，肯定不是一个级别的啊 ...</blockquote>
+虽然确实不是同一个级别，但水魔那个日五档水分还蛮大的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真黄金档的话那就不至于5年都不开了
+
+
+*****
+
+####  Vitiate  
+##### 9951#       发表于 2025-4-25 14:12
+
+       只看了TV，第三集麻球和修司的关系有些过于亲密了，这就是nt吗。夏利亚大叔还抛出来个mav的概念，喵安要成煮饭婆了，不安です。
+       还是只想着找妈妈的总帅让人安心<img src="https://static.stage1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+
+*****
+
+####  王留美  
+##### 9952#       发表于 2025-4-25 14:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67754776&amp;ptid=2209276" target="_blank">Wondering 发表于 2025-4-25 13:42</a>
+ 从各个方面都远不如首集热度就远不如了，第二集更是腰斩，第三集热度非常稳定的下滑  不过找补的话，毕竟 ...</blockquote>
+每次看到类似最后一句话的言论都觉得很神秘
+问热度就一转国内几算几算
+
+这种指标都是以本土才能作数的好嘛
+
