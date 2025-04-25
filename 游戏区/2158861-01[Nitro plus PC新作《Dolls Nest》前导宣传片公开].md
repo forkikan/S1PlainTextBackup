@@ -1011,3 +1011,16 @@ BOSS非常难锁定，暂时卡住了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">沃日这降积地带进去被喷子小蜘蛛追的满地乱跑（
 
+
+*****
+
+####  black1991518  
+##### 102#       发表于 2025-4-25 20:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67755777&amp;ptid=2158861" target="_blank">madcow 发表于 2025-4-25 20:41</a>
+
+沃日这降积地带进去被喷子小蜘蛛追的满地乱跑（</blockquote>
+喷子小蜘蛛有母体会无限召唤，索敌还巨远，要把母体干掉才行
+
+初见被恶心惨了
+

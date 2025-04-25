@@ -6806,3 +6806,14 @@ gqx不是一眼遗老狂喜片，不如说有现在这个热度都是远超想�
 
 当然宝可梦也有不能让家长放心的一面，但宝可梦的人设看着就是有子供向的第一印象，从这方面看的确是小众。
 
+
+*****
+
+####  灵魂收割机  
+##### 9979#       发表于 2025-4-25 20:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67755657&amp;ptid=2209276" target="_blank">nagamasa 发表于 2025-4-25 20:01</a>
+
+求问现在哪个组翻译好一点，浮士德不出不知道看哪个组好</blockquote>
+Sweetsub吧，可以的。
+
