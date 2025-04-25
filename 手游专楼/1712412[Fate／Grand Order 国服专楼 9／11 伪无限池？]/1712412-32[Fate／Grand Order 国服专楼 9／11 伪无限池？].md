@@ -214,3 +214,13 @@ c呆耐久耗尽了，惨！
 
 久违的欧了。2呼符拿下
 
+
+*****
+
+####  6030sylar  
+##### 47124#       发表于 2025-4-25 12:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">28个十连，中间歪了大象
+
+—— 来自 OnePlus PKG110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

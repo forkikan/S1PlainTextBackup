@@ -7467,3 +7467,14 @@ GGETPB送的票
 兑换码仅限国际服可用</blockquote>
 原来如此...
 
+
+*****
+
+####  光辉传递者  
+##### 709#       发表于 2025-4-25 12:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67753632&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-4-24 23:10</a>
+
+没见过不出的情况，是平板独有的吗……</blockquote>
+还是不行，似乎是受了网络波动读取进图速度的影响，有些触控会点在读取页面上导致无效化，执行后续的时候就开始变形。请教一下，你的循环是怎么点的？模拟器吗？
+
