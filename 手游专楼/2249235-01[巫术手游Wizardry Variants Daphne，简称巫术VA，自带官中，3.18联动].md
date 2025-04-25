@@ -2851,3 +2851,11 @@ https://www.reddit.com/r/wizardry/comments/1k1p83t/god_slaye ...</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我明显说的是触发的条件，谁跟你说掉落。
 
+
+*****
+
+####  神手之兔  
+##### 255#       发表于 2025-4-25 20:32
+
+活动居然要二章通关，这根本不算新手了啦！
+
