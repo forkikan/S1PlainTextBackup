@@ -7682,3 +7682,16 @@ BWHHFJ2BFZEPBL
 B9NN62N5BYXVHY
 国际服有没有好心人帮填的？NGA找个互填，我填完对方不见了<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  电脑死机  
+##### 729#       发表于 2025-4-25 19:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67755445&amp;ptid=2071758" target="_blank">fxc731 发表于 2025-4-25 18:26</a>
+
+B9NN62N5BYXVHY
+
+国际服有没有好心人帮填的？NGA找个互填，我填完对方不见了</blockquote>
+想帮忙，但是我也是这个情况，没法帮人填了，只能自认倒霉
+
