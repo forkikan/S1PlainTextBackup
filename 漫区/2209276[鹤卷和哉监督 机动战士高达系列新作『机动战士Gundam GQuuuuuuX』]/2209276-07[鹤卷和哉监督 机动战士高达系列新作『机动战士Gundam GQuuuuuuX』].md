@@ -6817,3 +6817,13 @@ gqx不是一眼遗老狂喜片，不如说有现在这个热度都是远超想�
 求问现在哪个组翻译好一点，浮士德不出不知道看哪个组好</blockquote>
 Sweetsub吧，可以的。
 
+
+*****
+
+####  Wondering  
+##### 9980#       发表于 2025-4-25 21:53
+
+ 本帖最后由 Wondering 于 2025-4-25 21:54 编辑 
+
+只能说各大论坛居然还把日五当成黄金档我是没想到的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
