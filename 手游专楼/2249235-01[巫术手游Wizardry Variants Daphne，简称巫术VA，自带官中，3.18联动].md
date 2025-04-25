@@ -2819,3 +2819,16 @@ https://www.reddit.com/r/wizardry/comments/1k1p83t/god_slaye ...</blockquote>
 
 第二章过了1条线，没顾得上完美就冲到第三章刷装，在6层畅游但卡7层各种吃瘪。第六层不掉退魔装备，寻常杂物装备也很难开出好的，难受。
 
+
+*****
+
+####  sodah  
+##### 252#       发表于 2025-4-25 17:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67752835&amp;ptid=2249235" target="_blank">风浦可符香(P.N) 发表于 2025-4-24 18:51</a>
+
+公告就写“水路到达一定进度”，我本来觉得水4就可以，刚才看巴哈也有人问到船2了没开
+
+那之后的重要节点 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我竞技场已经打到只剩大异形那场了还是没触发活动，这活动看来是只能通一次才能开了，不是常驻的话也够狗屎的。
+
