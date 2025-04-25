@@ -6827,3 +6827,13 @@ Sweetsub吧，可以的。
 
 只能说各大论坛居然还把日五当成黄金档我是没想到的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  哈尔路尼亚  
+##### 9981#       发表于 2025-4-25 21:59
+
+竹小姐当了这么多年西尾御用画师，结果现在大家一说就是宝可梦人设，杉森健震怒啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
