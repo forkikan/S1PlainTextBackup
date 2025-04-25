@@ -7612,3 +7612,15 @@ x支援机都是小短手，用远程支援嫖前面红机给蓝机上buff削血
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  windtrack  
+##### 722#       发表于 2025-4-25 15:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67755021&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2025-4-25 15:50</a>
+有没有什么sr驾驶员值得培养的，还有好用的盾机（能开发的，非抽卡）</blockquote>
+都不值得 驾驶员狗粮非常缺 sr完全没必要投入
+
+盾击uc系Z精神力独一档，非uc的就先拉seed的神谕吧，月底还能打活动
+
