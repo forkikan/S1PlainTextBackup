@@ -7532,3 +7532,29 @@ GGETPB送的票
 
 seed开发路线末尾还有几个问号，这次更新有说要补全吗
 
+
+*****
+
+####  行政裁定书  
+##### 715#       发表于 2025-4-25 15:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67754797&amp;ptid=2071758" target="_blank">帕蕾莉亚 发表于 2025-4-25 13:54</a>
+
+把金武器素材刷满之前N和R早就溢出了</blockquote>
+是刷的哪个难度？
+
+
+*****
+
+####  马桶3  
+##### 716#       发表于 2025-4-25 15:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67754808&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-4-25 14:01</a>
+
+seed开发路线末尾还有几个问号，这次更新有说要补全吗</blockquote>
+这次是活动单独开发线
+
+补肯定会补的，但不是现在
+
+我觉得喜欢种系打算长期玩的这次就憋一下别抽了，攒到6W钻以上，多轮空几次UR卡池看看运营到底是个什么尿性再说
+
