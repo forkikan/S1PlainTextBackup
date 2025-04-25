@@ -971,3 +971,11 @@ BOSS非常难锁定，暂时卡住了
 看了眼，应该是道具效果，主灵的右眼，忘了打谁掉的</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">应该就是那个战车boss，还是掉的是左眼来着，有点记不清了
 
+
+*****
+
+####  black1991518  
+##### 97#       发表于 2025-4-25 18:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">再次造访禁区的BOSS房间会遇到一个神秘铠灵BOSS，超高机动性，打赢了爆两件装备
+
