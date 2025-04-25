@@ -2832,3 +2832,22 @@ https://www.reddit.com/r/wizardry/comments/1k1p83t/god_slaye ...</blockquote>
 那之后的重要节点 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我竞技场已经打到只剩大异形那场了还是没触发活动，这活动看来是只能通一次才能开了，不是常驻的话也够狗屎的。
 
+
+*****
+
+####  电脑死机  
+##### 253#       发表于 2025-4-25 19:36
+
+ 本帖最后由 电脑死机 于 2025-4-25 19:39 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67755338&amp;ptid=2249235" target="_blank">sodah 发表于 2025-4-25 17:41</a>
+
+我竞技场已经打到只剩大异形那场了还是没触发活动，这活动看来是只能通一次才能开了，不是常驻的话也够狗 ...</blockquote>
+哪里狗屎了，刚出的时候稳定出3星蓝的魔兽特效剑，词条好一些可以在要塞5到7f乱杀大象和牛牛和蝎子，宝箱也经常爆优质钢装，很适合萌新过度要塞前中期
+
+*****
+
+####  sodah  
+##### 254#       发表于 2025-4-25 19:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我明显说的是触发的条件，谁跟你说掉落。
+

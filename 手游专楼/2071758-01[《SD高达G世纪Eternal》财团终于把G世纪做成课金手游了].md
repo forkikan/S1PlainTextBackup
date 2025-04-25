@@ -7728,3 +7728,28 @@ B9NN62N5BYXVHY
 有没有什么sr驾驶员值得培养的，还有好用的盾机（能开发的，非抽卡）</blockquote>
 一个都不值得。十里坡的时候把这帮人扔到老板位蹭经验，蹭到45就差不多了。不要浪费狗粮。
 
+
+*****
+
+####  丹德里恩  
+##### 733#       发表于 2025-4-25 19:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67755012&amp;ptid=2071758" target="_blank">xinfengj 发表于 2025-4-25 15:45</a>
+
+x支援机都是小短手，用远程支援嫖前面红机给蓝机上buff削血量，然后红机上去斩杀。只要能一击斩杀了黄 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没算好位置把小番茄害死了，还好隐藏和三星可以分开拿
+
+*****
+
+####  丹德里恩  
+##### 734#       发表于 2025-4-25 19:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67755544&amp;ptid=2071758" target="_blank">一个陆仁贾 发表于 2025-4-25 19:12</a>
+
+现在主力机体等级在30级，刚过红高达最低关卡的三星，后面的关卡得什么等级水平呢？
+
+—— 来自 vivo V2419 ...</blockquote>
+一百级山楂可以靠射程+1单刷
+
+百级能天使+90级小番茄也可以，小番茄站近一点开回避然后反击杀
+
