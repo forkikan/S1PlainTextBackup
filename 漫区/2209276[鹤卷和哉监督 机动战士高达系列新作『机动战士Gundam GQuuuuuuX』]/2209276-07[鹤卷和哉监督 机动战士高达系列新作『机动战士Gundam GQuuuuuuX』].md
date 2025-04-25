@@ -6462,3 +6462,26 @@ naoki_yamauchi @MsTwiJHq4zwbbTh
 没这条消息说不定就不会撞上尼娅安</blockquote>
 我猜是宇宙男鬼夏亚发的，消失前说自己看到了时间，这会说不定躲在时间缝隙或者nt聊天室里，和星际穿越一样只能间接改变时间线的走向，比如发发短信或者冒充高达和修司通信什么的
 
+
+*****
+
+####  行政裁定书  
+##### 9947#       发表于 2025-4-25 13:36
+
+目前片子的热度比起水魔怎么样？
+
+模型销量呢？
+
+
+*****
+
+####  Wondering  
+##### 9948#       发表于 2025-4-25 13:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67754764&amp;ptid=2209276" target="_blank">行政裁定书 发表于 2025-4-25 13:36</a>
+
+目前片子的热度比起水魔怎么样？
+
+模型销量呢？</blockquote>
+从各个方面都远不如<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
