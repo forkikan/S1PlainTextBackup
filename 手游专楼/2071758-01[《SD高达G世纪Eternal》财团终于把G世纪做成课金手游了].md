@@ -7443,3 +7443,16 @@ GGETPB送的票
 
 初始还是淘宝找把...手刷2天不如80块的8UR号....
 
+
+*****
+
+####  leonyang19  
+##### 707#       发表于 2025-4-25 09:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67753736&amp;ptid=2071758" target="_blank">GameTheory 发表于 2025-4-25 00:03</a>
+
+日服的兑换码怎么领？gbase1之类的 官网网页填进去说 
+
+正しいプロモーションコードを入力してください ...</blockquote>
+兑换码仅限国际服可用
+
