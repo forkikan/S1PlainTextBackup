@@ -919,3 +919,22 @@ BOSS非常难锁定，暂时卡住了
 
 逆天引导，红色的屏障原来贴上去等几秒会自动开，我都推到圣柜了，发现没路了，回头去树巢BOSS和净水层看屏障才发现。。
 
+
+*****
+
+####  ParadiseMartyr  
+##### 92#       发表于 2025-4-25 16:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67755126&amp;ptid=2158861" target="_blank">Sissii 发表于 2025-4-25 16:31</a>
+逆天引导，红色的屏障原来贴上去等几秒会自动开，我都推到圣柜了，发现没路了，回头去树巢BOSS和净水层看屏 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">靠，原来是这样的吗？赶紧回去打一下
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  black1991518  
+##### 93#       发表于 2025-4-25 16:37
+
+啊？红色屏障是这样解锁的？
+
