@@ -1123,3 +1123,14 @@ BOSS非常难锁定，暂时卡住了
 要</blockquote>
 是后续更新 公布那条推说过阵子会说实装日期
 
+
+*****
+
+####  半分宅  
+##### 111#       发表于 2025-4-26 07:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67756380&amp;ptid=2158861" target="_blank">squallx 发表于 2025-4-25 14:32</a>
+
+打完坦克之后地图传送怎么全开了 攻略顺序是啥？</blockquote>
+没有特定的攻略顺序。每张图打到底有一个BOSS，打穿之后可以进下一张地图，最后会遇到红门。六张地图全部打穿后进最终章。
+
