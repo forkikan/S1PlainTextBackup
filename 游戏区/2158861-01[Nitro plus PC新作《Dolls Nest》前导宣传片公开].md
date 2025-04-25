@@ -949,3 +949,14 @@ BOSS非常难锁定，暂时卡住了
 逆天引导，红色的屏障原来贴上去等几秒会自动开，我都推到圣柜了，发现没路了，回头去树巢BOSS和净水层看屏 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">贴了没反应啊，是不是缺了什么道具。
 
+
+*****
+
+####  Sissii  
+##### 95#       发表于 2025-4-25 17:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67755239&amp;ptid=2158861" target="_blank">Ehekatl 发表于 2025-4-25 17:07</a>
+
+贴了没反应啊，是不是缺了什么道具。</blockquote>
+看了眼，应该是道具效果，主灵的右眼，忘了打谁掉的
+
