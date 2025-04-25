@@ -6526,3 +6526,84 @@ naoki_yamauchi @MsTwiJHq4zwbbTh
 
 这种指标都是以本土才能作数的好嘛
 
+
+*****
+
+####  Wondering  
+##### 9953#       发表于 2025-4-25 14:18
+
+ 本帖最后由 Wondering 于 2025-4-25 14:21 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67754842&amp;ptid=2209276" target="_blank">王留美 发表于 2025-4-25 14:16</a>
+
+每次看到类似最后一句话的言论都觉得很神秘
+
+问热度就一转国内几算几算</blockquote>
+那年榜还没出怎么谁也不知道本土销量啊，你叫我怎么比较玩具卖的咋样，不是只能等下年财报呗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看看红高达能不能冲个年榜销售额第一吧
+
+*****
+
+####  psycho_Gadfly  
+##### 9954#       发表于 2025-4-25 14:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67754820&amp;ptid=2209276" target="_blank">Wondering 发表于 2025-4-25 14:06</a>
+
+虽然确实不是同一个级别，但水魔那个日五档水分还蛮大的真黄金档的话那就不至于5年都不开了 ...</blockquote>
+我倒觉得比起拉新，骗小登去补UC才是卡拉那帮老害的目的吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">讲究一个愿者上钩
+
+只追求热度的话 就不会用UC世界观
+
+目前看效果已经达到了
+
+*****
+
+####  王留美  
+##### 9955#       发表于 2025-4-25 14:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67754845&amp;ptid=2209276" target="_blank">Wondering 发表于 2025-4-25 14:18</a>
+ 那年榜还没出怎么谁也不知道本土销量啊，你叫我怎么比较玩具卖的咋样，不是只能等下年财报呗 ...</blockquote>
+有月榜有店头铺货量，具体数值拿不到大概的氛围还是能看出来的啊
+再说了财报不是三个月发一次嘛
+
+
+*****
+
+####  Gaybird  
+##### 9956#       发表于 2025-4-25 14:24
+
+安琪给麻球穿驾驶服这里，我一直觉得有点即视感，后来翻了一下0079剧场版，果然跟龙教阿姆罗的这段很像啊
+
+ps：安彦的作画太好舔了
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+*****
+
+####  Wondering  
+##### 9957#       发表于 2025-4-25 14:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67754851&amp;ptid=2209276" target="_blank">王留美 发表于 2025-4-25 14:21</a>
+
+有月榜有再版计划有店头铺货，具体数值拿不到大概的氛围还是能看出来的啊
+
+再说了财报不是三个月发一次嘛 ...</blockquote>
+这播出时段不是稳第一吗，肯定说明不了啥啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">播出时段拿不到第一才不正常吧
+
+*****
+
+####  王留美  
+##### 9958#       发表于 2025-4-25 14:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67754845&amp;ptid=2209276" target="_blank">Wondering 发表于 2025-4-25 14:18</a>
+ 那年榜还没出怎么谁也不知道本土销量啊，你叫我怎么比较玩具卖的咋样，不是只能等下年财报呗看看红高达能 ...</blockquote>
+年榜第一怎么可能是红敢达，GQX主角机好多卖1个月不要给面子的哦
+
+*****
+
+####  woui003woui  
+##### 9959#       发表于 2025-4-25 14:27
+
+别的不谈二创热度还是挺好的，上X看麻球同人图看的很开心
+
