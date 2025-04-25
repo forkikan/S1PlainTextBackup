@@ -6633,3 +6633,11 @@ ps：安彦的作画太好舔了
 
 销售额月榜只有1月GQX拿了第一，这两个月都没进前10，看四月吧
 
+
+*****
+
+####  ardente  
+##### 9963#       发表于 2025-4-25 15:00
+
+好奇这部拿夏亚尬吹一波双机编队什么思路，快一百年前的东西了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">要不你下集直接说联邦魔女叫维尔娜吧
+
