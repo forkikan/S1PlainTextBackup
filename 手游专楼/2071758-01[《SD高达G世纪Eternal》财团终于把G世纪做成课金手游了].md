@@ -7637,3 +7637,39 @@ x支援机都是小短手，用远程支援嫖前面红机给蓝机上buff削血
 
 实在不行的话防止波动每个操作连点两三下，等下个操作界面加个1秒左右的间隔？慢一点总比手动好
 
+
+*****
+
+####  fxc731  
+##### 724#       发表于 2025-4-25 17:58
+
+盾系机体除了禁断还有其他SR或者SSR推荐吗？
+
+*****
+
+####  体制  
+##### 725#       发表于 2025-4-25 17:59
+
+BWHHFJ2BFZEPBL
+楼友棒棒忙 我什么都会做的<img src="https://static.stage1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  帕蕾莉亚  
+##### 726#       发表于 2025-4-25 18:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67754951&amp;ptid=2071758" target="_blank">行政裁定书 发表于 2025-4-25 15:12</a>
+
+是刷的哪个难度？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">那肯定是ex，金素材只在ex掉
+
+
+*****
+
+####  ddlsyo  
+##### 727#       发表于 2025-4-25 18:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">GP换SSR突破素材需要75W，换一个倾家荡产
+

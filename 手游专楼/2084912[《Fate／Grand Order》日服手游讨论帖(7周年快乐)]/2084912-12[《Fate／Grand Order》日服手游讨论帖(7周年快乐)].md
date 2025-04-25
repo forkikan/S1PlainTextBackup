@@ -123,3 +123,34 @@
 
 ×
 
+
+*****
+
+####  克苏鲁系青骑士  
+##### 16531#       发表于 2025-4-25 17:18
+
+<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">这小翅膀，村姑这是？要正式帮鸽子传话了？
+
+*****
+
+####  jackyhuang  
+##### 16532#       发表于 2025-4-25 17:29
+
+黑贞那几句话争那么久，结果还是贞德新马甲嘛
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  壳壳牛  
+##### 16533#       发表于 2025-4-25 18:02
+
+嗯？近卫画的？
+
+*****
+
+####  乾理央  
+##### 16534#       发表于 2025-4-25 18:05
+
+近卫记得是fa画师来着，红莲圣女终于要实装了吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -3637,3 +3637,14 @@ Photo：堀内彩香
 
 ×
 
+
+*****
+
+####  抽搐一下  
+##### 40510#       发表于 2025-4-25 17:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67754644&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-4-25 12:30</a>
+
+在设定过于复杂而正片完成度又有不足的基础上，柿本偏偏在幕后访谈里说得太多、太细、太死，这种主观上想 ...</blockquote>
+十二集一大堆幻术了，机场那再奇怪也没什么，我更在意为什么特意安排那一下平地摔
+
