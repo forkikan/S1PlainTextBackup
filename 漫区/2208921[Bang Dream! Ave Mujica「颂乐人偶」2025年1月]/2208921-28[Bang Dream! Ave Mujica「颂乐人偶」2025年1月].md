@@ -4603,3 +4603,45 @@ sumimi不会解散
 
 <img src="https://p.sda1.dev/23/9ae3ebd18896eaf1ee4723d129e02a06/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  堀内爱里衣  
+##### 40586#       发表于 2025-4-26 21:42
+
+<img src="https://img.stage1st.com/forum/202504/26/214220w5i3rg06ng16i066.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-04-26_21-41-55.jpg</strong> (248.54 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-26 21:42 上传
+
+[https://x.com/BUSHIM_ongaku/status/1916106652920734082](https://x.com/BUSHIM_ongaku/status/1916106652920734082)
+[https://t.co/c4Th0sryiU](https://t.co/c4Th0sryiU)
+
+
+*****
+
+####  堀内爱里衣  
+##### 40587#       发表于 2025-4-26 21:45
+
+<img src="https://img.stage1st.com/forum/202504/26/214517u550gg5giivff5vd.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-04-26_21-44-52.jpg</strong> (469.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-26 21:45 上传
+
+[https://x.com/okada_mei0519/status/1916116597460328570](https://x.com/okada_mei0519/status/1916116597460328570)
+
+*****
+
+####  丰川祥  
+##### 40588#       发表于 2025-4-26 21:45
+
+看完预告pv，似乎是全员动物塑
+
+初华金毛犬、睦兔（两只）、喵梦猫、海铃狼、祥子头上有角（可能是羊）
+

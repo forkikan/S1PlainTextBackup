@@ -1424,3 +1424,14 @@ BOSS也很粪。
 保持一定距离好躲机炮，蓄 ...</blockquote>
 谢谢，投弹躲中间就行了吗，之前一直以为要靠边躲
 
+
+*****
+
+####  oidoid  
+##### 137#       发表于 2025-4-26 21:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67758429&amp;ptid=2158861" target="_blank">暗日生化体 发表于 2025-4-26 21:31</a>
+
+谢谢，投弹躲中间就行了吗，之前一直以为要靠边躲</blockquote>
+你跳跃够高跳起来滞空也能回避掉
+
