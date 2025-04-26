@@ -4763,3 +4763,36 @@ nga有人说祥子是萨卡兹</blockquote>
 以各种恶魔为原型，被其他种族仇视的种族
 但生命力很顽强，而且数值也不差
 
+
+*****
+
+####  凉良  
+##### 40600#       发表于 2025-4-26 23:14
+
+看到个段子 海玲是联动最大受益者 因为可以获得200%信任
+
+
+*****
+
+####  バーチャルS1er  
+##### 40601#       发表于 2025-4-26 23:20
+
+祥子的定位和博士的定位还挺像的
+
+祥子忘记一切，博士也忘记了过去的一切
+
+样子经常精神上被人抽，博士也经常精神上被人抽
+
+样子带上面具不想见人，博士也带着兜帽不想见人......应该还有很多不过我很久没玩了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 40602#       发表于 2025-4-26 23:24
+
+正在下载《明日方舟》
+<img src="https://p.sda1.dev/23/6a8aad5020b03db241c234d84c85d6f0/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/b3567ef8072d85fa900f1667e5f24694/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/c6c07f1222abe88715be2071c2329713/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/62a6b9f8191b9ea97235674d7168b5f8/image.jpg" referrerpolicy="no-referrer">
+

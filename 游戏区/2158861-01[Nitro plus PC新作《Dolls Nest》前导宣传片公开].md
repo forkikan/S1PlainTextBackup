@@ -1500,3 +1500,14 @@ BOSS也很粪。
 叫PB T01A1 GOD</blockquote>
 是在红门之后吗 那后面再拿了继续用大剑  颠倒森林对空感觉还是起飞SMG加浮游炮效率高些 导弹性能感觉是来搞笑的 只有高速导弹能正常命中
 
+
+*****
+
+####  iefA  
+##### 144#       发表于 2025-4-26 23:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67758828&amp;ptid=2158861" target="_blank">squallx 发表于 2025-4-26 23:09</a>
+
+是在红门之后吗 那后面再拿了继续用大剑  颠倒森林对空感觉还是起飞SMG加浮游炮效率高些 导弹性能感觉是 ...</blockquote>
+对,在红门后
+
