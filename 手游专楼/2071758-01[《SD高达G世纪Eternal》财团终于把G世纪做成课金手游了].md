@@ -8030,3 +8030,16 @@ bluestacks可以，用的国际版，国内特供版不清楚行不行
 算了不刷了，等30号再说，这个有人要吗，自选还没用 ...</blockquote>
 可惜没啥支援的
 
+
+*****
+
+####  nagamasa  
+##### 759#       发表于 2025-4-26 19:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67757748&amp;ptid=2071758" target="_blank">一个陆仁贾 发表于 2025-4-26 19:22</a>
+
+还不够贪
+
+—— 来自 vivo V2419A, Android 15, 鹅球 v3.5.99</blockquote>
+草，离谱<img src="https://static.stage1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
