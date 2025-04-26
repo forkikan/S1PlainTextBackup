@@ -2925,3 +2925,16 @@ roll点会影响你的阵营(中立，善，恶）且后续无法更改，目前
 
 活动的牛头一刀就把40级前排战士剁死了，这个要怎么打<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  电脑死机  
+##### 262#       发表于 2025-4-26 16:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67757245&amp;ptid=2249235" target="_blank">karastar 发表于 2025-4-26 15:02</a>
+
+活动的牛头一刀就把40级前排战士剁死了，这个要怎么打</blockquote>
+练级刷装，这边60级刚通要塞三周目，侵蚀E用脚打，复刻活动一路auto没有问题
+
+然后被侵蚀D的boss教做人了
+
