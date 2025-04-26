@@ -7921,3 +7921,11 @@ B7G2GSTLQFAABW
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">金币确实没啥用，跟着楼友换了SSR突破素材
 
+
+*****
+
+####  leste  
+##### 750#       发表于 2025-4-26 18:06
+
+你们没都是用啥模拟器的，我用雷电进不了游戏
+
