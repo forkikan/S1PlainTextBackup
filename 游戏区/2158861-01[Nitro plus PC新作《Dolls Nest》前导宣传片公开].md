@@ -1198,3 +1198,27 @@ BOSS非常难锁定，暂时卡住了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">禁区的树一左一右两个传送点，左边是到了大炮台底下解锁的，右边那个是去哪？
 
+
+*****
+
+####  oidoid  
+##### 116#       发表于 2025-4-26 13:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67756974&amp;ptid=2158861" target="_blank">madcow 发表于 2025-4-26 12:41</a>
+
+禁区的树一左一右两个传送点，左边是到了大炮台底下解锁的，右边那个是去哪？ ...</blockquote>
+那个单轨平台的右边，可以贴墙飞过去，里面有个NPC
+
+
+*****
+
+####  madcow  
+##### 117#       发表于 2025-4-26 13:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67757088&amp;ptid=2158861" target="_blank">oidoid 发表于 2025-4-26 13:32</a>
+
+那个单轨平台的右边，可以贴墙飞过去，里面有个NPC</blockquote>
+怪了，我是走进去和NPC说完看见还有个传送点然后踩了传送到门口（就是单轨平台对面那个门
+
+没有回树那边
+
