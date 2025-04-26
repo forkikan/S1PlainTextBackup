@@ -4828,3 +4828,13 @@ nga有人说祥子是萨卡兹</blockquote>
 对邦花篮超级大合集 (楼主暂时看到的合集，后续可能有补充)
 [https://tieba.baidu.com/p/9669679861](https://tieba.baidu.com/p/9669679861)
 
+
+*****
+
+####  丰川祥  
+##### 40606#       发表于 2025-4-27 00:13
+
+初睦喵语音
+
+【【懒得烤】鸡狗对邦会场初睦喵特殊语音】 https://www.bilibili.com/video/BV12tLfzAEYc/?share_source=copy_web&amp;vd_source=ea4073780df5ce915bd3add65a052f26
+
