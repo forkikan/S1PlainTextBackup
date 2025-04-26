@@ -7787,3 +7787,13 @@ ex骡子有开ex元祖以外的好玩用法吗？
 
 —— 来自 LENOVO TB321FU, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  jackyhuang  
+##### 738#       发表于 2025-4-26 09:58
+
+这个红高达任务到底有多少啊，打完30场又跳了个35场出来…<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
