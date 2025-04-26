@@ -7151,3 +7151,13 @@ Sweetsub整体挺好的，个人感觉比较怪的是几个人名，比如为什
 私服(とくに眼鏡)姿も描きたい中佐
 <img src="https://p.sda1.dev/23/af3f4374fd31de621eae563bb5c20a19/20250426_192423.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hahah  
+##### 10009#       发表于 2025-4-26 19:44
+
+<blockquote>岸浪白野 发表于 2025-4-26 17:44
+没办法挂了3个星期，延后这么久达到1W楼</blockquote>
+错过了电影上映和tv首播
+

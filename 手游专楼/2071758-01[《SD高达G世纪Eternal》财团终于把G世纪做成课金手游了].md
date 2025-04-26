@@ -8043,3 +8043,16 @@ bluestacks可以，用的国际版，国内特供版不清楚行不行
 —— 来自 vivo V2419A, Android 15, 鹅球 v3.5.99</blockquote>
 草，离谱<img src="https://static.stage1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  光辉传递者  
+##### 760#       发表于 2025-4-26 19:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67757647&amp;ptid=2071758" target="_blank">nagamasa 发表于 2025-4-26 18:43</a>
+
+bluestacks可以，用的国际版，国内特供版不清楚行不行
+
+刷61式的时候真就满脑子都是那句“我正在做贪得无 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这俩有区别吗？
+
