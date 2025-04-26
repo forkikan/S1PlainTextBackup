@@ -8100,3 +8100,13 @@ bluestacks可以，用的国际版，国内特供版不清楚行不行
 我在没选使用独显的情况下（配置5800x3d+1060，别问为什么）几套设置都试了下，opengl最流畅但是机体爆炸 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我现在电脑还是用ourplay，动画卡顿总好过闪退。
 
+
+*****
+
+####  光辉传递者  
+##### 765#       发表于 2025-4-26 20:36
+
+【【SD高达G世纪永恒】骗敌方放弃防御的小技巧 原本打不死变打的死 不知道会不会改掉 要用要快！】[https://www.bilibili.com/video/B ... f905fdc7b733ed364c2](https://www.bilibili.com/video/BV1WsLRzUEBT?vd_source=a56c8a476f4c9f905fdc7b733ed364c2)
+
+一个小技巧，漏油们有需自取（
+
