@@ -4110,3 +4110,21 @@ Photo：堀内彩香
 你楼一些人是不是看鸡把脑袋看坏了 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">于是官方钦定祥爹就是一个蠢比
 
+
+*****
+
+####  aptx8285144  
+##### 40548#       发表于 2025-4-26 13:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67757062&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-4-26 13:15</a>
+
+于是官方钦定祥爹就是一个蠢比</blockquote>
+如果要看访谈的话，甚至无法用正常逻辑形容中登，“其实还168亿很轻松”<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  osore  
+##### 40549#       发表于 2025-4-26 13:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">168是祥子的嫁妆钱
+
