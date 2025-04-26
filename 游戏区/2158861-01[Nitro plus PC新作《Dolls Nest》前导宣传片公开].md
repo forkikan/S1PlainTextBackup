@@ -1232,3 +1232,11 @@ BOSS非常难锁定，暂时卡住了
 禁区的树一左一右两个传送点，左边是到了大炮台底下解锁的，右边那个是去哪？ ...</blockquote>
 右边的是圣智庙门口穿回来的，就是禁区boss后面的红色屏障，拿到上面说的右眼才能开
 
+
+*****
+
+####  Ehekatl  
+##### 119#       发表于 2025-4-26 14:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">拿到玉茧后双子一点反应都没有，难道这任务还有时点限制？
+
