@@ -2917,3 +2917,11 @@ roll点会影响你的阵营(中立，善，恶）且后续无法更改，目前
 
 只是可惜蓝皮大叔太丑，不如中二酷哥，团队第六人我还是选择带伊亚玛斯
 
+
+*****
+
+####  karastar  
+##### 261#       发表于 2025-4-26 15:02
+
+活动的牛头一刀就把40级前排战士剁死了，这个要怎么打<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

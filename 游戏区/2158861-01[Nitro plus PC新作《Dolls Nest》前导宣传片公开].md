@@ -1240,3 +1240,11 @@ BOSS非常难锁定，暂时卡住了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">拿到玉茧后双子一点反应都没有，难道这任务还有时点限制？
 
+
+*****
+
+####  black1991518  
+##### 120#       发表于 2025-4-26 15:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">深层搞这么黑是干嘛哦，里面有啥好东西吗，真不想去第二次
+
