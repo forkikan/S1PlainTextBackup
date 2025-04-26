@@ -4097,3 +4097,16 @@ Photo：堀内彩香
 
 这次的对邦语音是铁血素嬷灰一串亲写，如果他不写睦要提一素世，海铃团内情商底边的人设算是锤死了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cxj649  
+##### 40547#       发表于 2025-4-26 13:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67661977&amp;ptid=2208921" target="_blank">Delicatus545 发表于 2025-3-15 19:36</a>
+
+抛妻弃子十几年叫没啥，老实人声张正义叫犯傻。
+
+你楼一些人是不是看鸡把脑袋看坏了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">于是官方钦定祥爹就是一个蠢比
+
