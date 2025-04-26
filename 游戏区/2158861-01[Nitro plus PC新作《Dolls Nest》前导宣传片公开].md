@@ -1222,3 +1222,13 @@ BOSS非常难锁定，暂时卡住了
 
 没有回树那边
 
+
+*****
+
+####  Sissii  
+##### 118#       发表于 2025-4-26 13:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67756974&amp;ptid=2158861" target="_blank">madcow 发表于 2025-4-26 12:41</a>
+禁区的树一左一右两个传送点，左边是到了大炮台底下解锁的，右边那个是去哪？ ...</blockquote>
+右边的是圣智庙门口穿回来的，就是禁区boss后面的红色屏障，拿到上面说的右眼才能开
+
