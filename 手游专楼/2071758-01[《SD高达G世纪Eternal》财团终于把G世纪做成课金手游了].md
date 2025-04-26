@@ -8179,3 +8179,50 @@ bluestacks可以，用的国际版，国内特供版不清楚行不行
 有够消耗热情的 ...</blockquote>
 那个有点布施人了，第二个开始价格翻倍过于消耗金币数量。
 
+
+*****
+
+####  leonyang19  
+##### 772#       发表于 2025-4-26 22:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67758723&amp;ptid=2071758" target="_blank">光辉传递者 发表于 2025-4-26 22:41</a>
+
+那个有点布施人了，第二个开始价格翻倍过于消耗金币数量。</blockquote>
+16500GP币，解体一台铁球或者61式才20币，同时损失500金币
+
+报废掉了800多台机体挥霍了4万多金币并耗费了大量的挂机时间才换得了6个武器材料，因其他材料不足还给ex技升不了级，太TM空虚了
+
+这游戏的GP币获取起来太痛苦了，看了看一个SSR的通用突破材料都得30000币
+
+*****
+
+####  螺旋的小夜曲  
+##### 773#       发表于 2025-4-26 22:50
+
+<img src="https://img.stage1st.com/forum/202504/26/225036yqfxvjjf1gz5veqq.png" referrerpolicy="no-referrer">
+
+<strong>QQ20250426-225028.png</strong> (30.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-26 22:50 上传
+
+这个上哪才能获取？想把红蛇点满
+
+
+*****
+
+####  zExs  
+##### 774#       发表于 2025-4-26 22:55
+
+GP刷到1W4发现么钱了
+
+*****
+
+####  dio999  
+##### 775#       发表于 2025-4-26 22:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67758760&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-4-26 22:50</a>
+这个上哪才能获取？想把红蛇点满</blockquote>
+永恒之路H
+
