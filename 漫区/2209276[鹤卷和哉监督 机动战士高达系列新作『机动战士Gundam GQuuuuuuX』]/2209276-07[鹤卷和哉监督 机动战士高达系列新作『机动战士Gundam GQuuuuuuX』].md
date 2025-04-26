@@ -6940,3 +6940,29 @@ Sweetsub整体挺好的，个人感觉比较怪的是几个人名，比如为什
 
 我是觉得在官方翻译没有大错的前提下沿用官方现在的人名翻译比较好。
 
+
+*****
+
+####  千恋万花  
+##### 9992#       发表于 2025-4-26 10:08
+
+ 本帖最后由 千恋万花 于 2025-4-26 10:09 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67756588&amp;ptid=2209276" target="_blank">serj005 发表于 2025-4-26 09:44</a>
+
+Sweetsub整体挺好的，个人感觉比较怪的是几个人名，比如为什么把修司翻译成柊二，官方中文公式站是翻译的 ...</blockquote>
+这两个人名至少官方也挺混乱的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> <blockquote>修司伊藤（简体中文官网）
+修治伊藤（香港繁体官网）
+
+修司伊藤（台湾繁体官网）
+
+修司（中国大陆院线，姓氏好像没出现过）</blockquote><blockquote>科莫莉·哈珂特（简体中文官网）
+
+歌茉里·哈高特（香港繁体官网）
+
+寇茉莉·哈柯特（台湾繁体官网）
+
+小森（中国大陆院线，姓氏好像没出现过）
+
+英语：<strong>Comoli</strong> Harcourt</blockquote>
+「柊二」则是某本观影特典设定集里出现过一次的写法
+
