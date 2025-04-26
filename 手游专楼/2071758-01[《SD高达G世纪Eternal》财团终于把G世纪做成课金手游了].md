@@ -8146,3 +8146,13 @@ bluestacks可以，用的国际版，国内特供版不清楚行不行
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  一个陆仁贾  
+##### 769#       发表于 2025-4-26 22:13
+
+永恒之路怎么还限定系列作品的，一时半会没法满破Gqux了
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
