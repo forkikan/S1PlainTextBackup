@@ -1357,3 +1357,14 @@ BOSS也很粪。
 只在树巢拿到一个，还有一个吗？藏哪儿了这是。</blockquote>
 我只给了双子一个，然后出去再回来她们就给我刀了
 
+
+*****
+
+####  Ehekatl  
+##### 131#       发表于 2025-4-26 20:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67757749&amp;ptid=2158861" target="_blank">oidoid 发表于 2025-4-26 19:22</a>
+
+我只给了双子一个，然后出去再回来她们就给我刀了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我这边完全没反应，估计是触发最终BOSS战的对话后就错过了。
+

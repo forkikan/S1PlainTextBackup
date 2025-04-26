@@ -8067,3 +8067,14 @@ bluestacks可以，用的国际版，国内特供版不清楚行不行
 这俩有区别吗？</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">不知道，本能反应玩外服游戏有国际版平台就用国际版平台而已
 
+
+*****
+
+####  光辉传递者  
+##### 762#       发表于 2025-4-26 20:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67757849&amp;ptid=2071758" target="_blank">nagamasa 发表于 2025-4-26 19:49</a>
+
+不知道，本能反应玩外服游戏有国际版平台就用国际版平台而已</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">蓝叠估计蛮吃显卡的？不然就是战斗动画卡顿，和ourplay一样。
+
