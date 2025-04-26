@@ -1068,3 +1068,16 @@ Mal有donghua版块吗
 
 顺便还真是环日本好评？
 
+
+*****
+
+####  バーチャルS1er  
+##### 108#       发表于 2025-4-26 20:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67758067&amp;ptid=2125794" target="_blank">新HGCG 发表于 2025-4-26 20:31</a>
+
+为啥禁止讨论这部啊
+
+顺便还真是环日本好评？</blockquote>
+因为是japan风动画贴吧，美国动画一样禁止讨论
+
