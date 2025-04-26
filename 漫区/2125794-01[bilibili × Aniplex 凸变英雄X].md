@@ -1081,3 +1081,13 @@ Mal有donghua版块吗
 顺便还真是环日本好评？</blockquote>
 因为是japan风动画贴吧，美国动画一样禁止讨论
 
+
+*****
+
+####  Lollipopstar  
+##### 109#       发表于 2025-4-26 21:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67757186&amp;ptid=2125794" target="_blank">kk霖洞九 发表于 2025-4-26 14:28</a>
+Mal有donghua版块吗</blockquote>
+MAL都是默认都是anime，只是分成了tv，流媒这样
+
