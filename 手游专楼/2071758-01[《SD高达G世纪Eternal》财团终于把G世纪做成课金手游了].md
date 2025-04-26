@@ -7797,3 +7797,16 @@ ex骡子有开ex元祖以外的好玩用法吗？
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  hayate0079  
+##### 739#       发表于 2025-4-26 10:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67756606&amp;ptid=2071758" target="_blank">jackyhuang 发表于 2025-4-26 09:58</a>
+
+这个红高达任务到底有多少啊，打完30场又跳了个35场出来…
+
+—— 来自 Sony XQ-AT72, Android 12, 鹅球 v3. ...</blockquote>
+40次                 
+

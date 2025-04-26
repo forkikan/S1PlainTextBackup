@@ -6966,3 +6966,33 @@ Sweetsub整体挺好的，个人感觉比较怪的是几个人名，比如为什
 英语：<strong>Comoli</strong> Harcourt</blockquote>
 「柊二」则是某本观影特典设定集里出现过一次的写法
 
+
+*****
+
+####  serj005  
+##### 9993#       发表于 2025-4-26 10:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67756618&amp;ptid=2209276" target="_blank">千恋万花 发表于 2025-4-26 10:08</a>
+
+这两个人名至少官方也挺混乱的</blockquote>
+范围限定在简体中文里面其实不混乱。
+
+简体中文官网现在已经改了，和院线一样统一成小森了
+[小森·哈珂特 人物介绍](https://gundaminfo.cn/about-gundam/series-pages/gquuuuuux/character/11/)
+
+最奇怪的是修司为什么要译成柊二
+
+*****
+
+####  千恋万花  
+##### 9994#       发表于 2025-4-26 10:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67756636&amp;ptid=2209276" target="_blank">serj005 发表于 2025-4-26 10:21</a>
+
+范围限定在简体中文里面其实不混乱。
+
+简体中文官网现在已经改了，和院线一样统一成小森了
+
+小森·哈珂特  ...</blockquote>
+确实，简中官网的「Xavier」也从以前的「艾格沙贝」改成了「泽维尔（大陆院线同款）」
+
