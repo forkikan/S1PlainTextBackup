@@ -7913,3 +7913,11 @@ B7G2GSTLQFAABW
 
 这游戏不搞个批量开发就离谱....这个月的GP商店就放弃了吧
 
+
+*****
+
+####  kulanyee  
+##### 749#       发表于 2025-4-26 17:14
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">金币确实没啥用，跟着楼友换了SSR突破素材
+
