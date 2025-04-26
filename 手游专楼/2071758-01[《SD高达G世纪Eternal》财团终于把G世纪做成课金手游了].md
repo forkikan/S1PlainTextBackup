@@ -7979,3 +7979,13 @@ bluestacks可以，用的国际版，国内特供版不清楚行不行
 
 syl，突然想起个老梗，这机师狗粮，这下真灌电脑配件了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nagamasa  
+##### 755#       发表于 2025-4-26 18:54
+
+说到这个模拟器的事情提一嘴关于IOS兑换码的事
+
+我之前从打开游戏刷初始到绑定账号全程挂着全局内个，但是打开浏览器还是提示地区不行，后面按照前面坛友的思路在模拟器上挂内个，google play地区也一致，游戏里货币也确定改到了对应地区，在模拟器里打开浏览器就能成功兑换了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">（用的湾湾线路）
+
