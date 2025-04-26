@@ -2859,3 +2859,11 @@ https://www.reddit.com/r/wizardry/comments/1k1p83t/god_slaye ...</blockquote>
 
 活动居然要二章通关，这根本不算新手了啦！
 
+
+*****
+
+####  nma  
+##### 256#       发表于 2025-4-26 11:06
+
+开始的roll点只能回答问题吗？另外只用steam玩会不会错过什么
+
