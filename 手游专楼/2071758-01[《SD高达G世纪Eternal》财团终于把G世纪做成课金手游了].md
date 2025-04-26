@@ -8002,3 +8002,31 @@ bluestacks可以，用的国际版，国内特供版不清楚行不行
 刷61式的时候真就满脑子都是那句“我正在做贪得无 ...</blockquote>
 换bluestacks了
 
+
+*****
+
+####  一个陆仁贾  
+##### 757#       发表于 2025-4-26 19:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67757647&amp;ptid=2071758" target="_blank">nagamasa 发表于 2025-4-26 18:43</a>
+bluestacks可以，用的国际版，国内特供版不清楚行不行
+
+刷61式的时候真就满脑子都是那句“我正在做贪得无 ...</blockquote>
+<img src="https://p.sda1.dev/23/8ce997b659344ed30839af3de9f1ab2a/image.jpg" referrerpolicy="no-referrer">
+还不够贪
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  lighttt  
+##### 758#       发表于 2025-4-26 19:24
+
+ 本帖最后由 lighttt 于 2025-4-26 19:26 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67757645&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-4-26 18:40</a>
+
+有时就是死活刷不到自己要的……
+
+算了不刷了，等30号再说，这个有人要吗，自选还没用 ...</blockquote>
+可惜没啥支援的
+

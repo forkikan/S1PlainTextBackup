@@ -7132,3 +7132,22 @@ Sweetsub整体挺好的，个人感觉比较怪的是几个人名，比如为什
 
 好耶<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  竞自由  
+##### 10007#       发表于 2025-4-26 19:17
+
+恭喜万楼<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 10008#         楼主| 发表于 2025-4-26 19:25
+
+[https://x.com/_take_oekaki/status/1916088363842691090](https://x.com/_take_oekaki/status/1916088363842691090)
+
+私服(とくに眼鏡)姿も描きたい中佐
+<img src="https://p.sda1.dev/23/af3f4374fd31de621eae563bb5c20a19/20250426_192423.jpg" referrerpolicy="no-referrer">
+

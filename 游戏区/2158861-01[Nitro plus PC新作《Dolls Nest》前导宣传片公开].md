@@ -1346,3 +1346,14 @@ BOSS也很粪。
 
 残疾姐修补修好应该是有分支了，全收集只能多周目了吧
 
+
+*****
+
+####  oidoid  
+##### 130#       发表于 2025-4-26 19:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67757283&amp;ptid=2158861" target="_blank">Ehekatl 发表于 2025-4-26 15:25</a>
+
+只在树巢拿到一个，还有一个吗？藏哪儿了这是。</blockquote>
+我只给了双子一个，然后出去再回来她们就给我刀了
+
