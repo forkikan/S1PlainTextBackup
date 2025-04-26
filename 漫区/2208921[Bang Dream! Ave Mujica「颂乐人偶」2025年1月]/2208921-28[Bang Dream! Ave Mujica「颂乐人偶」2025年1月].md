@@ -4752,3 +4752,14 @@ nga有人说祥子是萨卡兹</blockquote>
 没有，这只是我想象的一个情景<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 这是听说这联动很早就开始筹备了，在动画播之前
 
+
+*****
+
+####  丰川祥  
+##### 40599#       发表于 2025-4-26 23:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67758779&amp;ptid=2208921" target="_blank">凉良 发表于 2025-4-26 22:56</a>
+萨卡兹是啥</blockquote>
+以各种恶魔为原型，被其他种族仇视的种族
+但生命力很顽强，而且数值也不差
+
