@@ -8237,3 +8237,25 @@ GP刷到1W4发现么钱了
 永恒之路H</blockquote>
 thx
 
+
+*****
+
+####  光辉传递者  
+##### 777#       发表于 2025-4-26 23:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67758758&amp;ptid=2071758" target="_blank">leonyang19 发表于 2025-4-26 22:50</a>
+
+16500GP币，解体一台铁球或者61式才20币，同时损失500金币
+
+报废掉了800多台机体挥霍了4万多金币并耗费了 ...</blockquote>
+单纯只是合合拆拆还简单，一个脚本的事情而已。
+
+最大的问题还是卡资源获取。
+
+*****
+
+####  qixinno2  
+##### 778#       发表于 2025-4-26 23:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">三次扫荡限制太傻逼了
+
