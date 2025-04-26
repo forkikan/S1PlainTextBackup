@@ -7054,3 +7054,18 @@ Sweetsub整体挺好的，个人感觉比较怪的是几个人名，比如为什
 
 与其说遗老味不如说是纯正G社味，借老IP来讲私货和塞自己喜欢的演出，除了王立宇宙军外G社全员的片都这样
 
+
+*****
+
+####  yguygyu  
+##### 9999#       发表于 2025-4-26 15:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67756588&amp;ptid=2209276" target="_blank">serj005 发表于 2025-4-26 09:44</a>
+
+Sweetsub整体挺好的，个人感觉比较怪的是几个人名，比如为什么把修司翻译成柊二，官方中文公式站是翻译的 ...</blockquote>
+柊二这个名字在之前泄露的企划书上就写得有。
+
+我没想通为什么日方没有把汉字名字告诉官方翻译。
+
+<img src="https://p.sda1.dev/23/f4ac11e980dfde16945d5d0c3570ca40/111.jpg" referrerpolicy="no-referrer">
+

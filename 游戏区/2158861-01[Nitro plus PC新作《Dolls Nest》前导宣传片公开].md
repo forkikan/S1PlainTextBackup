@@ -1258,3 +1258,14 @@ BOSS非常难锁定，暂时卡住了
 拿到玉茧后双子一点反应都没有，难道这任务还有时点限制？</blockquote>
 两个吧，给你一把太刀，然后变成她们的利刃（
 
+
+*****
+
+####  Ehekatl  
+##### 122#       发表于 2025-4-26 15:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67757270&amp;ptid=2158861" target="_blank">Sissii 发表于 2025-4-26 15:19</a>
+
+两个吧，给你一把太刀，然后变成她们的利刃（</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只在树巢拿到一个，还有一个吗？藏哪儿了这是。
+
