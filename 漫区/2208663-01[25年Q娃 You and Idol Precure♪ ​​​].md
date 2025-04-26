@@ -38,3 +38,27 @@
 
 银兽的形象还有救吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新HGCG  
+##### 794#       发表于 2025-4-27 07:39
+
+异度传说难民救济 ​​​
+
+<img src="https://img.stage1st.com/forum/202504/27/073925sdqdhhndwchhdsd5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (72.87 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 07:39 上传
+
+
+*****
+
+####  himfsz  
+##### 795#       发表于 2025-4-27 07:44
+
+这meroron和我想象中的性格完全相反啊
+
