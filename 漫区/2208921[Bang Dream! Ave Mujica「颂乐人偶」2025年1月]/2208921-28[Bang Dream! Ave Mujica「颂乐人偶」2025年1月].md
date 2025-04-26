@@ -4128,3 +4128,25 @@ Photo：堀内彩香
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">168是祥子的嫁妆钱
 
+
+*****
+
+####  cxj649  
+##### 40550#       发表于 2025-4-26 14:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67757130&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-4-26 13:55</a>
+
+如果要看访谈的话，甚至无法用正常逻辑形容中登，“其实还168亿很轻松” ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">而且官方钦定中登是坑岳父坑女儿坑小姨子坑自己
+
+
+*****
+
+####  aptx8285144  
+##### 40551#       发表于 2025-4-26 14:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67757148&amp;ptid=2208921" target="_blank">cxj649 发表于 2025-4-26 14:04</a>
+
+而且官方钦定中登是坑岳父坑女儿坑小姨子坑自己</blockquote>
+有些能力不够的地方也不能说是坑（毕竟确实也被算计过），但是如果还168亿很轻松，那牢祥就被中登坑的像个大傻瓜了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，大祥到最后都没发觉这事（后面也没提了）也是爆笑
+
