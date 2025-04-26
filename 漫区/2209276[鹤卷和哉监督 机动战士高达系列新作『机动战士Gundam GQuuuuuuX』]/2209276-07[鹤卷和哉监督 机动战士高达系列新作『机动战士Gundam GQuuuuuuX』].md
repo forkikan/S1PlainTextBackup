@@ -7231,3 +7231,33 @@ Sweetsub整体挺好的，个人感觉比较怪的是几个人名，比如为什
 [https://x.com/nnnn_euphoria/status/1912516752023617879](https://x.com/nnnn_euphoria/status/1912516752023617879)
 <img src="https://p.sda1.dev/23/b472abea667cae9d9e50f3d9889c7d38/20250426_233007.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 10013#         楼主| 发表于 2025-4-27 00:43
+
+[https://x.com/matahe_i/status/1912204845454618741](https://x.com/matahe_i/status/1912204845454618741)
+<img src="https://p.sda1.dev/23/f1b3fdb5703ce0dd43069bb8f5adb011/20250426_233013.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/m_manjyu/status/1913199179020833120](https://x.com/m_manjyu/status/1913199179020833120)
+<img src="https://p.sda1.dev/23/57f1289d8a4498f02d77f85a2ead3c0c/20250426_233042.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/NEK038/status/1912834676894601316](https://x.com/NEK038/status/1912834676894601316)
+<img src="https://p.sda1.dev/23/345e4dd6363789ec8c1bd525f24a4e6f/20250426_233038.jpg" referrerpolicy="no-referrer">
+
+[https://m.weibo.cn/detail/5156178037587845](https://m.weibo.cn/detail/5156178037587845)
+<img src="https://p.sda1.dev/23/b97a246650977222f85d2826f7463970/20250426_233021.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/mitieru/status/1914106823524966595](https://x.com/mitieru/status/1914106823524966595)
+<img src="https://p.sda1.dev/23/550a17fb49fccdf5c886376d887a1097/20250426_233100.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/datenaoto2012/status/1911349647152750741](https://x.com/datenaoto2012/status/1911349647152750741)
+<img src="https://p.sda1.dev/23/eac62b2e35ace32c2a72956bf7773e9c/20250426_232928.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/matahe_i/status/1914922173350994402](https://x.com/matahe_i/status/1914922173350994402)
+<img src="https://p.sda1.dev/23/e24a7bf941c1a8163020cc3185c3f135/20250426_233113.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/n_hirowa/status/1904600270694474070](https://x.com/n_hirowa/status/1904600270694474070)
+<img src="https://p.sda1.dev/23/017aa3ee6c6f4ca8adcb4de42abacdb0/20250427_003913.jpg" referrerpolicy="no-referrer">
+
