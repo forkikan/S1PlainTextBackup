@@ -7161,3 +7161,27 @@ Sweetsub整体挺好的，个人感觉比较怪的是几个人名，比如为什
 没办法挂了3个星期，延后这么久达到1W楼</blockquote>
 错过了电影上映和tv首播
 
+
+*****
+
+####  高达age  
+##### 10010#       发表于 2025-4-26 20:10
+
+这个已经变成高达的传统了是吗？ <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.stage1st.com/forum/202504/26/200948w5m8x4gdtraaghxt.jpg" referrerpolicy="no-referrer">
+
+<strong>002.jpg</strong> (160.04 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-26 20:09 上传
+
+<img src="https://img.stage1st.com/forum/202504/26/201002rgo427l57hydpeee.jpg" referrerpolicy="no-referrer">
+
+<strong>[SweetSub&amp;LoliHouse] Mobile Suit Gundam GQuuuuuuX - 03 [WebRip 1080p HEVC-10bit .jpg</strong> (119.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-26 20:10 上传
+

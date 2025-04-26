@@ -1368,3 +1368,11 @@ BOSS也很粪。
 我只给了双子一个，然后出去再回来她们就给我刀了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我这边完全没反应，估计是触发最终BOSS战的对话后就错过了。
 
+
+*****
+
+####  暗日生化体  
+##### 132#       发表于 2025-4-26 20:10
+
+有没有知道颠倒森林的直升机怎么打的，感觉比大森林和积降的boss难好多
+
