@@ -4713,3 +4713,14 @@ nga有人说祥子是萨卡兹
 
 竟然是双向联动——总不能是海猫掏了双份的钱吧。。。
 
+
+*****
+
+####  丰川祥  
+##### 40595#       发表于 2025-4-26 22:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67758534&amp;ptid=2208921" target="_blank">NaAgfykp 发表于 2025-4-26 21:53</a>
+nga有人说祥子是萨卡兹</blockquote>
+仔细看了一下还有尾巴，萨卡兹的可能性很高…
+要真是这样也太有meta效果了
+
