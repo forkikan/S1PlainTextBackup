@@ -4504,3 +4504,14 @@ sumimi不会解散
 
 “倘若我问心有愧呢”
 
+
+*****
+
+####  s0534146  
+##### 40575#       发表于 2025-4-26 21:08
+
+听完现场以后，我和ave mujica和解了<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">李子现场稳的和cd一样
+我身后一个日本老哥和一个韩国妹子全场爆哭，我总感觉后面的棒子挥的幅度是冲着击毙我去的
+
+—— 来自 HUAWEI NOH-AN00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
