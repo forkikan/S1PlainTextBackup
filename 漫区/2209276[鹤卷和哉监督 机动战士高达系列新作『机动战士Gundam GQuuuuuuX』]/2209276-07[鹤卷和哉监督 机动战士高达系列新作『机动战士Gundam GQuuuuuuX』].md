@@ -7285,3 +7285,13 @@ Sweetsub整体挺好的，个人感觉比较怪的是几个人名，比如为什
 
 本來天手就不像名字了，寫成天手讓葉，誰還看得出她姓讓葉名天手
 
+
+*****
+
+####  mintslime  
+##### 10015#       发表于 2025-4-27 02:14
+
+伏笔都讨论到译名上了，那楼友不打算讨论一下一开始短信那句Let's get the Beginning除非the Beginning根本不是指的“开始”而是特指某个物品（而且加冠词和大写都符合特指某个物品的语法），不然文法根本不对吗
+
+还是说日本人的英语怎样都正常所以算了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
