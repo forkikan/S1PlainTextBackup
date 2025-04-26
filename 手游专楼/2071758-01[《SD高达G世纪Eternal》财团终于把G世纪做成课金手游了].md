@@ -7989,3 +7989,16 @@ syl，突然想起个老梗，这机师狗粮，这下真灌电脑配件了<img 
 
 我之前从打开游戏刷初始到绑定账号全程挂着全局内个，但是打开浏览器还是提示地区不行，后面按照前面坛友的思路在模拟器上挂内个，google play地区也一致，游戏里货币也确定改到了对应地区，在模拟器里打开浏览器就能成功兑换了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">（用的湾湾线路）
 
+
+*****
+
+####  leste  
+##### 756#       发表于 2025-4-26 18:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67757647&amp;ptid=2071758" target="_blank">nagamasa 发表于 2025-4-26 18:43</a>
+
+bluestacks可以，用的国际版，国内特供版不清楚行不行
+
+刷61式的时候真就满脑子都是那句“我正在做贪得无 ...</blockquote>
+换bluestacks了
+
