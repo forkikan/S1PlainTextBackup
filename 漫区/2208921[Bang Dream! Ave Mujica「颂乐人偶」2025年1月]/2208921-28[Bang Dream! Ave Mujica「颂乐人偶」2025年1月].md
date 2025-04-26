@@ -4167,3 +4167,99 @@ Photo：堀内彩香
 [https://x.com/bushi_creative/status/1916009384284721300](https://x.com/bushi_creative/status/1916009384284721300)
 [https://t.co/lfMVsWknbM](https://t.co/lfMVsWknbM)
 
+
+*****
+
+####  堀内爱里衣  
+##### 40553#       发表于 2025-4-26 16:47
+
+<img src="https://img.stage1st.com/forum/202504/26/164706a4e77n2ruh4l200k.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-04-26_16-46-43.jpg</strong> (479.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-26 16:47 上传
+
+[https://x.com/tanda_hazuki/status/1915895981545296242](https://x.com/tanda_hazuki/status/1915895981545296242)
+
+*****
+
+####  堀内爱里衣  
+##### 40554#       发表于 2025-4-26 16:47
+
+<img src="https://img.stage1st.com/forum/202504/26/164744eeeoe9g1lye9asl1.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-04-26_16-47-21.jpg</strong> (392.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-26 16:47 上传
+
+[https://x.com/Kanon_Takao/status/1915904625187951001](https://x.com/Kanon_Takao/status/1915904625187951001)
+
+*****
+
+####  堀内爱里衣  
+##### 40555#       发表于 2025-4-26 16:48
+
+<img src="https://img.stage1st.com/forum/202504/26/164820du3bby3bt0xxsrz0.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-04-26_16-47-58.jpg</strong> (282.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-26 16:48 上传
+
+[https://x.com/okada_mei0519/status/1915915467694477754](https://x.com/okada_mei0519/status/1915915467694477754)
+
+*****
+
+####  堀内爱里衣  
+##### 40556#       发表于 2025-4-26 16:48
+
+<img src="https://img.stage1st.com/forum/202504/26/164843le947ovzoqenu7z2.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-04-26_16-48-31.jpg</strong> (255.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-26 16:48 上传
+
+[https://x.com/sasakirico/status/1915954339841249618](https://x.com/sasakirico/status/1915954339841249618)
+
+*****
+
+####  堀内爱里衣  
+##### 40557#       发表于 2025-4-26 16:49
+
+<img src="https://img.stage1st.com/forum/202504/26/164929mvs1mckk1mrrvcos.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-04-26_16-49-09.jpg</strong> (466.44 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-26 16:49 上传
+
+[https://x.com/Watase_Yuzuki/status/1915956043844358435](https://x.com/Watase_Yuzuki/status/1915956043844358435)
+
+*****
+
+####  堀内爱里衣  
+##### 40558#       发表于 2025-4-26 16:51
+
+<strong>【手描きMV】Here, the world!【バンドリ】</strong> <blockquote>sumimiの「Here, the world!」の手描きMVです。
+
+【動画・イラスト】ひみつ
+
+【原曲】「Here, the world!」
+
+(from BanG Dream! It's MyGO!!!!!)
+
+作詞：RUCCA
+
+作曲：TAKAROT・Funk Uchino
+
+編曲：TAKAROT</blockquote>
+[https://www.youtube.com/watch?v=Gq2iLKzzxIY](https://www.youtube.com/watch?v=Gq2iLKzzxIY)
+
