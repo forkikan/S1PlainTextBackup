@@ -2867,3 +2867,14 @@ https://www.reddit.com/r/wizardry/comments/1k1p83t/god_slaye ...</blockquote>
 
 开始的roll点只能回答问题吗？另外只用steam玩会不会错过什么
 
+
+*****
+
+####  macshi  
+##### 257#       发表于 2025-4-26 12:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67756749&amp;ptid=2249235" target="_blank">nma 发表于 2025-4-26 11:06</a>
+开始的roll点只能回答问题吗？另外只用steam玩会不会错过什么</blockquote>
+pc端只有便利性的差别，内容是完全一样的。
+如果你有氪金需求的话，pc端手机端直接内购貌似都会比在官网买少一点免费钻。
+
