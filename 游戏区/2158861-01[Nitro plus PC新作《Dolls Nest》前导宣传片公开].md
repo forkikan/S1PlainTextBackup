@@ -1527,3 +1527,14 @@ BOSS也很粪。
 
 全是萝莉要怎么大繁殖<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  半分宅  
+##### 146#       发表于 2025-4-27 02:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67759212&amp;ptid=2158861" target="_blank">squallx 发表于 2025-4-26 13:31</a>
+
+全是萝莉要怎么大繁殖</blockquote>
+铠灵的女王是扎根在地上、没有移动能力的。主角是树上结人参果掉下来变成的。那大概就是铠灵搜集资源回来给女王填鸭、然后女王疯狂结果子？
+
