@@ -7185,3 +7185,14 @@ Sweetsub整体挺好的，个人感觉比较怪的是几个人名，比如为什
 
 2025-4-26 20:10 上传
 
+
+*****
+
+####  中野梓  
+##### 10011#       发表于 2025-4-26 21:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67757955&amp;ptid=2209276" target="_blank">高达age 发表于 2025-4-26 20:10</a>
+
+这个已经变成高达的传统了是吗？</blockquote>
+相比之下小番茄可太可爱了
+

@@ -4645,3 +4645,63 @@ sumimi不会解散
 
 初华金毛犬、睦兔（两只）、喵梦猫、海铃狼、祥子头上有角（可能是羊）
 
+
+*****
+
+####  6030sylar  
+##### 40589#       发表于 2025-4-26 21:51
+
+<img src="https://img.stage1st.com/forum/202504/26/215127m244u4d2tut4mys3.jpg" referrerpolicy="no-referrer">
+
+<strong>TZKS2Q(E}[A9@DBZMO[EJ69.jpg</strong> (347.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-26 21:51 上传
+
+*****
+
+####  堀内爱里衣  
+##### 40590#       发表于 2025-4-26 21:51
+
+<img src="https://img.stage1st.com/forum/202504/26/215155aysmgim3sj3leekv.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-04-26_21-51-14.jpg</strong> (111.87 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-26 21:51 上传
+
+[https://t.bilibili.com/1060157001382756352](https://t.bilibili.com/1060157001382756352)
+[https://www.bilibili.com/video/BV1pWLRzJECK/](https://www.bilibili.com/video/BV1pWLRzJECK/)
+
+*****
+
+####  刑部姬真可爱  
+##### 40591#       发表于 2025-4-26 21:53
+
+这联动笑死
+
+*****
+
+####  NaAgfykp  
+##### 40592#       发表于 2025-4-26 21:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67758486&amp;ptid=2208921" target="_blank">丰川祥 发表于 2025-4-26 21:45</a>
+看完预告pv，似乎是全员动物塑
+
+初华金毛犬、睦兔（两只）、喵梦猫、海铃狼、祥子头上有角（可能是羊） ...</blockquote>
+nga有人说祥子是萨卡兹
+
+*****
+
+####  堀内爱里衣  
+##### 40593#       发表于 2025-4-26 21:53
+
+<strong>MyGO!!!!!×Ave Mujica 合同LIVE「わかれ道の、その先へ」DAY1 : Petrichor</strong> <blockquote>MyGO!!!!!×Ave Mujica 合同LIVE「わかれ道の、その先へ」DAY1 : Petrichor
+
+字幕完成之后会进行换源，请耐心等待。
+
+充电视频公开期限：5月3日(周六) 22:59截止</blockquote>
+[https://www.bilibili.com/video/BV1nqLozEEAW](https://www.bilibili.com/video/BV1nqLozEEAW)
+

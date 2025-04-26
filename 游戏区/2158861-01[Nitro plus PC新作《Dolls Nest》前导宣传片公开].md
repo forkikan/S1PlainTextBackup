@@ -1435,3 +1435,21 @@ BOSS也很粪。
 谢谢，投弹躲中间就行了吗，之前一直以为要靠边躲</blockquote>
 你跳跃够高跳起来滞空也能回避掉
 
+
+*****
+
+####  squallx  
+##### 138#       发表于 2025-4-26 21:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">打桩机和树巢BOSS在哪里啊 
+
+*****
+
+####  有这个可能  
+##### 139#       发表于 2025-4-26 21:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67758429&amp;ptid=2158861" target="_blank">暗日生化体 发表于 2025-4-26 21:31</a>
+
+谢谢，投弹躲中间就行了吗，之前一直以为要靠边躲</blockquote>
+投弹只见了两次就过了所以我也不是很确定，感觉是直升机沿自机当前位置画直线沿路轰炸，重复几次忘数了，按切向冲就行
+
