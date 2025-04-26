@@ -7886,3 +7886,30 @@ B7G2GSTLQFAABW
 
 用钱开发机体来刷GP的话开发贵的机体和便宜的机体最后换算成GP这金钱消耗比率是一样的还是怎么
 
+
+*****
+
+####  rockroxas  
+##### 747#       发表于 2025-4-26 16:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67757344&amp;ptid=2071758" target="_blank">森兰丸 发表于 2025-4-26 15:59</a>
+
+用钱开发机体来刷GP的话开发贵的机体和便宜的机体最后换算成GP这金钱消耗比率是一样的还是怎么 ...</blockquote>
+只看机体稀有度
+
+所以开发最便宜的61坦最值，其他都是实在不需要了再解
+
+*****
+
+####  森兰丸  
+##### 748#       发表于 2025-4-26 16:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67757366&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-4-26 16:08</a>
+
+只看机体稀有度
+
+所以开发最便宜的61坦最值，其他都是实在不需要了再解</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">不想弄脚本更不想手动一个个慢慢点来开发
+
+这游戏不搞个批量开发就离谱....这个月的GP商店就放弃了吧
+

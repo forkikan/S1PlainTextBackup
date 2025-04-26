@@ -7069,3 +7069,17 @@ Sweetsub整体挺好的，个人感觉比较怪的是几个人名，比如为什
 
 <img src="https://p.sda1.dev/23/f4ac11e980dfde16945d5d0c3570ca40/111.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AvenueIII  
+##### 10000#       发表于 2025-4-26 16:08
+
+<blockquote>yguygyu 发表于 2025-4-26 15:33
+柊二这个名字在之前泄露的企划书上就写得有。
+
+我没想通为什么日方没有把汉字名字告诉官方翻译。
+
+</blockquote>
+也许是个比较重要的包袱呢
+
