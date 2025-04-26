@@ -1045,3 +1045,13 @@ X：宮野真守
 
 在mal这种比较大众的平台，竟然是这季度第一，不过搞笑的是/r anime板块禁止讨论这部，明明几年前最早那部凸变英雄还有分集的讨论串，这直接开除anime籍了给<img src="https://p.sda1.dev/23/abc2a2faf42f0ea297d2326b1237d851/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kk霖洞九  
+##### 106#       发表于 2025-4-26 14:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67756384&amp;ptid=2125794" target="_blank">山代风我 发表于 2025-4-26 02:43</a>
+在mal这种比较大众的平台，竟然是这季度第一，不过搞笑的是/r anime板块禁止讨论这部，明明几年前最早那部 ...</blockquote>
+Mal有donghua版块吗
+
