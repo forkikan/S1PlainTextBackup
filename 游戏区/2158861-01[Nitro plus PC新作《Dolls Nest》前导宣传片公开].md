@@ -1163,3 +1163,18 @@ BOSS非常难锁定，暂时卡住了
 
 深层那个言树和你要白珠，暂时不晓得是否影响结局，没敢给。
 
+
+*****
+
+####  Sissii  
+##### 113#       发表于 2025-4-26 09:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67756552&amp;ptid=2158861" target="_blank">oidoid 发表于 2025-4-26 09:02</a>
+最初起点：中央大洞穴，打完后开启腐朽温室和其他3个地点的传送
+
+之后的顺序大概如下：
+
+大森林-树巢-大桥</blockquote>
+结局应该是不影响的，打完最终boss二选一结局。
+我给了他七八个白珠，快打完的时候回去看给了个我个换魂道具5来着，估计有支线，等挖掘吧
+

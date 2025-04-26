@@ -3831,3 +3831,259 @@ Photo：堀内彩香
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按十本的思路这海铃是在单防祥子怕她又去勾搭前女友
 
+
+*****
+
+####  adretyu67.  
+##### 40526#       发表于 2025-4-25 16:45
+
+鸡的现实性要素基本上服务于剧情需要，引入和舍弃的都相当随意。
+
+*****
+
+####  堀内爱里衣  
+##### 40527#       发表于 2025-4-25 16:48
+
+<img src="https://img.stage1st.com/forum/202504/25/164847nkszm909sjsbz9mm.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-04-25_16-48-17.jpg</strong> (218.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-25 16:48 上传
+
+[https://x.com/BushiM_info/status/1915677158111859070](https://x.com/BushiM_info/status/1915677158111859070)
+
+*****
+
+####  堀内爱里衣  
+##### 40528#       发表于 2025-4-25 17:09
+
+ 本帖最后由 堀内爱里衣 于 2025-4-25 17:31 编辑 
+
+<img src="https://img.stage1st.com/forum/202504/25/173058xbcxmymcycpxnx5y.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-04-25_17-30-38.jpg</strong> (203.43 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-25 17:30 上传
+
+[https://x.com/RunMinCBWH/status/1915605932844978371](https://x.com/RunMinCBWH/status/1915605932844978371)
+
+*****
+
+####  抽搐一下  
+##### 40529#       发表于 2025-4-25 17:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67754644&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-4-25 12:30</a>
+
+在设定过于复杂而正片完成度又有不足的基础上，柿本偏偏在幕后访谈里说得太多、太细、太死，这种主观上想 ...</blockquote>
+十二集一大堆幻术了，机场那再奇怪也没什么，我更在意为什么特意安排那一下平地摔
+
+*****
+
+####  堀内爱里衣  
+##### 40530#       发表于 2025-4-25 18:08
+
+<img src="https://img.stage1st.com/forum/202504/25/180803l787ohtbmuu74687.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-04-25_18-07-09.jpg</strong> (465.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-25 18:08 上传
+
+[https://x.com/bushi_creative/status/1915665833159991379](https://x.com/bushi_creative/status/1915665833159991379)
+[https://t.co/Z9rWWOcx9B](https://t.co/Z9rWWOcx9B)
+
+*****
+
+####  堀内爱里衣  
+##### 40531#       发表于 2025-4-25 18:09
+
+<img src="https://img.stage1st.com/forum/202504/25/180906fjmqenbmnbqiymby.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-04-25_18-08-33.jpg</strong> (355.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-25 18:09 上传
+
+[https://x.com/bushi_creative/status/1915673411600457763](https://x.com/bushi_creative/status/1915673411600457763)
+[https://t.co/Z8VHffXVIu](https://t.co/Z8VHffXVIu)
+
+*****
+
+####  堀内爱里衣  
+##### 40532#       发表于 2025-4-25 18:10
+
+<img src="https://img.stage1st.com/forum/202504/25/181010ssqavyoaqug94vap.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-04-25_18-09-37.jpg</strong> (302.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-25 18:10 上传
+
+[https://x.com/bushi_creative/status/1915680949876253072](https://x.com/bushi_creative/status/1915680949876253072)
+[https://t.co/Z8VHffXVIu](https://t.co/Z8VHffXVIu)
+
+*****
+
+####  堀内爱里衣  
+##### 40533#       发表于 2025-4-25 19:03
+
+<img src="https://img.stage1st.com/forum/202504/25/190250fmzjx445zjj0422g.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-04-25_19-02-13.jpg</strong> (94.12 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-25 19:02 上传
+
+[https://x.com/BDP_AveMujica/status/1915722470260449427](https://x.com/BDP_AveMujica/status/1915722470260449427)
+[https://www.youtube.com/watch?v=cVfQBLdIUXk](https://www.youtube.com/watch?v=cVfQBLdIUXk)
+
+<img src="https://img.stage1st.com/forum/202504/25/190250ksuse883kzzskdz6.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-04-25_19-01-37.jpg</strong> (71.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-25 19:02 上传
+
+[https://t.bilibili.com/1059741965814333474](https://t.bilibili.com/1059741965814333474)
+[https://www.bilibili.com/video/BV1SjL3zNEB6/](https://www.bilibili.com/video/BV1SjL3zNEB6/)
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 40534#       发表于 2025-4-25 19:08
+
+💩一样的动画还不如ppt
+
+*****
+
+####  adretyu67.  
+##### 40535#       发表于 2025-4-25 19:15
+
+鸡也完结一个月了。想了下，其实排除一切意义不明的过程，我对鸡的结局意外的还算有点满意，或者说释怀了。
+
+海铃为了组队连：玩乐队需要幸福吗，得到满足就等于一切结束了。都能说出来。
+
+求锤得锤，安心被迫害一辈子信用不够吧。
+
+在这个很神奇的反krkrdkdk基调下，
+
+大猫老师沉迷演技最后遇上了演技的终极化身之古神睦，于是人生全毁只能在鸡打鼓被古神玩弄。
+
+也是个求锤得锤的结局。
+
+大祥老师沉浸在实现成神的满足和必将破灭的未来里，考虑到大祥老师相对狗13唯一进步在于认识到了自己姓丰川，这个ave mujica的牢笼确实是她最好的归宿。
+
+又一个求锤得锤的。
+
+初华暂时看起来是最大胜利者，毕竟牢祥的身子馋到了，牢祥也能给她的阴暗歌词谱曲了。牢祥的身心双重意义都是她的了。
+
+超级winwin了
+
+古神一切黑箱，不明。
+
+要不，第三季鸡团剧情这基调还是别改了，继续抽陀螺吧。
+
+*****
+
+####  南宮凝香  
+##### 40536#       发表于 2025-4-25 19:22
+
+你雞的一切都在證明WSD 根本就不懂怎弄出好東西
+
+你狗的好是下層自己發電出來的
+
+*****
+
+####  kenqqex  
+##### 40537#       发表于 2025-4-25 19:40
+
+这玩手机mv真的看笑我了
+
+*****
+
+####  凉良  
+##### 40538#       发表于 2025-4-25 19:58
+
+太**了太**了
+
+抱有期待得我像是个沙口
+
+*****
+
+####  堀内爱里衣  
+##### 40539#       发表于 2025-4-25 19:58
+
+<img src="https://img.stage1st.com/forum/202504/25/195835sacfr5t4rg4ibwgr.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-04-25_19-58-01.jpg</strong> (296.68 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-25 19:58 上传
+
+[https://x.com/bushi_hobby_jp/status/1915692314594599188](https://x.com/bushi_hobby_jp/status/1915692314594599188)
+
+*****
+
+####  堀内爱里衣  
+##### 40540#       发表于 2025-4-25 19:59
+
+<img src="https://img.stage1st.com/forum/202504/25/195953l6gk0drljlg0zil6.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-04-25_19-59-23.jpg</strong> (315.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-25 19:59 上传
+
+[https://x.com/bang_dream_info/status/1915723749074362555](https://x.com/bang_dream_info/status/1915723749074362555)
+[https://t.co/z5zCw9agwt](https://t.co/z5zCw9agwt)
+
+*****
+
+####  yy19  
+##### 40541#       发表于 2025-4-25 21:03
+
+颜mv和十字苦像mv正相反。颜是v赶不上m，苦像是m赶不上v…😓
+
+*****
+
+####  仟音一心  
+##### 40542#       发表于 2025-4-25 21:43
+
+<img src="https://p.sda1.dev/23/0dbaa222b51d0f0582ee7f009d6cb290/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/ac191de2f094224bbac01472e390b0dc/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  丰川祥  
+##### 40543#       发表于 2025-4-25 23:54
+
+海祥语音生肉<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+【【懒得烤了】对邦会场海祥特别语音-哔哩哔哩】 [https://b23.tv/CrS1Ovn](https://b23.tv/CrS1Ovn)
+
+*****
+
+####  osore  
+##### 40544#       发表于 2025-4-26 00:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按十本的思路这海铃是在单防祥子怕她又去勾搭前女友
+
+*****
+
+####  南宮凝香  
+##### 40545#       发表于 2025-4-26 09:35
+
+牢祥跟牢海的對話真的是正常人能說出來的嗎？
+
+在台下也中二到這程度的我覺得還是去送醫吧
+
