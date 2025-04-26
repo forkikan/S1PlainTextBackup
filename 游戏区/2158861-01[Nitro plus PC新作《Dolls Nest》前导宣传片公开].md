@@ -1453,3 +1453,14 @@ BOSS也很粪。
 谢谢，投弹躲中间就行了吗，之前一直以为要靠边躲</blockquote>
 投弹只见了两次就过了所以我也不是很确定，感觉是直升机沿自机当前位置画直线沿路轰炸，重复几次忘数了，按切向冲就行
 
+
+*****
+
+####  暗日生化体  
+##### 140#       发表于 2025-4-26 22:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67758466&amp;ptid=2158861" target="_blank">oidoid 发表于 2025-4-26 21:40</a>
+
+你跳跃够高跳起来滞空也能回避掉</blockquote>
+谢谢，明天试试看
+

@@ -8166,3 +8166,16 @@ bluestacks可以，用的国际版，国内特供版不清楚行不行
 
 有够消耗热情的
 
+
+*****
+
+####  光辉传递者  
+##### 771#       发表于 2025-4-26 22:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67758661&amp;ptid=2071758" target="_blank">leonyang19 发表于 2025-4-26 22:24</a>
+
+开发的成就已经刷到1100次了，总算换完了这月的ur武器升级材料...
+
+有够消耗热情的 ...</blockquote>
+那个有点布施人了，第二个开始价格翻倍过于消耗金币数量。
+
