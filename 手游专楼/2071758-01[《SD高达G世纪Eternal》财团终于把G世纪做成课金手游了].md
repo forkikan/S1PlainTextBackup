@@ -7810,3 +7810,13 @@ ex骡子有开ex元祖以外的好玩用法吗？
 —— 来自 Sony XQ-AT72, Android 12, 鹅球 v3. ...</blockquote>
 40次                 
 
+
+*****
+
+####  nagamasa  
+##### 740#       发表于 2025-4-26 10:47
+
+前个号已经R20但是资源乱砸抽得又烂不想玩了
+
+新号国际服BZ4NATHLZ5K7FC，可回填<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

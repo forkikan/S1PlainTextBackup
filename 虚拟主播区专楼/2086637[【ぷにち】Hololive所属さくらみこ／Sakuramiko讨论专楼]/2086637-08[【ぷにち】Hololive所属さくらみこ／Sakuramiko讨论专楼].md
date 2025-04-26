@@ -319,3 +319,28 @@ miko多少年没有这种线下直接对话的机会了，要不然就是今年�
 
 然后就是GW的PVE期间，和486一样跟其他活动日程冲突，应该不会参与了
 
+
+*****
+
+####  星期三下午五点  
+##### 10993#       发表于 2025-4-26 00:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">唉感觉不如🎣
+
+*****
+
+####  holofan  
+##### 10994#       发表于 2025-4-26 10:52
+
+以及GW不能参加PVP的原因很可能是要参加fbk的疑似FF14企划，486也是，介于这两人以前都玩过而且还玩不少
+
+*****
+
+####  holofan  
+##### 10995#       发表于 2025-4-26 10:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67756238&amp;ptid=2086637" target="_blank">星期三下午五点 发表于 2025-4-26 00:03</a>
+
+唉感觉不如🎣</blockquote>
+看起来比起和箱内其他人游玩闹腾的活动你更喜欢单独和观众安静聊天的氛围
+

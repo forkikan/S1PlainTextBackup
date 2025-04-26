@@ -6996,3 +6996,25 @@ Sweetsub整体挺好的，个人感觉比较怪的是几个人名，比如为什
 小森·哈珂特  ...</blockquote>
 确实，简中官网的「Xavier」也从以前的「艾格沙贝」改成了「泽维尔（大陆院线同款）」
 
+
+*****
+
+####  灵魂收割机  
+##### 9995#       发表于 2025-4-26 10:50
+
+ 本帖最后由 灵魂收割机 于 2025-4-26 10:51 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67756588&amp;ptid=2209276" target="_blank">serj005 发表于 2025-4-26 09:44</a>
+
+Sweetsub整体挺好的，个人感觉比较怪的是几个人名，比如为什么把修司翻译成柊二，官方中文公式站是翻译的 ...</blockquote>
+“柊二”是电影第2弹特典《DESIGN WORKS》里出现的写法，虽然不知道是有意的还是写错了，但起码也是官方提供的（如图）：
+
+<img src="https://img.stage1st.com/forum/202504/26/103505tek010707uzu0qee.jpg" referrerpolicy="no-referrer">
+
+<strong>11.jpg</strong> (30.79 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-26 10:35 上传
+
+コモリ翻译成“小森”是有问题的，因为官方的字母拼写是“Comoli”，看不出日本元素，只是和日语“小森”发音相同而已，音译最合适。
+
