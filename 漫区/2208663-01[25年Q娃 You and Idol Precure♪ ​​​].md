@@ -28,3 +28,13 @@
 <img src="https://files.catbox.moe/lngavu.jpg" referrerpolicy="no-referrer">
 <img src="https://files.catbox.moe/uzdkwg.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  我吃诗人  
+##### 793#       发表于 2025-4-26 12:37
+
+看起来要写两集？
+
+银兽的形象还有救吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
