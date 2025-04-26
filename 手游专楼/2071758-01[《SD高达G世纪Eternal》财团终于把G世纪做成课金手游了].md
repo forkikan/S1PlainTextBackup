@@ -7929,3 +7929,53 @@ B7G2GSTLQFAABW
 
 你们没都是用啥模拟器的，我用雷电进不了游戏
 
+
+*****
+
+####  凤凰院天豪  
+##### 751#       发表于 2025-4-26 18:39
+
+机体经验多的不知道给谁练，技师经验缺到爆炸
+
+*****
+
+####  凤凰院天豪  
+##### 752#       发表于 2025-4-26 18:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67757503&amp;ptid=2071758" target="_blank">kulanyee 发表于 2025-4-26 17:14</a>
+
+金币确实没啥用，跟着楼友换了SSR突破素材</blockquote>
+这不是点坦克点到手指爆炸？
+
+*****
+
+####  rockroxas  
+##### 753#       发表于 2025-4-26 18:40
+
+<img src="https://img.stage1st.com/forum/202504/26/183925pqlsn2da86dn66dl.png" referrerpolicy="no-referrer">
+
+<strong>初始.png</strong> (192.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-26 18:39 上传
+
+有时就是死活刷不到自己要的……
+
+算了不刷了，等30号再说，这个有人要吗，自选还没用
+
+
+*****
+
+####  nagamasa  
+##### 754#       发表于 2025-4-26 18:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67757606&amp;ptid=2071758" target="_blank">leste 发表于 2025-4-26 18:06</a>
+
+你们没都是用啥模拟器的，我用雷电进不了游戏</blockquote>
+bluestacks可以，用的国际版，国内特供版不清楚行不行
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">刷61式的时候真就满脑子都是那句“我正在做贪得无厌的事情”
+
+syl，突然想起个老梗，这机师狗粮，这下真灌电脑配件了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
