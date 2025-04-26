@@ -1464,3 +1464,26 @@ BOSS也很粪。
 你跳跃够高跳起来滞空也能回避掉</blockquote>
 谢谢，明天试试看
 
+
+*****
+
+####  oidoid  
+##### 141#       发表于 2025-4-26 22:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67758499&amp;ptid=2158861" target="_blank">squallx 发表于 2025-4-26 21:47</a>
+
+打桩机和树巢BOSS在哪里啊 这地图绕了半天总算把路开完了 传送蘑菇那个路口居然完美错过 从另外一边开门后 ...</blockquote>
+树巢BOSS在泛着蓝光的大门后面
+
+*****
+
+####  iefA  
+##### 142#       发表于 2025-4-26 22:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67758499&amp;ptid=2158861" target="_blank">squallx 发表于 2025-4-26 21:47</a>
+
+打桩机和树巢BOSS在哪里啊 这地图绕了半天总算把路开完了 传送蘑菇那个路口居然完美错过 从另外一边开门后 ...</blockquote>
+正好在树巢之后的大桥地图机械根附近
+
+叫PB T01A1 GOD
+

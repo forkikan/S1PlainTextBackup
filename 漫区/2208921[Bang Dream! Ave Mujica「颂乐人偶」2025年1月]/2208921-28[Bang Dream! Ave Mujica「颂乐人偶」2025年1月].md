@@ -4724,3 +4724,31 @@ nga有人说祥子是萨卡兹</blockquote>
 仔细看了一下还有尾巴，萨卡兹的可能性很高…
 要真是这样也太有meta效果了
 
+
+*****
+
+####  凉良  
+##### 40596#       发表于 2025-4-26 22:56
+
+萨卡兹是啥
+
+*****
+
+####  太二EricGuo  
+##### 40597#       发表于 2025-4-26 22:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67758351&amp;ptid=2208921" target="_blank">伊布桑 发表于 2025-4-26 21:20</a>
+海猫：那咋办呢？做都做了只能上啊</blockquote>
+海猫后悔这事有原图吗？
+
+
+*****
+
+####  伊布桑  
+##### 40598#       发表于 2025-4-26 23:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67758787&amp;ptid=2208921" target="_blank">太二EricGuo 发表于 2025-4-26 22:57</a>
+海猫后悔这事有原图吗？</blockquote>
+没有，这只是我想象的一个情景<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+这是听说这联动很早就开始筹备了，在动画播之前
+
