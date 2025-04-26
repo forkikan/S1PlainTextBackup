@@ -1243,3 +1243,13 @@ Here's some of the cuts I did! ✨
 
 第二集那种外星人塑造还不错，第三集把霓虹的狸猫传说硬搞成外星人就有点怪
 
+
+*****
+
+####  失忆的香槟  
+##### 118#       发表于 2025-4-26 13:01
+
+上次听到咔嚓咔嚓山的故事还是在鬼灯的冷彻里，本来还以为是个伏笔能解锁女主的兔耳形态的，直接头顶放烟花还是太抽象了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+细想一下要是真有人来住岂不是等价于跟一堆危化品住一起<img src="https://static.stage1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
