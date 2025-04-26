@@ -1248,3 +1248,13 @@ BOSS非常难锁定，暂时卡住了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">深层搞这么黑是干嘛哦，里面有啥好东西吗，真不想去第二次
 
+
+*****
+
+####  Sissii  
+##### 121#       发表于 2025-4-26 15:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67757174&amp;ptid=2158861" target="_blank">Ehekatl 发表于 2025-4-26 14:20</a>
+拿到玉茧后双子一点反应都没有，难道这任务还有时点限制？</blockquote>
+两个吧，给你一把太刀，然后变成她们的利刃（
+
