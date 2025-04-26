@@ -8089,3 +8089,14 @@ bluestacks可以，用的国际版，国内特供版不清楚行不行
 蓝叠估计蛮吃显卡的？不然就是战斗动画卡顿，和ourplay一样，看b站的设置教程起手4070，这对老电脑可不友 ...</blockquote>
 我在没选使用独显的情况下（配置5800x3d+1060，别问为什么<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）几套设置都试了下，opengl最流畅但是机体爆炸那个动画会丢失导致像是卡住1秒多一样，vulkan没这个问题但是在角色要求这个画面会卡飞，大概是因为头像后面那个扫描线？directx直接打不开游戏。。。之前也用mumu试过，体验更狗屎
 
+
+*****
+
+####  光辉传递者  
+##### 764#       发表于 2025-4-26 20:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67757994&amp;ptid=2071758" target="_blank">nagamasa 发表于 2025-4-26 20:18</a>
+
+我在没选使用独显的情况下（配置5800x3d+1060，别问为什么）几套设置都试了下，opengl最流畅但是机体爆炸 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我现在电脑还是用ourplay，动画卡顿总好过闪退。
+

@@ -1376,3 +1376,13 @@ BOSS也很粪。
 
 有没有知道颠倒森林的直升机怎么打的，感觉比大森林和积降的boss难好多
 
+
+*****
+
+####  蓝雉  
+##### 133#       发表于 2025-4-26 20:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67757954&amp;ptid=2158861" target="_blank">暗日生化体 发表于 2025-4-26 20:10</a>
+有没有知道颠倒森林的直升机怎么打的，感觉比大森林和积降的boss难好多</blockquote>
+狙击对狙，或者肩部带个开镜的炮打螺旋桨
+

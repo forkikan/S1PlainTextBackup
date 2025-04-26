@@ -1055,3 +1055,16 @@ X：宮野真守
 在mal这种比较大众的平台，竟然是这季度第一，不过搞笑的是/r anime板块禁止讨论这部，明明几年前最早那部 ...</blockquote>
 Mal有donghua版块吗
 
+
+*****
+
+####  新HGCG  
+##### 107#       发表于 2025-4-26 20:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67756384&amp;ptid=2125794" target="_blank">山代风我 发表于 2025-4-26 02:43</a>
+
+在mal这种比较大众的平台，竟然是这季度第一，不过搞笑的是/r anime板块禁止讨论这部，明明几年前最早那部 ...</blockquote>
+为啥禁止讨论这部啊
+
+顺便还真是环日本好评？
+
