@@ -4864,3 +4864,16 @@ nga有人说祥子是萨卡兹</blockquote>
 后半段又是要睦陪她练习，还强调了自己舍弃了音乐和戏剧外的一切，还拿祥呛初
 最后初睦开练，一句这才是mujica的样子完成尾杀<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  钦念以忱  
+##### 40610#       发表于 2025-4-27 01:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67759085&amp;ptid=2208921" target="_blank">osore 发表于 2025-4-27 00:26</a>
+
+“没有利用价值了就会被祥子抛弃”
+
+若麦 为什么你总是在说讨厌的话</blockquote>
+若麦的人设是永远正确，这句话难道是真的？
+
