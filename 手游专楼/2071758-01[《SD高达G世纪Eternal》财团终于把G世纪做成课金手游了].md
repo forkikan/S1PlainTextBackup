@@ -8056,3 +8056,14 @@ bluestacks可以，用的国际版，国内特供版不清楚行不行
 刷61式的时候真就满脑子都是那句“我正在做贪得无 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这俩有区别吗？
 
+
+*****
+
+####  nagamasa  
+##### 761#       发表于 2025-4-26 19:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67757810&amp;ptid=2071758" target="_blank">光辉传递者 发表于 2025-4-26 19:39</a>
+
+这俩有区别吗？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">不知道，本能反应玩外服游戏有国际版平台就用国际版平台而已
+
