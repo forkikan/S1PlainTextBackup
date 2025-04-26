@@ -7773,3 +7773,17 @@ ex骡子有开ex元祖以外的好玩用法吗？
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  光辉传递者  
+##### 737#       发表于 2025-4-26 09:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67756325&amp;ptid=2071758" target="_blank">一个陆仁贾 发表于 2025-4-26 01:04</a>
+ex骡子有开ex元祖以外的好玩用法吗？
+
+—— 来自 vivo V2419A, Android 15, 鹅球 v3.5.99 ...</blockquote>
+79骡？试试开妖刀。93骡可试独角兽。
+
+—— 来自 LENOVO TB321FU, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
