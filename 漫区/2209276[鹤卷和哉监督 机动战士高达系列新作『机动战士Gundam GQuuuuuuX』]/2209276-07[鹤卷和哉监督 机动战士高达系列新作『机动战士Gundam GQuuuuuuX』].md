@@ -7196,3 +7196,38 @@ Sweetsub整体挺好的，个人感觉比较怪的是几个人名，比如为什
 这个已经变成高达的传统了是吗？</blockquote>
 相比之下小番茄可太可爱了
 
+
+*****
+
+####  Piano-Forest  
+##### 10012#         楼主| 发表于 2025-4-27 00:32
+
+ 本帖最后由 Piano-Forest 于 2025-4-27 00:35 编辑 
+
+[https://x.com/Jgv00089/status/1912217692905570533](https://x.com/Jgv00089/status/1912217692905570533)
+<img src="https://p.sda1.dev/23/f65c354c4b7ff4779ae5adc1b2752fb4/20250426_233001.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/bhachi88888888/status/1909936833712337391](https://x.com/bhachi88888888/status/1909936833712337391)
+<img src="https://p.sda1.dev/23/270f8f0c5329eb478b0d5aeab8711a60/20250426_232755.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/eito12/status/1910470133862265149](https://x.com/eito12/status/1910470133862265149)
+<img src="https://p.sda1.dev/23/81282008e081588b01eb5eddf43ef386/20250426_232848.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/sunoco750/status/1912667610002694161](https://x.com/sunoco750/status/1912667610002694161)
+<img src="https://p.sda1.dev/23/3b95a20630a4237e927dc43294fdde8b/20250426_232958.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/syucream316/status/1914018982400807148](https://x.com/syucream316/status/1914018982400807148)
+<img src="https://p.sda1.dev/23/f311fae20c5408cb43ef2e0763216e06/20250426_233054.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/Edgar_Syu/status/1910286725479362806](https://x.com/Edgar_Syu/status/1910286725479362806)
+<img src="https://p.sda1.dev/23/f4842e27eef7a990ffd10241e4a1b5f7/20250426_232819.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/PastaMajo/status/1910286946209092021](https://x.com/PastaMajo/status/1910286946209092021)
+<img src="https://p.sda1.dev/23/20920c87e10130b860af0d01f70a9b17/20250426_232842.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/Tacit_1113/status/1912949544092139620](https://x.com/Tacit_1113/status/1912949544092139620)
+<img src="https://p.sda1.dev/23/5d8a2163271ff3c2763f0c3f94291a12/20250426_233031.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/nnnn_euphoria/status/1912516752023617879](https://x.com/nnnn_euphoria/status/1912516752023617879)
+<img src="https://p.sda1.dev/23/b472abea667cae9d9e50f3d9889c7d38/20250426_233007.jpg" referrerpolicy="no-referrer">
+

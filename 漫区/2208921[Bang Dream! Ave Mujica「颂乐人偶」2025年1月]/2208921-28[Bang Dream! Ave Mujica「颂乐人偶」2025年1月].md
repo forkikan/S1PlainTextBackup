@@ -4838,3 +4838,29 @@ nga有人说祥子是萨卡兹</blockquote>
 
 【【懒得烤】鸡狗对邦会场初睦喵特殊语音】 https://www.bilibili.com/video/BV12tLfzAEYc/?share_source=copy_web&amp;vd_source=ea4073780df5ce915bd3add65a052f26
 
+
+*****
+
+####  osore  
+##### 40607#       发表于 2025-4-27 00:26
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“没有利用价值了就会被祥子抛弃”
+若麦 为什么你总是在说讨厌的话
+
+*****
+
+####  MKLL  
+##### 40608#       发表于 2025-4-27 00:28
+
+太搞笑了，这联动你就说有没有乐子吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  丰川祥  
+##### 40609#       发表于 2025-4-27 00:31
+
+喵梦这个语气太抽象了，感觉一直在yygq
+后半段又是要睦陪她练习，还强调了自己舍弃了音乐和戏剧外的一切，还拿祥呛初
+最后初睦开练，一句这才是mujica的样子完成尾杀<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
