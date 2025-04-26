@@ -7848,3 +7848,25 @@ B7G2GSTLQFAABW
 
 自动解体只限lv1的功能是不是没用啊，勾上之后一样会把一堆其他30 40级后期图抓回来的单位自动解体
 
+
+*****
+
+####  dio999  
+##### 744#       发表于 2025-4-26 13:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67756923&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-4-26 12:18</a>
+
+说来搞PVP的话，兑换母舰可能真要换了，HP恢复最有用的一集
+
+自动解体只限lv1的功能是不是没用啊，勾上之后 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202504/26/134642xd9g6qq9rgwwqumg.png" referrerpolicy="no-referrer">
+
+<strong>IMG_9090.png</strong> (3.12 MB, 下载次数: 0)
+
+下载附件
+
+2025-4-26 13:46 上传
+
+暂时没有
+
