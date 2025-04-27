@@ -1637,3 +1637,14 @@ BOSS也很粪。
 
 朝圣姐去了废屋就不能去教堂了吗
 
+
+*****
+
+####  squallx  
+##### 156#       发表于 2025-4-28 05:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67762096&amp;ptid=2158861" target="_blank">madcow 发表于 2025-4-27 23:39</a>
+
+あんなものを浮かべて喜ぶか、変態どもが! ​​​</blockquote>
+这个HENTAI球太逊啦 我一个轻型机在他AOE范围里洗澡都没事儿
+
