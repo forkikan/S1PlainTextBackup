@@ -8270,3 +8270,18 @@ thx
 三次扫荡限制太傻逼了</blockquote>
 点进去开自动呗，现在练度应该都自动乱杀了吧。
 
+
+*****
+
+####  丹德里恩  
+##### 780#       发表于 2025-4-27 09:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67756923&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-4-26 12:18</a>
+
+说来搞PVP的话，兑换母舰可能真要换了，HP恢复最有用的一集
+
+自动解体只限lv1的功能是不是没用啊，勾上之后 ...</blockquote>
+那个自动解体的√不是“且”，是“或”
+
+你要把其他几个√去掉只留限制lv1的
+
