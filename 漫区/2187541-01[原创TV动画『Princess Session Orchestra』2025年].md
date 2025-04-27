@@ -865,3 +865,11 @@ OPED映像解禁ーOPクセになる。
 
 这不是叫管弦乐团吗，这次这个打鼓的算管还是算弦<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  himfsz  
+##### 83#       发表于 2025-4-27 20:41
+
+没事，q娃那边的管弦乐团也是巨大女神指虎铁拳制裁，大概只是这个词的发音听上去比较强所以就用了吧
+
