@@ -8509,3 +8509,14 @@ thx
 
 —— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  windtrack  
+##### 795#       发表于 2025-4-27 22:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67761704&amp;ptid=2071758" target="_blank">诗怀雅 发表于 2025-4-27 21:27</a>
+
+还有4个可招募的驾驶员</blockquote>
+没开PVP之前感觉用SP投资SR机体风险都很大，SP后面有没有效率获取方式还难说...
+
