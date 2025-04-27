@@ -8568,3 +8568,42 @@ BWHHFJ2BFZEPBL
 
 这个只靠3台0破UR和7台杂鱼过EX永恒路的思路挺屌，不过需要个UR战舰给傻子那加成
 
+
+*****
+
+####  hayate0079  
+##### 801#       发表于 2025-4-28 00:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67761983&amp;ptid=2071758" target="_blank">windtrack 发表于 2025-4-27 22:51</a>
+
+https://x.com/rihito4230/status/1916314350564085913
+
+这个只靠3台0破UR和7台杂鱼过EX永恒路的思路挺屌， ...</blockquote>
+这不是3个满破UR吗
+
+*****
+
+####  ddlsyo  
+##### 802#       发表于 2025-4-28 00:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67761983&amp;ptid=2071758" target="_blank">windtrack 发表于 2025-4-27 22:51</a>
+
+https://x.com/rihito4230/status/1916314350564085913
+
+这个只靠3台0破UR和7台杂鱼过EX永恒路的思路挺屌， ...</blockquote>
+点开视频3台UR不都是满破3星吗。。
+
+
+*****
+
+####  一个陆仁贾  
+##### 803#       发表于 2025-4-28 00:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67761708&amp;ptid=2071758" target="_blank">体制 发表于 2025-4-27 21:28</a>
+普通难度用一台100级卡池ur就能过啦，很简单的。
+
+—— 来自 Xiaomi 2211133C, Android 15, 鹅球 v3.5.99 ...</blockquote>
+但是任务要求通三个普通，前三个我只有一个有对应ur，剩下两个只能慢慢靠主线h难度得的那些ssr打了
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
