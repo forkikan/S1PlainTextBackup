@@ -8303,3 +8303,11 @@ thx
 
 这游戏进入长草期也太快了，不打永恒之路的话已经不知道要干嘛了
 
+
+*****
+
+####  kulanyee  
+##### 783#       发表于 2025-4-27 15:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
