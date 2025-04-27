@@ -8339,3 +8339,22 @@ thx
 
 话说，钱不够刷GP了。哪里刷钱最快呀？
 
+
+*****
+
+####  马桶3  
+##### 787#       发表于 2025-4-27 19:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67761053&amp;ptid=2071758" target="_blank">sql710 发表于 2025-4-27 17:20</a>
+话说，钱不够刷GP了。哪里刷钱最快呀？</blockquote>
+每天三把资源本，然后就是hard全扫，慢慢攒
+
+—— 来自 vivo V2408A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  nodkane  
+##### 788#       发表于 2025-4-27 19:43
+
+专楼有无q群 还有我已经打完主线了 等过几天出活动打完再慢慢搞永恒之路
+
