@@ -7346,3 +7346,22 @@ I am the Alpha and the Omega, the First and the Last, the Beginning and t ...</b
 
 所以能期待一个alpha和omega合体吗？
 
+
+*****
+
+####  serj005  
+##### 10020#       发表于 2025-4-27 12:40
+
+ 本帖最后由 serj005 于 2025-4-27 12:44 编辑 
+
+有个看完电影就开始纠结的问题
+为什么在ms里面的驾驶员会被闪光弹闪到<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+又不是铁球或者turnA那种透光玻璃驾驶舱壳。
+驾驶舱里不就只是个显示器吗，按现在技术的HDR屏幕瞬时激发亮度也就2000nit左右，全黑到全亮闪一下正常人几秒内就恢复了，快点的可能一秒就适应了，为啥能把驾驶员闪到短时致盲。
+而且设计时不应该限制内部监视器最高亮度的吗。
+
+想不起来以前的uc系作品里有没有出现过闪光弹这种武器了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
