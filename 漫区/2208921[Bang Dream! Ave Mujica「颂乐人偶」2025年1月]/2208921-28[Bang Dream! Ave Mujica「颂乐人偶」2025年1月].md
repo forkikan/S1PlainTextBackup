@@ -5034,3 +5034,22 @@ nga有人说祥子是萨卡兹</blockquote>
 
 该把当初的剧透“舅舅”的怀疑名单上加上YJ一笔了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wpcc  
+##### 40625#       发表于 2025-4-27 10:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67759736&amp;ptid=2208921" target="_blank">バーチャルS1er 发表于 2025-4-27 09:53</a>
+一周看一集只是一般观众的限制，
+
+业内相关人士早就看完了母鸡卡动画了，而YJ这种大客户来联动的话肯定算是 ...</blockquote>
+yj联动鸡的消息开播之前有舅舅放风的
+
+*****
+
+####  wwwttth  
+##### 40626#       发表于 2025-4-27 10:13
+
+母鸡卡剧情烂了但是苞米能力一直很强啊，为啥要取消反正剧情也不是虱本写
+
