@@ -7418,3 +7418,69 @@ I am the Alpha and the Omega, the First and the Last, the Beginning and t ...</b
 
 高达x第一集亦有记载
 
+
+*****
+
+####  岸浪白野  
+##### 10026#       发表于 2025-4-27 18:12
+
+[X 上的 ▫️：“マチュかわい~ #GQuuuuuuX [url]https://t.co/E2rCnLWWP3](https://x.com/sssk___5/status/1915353513741459603)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202504/27/175406eo5spwldnwozbzck.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (477.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 17:54 上传
+
+[X 上的 SukaLiya：“20.マチュ #GQuuuuuuX #ジークアクス [url]https://t.co/7nKG5AS8jz](https://x.com/Suka1iya/status/1915364062268998052)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202504/27/175706ls0ld15sinjrrs0r.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.16 MB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 17:57 上传
+
+[X 上的 みり：“マチュ [url]https://t.co/hUysmoOyjx](https://x.com/miri550421/status/1915428751665713552)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202504/27/180306ozfo34za7fzv714r.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.01 MB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 18:03 上传
+
+[X 上的 だんぼる：“マチュすき [url]https://t.co/2f9fb3eU50](https://x.com/JDanboru1182/status/1915779532298338672)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202504/27/181034ju67qpabp8r027uu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.2 MB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 18:10 上传
+
+[X 上的 秋风萧色：“小番茄 #機動戦士GundamGQuuuuuuX #ジークアクス [url]https://t.co/0MEXalpGpd](https://x.com/Xiaose_13795/status/1915779882963071193)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202504/27/181010rfgz22opsh8if2z5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.53 MB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 18:10 上传
+
+[X 上的 えむ：“3話のマチュ #ジークアクス #GQuuuuuuX [url]https://t.co/3F4y9MPRxX](https://x.com/emya26/status/1915940494611546382)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202504/27/180933hptf91wtnsu2htpt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (653.05 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 18:09 上传
+
