@@ -5004,3 +5004,33 @@ nga有人说祥子是萨卡兹</blockquote>
 
 部分二游入脑人真的是，自己群体本身就一股骚味，还装的冰清玉洁哭天喊地，给谁看呢
 
+
+*****
+
+####  syndrome2032  
+##### 40622#       发表于 2025-4-27 09:50
+
+鸡和粥联动不是大哥不笑二哥，还是二哥不笑大哥?
+
+有啥好哭丧的。
+
+*****
+
+####  ParadiseMartyr  
+##### 40623#       发表于 2025-4-27 09:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说的邦多利不是二游似的
+怎么说呢，给睦头人扔泰拉逼疯出mortis比搞乐队逼出mortis好歹合理点
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  バーチャルS1er  
+##### 40624#       发表于 2025-4-27 09:53
+
+一周看一集只是一般观众的限制，
+
+业内相关人士早就看完了母鸡卡动画了，而YJ这种大客户来联动的话肯定算是业内相关
+
+该把当初的剧透“舅舅”的怀疑名单上加上YJ一笔了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
