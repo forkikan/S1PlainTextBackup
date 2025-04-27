@@ -1573,3 +1573,11 @@ BOSS也很粪。
 
 大断层教堂到房顶就没路了吗？ 坐板车回篝火大升降梯还是锁着 要朝哪里走？
 
+
+*****
+
+####  black1991518  
+##### 151#       发表于 2025-4-27 21:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那个流浪者吉尔贝利是没法救吗，去大空洞红门后面转了一圈回来丫就寻短见只留了一套衣服
+
