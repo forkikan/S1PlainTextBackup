@@ -145,3 +145,19 @@
 之前新闻误导人吗<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 都是正式的姐妹q娃还要准备等几年
 
+
+*****
+
+####  leleq  
+##### 804#       发表于 2025-4-27 17:42
+
+本集打斗不错
+
+梅洛这回忆怎么一股“姐姐大人整理领结”的味<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+这小怪挣脱说明大招的判定在一开始的捆绑而不是结尾的光束吗<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+不过一般不是敌方先升级然后这边新招么怎么反了，这样不就看不到大家被打翻在地的戏了么<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+梅洛和噗哩这配色是变q娃是标准黑白吧
+
