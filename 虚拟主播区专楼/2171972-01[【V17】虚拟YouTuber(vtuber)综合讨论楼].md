@@ -172,3 +172,12 @@
 对比一下去年的预选，同接大概多了一万左右。
 还是有的嘛，这样本战最高差不多25万？
 
+
+*****
+
+####  渡鸦骑士  
+##### 1080#       发表于 2025-4-27 16:50
+
+23年的甲子园也就这个水平。
+真的能算增长……嘛？<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+

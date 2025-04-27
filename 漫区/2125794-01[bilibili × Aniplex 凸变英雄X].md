@@ -1177,3 +1177,18 @@ B站没和谐啊
 《JEOPARDY (TV动画《凸变英雄X》主题曲)》:
 [https://y.music.163.com/m/song?id=2692720971](https://y.music.163.com/m/song?id=2692720971)
 
+
+*****
+
+####  新HGCG  
+##### 118#       发表于 2025-4-27 16:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67760242&amp;ptid=2125794" target="_blank">uyghgyg 发表于 2025-4-27 12:10</a>
+
+能看不 卖cp严重吗
+
+—— 来自 Xiaomi 22041216C, Android 12, 鹅球 v3.5.99</blockquote>
+同性CP的话……
+
+暂时不严重吧？
+

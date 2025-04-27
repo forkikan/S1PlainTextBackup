@@ -7410,3 +7410,11 @@ I am the Alpha and the Omega, the First and the Last, the Beginning and t ...</b
 为什么在ms里面的驾驶员会被闪光弹闪到</blockquote>
 可以理解成电子战武器，既然充气玩具都能被MS的系统错误判断为真目标，那也许真存在一种能让驾驶舱屏幕高速频闪的bug也说不定，口袋妖怪当年可是靠电视机就搞出过癫痫发作不是（手动狗头）
 
+
+*****
+
+####  wasssf  
+##### 10025#       发表于 2025-4-27 16:50
+
+高达x第一集亦有记载
+
