@@ -1319,3 +1319,18 @@ Here's some of the cuts I did! ✨
 
 不过这50年过去居然没继续出现零件老化减员吗
 
+
+*****
+
+####  NBXX  
+##### 124#       发表于 2025-4-28 02:19
+
+アポカリプスホテルぷすぷす 03話 漫画汉化。
+<img src="https://p.sda1.dev/23/28eafe00515a339a1b3f3d547590ee00/0001.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/bf7061b2c3fdcd0df9791924043b5b1b/0002-3.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/51fa9b7f42d062376a0e67d7551ed77a/0004.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/82793ae86941786036c8134cd08d45b4/0005.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/b1d839ab3424cd5c482b319ae5a78b65/0006.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/e8dde42f7701b7692d8e248bfc6dba28/0007.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/de6eb10edab6edfb457eef155f236d02/0008.jpg" referrerpolicy="no-referrer">
+
