@@ -1287,3 +1287,13 @@ Here's some of the cuts I did! ✨
 
 第三话末尾的...也弄进去有点地狱了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ashice  
+##### 121#       发表于 2025-4-27 12:28
+
+第三集这个剧本，把屎尿屁的部分去掉也就6+吧
+
+是不是有点太低幼了
+
