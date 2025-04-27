@@ -7313,3 +7313,18 @@ the Beginning指的是裝了Alpha賽可謬的紅高達
 
 這是GQuuuuuuX的機魂發訊息給潛在駕駛員瑪秋，叫她一起去抓紅高了XD
 
+
+*****
+
+####  灵魂收割机  
+##### 10017#       发表于 2025-4-27 11:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67759706&amp;ptid=2209276" target="_blank">我聞如是 发表于 2025-4-27 09:43</a>
+
+碰巧這題我會
+
+啟示錄22:13
+
+I am the Alpha and the Omega, the First and the Last, the Beginning and t ...</blockquote>
+好像很对<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
