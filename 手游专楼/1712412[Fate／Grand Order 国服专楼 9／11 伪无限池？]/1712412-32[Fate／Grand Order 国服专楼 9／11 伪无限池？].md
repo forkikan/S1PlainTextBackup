@@ -243,3 +243,16 @@ c呆耐久耗尽了，惨！
 三百多石加三十多呼符，剩几张呼符的时候青子才来，真是读心GO
 后面有珠看情况再追加一点吧，凑个齐全
 
+
+*****
+
+####  snakeling  
+##### 47127#       发表于 2025-4-27 15:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67755145&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2025-4-25 16:39</a>
+
+青子等一个强化本翻身的可能性微存？
+
+讲道理这种有独特机制的卡我是挺喜欢的，但是强度拉成这个样子确实没 ...</blockquote>
+给个妖兰同款进场变身的灵衣还能救一下。
+
