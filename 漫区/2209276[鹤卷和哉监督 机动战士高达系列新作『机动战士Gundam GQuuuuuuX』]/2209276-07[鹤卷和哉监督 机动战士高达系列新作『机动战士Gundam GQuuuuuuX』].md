@@ -7295,3 +7295,21 @@ Sweetsub整体挺好的，个人感觉比较怪的是几个人名，比如为什
 
 还是说日本人的英语怎样都正常所以算了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  我聞如是  
+##### 10016#       发表于 2025-4-27 09:43
+
+<blockquote>mintslime 发表于 2025-4-27 02:14
+伏笔都讨论到译名上了，那楼友不打算讨论一下一开始短信那句Let's get the Beginning除非the Beginning根本 ...</blockquote>
+碰巧這題我會
+
+啟示錄22:13
+
+I am the Alpha and the Omega, the First and the Last, the Beginning and the End.
+
+the Beginning指的是裝了Alpha賽可謬的紅高達
+
+這是GQuuuuuuX的機魂發訊息給潛在駕駛員瑪秋，叫她一起去抓紅高了XD
+
