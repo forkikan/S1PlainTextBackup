@@ -1142,3 +1142,11 @@ B站没和谐啊
 
 林导：奈斯篇其实是整个故事的结尾篇章
 
+
+*****
+
+####  Kfly  
+##### 114#       发表于 2025-4-27 11:18
+
+结尾篇章吗，第五集预告的那小孩不会真是林凌小时候吧，后面的集数间接解释前nice为什么想死？<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
