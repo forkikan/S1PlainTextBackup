@@ -7602,3 +7602,11 @@ I am the Alpha and the Omega, the First and the Last, the Beginning and t ...</b
 这个已经变成高达的传统了是吗？</blockquote>
 シェー是很老但国民度很高的梗啦，和JOJO那种不一样，和JOJO！
 
+
+*****
+
+####  ykyin09  
+##### 10031#       发表于 2025-4-27 22:52
+
+老uc里舰船和ms用的信号弹也算吧？除非说军团战里扎古用的是对ms专用的闪光弹
+
