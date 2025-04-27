@@ -5469,3 +5469,12 @@ b站反田视频下面气氛搞得好像她要死了一样😅
 充电视频公开期限：5月4日(周日) 22:59截止</blockquote>
 [https://www.bilibili.com/video/BV1ENLBztEC7](https://www.bilibili.com/video/BV1ENLBztEC7)
 
+
+*****
+
+####  堀内爱里衣  
+##### 40654#       发表于 2025-4-27 21:05
+
+<img src="https://img.stage1st.com/forum/202504/27/210428cjpe11le3zqev6aq.jpg" referrerpolicy="no-referrer">
+[https://x.com/anime_tokyo/status/1916462334165622930](https://x.com/anime_tokyo/status/1916462334165622930)
+
