@@ -7591,3 +7591,14 @@ I am the Alpha and the Omega, the First and the Last, the Beginning and t ...</b
 为什么在ms里面的驾驶员会被闪光弹闪到</blockquote>
 就当omega赛克缪的连接效果是神经直连那种吧，不然也说不清楚新人上机可以直接开高达
 
+
+*****
+
+####  07579394  
+##### 10030#       发表于 2025-4-27 22:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67757955&amp;ptid=2209276" target="_blank">高达age 发表于 2025-4-26 20:10</a>
+
+这个已经变成高达的传统了是吗？</blockquote>
+シェー是很老但国民度很高的梗啦，和JOJO那种不一样，和JOJO！
+

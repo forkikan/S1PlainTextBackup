@@ -1592,3 +1592,16 @@ BOSS也很粪。
 那个流浪者吉尔贝利是没法救吗，去大空洞红门后面转了一圈回来丫就寻短见只留了一套衣服 ...</blockquote>
 贴吧有帖子 禁区敲掉个破墙里面隐藏房间拿道具
 
+
+*****
+
+####  black1991518  
+##### 153#       发表于 2025-4-27 22:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67761877&amp;ptid=2158861" target="_blank">squallx 发表于 2025-4-27 22:15</a>
+
+贴吧有帖子 禁区敲掉个破墙里面隐藏房间拿道具</blockquote>
+居然还有隐藏门…真是全给学去了
+
+只能二周目再见了
+
