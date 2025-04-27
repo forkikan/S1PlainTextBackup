@@ -4925,3 +4925,29 @@ nga有人说祥子是萨卡兹</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">初音虽然害怕被抛弃，但还是坚持给小祥泡咖啡，坚决不换小祥喜欢的红茶，太有原则了
 联系手游新卡剧情，小祥下班了不回初音家，跑去可以饮料畅饮的卡拉OK自费加班，偶遇soyo约好下次一起喝茶，画美不看
 
+
+*****
+
+####  AraTurambar  
+##### 40616#       发表于 2025-4-27 08:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67759323&amp;ptid=2208921" target="_blank">凉良 发表于 2025-4-27 03:32</a>
+
+楼里舅舅是说物料都做好了 但是不知道敢不敢上
+
+给两个可能性吧 一个是毕竟是双向联动  一个是鸡腿确实能爆 ...</blockquote>
+……没懂为什么要取消联动。
+
+虽然AM动画做烂了但是歌不是挺成功的吗，演唱会也大卖啊。
+
+也不是上社会新闻，为什么就要切割？
+
+*****
+
+####  新HGCG  
+##### 40617#       发表于 2025-4-27 08:10
+
+不喜欢母鸡卡的可以这么想:舟游世界观那么地狱，她们是送去吃苦的
+
+就好啦 ​​​
+
