@@ -7560,3 +7560,34 @@ I am the Alpha and the Omega, the First and the Last, the Beginning and t ...</b
 
 2025-4-27 18:22 上传
 
+
+*****
+
+####  eilot  
+##### 10028#       发表于 2025-4-27 20:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67760921&amp;ptid=2209276" target="_blank">123gp199 发表于 2025-4-27 16:40</a>
+
+可以理解成电子战武器，既然充气玩具都能被MS的系统错误判断为真目标，那也许真存在一种能让驾驶舱屏幕高 ...</blockquote>
+對面SEED 也真是有針對MS的攝影鏡頭的病毒，不是你看我不到，就是中了病毒直接要了機體控制權
+
+所以記者他本人才要將自己塞在MS的頭部(笑)，
+
+直接將現場畫面拍攝下來並轉交給負責開ASTRY 那位
+
+說回UC，在有米粒子情況下，MS的鏡頭誤判充氣玩具也不出奇，這全是考慮MS的AI的分判能力，於是就要求MS弄出更高清的攝影機，而駕駛室的螢光幕，為了更快顯示面前「最正確」畫面
+
+所以不排除閃光彈真是會令系統繁忙，直接令螢幕也出現相應高速頻閃
+
+(以上純粹口胡...)
+
+*****
+
+####  天邪鬼  
+##### 10029#       发表于 2025-4-27 20:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67760318&amp;ptid=2209276" target="_blank">serj005 发表于 2025-4-27 12:40</a>
+有个看完电影就开始纠结的问题
+为什么在ms里面的驾驶员会被闪光弹闪到</blockquote>
+就当omega赛克缪的连接效果是神经直连那种吧，不然也说不清楚新人上机可以直接开高达
+

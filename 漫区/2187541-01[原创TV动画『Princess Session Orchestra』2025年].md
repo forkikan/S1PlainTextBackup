@@ -857,3 +857,11 @@ OPED映像解禁ーOPクセになる。
 
 绿毛的性格和想象中不太一样……
 
+
+*****
+
+####  真爱与热情  
+##### 82#       发表于 2025-4-27 20:20
+
+这不是叫管弦乐团吗，这次这个打鼓的算管还是算弦<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
