@@ -8285,3 +8285,13 @@ thx
 
 你要把其他几个√去掉只留限制lv1的
 
+
+*****
+
+####  lighttt  
+##### 781#       发表于 2025-4-27 15:22
+
+国际服邀请码互填的有吗，我的是BESHZYZV3GC3R4
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

@@ -125,3 +125,13 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个新妖精，地雷女的配色，地雷女的行为，完全就是地雷女啊。
 
+
+*****
+
+####  天风绯炎  
+##### 802#       发表于 2025-4-27 15:20
+
+重女地雷妹，疑似要被小歌诱惑了。我虽然喜欢姐姐，但也无法抗拒小歌这种感觉是怎么回事<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+这集战斗还不错，升级的小怪能挣脱单人live，小怪吃得也越来越好了
+
