@@ -3411,3 +3411,11 @@ ban了。吵死了啦。好恶心。  
 “想吃肯德基了啊”
 可爱捏<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">，不过今天可不是木曜日
 
+
+*****
+
+####  sino__unnko3  
+##### 18360#       发表于 2025-4-27 15:02
+
+肯德基，肯德基，肯德基，肯肯肯肯肯德基，下播
+
