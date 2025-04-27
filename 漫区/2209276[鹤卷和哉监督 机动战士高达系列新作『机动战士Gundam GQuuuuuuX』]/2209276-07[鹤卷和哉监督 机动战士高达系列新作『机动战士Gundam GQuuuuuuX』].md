@@ -7338,3 +7338,11 @@ I am the Alpha and the Omega, the First and the Last, the Beginning and t ...</b
 
 不过之前的讨论都陷入停滞状态，没有新剧情也聊不出什么东西。
 
+
+*****
+
+####  0aleph37  
+##### 10019#       发表于 2025-4-27 11:49
+
+所以能期待一个alpha和omega合体吗？
+
