@@ -200,3 +200,15 @@
 [https://x.com/mosh_mallow/status/1915853781872611388](https://x.com/mosh_mallow/status/1915853781872611388)
 <img src="https://p.sda1.dev/23/c1d2bd723ec61b530fa59d1c4cec867b/20250428_011919.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sheshiro  
+##### 809#       发表于 2025-4-28 06:33
+
+挣脱大招然后强行用合体技按下去笑死人了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+反派女王是佐藤利奈啊，不会对q娃使用关节技吧
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
