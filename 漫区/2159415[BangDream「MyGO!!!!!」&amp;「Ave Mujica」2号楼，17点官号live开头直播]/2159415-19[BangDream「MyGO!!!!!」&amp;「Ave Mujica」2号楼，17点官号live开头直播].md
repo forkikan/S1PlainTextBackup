@@ -247,3 +247,25 @@ FES
 
 [https://x.com/cocohayashi515/status/1916098355085873463](https://x.com/cocohayashi515/status/1916098355085873463)
 
+
+*****
+
+####  CyDiablo  
+##### 27095#       发表于 2025-4-27 17:52
+
+ 本帖最后由 CyDiablo 于 2025-4-27 17:54 编辑 
+
+mujica：（旧闻）
+7.26-27 5th live LaLa arena TOKYO-BAY 
+
+mygo：
+8.6 7th single
+
+7.1 zepp divercity
+7.12 zepp osaka bayside
+7.30 zepp nagoya
+8.7 zepp sapporo
+12.6 8th live 京王arena tokyo （原武藏野之森）
+
+没有别的，没有cn追加<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

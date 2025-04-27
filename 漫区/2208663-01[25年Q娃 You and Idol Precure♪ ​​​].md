@@ -161,3 +161,11 @@
 
 梅洛和噗哩这配色是变q娃是标准黑白吧
 
+
+*****
+
+####  leleq  
+##### 805#       发表于 2025-4-27 17:46
+
+期待梅洛人形的常服是地雷本雷<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
