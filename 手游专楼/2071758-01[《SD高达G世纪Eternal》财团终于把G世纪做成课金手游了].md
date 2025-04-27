@@ -8520,3 +8520,20 @@ thx
 还有4个可招募的驾驶员</blockquote>
 没开PVP之前感觉用SP投资SR机体风险都很大，SP后面有没有效率获取方式还难说...
 
+
+*****
+
+####  blue321  
+##### 796#       发表于 2025-4-27 22:16
+
+盾机驾驶感觉整一个带加速的比较好，想拿来援护冲得太前的攻击机老是跟不上<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  innovation_s  
+##### 797#       发表于 2025-4-27 22:19
+
+国际服下载很慢是我的问题吗，试了梯子/裸连/雷神都不行
+

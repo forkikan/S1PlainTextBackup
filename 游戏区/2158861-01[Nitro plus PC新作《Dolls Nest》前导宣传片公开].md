@@ -1581,3 +1581,14 @@ BOSS也很粪。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那个流浪者吉尔贝利是没法救吗，去大空洞红门后面转了一圈回来丫就寻短见只留了一套衣服
 
+
+*****
+
+####  squallx  
+##### 152#       发表于 2025-4-27 22:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67761765&amp;ptid=2158861" target="_blank">black1991518 发表于 2025-4-27 21:47</a>
+
+那个流浪者吉尔贝利是没法救吗，去大空洞红门后面转了一圈回来丫就寻短见只留了一套衣服 ...</blockquote>
+贴吧有帖子 禁区敲掉个破墙里面隐藏房间拿道具
+
