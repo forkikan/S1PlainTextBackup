@@ -4951,3 +4951,38 @@ nga有人说祥子是萨卡兹</blockquote>
 
 就好啦 ​​​
 
+
+*****
+
+####  堀内爱里衣  
+##### 40618#       发表于 2025-4-27 08:53
+
+【CC中字】横K会场限定语音——三角初華×若葉睦×祐天寺喵梦
+[https://www.bilibili.com/video/BV1txLfzeETN](https://www.bilibili.com/video/BV1txLfzeETN)
+
+【BanG Dream!日服中字】椎名立希合同live限定卡面剧情《伪物和真物》
+[https://www.bilibili.com/video/BV1xxLozdEAK](https://www.bilibili.com/video/BV1xxLozdEAK)
+
+【BanG Dream!日服中字】长崎爽世合同live限定卡面剧情《真实的自我》
+[https://www.bilibili.com/video/BV1nqLozEEFZ](https://www.bilibili.com/video/BV1nqLozEEFZ)
+
+【BanG Dream!日服中字】要乐奈合同live限定卡面剧情《吉他的意义》
+[https://www.bilibili.com/video/BV1zfLdz5EJj](https://www.bilibili.com/video/BV1zfLdz5EJj)
+
+【BanG Dream!日服中字】千早爱音合同live限定卡面剧情《真正的决心》
+[https://www.bilibili.com/video/BV187LozwEmh](https://www.bilibili.com/video/BV187LozwEmh)
+
+【BanG Dream!日服中字】高松灯合同live限定卡面剧情《歌声与心声》
+[https://www.bilibili.com/video/BV1X3LozKEDq](https://www.bilibili.com/video/BV1X3LozKEDq)
+
+*****
+
+####  南宮凝香  
+##### 40619#       发表于 2025-4-27 08:57
+
+你雞是動畫爛了
+
+不是粉絲提不起刀，
+
+聯動需要取消
+
