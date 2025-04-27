@@ -8495,3 +8495,17 @@ thx
 
 2025-4-27 21:27 上传
 
+
+*****
+
+####  体制  
+##### 794#       发表于 2025-4-27 21:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67758610&amp;ptid=2071758" target="_blank">一个陆仁贾 发表于 2025-4-26 22:13</a>
+永恒之路怎么还限定系列作品的，一时半会没法满破Gqux了
+
+—— 来自 vivo V2419A, Android 15, 鹅球 v3.5.9 ...</blockquote>
+普通难度用一台100级卡池ur就能过啦，很简单的。
+
+—— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
