@@ -7610,3 +7610,16 @@ I am the Alpha and the Omega, the First and the Last, the Beginning and t ...</b
 
 老uc里舰船和ms用的信号弹也算吧？除非说军团战里扎古用的是对ms专用的闪光弹
 
+
+*****
+
+####  爱撕衣魔刃  
+##### 10032#       发表于 2025-4-28 00:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67760318&amp;ptid=2209276" target="_blank">serj005 发表于 2025-4-27 12:40</a>
+
+有个看完电影就开始纠结的问题
+
+为什么在ms里面的驾驶员会被闪光弹闪到</blockquote>
+ 三高达还特意加了强光防眩目的屏幕保护<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
