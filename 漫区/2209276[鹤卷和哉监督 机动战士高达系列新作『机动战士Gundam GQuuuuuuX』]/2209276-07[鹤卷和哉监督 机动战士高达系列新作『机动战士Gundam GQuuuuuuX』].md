@@ -7631,3 +7631,11 @@ I am the Alpha and the Omega, the First and the Last, the Beginning and t ...</b
 
 雷霆宙域里人棍哥倒是对伊欧用过一次闪光弹
 
+
+*****
+
+####  free  
+##### 10034#       发表于 2025-4-28 01:08
+
+为什么开高达要戴这么丑的毛线帽，还要给哈罗也戴上，是人设的某种性癖吗
+
