@@ -4912,3 +4912,16 @@ nga有人说祥子是萨卡兹</blockquote>
 
 给两个可能性吧 一个是毕竟是双向联动  一个是鸡腿确实能爆米
 
+
+*****
+
+####  osore  
+##### 40615#       发表于 2025-4-27 07:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67759254&amp;ptid=2208921" target="_blank">久井路路 发表于 2025-4-27 01:58</a>
+先不说祥怎么想
+
+至少初音很明显没有自己不会被祥抛弃的自信，所以不是一句“小祥不会这么做”呛回去，而是 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">初音虽然害怕被抛弃，但还是坚持给小祥泡咖啡，坚决不换小祥喜欢的红茶，太有原则了
+联系手游新卡剧情，小祥下班了不回初音家，跑去可以饮料畅饮的卡拉OK自费加班，偶遇soyo约好下次一起喝茶，画美不看
+
