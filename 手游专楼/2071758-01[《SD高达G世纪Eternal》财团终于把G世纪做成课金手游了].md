@@ -8366,3 +8366,13 @@ thx
 
 话说开发出来的UR机体现阶段有办法突破么....不会只能靠吃万能突破材料吧
 
+
+*****
+
+####  windtrack  
+##### 790#       发表于 2025-4-27 21:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67761483&amp;ptid=2071758" target="_blank">森兰丸 发表于 2025-4-27 20:15</a>
+话说开发出来的UR机体现阶段有办法突破么....不会只能靠吃万能突破材料吧</blockquote>
+开发ur机应该是无法突破，但开发到最终态后数据和三星一样。你看详情里最强转态，系统就直接给你展示的0星的
+
