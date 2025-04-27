@@ -8376,3 +8376,122 @@ thx
 话说开发出来的UR机体现阶段有办法突破么....不会只能靠吃万能突破材料吧</blockquote>
 开发ur机应该是无法突破，但开发到最终态后数据和三星一样。你看详情里最强转态，系统就直接给你展示的0星的
 
+
+*****
+
+####  诗怀雅  
+##### 791#       发表于 2025-4-27 21:21
+
+有个日本人写了个数据向的攻略，看着还行
+[https://wikiwiki.jp/gget/%E9%96% ... B%E3%83%83%E3%83%88](https://wikiwiki.jp/gget/%E9%96%8B%E7%99%BA%E3%81%8A%E5%8B%A7%E3%82%81%E3%83%A6%E3%83%8B%E3%83%83%E3%83%88)
+
+*****
+
+####  诗怀雅  
+##### 792#       发表于 2025-4-27 21:26
+
+然后这人在twi上推荐了8只SR
+
+<img src="https://img.stage1st.com/forum/202504/27/212610xrph4krkker8in8l.png" referrerpolicy="no-referrer">
+
+<strong>GpdCiWBbEAISb18.png</strong> (87.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 21:26 上传
+
+<img src="https://img.stage1st.com/forum/202504/27/212617ot1v4zj4drcjr5ju.png" referrerpolicy="no-referrer">
+
+<strong>GpdCv4nbYAA9VbX.png</strong> (103.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 21:26 上传
+
+<img src="https://img.stage1st.com/forum/202504/27/212620vuzqosseytqgftyy.png" referrerpolicy="no-referrer">
+
+<strong>GpdDBrHbEAAgBC0.png</strong> (90.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 21:26 上传
+
+<img src="https://img.stage1st.com/forum/202504/27/212624hkl4c1e5iliiiyoi.png" referrerpolicy="no-referrer">
+
+<strong>GpdDRuibEAIQCZp.png</strong> (105.98 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 21:26 上传
+
+<img src="https://img.stage1st.com/forum/202504/27/212635pqz907o70hbbnr1h.png" referrerpolicy="no-referrer">
+
+<strong>Gpe3GC0akAA3tIY.png</strong> (101.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 21:26 上传
+
+<img src="https://img.stage1st.com/forum/202504/27/212641zogldlvagyhe47eg.png" referrerpolicy="no-referrer">
+
+<strong>Gpe3gwQaoAAVYqK.png</strong> (103.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 21:26 上传
+
+<img src="https://img.stage1st.com/forum/202504/27/212646um3ommioimzimofm.png" referrerpolicy="no-referrer">
+
+<strong>Gpe4udzbcAA9z3W.png</strong> (137.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 21:26 上传
+
+<img src="https://img.stage1st.com/forum/202504/27/212649wbhw856shgwkchhc.png" referrerpolicy="no-referrer">
+
+<strong>Gpe4zLmbEAIa9yb.png</strong> (96.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 21:26 上传
+
+*****
+
+####  诗怀雅  
+##### 793#       发表于 2025-4-27 21:27
+
+还有4个可招募的驾驶员
+
+<img src="https://img.stage1st.com/forum/202504/27/212724uzi9k5toaxofyhok.png" referrerpolicy="no-referrer">
+
+<strong>GpivClOawAAlcfz.png</strong> (59.16 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 21:27 上传
+
+<img src="https://img.stage1st.com/forum/202504/27/212727v9wtimdtgg0dazg9.png" referrerpolicy="no-referrer">
+
+<strong>GpivWZ7aEAArEFQ.png</strong> (74.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 21:27 上传
+
+<img src="https://img.stage1st.com/forum/202504/27/212731mtqxqqb86jr0ppe1.png" referrerpolicy="no-referrer">
+
+<strong>Gpivh5PbkAAC_zs.png</strong> (68.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 21:27 上传
+
+<img src="https://img.stage1st.com/forum/202504/27/212734zok57n26nc81z11c.png" referrerpolicy="no-referrer">
+
+<strong>GpivmspacAApuhf.png</strong> (85.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 21:27 上传
+
