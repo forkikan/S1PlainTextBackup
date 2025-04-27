@@ -1605,3 +1605,27 @@ BOSS也很粪。
 
 只能二周目再见了
 
+
+*****
+
+####  madcow  
+##### 154#       发表于 2025-4-27 23:39
+
+<img src="https://img.stage1st.com/forum/202504/27/233915wxvvuo8xx4xxu7x3.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250427233905.png</strong> (45.05 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 23:39 上传
+
+<img src="https://img.stage1st.com/forum/202504/27/233915e0hnxhc2a3kqa13s.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250427233900.png</strong> (22.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 23:39 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">あんなものを浮かべて喜ぶか、変態どもが! ​​​
+
