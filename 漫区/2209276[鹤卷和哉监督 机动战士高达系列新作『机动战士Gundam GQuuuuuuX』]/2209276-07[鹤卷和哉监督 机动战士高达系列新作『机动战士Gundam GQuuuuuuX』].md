@@ -7373,3 +7373,19 @@ I am the Alpha and the Omega, the First and the Last, the Beginning and t ...</b
 
 来个不加滤镜的电焊视频看下多少人会“我的狗眼！”，都是装的吧？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江之岛右手  
+##### 10022#       发表于 2025-4-27 13:34
+
+ 本帖最后由 江之岛右手 于 2025-4-27 13:35 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67760318&amp;ptid=2209276" target="_blank">serj005 发表于 2025-4-27 12:40</a>
+
+有个看完电影就开始纠结的问题
+
+为什么在ms里面的驾驶员会被闪光弹闪到</blockquote>
+问就是米粒闪光蛋！
+
+老uc闪光蛋 我有印象的只有大魔胸口的散射激光
+
