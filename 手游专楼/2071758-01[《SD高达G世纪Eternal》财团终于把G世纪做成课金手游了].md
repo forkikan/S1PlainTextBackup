@@ -8550,3 +8550,11 @@ BWHHFJ2BFZEPBL
 楼友棒棒忙 我什么都会做的</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">填了你的，我现在14级
 
+
+*****
+
+####  HEERO.W  
+##### 799#       发表于 2025-4-27 22:37
+
+不SP的情况下真的要练SR？比开发的SSR中最强的那一档还厉害吗
+
