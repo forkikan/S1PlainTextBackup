@@ -181,3 +181,11 @@
 23年的甲子园也就这个水平。
 真的能算增长……嘛？<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑漆漆的漆漆  
+##### 1081#       发表于 2025-4-27 17:09
+
+已经7年了，是很长一段时间了。
+
