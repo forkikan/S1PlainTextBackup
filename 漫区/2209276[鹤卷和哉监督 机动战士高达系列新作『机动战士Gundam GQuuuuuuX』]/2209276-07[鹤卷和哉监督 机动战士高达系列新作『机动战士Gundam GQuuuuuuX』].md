@@ -7328,3 +7328,13 @@ the Beginning指的是裝了Alpha賽可謬的紅高達
 I am the Alpha and the Omega, the First and the Last, the Beginning and t ...</blockquote>
 好像很对<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Toby_dak  
+##### 10018#       发表于 2025-4-27 11:36
+
+迟了快三周的万楼<img src="https://static.stage1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+不过之前的讨论都陷入停滞状态，没有新剧情也聊不出什么东西。
+
