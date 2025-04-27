@@ -117,3 +117,11 @@
 
 —— 来自 HUAWEI FOA-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  199april  
+##### 801#       发表于 2025-4-27 14:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个新妖精，地雷女的配色，地雷女的行为，完全就是地雷女啊。
+
