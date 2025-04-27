@@ -135,3 +135,13 @@
 
 这集战斗还不错，升级的小怪能挣脱单人live，小怪吃得也越来越好了
 
+
+*****
+
+####  粉儿alice  
+##### 803#       发表于 2025-4-27 16:44
+
+所以说这两妖精不是亲姐妹了喽
+之前新闻误导人吗<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+都是正式的姐妹q娃还要准备等几年
+

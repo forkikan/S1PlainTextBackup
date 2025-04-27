@@ -7397,3 +7397,16 @@ I am the Alpha and the Omega, the First and the Last, the Beginning and t ...</b
 
 还有两天，就能看到真正的新剧情了
 
+
+*****
+
+####  123gp199  
+##### 10024#       发表于 2025-4-27 16:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67760318&amp;ptid=2209276" target="_blank">serj005 发表于 2025-4-27 12:40</a>
+
+有个看完电影就开始纠结的问题
+
+为什么在ms里面的驾驶员会被闪光弹闪到</blockquote>
+可以理解成电子战武器，既然充气玩具都能被MS的系统错误判断为真目标，那也许真存在一种能让驾驶舱屏幕高速频闪的bug也说不定，口袋妖怪当年可是靠电视机就搞出过癫痫发作不是（手动狗头）
+

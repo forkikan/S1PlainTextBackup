@@ -156,3 +156,19 @@
 
 唉，回想俺的过去三年差不多是完全停滞，只从烂透往外爬出来两步而已，这青春power太耀眼了不敢直视<img src="https://static.stage1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  渡鸦骑士  
+##### 1078#       发表于 2025-4-27 16:38
+
+不知不觉彩虹马车杯开了。今年同接好像也没有明显增长，整体的彩虹增长好像还是拉不动的样子？<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  渡鸦骑士  
+##### 1079#       发表于 2025-4-27 16:41
+
+对比一下去年的预选，同接大概多了一万左右。
+还是有的嘛，这样本战最高差不多25万？
+
