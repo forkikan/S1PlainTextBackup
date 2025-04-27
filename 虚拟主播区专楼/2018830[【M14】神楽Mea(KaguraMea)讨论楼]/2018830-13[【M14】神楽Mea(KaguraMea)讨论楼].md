@@ -3398,3 +3398,16 @@ ban了。吵死了啦。好恶心。  
 
 话说怎么改用火狐了
 
+
+*****
+
+####  术士q  
+##### 18359#       发表于 2025-4-27 13:58
+
+（banpick阶段）
+“***是啥?”
+“喔原来是fvk啊，我还以为是肯德基呢”
+“稍微变一下就变成kfc了wwww”
+“想吃肯德基了啊”
+可爱捏<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">，不过今天可不是木曜日
+
