@@ -8749,3 +8749,14 @@ BNQS73HN3ZP7C8
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">艹，发现前面漏油发的那个坑对面不防御的里技还能反过来用剩en，这个肯定要修的吧
 
+
+*****
+
+####  sql710  
+##### 819#       发表于 2025-4-28 12:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67762994&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-4-28 12:17</a>
+
+每天5次50钻体力的富哥买完之后再考虑买这个</blockquote>
+谢谢，那就完全没必要的~
+
