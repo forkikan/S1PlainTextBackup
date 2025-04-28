@@ -8970,3 +8970,21 @@ SF 攻击型 限定 正义 防御性 没写 估计是常驻
 
 给的抽卡资源太少了
 
+
+*****
+
+####  棍机凹升龙  
+##### 841#       发表于 2025-4-28 17:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67763770&amp;ptid=2071758" target="_blank">行政裁定书 发表于 2025-4-28 17:15</a>
+
+给的抽卡资源太少了</blockquote>
+全靠一次性资源囤着，后天预计一堆人破产转生
+
+*****
+
+####  kulanyee  
+##### 842#       发表于 2025-4-28 17:40
+
+SD高达G世纪Reincarnation<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

@@ -7742,3 +7742,14 @@ DESIGN WORKS 里的说法是月牙状耳环
 
 不但是耳环而且已经是早几个月就开卖了周边<img src="https://p.sda1.dev/23/b9745b70d5400ab9e263e5ea31865279/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  123gp199  
+##### 10045#       发表于 2025-4-28 17:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67761506&amp;ptid=2209276" target="_blank">天邪鬼 发表于 2025-4-27 20:22</a>
+
+就当omega赛克缪的连接效果是神经直连那种吧，不然也说不清楚新人上机可以直接开高达 ...</blockquote>
+对面打军团战的又不可能知道这是搭载有鸡瘟最新型新人类操作系统的机体，只能认为闪光弹是种常备武器，说明屏幕bug普遍存在于鸡瘟系机体操作系统，但为什么就是不修，只能认为鸡瘟尼克用的是阿三程序员（手动狗头）
+
