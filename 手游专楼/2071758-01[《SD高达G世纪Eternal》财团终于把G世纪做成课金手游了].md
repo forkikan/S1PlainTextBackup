@@ -8703,3 +8703,13 @@ UR是辅助，挂DEBUFF的，严格意义上不能和攻击机比
 铁血和水魔困难主线一队打起来很吃力，exia已经没办法一刀一个了，16w战力需求感觉要练两队啊 ...</blockquote>
 不行就隐藏和三星分开做，另外一队随便上个能加速跑路的就行<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无念  
+##### 814#       发表于 2025-4-28 11:22
+
+发现还有个国际服码：GGETPT
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
