@@ -206,3 +206,13 @@
 
 你看，又云，dora一直都是1k上下的水平
 
+
+*****
+
+####  渡鸦骑士  
+##### 1084#       发表于 2025-4-28 11:59
+
+1千上下和一千都保不住差别还是很大的吧。
+两年前掉一千一个月也就一两次。
+最近两个月能上千也就一两次<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

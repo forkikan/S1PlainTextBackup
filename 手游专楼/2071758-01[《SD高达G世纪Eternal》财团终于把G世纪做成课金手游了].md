@@ -8721,3 +8721,13 @@ UR是辅助，挂DEBUFF的，严格意义上不能和攻击机比
 
 请问商店里200钻石的【每日更新！AP包】值得购买么？<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alialex  
+##### 816#       发表于 2025-4-28 12:05
+
+BNQS73HN3ZP7C8
+
+这游戏邀请码怎么还是限时的。。。还有几天有人来诚信互刷吗，或者30号转生后刷也行，对强自无感我应该是不会转生了
+
