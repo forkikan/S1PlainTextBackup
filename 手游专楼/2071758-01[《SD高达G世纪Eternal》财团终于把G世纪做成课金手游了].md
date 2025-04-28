@@ -8623,3 +8623,16 @@ https://x.com/rihito4230/status/1916314350564085913
 
 <img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">艾比安拉满了，等一个大舅哥
 
+
+*****
+
+####  hayate0079  
+##### 806#       发表于 2025-4-28 09:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67762500&amp;ptid=2071758" target="_blank">horacio 发表于 2025-4-28 09:27</a>
+
+我拉了sr自由，的确比ur强太多了，看看限定能不能抽到，不然直接sp化都不亏 ...</blockquote>
+UR是辅助，挂DEBUFF的，严格意义上不能和攻击机比
+
+不过现阶段SR自由确实挺强的，不过上限也摆在那了
+
