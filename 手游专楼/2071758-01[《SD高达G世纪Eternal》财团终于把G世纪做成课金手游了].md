@@ -9032,3 +9032,11 @@ SD高达G世纪Reincarnation<img src="https://static.stage1st.com/image/smiley/f
 
 先骗你们把首冲全点一遍，以后再慢慢出月卡<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hayate0079  
+##### 848#       发表于 2025-4-28 19:24
+
+这游戏，抽完没钻，不抽没机师，真尼玛难受
+
