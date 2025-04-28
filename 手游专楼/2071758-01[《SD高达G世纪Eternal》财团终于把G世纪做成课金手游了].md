@@ -8693,3 +8693,13 @@ UR是辅助，挂DEBUFF的，严格意义上不能和攻击机比
 
 把活动本当狗粮本手动刷刷吐了
 
+
+*****
+
+####  dio999  
+##### 813#       发表于 2025-4-28 11:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67762589&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2025-4-28 10:05</a>
+铁血和水魔困难主线一队打起来很吃力，exia已经没办法一刀一个了，16w战力需求感觉要练两队啊 ...</blockquote>
+不行就隐藏和三星分开做，另外一队随便上个能加速跑路的就行<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
