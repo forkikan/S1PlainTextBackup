@@ -8933,3 +8933,14 @@ NTA这UR卡也太难用了，空中减移速，宇宙也不强，是有什么说
 
 —— 来自 Xiaomi 24031PN0DC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  体制  
+##### 837#       发表于 2025-4-28 16:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67763648&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2025-4-28 16:14</a>
+
+上了一个精神力过了水魔，铁血我再琢磨下</blockquote>
+如果没有ur支援机的话，推荐开发一个zz卡碧尼和流星自由放在自由配队里辅助。
+

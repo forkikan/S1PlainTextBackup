@@ -7734,3 +7734,11 @@ DESIGN WORKS 里的说法是月牙状耳环
 
 没有深仇大恨戴面具不就纯cosplay吗！<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 10044#       发表于 2025-4-28 16:30
+
+不但是耳环而且已经是早几个月就开卖了周边<img src="https://p.sda1.dev/23/b9745b70d5400ab9e263e5ea31865279/image.jpg" referrerpolicy="no-referrer">
+
