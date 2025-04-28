@@ -930,3 +930,11 @@ OPED映像解禁ーOPクセになる。
 实在不行还能加一个键盘。
 公主这边后面应该不止就三个吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  堆雪若叶  
+##### 90#       发表于 2025-4-28 23:45
+
+人物介绍里透了反派那边还有个leader，不过名字叫カリスト不是乐器可能就是主唱。顺便反派的血型分别是梅花方片红桃黑桃，星座也都凭空捏的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

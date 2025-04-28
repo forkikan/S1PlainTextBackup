@@ -1692,3 +1692,11 @@ PV里有教长伊登四手持枪的场面。实际游戏中有提到她是技师
 
 <img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">刺客妹子会偷偷刀人真是太黑了
 
+
+*****
+
+####  xisailuo  
+##### 162#       发表于 2025-4-28 23:42
+
+第一个区域在哪刷mp药，每次打boss都是弹药不足
+
