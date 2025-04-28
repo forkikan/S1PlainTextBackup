@@ -1684,3 +1684,11 @@ PV里有教长伊登四手持枪的场面。实际游戏中有提到她是技师
 
 伊登这个设定不当个boss真有点浪费了，遗憾。
 
+
+*****
+
+####  black1991518  
+##### 161#       发表于 2025-4-28 19:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">刺客妹子会偷偷刀人真是太黑了
+
