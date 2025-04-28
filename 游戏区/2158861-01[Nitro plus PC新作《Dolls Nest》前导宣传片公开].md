@@ -1656,3 +1656,15 @@ BOSS也很粪。
 
 20小时通关了 PV和世界之霸主LOGO那个场景游戏里好像根本没见着？会是DLC？
 
+
+*****
+
+####  oidoid  
+##### 158#       发表于 2025-4-28 10:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67762282&amp;ptid=2158861" target="_blank">squallx 发表于 2025-4-28 04:31</a>
+朝圣姐去了废屋就不能去教堂了吗</blockquote>
+不能了，虽然教会叫你带她来，但对话不会再有选项，你想要她装备得下周目了
+
+—— 来自 nubia NX721J, Android 14, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
