@@ -1708,3 +1708,13 @@ PV里有教长伊登四手持枪的场面。实际游戏中有提到她是技师
 
 你到底是怎么打的，狂丢肩架武器么……
 
+
+*****
+
+####  xisailuo  
+##### 164#       发表于 2025-4-29 01:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67764767&amp;ptid=2158861" target="_blank">oidoid 发表于 2025-4-29 00:21</a>
+你到底是怎么打的，狂丢肩架武器么……</blockquote>
+刚捡到一个拼命在用，好吧看了下视频准备改肉搏了
+
