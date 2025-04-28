@@ -7657,3 +7657,54 @@ I am the Alpha and the Omega, the First and the Last, the Beginning and t ...</b
 为什么开高达要戴这么丑的毛线帽，还要给哈罗也戴上，是人设的某种性癖吗 ...</blockquote>
 说是用来遮住脸，但看着完全没遮住<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  serj005  
+##### 10037#       发表于 2025-4-28 08:46
+
+戴针织帽的时候有一个对耳垂上弦月状红色东西的特写镜头，那个到底是耳饰还是耳朵上的特殊印记？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  千恋万花  
+##### 10038#       发表于 2025-4-28 08:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67762415&amp;ptid=2209276" target="_blank">serj005 发表于 2025-4-28 08:46</a>
+
+戴针织帽的时候有一个对耳垂上弦月状红色东西的特写镜头，那个到底是耳饰还是耳朵上的特殊印记？
+
+—— 来 ...</blockquote>
+DESIGN WORKS 里的说法是月牙状耳环
+
+<img src="https://img.stage1st.com/forum/202504/28/084805sfeve6h555o65emi.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.82 MB, 下载次数: 0)
+
+下载附件
+
+2025-4-28 08:48 上传
+
+*****
+
+####  YU_JI  
+##### 10039#       发表于 2025-4-28 08:50
+
+<blockquote>serj005 发表于 2025-4-28 08:46
+戴针织帽的时候有一个对耳垂上弦月状红色东西的特写镜头，那个到底是耳饰还是耳朵上的特殊印记？
+
+—— 来 ...</blockquote>
+是耳饰啦
+
+*****
+
+####  newise  
+##### 10040#       发表于 2025-4-28 08:50
+
+又不是∀那种驾驶舱，其实就没有换衣服的必要，都是为了展示小番茄的身材
+
+你看某住下水道的流浪汉装都不装的
+
