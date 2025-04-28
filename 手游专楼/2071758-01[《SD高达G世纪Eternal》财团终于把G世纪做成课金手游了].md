@@ -9014,3 +9014,13 @@ SD高达G世纪Reincarnation<img src="https://static.stage1st.com/image/smiley/f
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  jackyhuang  
+##### 846#       发表于 2025-4-28 18:28
+
+居然能让人怀念起边境也是不容易<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
