@@ -8798,3 +8798,15 @@ BNQS73HN3ZP7C8
 
 NTA这UR卡也太难用了，空中减移速，宇宙也不强，是有什么说法吗？
 
+
+*****
+
+####  马桶3  
+##### 824#       发表于 2025-4-28 14:41
+
+ 本帖最后由 马桶3 于 2025-4-28 14:43 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67763357&amp;ptid=2071758" target="_blank">alialex 发表于 2025-4-28 14:20</a>
+
+NTA这UR卡也太难用了，空中减移速，宇宙也不强，是有什么说法吗？</blockquote>
+机体仓管，驾驶员高难指定席位，各种系列的盾机轮流给他开，他和UR三明是目前游戏里唯二可以进行二次援防的角色
+
