@@ -4126,3 +4126,16 @@ source:前几天的2个t台留档
 
 以及合理怀疑你咩相关事情一半左右当场就说掉了，得一点点找
 
+
+*****
+
+####  TiHaru  
+##### 18376#       发表于 2025-4-29 03:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67764844&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2025-4-29 01:26</a>
+
+2024.8.25推限
+
+感觉我不太喜欢和人同居啊</blockquote>
+这一天讲的内容当时是套owo的，那段时间刚停止和owo双排斗魂，描述的性格也比较像，这个定个规矩甚至前段时间的五排里callback了一次，我觉得不用怀疑是别人
+
