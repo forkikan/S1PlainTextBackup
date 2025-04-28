@@ -8790,3 +8790,11 @@ BNQS73HN3ZP7C8
 哇，铁血这个困难各种减伤，哪来那么多物理c</blockquote>
 能天使继续加班，推图保姆不是浪得虚名<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alialex  
+##### 823#       发表于 2025-4-28 14:20
+
+NTA这UR卡也太难用了，空中减移速，宇宙也不强，是有什么说法吗？
+
