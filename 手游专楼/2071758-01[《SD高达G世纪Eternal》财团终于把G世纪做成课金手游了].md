@@ -8644,3 +8644,21 @@ UR是辅助，挂DEBUFF的，严格意义上不能和攻击机比
 
 只有3个UR，剩下全塞三星SSR才勉强到22w5的战力，最后一个上级者的任务应该会要求25w吧
 
+
+*****
+
+####  windtrack  
+##### 808#       发表于 2025-4-28 09:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67762135&amp;ptid=2071758" target="_blank">ddlsyo 发表于 2025-4-28 00:10</a>
+点开视频3台UR不都是满破3星吗。。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">我看岔了
+
+
+*****
+
+####  洛克萨斯  
+##### 809#       发表于 2025-4-28 10:05
+
+铁血和水魔困难主线一队打起来很吃力，exia已经没办法一刀一个了，16w战力需求感觉要练两队啊
+
