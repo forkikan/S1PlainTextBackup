@@ -9050,3 +9050,22 @@ SD高达G世纪Reincarnation<img src="https://static.stage1st.com/image/smiley/f
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  silvia  
+##### 850#       发表于 2025-4-28 23:31
+
+抽到了个ur独角兽
+
+*****
+
+####  远野乙姬  
+##### 851#       发表于 2025-4-28 23:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67761702&amp;ptid=2071758" target="_blank">诗怀雅 发表于 2025-4-27 21:26</a>
+然后这人在twi上推荐了8只SR</blockquote>
+我仔细看了下，强化zz格斗射击各一个觉醒，zz一身通常武器，那还有啥好说的…
+
+—— 来自 OPPO PKH110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+

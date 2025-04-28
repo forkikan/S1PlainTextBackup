@@ -6044,3 +6044,14 @@ MyGO!!!!!×Ave Mujica 合同LIVE「わかれ道の、その先へ」DAY2 : Geosm
 
 总感觉接下来成人歌也要出个mv是怎么回事
 
+
+*****
+
+####  Litccc  
+##### 40691#       发表于 2025-4-28 23:28
+
+<img src="https://p.sda1.dev/23/29f145d8c8dae8ea7340576924e807b8/06902fffad9d22c63aa37aac0267b79218144856.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/29a4691252bbba594df3608e7cee15f8/01d93f5993e9512e5525bb928b9ae1f918144856.jpg" referrerpolicy="no-referrer">
+
+疑似大祥老师爆改字幕<img src="https://static.stage1st.com/image/smiley/carton2017/482.png" referrerpolicy="no-referrer">
+
