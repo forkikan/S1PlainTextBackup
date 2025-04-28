@@ -6055,3 +6055,13 @@ MyGO!!!!!×Ave Mujica 合同LIVE「わかれ道の、その先へ」DAY2 : Geosm
 
 疑似大祥老师爆改字幕<img src="https://static.stage1st.com/image/smiley/carton2017/482.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adretyu67.  
+##### 40692#       发表于 2025-4-29 00:13
+
+不是不拿真初垫，而是真这个人连当垫子的价值都没有。
+
+就像当初传言鸡12会出现甜甜圈去岛上给真初华唱歌这么离谱的剧情。
+
