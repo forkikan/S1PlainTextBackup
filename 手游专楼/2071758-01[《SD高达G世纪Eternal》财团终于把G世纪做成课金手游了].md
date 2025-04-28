@@ -8760,3 +8760,14 @@ BNQS73HN3ZP7C8
 每天5次50钻体力的富哥买完之后再考虑买这个</blockquote>
 谢谢，那就完全没必要的~
 
+
+*****
+
+####  马桶3  
+##### 820#       发表于 2025-4-28 13:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67762879&amp;ptid=2071758" target="_blank">sql710 发表于 2025-4-28 11:53</a>
+
+请问商店里200钻石的【每日更新！AP包】值得购买么？</blockquote>
+不值得，要体力直接50钻换50体，这个200钻是给50体加一堆小辣鸡
+
