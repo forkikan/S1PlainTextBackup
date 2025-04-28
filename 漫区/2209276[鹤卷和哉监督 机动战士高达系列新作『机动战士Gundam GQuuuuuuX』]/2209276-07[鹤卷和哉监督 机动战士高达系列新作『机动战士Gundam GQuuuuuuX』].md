@@ -7827,3 +7827,19 @@ DESIGN WORKS 里的说法是月牙状耳环
 
 哈罗戴帽子不就是为了让玛秋薅下来戴，属实是为了醋包的饺子<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 10048#       发表于 2025-4-28 19:41
+
+[X 上的 機動戦士Gundam GQuuuuuuX（ジークアクス）：“◤キャストトーク#2◢ 5月3日(土)22時から、#ガンチャン にてキャストトーク#2プレミア公開が決定！ #黒沢ともよ さん&amp; #土屋神葉 さんが、第4話「魔女の戦争」のオーディオコメンタリーをお届け！ ▼ガンダムチャンネル [url]https://t.co/p43yR5r7Yc](https://x.com/G_GQuuuuuuX/status/1916817171121930712) [https://t.co/fCZzirjs1l](https://t.co/fCZzirjs1l)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202504/28/194131g6s8psauctebps40.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.62 MB, 下载次数: 0)
+
+下载附件
+
+2025-4-28 19:41 上传
+
