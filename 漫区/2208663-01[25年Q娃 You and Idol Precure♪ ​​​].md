@@ -222,3 +222,22 @@
 
 还好不是真姐姐，我果然无法接受姐系属性被追加到这银兽上面<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 811#       发表于 2025-4-28 12:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67762302&amp;ptid=2208663" target="_blank">sheshiro 发表于 2025-4-28 06:33</a>
+
+挣脱大招然后强行用合体技按下去笑死人了
+
+反派女王是佐藤利奈啊，不会对q娃使用关节技吧</blockquote>
+“该听演唱会了”
+
+“我不想听！”
+
+“不，你想”
+
+怎么说呢，这个桥段真的是我能在周日早上看到的吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
