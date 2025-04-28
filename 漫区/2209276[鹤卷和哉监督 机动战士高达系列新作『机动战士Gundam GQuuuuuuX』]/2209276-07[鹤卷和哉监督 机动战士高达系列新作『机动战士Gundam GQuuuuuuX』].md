@@ -7647,3 +7647,13 @@ I am the Alpha and the Omega, the First and the Last, the Beginning and t ...</b
 
 竹的针织帽jk很好
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 10036#       发表于 2025-4-28 08:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67762206&amp;ptid=2209276" target="_blank">free 发表于 2025-4-28 01:08</a>
+为什么开高达要戴这么丑的毛线帽，还要给哈罗也戴上，是人设的某种性癖吗 ...</blockquote>
+说是用来遮住脸，但看着完全没遮住<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
