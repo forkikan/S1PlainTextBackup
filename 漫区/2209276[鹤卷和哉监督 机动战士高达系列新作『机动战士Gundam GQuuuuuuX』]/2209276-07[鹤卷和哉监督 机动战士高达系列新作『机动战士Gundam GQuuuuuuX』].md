@@ -7880,3 +7880,16 @@ DESIGN WORKS 里的说法是月牙状耳环
 
 这个谈话节目居然不是每集都有而是跳着放的，第四集就是麻球修司组了，喵安越看越像藏着个大的，跳反可能性又上升了
 
+
+*****
+
+####  psycho_Gadfly  
+##### 10052#       发表于 2025-4-28 21:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67764157&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-4-28 19:41</a>
+
+X 上的 機動戦士Gundam GQuuuuuuX（ジークアクス）：“◤キャストトーク#2◢ 5月3日(土)22時から、#ガンチ ...</blockquote>
+这组合，流浪汉不会真是一话下线吧<img src="https://static.stage1st.com/image/smiley/carton2017/276.png" referrerpolicy="no-referrer">
+
+不过颠颠的魔女酱太可爱了，期待多活跃几话
+
