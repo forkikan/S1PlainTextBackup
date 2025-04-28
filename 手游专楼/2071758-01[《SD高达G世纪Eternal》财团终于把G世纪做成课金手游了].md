@@ -8898,3 +8898,38 @@ NTA这UR卡也太难用了，空中减移速，宇宙也不强，是有什么说
 —— 来自 Xiaomi 2211133C, Android 15, 鹅球 v3.5.99-alpha ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">上了一个精神力过了水魔，铁血我再琢磨下
 
+
+*****
+
+####  无念  
+##### 834#       发表于 2025-4-28 16:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67763622&amp;ptid=2071758" target="_blank">12481632 发表于 2025-4-28 16:02</a>
+像Z，ZZ这种主线已经完了的，虽然现在没ur，后面也早晚出各种换皮ur版本来骗你口袋里的钱 ...</blockquote>
+想想都知道了，主角和宿敌肯定都有卡池UR等着你呢，别的不说，精神病mk2和红卡黑卡都只有个sr版本怎么可能嘛<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  无念  
+##### 835#       发表于 2025-4-28 16:24
+
+唐突更新了一个1.0.6，不知道切技能骗防御bug修了没
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  光辉传递者  
+##### 836#       发表于 2025-4-28 16:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67763592&amp;ptid=2071758" target="_blank">体制 发表于 2025-4-28 15:52</a>
+没刷到呀，漏油讲讲怎么搞或者给个定位
+
+—— 来自 Xiaomi 2211133C, Android 15, 鹅球 v3.5.99-alpha ...</blockquote>
+往前翻翻就有，765楼。
+
+—— 来自 Xiaomi 24031PN0DC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
