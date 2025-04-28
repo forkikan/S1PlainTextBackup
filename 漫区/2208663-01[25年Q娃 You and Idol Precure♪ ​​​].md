@@ -241,3 +241,21 @@
 
 怎么说呢，这个桥段真的是我能在周日早上看到的吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sheshiro  
+##### 812#       发表于 2025-4-28 13:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67763065&amp;ptid=2208663" target="_blank">pokemon最爱 发表于 2025-4-28 12:43</a>
+“该听演唱会了”
+
+“我不想听！”
+
+“不，你想”</blockquote>
+霓虹小友怕不是已经在sns地狱里闯荡N久的样子了，莫慌
+
+主要是刚蹦起来又被压下去转瞬即逝的样子确实笑点很怪，本届q娃总在莫名其妙的地方搞出点活来
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
