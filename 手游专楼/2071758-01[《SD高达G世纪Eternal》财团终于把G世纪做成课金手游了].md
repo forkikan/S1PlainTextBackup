@@ -8885,3 +8885,16 @@ NTA这UR卡也太难用了，空中减移速，宇宙也不强，是有什么说
 
 像Z，ZZ这种主线已经完了的，虽然现在没ur，后面也早晚出各种换皮ur版本来骗你口袋里的钱
 
+
+*****
+
+####  洛克萨斯  
+##### 833#       发表于 2025-4-28 16:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67763590&amp;ptid=2071758" target="_blank">体制 发表于 2025-4-28 15:51</a>
+
+你辅助呢，支援降防机拉一个啊。
+
+—— 来自 Xiaomi 2211133C, Android 15, 鹅球 v3.5.99-alpha ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">上了一个精神力过了水魔，铁血我再琢磨下
+
