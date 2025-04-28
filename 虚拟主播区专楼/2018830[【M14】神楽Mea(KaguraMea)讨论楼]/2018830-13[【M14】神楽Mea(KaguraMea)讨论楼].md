@@ -3460,3 +3460,17 @@ ban了。吵死了啦。好恶心。  
 btw，【歌枠/アーカイブなし】の～ん【神楽めあ】 准确时间是2024年2月27号，请问楼友这个存档全网还有吗，一直没找到
 B站上的几个合集都没看到这个档，没记错的话就发生在官组和现在的公司干架那段时间
 
+
+*****
+
+####  shmilyhua  
+##### 18366#       发表于 2025-4-28 21:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67763728&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2025-4-28 16:55</a>
+btw，【歌枠/アーカイブなし】の～ん【神楽めあ】 准确时间是2024年2月27号，请问楼友这个存档全网还有吗， ...</blockquote>
+我那儿有啊。
+BV1ez421b76t
+P188
+
+—— 来自 Google Pixel 8 Pro, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

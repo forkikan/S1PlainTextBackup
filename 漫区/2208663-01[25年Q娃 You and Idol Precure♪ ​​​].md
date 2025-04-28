@@ -269,3 +269,21 @@
 
 第 12 集的 TVer 源（含日字）：magnet:?xt=urn:btih:b3b263859ea22309030e2ac9473621c8265bf64d
 
+
+*****
+
+####  jaewoongh_  
+##### 814#       发表于 2025-4-28 21:42
+
+还能被300英雄偷啊，真的牛批
+
+[https://300.jumpw.com/details/301/17034.html](https://300.jumpw.com/details/301/17034.html)
+
+<img src="https://img.stage1st.com/forum/202504/28/214200o8lub7zjj03bn8m4.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2025-04-28 214105.png</strong> (1.13 MB, 下载次数: 0)
+
+下载附件
+
+2025-4-28 21:42 上传
+
