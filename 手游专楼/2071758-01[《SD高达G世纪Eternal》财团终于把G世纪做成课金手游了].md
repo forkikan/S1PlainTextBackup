@@ -9040,3 +9040,13 @@ SD高达G世纪Reincarnation<img src="https://static.stage1st.com/image/smiley/f
 
 这游戏，抽完没钻，不抽没机师，真尼玛难受
 
+
+*****
+
+####  棍机凹升龙  
+##### 849#       发表于 2025-4-28 22:06
+
+正义是盾机<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
