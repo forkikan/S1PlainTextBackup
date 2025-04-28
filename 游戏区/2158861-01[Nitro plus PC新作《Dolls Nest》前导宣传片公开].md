@@ -1726,3 +1726,16 @@ PV里有教长伊登四手持枪的场面。实际游戏中有提到她是技师
 
 技术力和预算穷酸得像同人作，但故事设定和人物形象刻画又很老练，神奇的搭配<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  squallx  
+##### 166#       发表于 2025-4-29 05:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67764875&amp;ptid=2158861" target="_blank">sauron.j 发表于 2025-4-29 02:25</a>
+技术力和预算穷酸得像同人作，但故事设定和人物形象刻画又很老练，神奇的搭配 ...</blockquote>
+传统adv厂一上来就做3d大多如此 单从gameplay来说这几乎是黄油上岸巅峰了 
+baldr系列那种本来就是act的除外
+
+—— 来自 OnePlus PJZ110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
