@@ -8673,3 +8673,15 @@ UR是辅助，挂DEBUFF的，严格意义上不能和攻击机比
 铁血和水魔困难主线一队打起来很吃力，exia已经没办法一刀一个了，16w战力需求感觉要练两队啊 ...</blockquote>
 一队主力力保3星应该还是会比上多一队杂兵被人爆好一点
 
+
+*****
+
+####  无念  
+##### 811#       发表于 2025-4-28 10:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67762589&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2025-4-28 10:05</a>
+铁血和水魔困难主线一队打起来很吃力，exia已经没办法一刀一个了，16w战力需求感觉要练两队啊 ...</blockquote>
+练降防黄机给能天使和G夸克当增幅器啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
