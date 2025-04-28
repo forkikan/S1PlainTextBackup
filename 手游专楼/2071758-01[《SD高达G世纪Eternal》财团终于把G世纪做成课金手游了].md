@@ -9004,3 +9004,13 @@ SD高达G世纪Reincarnation<img src="https://static.stage1st.com/image/smiley/f
 
 一个关卡才50钻，而一抽要300钻<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一个陆仁贾  
+##### 845#       发表于 2025-4-28 18:07
+
+体感财团b以往高达手游好像都是抠抠索索的
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

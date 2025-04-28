@@ -7753,3 +7753,69 @@ DESIGN WORKS 里的说法是月牙状耳环
 就当omega赛克缪的连接效果是神经直连那种吧，不然也说不清楚新人上机可以直接开高达 ...</blockquote>
 对面打军团战的又不可能知道这是搭载有鸡瘟最新型新人类操作系统的机体，只能认为闪光弹是种常备武器，说明屏幕bug普遍存在于鸡瘟系机体操作系统，但为什么就是不修，只能认为鸡瘟尼克用的是阿三程序员（手动狗头）
 
+
+*****
+
+####  岸浪白野  
+##### 10046#       发表于 2025-4-28 18:12
+
+[X 上的 量产型马克兔：“GQuuuuuux X トップをねらえ2! #GQuuuuuuX #ジークアクス [url]https://t.co/ZAYUSv7h9w](https://x.com/ohBSSHou0L27nNS/status/1916134434426044686)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202504/28/181241kd29byeebgcbcdjn.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250428181157.jpg</strong> (799.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-28 18:12 上传
+
+[X 上的 へび：“[url]https://t.co/8n8P9QS88Z](https://x.com/rarata6o/status/1916456367629668352)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202504/28/175848os200w3v0521vvwe.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.56 MB, 下载次数: 0)
+
+下载附件
+
+2025-4-28 17:58 上传
+
+[X 上的 ビオ@4/29 浅草 MVLV R04 石神井公園Beginning：“ジークアクスとニャアン [url]https://t.co/nwFJ8uAQVe](https://x.com/motenaikitakami/status/1916478776541605957)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202504/28/175932mesch4ifir4iorcg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.92 MB, 下载次数: 0)
+
+下载附件
+
+2025-4-28 17:59 上传
+
+[X 上的 音部屋：“#ジークアクス #GQuuuuuuX #ニャアン [url]https://t.co/mDowy7nlwb](https://x.com/oto_be/status/1916561919210930266)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202504/28/180900zx77xtp56mf7ztp8.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250428180750.jpg</strong> (717 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-28 18:09 上传
+
+[X 上的 おおね：“[url]https://t.co/2oVmFpjQEu](https://x.com/NzeNeee/status/1916554623185293656)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202504/28/180939dbcpy0njnwob9ynj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.79 MB, 下载次数: 0)
+
+下载附件
+
+2025-4-28 18:09 上传
+
+[X 上的 양갈래：“🍅 [url]https://t.co/eEmLAaXlpa](https://x.com/2wintail__/status/1916781003928207492)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202504/28/181118e6cbzcnbt8tnhh2u.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250428181035.jpg</strong> (519.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-28 18:11 上传
+
