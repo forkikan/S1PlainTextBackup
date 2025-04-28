@@ -8988,3 +8988,19 @@ SF 攻击型 限定 正义 防御性 没写 估计是常驻
 
 SD高达G世纪Reincarnation<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 843#       发表于 2025-4-28 17:55
+
+就这点资源，没有一井不敢抽卡的，万代给的太抠了，连个月卡都没有
+
+
+*****
+
+####  胖达君  
+##### 844#       发表于 2025-4-28 18:03
+
+一个关卡才50钻，而一抽要300钻<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
