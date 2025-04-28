@@ -259,3 +259,13 @@
 
 —— 来自 Xiaomi Redmi K30 Pro, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  咲良うた  
+##### 813#       发表于 2025-4-28 17:00
+
+第 11 集的 TVer 源（含日字）：magnet:?xt=urn:btih:ede1018a42134351cbb5a67253147eddca0d28c5
+
+第 12 集的 TVer 源（含日字）：magnet:?xt=urn:btih:b3b263859ea22309030e2ac9473621c8265bf64d
+
