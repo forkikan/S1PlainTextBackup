@@ -5693,3 +5693,338 @@ b站反田视频下面气氛搞得好像她要死了一样😅
 
 [https://x.com/Kanon_Takao/status/1916487518394187818](https://x.com/Kanon_Takao/status/1916487518394187818)
 
+
+*****
+
+####  堀内爱里衣  
+##### 40669#       发表于 2025-4-27 20:00
+
+ 本帖最后由 堀内爱里衣 于 2025-4-27 21:17 编辑 
+
+<img src="https://img.stage1st.com/forum/202504/27/200005rvfesa11tffvjsxa.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-04-27_19-59-32.jpg</strong> (511.44 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 20:00 上传
+
+[https://x.com/tanda_hazuki/status/1916454090856620160](https://x.com/tanda_hazuki/status/1916454090856620160)
+
+<img src="https://img.stage1st.com/forum/202504/27/200022gbbvbpqt8ebk0ep0.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-04-27_20-00-13.jpg</strong> (138.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 20:00 上传
+
+[https://x.com/tanda_hazuki/status/1916456669158248847](https://x.com/tanda_hazuki/status/1916456669158248847)
+
+<img src="https://img.stage1st.com/forum/202504/27/211214ez7hfdmmffb7cgun.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-04-27_21-11-36.jpg</strong> (285.74 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 21:12 上传
+
+[https://x.com/tanda_hazuki/status/1916474133212434647](https://x.com/tanda_hazuki/status/1916474133212434647)
+
+<img src="https://img.stage1st.com/forum/202504/27/211640k8uuzv1wttc7uvg7.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-04-27_21-15-14jpg.jpg</strong> (688.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 21:16 上传
+
+[https://x.com/tanda_hazuki/status/1916475590502436946](https://x.com/tanda_hazuki/status/1916475590502436946)
+
+*****
+
+####  堀内爱里衣  
+##### 40670#       发表于 2025-4-27 20:08
+
+<img src="https://img.stage1st.com/forum/202504/27/200827rx4rky9rskrpfnn3.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-04-27_20-07-55.jpg</strong> (235.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 20:08 上传
+
+[https://x.com/sasakirico/status/1916457383523684772](https://x.com/sasakirico/status/1916457383523684772)
+
+*****
+
+####  丰川祥  
+##### 40671#       发表于 2025-4-27 20:15
+
+ 本帖最后由 丰川祥 于 2025-4-27 20:17 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202504/27/201656fziwrddthjj5xhtr.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0507.jpeg</strong> (247.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 20:16 上传
+
+https://x.com/toto_rabpit3/status/1916432456439463964?s=46&amp;t=f6AHdCYYYf4AJriUAv-uLQ
+
+*****
+
+####  堀内爱里衣  
+##### 40672#       发表于 2025-4-27 20:51
+
+ 本帖最后由 堀内爱里衣 于 2025-4-27 22:32 编辑 
+
+<strong>MyGO!!!!!×Ave Mujica 合同LIVE「わかれ道の、その先へ」DAY2 : Geosmin</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202504/27/223148y03lcgc5lxgx55du.jpg" referrerpolicy="no-referrer">
+
+<strong>986572994e2843043b232e6ab8275c8a703a8228.jpg</strong> (266.49 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 22:31 上传
+
+MyGO!!!!!×Ave Mujica 合同LIVE「わかれ道の、その先へ」DAY2 : Geosmin
+
+字幕完成之后会进行换源，请耐心等待。
+
+充电视频公开期限：5月4日(周日) 22:59截止</blockquote>
+[https://www.bilibili.com/video/BV1VLLBzDExL](https://www.bilibili.com/video/BV1VLLBzDExL)
+
+*****
+
+####  堀内爱里衣  
+##### 40673#       发表于 2025-4-27 21:05
+
+<img src="https://img.stage1st.com/forum/202504/27/210428cjpe11le3zqev6aq.jpg" referrerpolicy="no-referrer">
+[https://x.com/anime_tokyo/status/1916462334165622930](https://x.com/anime_tokyo/status/1916462334165622930)
+
+*****
+
+####  堀内爱里衣  
+##### 40674#       发表于 2025-4-27 21:19
+
+<img src="https://img.stage1st.com/forum/202504/27/211931cyg35ez53eo8gqiy.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-04-27_21-19-09.jpg</strong> (274.94 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 21:19 上传
+
+[https://x.com/Watase_Yuzuki/status/1916471857450193146](https://x.com/Watase_Yuzuki/status/1916471857450193146)
+
+*****
+
+####  堀内爱里衣  
+##### 40675#       发表于 2025-4-27 21:20
+
+<img src="https://img.stage1st.com/forum/202504/27/212015gignn9p3wnz8v7w3.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-04-27_21-20-01.jpg</strong> (236.77 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 21:20 上传
+
+[https://x.com/okada_mei0519/status/1916469869744382056](https://x.com/okada_mei0519/status/1916469869744382056)
+
+*****
+
+####  社美胡  
+##### 40676#       发表于 2025-4-27 21:21
+
+[https://x.com/zhanzhangzlw/status/1916182902192411028](https://x.com/zhanzhangzlw/status/1916182902192411028)
+
+<img src="https://img.stage1st.com/forum/202504/27/212120khfwrr6mhsrwllyk.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>GpelfCbbEAA655K.jpeg</strong> (215.19 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 21:21 上传
+
+*****
+
+####  社美胡  
+##### 40677#       发表于 2025-4-27 21:22
+
+[https://x.com/hashratio/status/1916455535685128458/photo/1](https://x.com/hashratio/status/1916455535685128458/photo/1)
+
+<img src="https://img.stage1st.com/forum/202504/27/212222qdm346qzdyqrff65.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>Gphfce9bMAAXktz.jpeg</strong> (137.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 21:22 上传
+
+*****
+
+####  社美胡  
+##### 40678#       发表于 2025-4-27 21:22
+
+[https://x.com/maymaymay7523/status/1916359409032376683/photo/1](https://x.com/maymaymay7523/status/1916359409032376683/photo/1)
+
+<img src="https://img.stage1st.com/forum/202504/27/212256yikri5accc2wa527.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>GphGuJxbEAIIP2h.jpeg</strong> (382.87 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 21:22 上传
+
+*****
+
+####  社美胡  
+##### 40679#       发表于 2025-4-27 21:23
+
+[https://x.com/yakaze1604/status/1916382972712038635/photo/1](https://x.com/yakaze1604/status/1916382972712038635/photo/1)
+
+<img src="https://img.stage1st.com/forum/202504/27/212332kr9s44yhq4q499dq.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>GphbzRYbEAE-g-1.jpeg</strong> (358.82 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 21:23 上传
+
+*****
+
+####  社美胡  
+##### 40680#       发表于 2025-4-27 21:24
+
+[https://x.com/keyun69250303/status/1915957065274823012/photo/1](https://x.com/keyun69250303/status/1915957065274823012/photo/1)
+
+<img src="https://img.stage1st.com/forum/202504/27/212431lwyorhwryqtg54ar.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>GpbYyi-bEAAGatk.jpeg</strong> (416.31 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 21:24 上传
+
+
+*****
+
+####  社美胡  
+##### 40681#       发表于 2025-4-27 21:25
+
+[https://x.com/owiphony/status/1916169588682985614/photo/1](https://x.com/owiphony/status/1916169588682985614/photo/1)
+
+<img src="https://img.stage1st.com/forum/202504/27/212556mt9wdtupy83r88r2.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>GpeaFCsbEAElfJe.jpeg</strong> (628.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 21:25 上传
+
+*****
+
+####  社美胡  
+##### 40682#       发表于 2025-4-27 21:27
+
+[https://x.com/__sierit/status/1916389518627967047](https://x.com/__sierit/status/1916389518627967047)
+
+<img src="https://img.stage1st.com/forum/202504/27/212749be5bmmrbbruvc990.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>GphiHHAa4AAxDAy.jpeg</strong> (197.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 21:27 上传
+
+<img src="https://img.stage1st.com/forum/202504/27/212749yuz77j1ch2g2jclj.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>GphiHGSbEAELKKg.jpeg</strong> (209.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 21:27 上传
+
+*****
+
+####  社美胡  
+##### 40683#       发表于 2025-4-27 21:28
+
+[https://x.com/GirLover_Ureka/status/1916341098349318346](https://x.com/GirLover_Ureka/status/1916341098349318346)
+
+<img src="https://img.stage1st.com/forum/202504/27/212855qjgyxe1om5r7lmr5.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>Gpg2EeWbEAAAwjJ.jpeg</strong> (234.32 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 21:28 上传
+
+*****
+
+####  社美胡  
+##### 40684#       发表于 2025-4-27 21:29
+
+[https://x.com/rrin_nt/status/1916425248271933667/photo/1](https://x.com/rrin_nt/status/1916425248271933667/photo/1)
+
+<img src="https://img.stage1st.com/forum/202504/27/212931merqf7t8bt228ddt.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>GpiCmsra4AAdLV0.jpeg</strong> (403.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 21:29 上传
+
+*****
+
+####  仟音一心  
+##### 40685#       发表于 2025-4-27 21:30
+
+<img src="https://p.sda1.dev/23/40f8eba7302bc8bf3fb4d0128a5bde9e/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/fa76b0c4c3facc669db7bd0e77a3a40c/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  社美胡  
+##### 40686#       发表于 2025-4-27 21:30
+
+[https://x.com/strawberry12t/status/1916439600220041657/photo/1](https://x.com/strawberry12t/status/1916439600220041657/photo/1)
+
+<img src="https://img.stage1st.com/forum/202504/27/213026tnx9j6sgmqq600g6.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>GpiPp_XacAAAsny.jpeg</strong> (451.31 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 21:30 上传
+
+*****
+
+####  堀内爱里衣  
+##### 40687#       发表于 2025-4-27 22:11
+
+<img src="https://img.stage1st.com/forum/202504/27/221120lzxnt0vxtmfzv6sx.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-04-27_22-10-55.jpg</strong> (248.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 22:11 上传
+
+[https://x.com/Kanon_Takao/status/1916487518394187818](https://x.com/Kanon_Takao/status/1916487518394187818)
+
+*****
+
+####  kenqqex  
+##### 40688#       发表于 2025-4-28 08:54
+
+[https://www.bilibili.com/video/BV1xxLozdEAK/](https://www.bilibili.com/video/BV1xxLozdEAK/)
+
+往下5个视频就是动画真结局了
+
