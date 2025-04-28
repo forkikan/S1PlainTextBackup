@@ -1290,3 +1290,13 @@ B站没和谐啊
 
 唉这种群像剧一个礼拜一集看着好难受，一气呵成看肯定爽爆
 
+
+*****
+
+####  acejoe  
+##### 129#       发表于 2025-4-28 15:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67763250&amp;ptid=2125794" target="_blank">达达葱2 发表于 2025-4-28 13:50</a>
+近期不靠台词讲故事的动画求推荐</blockquote>
+国产就没啥不靠台词的，问题是尬
+

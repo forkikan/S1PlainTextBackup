@@ -8837,3 +8837,35 @@ NTA这UR卡也太难用了，空中减移速，宇宙也不强，是有什么说
 要氪金的话该怎么搞？安卓的，想用rmb氪，本地货币手头有点紧</blockquote>
 谷歌安卓端 港服 随便写个香港地址 绑国内银行卡
 
+
+*****
+
+####  洛克萨斯  
+##### 828#       发表于 2025-4-28 15:51
+
+其实不是很懂开服这批ur机体是怎么选的............说人气机体有些又不是，说tv/剧场版主角机有些也不是
+
+正常来说应该是开服tv作品的主角机ur+g世纪主角凤凰吧
+
+*****
+
+####  体制  
+##### 829#       发表于 2025-4-28 15:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67762589&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2025-4-28 10:05</a>
+铁血和水魔困难主线一队打起来很吃力，exia已经没办法一刀一个了，16w战力需求感觉要练两队啊 ...</blockquote>
+你辅助呢，支援降防机拉一个啊。
+
+—— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  体制  
+##### 830#       发表于 2025-4-28 15:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67762997&amp;ptid=2071758" target="_blank">nagamasa 发表于 2025-4-28 12:18</a>
+艹，发现前面漏油发的那个坑对面不防御的里技还能反过来用剩en，这个肯定要修的吧 ...</blockquote>
+没刷到呀，漏油讲讲怎么搞或者给个定位
+
+—— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
