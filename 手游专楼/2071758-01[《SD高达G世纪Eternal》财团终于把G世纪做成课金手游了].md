@@ -8731,3 +8731,21 @@ BNQS73HN3ZP7C8
 
 这游戏邀请码怎么还是限时的。。。还有几天有人来诚信互刷吗，或者30号转生后刷也行，对强自无感我应该是不会转生了
 
+
+*****
+
+####  rockroxas  
+##### 817#       发表于 2025-4-28 12:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67762879&amp;ptid=2071758" target="_blank">sql710 发表于 2025-4-28 11:53</a>
+
+请问商店里200钻石的【每日更新！AP包】值得购买么？</blockquote>
+每天5次50钻体力的富哥买完之后再考虑买这个
+
+*****
+
+####  nagamasa  
+##### 818#       发表于 2025-4-28 12:18
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">艹，发现前面漏油发的那个坑对面不防御的里技还能反过来用剩en，这个肯定要修的吧
+
