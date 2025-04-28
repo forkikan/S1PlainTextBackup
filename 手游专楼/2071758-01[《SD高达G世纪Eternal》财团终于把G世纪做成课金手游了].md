@@ -8869,3 +8869,19 @@ NTA这UR卡也太难用了，空中减移速，宇宙也不强，是有什么说
 
 —— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  王俊凯  
+##### 831#       发表于 2025-4-28 15:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">ur爱出谁就出谁 你看封面那些以后肯定挨个出
+
+
+*****
+
+####  12481632  
+##### 832#       发表于 2025-4-28 16:02
+
+像Z，ZZ这种主线已经完了的，虽然现在没ur，后面也早晚出各种换皮ur版本来骗你口袋里的钱
+
