@@ -224,3 +224,15 @@
 
 没找到彩虹社专楼，借地问下有没有人记得草莓大福和熊猫人一起去北海道泡温泉是哪期视频，能给个链接的话最好
 
+
+*****
+
+####  usodakedo  
+##### 1086#       发表于 2025-4-28 20:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67764002&amp;ptid=2171972" target="_blank">莉可厨 发表于 2025-4-28 18:45</a>
+
+没找到彩虹社专楼，借地问下有没有人记得草莓大福和熊猫人一起去北海道泡温泉是哪期视频，能给个链接的话最 ...</blockquote>
+是不是这个
+[https://www.bilibili.com/video/B ... 9723db41c045a2c3b1d](https://www.bilibili.com/video/BV1gT41177uB/?share_source=copy_web&amp;vd_source=ec58507b88db49723db41c045a2c3b1d)
+
