@@ -8607,3 +8607,19 @@ https://x.com/rihito4230/status/1916314350564085913
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  horacio  
+##### 804#       发表于 2025-4-28 09:27
+
+我拉了sr自由，的确比ur强太多了，看看限定能不能抽到，不然直接sp化都不亏
+
+
+*****
+
+####  螺旋的小夜曲  
+##### 805#       发表于 2025-4-28 09:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">艾比安拉满了，等一个大舅哥
+
