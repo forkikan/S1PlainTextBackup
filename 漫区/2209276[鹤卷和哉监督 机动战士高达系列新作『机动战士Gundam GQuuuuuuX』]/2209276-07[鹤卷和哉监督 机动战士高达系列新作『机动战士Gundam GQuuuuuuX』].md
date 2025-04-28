@@ -7843,3 +7843,32 @@ DESIGN WORKS 里的说法是月牙状耳环
 
 2025-4-28 19:41 上传
 
+
+*****
+
+####  downnote  
+##### 10049#       发表于 2025-4-28 20:19
+
+ 本帖最后由 downnote 于 2025-4-28 20:21 编辑 
+
+帽子当然是拉下来挡住脸变装啊（
+
+所以我上周就画了个梗图
+
+<img src="https://img.stage1st.com/forum/202504/28/202105omdmm6mp6ng6n1vz.jpg" referrerpolicy="no-referrer">
+
+<strong>GQX.jpg</strong> (375.79 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-28 20:21 上传
+
+[https://www.pixiv.net/artworks/129568108](https://www.pixiv.net/artworks/129568108)
+
+*****
+
+####  Concrete  
+##### 10050#       发表于 2025-4-28 20:20
+
+好想听小番茄撕心裂肺的喊一声修司
+
