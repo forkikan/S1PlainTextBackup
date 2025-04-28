@@ -8944,3 +8944,13 @@ NTA这UR卡也太难用了，空中减移速，宇宙也不强，是有什么说
 上了一个精神力过了水魔，铁血我再琢磨下</blockquote>
 如果没有ur支援机的话，推荐开发一个zz卡碧尼和流星自由放在自由配队里辅助。
 
+
+*****
+
+####  一个陆仁贾  
+##### 838#       发表于 2025-4-28 16:45
+
+到时候倒a还能有月光蝶在卡池里等着你呢<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
