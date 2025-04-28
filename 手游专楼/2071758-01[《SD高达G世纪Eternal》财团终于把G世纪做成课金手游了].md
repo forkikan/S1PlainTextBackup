@@ -8713,3 +8713,11 @@ UR是辅助，挂DEBUFF的，严格意义上不能和攻击机比
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  sql710  
+##### 815#       发表于 2025-4-28 11:53
+
+请问商店里200钻石的【每日更新！AP包】值得购买么？<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
