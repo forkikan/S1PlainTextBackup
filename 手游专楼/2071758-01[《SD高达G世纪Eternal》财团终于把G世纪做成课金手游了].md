@@ -8826,3 +8826,14 @@ NTA这UR卡也太难用了，空中减移速，宇宙也不强，是有什么说
 
 要氪金的话该怎么搞？安卓的，想用rmb氪，本地货币手头有点紧
 
+
+*****
+
+####  nodkane  
+##### 827#       发表于 2025-4-28 15:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67763507&amp;ptid=2071758" target="_blank">kerorokun 发表于 2025-4-28 15:11</a>
+
+要氪金的话该怎么搞？安卓的，想用rmb氪，本地货币手头有点紧</blockquote>
+谷歌安卓端 港服 随便写个香港地址 绑国内银行卡
+
