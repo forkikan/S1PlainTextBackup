@@ -414,3 +414,241 @@ mygo：
 
 [https://x.com/tanda_hazuki/status/1916456669158248847](https://x.com/tanda_hazuki/status/1916456669158248847)
 
+
+*****
+
+####  堀内爱里衣  
+##### 27105#       发表于 2025-4-26 22:36
+
+<img src="https://img.stage1st.com/forum/202504/26/223640itnysqs3is1lsv8h.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-04-26_22-36-12.jpg</strong> (577.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-26 22:36 上传
+
+[https://x.com/kohinatamika/status/1916134507394306412](https://x.com/kohinatamika/status/1916134507394306412)
+
+*****
+
+####  silversor  
+##### 27106#       发表于 2025-4-27 00:12
+
+“我的粉丝们，这是我最后一次live。武士道已经来了命令，sumimi要解散了。今天是给你们最后一场live，我希望你们多多用心观看。”
+
+我听了这几句话，心里万分难过。啊，那些坏家伙，他们说root mimi出道，原来就是这么一回事!
+
+我的最后一堂live!
+
+我还没听到sumimi的新歌!我再也不能看到sumimi!难道这样就算了吗? 我从前没好好当反田叶月的粉丝，去听mygo的灵感菇，看mujica的香草祥子……想起这些，我多么懊悔!
+
+here the world刚才我还觉得那么夹，现在都好像是我的老朋友，舍不得跟它分手了。还有反田叶月女士也一样。她就要离开了，我再也不能看见她了!
+
+“我的粉丝们啊，”她说，“我——我——”
+
+但是她哽住了，她说不下去了。
+
+他转身朝着黑板，拿起一支粉笔，使出全身的力量，写了两个大字：
+
+“sumimi不会解散!”
+
+然后她呆在那儿，看着鸡团五人抱在一起，话也不说，只向我们做了一个手势：“live结束了，你们走吧。”
+
+<img src="https://img.stage1st.com/forum/202504/27/001128wb1wbf7q1rgfgmhb.jpg" referrerpolicy="no-referrer">
+
+<strong>K`0RQYDQT[VD}WTR`P990A2.jpg</strong> (149.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 00:11 上传
+
+*****
+
+####  CyDiablo  
+##### 27107#       发表于 2025-4-27 17:52
+
+ 本帖最后由 CyDiablo 于 2025-4-27 18:18 编辑 
+
+mujica：
+7.26-27 5th live LaLa arena TOKYO-BAY 
+<img src="https://p.sda1.dev/23/709f4493ddd379b9a4a35a42a8769192/0dad129e-0f26-4227-abc4-978032d4cdcd.png" referrerpolicy="no-referrer">
+
+mygo：
+8.6 7th single
+<img src="https://p.sda1.dev/23/9e95cc8c30b37e924dfbf6e4e722bd21/7227cdbf-621b-4b10-8670-d4b9ea51fd6f.png" referrerpolicy="no-referrer">
+7.1 zepp divercity
+7.12 zepp osaka bayside
+7.30 zepp nagoya
+8.7 zepp sapporo
+<img src="https://p.sda1.dev/23/5abdec0e76977ac2765b75f7d3136101/Image_84701485643356.jpg" referrerpolicy="no-referrer">
+12.6 8th live 京王arena tokyo （原武藏野之森）
+<img src="https://p.sda1.dev/23/b8f0b0ac2c0abdabb0a512dd1de4e840/3d6fb3e5-1ca6-4baa-bacf-9faf421c3176.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/23/26d7771d617790438cdfe2d15a1c1cc9/ac7ab821-da00-4950-b918-6b330b2c132d.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/562e4cb57bfcd50a63cf41afb90863fb/2da30f68-e057-421b-bbeb-f749d425c04c.png" referrerpolicy="no-referrer">
+没有别的，没有cn追加<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  堀内爱里衣  
+##### 27108#       发表于 2025-4-27 18:27
+
+ 本帖最后由 堀内爱里衣 于 2025-4-27 19:30 编辑 
+
+【信息重复编辑】
+
+*****
+
+####  堀内爱里衣  
+##### 27109#       发表于 2025-4-27 19:30
+
+<img src="https://img.stage1st.com/forum/202504/27/193001mpcvdejvrzcoamhr.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-04-27_19-29-15.jpg</strong> (291.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 19:30 上传
+
+[https://x.com/bang_dream_gbp/status/1916441463803748517](https://x.com/bang_dream_gbp/status/1916441463803748517)
+
+*****
+
+####  堀内爱里衣  
+##### 27110#       发表于 2025-4-27 20:13
+
+<img src="https://img.stage1st.com/forum/202504/27/201351xrku06026cb1s00p.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-04-27_20-13-24.jpg</strong> (294.12 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 20:13 上传
+
+[https://x.com/cocohayashi515/status/1916456440082108488](https://x.com/cocohayashi515/status/1916456440082108488)
+
+*****
+
+####  堀内爱里衣  
+##### 27111#       发表于 2025-4-27 20:15
+
+<img src="https://img.stage1st.com/forum/202504/27/201546j1735755pant13zp.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-04-27_20-15-31.jpg</strong> (268.37 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 20:15 上传
+
+[https://x.com/ttisrn_0710/status/1916456276332253463](https://x.com/ttisrn_0710/status/1916456276332253463)
+
+*****
+
+####  堀内爱里衣  
+##### 27112#       发表于 2025-4-27 20:22
+
+<img src="https://img.stage1st.com/forum/202504/27/202237cx2kch32kmpmmjx1.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-04-27_20-22-04.jpg</strong> (270.51 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 20:22 上传
+
+[https://x.com/Hina_Youmiya/status/1916456804537733201](https://x.com/Hina_Youmiya/status/1916456804537733201)
+
+*****
+
+####  堀内爱里衣  
+##### 27113#       发表于 2025-4-27 20:30
+
+<img src="https://img.stage1st.com/forum/202504/27/203011kg7gqmbq82g8o78w.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-04-27_20-29-43.jpg</strong> (506.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 20:30 上传
+
+[https://x.com/aoki__hina/status/1916455933288337435](https://x.com/aoki__hina/status/1916455933288337435)
+
+*****
+
+####  堀内爱里衣  
+##### 27114#       发表于 2025-4-27 21:04
+
+<img src="https://img.stage1st.com/forum/202504/27/210428cjpe11le3zqev6aq.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-04-27_21-04-03.jpg</strong> (140.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 21:04 上传
+
+[https://x.com/anime_tokyo/status/1916462334165622930](https://x.com/anime_tokyo/status/1916462334165622930)
+
+*****
+
+####  堀内爱里衣  
+##### 27115#       发表于 2025-4-27 22:13
+
+<img src="https://img.stage1st.com/forum/202504/27/221315v4s82pis45f21ez8.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-04-27_22-12-48.jpg</strong> (281.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 22:13 上传
+
+[https://x.com/kohinatamika/status/1916488139545448457](https://x.com/kohinatamika/status/1916488139545448457)
+
+*****
+
+####  半年  
+##### 27116#       发表于 2025-4-27 22:54
+
+<img src="https://img.stage1st.com/forum/202504/27/225455lms363nbbxxvvzv3.jpg" referrerpolicy="no-referrer">
+
+<strong>GpifLUCbcAANpCR.jpg</strong> (195.37 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-27 22:54 上传
+
+[https://x.com/tanda_hazuki/status/1916456669158248847](https://x.com/tanda_hazuki/status/1916456669158248847)
+
+*****
+
+####  堀内爱里衣  
+##### 27117#       发表于 2025-4-28 13:46
+
+<img src="https://img.stage1st.com/forum/202504/28/134633im1gifs011doz0ki.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-04-28_13-46-06.jpg</strong> (135.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-28 13:46 上传
+
+[https://x.com/kohinatamika/status/1916508051252920826](https://x.com/kohinatamika/status/1916508051252920826)
+
+*****
+
+####  堀内爱里衣  
+##### 27118#       发表于 2025-4-28 13:47
+
+ 本帖最后由 堀内爱里衣 于 2025-4-28 13:51 编辑 
+
+<img src="https://img.stage1st.com/forum/202504/28/134658i7i2ys286dvfcg87.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-04-28_13-46-44.jpg</strong> (186.31 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-28 13:46 上传
+
+[https://x.com/kohinatamika/status/1916700492648034706](https://x.com/kohinatamika/status/1916700492648034706)
+
+[https://www.bilibili.com/video/BV1fZLyzLEhF](https://www.bilibili.com/video/BV1fZLyzLEhF)   &lt;——【哔哩哔哩视频搬运】
+
