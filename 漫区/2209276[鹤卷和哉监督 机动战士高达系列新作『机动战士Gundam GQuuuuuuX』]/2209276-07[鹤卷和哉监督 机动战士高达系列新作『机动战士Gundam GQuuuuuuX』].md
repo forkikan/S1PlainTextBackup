@@ -9252,3 +9252,141 @@ i.imgur.com_YHLCD49.jpeg.jpg
 <img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">有想法没能力不就是现在这样吗，gqx就算每集有打戏也还是只有十二集，此为水魔一胜，2D打戏比劣质3D高贵，此为二胜，以下劣
 水魔打戏都能十胜gqx，gqx应该可以竞争钢蛋tv最差打戏
 
+
+*****
+
+####  大泽瑠璃乃  
+##### 10197#       发表于 2025-4-30 00:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767773&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-4-30 00:23</a>
+
+麻球现在这么想迟早要吃回旋镖。但这一整集的剧情说实话也和正义感什么的挂不上边 ...</blockquote>
+现在这种盲目追寻kirakira的状态基本上会被修正吧，修司这个状况，主角不能跟着神经到底，一般来说
+
+*****
+
+####  RE㐅ia  
+##### 10198#       发表于 2025-4-30 00:34
+
+<img src="https://img.stage1st.com/forum/202504/30/003455excnurrohhhgvsvx.png" referrerpolicy="no-referrer">
+
+<strong>Screen Shot 2025-04-30 at 12.34.43 AM.png</strong> (87.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 00:34 上传
+
+*****
+
+####  白愁帝皇  
+##### 10199#       发表于 2025-4-30 00:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767807&amp;ptid=2209276" target="_blank">xunit 发表于 2025-4-30 00:28</a>
+这魔女前搭档死之前寄希望于搭档是NT，对她来说NT是能获得想要之物的
+
+但搭档死了，她自己没获得所想之物 ...</blockquote>
+这种死不认自己是nt的nt一直有的，代表托比亚，uc嘴硬冠军
+
+*****
+
+####  cayon  
+##### 10200#       发表于 2025-4-30 00:36
+
+修二技能有点多了，光这集就有读心，空间移动，开聊天室
+
+
+*****
+
+####  a85982313  
+##### 10201#       发表于 2025-4-30 00:37
+
+实时平均收视率约2.4
+
+<img src="https://img.stage1st.com/forum/202504/30/003231jn0f0pwvntynzwan.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20250430013037.png</strong> (119.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 00:32 上传
+
+<img src="https://img.stage1st.com/forum/202504/30/003232tcb4j94jbo4tj92t.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20250430013046.png</strong> (118.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 00:32 上传
+
+*****
+
+####  lunaticfool  
+##### 10202#       发表于 2025-4-30 00:37
+
+情报就是喵安泄露的吧。结合强化人图有种不好的预感啊
+
+*****
+
+####  白愁帝皇  
+##### 10203#       发表于 2025-4-30 00:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767838&amp;ptid=2209276" target="_blank">cayon 发表于 2025-4-30 00:36</a>
+修二技能有点多了，光这集就有读心，空间移动，开聊天室</blockquote>
+感觉也不是空间移动，实际是预判吧
+
+*****
+
+####  Concrete  
+##### 10204#       发表于 2025-4-30 00:38
+
+<blockquote>大泽瑠璃乃 发表于 2025-4-30 00:34
+现在这种盲目追寻kirakira的状态基本上会被修正吧，修司这个状况，主角不能跟着神经到底，一般来说 ...</blockquote>
+我这么感觉修司没那么神经。只是他的表现在外人看了神经兮兮的。他这集明显是被威胁到生命了才下的死手。之前打到殖民地里都不敢用bit
+
+*****
+
+####  gammatau  
+##### 10205#       发表于 2025-4-30 00:38
+
+你就当是卡缪NT定身术一样的不科学力量吧，这世界79年鸭子开元祖都能引发奇迹了 发生什么都不奇怪<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白愁帝皇  
+##### 10206#       发表于 2025-4-30 00:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767844&amp;ptid=2209276" target="_blank">Concrete 发表于 2025-4-30 00:38</a>
+我这么感觉修司没那么神经。只是他的表现在外人看了神经兮兮的。他这集明显是被威胁到生命了才下的死手。 ...</blockquote>
+ 这集魔女被杀的理由挺充分的，之前一直在下死手
+
+
+*****
+
+####  白愁帝皇  
+##### 10207#       发表于 2025-4-30 00:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767845&amp;ptid=2209276" target="_blank">gammatau 发表于 2025-4-30 00:38</a>
+你就当是卡缪NT定身术一样的不科学力量吧，这世界79年鸭子开元祖都能引发奇迹了 发生什么都不奇怪 ...</blockquote>
+  zz还有朱总斗气化身，哈曼开防护罩硬接全功率头炮<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  az一串字母  
+##### 10208#       发表于 2025-4-30 00:41
+
+如果喵安也迷上kirakira了，最后能等到麻球推石头，喵安阻止麻球吗
+
+*****
+
+####  千千千千鸟  
+##### 10209#       发表于 2025-4-30 00:42
+
+仔细看了，修司逃离2道光束用时场上留了一把光束军刀，所以是什么原理，用光束军刀抵消一道光束脱离封锁吗？
+
+*****
+
+####  sauron.j  
+##### 10210#       发表于 2025-4-30 00:43
+
+这魔女没有眼白，是有德的亲戚吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
