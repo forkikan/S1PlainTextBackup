@@ -9187,3 +9187,32 @@ SD高达G世纪Reincarnation<img src="https://static.stage1st.com/image/smiley/f
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">既然沉船就要转生，还不如趁着现在低价先入手一个转生号
 
+
+*****
+
+####  ChrisSnake  
+##### 865#       发表于 2025-4-29 15:01
+
+进不了充值页面怎么破？ 想冲不让冲…
+
+*****
+
+####  kenqqex  
+##### 866#       发表于 2025-4-29 15:04
+
+文字版：
+
+BaseDamage = RoundUp[ ( UnitCorrection + CharacterCorrection + CharacterAdjustedValue + UnitAdjustedValue ) × Power ]
+
+where
+
+CharacterCorrection = Max(0, (AttackerCharacterATK - DefenderCharacterDEF)) / CharacterCorrectionDenominator
+
+CharacterAdjustedValue = 1 / [ RoundingExp( CharacterAdjustedValueDenominator × (DefenderCharacterDEF - AttackerCharacterATK) / 100000 ) + 1 ]
+
+UnitCorrection = Max(0, RoundUp( (AttackerUnitATK/10 - DefenderUnitDEF/10 ) )) / UnitCorrectionDenominator
+
+UnitAdjustedValue = 1 / [ RoundingExp( UnitAdjustedValueDenominator × (DefenderUnitDEF - AttackerUnitATK) / 100000 ) + 1 ]
+
+从nga偷的
+
