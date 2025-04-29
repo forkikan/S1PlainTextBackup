@@ -7946,3 +7946,23 @@ X 上的 機動戦士Gundam GQuuuuuuX（ジークアクス）：“◤キャス�
 
 石川是2月初的舞台访谈有去，3月初的舞台访谈主要来其它声优，也就3月的AJ没来 顺带同一天的舞台访谈录那些什么动画开播倒计时和祝贺中国上映视频也没她就是了
 
+
+*****
+
+####  岸浪白野  
+##### 10058#       发表于 2025-4-29 20:04
+
+ 本帖最后由 岸浪白野 于 2025-4-29 20:05 编辑 
+
+[X 上的 REISSUE RECORDS：“みんなも勝手に踊ったり、勝手に遊んだりしてみてね #Plazma  #踊るガンダム #GQuuuuuuX #ジークアクス #コマ撮り　 #stopmotion [url]https://t.co/r3m0ZrHtft](https://x.com/reissuerecords/status/1917171960255058421)” / X[/url]
+
+惊叹号过多了
+
+<img src="https://img.stage1st.com/forum/202504/29/200330h9egje7kjb3jytkt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (634.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-29 20:03 上传
+
