@@ -6290,3 +6290,16 @@ mujica还没进卡池吗 这速度正常吗
 
 s1解封这么晚 骂都提不起劲了 mujica就这么毁了我三分之一个2025
 
+
+*****
+
+####  aptx8285144  
+##### 40716#       发表于 2025-4-29 22:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767340&amp;ptid=2208921" target="_blank">太二EricGuo 发表于 2025-4-29 22:02</a>
+
+我觉得甜甜圈女士也是柿本推翻剧本的受害者
+
+当初狗刚实装时剩下六人游戏里的live 2d也被解包出来，而甜甜 ...</blockquote>
+也许是“受害者”，也许不是呢，在这种五个神人的剧情里面，戏份越来越多真是什么好事吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
