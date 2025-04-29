@@ -9861,3 +9861,102 @@ machu<img src="https://static.stage1st.com/image/smiley/face2017/094.png" referr
 
 这一点应该是会被修正的
 
+
+*****
+
+####  suzakushi  
+##### 10257#       发表于 2025-4-30 01:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767932&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-4-30 01:12</a>
+
+那里其实不太像是理解了，而是震惊“做到这个地步才能到达特殊”，让她产生了退却的心态（表情看上去更像 ...</blockquote>
+哪来的退却，她都用但是来衔接了，明显就是纳得了。
+
+*****
+
+####  Alphawalker  
+##### 10258#       发表于 2025-4-30 01:16
+
+打戏真挺拉的
+
+不过故事方面倒是有意思，确实是新角度
+
+*****
+
+####  whzfjd  
+##### 10259#       发表于 2025-4-30 01:16
+
+打戏有点精分，一会是 khara 标志性的姿势喷口，一会是超级系中 boss 味的滑稽闪现，整体有一种忘掉传统机战打戏按人的打斗加机械细节拍的感觉。
+
+*****
+
+####  暗黑能乐  
+##### 10260#       发表于 2025-4-30 01:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767935&amp;ptid=2209276" target="_blank">仓岛千百合 发表于 2025-4-30 01:14</a>
+
+看下集预告明显不是吧，下集预告明显又是其乐融融。</blockquote>
+那有退却心态又不等于立刻就要放弃吧
+
+*****
+
+####  scorbian  
+##### 10261#       发表于 2025-4-30 01:16
+
+new type的事情不用想的那么清楚<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  暗黑能乐  
+##### 10262#       发表于 2025-4-30 01:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767939&amp;ptid=2209276" target="_blank">suzakushi 发表于 2025-4-30 01:16</a>
+
+哪来的退却，她都用但是来衔接了，明显就是纳得了。</blockquote>
+“她明明还有家人在等她回去，但是，不做到那样，就永远到不了修斯在的地方”，单看这句话我是觉得两个方向理解都行，但是配合表情更像是有所退却
+
+*****
+
+####  cayon  
+##### 10263#       发表于 2025-4-30 01:20
+
+代入安保斗争斗争的话，那吉翁就是美帝，side6是日本，如果绿色木马这批人是算作主角团的话，那后续应该还有别的吉翁势力入驻吧，毕竟黑色三连星也来了，绿叔叔搞不好有可能乘这个机会带着绿色木马和主角团叛逃去联邦
+
+*****
+
+####  gammatau  
+##### 10264#       发表于 2025-4-30 01:22
+
+日推上有人提到‘没能从战争里回来的人’了，也跟安保条约一样是几十年前日本的时代特色话题
+
+
+*****
+
+####  Boliva  
+##### 10265#       发表于 2025-4-30 01:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，1话就把可能成为中BOSS的角色给融了，看看后面还有什么对手在等着吧
+
+*****
+
+####  盐盐盐盐盐  
+##### 10266#       发表于 2025-4-30 01:22
+
+麻球这是渐渐从叶公好龙的状态里抽身的过程，从表情描写来说她是害怕了
+
+*****
+
+####  民工业  
+##### 10267#       发表于 2025-4-30 01:22
+
+个人感觉最精彩的就是修斯捅驾驶舱那一下，还有番茄的最后一句话了<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  人形灾害  
+##### 10268#       发表于 2025-4-30 01:26
+
+魔女前面说“可能只有new type才可以想要的东西全都得到”，但最后她也正像很多NT一样，所有东西都失去了
+
