@@ -10099,3 +10099,78 @@ PPT战斗真绷不住，魔女不就是性转杰刚小队长么？一顿操作�
 
 2025-4-30 01:47 上传
 
+
+*****
+
+####  华安9527  
+##### 10283#       发表于 2025-4-30 01:50
+
+<img src="https://img.stage1st.com/forum/202504/30/015021k9ohwrwhm2wu19qw.png" referrerpolicy="no-referrer">
+
+<strong>E554946035C802CF5D12CE12D18CECCF.png</strong> (75.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 01:50 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">素材复用
+
+*****
+
+####  zzf111  
+##### 10284#       发表于 2025-4-30 01:51
+
+日本人也有好多都觉得迷惑
+
+<img src="https://img.stage1st.com/forum/202504/30/015118o7uguguuygcq5gu3.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>010036tzim2ivkd0mkdyk1.webp</strong> (40.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 01:51 上传
+
+<img src="https://img.stage1st.com/forum/202504/30/015125pct8j1ez0hpxrx0c.jpg" referrerpolicy="no-referrer">
+
+<strong>1134561561.jpg</strong> (140.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 01:51 上传
+
+
+*****
+
+####  ryanghj  
+##### 10285#       发表于 2025-4-30 01:52
+
+这一幕很明显左边的人能听到拉拉音，右边的人听不到，是否是某种隐喻
+
+<img src="https://img.stage1st.com/forum/202504/30/015208zba161zksq3z1112.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (272.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 01:52 上传
+
+*****
+
+####  renkan119  
+##### 10286#       发表于 2025-4-30 01:53
+
+<blockquote>RE㐅ia 发表于 2025-4-30 01:47
+这么大幅度地动作，那不就是脱锁后被红高达抓住破绽绕后了吗？以为两条枪线把路堵死了结果手臂断掉的硬值期 ...</blockquote>
+那魔女就太水了吧 露出这么大破绽都毫无反应 
+
+*****
+
+####  wasssf  
+##### 10287#       发表于 2025-4-30 01:55
+
+ 本帖最后由 wasssf 于 2025-4-30 01:57 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768010&amp;ptid=2209276" target="_blank">zzf111 发表于 2025-4-30 01:51</a>
+
+日本人也有好多都觉得迷惑</blockquote>
+日本人看稍微复杂的对话语言理解力全无也不是一天两天了，这里我觉得麻球就是不杀就会死的意思，如果不这么做的话就没有修司存在这一后续了，只能在聊天室见了
+
