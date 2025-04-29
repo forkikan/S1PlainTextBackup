@@ -8850,3 +8850,275 @@ Aieeeeeeeee，new type，NT为啥？！（
 麻球纯叛逆期，觉得政府精英的妈妈是“普通”，向往“不普通”的修司，看到魔女为了执念而死反而被这种思 ...</blockquote>
 能get到了，但这样的话麻球就更难摆脱“吃太饱了”这种评价<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看后续塑造了，登机那段朴素的正义感动机如果滑落到标新立异的黑拳叛逆观感挺差
 
+
+*****
+
+####  Sliurus  
+##### 10160#       发表于 2025-4-30 00:18
+
+不提ms那些高难度躲闪动作，魔女的必杀技运动轨迹确实不太科学
+
+
+*****
+
+####  花達香奈  
+##### 10161#       发表于 2025-4-30 00:18
+
+钩索“瞬移”成立得有个前提：红高达质量必须远大于吉姆勇士，不然动量守恒+角动量守恒两机应该在无尽的华尔兹
+暴论一下这制作重心从没放过在机战上吧<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  液体显微隧道  
+##### 10162#       发表于 2025-4-30 00:19
+
+魔女是不是oldtype吗，为啥她死的时候能进聊天室<img src="https://static.stage1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  azbhg1  
+##### 10163#       发表于 2025-4-30 00:19
+
+这集打勇士，下集打大魔，再下集打啥，打MA吗，总不能打魔蟹吧
+
+*****
+
+####  猫兔同笼  
+##### 10164#       发表于 2025-4-30 00:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767749&amp;ptid=2209276" target="_blank">液体显微隧道 发表于 2025-4-30 00:19</a>
+魔女是不是oldtype吗，为啥她死的时候能进聊天室
+
+—— 来自 鹅球 v3.5.99-alpha</blockquote>
+她是NT，那边整备人员评价她也有“天赋”
+UC里多了去了nt不承认自己是nt，我记得哈撒韦好像就没认过
+
+*****
+
+####  二阶堂真琉  
+##### 10165#       发表于 2025-4-30 00:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">草ァ 怎么这吉姆叫猪猪啊
+
+*****
+
+####  中野梓  
+##### 10166#       发表于 2025-4-30 00:21
+
+<blockquote>液体显微隧道 发表于 2025-4-30 00:19
+魔女是不是oldtype吗，为啥她死的时候能进聊天室
+
+—— 来自 鹅球 v3.5.99-alpha</blockquote>
+和利迪少尉一样，不承认自己是nt的特林顿综合症患者
+
+*****
+
+####  hoyice  
+##### 10167#       发表于 2025-4-30 00:21
+
+牛島 裕一朗：
+<img src="https://p.sda1.dev/23/244b227010801f1d71f04ba49d0fcb2e/image.jpg" referrerpolicy="no-referrer">
+荒木 哲郎：
+<img src="https://p.sda1.dev/23/7dddd26b9673838046f058e85af6b099/image.jpg" referrerpolicy="no-referrer">
+芝田 洸太郎：
+<img src="https://p.sda1.dev/23/ba482401dbf37c2f7425dda56c843693/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  大泽瑠璃乃  
+##### 10168#       发表于 2025-4-30 00:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767661&amp;ptid=2209276" target="_blank">woui003woui 发表于 2025-4-30 00:03</a>
+
+负的互动基本就喵安跟玛秋在立交上聊，玛秋一直在聊她对修司的好奇
+
+但老实说这种好奇我没太理解，包括看 ...</blockquote>
+“到修司的地方”应该指的是“到修司和kirakira的距离”，麻球离公共聊天室的距离比修司远
+
+*****
+
+####  ミオリネ  
+##### 10169#       发表于 2025-4-30 00:22
+
+瞬称不是说不行吧，最最起码修司怎么躲掉最后的攻击绕到身后你得画出来吧，只给个结果让观众自己脑补观感太差了
+
+*****
+
+####  刺客ares  
+##### 10170#       发表于 2025-4-30 00:23
+
+红高达是真的瞬移了
+
+完全解释不了他怎么闪到魔女身后的
+
+*****
+
+####  RE㐅ia  
+##### 10171#       发表于 2025-4-30 00:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767743&amp;ptid=2209276" target="_blank">woui003woui 发表于 2025-4-30 00:17</a>
+
+能get到了，但这样的话麻球就更难摆脱“吃太饱了”这种评价看后续塑造了，登机那段朴素的正义感动机如果 ...</blockquote>
+麻球现在这么想迟早要吃回旋镖。但这一整集的剧情说实话也和正义感什么的挂不上边
+
+*****
+
+####  Blaze626  
+##### 10172#       发表于 2025-4-30 00:23
+
+所以真的要一集一场军团战吗<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cayon  
+##### 10173#       发表于 2025-4-30 00:23
+
+魔女脑门也闪光，也是nt吧，觉得搭档没了是因为自己不是nt，发现自己是nt看到男主的秘密就和解了
+
+*****
+
+####  yanghuangu  
+##### 10174#       发表于 2025-4-30 00:23
+
+直播在哪看的
+
+
+*****
+
+####  Sliurus  
+##### 10175#       发表于 2025-4-30 00:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767710&amp;ptid=2209276" target="_blank">双菜 发表于 2025-4-30 00:13</a>
+
+打戏不如水魔</blockquote>
+这属于尬黑，你水魔哪条时间线每集都有机战再说吧，GQ的机战起码还有点想法，只是没什么配合而已
+
+*****
+
+####  岸浪白野  
+##### 10176#       发表于 2025-4-30 00:24
+
+[X 上的 YY：“第4話ご視聴いただきありがとうございます！動画で参加しております 配信等でもお楽しみください！ #ジークアクス #GQuuuuuuX [url]https://t.co/8dJt8jBP55](https://x.com/YY_shibata/status/1917247019233755354)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202504/30/002254ea5y7dx6t1z37t0t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (804.68 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 00:22 上传
+
+[X 上的 コウダ：“#GQuuuuuuX #ジークアクス [url]https://t.co/0benmdLiws](https://x.com/kouda_nyo/status/1917247546134810848)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202504/30/002309re2anlttzjlo1klk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.68 MB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 00:23 上传
+
+[X 上的 アサゲン：“ジークアクス4話ご視聴ありがとうございました 前回に引き続きメカニカル作画監督、原画で参加しました 久々にオンエアで緊張しました… #GQuuuuuuX #ジークアクス [url]https://t.co/wHEvFbaELY](https://x.com/geasa90/status/1917247634647249376)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202504/30/002322odzf5z2yt5yttirg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.27 MB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 00:23 上传
+
+[X 上的 ゆーすめると：“ジークアクス#04ご視聴ありがとうございました！ 動画として微力ながら参加させて頂きました！ 引き続きお楽しみいただければ幸いです！ #ジークアクス #GQuuuuuuX [url]https://t.co/ObQ9iRerhv](https://x.com/period_yoooou11/status/1917246801410949303)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202504/30/002343vckcy0c3s33h7brc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.3 MB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 00:23 上传
+
+[X 上的 荒木哲郎：“『機動戦士Gundam GQuuuuuuX』 4話の画コンテと演出をお手伝いしました！😃 作業時はスタジオカラーに入れてもらって、鶴巻監督の仕事を間近に見せてもらえました。ファン冥利に尽きる体験でした！ありがとうございました！🙇🏻 #ジークアクス　#GQuuuuuuX [url]https://t.co/rY6cHgTjl3](https://x.com/ttr1976/status/1917250154564030797)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202504/30/002359d6ur8mtnfsm8nrmt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.59 MB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 00:23 上传
+
+[X 上的 LiLya：“本日放送の機動戦士Gundom GQuuuuuuX 第4話『魔女の戦争』に3話に引き続き原画で参加させて頂きました！ 今回はMSだけでなくキャラパートまでもやらせて貰いました… 見てください！ #GQuuuuuuX #ジークアクス [url]https://t.co/6pelTY29Hc](https://x.com/lilya_litvak/status/1917247522613166237)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202504/30/002431cw9wprjh5npfthnm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.58 MB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 00:24 上传
+
+*****
+
+####  白愁帝皇  
+##### 10177#       发表于 2025-4-30 00:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767749&amp;ptid=2209276" target="_blank">液体显微隧道 发表于 2025-4-30 00:19</a>
+魔女是不是oldtype吗，为啥她死的时候能进聊天室
+
+—— 来自 鹅球 v3.5.99-alpha</blockquote>
+都脑门过电了，我感觉这人就是不自知的nt吧
+
+*****
+
+####  中野梓  
+##### 10178#       发表于 2025-4-30 00:24
+
+最后只是nt聊天室脑控了魔女，让她分神了一下下，红高达慢慢飞到背后一刀吧，怎么看也不是瞬移
+
+*****
+
+####  AvenueIII  
+##### 10179#       发表于 2025-4-30 00:25
+
+红高这什么可控zekenova<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还有格鲁古古殉爆那卡是庵野画的吧，炸的真好看啊
+
+*****
+
+####  zzf111  
+##### 10180#       发表于 2025-4-30 00:25
+
+艹，魔女啊<img src="https://static.stage1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白色池塘  
+##### 10181#       发表于 2025-4-30 00:26
+
+机战的科学性我不管，这荒木监督回反正我看爽了，荒木哥哥不可能翻车<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白愁帝皇  
+##### 10182#       发表于 2025-4-30 00:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767666&amp;ptid=2209276" target="_blank">Gaybird 发表于 2025-4-30 00:05</a>
+台词电波程度已经超越富野节了吧，看完直播我感觉我是ot
+
+论坛助手,iPhone</blockquote>
+那离富野节还是差太远了，这集台词还都挺好懂的吧，没冒出什么让人想半天才能想的明白的台词
+
+*****
+
+####  RE㐅ia  
+##### 10183#       发表于 2025-4-30 00:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767748&amp;ptid=2209276" target="_blank">花達香奈 发表于 2025-4-30 00:18</a>
+
+钩索“瞬移”成立得有个前提：红高达质量必须远大于吉姆勇士，不然动量守恒+角动量守恒两机应该在无尽的华 ...</blockquote>
+你这么一说到是让我回想起鲁鲁修s1柯内莉娅用钩索在高文身边疯狂机动了。高文的质量也趋势远超格洛斯特
+
