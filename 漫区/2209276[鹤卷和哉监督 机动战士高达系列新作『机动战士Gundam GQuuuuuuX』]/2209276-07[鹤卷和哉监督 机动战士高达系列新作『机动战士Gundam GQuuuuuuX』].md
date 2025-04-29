@@ -10019,3 +10019,83 @@ PPT战斗真绷不住，魔女不就是性转杰刚小队长么？一顿操作�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  g救世主高达  
+##### 10275#       发表于 2025-4-30 01:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767581&amp;ptid=2209276" target="_blank">windtrack 发表于 2025-4-29 23:54</a>
+
+艹，你这没必要捅驾驶舱吧...魔女一集退场</blockquote>
+这蘑菇头娘们自己没事找事，就是冲着弄死红高达来的，还手不是很正常？
+
+*****
+
+####  ryanghj  
+##### 10276#       发表于 2025-4-30 01:39
+
+所以在kirakira空间里面看到的是自己的愿望吗？魔女看到的是儿子，所以其实内心还是想要回归家庭的吗？
+
+
+*****
+
+####  暗黑能乐  
+##### 10277#       发表于 2025-4-30 01:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">又看了遍预告，才发现预告的意思是喵安下一话要上鸡胯了吧
+
+*****
+
+####  zzf111  
+##### 10278#       发表于 2025-4-30 01:42
+
+修斯目前感觉就跟有了人类身体的一根筋ai一样，高达说啥就是啥自己没啥能动性，台词不是当传话筒说饿就是谜语人，没性别滤镜看观感真的差
+
+别憋到最后谜题揭开了最后只解释成 就是人狠 就成
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 10279#       发表于 2025-4-30 01:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767982&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-4-30 01:34</a>
+魔女队友扒拉她脚给我看笑了，前面魔女还在1V1缠斗，怎么突然冒出来就扒拉着脚说话了。gqux人均都是闪现高 ...</blockquote>
+之后队友突然炸了也莫名其妙
+
+*****
+
+####  暗黑能乐  
+##### 10280#       发表于 2025-4-30 01:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767998&amp;ptid=2209276" target="_blank">Dai-Dai-Dai-Dai 发表于 2025-4-30 01:42</a>
+
+之后队友突然炸了也莫名其妙</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">魔女嫌她扒拉自己脚太烦攻击队友了
+
+
+*****
+
+####  暗黑能乐  
+##### 10281#       发表于 2025-4-30 01:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767997&amp;ptid=2209276" target="_blank">zzf111 发表于 2025-4-30 01:42</a>
+
+修斯目前感觉就跟有了人类身体的一根筋ai一样，高达说啥就是啥自己没啥能动性，台词不是当传话筒说饿就是谜 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">唯一一次有主观能动性不就是这集吗，进了聊天室说自己唯一的愿望就是巴拉巴拉之类的谜语，希望谜底对得上他这么搞谜语吧，要是崩了确实药丸
+
+*****
+
+####  RE㐅ia  
+##### 10282#       发表于 2025-4-30 01:47
+
+这么大幅度地动作，那不就是脱锁后被红高达抓住破绽绕后了吗？以为两条枪线把路堵死了结果手臂断掉的硬值期间第三条圣痕失效让红高达溜走了
+
+<img src="https://img.stage1st.com/forum/202504/30/014716vaeqwwsqkws260me.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>3BBADB92-ECA7-470C-B52D-8CBDDAEF861C.jpeg</strong> (285.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 01:47 上传
+
