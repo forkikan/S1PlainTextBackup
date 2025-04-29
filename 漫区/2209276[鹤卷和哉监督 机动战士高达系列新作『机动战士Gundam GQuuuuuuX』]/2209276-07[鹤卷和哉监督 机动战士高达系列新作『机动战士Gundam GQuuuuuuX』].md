@@ -10174,3 +10174,88 @@ PPT战斗真绷不住，魔女不就是性转杰刚小队长么？一顿操作�
 日本人也有好多都觉得迷惑</blockquote>
 日本人看稍微复杂的对话语言理解力全无也不是一天两天了，这里我觉得麻球就是不杀就会死的意思，如果不这么做的话就没有修司存在这一后续了，只能在聊天室见了
 
+
+*****
+
+####  ryanghj  
+##### 10288#       发表于 2025-4-30 01:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768010&amp;ptid=2209276" target="_blank">zzf111 发表于 2025-4-30 01:51</a>
+
+日本人也有好多都觉得迷惑</blockquote>
+其实这段话麻球感慨的不是修司而是魔女，她觉得魔女为了执念不惜抛弃家人是新人类所必须的
+
+*****
+
+####  ardente  
+##### 10289#       发表于 2025-4-30 01:59
+
+吉姆勇士这个点子绝了，两机以前在性能上就对标，联邦高达被夺直接造成吉姆丢失名字勇士失去身体
+
+本来都是见不到的老对手互相补齐还是杀回了这个世界
+
+很好的MS关系性，磕一下<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 10290#       发表于 2025-4-30 02:00
+
+[X 上的 mel：“ママ魔女さん… [url]https://t.co/ioYXuNrQFl](https://x.com/melty_pot/status/1917274755763429818)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202504/30/020031zlccg27gox2c772r.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (688.37 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 02:00 上传
+
+*****
+
+####  二阶堂真琉  
+##### 10291#       发表于 2025-4-30 02:01
+
+草，一看staff怎么有个荒木哲郎，钢丝战术跟立体机动差不多是吧
+
+
+*****
+
+####  Arinori  
+##### 10292#       发表于 2025-4-30 02:02
+
+<blockquote>ryanghj 发表于 2025-4-30 01:58
+其实这段话麻球感慨的不是修司而是魔女，她觉得魔女为了执念不惜抛弃家人是新人类所必须的 ...</blockquote>
+这么理解有意思，能和麻球感慨魔女和自己的钉宫妈完全不一样对应上。
+
+*****
+
+####  ryanghj  
+##### 10293#       发表于 2025-4-30 02:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768028&amp;ptid=2209276" target="_blank">Arinori 发表于 2025-4-30 02:02</a>
+
+这么理解有意思，能和麻球感慨魔女和自己的钉宫妈完全不一样对应上。</blockquote>
+这集很多地方都在表现麻球对学校和父母的不满，估计是下定决心要跑路了
+
+*****
+
+####  岸浪白野  
+##### 10294#       发表于 2025-4-30 02:05
+
+这就是两种理解方式，自我安慰的认可修司这种杀人和认可魔女的执念
+
+*****
+
+####  zzf111  
+##### 10295#       发表于 2025-4-30 02:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768017&amp;ptid=2209276" target="_blank">wasssf 发表于 2025-4-30 01:55</a>
+
+日本人看稍微复杂的对话语言理解力全无也不是一天两天了，这里我觉得麻球就是不杀就会死的意思，如果不这 ...</blockquote>
+这台词写得这么模糊观众理解有歧义太正常了
+
+（哈撒韦里阿姆罗那句也是，有两种理解，死神不会只在你做好准备的时候才降临-你做好准备的时候死神不会来）
+
+就当是nt特有详略“得当”的台词了
+
