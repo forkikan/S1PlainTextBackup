@@ -9327,3 +9327,19 @@ ez8这伙计是个牛头人 自动编成的话他总会抢最好的攻击机开
 
 预测UR支援鸡神会成为最佳驾驶员<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hayate0079  
+##### 875#       发表于 2025-4-29 16:52
+
+SF估計是一擊必殺了
+
+<img src="https://img.stage1st.com/forum/202504/29/165216tw7mdd1u805xbhh1.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250429164715.jpg</strong> (193.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-29 16:52 上传
+
