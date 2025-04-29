@@ -8259,3 +8259,318 @@ woc...一集下线
 
 所以一话退场是能猜到的，但是没觉得要去死啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oi99o  
+##### 10096#       发表于 2025-4-29 23:58
+
+杀了她，高达是这样说的<img src="https://static.stage1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sliurus  
+##### 10097#       发表于 2025-4-29 23:58
+
+原来院线预告就两集的内容，这下不用怕内容不够了吧<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 10098#       发表于 2025-4-29 23:58
+
+<img src="https://img.stage1st.com/forum/202504/29/235827q2qrr9xc9ch9cfhf.jpg" referrerpolicy="no-referrer">
+
+<strong>DYGDUGTBD{II]N[_09LR1BV.jpg</strong> (119.74 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-29 23:58 上传
+
+<img src="https://img.stage1st.com/forum/202504/29/235837n0nbpjnbxoaj3xoj.jpg" referrerpolicy="no-referrer">
+
+<strong>KSLJ5[0X{I$@KVQV~_6~@QL_tmb.jpg</strong> (92.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-29 23:58 上传
+
+*****
+
+####  aliya  
+##### 10099#       发表于 2025-4-29 23:59
+
+不是，这就死了？？？
+
+*****
+
+####  齿轮轴君  
+##### 10100#       发表于 2025-4-29 23:59
+
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">对味了，我还担心讲不完，鹤卷大杀特杀。
+
+这集小番茄表现有点水，希望这场战斗能对她有深刻的影响，
+
+下集这个三连星（疑似）不知道怎么用来发展剧情？
+
+*****
+
+####  闽明  
+##### 10101#       发表于 2025-4-29 23:59
+
+下回预告是不是一闪而过黑三连
+
+—— 来自 Xiaomi 24122RKC7C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Keiji  
+##### 10102#       发表于 2025-4-29 23:59
+
+居然不开每集打分帖<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  acg_gyanc  
+##### 10103#       发表于 2025-4-30 00:00
+
+怎么我颠婆魔女一话就下线了<img src="https://static.stage1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oi99o  
+##### 10104#       发表于 2025-4-30 00:00
+
+不过吉翁吉姆就叫格鲁古古还是太难蚌了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hoyice  
+##### 10105#       发表于 2025-4-30 00:00
+
+<img src="https://p.sda1.dev/23/a17efc98eb459b3607104660a37dc69d/image.jpg" referrerpolicy="no-referrer">
+妈妈角色一集就没了<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Gysumitka  
+##### 10106#       发表于 2025-4-30 00:00
+
+鹤卷真给一集就刀了啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+ 这剧情节奏我喜欢，火车开起来
+
+*****
+
+####  huanzhi  
+##### 10107#       发表于 2025-4-30 00:00
+
+直播太懂了，又是水魔又是团长的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  オルガピピック  
+##### 10108#       发表于 2025-4-30 00:00
+
+这战斗作画有点太拉了 到底是谁想的瞬移的点子啊 你们还是在拍真实系吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  operatbig  
+##### 10109#       发表于 2025-4-30 00:00
+
+这集百合浓度怎样？
+
+*****
+
+####  a85982313  
+##### 10110#       发表于 2025-4-30 00:01
+
+荒木怎么这么菜
+
+*****
+
+####  伊露伊道格拉斯  
+##### 10111#       发表于 2025-4-30 00:01
+
+ 本帖最后由 伊露伊道格拉斯 于 2025-4-30 00:03 编辑 
+
+联邦的唯一顶级ace，击坠100+（比鸭的60高），驾驶机体轻加农，擅长战术是不顾一切接近战（轻加农表示what can I say），跑来测试吉翁新机体，还似了。
+
+就算不谈那抽象的动机，光列出这几点就感觉魔女一身槽点太多了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hulaoda007  
+##### 10112#       发表于 2025-4-30 00:01
+
+机动武斗传G quuuuuuX。
+
+*****
+
+####  蕾洁之风  
+##### 10113#       发表于 2025-4-30 00:01
+
+啊<img src="https://static.stage1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">真是格鲁古古啊，28号在推上看到有人说商品a是格鲁古古，还跑去搜了一遍<img src="https://p.sda1.dev/23/397cd5fbcc0f5cc1cf3fe6e5b95ae990/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 10114#       发表于 2025-4-30 00:01
+
+ 本帖最后由 ryanghj 于 2025-4-30 00:03 编辑 
+
+神回，怒涛展开，下集轮到喵安看kirakira了？
+
+麻球也是重力女啊，对修司的执念好深，看到魔女被杀第一感想是“必须要这么深入才能了解修司”……<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">推上都在吐槽别的高达主人公看了杀人都要逃避，麻球反而往反方向觉醒了
+
+*****
+
+####  岸浪白野  
+##### 10115#       发表于 2025-4-30 00:02
+
+总之吉翁的下一代主力机名字一定要叫勇士，原来这就是鹤卷的为什么喜欢勇士觉得是悲运机<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ashero  
+##### 10116#       发表于 2025-4-30 00:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767621&amp;ptid=2209276" target="_blank">Ferrari 发表于 2025-4-29 23:58</a>
+
+其实性转一下就很好理解，就是一个对横空出世的高达有执念的精英老兵来了结心愿的故事
+
+所以一话退场是能猜 ...</blockquote>
+连家庭都没消弭掉的刻骨仇恨 彻头彻尾的复仇者 你死我活的斗争心 倒不如说就是要这种突然
+
+*****
+
+####  AvenueIII  
+##### 10117#       发表于 2025-4-30 00:03
+
+是因为有钩锁所以让荒木来吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黒鈴ミヲ  
+##### 10118#       发表于 2025-4-30 00:03
+
+骡子觉醒就是砍三连星后两个吧，我已经完全理解了，送经验来了<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xunit  
+##### 10119#       发表于 2025-4-30 00:03
+
+话说这战斗描写是放弃治疗了吗，什么都跟瞬移一样，然后队友总是在OB……
+
+*****
+
+####  游蜓  
+##### 10120#       发表于 2025-4-30 00:03
+
+打戏真的好烂
+
+
+*****
+
+####  woui003woui  
+##### 10121#       发表于 2025-4-30 00:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767641&amp;ptid=2209276" target="_blank">operatbig 发表于 2025-4-30 00:00</a>
+这集百合浓度怎样？</blockquote>
+负的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">互动基本就喵安跟玛秋在立交上聊，玛秋一直在聊她对修司的好奇
+
+但老实说这种好奇我没太理解，难道是nt心灵感应之力
+
+
+*****
+
+####  格雷殿下  
+##### 10122#       发表于 2025-4-30 00:05
+
+献忠看到都要点头
+
+*****
+
+####  fmban  
+##### 10123#       发表于 2025-4-30 00:05
+
+机战确实不太行，瞬移观感太差了
+
+*****
+
+####  Gaybird  
+##### 10124#       发表于 2025-4-30 00:05
+
+台词电波程度已经超越富野节了吧，看完直播我感觉我是ot
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  helgarose87  
+##### 10125#       发表于 2025-4-30 00:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">发功好歹给个镜头吧。三红都没你唐突
+
+*****
+
+####  凡人  
+##### 10126#       发表于 2025-4-30 00:06
+
+女主下集居然还有和首席哥躲柜子的剧情，怎么说呢，要不是知道gqux和水魔是差不多时间的企划，我会以为鹤卷看完水魔后怒把染四都现代化改造后再端上来了（
+
+*****
+
+####  麻巳巳  
+##### 10127#       发表于 2025-4-30 00:06
+
+打两下还要插个角色讲解，太稀碎了吧
+
+*****
+
+####  中野梓  
+##### 10128#       发表于 2025-4-30 00:06
+
+觉得超好看的我肯定也是nt吧
+
+*****
+
+####  伊露伊道格拉斯  
+##### 10129#       发表于 2025-4-30 00:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767659&amp;ptid=2209276" target="_blank">xunit 发表于 2025-4-30 00:03</a>
+
+话说这战斗描写是放弃治疗了吗，什么都跟瞬移一样，然后队友总是在OB…… ...</blockquote>
+瞬移一样？就是瞬移！
+
+问就是吉姆勇士新科技，队友跟不上很合理<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">（就这个莽劲，我感觉你前队友不死才不正常×）
+
+*****
+
+####  RE㐅ia  
+##### 10130#       发表于 2025-4-30 00:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767661&amp;ptid=2209276" target="_blank">woui003woui 发表于 2025-4-30 00:03</a>
+
+负的互动基本就喵安跟玛秋在立交上聊，玛秋一直在聊她对修司的好奇
+
+但老实说这种好奇我没太理解，包括看 ...</blockquote>
+至少问泳衣了，下集还是喵安个人回（
+
+*****
+
+####  WoLodEstt  
+##### 10131#       发表于 2025-4-30 00:07
+
+麻球真的有种典型地雷妹的风味<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jackyhuang  
+##### 10132#       发表于 2025-4-30 00:07
+
+有NT动态视力的话就能看明白这个打斗吧
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
