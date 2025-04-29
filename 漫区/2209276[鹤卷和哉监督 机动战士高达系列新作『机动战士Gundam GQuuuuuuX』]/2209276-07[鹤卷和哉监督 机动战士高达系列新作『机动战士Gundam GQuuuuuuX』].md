@@ -8574,3 +8574,279 @@ woc...一集下线
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  岸浪白野  
+##### 10133#       发表于 2025-4-30 00:08
+
+追加魔女的CV
+
+<img src="https://img.stage1st.com/forum/202504/30/000725lf9h0fv19vvz88tk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (648.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 00:07 上传
+
+*****
+
+####  cayon  
+##### 10134#       发表于 2025-4-30 00:08
+
+0079后边还没看完，骡子觉醒以后也这个样子吗，我看z高达的时候nt不是这样子的吧
+
+*****
+
+####  oi99o  
+##### 10135#       发表于 2025-4-30 00:08
+
+魔女是靠钩锁，红高才是真瞬移<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Lokay| + 1|+1|
+
+查看全部评分
+
+*****
+
+####  ryanghj  
+##### 10136#       发表于 2025-4-30 00:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767661&amp;ptid=2209276" target="_blank">woui003woui 发表于 2025-4-30 00:03</a>
+
+负的互动基本就喵安跟玛秋在立交上聊，玛秋一直在聊她对修司的好奇
+
+但老实说这种好奇我没太理解，难道是 ...</blockquote>
+麻球纯叛逆期，觉得政府精英的妈妈是“普通”，向往“不普通”的修司，看到魔女为了执念而死反而被这种思想所吸引
+
+*****
+
+####  forgetit  
+##### 10137#       发表于 2025-4-30 00:09
+
+居然是在大家都没想到的打戏方面有问题吗()
+
+*****
+
+####  operatbig  
+##### 10138#       发表于 2025-4-30 00:09
+
+跳到后面看打戏也太烂了，这魔女的技能有点像魔神英雄传里那些一集敌役的杂耍技能，旁人还一脸严肃正经分观感就很奇怪。
+
+*****
+
+####  ParukiaMKII  
+##### 10139#       发表于 2025-4-30 00:09
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这魔女喜欢虹格啊，不过这集也太NT了点，这魔女太癫了，然后是居然能一集下线，出乎意料。下集黑色三连星，马修没了，剩下俩还能还原喷射气流攻击么
+
+*****
+
+####  IL282  
+##### 10140#       发表于 2025-4-30 00:10
+
+“高达告诉我去捅驾驶舱”
+
+你这红高融合的是李阿宝吧
+
+*****
+
+####  xunit  
+##### 10141#       发表于 2025-4-30 00:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767682&amp;ptid=2209276" target="_blank">cayon 发表于 2025-4-30 00:08</a>
+
+0079后边还没看完，骡子觉醒以后也这个样子吗，我看z高达的时候nt不是这样子的吧 ...</blockquote>
+0079的战斗不是这种风格，可以去B站上看看阿姆罗击杀集锦，战斗双方出招都描写得很清楚
+
+*****
+
+####  安广多惠子  
+##### 10142#       发表于 2025-4-30 00:12
+
+机战拍的也太差劲了，很难想象找荒木哲郎来结果就这，对本片除了麻球可爱以外的内容已经不抱什么期待了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Sliurus  
+##### 10143#       发表于 2025-4-30 00:12
+
+话说发功的时候被称为“拉拉”声，果然uc的背后都有那个女人的身影
+
+鸭子没去地球的话，拉拉应该还待在地球，“玫瑰”可以指拉拉，但是所罗门爆炸的“玫瑰”又是谁？难道只是单纯指代nt能力强大的人吗
+
+*****
+
+####  woui003woui  
+##### 10144#       发表于 2025-4-30 00:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767676&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-4-30 00:07</a>
+至少问泳衣了，下集还是喵安个人回（</blockquote>
+问完喵安自己加打工买泳衣太辛酸了（）
+这两人关系性充满错位暗礁感<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虽然我挺喜欢
+
+*****
+
+####  双菜  
+##### 10145#       发表于 2025-4-30 00:13
+
+打戏不如水魔<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  xunit  
+##### 10146#       发表于 2025-4-30 00:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767678&amp;ptid=2209276" target="_blank">jackyhuang 发表于 2025-4-30 00:07</a>
+
+有NT动态视力的话就能看明白这个打斗吧
+
+—— 来自 Sony XQ-AT72, Android 12, 鹅球 v3.5.99 ...</blockquote>
+Aieeeeeeeee，new type，NT为啥？！（
+
+*****
+
+####  Ferrari  
+##### 10147#       发表于 2025-4-30 00:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767654&amp;ptid=2209276" target="_blank">ashero 发表于 2025-4-30 00:02</a>
+连家庭都没消弭掉的刻骨仇恨 彻头彻尾的复仇者 你死我活的斗争心 倒不如说就是要这种突然 ...</blockquote>
+你跟他有刻骨仇恨
+但是在高达眼里可能就是某次战斗随便扫死的一个杂兵罢了<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  千千千千鸟  
+##### 10148#       发表于 2025-4-30 00:13
+
+为什么杀了，人妻也没说要把高达驾驶员宰了吧。。<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  operatbig  
+##### 10149#       发表于 2025-4-30 00:13
+
+看了看只有12话？剧情机战片在短短12话的中期拿出这种单集不太对吧？
+
+
+*****
+
+####  suzakushi  
+##### 10150#       发表于 2025-4-30 00:14
+
+打戏是怎么做得这么狗屎的，打架一集接一集然后全看这种东西吗。
+
+*****
+
+####  poiqwe  
+##### 10151#       发表于 2025-4-30 00:14
+
+这集电波对话+飞快剧情，观感确实很top2，感觉好久没看过类似风格的作品了
+
+*****
+
+####  Mika-S  
+##### 10152#       发表于 2025-4-30 00:14
+
+之前看大家说麻球是新时代地雷妹开高达，我还不得要领；这集麻球在进路调查上写水母，感觉一下就懂了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">出音味来了一下子，这就是新时代网络年轻人的醍醐味吧
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| azbhg1| + 2||
+
+查看全部评分
+
+*****
+
+####  猫兔同笼  
+##### 10153#       发表于 2025-4-30 00:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767718&amp;ptid=2209276" target="_blank">千千千千鸟 发表于 2025-4-30 00:13</a>
+为什么杀了，人妻也没说要把高达驾驶员宰了吧。。</blockquote>
+魔女还没下杀手吗？每一下都瞄着驾驶舱去的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RE㐅ia  
+##### 10154#       发表于 2025-4-30 00:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767718&amp;ptid=2209276" target="_blank">千千千千鸟 发表于 2025-4-30 00:13</a>
+
+为什么杀了，人妻也没说要把高达驾驶员宰了吧。。</blockquote>
+魔女这次御驾亲征不是来宰掉红高达的难道是来削个人棍立下马威的吗？<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Concrete  
+##### 10155#       发表于 2025-4-30 00:16
+
+<blockquote>千千千千鸟 发表于 2025-4-30 00:13
+为什么杀了，人妻也没说要把高达驾驶员宰了吧。。</blockquote>
+明显冲着杀红高达来的。下的死手啊
+
+*****
+
+####  千千千千鸟  
+##### 10156#       发表于 2025-4-30 00:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767729&amp;ptid=2209276" target="_blank">猫兔同笼 发表于 2025-4-30 00:15</a>
+
+魔女还没下杀手吗？每一下都瞄着驾驶舱去的</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">是这样吗，等明天有熟肉了逐帧评鉴
+
+*****
+
+####  没取名啊  
+##### 10157#       发表于 2025-4-30 00:16
+
+又是格鲁古古的名字给吉姆安上，又是AMBAC，塞设定塞得倒确实挺老炮趣味
+
+*****
+
+####  Concrete  
+##### 10158#       发表于 2025-4-30 00:17
+
+<img src="https://img.stage1st.com/forum/202504/30/001657ae2kwsav1az1t0qa.jpg" referrerpolicy="no-referrer">
+
+<strong>1000039227.jpg</strong> (116.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 00:16 上传
+
+<img src="https://img.stage1st.com/forum/202504/30/001657b6lm8ngdttv1kurg.jpg" referrerpolicy="no-referrer">
+
+<strong>1000039226.jpg</strong> (125.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 00:16 上传
+
+这个原画要成真了，之前还有人不信
+
+*****
+
+####  woui003woui  
+##### 10159#       发表于 2025-4-30 00:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767690&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-4-30 00:09</a>
+麻球纯叛逆期，觉得政府精英的妈妈是“普通”，向往“不普通”的修司，看到魔女为了执念而死反而被这种思 ...</blockquote>
+能get到了，但这样的话麻球就更难摆脱“吃太饱了”这种评价<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看后续塑造了，登机那段朴素的正义感动机如果滑落到标新立异的黑拳叛逆观感挺差
+
