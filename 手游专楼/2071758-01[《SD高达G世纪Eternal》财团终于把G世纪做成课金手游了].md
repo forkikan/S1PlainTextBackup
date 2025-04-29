@@ -9179,3 +9179,11 @@ SD高达G世纪Reincarnation<img src="https://static.stage1st.com/image/smiley/f
 
 讲真，不如等周年限定，周年卡池搞不好UR出率翻倍，大概率歪到一年里的各种限定UR
 
+
+*****
+
+####  kulanyee  
+##### 864#       发表于 2025-4-29 14:39
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">既然沉船就要转生，还不如趁着现在低价先入手一个转生号
+
