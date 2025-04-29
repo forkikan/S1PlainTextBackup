@@ -9122,3 +9122,133 @@ UC里多了去了nt不承认自己是nt，我记得哈撒韦好像就没认过
 钩索“瞬移”成立得有个前提：红高达质量必须远大于吉姆勇士，不然动量守恒+角动量守恒两机应该在无尽的华 ...</blockquote>
 你这么一说到是让我回想起鲁鲁修s1柯内莉娅用钩索在高文身边疯狂机动了。高文的质量也趋势远超格洛斯特
 
+
+*****
+
+####  中野梓  
+##### 10184#       发表于 2025-4-30 00:28
+
+肯定是好看的一集啊
+
+*****
+
+####  須理出未来  
+##### 10185#       发表于 2025-4-30 00:28
+
+参赛名就叫「妈妈魔女」啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+i.imgur.com_YHLCD49.jpeg.jpg
+(50.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 00:27 上传
+
+<img src="https://img.stage1st.com/forum/202504/30/002737b5k9t3lt7r0tqoqq.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  xunit  
+##### 10186#       发表于 2025-4-30 00:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767782&amp;ptid=2209276" target="_blank">白愁帝皇 发表于 2025-4-30 00:24</a>
+
+都脑门过电了，我感觉这人就是不自知的nt吧</blockquote>
+这魔女前搭档死之前寄希望于搭档是NT，对她来说NT是能获得想要之物的
+
+但搭档死了，她自己没获得所想之物，那自己就不是NT
+
+别人也不能是NT，所以她要把NT宰了证明NT根本不存在
+
+*****
+
+####  岸浪白野  
+##### 10187#       发表于 2025-4-30 00:28
+
+<img src="https://img.stage1st.com/forum/202504/30/002842gttrt36yykkr9263.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.1 MB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 00:28 上传
+
+*****
+
+####  wondor1111  
+##### 10188#       发表于 2025-4-30 00:29
+
+水魔看得我犯困，这玩意节奏快得我脑浆疼
+
+*****
+
+####  woui003woui  
+##### 10189#       发表于 2025-4-30 00:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767773&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-4-30 00:23</a>
+麻球现在这么想迟早要吃回旋镖。但这一整集的剧情说实话也和正义感什么的挂不上边 ...</blockquote>
+是的，把前两集登机视为一个高点的话，这集比较大概率是一个有意的滑落阶段（缺乏自觉性、单纯且不假思索的叛逆动机etc），完全是追求刺激，我已经在等回旋镖了
+
+*****
+
+####  白愁帝皇  
+##### 10190#       发表于 2025-4-30 00:30
+
+    这集看起来很厉害的瞬移直角机动，磁气覆膜，一细想都没什么逼格啊，都85年了，老世界线gp系列都全报废了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sliurus  
+##### 10191#       发表于 2025-4-30 00:30
+
+怎么贺图还有母子图，太地狱了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NaughtyFish  
+##### 10192#       发表于 2025-4-30 00:30
+
+这集的机战和下集疑似要重拿轻放的走向，我预期是走低的，但又很想看<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  バーチャルS1er  
+##### 10193#       发表于 2025-4-30 00:31
+
+差点以为修斯是魔女的儿子了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 10194#       发表于 2025-4-30 00:31
+
+还在现役，未转让给民间
+
+<img src="https://img.stage1st.com/forum/202504/30/003048euwzh0zrw8yr860t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.97 MB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 00:30 上传
+
+*****
+
+####  千千千千鸟  
+##### 10195#       发表于 2025-4-30 00:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767783&amp;ptid=2209276" target="_blank">中野梓 发表于 2025-4-30 00:24</a>
+
+最后只是nt聊天室脑控了魔女，让她分神了一下下，红高达慢慢飞到背后一刀吧，怎么看也不是瞬移 ...</blockquote>
+修司被两道光束锁住不应该是动不了的状态吗，要动起码也得缺胳膊少腿吧
+
+*****
+
+####  双菜  
+##### 10196#       发表于 2025-4-30 00:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767779&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-4-30 00:24</a>
+这属于尬黑，你水魔哪条时间线每集都有机战再说吧，GQ的机战起码还有点想法，只是没什么配合而已 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">有想法没能力不就是现在这样吗，gqx就算每集有打戏也还是只有十二集，此为水魔一胜，2D打戏比劣质3D高贵，此为二胜，以下劣
+水魔打戏都能十胜gqx，gqx应该可以竞争钢蛋tv最差打戏
+
