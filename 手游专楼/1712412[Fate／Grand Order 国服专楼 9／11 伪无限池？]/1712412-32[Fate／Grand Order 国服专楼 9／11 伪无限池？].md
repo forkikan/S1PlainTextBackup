@@ -299,3 +299,16 @@ c呆耐久耗尽了，惨！
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  khxooo  
+##### 47132#       发表于 2025-4-29 22:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767313&amp;ptid=1712412" target="_blank">一个陆仁贾 发表于 2025-4-29 21:52</a>
+
+有珠这个知更鸟后面派上用场的机会多么
+
+—— 来自 vivo V2419A, Android 15, 鹅球 v3.5.99 ...</blockquote>
+没有，除了草十郎魔夜两个全是仓管中的仓管，甚至现在白贞都比她们有用，起码白贞现在有无条件全体蓝魔放和20充能
+
