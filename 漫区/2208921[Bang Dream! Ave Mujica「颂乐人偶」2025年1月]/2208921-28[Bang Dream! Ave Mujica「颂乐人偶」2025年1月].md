@@ -6081,3 +6081,212 @@ MyGO!!!!!×Ave Mujica 合同LIVE「わかれ道の、その先へ」DAY2 : Geosm
 
 第七集走音春日影分手炮打完照着对邦活动卡去演根本不会滑坡，祥子一句“倘若我问心有愧呢”直接名场面+1
 
+
+*****
+
+####  堀内爱里衣  
+##### 40695#       发表于 2025-4-28 14:06
+
+<img src="https://img.stage1st.com/forum/202504/28/140609y0zl0ejeljm1umeu.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-04-28_14-05-40.jpg</strong> (326.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-28 14:06 上传
+
+[https://x.com/Kanon_Takao/status/1916709378859974754](https://x.com/Kanon_Takao/status/1916709378859974754)
+
+*****
+
+####  堀内爱里衣  
+##### 40696#       发表于 2025-4-28 14:06
+
+<img src="https://img.stage1st.com/forum/202504/28/140651j69ls4il8e4xnlm6.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-04-28_14-06-24.jpg</strong> (270.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-28 14:06 上传
+
+[https://x.com/sasakirico/status/1916527994325131528](https://x.com/sasakirico/status/1916527994325131528)
+
+*****
+
+####  丰川祥  
+##### 40697#       发表于 2025-4-28 15:20
+
+羊李
+
+<img src="https://img.stage1st.com/forum/202504/28/151948ytfwefxittkxcwkk.png" referrerpolicy="no-referrer">
+
+<strong>IMG_0526.png</strong> (268.4 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-28 15:19 上传
+
+*****
+
+####  丰川祥  
+##### 40698#       发表于 2025-4-28 15:26
+
+鼓梦
+
+<img src="https://img.stage1st.com/forum/202504/28/152607c61242qzq5m2r1fn.png" referrerpolicy="no-referrer">
+
+<strong>f636e1c7282e8d9943e7ee055f69a635.png</strong> (237.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-28 15:26 上传
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 40699#       发表于 2025-4-28 16:35
+
+b站最近的反田/mana伤痛文学特别美味
+
+*****
+
+####  凉良  
+##### 40700#       发表于 2025-4-28 16:41
+
+紫吧全是串反子的
+
+*****
+
+####  社美胡  
+##### 40701#       发表于 2025-4-28 16:42
+
+李反代袁红
+
+*****
+
+####  syndrome2032  
+##### 40702#       发表于 2025-4-28 16:43
+
+正常，一个花了2年时间证明自己的确是边角料的边角料组合成员是的确对观众而言是伤痛的。
+
+*****
+
+####  仟音一心  
+##### 40703#       发表于 2025-4-28 16:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67763688&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-4-28 16:35</a>
+b站最近的反田/mana伤痛文学特别美味</blockquote>
+我在战吧发了个贴，看回帖🍩基本要内定挺王了。
+
+*****
+
+####  仟音一心  
+##### 40704#       发表于 2025-4-28 16:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67763701&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-4-28 16:43</a>
+正常，一个花了2年时间证明自己的确是边角料的边角料组合成员是的确对观众而言是伤痛的。 ...</blockquote>
+D4DJ要是没被武士道卖了可能还不至于如此。
+
+*****
+
+####  半年  
+##### 40705#       发表于 2025-4-28 20:10
+
+<img src="https://img.stage1st.com/forum/202504/28/201033x9tshplinnqfps3s.jpg" referrerpolicy="no-referrer">
+
+<strong>Gpmr5LMa0AAvUzb.jpg</strong> (655.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-28 20:10 上传
+
+[https://x.com/cocohayashi515/status/1916752122462478424](https://x.com/cocohayashi515/status/1916752122462478424)
+
+*****
+
+####  南宮凝香  
+##### 40706#       发表于 2025-4-28 21:49
+
+甜甜圈小姐就是你雞謎一般劇情的體現
+
+CV列表第一名的組合隊友
+
+劇情不停在宣言人不可參加兩個樂隊
+
+根據契诃夫的枪， 這至少也是個次高潮
+
+……結果什麼也沒發生就完結了
+
+甚至初祥寧願讓祥子變初生Callback 飛鳥山踩頭素祥也不拿真初來墊
+
+我只能說寫劇本的人是弱智
+
+*****
+
+####  thisisaspider  
+##### 40707#       发表于 2025-4-28 22:07
+
+【【长评无极】20年后 我成了第一个看懂无极的人【老白者乎】】 [https://www.bilibili.com/video/BV1ZVLJzuEiH](https://www.bilibili.com/video/BV1ZVLJzuEiH)
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 40708#       发表于 2025-4-28 22:58
+
+春日影这个点来是吧
+
+*****
+
+####  路人庚  
+##### 40709#       发表于 2025-4-28 23:12
+
+总感觉接下来成人歌也要出个mv是怎么回事
+
+*****
+
+####  Litccc  
+##### 40710#       发表于 2025-4-28 23:28
+
+<img src="https://p.sda1.dev/23/29f145d8c8dae8ea7340576924e807b8/06902fffad9d22c63aa37aac0267b79218144856.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/29a4691252bbba594df3608e7cee15f8/01d93f5993e9512e5525bb928b9ae1f918144856.jpg" referrerpolicy="no-referrer">
+
+疑似大祥老师爆改字幕<img src="https://static.stage1st.com/image/smiley/carton2017/482.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 40711#       发表于 2025-4-29 00:13
+
+不是不拿真初垫，而是真这个人连当垫子的价值都没有。
+
+就像当初传言鸡12会出现甜甜圈去岛上给真初华唱歌这么离谱的剧情。
+
+*****
+
+####  钦念以忱  
+##### 40712#       发表于 2025-4-29 00:36
+
+看起来武士道官方认为在拍了CCC和解剧情之后就可以给mygo团解禁春日影了，要是能在动画里就把这个剧情让素世说出来，那最激烈的第7话滑坡不就不会发生了么，还有什么比素世亲口解禁春日影，更能代表CCC已经结束了的。
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 40713#       发表于 2025-4-29 01:32
+
+第七集走音春日影分手炮打完照着对邦活动卡去演根本不会滑坡，祥子一句“倘若我问心有愧呢”直接名场面+1
+
+*****
+
+####  油画布  
+##### 40714#       发表于 2025-4-29 08:37
+
+mujica还没进卡池吗 这速度正常吗
+
+*****
+
+####  油画布  
+##### 40715#       发表于 2025-4-29 08:39
+
+s1解封这么晚 骂都提不起劲了 mujica就这么毁了我三分之一个2025
+
