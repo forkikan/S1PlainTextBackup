@@ -10685,3 +10685,13 @@ wtfuck
 拉拉</blockquote>
 过于地狱笑话 很难不认同<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zao  
+##### 10334#       发表于 2025-4-30 04:51
+
+这打戏真的是khara做出来的？水平也太次了<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+eva巴黎战的时候玩绳子空战不是玩的挺明白吗，这回打戏拍的跟没有机战制作经验的小众宝藏工作室一样，全是关键帧慢动作，相对位置变化要么慢动作瞬移要么切镜头瞬移，完全没法靠人脑提取画面里机体的运动矢量来把前后镜头联系起来<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
