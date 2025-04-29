@@ -10623,3 +10623,23 @@ wtfuck
 麻球纯叛逆期，觉得政府精英的妈妈是“普通”，向往“不普通”的修司，看到魔女为了执念而死反而被这种思 ...</blockquote>
 她妈开高达的时候比这疯多了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  茄子自走炮  
+##### 10328#       发表于 2025-4-30 03:27
+
+你这钢丝什么材料啊，能把ms外壳打洞还不伤到内部器件，勇士手都拉断了钢丝都没断，直接用这材料做装甲算了
+
+*****
+
+####  xwz  
+##### 10329#       发表于 2025-4-30 03:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767859&amp;ptid=2209276" target="_blank">Asukalangley33 发表于 2025-4-30 00:44</a>
+
+看完这集，感觉最后99%是修司VS麻球了
+
+所以喵安的定位是？</blockquote>
+拉拉<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
