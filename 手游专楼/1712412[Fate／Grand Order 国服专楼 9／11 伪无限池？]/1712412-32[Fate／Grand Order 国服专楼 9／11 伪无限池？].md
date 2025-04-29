@@ -274,3 +274,18 @@ c呆耐久耗尽了，惨！
 
 12张呼符出了有珠<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">，接下来就是学姐了
 
+
+*****
+
+####  电波系腑海林  
+##### 47130#       发表于 2025-4-29 21:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39999995&amp;ptid=1712412" target="_blank">B​​BChannel 发表于 2018-6-15 15:24</a>
+2# 常用链接    3# 参考资料    4# 待复刻活动礼装
+
+国服专楼标题芸从2022/06/30开始暂停，何时恢复看心情 ...</blockquote>
+1200石头满宝了，最后一宝花了整整800石头，不敢追满配了第六宝留给福袋好了。
+接下来每天捞一捞青子看看付费抽能不能出<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
