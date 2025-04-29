@@ -1015,3 +1015,15 @@ https://x.com/AzJames34/status/1915731780012745111?t=VgpuGJns9Irza8rFINXXXA&amp;
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">汪汪那两声，狗塑太刻意了
 
+
+*****
+
+####  蒜灵  
+##### 2256#       发表于 2025-4-29 13:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67755496&amp;ptid=2152053" target="_blank">Saber琪 发表于 2025-4-25 18:51</a>
+https://forum.gamer.com.tw/C.php?bsn=73316&amp;snA=1848&amp;tnum=2
+
+小动画3-4集剧透</blockquote>
+怎么泡面番还能有剧透的，这样的话情报哥什么时候回归你楼，等不及了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
