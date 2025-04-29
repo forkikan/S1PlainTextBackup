@@ -9103,3 +9103,13 @@ SD高达G世纪Reincarnation<img src="https://static.stage1st.com/image/smiley/f
 
 等狼王ur了，这石头存的太慢，我没刷初始打通主线才四万多
 
+
+*****
+
+####  blue321  
+##### 856#       发表于 2025-4-29 11:28
+
+这新人挑战卡在永恒之路的第二次hard通关了，机体不够真麻烦…
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
