@@ -10674,3 +10674,14 @@ wtfuck
 这一幕很明显左边的人能听到拉拉音，右边的人听不到，是否是某种隐喻</blockquote>
 还真是 经典左右分
 
+
+*****
+
+####  biye  
+##### 10333#       发表于 2025-4-30 04:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768121&amp;ptid=2209276" target="_blank">xwz 发表于 2025-4-30 03:27</a>
+
+拉拉</blockquote>
+过于地狱笑话 很难不认同<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
