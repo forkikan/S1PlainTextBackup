@@ -9343,3 +9343,22 @@ SF估計是一擊必殺了
 
 2025-4-29 16:52 上传
 
+
+*****
+
+####  洛克萨斯  
+##### 876#       发表于 2025-4-29 16:57
+
+强自：拥有全游戏首个射程5且威力5500的武器。距离敌人越远，给予敌人的伤害越高。在异端活动中，提升给予敌人的伤害、提升Boss挑战票的掉落数量。
+
+基拉：StepChance次数+1。拥有全游戏首个攻击爆裂Lv5，发动时给予敌人的伤害+25%。
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开服第一个限定卡有一种机制和数值美
+
+*****
+
+####  光辉传递者  
+##### 877#       发表于 2025-4-29 16:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67766367&amp;ptid=2071758" target="_blank">windtrack 发表于 2025-4-29 16:30</a></blockquote>
+红基有三动？哇，今次就样衰了。
+
