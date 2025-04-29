@@ -9960,3 +9960,62 @@ new type的事情不用想的那么清楚<img src="https://static.stage1st.com/i
 
 魔女前面说“可能只有new type才可以想要的东西全都得到”，但最后她也正像很多NT一样，所有东西都失去了
 
+
+*****
+
+####  sauron.j  
+##### 10269#       发表于 2025-4-30 01:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767877&amp;ptid=2209276" target="_blank">shiko 发表于 2025-4-30 00:50</a>
+
+泥水那个垃圾机战就别拿来丢人现眼了。gq一串字母这个战斗属于是构成不错，基础的起承转合都有，设计也算是 ...</blockquote>
+水魔的几段实战多人战斗编排都不错，比如第12集地球魔女袭击工厂。虽然作画良莠不齐，但即便是高速混战镜头下依然严谨描绘了宇宙设施、太阳等物体的相对位置，还有走位等战术细节
+
+夸克斯这几集看完我感觉，这平行UC是没有太阳这个天体吗
+
+*****
+
+####  オルガピピック  
+##### 10270#       发表于 2025-4-30 01:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767957&amp;ptid=2209276" target="_blank">Boliva 发表于 2025-4-30 01:22</a>
+
+PPT战斗真绷不住，魔女不就是性转杰刚小队长么？一顿操作猛如虎一看伤害250，明显是被机体性能拖累的王牌机 ...</blockquote>
+明显反了 明明红高才是被老古董性能拖累的一方 看完直播看高清源除了最后的瞬移外战斗逻辑还算清晰 红高要不是靠着nt力和极限操作第一枪就被秒了<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  tomzach  
+##### 10271#       发表于 2025-4-30 01:31
+
+<blockquote>岸浪白野 发表于 2025-4-30 00:51
+又到了对比的时候</blockquote>
+制作现场怕不是一边放着0079一边画的分镜
+
+
+*****
+
+####  暗黑能乐  
+##### 10272#       发表于 2025-4-30 01:34
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">魔女队友扒拉她脚给我看笑了，前面魔女还在1V1缠斗，怎么突然冒出来就扒拉着脚说话了。gqux人均都是闪现高手
+
+*****
+
+####  璇瑢子R  
+##### 10273#       发表于 2025-4-30 01:34
+
+把这个魔女设定里吹的这么牛逼。
+后续不太会有联邦开战的剧情了
+
+毕竟你家最强（？）驾驶员一集就死了
+
+*****
+
+####  Mr1z  
+##### 10274#       发表于 2025-4-30 01:37
+
+这个打斗是给拥有忍者动态视力的人准备的吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
