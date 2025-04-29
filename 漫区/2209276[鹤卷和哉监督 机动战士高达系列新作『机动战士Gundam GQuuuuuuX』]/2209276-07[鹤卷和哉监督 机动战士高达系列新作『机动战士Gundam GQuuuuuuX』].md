@@ -10712,3 +10712,67 @@ eva巴黎战的时候玩绳子空战不是玩的挺明白吗，这回打戏拍�
 
 抛开别的一切不谈，nt的数量是不是有点儿太多了？
 
+
+*****
+
+####  biye  
+##### 10337#       发表于 2025-4-30 04:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768121&amp;ptid=2209276" target="_blank">xwz 发表于 2025-4-30 03:27</a>
+
+拉拉</blockquote>
+过于地狱笑话 很难不认同<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zao  
+##### 10338#       发表于 2025-4-30 04:51
+
+这打戏真的是khara做出来的？水平也太次了<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+eva巴黎战的时候玩绳子空战不是玩的挺明白吗，这回打戏拍的跟没有机战制作经验的小众宝藏工作室一样，全是关键帧慢动作，相对位置变化要么慢动作瞬移要么切镜头瞬移，完全没法靠人脑提取画面里机体的运动矢量来把前后镜头联系起来<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 10339#       发表于 2025-4-30 05:16
+
+ 本帖最后由 岸浪白野 于 2025-4-30 05:39 编辑 
+
+对于魔女来说觉得是一件解决了执念向对影响自己思想的“战争”代表的"红高"（也是纠结自己对"新人类”代表的万能）证明就能回归到家人身边的事，但到无法回头才理解放下执念再到经常的死前一刻去喊自己最在乎的人
+
+想什么都能得到看似是“贪心”，但也是一个被战争影响但又已经在普通生活被撕成两半的人
+
+*****
+
+####  erosion_0816  
+##### 10340#       发表于 2025-4-30 05:19
+
+有点迷茫
+
+抛开别的一切不谈，nt的数量是不是有点儿太多了？
+
+*****
+
+####  岸浪白野  
+##### 10341#       发表于 2025-4-30 05:44
+
+ 本帖最后由 岸浪白野 于 2025-4-30 05:48 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768170&amp;ptid=2209276" target="_blank">erosion_0816 发表于 2025-4-30 05:19</a>
+
+有点迷茫
+
+抛开别的一切不谈，nt的数量是不是有点儿太多了？</blockquote>
+夏户在场刊讲过觉得在宇宙世纪的背景下，新人类应该是同时多地出现的，即使是讲一些素不相识的新人类之间故事也是符合高达的世界观
+
+就是认为不想觉得给人 感觉 新人类的存在数量是非常稀有的，还是能多点的
+
+*****
+
+####  穿越护城河  
+##### 10342#       发表于 2025-4-30 05:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就这个新人类的表现看
+
+我看这片应该叫 机动战士高达 来自新世界
+
