@@ -7966,3 +7966,13 @@ X 上的 機動戦士Gundam GQuuuuuuX（ジークアクス）：“◤キャス�
 
 2025-4-29 20:03 上传
 
+
+*****
+
+####  天邪鬼  
+##### 10059#       发表于 2025-4-29 21:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67763845&amp;ptid=2209276" target="_blank">123gp199 发表于 2025-4-28 17:41</a>
+对面打军团战的又不可能知道这是搭载有鸡瘟最新型新人类操作系统的机体，只能认为闪光弹是种常备武器，说 ...</blockquote>
+主要是动画里的表现是玛秋自己看不见了，不是摄像头或者啥过载导致的
+
