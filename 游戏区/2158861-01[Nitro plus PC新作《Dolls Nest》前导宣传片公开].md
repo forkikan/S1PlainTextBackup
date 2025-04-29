@@ -1783,3 +1783,11 @@ baldr系列那种本来就是act的除外
 
 敌人AI弱智，数值设计没体现，机制过于简单和不亲切，这些至少还是“未来可期”的范围。
 
+
+*****
+
+####  madcow  
+##### 171#       发表于 2025-4-29 19:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">跟串烧阿妈对话被嫌弃味道重了，是因为拿到右眼开了红门杀了野生的铠灵嘛
+
