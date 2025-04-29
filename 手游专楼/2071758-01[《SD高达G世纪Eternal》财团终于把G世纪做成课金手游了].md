@@ -9095,3 +9095,11 @@ SD高达G世纪Reincarnation<img src="https://static.stage1st.com/image/smiley/f
 
 我等一手攻击Z 海牛 F91 这种
 
+
+*****
+
+####  洛克萨斯  
+##### 855#       发表于 2025-4-29 11:13
+
+等狼王ur了，这石头存的太慢，我没刷初始打通主线才四万多
+
