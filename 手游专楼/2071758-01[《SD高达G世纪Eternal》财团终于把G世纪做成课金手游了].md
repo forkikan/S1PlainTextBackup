@@ -9148,3 +9148,11 @@ SD高达G世纪Reincarnation<img src="https://static.stage1st.com/image/smiley/f
 
 —— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  ddlsyo  
+##### 860#       发表于 2025-4-29 13:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">只有4W石，在犹豫是明天梭了，还是等6W石保底
+
