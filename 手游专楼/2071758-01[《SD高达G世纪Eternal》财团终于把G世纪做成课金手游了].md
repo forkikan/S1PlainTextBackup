@@ -9216,3 +9216,44 @@ UnitAdjustedValue = 1 / [ RoundingExp( UnitAdjustedValueDenominator × (Defender
 
 从nga偷的
 
+
+*****
+
+####  洛克萨斯  
+##### 867#       发表于 2025-4-29 15:37
+
+<img src="https://img.stage1st.com/forum/202504/29/153656mo4p4hpphoehy44h.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (94.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-29 15:36 上传
+
+
+*****
+
+####  行政裁定书  
+##### 868#       发表于 2025-4-29 15:45
+
+seed剧场版还没看，但片里出现了强袭自由更强的机体了吧？后面所以这第一个限定强自多半会进普池。
+
+seed剧场版还会有续集吗？倒时候再出个强自后续机的后续机
+
+*****
+
+####  ChrisSnake  
+##### 869#       发表于 2025-4-29 15:46
+
+<img src="https://img.stage1st.com/forum/202504/29/153815mt4m4en40ab9wmlo.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5847.jpeg</strong> (185.34 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-29 15:38 上传
+
+ez8这伙计是个牛头人 自动编成的话他总会抢最好的攻击机开
+
+因为他自己的机体宇宙中行动力减半 我就没培养 放2队等他混  等级这么低都能编上去 脸都不要了
+
