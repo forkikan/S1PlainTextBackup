@@ -9390,3 +9390,128 @@ i.imgur.com_YHLCD49.jpeg.jpg
 
 这魔女没有眼白，是有德的亲戚吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Asukalangley33  
+##### 10211#       发表于 2025-4-30 00:44
+
+看完这集，感觉最后99%是修司VS麻球了
+
+所以喵安的定位是？
+
+*****
+
+####  wzm96816  
+##### 10212#       发表于 2025-4-30 00:44
+
+修斯形象上还是单纯一些的，这集用老机子全力才能赢。魔女的形象，性格，想法，行动，的确是打磨过的。
+
+让叶 天手的话，用一月某个大女主的评价来说，有点闹麻了，只希望过几集后别被人评价为没苦硬吃。她是典型的年轻人，追求叛逆和刺激，还有一点朴素的正义感。
+
+*****
+
+####  大泽瑠璃乃  
+##### 10213#       发表于 2025-4-30 00:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767844&amp;ptid=2209276" target="_blank">Concrete 发表于 2025-4-30 00:38</a>
+
+我这么感觉修司没那么神经。只是他的表现在外人看了神经兮兮的。他这集明显是被威胁到生命了才下的死手。 ...</blockquote>
+我不是因为下杀手说他神经，是说被高达和沙伦玫瑰牵引的状态，怎么说呢，太NewType了
+
+*****
+
+####  oi99o  
+##### 10214#       发表于 2025-4-30 00:45
+
+这什么表情<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202504/30/004550on3o330qhmfok35q.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (110.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 00:45 上传
+
+*****
+
+####  ティグル  
+##### 10215#       发表于 2025-4-30 00:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767845&amp;ptid=2209276" target="_blank">gammatau 发表于 2025-4-30 00:38</a>
+
+你就当是卡缪NT定身术一样的不科学力量吧，这世界79年鸭子开元祖都能引发奇迹了 发生什么都不奇怪 ...</blockquote>
+但是铁奥有IMPC这个擦屁股设定给圆回来了
+
+*****
+
+####  某某某人  
+##### 10216#       发表于 2025-4-30 00:46
+
+這集的對話太NT了, 有點難懂<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+果然我只是個OT嗎
+
+*****
+
+####  6030sylar  
+##### 10217#       发表于 2025-4-30 00:48
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还好不是下周播，母亲节前后播这集太地狱了
+
+*****
+
+####  Sliurus  
+##### 10218#       发表于 2025-4-30 00:48
+
+我觉得是勇士断手的时候调整姿势那个时间差被红高达绕后的，光束军刀可能是骗雷达之类的操作？米粒下没雷达可能是热量侦测之类的？明天再看看细节
+
+*****
+
+####  oi99o  
+##### 10219#       发表于 2025-4-30 00:49
+
+志子菅井
+
+<img src="https://img.stage1st.com/forum/202504/30/004938r8bxf2xmmpzwq7qx.png" referrerpolicy="no-referrer">
+
+<strong>Mobile.Suit.Gundam.GQuuuuuuX.S01E04.The.Witchs.War.1080p.AMZN.WEB-DL.DUAL.DDP2.0.png</strong> (176.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 00:49 上传
+
+
+*****
+
+####  shiko  
+##### 10220#       发表于 2025-4-30 00:50
+
+泥水那个垃圾机战就别拿来丢人现眼了。gq一串字母这个战斗属于是构成不错，基础的起承转合都有，设计也算是有想法，就是实力或者经费跟不上，导致重要的战斗细节用了太多定格，衔接很奇怪，
+
+水魔那机战，有哪怕基本的战斗构成，分镜知道重点该画哪些地方吗？每次打架都不知道打的什么东西，还得看所谓的粉丝拉片才是烂完了。
+
+*****
+
+####  岸浪白野  
+##### 10221#       发表于 2025-4-30 00:51
+
+又到了对比的时候
+
+<img src="https://img.stage1st.com/forum/202504/30/005105v2uz0l90du9wcab6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.43 MB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 00:51 上传
+
+<img src="https://img.stage1st.com/forum/202504/30/005111yzqcdp40qjk2k8q0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.04 MB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 00:51 上传
+
