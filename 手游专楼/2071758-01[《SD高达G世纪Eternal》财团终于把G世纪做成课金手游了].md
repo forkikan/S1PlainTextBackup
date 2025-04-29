@@ -9435,3 +9435,14 @@ ez8这伙计是个牛头人 自动编成的话他总会抢最好的攻击机开
 
 转生大潮要来了？等几天能买到便宜大份初始呢
 
+
+*****
+
+####  ドロロ  
+##### 886#       发表于 2025-4-29 22:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767219&amp;ptid=2071758" target="_blank">帕蕾莉亚 发表于 2025-4-29 21:15</a>
+
+机体经验可以刷活动ex本，机师就没辙了</blockquote>
+skip了，手动刷太累
+

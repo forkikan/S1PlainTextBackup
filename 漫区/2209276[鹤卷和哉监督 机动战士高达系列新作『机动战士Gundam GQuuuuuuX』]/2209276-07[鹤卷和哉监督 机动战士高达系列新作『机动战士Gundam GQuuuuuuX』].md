@@ -7976,3 +7976,14 @@ X 上的 機動戦士Gundam GQuuuuuuX（ジークアクス）：“◤キャス�
 对面打军团战的又不可能知道这是搭载有鸡瘟最新型新人类操作系统的机体，只能认为闪光弹是种常备武器，说 ...</blockquote>
 主要是动画里的表现是玛秋自己看不见了，不是摄像头或者啥过载导致的
 
+
+*****
+
+####  中野梓  
+##### 10060#       发表于 2025-4-29 23:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767011&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-4-29 20:04</a>
+
+X 上的 REISSUE RECORDS：“みんなも勝手に踊ったり、勝手に遊んだりしてみてね #Plazma  #踊るガンダム # ...</blockquote>
+ 怪      
+
