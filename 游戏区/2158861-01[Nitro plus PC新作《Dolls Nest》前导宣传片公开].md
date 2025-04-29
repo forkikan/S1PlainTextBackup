@@ -1791,3 +1791,13 @@ baldr系列那种本来就是act的除外
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">跟串烧阿妈对话被嫌弃味道重了，是因为拿到右眼开了红门杀了野生的铠灵嘛
 
+
+*****
+
+####  蓝雉  
+##### 172#       发表于 2025-4-29 19:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67766877&amp;ptid=2158861" target="_blank">madcow 发表于 2025-4-29 19:16</a>
+跟串烧阿妈对话被嫌弃味道重了，是因为拿到右眼开了红门杀了野生的铠灵嘛 ...</blockquote>
+是的，杀了一个就会有这个对话
+
