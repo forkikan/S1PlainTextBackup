@@ -9136,3 +9136,15 @@ SD高达G世纪Reincarnation<img src="https://static.stage1st.com/image/smiley/f
 —— 来自 vivo V2419A, Android 15,  ...</blockquote>
 作用只有一回合能靠支援给两个目标上减防了
 
+
+*****
+
+####  体制  
+##### 859#       发表于 2025-4-29 13:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67765688&amp;ptid=2071758" target="_blank">amanohanei 发表于 2025-4-29 12:16</a>
+作用只有一回合能靠支援给两个目标上减防了</blockquote>
+减防很重要啊，不然为啥风灵排行这么高。
+
+—— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
