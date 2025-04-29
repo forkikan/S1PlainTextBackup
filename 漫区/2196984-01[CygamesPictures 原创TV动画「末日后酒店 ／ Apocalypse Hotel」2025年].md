@@ -1371,3 +1371,11 @@ Here's some of the cuts I did! ✨
 
 就我一个人觉得这个动画像此花奇谭科幻版吗，怎么都在说横滨少终之类的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dhl97  
+##### 128#       发表于 2025-4-29 17:51
+
+这集最后狸猫妹那段让我担心，不会是最后八千代也坏了，狸猫接棒代代经营银河楼，这样的结局吧
+

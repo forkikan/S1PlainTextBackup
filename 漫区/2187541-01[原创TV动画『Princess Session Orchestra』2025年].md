@@ -938,3 +938,11 @@ OPED映像解禁ーOPクセになる。
 
 人物介绍里透了反派那边还有个leader，不过名字叫カリスト不是乐器可能就是主唱。顺便反派的血型分别是梅花方片红桃黑桃，星座也都凭空捏的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  水莲寺流歌  
+##### 91#       发表于 2025-4-29 17:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怪不得有公主之前参加演唱会出事了还能一直办下去，原来反派还会帮着消除记忆，是懂得持续性竭泽而渔的
+
