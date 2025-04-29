@@ -9123,3 +9123,16 @@ SD高达G世纪Reincarnation<img src="https://static.stage1st.com/image/smiley/f
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  amanohanei  
+##### 858#       发表于 2025-4-29 12:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67765632&amp;ptid=2071758" target="_blank">一个陆仁贾 发表于 2025-4-29 11:57</a>
+
+红高达强化满了感觉也就那么回事吧，2次支援不错，输出只够挂buff了
+
+—— 来自 vivo V2419A, Android 15,  ...</blockquote>
+作用只有一回合能靠支援给两个目标上减防了
+
