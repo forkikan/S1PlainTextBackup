@@ -1349,3 +1349,15 @@ Here's some of the cuts I did! ✨
 <img src="https://p.sda1.dev/23/e8dde42f7701b7692d8e248bfc6dba28/0007.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/23/10eae1e04d8f0d1fe3ad74d3889221d4/0008.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  楠城旧篱  
+##### 126#       发表于 2025-4-29 15:46
+
+<blockquote>adretyu67. 发表于 2025-4-27 22:38
+比较奇怪为什么环境探测萝卜死活不说病毒浓度情况。
+
+目前看起来生态完全正常但就是不知道灵长类能否正常生 ...</blockquote>
+有的,这次门卫大哥门没开开
+
