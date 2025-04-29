@@ -9446,3 +9446,24 @@ ez8这伙计是个牛头人 自动编成的话他总会抢最好的攻击机开
 机体经验可以刷活动ex本，机师就没辙了</blockquote>
 skip了，手动刷太累
 
+
+*****
+
+####  无念  
+##### 887#       发表于 2025-4-29 23:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67766234&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2025-4-29 15:51</a>
+他卡池机不能开发是有点影响的，exia自己还能开发成雪崩的</blockquote>
+开发里有sr能天使啊
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  无念  
+##### 888#       发表于 2025-4-29 23:20
+
+说起来无正呢，不会是剧场版限定卡池的陪跑吧<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
