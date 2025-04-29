@@ -9416,3 +9416,14 @@ ez8这伙计是个牛头人 自动编成的话他总会抢最好的攻击机开
 因为他自己的机体宇宙中行动力减半 我就没培 ...</blockquote>
 推测他是UR，UR排序高于SSR等，还叫天田士郎（アマダシロー），按50音图也是排第一，所以优先级最高
 
+
+*****
+
+####  帕蕾莉亚  
+##### 884#       发表于 2025-4-29 21:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67766669&amp;ptid=2071758" target="_blank">ドロロ 发表于 2025-4-29 17:47</a>
+
+疯狂量产自由了，经验值太缺了</blockquote>
+机体经验可以刷活动ex本，机师就没辙了
+
