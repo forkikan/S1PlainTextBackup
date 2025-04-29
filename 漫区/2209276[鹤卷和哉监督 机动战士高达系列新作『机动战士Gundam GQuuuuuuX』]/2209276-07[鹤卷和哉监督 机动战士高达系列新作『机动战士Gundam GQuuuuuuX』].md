@@ -8035,3 +8035,227 @@ X 上的 REISSUE RECORDS：“みんなも勝手に踊ったり、勝手に遊�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  tomzach  
+##### 10067#       发表于 2025-4-29 23:49
+
+ 本帖最后由 tomzach 于 2025-4-29 23:53 编辑 
+
+仔细想uc好像确实很少有强调驾驶员的家庭属性……
+
+上战场的不是少年少女就是青年男女，最常见和家庭有关的元素的就是上战场的孩子目睹家庭的破灭（比如骡子、卡缪），除此以外几乎所有驾驶员连婚都没结过
+
+*****
+
+####  gammatau  
+##### 10068#       发表于 2025-4-29 23:51
+
+感觉这一作主题是执念啊，别说主角小孩，连成家有孩子的人都要为高达疯狂
+
+
+*****
+
+####  没取名啊  
+##### 10069#       发表于 2025-4-29 23:54
+
+竟然捅死人妻，太残暴了这个动画<img src="https://static.stage1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  windtrack  
+##### 10070#       发表于 2025-4-29 23:54
+
+艹，你这没必要捅驾驶舱吧...魔女一集退场
+
+*****
+
+####  Sliurus  
+##### 10071#       发表于 2025-4-29 23:54
+
+修司狠人啊，直接下死手
+
+*****
+
+####  huanzhi  
+##### 10072#       发表于 2025-4-29 23:54
+
+wc，一集下线，鹤卷gg你要干什么<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hulaoda007  
+##### 10073#       发表于 2025-4-29 23:54
+
+怎么办，感觉真的在看高达。<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RE㐅ia  
+##### 10074#       发表于 2025-4-29 23:54
+
+woc...一集下线
+
+*****
+
+####  伊露伊道格拉斯  
+##### 10075#       发表于 2025-4-29 23:54
+
+乐了，各方面的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之异热同心  
+##### 10076#       发表于 2025-4-29 23:54
+
+这集算不算怒涛般的展开了？？我感觉只是刚开始展开啊
+
+*****
+
+####  Mika-S  
+##### 10077#       发表于 2025-4-29 23:55
+
+这魔女就<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  NaughtyFish  
+##### 10078#       发表于 2025-4-29 23:55
+
+这战斗中插入太多了好怪啊，但是好颠看得我又有点爽
+
+*****
+
+####  猫兔同笼  
+##### 10079#       发表于 2025-4-29 23:55
+
+富野节……<img src="https://static.stage1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  xunit  
+##### 10080#       发表于 2025-4-29 23:55
+
+两次有描写的战斗主要部分都出现了一人OB一人打的情况，突然想起GBF try了
+
+
+*****
+
+####  拉达  
+##### 10081#       发表于 2025-4-29 23:55
+
+我草，之前还在说打的好含蓄，只砍头的，怎么就直接捅驾驶舱一集下线了
+
+*****
+
+####  woui003woui  
+##### 10082#       发表于 2025-4-29 23:56
+
+虽然节奏进展的很快，但番茄这集心态塑造我跟不上了，这就是nt吗<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  民工业  
+##### 10083#       发表于 2025-4-29 23:56
+
+我现在就要看第5集！！<img src="https://static.stage1st.com/image/smiley/face2017/266.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Concrete  
+##### 10084#       发表于 2025-4-29 23:56
+
+好颠好爽(ﾟДﾟ)ﾉ
+
+*****
+
+####  cayon  
+##### 10085#       发表于 2025-4-29 23:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767547&amp;ptid=2209276" target="_blank">cayon 发表于 2025-4-29 23:43</a>
+
+魔女不会这集真交代了吧</blockquote>
+果然啊，看到提家人就知道要死了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wzm96816  
+##### 10086#       发表于 2025-4-29 23:56
+
+所以相比前面几场糊口赚钱的比赛，这场带有复仇性质的比赛见血了。
+
+牢修，恐怕最好的结局是离开这个宇宙回去，坏一点.....
+
+*****
+
+####  xunit  
+##### 10087#       发表于 2025-4-29 23:56
+
+魔女是奔着杀人来的，自然也和其他真的是在打比赛的不一样
+
+*****
+
+####  奇幻梦境  
+##### 10088#       发表于 2025-4-29 23:56
+
+我的过家家黑拳呢 你还我你还我
+
+这下没话说了
+
+*****
+
+####  suzakushi  
+##### 10089#       发表于 2025-4-29 23:57
+
+女主最后这句话把我看懵了，你是被男主下了药吗。
+
+*****
+
+####  猫兔同笼  
+##### 10090#       发表于 2025-4-29 23:57
+
+黑色三连星只有两个？
+
+*****
+
+####  hulaoda007  
+##### 10091#       发表于 2025-4-29 23:57
+
+那么说，这个世界线没有骡子，所以三连星都还在。
+
+*****
+
+####  xunit  
+##### 10092#       发表于 2025-4-29 23:57
+
+下集是黑色双联星吗
+
+*****
+
+####  花達香奈  
+##### 10093#       发表于 2025-4-29 23:57
+
+黑色三连星只有两个？
+
+*****
+
+####  萨尤克  
+##### 10094#       发表于 2025-4-29 23:58
+
+魔女太牛逼了，然后居然一集就死了<img src="https://static.stage1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+太太我喜欢你你不要走啊<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25019PNF3C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Ferrari  
+##### 10095#       发表于 2025-4-29 23:58
+
+其实性转一下就很好理解，就是一个对横空出世的高达有执念的精英老兵来了结心愿的故事
+
+所以一话退场是能猜到的，但是没觉得要去死啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
