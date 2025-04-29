@@ -1007,3 +1007,11 @@ https://x.com/AzJames34/status/1915731780012745111?t=VgpuGJns9Irza8rFINXXXA&amp;
 
 [https://x.com/aleos696/status/1916975904687067426/photo/1](https://x.com/aleos696/status/1916975904687067426/photo/1)
 
+
+*****
+
+####  osore  
+##### 2255#       发表于 2025-4-29 11:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">汪汪那两声，狗塑太刻意了
+
