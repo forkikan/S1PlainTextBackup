@@ -9515,3 +9515,190 @@ i.imgur.com_YHLCD49.jpeg.jpg
 
 2025-4-30 00:51 上传
 
+
+*****
+
+####  刺客ares  
+##### 10222#       发表于 2025-4-30 00:54
+
+看预告，下集的展开应该是
+
+玛秋被开盒了，在学校被首席哥抓住，结果赶不上军团战的参赛时间
+
+违约不参赛的话会有高额的罚款，玛秋可能提前和喵安说过，如果有事上不了机就让喵安上去顶
+
+下集大魔来袭，应战的应该是喵安inGQX+牢修
+
+如果之前喵安的旧设没有完全作废的话
+
+下集就是喵安和牢修NT共感，并且成功激活欧米茄塞克缪，击败黑色二连星
+
+*****
+
+####  中野梓  
+##### 10223#       发表于 2025-4-30 00:56
+
+<blockquote>千千千千鸟 发表于 2025-4-30 00:31
+修司被两道光束锁住不应该是动不了的状态吗，要动起码也得缺胳膊少腿吧 ...</blockquote>
+两发光束又不是一面墙，只是封走位，致命的是锁住走位后魔女的那刀，可砍看下去就进聊天室了，反应过来光束早结束了
+
+*****
+
+####  盐盐盐盐盐  
+##### 10224#       发表于 2025-4-30 00:56
+
+这集也太好看了，吹爆<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">一集单元回就把魔女这个复杂的人物写完整了，水魔十辈子都赶不上的功力
+最后修司瞬移我认为就是小型zeknova效果，鸭子那次是大型穿越，修司这次就是瞬移，本质都是使物质转移的究极nt神棍力
+不过修司如此的非人+麻球有追求特殊的魔怔前兆（剧中描写来说并没有肯定她这个精神状态反而偏否定）+喵安作为普通人的代表，感觉最后结局修司得偿所愿后消失，麻球和喵安回归正常生活的可能性非常大，魔女就是为了那个特殊性无法真正接受普通，魔怔了最后走向毁灭，麻球作为主角真正的完整大概就是要走出这种单纯想要逃离普通的心态懂得平淡才是真吧……下集预告喵安要试试krkr很可能她是感受不到或者感受到了也不会和大多数nt一样被krkr魅惑，作为把麻球留在正常人范畴的角色存在
+不过魔女在聊天室看到修司的愿望这么安详修司肯定不是纯疯子还是很善良的…虽然下手杀人了但是魔女那个状态或许不杀了她她自己一辈子也是走不出这个nt阴影的
+
+*****
+
+####  baozi268369重练  
+##### 10225#       发表于 2025-4-30 00:56
+
+无法预知的命运舞台！！这一刀捅爆的时候我也和小番茄一样惊了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yanghuangu  
+##### 10226#       发表于 2025-4-30 00:56
+
+小番茄的居家发型好可爱啊<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  57042711  
+##### 10227#       发表于 2025-4-30 00:57
+
+ 本帖最后由 57042711 于 2025-4-30 00:58 编辑 
+
+这集魔女要是开的是GP-01fb的话这些动作就不违和了吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+能用钩索达成这样的效果确实挺拼的…
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  岸浪白野  
+##### 10228#       发表于 2025-4-30 00:57
+
+预告的赶不上军团战，就是能猜由喵安来开从而为什么是非塞克繆形态出击
+
+<img src="https://img.stage1st.com/forum/202504/30/005653l2dynuy6kignkddp.jpg" referrerpolicy="no-referrer">
+
+<strong>9IY%LS5JDZXICM(L6EF`EEK.jpg</strong> (232.59 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 00:56 上传
+
+<img src="https://img.stage1st.com/forum/202504/30/005659lc9m9979mm49ngg2.jpg" referrerpolicy="no-referrer">
+
+<strong>(SBQB$I~43]{Q]BM~J3}`K4.jpg</strong> (142.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 00:56 上传
+
+*****
+
+####  你妈的为什么  
+##### 10229#       发表于 2025-4-30 00:58
+
+小番茄最后的发言有点吓人啊
+
+真新时代卡喵，最后尼亚安来推轮椅？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 10230#       发表于 2025-4-30 00:59
+
+我大概明白为啥鹤卷会在访谈里提冷战概念了，这集片头Side6居民抗议完全是在neta日本60年代的安保抗争，麻球就是那个年代一类年轻人的典型，向往自由、反抗父母和学校、不想过普通日常而被某种信念所吸引然后投身其中
+
+*****
+
+####  燃烧的石头  
+##### 10231#       发表于 2025-4-30 00:59
+
+剧情也不说了，机战真是烂到家了
+
+—— 来自 realme RMX3370, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  Wareytia  
+##### 10232#       发表于 2025-4-30 01:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767762&amp;ptid=2209276" target="_blank">hoyice 发表于 2025-4-30 00:21</a>
+
+牛島 裕一朗：
+
+荒木 哲郎：</blockquote>
+死后放魔女亲子日常，四月就是一个巨大的忍者×杀手日常<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  KDConan  
+##### 10233#       发表于 2025-4-30 01:00
+
+颠啊卧槽，这就是高达味吗<img src="https://static.stage1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  amanohanei  
+##### 10234#       发表于 2025-4-30 01:01
+
+要是多个喷口还能帅气点啊
+
+钩锁太离谱了, 换个精神力来我都信服. 红高俩质量能差多少,能这样拉着勇士转的
+
+*****
+
+####  poiqwe  
+##### 10235#       发表于 2025-4-30 01:02
+
+machu<img src="https://static.stage1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202504/30/010036tzim2ivkd0mkdyk1.png" referrerpolicy="no-referrer">
+
+<strong>171032.png</strong> (70.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 01:00 上传
+
+*****
+
+####  盐盐盐盐盐  
+##### 10236#       发表于 2025-4-30 01:02
+
+话说这好像是剧中第一次明确说了nt聊天室背景音那个声音是“拉拉音”吧，真就和主世界拉拉有关呐，猜一个在幕后推动世界线变更（给麻球发信息的匿名人）的是拉拉好了
+
+*****
+
+####  P-link  
+##### 10237#       发表于 2025-4-30 01:03
+
+话说黑科技钢索理论上承受多少的力
+
+*****
+
+####  vorfeed  
+##### 10238#       发表于 2025-4-30 01:03
+
+长得跟吉姆一样的磁气覆膜勇士<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+黑色三连星里马修是必死的吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  武川日玄  
+##### 10239#       发表于 2025-4-30 01:04
+
+上一次看刀人还是路易斯
+
