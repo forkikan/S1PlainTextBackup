@@ -1361,3 +1361,13 @@ Here's some of the cuts I did! ✨
 目前看起来生态完全正常但就是不知道灵长类能否正常生 ...</blockquote>
 有的,这次门卫大哥门没开开
 
+
+*****
+
+####  huanzhi  
+##### 127#       发表于 2025-4-29 15:59
+
+前3集好像没看出来有什么主线
+
+就我一个人觉得这个动画像此花奇谭科幻版吗，怎么都在说横滨少终之类的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
