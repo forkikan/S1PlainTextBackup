@@ -9156,3 +9156,11 @@ SD高达G世纪Reincarnation<img src="https://static.stage1st.com/image/smiley/f
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">只有4W石，在犹豫是明天梭了，还是等6W石保底
 
+
+*****
+
+####  夜之光  
+##### 861#       发表于 2025-4-29 13:54
+
+钻太少了，才4W一井都不够，直接抽大概抽不中就要直接转生了，或者说这反而是一个比较好的刷初始的节点？
+
