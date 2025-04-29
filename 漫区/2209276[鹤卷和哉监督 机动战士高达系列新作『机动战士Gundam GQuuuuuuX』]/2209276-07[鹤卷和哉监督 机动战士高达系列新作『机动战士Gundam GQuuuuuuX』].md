@@ -10612,3 +10612,14 @@ wtfuck
 修司破防大喊：玛秋你不是不会游泳的水母吗？
 玛秋用碎掉的表情发出哭腔道：原来高达是这样看我的呀…
 
+
+*****
+
+####  xwz  
+##### 10327#       发表于 2025-4-30 03:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767690&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-4-30 00:09</a>
+
+麻球纯叛逆期，觉得政府精英的妈妈是“普通”，向往“不普通”的修司，看到魔女为了执念而死反而被这种思 ...</blockquote>
+她妈开高达的时候比这疯多了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
