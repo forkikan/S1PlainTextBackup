@@ -9702,3 +9702,162 @@ machu<img src="https://static.stage1st.com/image/smiley/face2017/094.png" referr
 
 上一次看刀人还是路易斯
 
+
+*****
+
+####  暗黑能乐  
+##### 10240#       发表于 2025-4-30 01:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这战斗真是看笑了，红高能消失躲开必杀我只想到一个可能性，这机子有穿越时间或者空间的能力，在引发了泽克诺瓦后就能直接启动这一超能力。顺便最后NT谜语人他最好真能圆的好，别最后“就这”了
+
+
+*****
+
+####  remediosOlOOOO  
+##### 10241#       发表于 2025-4-30 01:07
+
+麻球最后真能恢复正常人心态吗，真不好说吧，想象不出来要怎样剥去这些异质封印NT能力安心做个小市民的
+
+*****
+
+####  岸浪白野  
+##### 10242#       发表于 2025-4-30 01:08
+
+博美犬第5名
+
+<img src="https://img.stage1st.com/forum/202504/30/010754zn5hg19j4fnc5iyc.png" referrerpolicy="no-referrer">
+
+<strong>~ESU$DD)EP@P{_JSR2{B5GM.png</strong> (576.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 01:07 上传
+
+*****
+
+####  暗黑能乐  
+##### 10243#       发表于 2025-4-30 01:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">顺便，麻球到底哪里被击垮看中的，没懂啊，这话侧面说明了麻球的NT能力也就那样，所以不是麻球能力够格才开得了击垮，而是击垮选择了麻球
+
+*****
+
+####  オルガピピック  
+##### 10244#       发表于 2025-4-30 01:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767917&amp;ptid=2209276" target="_blank">remediosOlOOOO 发表于 2025-4-30 01:07</a>
+
+麻球最后真能恢复正常人心态吗，真不好说吧，想象不出来要怎样剥去这些异质封印NT能力安心做个小市民的 ...</blockquote>
+想知道吗 详情请看v高达 胡索一开始跟麻球心态是有点接近的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仓岛千百合  
+##### 10245#       发表于 2025-4-30 01:10
+
+不是，看不懂女主才认识男主几天啊，怎么现在整个一痴女形态出击，看见男主杀人我还以为女主要反思了，没想到下句话就擅自理解了，你理解个der啊...
+
+*****
+
+####  暗黑能乐  
+##### 10246#       发表于 2025-4-30 01:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767904&amp;ptid=2209276" target="_blank">amanohanei 发表于 2025-4-30 01:01</a>
+
+要是多个喷口还能帅气点啊
+
+钩锁太离谱了, 换个精神力来我都信服. 红高俩质量能差多少,能这样拉着勇士转的 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看看这话演出，这是当进击巨人来画的
+
+*****
+
+####  mumulyn  
+##### 10247#       发表于 2025-4-30 01:10
+
+这次特技作监是金世俊吧，看原画阵容每集都还挺豪华的，那只能说是故意做成这样的，出于什么考量就不知道了
+
+*****
+
+####  zzf111  
+##### 10248#       发表于 2025-4-30 01:12
+
+复盘一遍感觉剧情刻意安排得有点不爽
+
+明明魔女是有和解空间的，一个复仇鬼一个啥也不懂啥也不说一个无情杀手干脆利落搞得一集退场了
+
+这贺图也是，纯恶意！<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hsyg  
+##### 10249#       发表于 2025-4-30 01:12
+
+主要这神奇钩子为啥能在装甲平面勾住，钩高达尼姆如泥吗。还得能自由回收不会打结，虽然说出来好像有点道理，但是实现起来就太扯，有这能耐不如直接捆住对面手脚，能拉断手搜不断的绳子也是无敌
+
+
+*****
+
+####  ティグル  
+##### 10250#       发表于 2025-4-30 01:12
+
+但是鹤卷和榎户作为60s生人实在不看好能好好描写安保斗争相关的表达，非亲历者总是会有莫名的浪漫化情节
+
+*****
+
+####  暗黑能乐  
+##### 10251#       发表于 2025-4-30 01:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767924&amp;ptid=2209276" target="_blank">仓岛千百合 发表于 2025-4-30 01:10</a>
+
+不是，看不懂女主才认识男主几天啊，怎么现在整个一痴女形态出击，看见男主杀人我还以为女主要反思了，没想 ...</blockquote>
+那里其实不太像是理解了，而是震惊“做到这个地步才能到达特殊”，让她产生了退却的心态（表情看上去更像怕了）
+
+*****
+
+####  sauron.j  
+##### 10252#       发表于 2025-4-30 01:12
+
+这打戏兵器感很弱，像人类，而且前后分镜没几个能衔接上的，画面表述上属于很生硬的俺寻思式相对位置
+
+看尿性以后恐怕都是这个风格的的战斗
+
+*****
+
+####  鷇音子  
+##### 10253#       发表于 2025-4-30 01:12
+
+真不错啊，比起前三集有种飞升的感觉
+
+*****
+
+####  仓岛千百合  
+##### 10254#       发表于 2025-4-30 01:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767932&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-4-30 01:12</a>
+那里其实不太像是理解了，而是震惊“做到这个地步才能到达特殊”，让她产生了退却的心态（表情看上去更像 ...</blockquote>
+看下集预告明显不是吧，下集预告明显又是其乐融融。
+
+*****
+
+####  暗黑能乐  
+##### 10255#       发表于 2025-4-30 01:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767933&amp;ptid=2209276" target="_blank">sauron.j 发表于 2025-4-30 01:12</a>
+
+这打戏兵器感很弱，像人类，而且前后分镜没几个能衔接上的，画面表述上属于很生硬的俺寻思式相对位置
+
+看尿 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">各种体操动作属实没绷住
+
+*****
+
+####  a85982313  
+##### 10256#       发表于 2025-4-30 01:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767924&amp;ptid=2209276" target="_blank">仓岛千百合 发表于 2025-4-30 01:10</a>
+
+不是，看不懂女主才认识男主几天啊，怎么现在整个一痴女形态出击，看见男主杀人我还以为女主要反思了，没想 ...</blockquote>
+结合这集麻球对日常非日常的说法，这里更多的应该对kirakira非日常的执着吧
+
+这一点应该是会被修正的
+
