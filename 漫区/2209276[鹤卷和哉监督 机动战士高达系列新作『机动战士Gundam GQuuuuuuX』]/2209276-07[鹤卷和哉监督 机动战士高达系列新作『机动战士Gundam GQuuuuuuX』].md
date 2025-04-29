@@ -10776,3 +10776,11 @@ eva巴黎战的时候玩绳子空战不是玩的挺明白吗，这回打戏拍�
 
 我看这片应该叫 机动战士高达 来自新世界
 
+
+*****
+
+####  阿布都督  
+##### 10343#       发表于 2025-4-30 07:17
+
+打斗和剧情都很玄幻，看不懂<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
