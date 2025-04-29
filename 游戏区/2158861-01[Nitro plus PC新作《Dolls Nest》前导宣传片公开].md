@@ -1747,3 +1747,19 @@ baldr系列那种本来就是act的除外
 
 这游戏关卡设计我甚至觉得吊打忍者组<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蓝雉  
+##### 168#       发表于 2025-4-29 14:15
+
+<img src="https://img.stage1st.com/forum/202504/29/141504mrz2248y4axv22ry.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250429141439.png</strong> (3.91 MB, 下载次数: 0)
+
+下载附件
+
+2025-4-29 14:15 上传
+
+这一套下来没超载EP回复还能扣到负数笑死了
+
