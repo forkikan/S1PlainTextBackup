@@ -1664,3 +1664,33 @@ NT这个故事0079之后从来也没讲好过，不觉得鹤卷能写好，他�
 
 打个比赛把命拼上了，这就是地下比赛的含金量吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CSWQ  
+##### 10528#       发表于 2025-4-30 13:16
+
+答案不就是“大家的力量”、“小孩子们都是NEWTYPE”。ZZ的末尾就是这个命题最终答案，CCA更多是为了完结上一代人的孽缘
+
+*****
+
+####  operatbig  
+##### 10529#       发表于 2025-4-30 13:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769298&amp;ptid=2209276" target="_blank">真阿波罗 发表于 2025-4-30 13:13</a>
+
+别装了，集美，要么就是白骑士龟龟。你还要点脸就别再来高达楼了。见一次，我骂一次。
+
+你很怕别人看你的 ...</blockquote>
+好吧，我服了，你还真去翻了。<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天邪鬼  
+##### 10530#       发表于 2025-4-30 13:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769312&amp;ptid=2209276" target="_blank">CSWQ 发表于 2025-4-30 13:16</a>
+答案不就是“大家的力量”、“小孩子们都是NEWTYPE”。ZZ的末尾就是这个命题最终答案，CCA更多是为了完结上 ...</blockquote>
+这种留待后来人的说法不就是交白卷嘛，更别说再往后日子也没好过，就算都是nt也会有能欺骗他人的nt
+

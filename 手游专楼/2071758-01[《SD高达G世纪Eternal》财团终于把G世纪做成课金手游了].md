@@ -9848,3 +9848,18 @@ ur拉克丝永恒我连中2个，但没出基拉<img src="https://static.stage1s
 
 全明星，但是是拉妖  70出正义+2UR战舰  不抽了
 
+
+*****
+
+####  zExs  
+##### 931#       发表于 2025-4-30 13:21
+
+这池子最大目玉的还是拉妖...一击必杀30全队加成
+
+*****
+
+####  閻魔愛  
+##### 932#       发表于 2025-4-30 13:21
+
+80抽，花+电视姬，没出拉妖。强自+自由，自由喜加1了。<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
