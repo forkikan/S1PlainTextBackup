@@ -3426,3 +3426,52 @@ e1和e4几段两人互动的演出确实挺有趣，空间和心理位置、生�
 
 话说剧情主线会不会把在正史里应该都已经死了的机师都拉出来打个bossrunsh？
 
+
+*****
+
+####  希望之异热同心  
+##### 10694#       发表于 2025-4-30 17:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67770126&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-4-30 17:40</a>
+话说对手原定机体是轻加农，那岂不是轻加农也流入民间了？</blockquote>
+对战的队伍CRS背后应该是个军工企业而不是什么废品商，怪不得博美犬开2台高达出来没被废品商投诉炸鱼，排名高的搞不好全是鸡瘟和联邦军工企业过来搞武器测试的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  lingfeng1236  
+##### 10695#       发表于 2025-4-30 17:58
+
+给人看乐了，一群河豚明明在几个专楼呼朋喝友大聊特聊，在高达楼就默契的装成理中客，随时等着上桌，玩社区圈地谁能玩的过你们，哥几个还有集美，也别隐忍了，直接开聊吧。<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 純田まな| + 1|欢乐多|
+| Wondering| + 2|欢乐多|
+
+查看全部评分
+
+*****
+
+####  Wondering  
+##### 10696#       发表于 2025-4-30 17:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67770179&amp;ptid=2209276" target="_blank">123gp199 发表于 2025-4-30 17:56</a>
+
+话说剧情主线会不会把在正史里应该都已经死了的机师都拉出来打个bossrunsh？ ...</blockquote>
+有这个必要吗，真要打十二集黑拳不走主线了是吧
+
+*****
+
+####  ykyin09  
+##### 10697#       发表于 2025-4-30 17:59
+
+他们一艘吉翁的船怎么大摇大摆得进去地球，联邦又不是真似了
+

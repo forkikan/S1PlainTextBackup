@@ -7066,3 +7066,16 @@ AnimeTV 频道 随时为您带来来自日本的第一手动漫资讯！——�
        Elijah Gonzalez is the assistant Games and TV Editor for Paste Magazine. In addition to playing and watching the latest on the small screen, he also loves film, creating large lists of media he’ll probably never actually get to, and dreaming of the day he finally gets through all the Like a Dragon games. You can follow him on Bluesky @elijahgonzalez.bsky.social. <blockquote>以利亚·冈萨雷斯是《Paste Magazine》杂志游戏与电视版块助理编辑。除了游玩和观看最新电子游戏外，他还热爱电影创作，经常列出自己可能永远无法完成的媒体计划清单，并梦想着有朝一日能通关所有《如龙》系列游戏。您可以通过 Bluesky 社交平台@elijahgonzalez.bsky.social 关注他。</blockquote>
       For all the latest TV news, reviews, lists and features, follow @Paste_TV. <blockquote>欲获取最新电视资讯、评论、片单及专题报道，请关注@Paste_TV。</blockquote>
 
+
+*****
+
+####  Cortana  
+##### 40746#       发表于 2025-4-30 17:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67770134&amp;ptid=2208921" target="_blank">堀内爱里衣 发表于 2025-4-30 17:45</a>
+
+Band Producer Hiroki Matsumoto On Finding Ave Mujica’s Sound, In And Outside Of Anime
+
+原帖链接：htt ...</blockquote>
+求求了，第三季来首正儿八经的交响金属吧，李子数值那么高，不来首金属太可惜了<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
