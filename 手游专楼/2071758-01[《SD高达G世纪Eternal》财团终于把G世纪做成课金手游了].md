@@ -10360,3 +10360,13 @@ boss战是不是就不用凑本系列机体叠奖励buff了？
 
 前200抽出了2正义2自由1沙扎比1拉克丝，哎呦你别说还真就是3%啊<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mobdom  
+##### 987#       发表于 2025-4-30 21:34
+
+ 本帖最后由 mobdom 于 2025-4-30 21:35 编辑 
+
+怎么大家都这么轻松打过去的，我20w战斗力也打不过推荐18w的金异端专家难度啊<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">有没有推荐阵容
+
