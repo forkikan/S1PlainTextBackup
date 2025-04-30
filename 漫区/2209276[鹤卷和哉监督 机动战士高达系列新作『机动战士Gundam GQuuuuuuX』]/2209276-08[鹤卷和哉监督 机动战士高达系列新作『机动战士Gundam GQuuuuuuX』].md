@@ -4112,3 +4112,11 @@ g复国开高扭力背包揍巫夏那集也是荒木哲郎，咋十年过去后�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  jojonathan  
+##### 10752#       发表于 2025-4-30 21:47
+
+发散一下的话 其实也有一些科幻作品基于抗拉材料比抗压材料性价比更高的角度设计主要受力体系是抗拉的宇宙飞船 比如阿凡达里的那个<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
