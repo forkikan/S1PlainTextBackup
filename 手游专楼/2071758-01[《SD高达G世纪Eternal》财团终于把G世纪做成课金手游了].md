@@ -10409,3 +10409,14 @@ boss战是不是就不用凑本系列机体叠奖励buff了？
 
 —— 来自 Xiaomi 24031PN0DC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  帕蕾莉亚  
+##### 992#       发表于 2025-4-30 23:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767450&amp;ptid=2071758" target="_blank">ドロロ 发表于 2025-4-29 22:59</a>
+
+skip了，手动刷太累</blockquote>
+模拟器录个脚本挂着就完了……
+
