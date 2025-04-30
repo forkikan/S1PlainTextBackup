@@ -7186,3 +7186,18 @@ weirdA_ <strong>作者</strong>
 
 [https://t.bilibili.com/1061656383062016017](https://t.bilibili.com/1061656383062016017)
 
+
+*****
+
+####  osore  
+##### 40753#       发表于 2025-4-30 23:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪个表情被冲了，洗澡？
+
+*****
+
+####  与太郎  
+##### 40754#       发表于 2025-4-30 23:21
+
+mujica收藏集销量已经超gbc了，虽然肉眼可见不太可能超mygo了（mygo最近迎来一波长尾涨到200w了，这次又有动态表情包复活估计还能再涨点）
+
