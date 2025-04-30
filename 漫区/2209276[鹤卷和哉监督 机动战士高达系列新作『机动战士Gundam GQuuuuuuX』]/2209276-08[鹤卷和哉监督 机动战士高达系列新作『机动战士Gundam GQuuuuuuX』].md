@@ -3640,3 +3640,23 @@ WTF 百杀王牌就这么领便当了？本来看面相如此地无机质，以�
 哪怕是水魔也在第一集赋予女主一个保护友人的强动机 ...</blockquote>
 逃离大小姐生活就是动机
 
+
+*****
+
+####  wpcc  
+##### 10714#       发表于 2025-4-30 19:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769958&amp;ptid=2209276" target="_blank">死光光 发表于 2025-4-30 16:52</a>
+
+就算勉强能理解麻球的逻辑，接受修司无与伦比的非人感，但是魔女最后跟修司的对手戏太tm空洞了导致最后给 ...</blockquote>
+魔女是否定nt的人 见到红高达就要开杀 最后送去超度了。本质就是单元剧
+
+*****
+
+####  Wondering  
+##### 10715#       发表于 2025-4-30 19:08
+
+ 本帖最后由 Wondering 于 2025-4-30 19:10 编辑 
+
+所以说不送串子进去吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这一唱一和还真挺精彩的，麻辣人的智商串子都看不懂也挺正常
+
