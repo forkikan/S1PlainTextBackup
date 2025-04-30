@@ -6413,3 +6413,24 @@ s1解封这么晚 骂都提不起劲了 mujica就这么毁了我三分之一个2
 —— 来自 鹅球 v3.3.96-alpha ...</blockquote>
 那么“睦自己”是个什么东西，高于人格还是低于人格？
 
+
+*****
+
+####  adretyu67.  
+##### 40726#       发表于 2025-4-30 09:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768480&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-4-30 09:39</a>
+
+那么“睦自己”是个什么东西，高于人格还是低于人格？</blockquote>
+若叶睦就是那个写人格剧本的古神。
+
+*****
+
+####  与太郎  
+##### 40727#       发表于 2025-4-30 09:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768518&amp;ptid=2208921" target="_blank">adretyu67. 发表于 2025-4-30 09:53</a>
+
+若叶睦就是那个写人格剧本的古神。</blockquote>
+古神还会记忆断片吗<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

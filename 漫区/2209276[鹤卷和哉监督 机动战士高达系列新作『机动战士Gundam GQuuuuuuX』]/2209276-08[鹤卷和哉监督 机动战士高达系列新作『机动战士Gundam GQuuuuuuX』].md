@@ -338,3 +338,83 @@ nt之间相互理解但仍要干死对方这确实很老uc味啊
 你看夏莉亚就对妈妈魔女表示理解</blockquote>
 把剧情设计理解成PTSD老兵黑拳玩命死得其所我还挺能接受的，但剧中人物没经历过战争的对PTSD很难理解<img src="https://static.stage1st.com/image/smiley/bundam2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xwr  
+##### 10394#       发表于 2025-4-30 09:55
+
+ 本帖最后由 xwr 于 2025-4-30 09:58 编辑 
+
+安琪和魔女是老相识么？从在事务所的对话上来说，她们两个应该认识，甚至连魔女结婚改姓生孩子都知道？MAV被红高达击坠她也知道，安琪是前联邦的人？
+
+*****
+
+####  ads147147  
+##### 10395#       发表于 2025-4-30 09:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768357&amp;ptid=2209276" target="_blank">woui003woui 发表于 2025-4-30 09:01</a>
+
+麻球可能是nt能力不够，首席目前就根本没看出来哪像nt
+
+仅就这个来说很难推吉夸选人基准 ...</blockquote>
+首席没nt能力，第一集就被修司浮游炮点死了。。
+
+*****
+
+####  暗黑能乐  
+##### 10396#       发表于 2025-4-30 09:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768522&amp;ptid=2209276" target="_blank">xwr 发表于 2025-4-30 09:55</a>
+
+安琪和魔女是老相识么？从在事务所的对话上来说，她们两个应该认识，甚至连魔女结婚改姓都知道？ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">不要小看我的情报网啊，这角色目前给人就这感觉吧
+
+*****
+
+####  别急来过两招  
+##### 10397#       发表于 2025-4-30 09:59
+
+是不是鹤卷自己女儿跟黄毛跑了得到的灵感
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  Sliurus  
+##### 10398#       发表于 2025-4-30 10:00
+
+慢慢捅进去我觉得只是给观众一点酝酿情绪的时间吧，一种表现手法而已，没什么需要过度解读的
+
+*****
+
+####  ヒトニナル  
+##### 10399#       发表于 2025-4-30 10:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这打戏没前半段玛秋逗狗流畅，玛秋逗狗大概是能上作画锦集的罢
+
+*****
+
+####  Sliurus  
+##### 10400#       发表于 2025-4-30 10:02
+
+非要这么说flcl不就是乖乖女和鬼火少年的性转版，恶意发散的差不多得了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qiyu1234  
+##### 10401#       发表于 2025-4-30 10:02
+
+什么时候出GQUX鸭和魔女的本子
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 10402#       发表于 2025-4-30 10:03
+
+包括我都猜是没余裕留不了手，如果下集揭露是故意的会是很大爆点，既然下集预告没提就没这回事。
+
+也有可能修司就回一句高达让我干的，然后颠婆小番茄对此しびれる、憧れる，就略过不多聊了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

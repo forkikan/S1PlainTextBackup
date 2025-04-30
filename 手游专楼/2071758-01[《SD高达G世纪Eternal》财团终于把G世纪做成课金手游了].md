@@ -9578,3 +9578,16 @@ skip了，手动刷太累
 才看到开发路线里的GNFlag居然是黄机而不是红机，这浑身上下就一把家伙什的居然是支援？？绝对是设计喝高了 ...</blockquote>
 都是乱填的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  光辉传递者  
+##### 899#       发表于 2025-4-30 09:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768519&amp;ptid=2071758" target="_blank">里村紅葉 发表于 2025-4-30 09:53</a>
+
+都是乱填的开发的能天使都是蓝机</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">能天使好歹第一季首秀确实是个打不动的盾，这倒还不是问题。
+
+GNFlag出场金螃蟹都扑街了他一个浑身上下只有一把打近战的援护谁去？须知这游戏的判定是被支援对象遭到击坠在先，螃蟹被击坠了触发不了援护啊。
+
