@@ -1580,3 +1580,11 @@ https://bangumi.tv/ep/1465152</blockquote>
 
 b站热搜挂了一晚上了可惜看来真推不出去<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 149#       发表于 2025-5-1 07:27
+
+这片是真在日本创作者舒适区了，怎么想都不可能翻车，该吹爆了
+
