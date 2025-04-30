@@ -535,3 +535,70 @@ nt之间相互理解但仍要干死对方这确实很老uc味啊
 
 话说红高达流星锤都爆了，感觉再下一集就要上舰了，首席哥可能是来劝降马秋的，承诺整备和下地球之类的
 
+
+*****
+
+####  Geyorkias  
+##### 10415#       发表于 2025-4-30 10:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768588&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-4-30 10:11</a>
+
+那绿蜀黍凭什么还能拿着木马和鸡胯到处跑，他现在算哪派</blockquote>
+明面上的老太婆派，实质上的夏亚派啊，第一话不是讲了吗？
+
+*****
+
+####  pokemon最爱  
+##### 10416#       发表于 2025-4-30 10:19
+
+这集看下来给我的感觉是一般路过宇宙女鬼拉拉发功不知道本体在哪儿的G夸克鸭子上身才让修司翻盘超度了魔女，不然的话修司最后会被魔女杀死<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+以及G夸克世界线这科技进步可真慢啊，一个磁气覆膜就让最新锐的高达G夸克跟不上了还行<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  woui003woui  
+##### 10417#       发表于 2025-4-30 10:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768589&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-4-30 10:12</a>
+第一话这脑门过电的标准NT表现，是没看懂吗？</blockquote>
+我知道他是nt，原话回一下现在的剧情表现还是不能完全证伪“吉夸选人标准是nt能力”因为番茄表现比他明显很多
+都听宇宙聊天室声了能不是nt吗，随口一说别拷打我了.jpg
+
+*****
+
+####  希望之异热同心  
+##### 10418#       发表于 2025-4-30 10:22
+
+6集应该真能出发准备去地球了，PV里面有机动战士在政府大楼外面飞行的画面，大概率是为了抓捕高达行动吧。搞不好番茄整出个大新闻，夏利亚顺势下场接触红高达，双方汇合准备去地球
+
+<img src="https://img.stage1st.com/forum/202504/30/101715hnsgqjnr6npbvjrn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (97.51 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 10:17 上传
+
+*****
+
+####  leleq  
+##### 10419#       发表于 2025-4-30 10:22
+
+这集第一感受榎戸好痞子滚。<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+这集魔女的战斗感觉像在看超级系体育番，打球突然有个人打出的球真的带火！然后旁边的解说：“她这是把球的转速提高到极致造成了摩擦生火”。我<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+另外这下麻球是性转卡缪的可能性低了吧，nt等级有点低啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  暗黑能乐  
+##### 10420#       发表于 2025-4-30 10:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768601&amp;ptid=2209276" target="_blank">Geyorkias 发表于 2025-4-30 10:16</a>
+
+明面上的老太婆派，实质上的夏亚派啊，第一话不是讲了吗？</blockquote>
+那兰巴怎么不搞这套假意投诚，性格不允许吗（
+
