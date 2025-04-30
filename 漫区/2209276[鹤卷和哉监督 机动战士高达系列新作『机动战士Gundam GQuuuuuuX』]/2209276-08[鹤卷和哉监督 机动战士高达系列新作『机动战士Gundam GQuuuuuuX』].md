@@ -1521,3 +1521,102 @@ nt能感知到人杀意的，对方不动杀心他被踹来踹去都不会下杀
 
 葵丝保留了对人的感情和重视，但是心态上对自己所作所为毫不负责，所以和充斥博弈和算计的战场一直格格不入。
 
+
+*****
+
+####  marlun  
+##### 10513#       发表于 2025-4-30 12:56
+
+看来话题度还是炒起来了，毕竟这一集的信息量这么大，节奏又那么流畅，戏剧冲突又那么强烈，而这些仅仅包装在一集里面，所有的谜底都没有揭开，我反而是更期待这个故事后面会怎么写下去
+
+*****
+
+####  operatbig  
+##### 10514#       发表于 2025-4-30 12:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769209&amp;ptid=2209276" target="_blank">真阿波罗 发表于 2025-4-30 12:49</a>
+
+这就是河豚特有的逆风装松弛吗？都玩s1了玩社区了，看用户发言不是很常见吗？你装什么萌萌人呢？真是有够 ...</blockquote>
+这种事你居然觉得稀松平常吗...<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">你好这口的话可以再仔细翻翻我有没有家访的记录。
+
+*****
+
+####  别急来过两招  
+##### 10515#       发表于 2025-4-30 12:56
+
+回看了一遍结尾 小番茄“如果不做到这样”指的应该是魔女 魔女有家庭有自己的日子，却还因为红高达的出现送了性命 在最后魔女和修斯也在聊天室了解了彼此。女主应该想的是如果不像魔女一样抛却日常的一切，就无法和自己向往的非日常修斯一起前行 
+和杀人本身应该毫无关系，第一集女主被军警追杀脑门过电的时候应该就已经做好送命的觉悟了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  uponutopia  
+##### 10516#       发表于 2025-4-30 12:57
+
+这机战部分算是烂完了吧，我实在不能理解khara这帮画了大半辈子机器人动画的人为什么能端上来这种水平的机战，更不能理解明明79IF还有不错的机战镜头的正片水平却退化到像是两拨人做的一样，都3D了为什么还能端上来这种PPT瞬移偷懒特写镜头滥切的烂货，连扳机七年前的古力特都比你KHARA高达画得更像机战吧。鹤卷不懂机战你痞子不懂吗？痞子不懂机战你金世俊也不懂吗？说句难听的高达动画哪怕剧情烂了机战也不能做烂吧，只能幻想这两集机战部分是外包的，khara的哥哥们在后头憋大的了<img src="https://static.stage1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sliver1997  
+##### 10517#       发表于 2025-4-30 12:58
+
+本集剧情还是挺有趣的，但打戏实在不行
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  marlun  
+##### 10518#       发表于 2025-4-30 12:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769239&amp;ptid=2209276" target="_blank">uponutopia 发表于 2025-4-30 12:57</a>
+
+这机战部分算是烂完了吧，我实在不能理解khara这帮画了大半辈子机器人动画的人为什么能端上来这种水平的机 ...</blockquote>
+这还是荒木折郎负责的，更是没想到分镜实在太乱
+
+
+*****
+
+####  chondroitin  
+##### 10519#       发表于 2025-4-30 13:00
+
+NT这个故事0079之后从来也没讲好过，不觉得鹤卷能写好，他和同时代很多创作者一样，只是擅长展开问题，不是擅长给出答案的人。
+
+如果鹤卷意识到坐在高达上和身为NT想相互理解不可兼容，拍一个不要万代出钱直接开两集高达就扔掉回归日子人的0085if， 我愿称之为新人类之神。可惜高达这个故事不是因为NT而是因为巨大杀戮机器人而延续着拍下来的，所以没有这种如果。
+
+*****
+
+####  sliver1997  
+##### 10520#       发表于 2025-4-30 13:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769241&amp;ptid=2209276" target="_blank">sliver1997 发表于 2025-4-30 12:58</a>
+本集剧情还是挺有趣的，但打戏实在不行
+
+—— 来自 S1Fun</blockquote>
+看完脑子里一瞬间闪过“这集怎么打戏还不如水魔”的想法，连我自己都愣了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  marlun  
+##### 10521#       发表于 2025-4-30 13:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769257&amp;ptid=2209276" target="_blank">sliver1997 发表于 2025-4-30 13:01</a>
+
+看完脑子里一瞬间闪过“这集怎么打戏还不如水魔”的想法，连我自己都愣了
+
+—— 来自 S1Fun ...</blockquote>
+主要是第一遍看看不明白，我还是跟着直播那个烂翻译看的完全一头雾水
+
+*****
+
+####  希望之异热同心  
+##### 10522#       发表于 2025-4-30 13:03
+
+才发现夏利亚的手机背面贴了博美犬队的贴纸，大叔你这么潮的么<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有你究竟有多爱番茄啊不在乎高达被偷了去打黑拳反而很欣慰番茄操控越来越好了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
