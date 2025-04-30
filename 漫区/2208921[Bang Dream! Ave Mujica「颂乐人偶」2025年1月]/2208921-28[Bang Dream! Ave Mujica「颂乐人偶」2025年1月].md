@@ -6705,3 +6705,294 @@ mjk时期，摘面具后大量商业活动促进吉他睦崩溃，黑影睦重�
 [https://t.bilibili.com/1061491297373650978](https://t.bilibili.com/1061491297373650978)
 [传送门](https://www.bilibili.com/blackboard/activity-Mz9T5bO5Q3.html?id=107081&amp;type=dlc&amp;f_source=social&amp;from=official)
 
+
+*****
+
+####  堀内爱里衣  
+##### 40744#       发表于 2025-4-30 17:17
+
+ 本帖最后由 堀内爱里衣 于 2025-4-30 17:19 编辑 
+
+<strong>INTERVIEW: Ave Mujica – The Die is Cast Exclusive Talk with Band producer Hiroki Matsumoto</strong>
+
+原帖链接：[https://animetv-jp.net/news/interview-ave-mujica-the-die-is-cast-exclusive-interview-with-band-producer-hiroki-matsumoto/](https://animetv-jp.net/news/interview-ave-mujica-the-die-is-cast-exclusive-interview-with-band-producer-hiroki-matsumoto/)
+
+<strong>以下为机翻，请谨慎阅读</strong>
+
+<strong>INTERVIEW: Ave Mujica – The Die is Cast Exclusive Talk with Band producer Hiroki Matsumoto</strong>
+<strong>专访：Ave Mujica——命运已定 与乐队制作人松本博树的独家访谈 | AnimeTV</strong> <blockquote>We sat down with Hiroki Matsumoto to explore the origins and musical identity of Ave Mujica.
+我们特邀 Ave Mujica 的乐队制作人 Hiroki Matsumoto 进行专访，深入探讨乐队的起源与音乐特色。</blockquote>
+<strong>Maël   29 April 2025</strong>
+
+<img src="https://img.stage1st.com/forum/202504/30/170115s314p42r4cou4pdp.png" referrerpolicy="no-referrer">
+
+<strong>4__2.png</strong> (1.83 MB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 17:01 上传
+
+In a world where shadows dance behind velvet curtains, <strong>Ave Mujica – The Die is Cast</strong> unfolds like a tragic opera in motion. Following the story that began in <strong>MyGO!!!!!</strong>, this new chapter reveals the masked genesis of a band whose every note echoes untold sorrows and defiant hope.
+于天鹅绒幕帘后暗影浮动的世界之中，《Ave Mujica – The Die is Cast》如一部流动的悲怆歌剧徐徐展开。延续《MyGO!!!!!》开启的故事篇章，全新章节揭晓了这支乐队的蒙面起源，每段旋律都交织着未诉的哀伤与不屈的希望。
+
+Wrapped in gothic grandeur and driven by the pulse of symphonic metal, the series becomes a stage where silence is shattered by song, and identity is both worn and hidden.
+以哥特式的华丽风格为外衣，由交响金属的脉动驱动，这部作品化作一方舞台——寂静在此被歌声撕裂，身份既是佩戴的面具亦是深藏的谜题。
+
+We had the privilege of <strong>speaking with Hiroki Matsumoto, band producer of Ave Mujica</strong>, to step behind the curtain and uncover the creative forces that breathe life into this haunting musical tale.
+我们荣幸采访到 Ave Mujica 乐队制作人 Hiroki Matsumoto，深入幕后探寻赋予这部萦绕心间的音乐物语生命力的创作源泉。
+
+<strong>“Ave Mujica – The Die is Cast” official trailer:
+《Ave Mujica – The Die is Cast》官方预告片：</strong>
+
+<img src="https://img.stage1st.com/forum/202504/30/170110l70zxmotr0273noz.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>maxresdefault.webp</strong> (78.57 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 17:01 上传
+
+<strong>AnimeTV: Could you please introduce yourself to our readers?</strong>
+AnimeTV：能否请您向我们的读者介绍一下自己？
+<strong>Hiroki Matsumoto</strong>: My name is Hiroki Matsumoto from Bushiroad Music. I joined Bushiroad in 2020 and have primarily worked as a music director on projects like BanG Dream!, D4DJ, and various other titles, focusing mainly on music production.
+松本洋树：我是 Bushiroad Music 的松本洋树。于 2020 年加入 Bushiroad，主要负责音乐监督一职，参与了《BanG Dream!》、《D4DJ》等多数作品的音乐制作工作。
+
+I joined the Ave Mujica project partway through, but I’ve been involved since the release of their very first song. Currently, I serve as the band’s producer, and my responsibilities have expanded beyond music production to a wide range of areas including directing live performances and planning promotional strategies.
+我是在 Ave Mujica 企划中途加入的，但从她们第一首歌曲发布以来就一直参与其中。现在担任乐队制作人的职务，工作范围已从音乐制作扩展到包括现场演出导演和宣传策略规划等广泛领域。
+
+<strong>What aspects of this musical project are you most proud of?</strong>
+关于这个音乐企划，您最引以为豪的是哪些方面？
+<strong>Matsumoto</strong>: Above all, it’s the high quality of the music that stands out. Rather than creating mass-produced, business-driven songs, we strive to craft genuine music—works of art—and I believe we’ve been able to achieve that.
+松本：最重要的，是音乐本身的高质量。我们并非制作工业化流水线式的商业歌曲，而是致力于创作真正具有艺术价值的作品——我认为我们成功做到了这一点。
+
+We also incorporate sounds and styles that appeal to not only Japanese listeners, but to audiences overseas as well. It’s truly an honor to have received such positive feedback internationally, and I’m genuinely thrilled that we’ve been able to share this music with people around the world.
+我们不仅融入了吸引日本听众的声音与风格，同时也兼顾了海外观众的口味。能够收获如此积极的国际反响，我们深感荣幸，更由衷地欣喜于能将这份音乐传递至世界各个角落。
+
+<strong>What were the biggest challenges you faced while producing Ave Mujica’s tracks?</strong>
+在创作 Ave Mujica 的曲目时，你遇到的最大挑战是什么？
+<strong>Matsumoto</strong>: Metal, as a genre, tends to come with a high level of technical difficulty when it comes to performance, so adjusting the difficulty so that the cast can actually play the parts is always a challenge. That said, if we make things too simple, the music loses its edge. So rather than compromising, we’re always mindful of striking the right balance—making sure the music isn’t overly complex, while still expressing the phrases that the song truly demands.
+松本：金属乐这一类型在演奏时往往伴随着较高的技术难度，因此如何调整难度使成员们能够实际完成演奏始终是一大挑战。不过，若将编曲过度简化，音乐又会丧失锋芒。因此我们不会妥协，而是时刻注重在"不过分复杂化"与"充分展现乐曲真正需要的乐句"之间寻求平衡。
+
+As I mentioned earlier, “musical quality” is something we value above all else, and that’s consistently the most challenging part.
+正如我刚才所说，“音乐品质”是我们最重视的部分，这始终是最具挑战性的。
+
+Creating works we’re fully satisfied with is never easy—but we want to keep releasing songs that we can proudly share with the world with confidence that they’ll resonate with Ave Mujica’s audience.
+创作出自己完全满意的作品绝非易事——但我们会继续推出那些能够自豪地向世界分享、并坚信它们能够引起 Ave Mujica 听众共鸣的歌曲。
+
+<strong>Ave Mujica – episode 1 photo:
+Ave Mujica 第一话 剧照：</strong>
+
+<img src="https://img.stage1st.com/forum/202504/30/170244fqvdd35iyyiqrd3q.jpg" referrerpolicy="no-referrer">
+
+<strong>1-8(1).jpg</strong> (213.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 17:02 上传
+
+©2025 BANG DREAM PROJECT 
+
+<strong>“Crucifix X” (Episode 10), this piece sets a heavy and dramatic tone around Sakiko and Uika’s story.</strong>
+“Crucifix X”（第 10 集），这首作品围绕祥子（Sakiko）和初华（Uika）的故事奠定了沉重而戏剧性的基调。
+<strong>Why did you incorporate Latin and Greek references (logos, faceless Maria)?</strong>
+为何要融入拉丁及希腊元素（logos、faceless Maria）？
+<strong>How did you use music to express the themes of fate and inevitability?</strong>
+你们是如何通过音乐来表现命运与必然性这一主题的？
+<strong>Matsumoto</strong>: As for the lyrics, the limited edition of Completeness, Ave Mujica’s first album releasing on April 23rd, includes commentary by lyricist <strong>Diggy-MO’</strong>, so I highly recommend checking that out—though it’s in Japanese. The commentary is also available on the page below, which might be easier to translate: [https://natalie.mu/music/pp/avemujica03/page/3](https://natalie.mu/music/pp/avemujica03/page/3)
+松本：歌词方面，4 月 23 日发售的 Ave Mujica 首张专辑《Completeness》的初回限定盘附有作词家 Diggy-MO’的解说，虽然内容是日语的但非常值得一读。该解说也可通过下方链接查看，或许更便于翻译：[https://natalie.mu/music/pp/avemujica03/page/3](https://natalie.mu/music/pp/avemujica03/page/3)
+
+In terms of the music itself, we received concepts from Director Kakimoto that included the phrase<strong> “Gears of Fate”</strong>, which became the foundation for the song’s development. From there, we aimed to fully express the weight and gravity of “fate.”
+在音乐方面，我们收到了柿本导演提供的包含「Gears of Fate」这一短语的概念，这成为了歌曲发展的基石。由此我们力图充分展现「命运」的沉重感与庄严感。
+
+We crafted a sound that’s distinctly Ave Mujica—heavy and powerful, layered with the majestic tones of a pipe organ. We intentionally wove in strong symphonic and gothic elements to complete the composition.
+我们精心打造出独具 Ave Mujica 特色的厚重而富有力量感的声音，以管风琴的宏伟音色层层叠加。我们有意融入了强烈的交响乐与哥特元素来完成这首作品。
+
+<strong>Ave Mujica “Crucifix X” TV animation video:
+Ave Mujica《Crucifix X》TV 动画宣传视频：</strong>
+
+<img src="https://img.stage1st.com/forum/202504/30/170113d9enddwbsbgkwy2n.jpg" referrerpolicy="no-referrer">
+
+<strong>maxresdefault1(1).jpg</strong> (151.65 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 17:01 上传
+
+<strong>Music “Imprisoned XII” (Episode 10), a powerful emotional turning point within Ave Mujica’s internal relationships.</strong>
+音乐《Imprisoned XII》（Episode 10），是 Ave Mujica 成员间关系中极具冲击力的情感转折点。
+<strong>How did you craft the lyrics to convey the characters’ pain and redemption?</strong>
+你是如何创作歌词来传达角色们的痛苦与救赎的？
+<strong>The vocals play a crucial role in the song’s emotional weight—how did you approach their interpretation?</strong>
+人声在歌曲的情感分量中至关重要——你们是如何处理它们的诠释的？
+<strong>Matsumoto</strong>: For this track, the focus was on crafting a sound and phrasing that felt truly beautiful. While we’ve done ballads before—like “Angles” and “Symbol III : ▽”—this was the first time we incorporated acoustic guitar into an Ave Mujica song.
+松本：这首曲子的重点在于精心雕琢出真正美妙的声音与乐句。虽然我们之前创作过类似《Angles》《Symbol III : ▽》的抒情曲，但在 Ave Mujica 的歌曲中融入原声吉他尚属首次。
+
+By introducing the acoustic guitar, we were able to express something distinct from our previous works—marking a fresh start for Ave Mujica and showcasing a new facet of the band’s sound.
+通过引入原声吉他，我们得以展现出与以往作品截然不同的特质——这既是 Ave Mujica 崭新的起点，也标志着乐队音乐风貌的全新维度。
+
+As for the lyrics, they reveal a heavy, almost overwhelming kind of love. Vocally, that emotion was brought to life with a raw, expressive delivery—almost like pouring those feelings out. It’s a deeply emotional performance that matches the intensity of the lyrics.
+歌词中展现的是一种沉重到几乎令人窒息的爱情。在演唱层面，通过不加修饰、充满爆发力的唱腔将这种情感生动呈现——仿佛要将所有心绪倾泻而出。这场极具感染力的表演与歌词的浓烈程度完美契合。
+
+<strong>Ave Mujica “Imprisoned XII” TV animation video:
+Ave Mujica《Imprisoned XII》电视动画宣传视频：</strong>
+
+<img src="https://img.stage1st.com/forum/202504/30/170112z6zkcvjnx1d2xz11.jpg" referrerpolicy="no-referrer">
+
+<strong>maxresdefault2(1).jpg</strong> (107.51 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 17:01 上传
+
+<strong>“Octagram Dance” (Episode 13), an explosive shift following more introspective moments.</strong>
+“Octagram Dance”（Episode 13），在诸多内省时刻后的爆发式转折。
+<strong>What were your inspirations for this first high-energy track of the group?</strong>
+对于这支乐团的首发高能量曲目，您的创作灵感来源于何处？
+<strong>How did you balance aggression and musicality to match their identity?</strong>
+你是如何平衡攻击性与音乐性以契合她们的身份？
+<strong>Matsumoto</strong>: The original intention wasn’t to make the song energetic—it actually started as a <strong>fierce track with strong horror elements</strong>.
+松本：原本并非刻意创作充满能量的歌曲——实际上是以强烈恐怖元素为基调的激烈曲目开始的。
+
+Director Kakimoto had requested a <strong>“Circus”</strong> theme, which became the core concept. From there, we layered in elements inspired by horror films to create something that isn’t just fun or upbeat, but also has an eerie, unsettling vibe. I think this can be picked up from the atmosphere right from the opening sound effects.
+导演柿本要求以「马戏团」为主题，这成为了核心概念。在此基础上我们叠加了恐怖电影元素，最终呈现出的作品不仅充满趣味与跃动感，更笼罩着令人不安的诡谲氛围。相信听众从开场音效营造的氛围中就能感受到这种特质。
+
+While the track itself is intense and heavy, the <strong>vocal line</strong> is satisfyingly catchy. I believe it’s this contrast—the strong sense of melody and the lyrical phrasing—that gives the song its unique and finely balanced character.
+虽然曲调本身具有强烈的压迫感，人声旋律却意外地抓耳。正是这种反差感——极具冲击力的旋律线条与歌词韵律的巧妙结合——赋予了这首作品独特而精妙的平衡特质。
+
+Ave Mujica “Octagram Dance” Music Video:
+Ave Mujica《Octagram Dance》音乐录影带：
+
+<img src="https://img.stage1st.com/forum/202504/30/170112t00fzzda08w0afwr.jpg" referrerpolicy="no-referrer">
+
+<strong>maxresdefault3(1).jpg</strong> (271.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 17:01 上传
+
+<strong>The track “Musica Caelestis” brings an intense conclusion focused on perseverance and hope. </strong>
+歌曲《Musica Caelestis》以坚持与希望为主题，呈现了浓墨重彩的终章。
+<strong>How did you approach composing these pieces to capture this emotional ascent?</strong>
+您是如何通过编曲手法来呈现这种情感的升华过程的？
+<strong>What musical elements did you use to create a sense of liberation and Transcendence?</strong>
+您运用了哪些音乐元素来营造解放感与超越性？
+<strong>Matsumoto</strong>: With Musica Caelestis, the goal wasn’t just intensity—we really focused on capturing <strong>beauty</strong> as well. In terms of genre, we drew inspiration from <strong>melodic hardcore</strong>, but adjusted the sound to make it distinctly Ave Mujica. The guitars use a <strong>clean tone</strong>, creating a gentle atmosphere, and we incorporated <strong>repeating string phrases</strong> to convey a strong sense of openness and emotional release.
+松本：在《Musica Caelestis》的创作中，我们不仅追求力量感，更注重捕捉音乐的美学特质。从流派角度来说，我们汲取了旋律硬核的灵感，但通过调整音色使其更具「Ave Mujica」的辨识度。吉他采用清亮的音色营造柔和氛围，并反复运用弦乐段落来展现强烈的开放感与情感释放。
+
+The feeling of release really comes through in the <strong>sing-along at the end</strong> as a key moment. I’d love for everyone to sing along at Ave Mujica’s concerts and experience that release together. Let’s break free, together (laughs).
+结尾部分的合唱环节最能体现这种释放感，希望观众能在「Ave Mujica」的演出现场通过合唱亲身感受这份释放。让我们共同挣脱束缚吧（笑）。
+
+<strong>Ave Mujica “Musica Caelestis” TV animation video:
+Ave Mujica《Musica Caelestis》TV 动画影像：</strong>
+
+<img src="https://img.stage1st.com/forum/202504/30/170111z3ccs9h3ez45sccb.jpg" referrerpolicy="no-referrer">
+
+<strong>maxresdefault4(1).jpg</strong> (117.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 17:01 上传
+
+<strong>Could you share your final thoughts with the fans who are eagerly awaiting the sequel to the series?</strong>
+请分享一下您对热切期待系列续作的粉丝们的最后寄语？
+<strong>Matsumoto</strong>: Ave Mujica’s music is still evolving and there are incredible songs that haven’t been released yet, but are already in the works. We’re committed to continuing to create music that resonates not just in Japan, but across the world. So we’d be truly grateful for your continued support. Please look forward to the future of Ave Mujica!
+松本：Ave Mujica 的音乐仍在不断进化中，已有许多尚未发表但完成度极高的乐曲正在制作。我们将继续创作不仅能在日本，更能在全世界引发共鸣的音乐作品。恳请大家今后也继续支持我们，敬请期待 Ave Mujica 的未来！
+
+<img src="https://img.stage1st.com/forum/202504/30/170111ezbzjr8xy3opxd3y.png" referrerpolicy="no-referrer">
+
+<strong>Ave-Mujica-Key-Visual-1920x2714.png</strong> (1.52 MB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 17:01 上传
+
+<strong>Streaming platforms: </strong> 
+流媒体平台：
+
+Crunchyroll
+
+Bili Bili  
+哔哩哔哩
+
+ANI PLUS HD  
+ANI PLUS 高清频道
+
+<strong>CAST:  </strong>
+成员阵容：
+
+Takao Kanon (CV.Togawa Sakiko)
+高尾奏音（CV.丰川祥子）
+
+Watase Yuzuki (CV.Wakaba Mutsumi)
+渡濑结月（CV.若叶睦）
+
+Sasaki Rico (CV.Misumi Uika)
+佐佐木理子（CV.三角初华）
+
+Okada Mei (CV.Yahata Umiri)
+冈田芽衣（CV.八幡海玲）
+
+Yonezawa Akane (CV.Yuutenji Nyamu)
+米泽茜（CV.祐天寺若麦）
+
+Youmiya Hina (CV.Takamatsu Tomori)
+羊宫妃那（CV.高松灯）
+
+Tateishi Rin (CV.Chihaya Anon)
+立石凛（CV.千早杏爱）
+
+Aoki Hina (CV.Kaname Raana)
+青木阳菜（CV.要乐奈）
+
+Kohinata Mika (CV.Nagasaki Soyo)
+小日向美香（CV.长崎爽世）
+
+Hayashi Coco (CV.Shiina Taki)
+林鼓子（CV.椎名立希）
+
+Tanda Hazuki (CV.Sumita Mana)
+反田叶月（CV：纯田真奈）
+
+<strong>STAFF: </strong> 
+制作人员：
+<strong>Original Work:</strong> Bushiroad  
+原作：Bushiroad
+<strong>Original Illustrations:   </strong>
+原案插图：
+<strong>Director:</strong> Hirohiro Kakimoto
+导演：柿本广大
+<strong>Script: </strong>Yuniko AyanaMidori, GotoHitomi, OgawaAkiko, WabaTani, Sunny
+剧本：绫奈由仁子、后藤绿、小川晓美、和波拓未、Sunny
+<strong>Character Design:</strong> Kazuyuki, Ueda, Nobuzawa, Haru Mochi Puyo
+角色设计：上田和幸、信泽春、もちぷよ
+<strong>Music: </strong>Musique Bushiroad  
+音乐：武士道音乐
+<strong>Animation Production: </strong>Sanzigen　
+动画制作：Sanzigen
+<strong>Production:</strong> BanG Dream! Projet
+制作：BanG Dream! 企划
+
+<strong>Official synopsis:   </strong>
+官方剧情简介：
+
+“Will you give me the rest of your life?”
+「你愿意将余生托付给我吗？」
+
+After losing everything in a single night, Sakiko Togawa reaches out toward an even deeper abyss, one that will drag everyone around her down as well.
+在一夜之间失去一切的丰川祥子，向着更深的深渊伸出手去——那深渊将吞噬周围所有人的存在。
+
+Gathering the lives of girls burdened with their own troubles and desires, Sakiko raises the curtain on a perfect masquerade.
+集结了各自怀揣烦恼与欲望的少女们的人生，希子为这场完美的假面舞剧拉开了帷幕。
+
+“Welcome to the world of Ave Mujica.”
+「欢迎来到 Ave Mujica 的世界」
+
+On a stage where sorrow, death, fear, love—even the solace of forgetting—are stripped away, will their masks be torn off and shatter into oblivion, or will they…
+在剥离悲伤、死亡、恐惧、爱恋，乃至忘却救赎的舞台上，她们的面具究竟会被撕裂粉碎，还是说......
+
+©2025 BANG DREAM PROJECT
+
+————
+AnimeTV チェーン bringing you the latest anime news direct from Japan ~ anytime! — Your new source of information!
+AnimeTV 频道 随时为您带来来自日本的第一手动漫资讯！——您的全新信息源泉！
+

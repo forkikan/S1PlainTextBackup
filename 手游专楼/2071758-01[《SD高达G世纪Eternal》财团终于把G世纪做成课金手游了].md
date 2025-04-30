@@ -10094,3 +10094,38 @@ WechatIMG75.jpg
 
 花了110抽一台SF，开始当屯屯鼠，半年内攻击和防御机不考虑下池子
 
+
+*****
+
+####  HEERO.W  
+##### 959#       发表于 2025-4-30 17:16
+
+反正蓝异端这种高难敌人，以后打不过也就多浪费点体力的事情
+
+
+*****
+
+####  eric007007  
+##### 960#       发表于 2025-4-30 17:24
+
+蓝异端关卡要怎么出？就硬刷金异端关卡概率出吗？skip金异端关卡是不是不能出的，我都skip了15次还没蓝异端高难…
+
+
+*****
+
+####  无念  
+##### 961#       发表于 2025-4-30 17:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67770055&amp;ptid=2071758" target="_blank">eric007007 发表于 2025-4-30 17:24</a>
+蓝异端关卡要怎么出？就硬刷金异端关卡概率出吗？skip金异端关卡是不是不能出的，我都skip了15次还没蓝异端 ...</blockquote>
+我也没出，气的把剩下体力喂红高达了
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  王俊凯  
+##### 962#       发表于 2025-4-30 17:26
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我h和ex的蓝异端都是skip出来的 就是纯看脸
+

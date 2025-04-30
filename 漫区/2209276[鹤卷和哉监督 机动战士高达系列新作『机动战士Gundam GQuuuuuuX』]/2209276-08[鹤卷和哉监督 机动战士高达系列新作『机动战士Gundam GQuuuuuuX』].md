@@ -2981,3 +2981,135 @@ nt不就是单纯能开聊天室、能知道对方攻击意图么…
 平A骗大是这样的，哈基肴以后还是别太应激了</blockquote>
 你这又是哪个混厕二游龟龟来了？
 
+
+*****
+
+####  a85982313  
+##### 10654#       发表于 2025-4-30 17:17
+
+再喷下去河豚会不会被塞不好说，你这个新号可能又要进去了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 純田まな| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  AvenueIII  
+##### 10655#       发表于 2025-4-30 17:18
+
+能不能别吵那些下三滥的东西了
+
+*****
+
+####  lingfeng1236  
+##### 10656#       发表于 2025-4-30 17:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769966&amp;ptid=2209276" target="_blank">Wondering 发表于 2025-4-30 16:54</a>
+
+的确两个都该塞，不过这位维护了啥环境啊上来就麻辣人性别叙事入脑哈基米应激吗一个说百合能不能赢一个说b ...</blockquote>
+真逗了，你个百综发言嘲讽新高达和新高达观众的，怎么有脸说别人性别叙事的，跑来这高达楼当理中客？要不是出来骂你们两句，真就河豚相护，觉得你们自己说什么做什么都是对的了。
+
+*****
+
+####  神鹰黑手哥  
+##### 10657#       发表于 2025-4-30 17:21
+
+<blockquote>Wondering 发表于 2025-4-30 17:10
+那我支持两个都塞，顺便能不能把第一个人的ip给曝光一下看看是不是安徽的人一直觉得s1看不到ip是真的遗憾 ...</blockquote>
+你不能把所有和高达有关的百合串子都认成安徽哥，事实上高吧已经有一大堆异域ip的串子
+
+
+*****
+
+####  Wondering  
+##### 10658#       发表于 2025-4-30 17:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67770042&amp;ptid=2209276" target="_blank">lingfeng1236 发表于 2025-4-30 17:21</a>
+
+真逗了，你个百综发言嘲讽新高达和新高达观众的，怎么有脸说别人性别叙事的，跑来这高达楼当理中客？要不 ...</blockquote>
+我让百综楼里讨论高达的都滚去高达楼讨论也叫嘲讽新高达观众吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  暗黑能乐  
+##### 10659#       发表于 2025-4-30 17:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67770012&amp;ptid=2209276" target="_blank">lingfeng1236 发表于 2025-4-30 17:11</a>
+
+双标还是你在行啊，那个人复读机要百合百合的，咒修司死，请问对楼里有啥建树吗？回答我？这河豚不污染环 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">不是我又没去翻记录，我哪知道那人之前说的啥，我只看今天的内容确实没看到污染啥了啊，那你觉得他污染了你去举报他以前的发言啊，版主自有评判。
+
+*****
+
+####  朋友费小号  
+##### 10660#       发表于 2025-4-30 17:23
+
+怎么扯到地域上了，二狗什么时候开外野，看给孩子们憋的，感觉楼里有人在发狂<img src="https://static.stage1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  lingfeng1236  
+##### 10661#       发表于 2025-4-30 17:24
+
+搞笑，厌男河豚不用处理，出来骂两句就处理，还有楼里的豚豚装理中客相互帮忙说话，难怪漫区让你们占领了。
+
+*****
+
+####  暗黑能乐  
+##### 10662#       发表于 2025-4-30 17:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769927&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-4-30 16:43</a>
+
+其实就是三个钩索，两个绑了光线枪，第三个是魔女自己的机体
+
+至于修司怎么绕后的，魔女手臂一断直接切向 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实还是武装不对，这时候用砍的怎么想都效率低，你都已经封锁别人走位了，这时候掏枪射击不是直接中了
+
+*****
+
+####  岸浪白野  
+##### 10663#       发表于 2025-4-30 17:25
+
+[X 上的 BANDAI SPIRITS ホビー事業部：“✨ガンプラ商品化解禁✨ 『機動戦士Gundam GQuuuuuuX』より ゲルググ スガイ機がHGで商品化！ HG 1/144 ゲルググ スガイ機(GQ) 2025年5月3日(土)発売予定 ▼商品ページはこちら [url]https://t.co/LtHdIXWWJV](https://x.com/HobbySite/status/1917428784145523073) ▼ガンプラ特設サイトはこちら [https://t.co/9WasWdfkoL](https://t.co/9WasWdfkoL) #ガンプラ #GQuuuuuuX [https://t.co/L9VxztqmOi](https://t.co/L9VxztqmOi)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202504/30/172531nu53fzzaqjzsiz7k.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.94 MB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 17:25 上传
+
+<img src="https://img.stage1st.com/forum/202504/30/172522bs1bncqizgcicnik.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.31 MB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 17:25 上传
+
+<img src="https://img.stage1st.com/forum/202504/30/172404bicz98i0ypac0cc9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.91 MB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 17:24 上传
+
+<img src="https://img.stage1st.com/forum/202504/30/172503in9qwo8d8dao24h9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.23 MB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 17:25 上传
+
