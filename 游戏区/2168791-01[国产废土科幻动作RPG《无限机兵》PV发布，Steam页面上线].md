@@ -47,3 +47,14 @@ psn国服特供版确实有和谐，发行负责人之前在微博说过了，�
 
 宣发视频说dlc在做了<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  thez  
+##### 236#       发表于 2025-4-30 17:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67741610&amp;ptid=2168791" target="_blank">ネコカイザー 发表于 2025-4-20 21:37</a>
+
+据说几个关卡被挖去湮灭之潮那边了</blockquote>
+制作人自己都说了整个游戏就一个关卡设计，那挖了还做个啥DLC。
+

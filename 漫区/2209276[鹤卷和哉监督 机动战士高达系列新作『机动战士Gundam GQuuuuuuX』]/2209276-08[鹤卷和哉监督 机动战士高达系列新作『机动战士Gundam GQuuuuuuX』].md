@@ -3113,3 +3113,158 @@ nt不就是单纯能开聊天室、能知道对方攻击意图么…
 
 2025-4-30 17:25 上传
 
+
+*****
+
+####  a85982313  
+##### 10664#       发表于 2025-4-30 17:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67770058&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-4-30 17:25</a>
+其实还是武装不对，这时候用砍的怎么想都效率低，你都已经封锁别人走位了，这时候掏枪射击不是直接中了 ...</blockquote>
+底层逻辑是这样的，锁，绳类武器命中率远大于射击武器
+鸡神sf初登场也被电热鞭锁过
+
+*****
+
+####  岸浪白野  
+##### 10665#       发表于 2025-4-30 17:27
+
+[X 上的 『機動戦士ガンダム』関連イベント情報 【バンダイナムコアミューズメント公式】：“／ 📢明日5月1日 　魔女…シイコ・スガイ登場！！ ＼ 機動戦士Gundam GQuuuuuuX （読み：#ジークアクス）の期間限定公式ショップに5月1日より 「シイコ・スガイ」の新商品が登場！ ✨MAVアクリルスタンド✨ ✨S賞アクリルパネル✨ ✨A´賞缶バッジ✨ 公式サイト ▶[url]https://t.co/lS03gmuAsb](https://x.com/am_ev_gundam/status/1917429973968904596) #gquuuuuux [https://t.co/v8hX4WQRCO](https://t.co/v8hX4WQRCO)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202504/30/172657htqb7ffeb4o1ue5u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (427.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 17:26 上传
+
+<img src="https://img.stage1st.com/forum/202504/30/172706j7pfgp2776faegy2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (644.4 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 17:27 上传
+
+<img src="https://img.stage1st.com/forum/202504/30/172714vt5p4yhiyqsqihq5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (617.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 17:27 上传
+
+*****
+
+####  zzf111  
+##### 10666#       发表于 2025-4-30 17:27
+
+唉，开个水魔一样的百合分楼各自分流算了
+
+现在不解决以后肯定吵个没完
+
+*****
+
+####  lingfeng1236  
+##### 10667#       发表于 2025-4-30 17:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67770047&amp;ptid=2209276" target="_blank">Wondering 发表于 2025-4-30 17:23</a>
+
+我让百综楼里讨论高达的都滚去高达楼讨论也叫嘲讽新高达观众吗要不你又要说河豚去圈地了 ...</blockquote>
+别装了，新高达从刚企划开始一直到剧场版，漫区百综讨论的很欢啊，已经要圈地了，怎么现在突然又不让讨论了？不就是看修司作为男主出来，觉得势头不太对，想切割吗。
+
+*****
+
+####  暗黑能乐  
+##### 10668#       发表于 2025-4-30 17:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769975&amp;ptid=2209276" target="_blank">serj005 发表于 2025-4-30 16:57</a>
+
+我的理解是驾驶舱赛可谬闪动发功，然后红高达直接瞬移了，最后捅驾驶舱这一刀是夏亚代打的(代打不确定， ...</blockquote>
+我猜八成也是真的空间穿越了，不然不可能完全没发觉对面人没了才是，红高不可能做到从被锁走位飞出来还能直接绕到对方视野死角一次都没被看到，如果认真以逻辑思考的话。要是他没这个战斗逻辑也就当我没说
+
+*****
+
+####  YU_JI  
+##### 10669#       发表于 2025-4-30 17:30
+
+TV开播前就料到这楼里迟早开撕
+
+*****
+
+####  汤圆です  
+##### 10670#       发表于 2025-4-30 17:30
+
+人妻射钢缆百发百中，这钢缆还能戳穿高达护甲，论实用性打中后直接放电就行了，还搞什么花里胡哨的我有三个必杀技<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Wondering  
+##### 10671#       发表于 2025-4-30 17:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67770079&amp;ptid=2209276" target="_blank">lingfeng1236 发表于 2025-4-30 17:29</a>
+
+别装了，新高达从刚企划开始一直到剧场版，漫区百综讨论的很欢啊，已经要圈地了，怎么现在突然又不让讨论 ...</blockquote>
+至少我个人从来都不认为新高达会是百合<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  woui003woui  
+##### 10672#       发表于 2025-4-30 17:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">要吵去格斗区吵吧
+
+*****
+
+####  岸浪白野  
+##### 10673#       发表于 2025-4-30 17:32
+
+ 本帖最后由 岸浪白野 于 2025-4-30 17:33 编辑 
+
+我超你们神人爱开就开自己聊个去，在这里帮神人提意见建议他们开就已经输了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lingfeng1236  
+##### 10674#       发表于 2025-4-30 17:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67770048&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-4-30 17:23</a>
+
+不是我又没去翻记录，我哪知道那人之前说的啥，我只看今天的内容确实没看到污染啥了啊，那你觉得他污染了 ...</blockquote>
+你看看自己过往发言，就不能**方方承认是河豚吗？明明是一伙人人，装理中客很有意思？
+
+*****
+
+####  木板春香  
+##### 10675#       发表于 2025-4-30 17:33
+
+  重新看，感觉这个魔女ACE非人感好重，不会真的是改造人吧
+
+*****
+
+####  岸浪白野  
+##### 10676#       发表于 2025-4-30 17:34
+
+这楼明明从1月份开始聊平和的很，虽然早就预料到今天会这样，但真是给神人闹麻了
+
+*****
+
+####  g救世主高达  
+##### 10677#       发表于 2025-4-30 17:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769587&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-4-30 14:52</a>
+
+只有2台大魔，哪来三连星。马修被时空修正了吧。
+
+----发送自 Sony XQ-CT44,Android 14 ...</blockquote>
+可能被塞拉捅了一个<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ardente  
+##### 10678#       发表于 2025-4-30 17:36
+
+进楼第一句就是男主能不能赢能不能赢方便自己去社区踩头的号哪天死了都正常<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

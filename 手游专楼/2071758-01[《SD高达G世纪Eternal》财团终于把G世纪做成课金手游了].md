@@ -10129,3 +10129,33 @@ WechatIMG75.jpg
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我h和ex的蓝异端都是skip出来的 就是纯看脸
 
+
+*****
+
+####  okey3m  
+##### 963#       发表于 2025-4-30 17:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67770055&amp;ptid=2071758" target="_blank">eric007007 发表于 2025-4-30 17:24</a>
+蓝异端关卡要怎么出？就硬刷金异端关卡概率出吗？skip金异端关卡是不是不能出的，我都skip了15次还没蓝异端 ...</blockquote>
+亲测skip可以出，应该就是纯概率问题
+
+
+*****
+
+####  邪恶的shah  
+##### 964#       发表于 2025-4-30 17:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67770055&amp;ptid=2071758" target="_blank">eric007007 发表于 2025-4-30 17:24</a>
+
+蓝异端关卡要怎么出？就硬刷金异端关卡概率出吗？skip金异端关卡是不是不能出的，我都skip了15次还没蓝异端 ...</blockquote>
+我扫荡最高难度三十多次出了一次
+
+也没啥奖励，就是给的票多了一点点
+
+*****
+
+####  horacio  
+##### 965#       发表于 2025-4-30 17:35
+
+每个难度的异端都算新本，有100钻，我全部打最高难度的，后面要打三盘hard又刷出个蓝异端才发现的
+
