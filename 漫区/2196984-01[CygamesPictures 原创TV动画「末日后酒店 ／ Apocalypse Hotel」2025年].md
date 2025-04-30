@@ -1444,3 +1444,16 @@ Here's some of the cuts I did! ✨
 监督是标准美漫死宅粉,当时讨论说这集按沙丘风格和斯巴达的滤镜风格来做,后半打斗掺杂了一点FLCL以及老GAINAX的味道.实在是给的时间太短只有4个月(去年5月做到9月头,5月头黄金周还大家都休息.....),否则想更用力一点秀点作画的...</blockquote>
 [https://bangumi.tv/ep/1465152](https://bangumi.tv/ep/1465152)
 
+
+*****
+
+####  AraTurambar  
+##### 136#       发表于 2025-4-30 09:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768421&amp;ptid=2196984" target="_blank">NBXX 发表于 2025-4-30 09:20</a>
+
+https://bangumi.tv/ep/1465152</blockquote>
+这集明牌沙丘了。
+
+现在的问题就是第二集的客人到底有多大嫌疑了。
+

@@ -240,3 +240,101 @@ nt之间相互理解但仍要干死对方这确实很老uc味啊
 
 红高达画的这么邪气已经完全可以理解了，因为根本就不是什么传统正派角色，纯纯的战鬼亡灵啊。我现在都感觉红高达有战争本身意味的象征了，战争的亡灵时隔五年再次出现，像塞壬的歌声一样呼唤那些困在五年前的人，夏利亚是这样，魔女也是如此
 
+
+*****
+
+####  kimihung  
+##### 10385#       发表于 2025-4-30 09:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768011&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-4-30 01:52</a>
+
+这一幕很明显左边的人能听到拉拉音，右边的人听不到，是否是某种隐喻</blockquote>
+应该就是表示，舰桥内三人是NT潜质，其他都是普通人吧
+
+*****
+
+####  转子引擎  
+##### 10386#       发表于 2025-4-30 09:45
+
+<img src="https://img.stage1st.com/forum/202504/30/094447yf2xf61bje1j6f6j.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1745977473267.jpg</strong> (208.19 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-4-30 09:44 上传
+
+233333max，这一集我很满意
+
+*****
+
+####  woui003woui  
+##### 10387#       发表于 2025-4-30 09:45
+
+ 本帖最后由 woui003woui 于 2025-4-30 09:46 编辑 
+
+红高达下手捅人/黑拳出人命是可以圆但没感觉制作组想做成合情合理桥段，首席和玛秋不都出现了情绪反应吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">修司包括红高达很可能出现争议性比较大的设计
+
+*****
+
+####  吴怀在  
+##### 10388#       发表于 2025-4-30 09:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768493&amp;ptid=2209276" target="_blank">woui003woui 发表于 2025-4-30 09:45</a>
+红高达下手捅人/黑拳出人命是可以圆但没感觉制作组想做成合情合理桥段，首席和玛秋不都出现了情绪反应吗修 ...</blockquote>
+首席没上过战场吧
+你看夏莉亚就对妈妈魔女表示理解<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  举止优雅  
+##### 10389#       发表于 2025-4-30 09:49
+
+修司和魔女两个互相下死手我没意见，一个ptsd老兵一个宇宙男鬼传话筒还有血仇。
+比较搞的还是小番茄，观战一整集最后得出如果不去拼上性命打比赛就无法靠近修司的结论比较清奇。嗜血jk传堂堂上演！
+
+—— 来自 OnePlus PJZ110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  朋友费小号  
+##### 10390#       发表于 2025-4-30 09:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768388&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-4-30 09:12</a>
+
+聊天室不是把话说开了吗</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说开了有啥用，只不过是从“你真该死”变成了“你确实该死”
+
+*****
+
+####  CCMkIII  
+##### 10391#       发表于 2025-4-30 09:49
+
+其实前几天想，GQX世界里原来0079里被骡子击杀的ace估计都没死，那如果兰巴没死他是不是也能开上一个蓝色的特机
+
+蓝色……吉姆……嗯？能安排一个兰巴开蓝色吉姆勇士但是机体带EXAM的情节吗？
+
+不过从现实的角度来讲兰巴估计都不会出场。不知道以后会不会有人用模型做这个点子。
+
+
+*****
+
+####  盐盐盐盐盐  
+##### 10392#       发表于 2025-4-30 09:50
+
+修司轻轻的把光剑送进驾驶舱我都觉得是在超度（
+生前和解了也不得不互相伤害，死后才能平静地离去，太uc了
+
+*****
+
+####  woui003woui  
+##### 10393#       发表于 2025-4-30 09:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768502&amp;ptid=2209276" target="_blank">吴怀在 发表于 2025-4-30 09:48</a>
+
+首席没上过战场吧
+
+你看夏莉亚就对妈妈魔女表示理解</blockquote>
+把剧情设计理解成PTSD老兵黑拳玩命死得其所我还挺能接受的，但剧中人物没经历过战争的对PTSD很难理解<img src="https://static.stage1st.com/image/smiley/bundam2017/001.png" referrerpolicy="no-referrer">
+
