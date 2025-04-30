@@ -10929,3 +10929,18 @@ ps：直播的时候我看这段聊天室的心态完全是懵的“真死了？
 
  首席哥还在说没必要杀人吧的时候麻球已经在想不狠怎么能追得上修司了，这就是NT能力的差距吗<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  koodooliz  
+##### 10359#       发表于 2025-4-30 08:56
+
+女同学玩gacha bet了几百块麻球还说这是违法的，结果下个镜头就说靠更违法的军团战搞了十来万分红<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  暗黑能乐  
+##### 10360#       发表于 2025-4-30 08:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">再说一次，这话侧面说出了麻球的NT能力应该是不如魔女和红高的，因为她说了“魔女和修斯在开口前就知道想说啥了”，但是自己做不到，所以鸡胯选人不是看NT能力来选的，首席肯定也不是因为NT能力不够被鸡胯拒绝的
+

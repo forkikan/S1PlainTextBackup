@@ -6386,3 +6386,17 @@ s1解封这么晚 骂都提不起劲了 mujica就这么毁了我三分之一个2
 
 寫的時刻那樣方便就拿出那樣
 
+
+*****
+
+####  Cortana  
+##### 40724#       发表于 2025-4-30 08:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767705&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-4-30 00:12</a>
+“其他人格都退化成角色”，这个说法和柿本的主张不同哦，柿本的最终答案里不存在“其他人格”这个东西
+
+ ...</blockquote>
+是我没说清楚，“其它人格”指的是小墨和黄瓜睦。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
