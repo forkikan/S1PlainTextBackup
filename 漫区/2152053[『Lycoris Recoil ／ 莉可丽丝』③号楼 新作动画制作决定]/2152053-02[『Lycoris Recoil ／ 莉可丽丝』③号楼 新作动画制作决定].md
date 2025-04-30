@@ -1045,3 +1045,13 @@ https://forum.gamer.com.tw/C.php?bsn=73316&amp;snA=1848&amp;tnum=2
 
 2025-4-30 20:12 上传
 
+
+*****
+
+####  IWS2000  
+##### 2258#       发表于 2025-4-30 20:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67770448&amp;ptid=2152053" target="_blank">Delicatus545 发表于 2025-4-30 20:11</a>
+这么惟妙惟肖，泷奈你是不是参考了什么</blockquote>
+干瘪瘪的
+
