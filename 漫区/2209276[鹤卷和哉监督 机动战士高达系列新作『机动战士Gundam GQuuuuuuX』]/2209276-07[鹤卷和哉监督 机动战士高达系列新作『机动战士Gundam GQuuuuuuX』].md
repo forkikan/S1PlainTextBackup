@@ -10881,3 +10881,28 @@ eva巴黎战的时候玩绳子空战不是玩的挺明白吗，这回打戏拍�
 
 小番茄目前的表现来看后期起码要黑化暴走屠杀一次
 
+
+*****
+
+####  Gaybird  
+##### 10354#       发表于 2025-4-30 08:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767795&amp;ptid=2209276" target="_blank">白愁帝皇 发表于 2025-4-29 11:26</a>
+那离富野节还是差太远了，这集台词还都挺好懂的吧，没冒出什么让人想半天才能想的明白的台词 ...</blockquote>
+刚刚重看了一遍高清版，确实感觉好多了，但魔女最后nt聊天室里那句うふふ　坊や我还是不太明白
+镜头给的是自己孩子的画面，所以这句单纯是……死前最后思念家人吗？这句话是接在修司展示了愿望后面的，这个愿望到底是什么变得很重要了啊，与newtype和解的契机到底是什么
+ps：直播的时候我看这段聊天室的心态完全是懵的“真死了？怎么镜头唐突致敬初代？高达的另一边指的是修司还是别的？等等姐们你怎么就笑了？嗯？（开始欣赏漂亮的爆炸）”
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  暗黑能乐  
+##### 10355#       发表于 2025-4-30 08:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768252&amp;ptid=2209276" target="_blank">有钱多买小人 发表于 2025-4-30 08:14</a>
+搞不好是人类补完计划：把全人类变NT</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">应该不是这种，目前第一感觉愿望可能是比较平凡普通的
+
+—— 来自 HONOR BVL-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+

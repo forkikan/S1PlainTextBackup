@@ -1425,3 +1425,11 @@ Here's some of the cuts I did! ✨
 这集最后狸猫妹那段让我担心，不会是最后八千代也坏了，狸猫接棒代代经营银河楼，这样的结局吧 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个倒是不用担心，女主比同型号的其他机器人多活了这么久还有任务系统，你说她是核动力始祖巨人都不是没可能
 
+
+*****
+
+####  吉吉国王  
+##### 134#       发表于 2025-4-30 08:33
+
+不战斗就无法生存<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+

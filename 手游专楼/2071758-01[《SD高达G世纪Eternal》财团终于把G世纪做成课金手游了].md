@@ -9502,3 +9502,39 @@ skip了，手动刷太累
 —— 来自 Xiaomi 2211133C, Android 15, 鹅球 v3.5.99-alpha ...</blockquote>
 无正+阿斯兰和永恒号+拉克丝
 
+
+*****
+
+####  无念  
+##### 892#       发表于 2025-4-30 08:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768254&amp;ptid=2071758" target="_blank">体制 发表于 2025-4-30 08:14</a>
+强自卡池是3up池，你猜另外俩是啥
+
+—— 来自 Xiaomi 2211133C, Android 15, 鹅球 v3.5.99-alpha ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我还以为是正义呢
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  夜之光  
+##### 893#       发表于 2025-4-30 08:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768297&amp;ptid=2071758" target="_blank">无念 发表于 2025-4-30 08:38</a>
+
+我还以为是正义呢
+
+—— 来自 HONOR SDY-AN00, Android 14, 鹅球 v3.5.99</blockquote>
+你记的没错，是正义不是无正
+
+*****
+
+####  highsky  
+##### 894#       发表于 2025-4-30 08:43
+
+我感觉这游戏和我10年前玩的Super Gundam Royale那个手游差不多的运营思路，好多都似曾相识
+
+所以我感觉零氪抽卡的节点就是周年庆或者新年祭，一般这个时候都会有精选池，全是热门人权机，不会歪
+
