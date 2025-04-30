@@ -1150,3 +1150,47 @@ Gto里就是因为他爹金巴拉尔被赶出去军队啊，捞他回来的还�
 
 这楼批判修斯下死手真是连黑都不会黑，魔女摆明了要拼命旁观者在这里慷他人之慨，笑掉大牙了
 
+
+*****
+
+####  xyion  
+##### 10476#       发表于 2025-4-30 11:48
+
+呃这算修司下的手还算红高达下的手……
+
+剧本张力是有的，但修司的动机和红高达的秘密作为核心谜题需要继续藏，就很难判断。
+
+先看看下一话，咦这预告是欺诈吧<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  别急来过两招  
+##### 10477#       发表于 2025-4-30 11:49
+
+不要把修斯过于当成人类看待 
+很有可能是既然拉你进聊天室你不来那只能把你铜丝触发濒死进聊天室的被动<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  别急来过两招  
+##### 10478#       发表于 2025-4-30 11:50
+
+一个细节是光剑是慢慢送进去的 很轻柔 然后慢慢拔出来 进聊天室 在修斯看来可能只是开门把人拉进来
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  xyion  
+##### 10479#       发表于 2025-4-30 11:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768977&amp;ptid=2209276" target="_blank">别急来过两招 发表于 2025-4-30 11:50</a>
+
+一个细节是光剑是慢慢送进去的 很轻柔 然后慢慢拔出来 进聊天室 在修斯看来可能只是开门把人拉进来
+
+——  ...</blockquote>
+真要按这个思路写吗，和单纯演出效果比是上难度的吧
+
