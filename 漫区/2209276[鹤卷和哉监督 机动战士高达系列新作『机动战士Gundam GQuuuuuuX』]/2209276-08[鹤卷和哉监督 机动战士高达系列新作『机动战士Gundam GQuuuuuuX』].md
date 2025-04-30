@@ -1439,3 +1439,85 @@ nt能感知到人杀意的，对方不动杀心他被踹来踹去都不会下杀
 动不动？就刚才看了一下你就心虚了？你也知道你的言论很恶心吧。高达咒男主、夸木柜子神作、盼着b站搞晋 ...</blockquote>
 卧槽，你到底翻了几页记录看得也太仔细了，好变态啊，属实可怕。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PascalLefèvre  
+##### 10504#       发表于 2025-4-30 12:47
+
+社区战争要大打
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  真阿波罗  
+##### 10505#       发表于 2025-4-30 12:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769191&amp;ptid=2209276" target="_blank">operatbig 发表于 2025-4-30 12:44</a>
+
+卧槽，你到底翻了几页记录看得也太仔细了，好变态啊，属实可怕。</blockquote>
+这就是河豚特有的逆风装松弛吗？都玩s1了玩社区了，看用户发言不是很常见吗？你装什么萌萌人呢？真是有够好笑的<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  downnote  
+##### 10506#       发表于 2025-4-30 12:49
+
+富二代想要非日常，难民想要日常，很合理嘛<img src="https://static.stage1st.com/image/smiley/carton2017/454.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hahah  
+##### 10507#       发表于 2025-4-30 12:50
+
+<blockquote>暗黑能乐 发表于 2025-4-30 12:44
+虽然你说的很宏大的样子，但实际很空洞，剧中麻球没有表现出一点对于现有环境到底哪里不满了，对于吉翁是 ...</blockquote>
+无病呻吟就对了，你不也是在无病呻吟了吗?你有发出什么振聋发聩的呐喊吗？你有在质问这个世界吗？你又在改变这个世界吗？无病呻吟本身就是当代年轻人的象征，一个个满口怨言在网络上当懂哥但是连早上五点起来跑操锻炼身体都做不到，只会动动嘴而已。
+
+*****
+
+####  0aleph37  
+##### 10508#       发表于 2025-4-30 12:50
+
+明明已经得到了日常却还要回到战场的魔女一集死很好，有种紫木一姬的既视感
+
+*****
+
+####  暗黑能乐  
+##### 10509#       发表于 2025-4-30 12:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769210&amp;ptid=2209276" target="_blank">downnote 发表于 2025-4-30 12:49</a>
+
+富二代想要非日常，难民想要日常，很合理嘛</blockquote>
+也算不上多富二代吧，住的不也就是个小公寓
+
+*****
+
+####  hulaoda007  
+##### 10510#       发表于 2025-4-30 12:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">大家好好聊高达求求了。
+
+高达是这么说的。<img src="https://static.stage1st.com/image/smiley/bundam2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  暗黑能乐  
+##### 10511#       发表于 2025-4-30 12:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769217&amp;ptid=2209276" target="_blank">hahah 发表于 2025-4-30 12:50</a>
+
+无病呻吟就对了，你不也是在无病呻吟了吗?你有发出什么振聋发聩的呐喊吗？你有在质问这个世界吗？你又在 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是这种是通病，和所谓的“特殊时代背景”毫无关系啊
+
+*****
+
+####  hulaoda007  
+##### 10512#       发表于 2025-4-30 12:55
+
+麻球可能设定就是有点无病呻吟的感觉，甚至可能按照设定就是类似葵丝那样。
+
+葵丝保留了对人的感情和重视，但是心态上对自己所作所为毫不负责，所以和充斥博弈和算计的战场一直格格不入。
+
