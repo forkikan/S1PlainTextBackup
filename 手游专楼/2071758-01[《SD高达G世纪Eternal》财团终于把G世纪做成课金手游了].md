@@ -10382,3 +10382,11 @@ boss战是不是就不用凑本系列机体叠奖励buff了？
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  kulanyee  
+##### 989#       发表于 2025-4-30 22:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">还是有不断的链接出错，应该是批量刷初始发力了
+
