@@ -9726,3 +9726,11 @@ BNQS73HN3ZP7C8
 第一发特殊演出，强自加6个sr
 100发下去强自+自由+两艘船
 
+
+*****
+
+####  里村紅葉  
+##### 916#       发表于 2025-4-30 12:01
+
+90抽2个老自由1个巴巴托斯1个EZ8 1艘拉迪史<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">怎么跟隔壁圆哆啦一样歪的天昏地暗
+

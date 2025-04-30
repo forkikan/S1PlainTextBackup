@@ -1194,3 +1194,62 @@ Gto里就是因为他爹金巴拉尔被赶出去军队啊，捞他回来的还�
 ——  ...</blockquote>
 真要按这个思路写吗，和单纯演出效果比是上难度的吧
 
+
+*****
+
+####  57042711  
+##### 10480#       发表于 2025-4-30 11:56
+
+铁红高达下的手吧，最后修司驾仓的镜头都没了…和之前首席被红高达暴打那段很接近<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  吃货红毛  
+##### 10481#       发表于 2025-4-30 11:56
+
+没有单话评分楼吗 想直球辱骂但是感觉在专楼不合适<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天邪鬼  
+##### 10482#       发表于 2025-4-30 11:58
+
+nt能感知到人杀意的，对方不动杀心他被踹来踹去都不会下杀手。甚至之前的比赛都在摸鱼划水，就是给玛秋成长的机会
+
+不过这装备越打越少，也不像有要换机或者加装备的样子，大概率是实现愿望就挂了吧
+
+
+*****
+
+####  ryanghj  
+##### 10483#       发表于 2025-4-30 12:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768699&amp;ptid=2209276" target="_blank">大泽瑠璃乃 发表于 2025-4-30 10:40</a>
+
+以麻球这个主角为坐标起点，应该说喵安是修司的反面，修司把麻球往聊天室的方向牵引，喵安则在接下来把麻 ...</blockquote>
+我倒觉得对麻球来说喵安其实和修司是一边的，都代表非日常，与他们对应的就是同学和妈妈，代表日常
+
+第一集麻球发现自己被塞的是违禁品之后第一反应不是找警察而是反向接触喵安，麻球以为喵安是恐怖 分子，想想一个JK会主动接触恐怖 分子是什么样的精神<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  吃我大dio  
+##### 10484#       发表于 2025-4-30 12:04
+
+这么死 机战都复活不了
+
+*****
+
+####  acg_gyanc  
+##### 10485#       发表于 2025-4-30 12:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768817&amp;ptid=2209276" target="_blank">天邪鬼 发表于 2025-4-30 11:09</a>
+
+越看越像gvg了，只是和游戏不一样，这里面被砍到就是死了
+
+就是怎么都变格斗机了，开始时不是还有个队友射击 ...</blockquote>
+搞射击的魔女队友被魔女点爆推进器了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
