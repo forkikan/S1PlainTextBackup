@@ -1803,3 +1803,126 @@ g一串现在打戏就是水魔第一季的水平，放水魔二就啥也不是�
 
 鹤卷不如小林宽……分镜
 
+
+*****
+
+####  Geyorkias  
+##### 10541#       发表于 2025-4-30 13:37
+
+番茄虽然在学校是叛逆的代表，但其实她和她的同学也没什么本质的区别。
+
+用父母账号读博想要赢了钱吃大餐 VS 开MS打黑拳去地球旅游，这两件事在精神内核上是一样的。
+
+也就是这样的想法是跟不上修司和魔女这样的人的，但对她最后那句话的理解还是要结合之后的剧情来看。
+
+*****
+
+####  暗黑能乐  
+##### 10542#       发表于 2025-4-30 13:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769353&amp;ptid=2209276" target="_blank">IIIIIlllllIIIII 发表于 2025-4-30 13:33</a>
+最后那句话明显是害怕或者意识到事情严重性了
+前面小番茄视角是红高和勇士上下翻飞她插不进手 对应的是“跟 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真颠佬还是假颠佬还有待时间考证，至少目前这种对手一强直接尬住只能在边上挂机的情况，让我对她的真实颠佬度有所怀疑
+
+—— 来自 HONOR BVL-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  ryanghj  
+##### 10543#       发表于 2025-4-30 13:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769353&amp;ptid=2209276" target="_blank">IIIIIlllllIIIII 发表于 2025-4-30 13:33</a>
+
+最后那句话明显是害怕或者意识到事情严重性了
+
+前面小番茄视角是红高和勇士上下翻飞她插不进手 对应的是“跟 ...</blockquote>
+我不知道你是怎么解读出麻球退缩了这种方向，就目前演出的部分完全没有描写麻球有“这值得吗”的想法
+
+整集麻球都在纠结没有理解修司，为此着急，最后她意识到了要理解修司就得有魔女那种抛弃家人不顾一切的精神
+
+班里那里其实你也完全理解错了，实际上也是日常和非日常的对比，日常的同学做的出格事也就是偷偷用父母的卡网赌，挣个500就不得了了，下一秒就切到修司要花几万去买穿梭机。这段和后面麻球在家被老妈批评，觉得老妈“普通”然后一转和喵安在桥上讨论修司“不可思议”是一样的道理。整集都是麻球在下定决心更加深入非日常
+
+*****
+
+####  吃果冻吧你  
+##### 10544#       发表于 2025-4-30 13:40
+
+麻球的态度和之后的发展得看第六集了应该，第五集应该是喵安个人回，该写喵安的nt能力到底如何，和修司的关系是什么，对待krkr的态度，还有未来她的定位了
+
+*****
+
+####  史蒂符  
+##### 10545#       发表于 2025-4-30 13:40
+
+我倒不觉得青春的烦恼是无病呻吟，这个阶段本来就是人生精神上最关键的一段时期，每一年都会发生巨大的变化，怎么看待自己，怎么看待世界，如何定义内在边界，如何找到精神和世界联系的通道，怎么和外部相处。这不是无病呻吟，这本来就是一个重要命题，不然也不会有局外人和安娜卡列尼娜，只是青春期这个问题刚刚萌芽更加明显。
+
+*****
+
+####  暗黑能乐  
+##### 10546#       发表于 2025-4-30 13:43
+
+个人脑一个展开吧，我认为接下来会花2-3集来给玛秋真正想做的事来个定性，我觉得她并非真的有牺牲一切的勇气，所以她应该选择了回归，但是在临近回归的档口，战争爆发了，side6可能有大惨案发生，垃圾屋全体人员被迫一起上了木马开始流亡路，或许会因此去地球
+
+—— 来自 HONOR BVL-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  ryanghj  
+##### 10547#       发表于 2025-4-30 13:44
+
+从访谈来看不会有什么战争
+
+<img src="https://img.stage1st.com/forum/202504/30/134413bs9vz0ovk96pa6eq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (168.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 13:44 上传
+
+*****
+
+####  暗黑能乐  
+##### 10548#       发表于 2025-4-30 13:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769394&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-4-30 13:44</a>
+从访谈来看不会有什么战争</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真打12集黑拳就吐了
+
+—— 来自 HONOR BVL-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  aptx8285144  
+##### 10549#       发表于 2025-4-30 13:46
+
+ 本帖最后由 aptx8285144 于 2025-4-30 13:48 编辑 
+
+这话故事讲得还可以，节奏还行，但是机战分镜真得不行，另外这翻译很多太野鸡了<img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Wondering  
+##### 10550#       发表于 2025-4-30 13:46
+
+顺便安徽哥怎么还换号了，小号大号轮换钓鱼吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凤凰院天豪  
+##### 10551#       发表于 2025-4-30 13:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769307&amp;ptid=2209276" target="_blank">aptx8285144 发表于 2025-4-30 13:15</a>
+
+打个比赛把命拼上了，这就是地下比赛的含金量吗，这能赢修司见鬼了，人家可以突然开隐身大法，修司不像人类 ...</blockquote>
+哪来的隐身。。。人家剑骗锁而已
+
+*****
+
+####  ryanghj  
+##### 10552#       发表于 2025-4-30 13:48
+
+我一开始以为都不会死人，因为整个故事看起来是在致敬FLCL，同样是青春期，同样向往非日常，同样遇到了不可思议的异性<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">FLCL里直太最后选择了回归日常，麻球呢
+
