@@ -1129,3 +1129,11 @@ b怎么没更，审核没过是吧
 
 说实在的我搞不懂泥蒜为啥那么偏爱答辩芭菲一类，明明踢屁屁和sakana比这些可爱多了，烂炒？
 
+
+*****
+
+####  osore  
+##### 2268#       发表于 2025-5-1 00:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为是开店的，四舍五入就是美食番
+

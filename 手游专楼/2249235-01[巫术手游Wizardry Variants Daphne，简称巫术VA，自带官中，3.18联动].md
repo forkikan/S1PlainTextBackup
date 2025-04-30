@@ -116,3 +116,11 @@
 
 关键是这个技能甚至能看法师拿法杖冲过去上下翻飞还挺乐的。<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  茄子自走炮  
+##### 277#       发表于 2025-5-1 00:31
+
+联动井完又吃，建模还行，是无名魔术师上位了
+
