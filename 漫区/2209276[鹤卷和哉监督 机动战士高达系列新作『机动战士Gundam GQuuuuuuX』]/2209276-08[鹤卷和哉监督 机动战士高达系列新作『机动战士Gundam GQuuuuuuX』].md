@@ -2444,3 +2444,47 @@ nt不就是单纯能开聊天室、能知道对方攻击意图么…
 
 完全是女主NT发作主动跟随红高达的脚步，纯纯的葵丝。
 
+
+*****
+
+####  渡鸦骑士  
+##### 10606#       发表于 2025-4-30 15:46
+
+魔女的记忆是“模拟体验“<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之异热同心  
+##### 10607#       发表于 2025-4-30 15:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769728&amp;ptid=2209276" target="_blank">变老的大二 发表于 2025-4-30 15:41</a>
+
+不过说实话已经第四话了，压根没有东西逼迫女主去战斗
+
+完全是女主NT发作主动跟随红高达的脚步，纯纯的葵丝 ...</blockquote>
+这就是日本当代年轻人现状啊，有一条规划好的人生路线，在这条路上无聊到疯掉
+
+
+*****
+
+####  变老的大二  
+##### 10608#       发表于 2025-4-30 15:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769752&amp;ptid=2209276" target="_blank">希望之异热同心 发表于 2025-4-30 15:46</a>
+
+这就是日本当代年轻人现状啊，有一条规划好的人生路线，在这条路上无聊到疯掉 ...</blockquote>
+目前这剧情配上战后世代，确实虚无主义太重了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+按这个发展，女主绝对不会涉及到什么解决地宇矛盾啥的。
+
+估计后面剧情高大上一点应该也就是解放NT之类的。
+
+*****
+
+####  沧海nog  
+##### 10609#       发表于 2025-4-30 15:55
+
+其实这片也就是高达背景的eva/少革/美少年了吧
+
+以后无非就是每话打使徒，完全是榎户的舒适区，估计并不会把视野扩展的很大了
+
