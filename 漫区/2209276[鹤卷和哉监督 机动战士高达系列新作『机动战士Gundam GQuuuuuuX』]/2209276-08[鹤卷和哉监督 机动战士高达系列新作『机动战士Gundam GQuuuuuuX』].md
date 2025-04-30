@@ -832,3 +832,106 @@ nt高低还得看后有没有明确的对比，这集主要是服务与演出
 不过喵安连怎么去地球什么价位都一清二楚，真的没去过或者不是从地球出来的吗 ...</blockquote>
 她一个人从自己殖民地开民用机出来的，作为难民逃难之前查过去哪里的成本很正常吧
 
+
+*****
+
+####  暗黑能乐  
+##### 10444#       发表于 2025-4-30 10:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">如果我是基连或者基西莉亚，至少不会让一个这个位置的人这么自由能到处溜达搞事，基西莉亚可能真的指望夏利亚找到夏亚，但是基连就有点说不通了，或许真觉得只有一船人无法对大局造成影响吧，但至少船上得安插点间谍吧（
+
+*****
+
+####  暗黑能乐  
+##### 10445#       发表于 2025-4-30 10:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768712&amp;ptid=2209276" target="_blank">灵魂收割机 发表于 2025-4-30 10:43</a>
+
+你的0武装情报是谁提供的，修司知道吗？不说别的，丢个闪光弹出来都是大**麻烦。 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没监视器都不能阻止对方行动的话，即使有闪光弹也不会影响到红高吧，你不能只用常理考虑自己人
+
+*****
+
+####  花達香奈  
+##### 10446#       发表于 2025-4-30 10:46
+
+下话喵安也要上鸡夸克斯了
+Ωpsycommu是针对红高达的吧，除了nt更重要的可能是必须要女性（因为丢人的家伙的原因.），所以一开始绿叔叔就知道那啥エグざこ？君启动不了，说不定把他女友小森放上去反而能行<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  行政裁定书  
+##### 10447#       发表于 2025-4-30 10:46
+
+感觉完全原创世界观的话会好点。
+
+但如果不是uc的平行世界，很多剧情和人物又没那个味了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Devola  
+##### 10448#       发表于 2025-4-30 10:47
+
+上来就把nt作为悬疑手段，故弄玄虚。打戏前面都讲完了
+
+总之吃了一坨大的
+
+看来我是get不到top2和gqx的好了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  operatbig  
+##### 10449#       发表于 2025-4-30 10:49
+
+基本可以确定修斯跟麻球走不到最后。
+
+*****
+
+####  暗黑能乐  
+##### 10450#       发表于 2025-4-30 10:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768728&amp;ptid=2209276" target="_blank">花達香奈 发表于 2025-4-30 10:46</a>
+
+下话喵安也要上鸡夸克斯了
+
+Ωpsycommu是针对红高达的吧，除了nt更重要的可能是必须要女性（因为丢人的家伙 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉谜底也不会是性别这么无聊的东西，看看下一话喵安用不用的了吧，我个人是觉得估计用不了，毕竟她目前看起来连NT都不是，上了也没啥用估计
+
+*****
+
+####  希望之异热同心  
+##### 10451#       发表于 2025-4-30 10:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768720&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-4-30 10:44</a>
+
+如果我是基连或者基西莉亚，至少不会让一个这个位置的人这么自由能到处溜达搞事，基西莉亚可能真的指望夏利 ...</blockquote>
+那个操舵手就很像间谍啊，第3集全船人都因为高达搞丢了焦头烂额的时候就他目无表情观察其他人
+
+<img src="https://img.stage1st.com/forum/202504/30/104956ivku5smkvpe99uev.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (746.65 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 10:49 上传
+
+
+*****
+
+####  ProAgressive  
+##### 10452#       发表于 2025-4-30 10:50
+
+话说UC有摄像头死角这种设定吗，量产勇士背后是盲区？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  xwr  
+##### 10453#       发表于 2025-4-30 10:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768720&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-4-30 10:44</a>
+
+如果我是基连或者基西莉亚，至少不会让一个这个位置的人这么自由能到处溜达搞事，基西莉亚可能真的指望夏利 ...</blockquote>
+以基西莉亚的视角来看，当年夏亚舍身炸了所罗门，这是百分百的忠臣啊，自己手握突击机动军和格拉纳达，要是还能找到这传奇英雄给自己背书，那基连还能有什么胜算啊，稳了！<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
