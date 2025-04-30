@@ -2681,3 +2681,52 @@ nt不就是单纯能开聊天室、能知道对方攻击意图么…
 
 平A骗大是这样的，哈基肴以后还是别太应激了
 
+
+*****
+
+####  伊迪潘宫森  
+##### 10629#       发表于 2025-4-30 16:37
+
+这里三个绝招分别是什么？钩锁、封印敌人动作，还有什么
+
+<img src="https://img.stage1st.com/forum/202504/30/163445eohpq4asq22qlt9a.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (285.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 16:34 上传
+
+修斯凭空消失应该得留到后面解释了，这一集我怎么看也想不明白怎么做到的
+
+*****
+
+####  tomzach  
+##### 10630#       发表于 2025-4-30 16:39
+
+桥上的对话，喵安指出“是高达想去地球”，结果却被nt的玛秋反驳了：“ms是不会说话的吧”，为什么呢？
+
+
+*****
+
+####  变老的大二  
+##### 10631#       发表于 2025-4-30 16:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769911&amp;ptid=2209276" target="_blank">伊迪潘宫森 发表于 2025-4-30 16:37</a>
+
+这里三个绝招分别是什么？钩锁、封印敌人动作，还有什么</blockquote>
+两把光枪封印敌人所有动作后，第三次钩锁过去一刀吧
+
+*****
+
+####  ryanghj  
+##### 10632#       发表于 2025-4-30 16:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769911&amp;ptid=2209276" target="_blank">伊迪潘宫森 发表于 2025-4-30 16:37</a>
+这里三个绝招分别是什么？钩锁、封印敌人动作，还有什么</blockquote>
+其实就是三个钩索，两个绑了光线枪，第三个是魔女自己的机体
+
+至于修司怎么绕后的，魔女手臂一断直接切向飞出去了，此时她丢失了视野，修司只要飞出去就行了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
