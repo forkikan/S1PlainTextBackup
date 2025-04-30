@@ -9475,3 +9475,30 @@ skip了，手动刷太累
 
 终于抽到ez8了
 
+
+*****
+
+####  体制  
+##### 890#       发表于 2025-4-30 08:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767490&amp;ptid=2071758" target="_blank">无念 发表于 2025-4-29 23:20</a>
+说起来无正呢，不会是剧场版限定卡池的陪跑吧
+
+—— 来自 HONOR SDY-AN00, Android 14, 鹅球 v3.5.99 ...</blockquote>
+强自卡池是3up池，你猜另外俩是啥
+
+—— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  劳动改造归来  
+##### 891#       发表于 2025-4-30 08:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768254&amp;ptid=2071758" target="_blank">体制 发表于 2025-4-30 08:14</a>
+
+强自卡池是3up池，你猜另外俩是啥
+
+—— 来自 Xiaomi 2211133C, Android 15, 鹅球 v3.5.99-alpha ...</blockquote>
+无正+阿斯兰和永恒号+拉克丝
+
