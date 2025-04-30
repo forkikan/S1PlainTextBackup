@@ -4576,3 +4576,20 @@ https://bandai-hobby.net/item/01_5932/
 —— 来自 鹅球 v3.3.96</blockquote>
 这黑架哪里地下了，不是只要有心就能看转播么，当地**也不管管啊<img src="https://static.stage1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿刚  
+##### 10787#       发表于 2025-5-1 00:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">而且仔细一想好地狱啊，最后那段魔女和小番茄nt**还没断呢，这边肉身已经被修司电焊驾驶舱了
+
+*****
+
+####  Toby_dak  
+##### 10788#       发表于 2025-5-1 00:55
+
+官网放了gMS-01的图，至少还是基于高达的量产机，所以究竟算不算某种GM<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/22/4f6cf2c2bf68c982dd108a6f38780678/1000099612.jpg" referrerpolicy="no-referrer">
+

@@ -4476,3 +4476,15 @@ Months。这样，Months哦。  
 主播说讨厌看到紫砂的消息，我也讨厌看到以前那些熟悉的家伙毕业的消息
 活着多好。
 
+
+*****
+
+####  sino__unnko3  
+##### 18390#       发表于 2025-5-1 00:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67770743&amp;ptid=2018830" target="_blank">术士q 发表于 2025-4-30 22:01</a>
+突然在想主播无法想象婚姻那种约束关系，也就是一个人在她身边陪她几十年，也因此就算结婚了也会离婚
+但是 ...</blockquote>
+主播好像是今年，说过结婚了就引退做自己喜欢的事了，不过会限的意思应该是到时候再说
+（我觉得她忍不住不播的
+

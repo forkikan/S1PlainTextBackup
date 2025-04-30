@@ -10428,3 +10428,15 @@ skip了，手动刷太累</blockquote>
 
 ex难度打不过啊，<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">debuff上满了都打不动，输出机体不够
 
+
+*****
+
+####  无念  
+##### 994#       发表于 2025-5-1 00:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67770946&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2025-4-30 23:54</a>
+ex难度打不过啊，debuff上满了都打不动，输出机体不够</blockquote>
+试试黄机师上红鸡，白嫖boss两次<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
