@@ -2021,3 +2021,82 @@ UC背景下死人不是常有的事吗？夏利尔在0079也不过是一集被�
 魔女是抛弃日常选择了非日常的角 ...</blockquote>
 其实这个情况，魔女也是来拼命的，修司的非人类感又很明显，确实到了下死手的氛围，如果修司"没有大善心"的话(
 
+
+*****
+
+####  无念  
+##### 10562#       发表于 2025-4-30 14:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">但我想了想你这不就是最强OT的海蛇么，还不如通电呢，有这功夫绕着杀直接电刑吧
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  liy30dlys  
+##### 10563#       发表于 2025-4-30 14:11
+
+修斯是拿了三明那种人设吗，xx叫我干的<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sliurus  
+##### 10564#       发表于 2025-4-30 14:12
+
+不得不说，这童颜妈妈人气很不错啊，先是绿叔叔然后妈妈魔女，热度这块属于稳住了
+
+*****
+
+####  穿越护城河  
+##### 10565#       发表于 2025-4-30 14:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769450&amp;ptid=2209276" target="_blank">Wondering 发表于 2025-4-30 14:00</a>
+
+无关联想，突然想起了早坂吝的爱丽丝的罪恶奇境最后爱丽丝杀她妈时候有点那味道，也是被害者变成加害者最后 ...</blockquote>
+结识牢修前，麻球虽不是典型的乖女，亦不是是父母的希望，但过的仍是与周围诸多一同上学的少年人完全一样的生活。
+
+认识牢修后，只想随波逐流的麻球像突遭激流，开始被外界的各种力量牵着鼻子走。新识路人斗阵便亖即是其中的一件小事。
+
+血气方刚又有很强道德感的麻球不自觉地走上犯罪的道路，期望用自己的热能斧结束事件。但伊不知的是，他眼中的事件只是这激流中微不足道的一节。
+
+或许鹤卷可能真的看了《〇岭街少年S人事件》
+
+*****
+
+####  hulaoda007  
+##### 10566#       发表于 2025-4-30 14:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">鹤卷哥哥，让我们多看看出场角色都是人气角色的uc高达四部曲的风采好不好？
+
+*****
+
+####  Wondering  
+##### 10567#       发表于 2025-4-30 14:14
+
+不过爱丽丝最后确实下杀手杀她妈了，虽然就结果而言没杀成，毕竟这一家本身就不是寻常人，麻球最后也会变成爱丽丝这种人吗
+
+
+*****
+
+####  林登·万  
+##### 10568#       发表于 2025-4-30 14:17
+
+ 要真论钩索 既然能神不知鬼不觉的钉上对手的机体 配合上UC宇宙最好用的电击 岂不无敌<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  普通哈尼  
+##### 10569#       发表于 2025-4-30 14:17
+
+魔女好色啊，可惜一集没了
+
+*****
+
+####  Wondering  
+##### 10570#       发表于 2025-4-30 14:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769481&amp;ptid=2209276" target="_blank">穿越护城河 发表于 2025-4-30 14:13</a>
+
+结识牢修前，麻球虽不是典型的乖女，亦不是是父母的希望，但过的仍是与周围诸多一同上学的少年人完全一样 ...</blockquote>
+如果参考牯岭街少年杀人事件的话，那谁是哈尼呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
