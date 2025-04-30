@@ -10214,3 +10214,19 @@ allin80抽只出了一个拉克丝和正义，瞬间不想玩了
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  无念  
+##### 972#       发表于 2025-4-30 19:23
+
+ 本帖最后由 无念 于 2025-4-30 19:25 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67770324&amp;ptid=2071758" target="_blank">一个陆仁贾 发表于 2025-4-30 19:02</a>
+没有讨论ex难度，看来大家都过得挺轻松
+
+—— 来自 vivo V2419A, Android 15, 鹅球 v3.5.99 ...</blockquote>
+攻击力和攻击范围都比较捉鸡，围住拼输出就好
+和红高达正好相反，过了红高达的没道理打不过金异端吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不过蓝异端我还没触发，不知道难度
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

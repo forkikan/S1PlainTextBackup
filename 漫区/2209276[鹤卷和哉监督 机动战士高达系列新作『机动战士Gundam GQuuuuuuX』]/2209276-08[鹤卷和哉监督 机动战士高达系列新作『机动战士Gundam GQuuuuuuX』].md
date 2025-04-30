@@ -3660,3 +3660,15 @@ WTF 百杀王牌就这么领便当了？本来看面相如此地无机质，以�
 
 所以说不送串子进去吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这一唱一和还真挺精彩的，麻辣人的智商串子都看不懂也挺正常
 
+
+*****
+
+####  Wondering  
+##### 10716#       发表于 2025-4-30 19:13
+
+ 本帖最后由 Wondering 于 2025-4-30 19:15 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67770290&amp;ptid=2209276" target="_blank">123gp199 发表于 2025-4-30 18:47</a>
+
+就12集的量，极限是基连和基西莉亚在最后阶段全面开片，可主角那几位不像是能上战场的，总要给他们开MS找 ...</blockquote>
+开ms能找的理由多的是吧，现在三人组的伏笔还是太多了些，都过三集了，正篇人物出场bossrush一方面不太好对粉丝交代，另一方面篇幅也完全不够吧
+
