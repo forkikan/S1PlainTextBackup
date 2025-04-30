@@ -418,3 +418,120 @@ nt之间相互理解但仍要干死对方这确实很老uc味啊
 
 也有可能修司就回一句高达让我干的，然后颠婆小番茄对此しびれる、憧れる，就略过不多聊了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  EFSF  
+##### 10403#       发表于 2025-4-30 10:05
+
+这第四集什么鬼...
+魔女那钩子能死死勾住ms装甲不脱钩，线的韧度也惊人，联邦0079就有此等好材料咋输的？
+
+纯纯的所有的东西都是为剧情服务的工具，合理性不要的是吧。
+
+—— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  林登·万  
+##### 10404#       发表于 2025-4-30 10:05
+
+人妻魔女 嗜血番茄 都是颠佬真是太棒了 
+
+*****
+
+####  暗黑能乐  
+##### 10405#       发表于 2025-4-30 10:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">不如先猜猜还要打几集黑拳
+
+*****
+
+####  serj005  
+##### 10406#       发表于 2025-4-30 10:06
+
+是我理解错了吗，我怎么感觉最后这一捅不像是修司自己的意志，像是红高达发功自己瞬移加自己动起来捅上去的？(夏亚上身？)
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  ads147147  
+##### 10407#       发表于 2025-4-30 10:07
+
+其实很多人不知道，鹤卷确实是喜欢搞为剧情服务的创作者，这点在他主导的作品里都很明显。
+
+反而是痞子是会喜欢扣细节的设定党（
+
+*****
+
+####  wpcc  
+##### 10408#       发表于 2025-4-30 10:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768564&amp;ptid=2209276" target="_blank">EFSF 发表于 2025-4-30 10:05</a>
+这第四集什么鬼...
+魔女那钩子能死死勾住ms装甲不脱钩，线的韧度也惊人，联邦0079就有此等好材料咋输的？</blockquote>
+荒木玩嗨了
+
+*****
+
+####  ads147147  
+##### 10409#       发表于 2025-4-30 10:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768568&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-4-30 10:06</a>
+
+不如先猜猜还要打几集黑拳</blockquote>
+两集吧，红高达的装备已经打光了，就剩下火神炮（不知道有没有补弹），军刀两把，核心战机可能还有点机炮弹药。
+
+再不整备就没法玩了。
+
+*****
+
+####  永远的春天  
+##### 10410#       发表于 2025-4-30 10:09
+
+<blockquote>CCMkIII 发表于 2025-4-30 09:49
+其实前几天想，GQX世界里原来0079里被骡子击杀的ace估计都没死，那如果兰巴没死他是不是也能开上一个蓝色的 ...</blockquote>
+兰巴是戴肯派，扎比家不会让他留在军队的。
+
+*****
+
+####  暗黑能乐  
+##### 10411#       发表于 2025-4-30 10:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768579&amp;ptid=2209276" target="_blank">wpcc 发表于 2025-4-30 10:07</a>
+
+荒木玩嗨了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">一集一个老害主导是吧
+
+
+*****
+
+####  暗黑能乐  
+##### 10412#       发表于 2025-4-30 10:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768583&amp;ptid=2209276" target="_blank">永远的春天 发表于 2025-4-30 10:09</a>
+
+兰巴是戴肯派，扎比家不会让他留在军队的。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那绿蜀黍凭什么还能拿着木马和鸡胯到处跑，他现在算哪派
+
+*****
+
+####  Toby_dak  
+##### 10413#       发表于 2025-4-30 10:12
+
+<blockquote>woui003woui 发表于 2025-4-30 10:01
+麻球可能是nt能力不够，首席目前就根本没看出来哪像nt
+
+仅就这个来说很难推吉夸选人基准 ...</blockquote>
+<img src="https://p.sda1.dev/23/b49e3a0088017f3fbc25ec91093097e1/1000107809.png" referrerpolicy="no-referrer">
+
+第一话这脑门过电的标准NT表现，是没看懂吗？
+
+*****
+
+####  Sliurus  
+##### 10414#       发表于 2025-4-30 10:13
+
+话说红高达流星锤都爆了，感觉再下一集就要上舰了，首席哥可能是来劝降马秋的，承诺整备和下地球之类的
+

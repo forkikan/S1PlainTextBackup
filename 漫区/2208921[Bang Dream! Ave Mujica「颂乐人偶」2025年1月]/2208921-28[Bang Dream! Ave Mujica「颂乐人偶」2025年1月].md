@@ -6434,3 +6434,17 @@ s1解封这么晚 骂都提不起劲了 mujica就这么毁了我三分之一个2
 若叶睦就是那个写人格剧本的古神。</blockquote>
 古神还会记忆断片吗<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adretyu67.  
+##### 40728#       发表于 2025-4-30 10:05
+
+ 本帖最后由 adretyu67. 于 2025-4-30 10:08 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768537&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-4-30 09:59</a>
+
+古神还会记忆断片吗</blockquote>
+猫睦的卡面很刻意地绕开了全部有关莫的内容。
+
+我也挺不能理解为什么要避开，导致甚至出现了睦莫记忆不共享的情况。
+
