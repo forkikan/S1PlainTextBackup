@@ -1027,3 +1027,21 @@ https://forum.gamer.com.tw/C.php?bsn=73316&amp;snA=1848&amp;tnum=2
 小动画3-4集剧透</blockquote>
 怎么泡面番还能有剧透的，这样的话情报哥什么时候回归你楼，等不及了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Delicatus545  
+##### 2257#       发表于 2025-4-30 20:11
+
+ 本帖最后由 Delicatus545 于 2025-4-30 20:13 编辑 
+
+这么惟妙惟肖，泷奈你是不是参考了什么<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202504/30/201251rp5jj20eeut2cd8p.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.06 MB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 20:12 上传
+
