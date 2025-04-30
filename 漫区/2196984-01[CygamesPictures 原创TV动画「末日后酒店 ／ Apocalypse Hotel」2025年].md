@@ -1433,3 +1433,14 @@ Here's some of the cuts I did! ✨
 
 不战斗就无法生存<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NBXX  
+##### 135#       发表于 2025-4-30 09:20
+
+<blockquote>黒井ジョスケ
+
+监督是标准美漫死宅粉,当时讨论说这集按沙丘风格和斯巴达的滤镜风格来做,后半打斗掺杂了一点FLCL以及老GAINAX的味道.实在是给的时间太短只有4个月(去年5月做到9月头,5月头黄金周还大家都休息.....),否则想更用力一点秀点作画的...</blockquote>
+[https://bangumi.tv/ep/1465152](https://bangumi.tv/ep/1465152)
+

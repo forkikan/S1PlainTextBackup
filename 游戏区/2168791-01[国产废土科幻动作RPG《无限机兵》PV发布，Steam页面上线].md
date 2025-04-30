@@ -19,3 +19,15 @@
 
 psn国服是吗？这个是别处的评论，说是有和谐。
 
+
+*****
+
+####  shiyu  
+##### 233#       发表于 2025-4-30 09:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67737231&amp;ptid=2168791" target="_blank">sephal 发表于 2025-4-18 16:49</a>
+二周目通了，再次被攻击动作的位移没有悬崖保护坑到，砍工厂的电线砍完掉了下去，没拿到超电磁炮，幸好是二 ...</blockquote>
+草我也在那里掉下去了，但是超电磁炮还是拿到了啊。
+
+—— 来自 Xiaomi 24129RT7CC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

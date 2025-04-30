@@ -9546,3 +9546,11 @@ skip了，手动刷太累
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要开服才能知道保底和常驻是否分开吗
 
+
+*****
+
+####  光辉传递者  
+##### 896#       发表于 2025-4-30 09:23
+
+才看到开发路线里的GNFlag居然是黄机而不是红机，这浑身上下就一把家伙什的居然是支援？？绝对是设计喝高了吧。
+
