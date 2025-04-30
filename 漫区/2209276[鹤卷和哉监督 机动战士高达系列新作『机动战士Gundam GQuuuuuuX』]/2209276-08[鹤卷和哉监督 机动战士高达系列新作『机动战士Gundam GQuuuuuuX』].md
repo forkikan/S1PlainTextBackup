@@ -2730,3 +2730,99 @@ nt不就是单纯能开聊天室、能知道对方攻击意图么…
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  OrianaThomson  
+##### 10633#       发表于 2025-4-30 16:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769895&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-4-30 16:32</a>
+
+魔女克隆人的假药之一，シーコ=C子
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+普露普露<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zzf111  
+##### 10634#       发表于 2025-4-30 16:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769887&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-4-30 16:29</a>
+
+我看他好像也没对楼里讨论有啥建树啊，上来就是查记录开喷，这种人不进去放着污染环境吗 ...</blockquote>
+好歹确实有在维护环境啊，总比他对面:"百合百合百合"地好
+
+*****
+
+####  盐盐盐盐盐  
+##### 10635#       发表于 2025-4-30 16:46
+
+所以修司驾驶舱里发生zeknova到底是起了什么作用呢（
+我一直觉得就是他瞬移了才能突破封锁，但是如果他就是靠操作在魔女手臂断了那会溜了那这啥意思，鸭子上身代打了还是大功率nt聊天室启动了
+
+*****
+
+####  ryanghj  
+##### 10636#       发表于 2025-4-30 16:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769941&amp;ptid=2209276" target="_blank">盐盐盐盐盐 发表于 2025-4-30 16:46</a>
+
+所以修司驾驶舱里发生zeknova到底是起了什么作用呢（
+
+我一直觉得就是他瞬移了才能突破封锁，但是如果他就是 ...</blockquote>
+起到了预判的作用吧，和第三集里麻球一样，修司可以预判魔女的动作才能躲掉那么多次攻击，最后抓住一次失误的机会反杀
+
+
+*****
+
+####  死光光  
+##### 10637#       发表于 2025-4-30 16:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769872&amp;ptid=2209276" target="_blank">希望之异热同心 发表于 2025-4-30 16:23</a>
+
+有啥难甭的前面的楼分析的帖子一堆，已经把角色的动机心理都分析过了，剧中信息都是给足的 ...</blockquote>
+就算勉强能理解麻球的逻辑，接受修司无与伦比的非人感，但是魔女最后跟修司的对手戏太tm空洞了导致最后给人感觉就是只要你说是nt就什么都可以接受的感觉。
+
+而且机战真的不行。<img src="https://static.stage1st.com/image/smiley/animal2017/028.png" referrerpolicy="no-referrer">
+
+*****
+
+####  变老的大二  
+##### 10638#       发表于 2025-4-30 16:52
+
+空间战的打戏不同时展现敌我相对位置的话，啥都说不准
+
+*****
+
+####  Wondering  
+##### 10639#       发表于 2025-4-30 16:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769940&amp;ptid=2209276" target="_blank">zzf111 发表于 2025-4-30 16:46</a>
+
+好歹确实有在维护环境啊，总比他对面:"百合百合百合"地好</blockquote>
+的确两个都该塞，不过这位维护了啥环境啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zxtree  
+##### 10640#       发表于 2025-4-30 16:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769801&amp;ptid=2209276" target="_blank">神鹰黑手哥 发表于 2025-4-30 16:08</a>
+
+为什么高达厨要一直执着于大格局，说实话，作品肯定要顺应时代发展才能成功，就像eva是因为诞生在泡沫经济 ...</blockquote>
+机战有几个不是宏叙的？举国之力才能造出来的东西很难摆脱宏叙
+
+胶达不宏叙，有用吗
+
+
+*****
+
+####  ryanghj  
+##### 10641#       发表于 2025-4-30 16:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769958&amp;ptid=2209276" target="_blank">死光光 发表于 2025-4-30 16:52</a>
+
+就算勉强能理解麻球的逻辑，接受修司无与伦比的非人感，但是魔女最后跟修司的对手戏太tm空洞了导致最后给 ...</blockquote>
+你以前看过什么机战片
+
