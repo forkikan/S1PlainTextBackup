@@ -4299,3 +4299,149 @@ g复国开高扭力背包揍巫夏那集也是荒木哲郎，咋十年过去后�
 感觉是政治方面的吧，夏亚在if线都变吉翁英雄了，那得到红高达的人的政治影响力就会变高，另外夏亚的战斗 ...</blockquote>
 夏亚本来就有称帝的想法吧 看剧场版里都直接说了战争结束后的敌人就是基连和基西莉娅，估计都提前布局了。而且他还是战争的英雄，影响力很大，死了也就算了，但一直没有确认死亡的消息，另外两家互打就会担心被趁虚而入，所以一直不敢轻举妄动吧。所以才这么关注红色高达的消息。或者可以认为红高达所代表的新人类是不受控制的而且还具有很强的能力，担心会影响到自己的统治地位，所以必须得先除掉
 
+
+*****
+
+####  AvenueIII  
+##### 10767#       发表于 2025-4-30 23:46
+
+ 本帖最后由 AvenueIII 于 2025-4-30 23:48 编辑 
+
+下集会讲到首席哥请喵安吃面，麻球天台自闭，甚至三人登陆绿色木马吗 XD
+
+但既然修司提到了二手穿梭机，那应该会买吧，要保持双线叙事一段时间吗
+
+*****
+
+####  ku2154513  
+##### 10768#       发表于 2025-4-30 23:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67770872&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-4-30 23:12</a>
+欲しいものすべて (T_001)</blockquote>
+这首有点像天元平行世界有一集的配乐
+
+*****
+
+####  斯卡文分则能成  
+##### 10769#       发表于 2025-4-30 23:49
+
+一集演了水魔一季的内容<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 10770#         楼主| 发表于 2025-4-30 23:50
+
+HG 1/144 格鲁古古 菅井机(GQ)
+
+HG 1/144 格鲁古古 波卡塔机(GQ)
+[https://bandai-hobby.net/item/01_5932/](https://bandai-hobby.net/item/01_5932/)
+[https://bandai-hobby.net/item/01_5935/](https://bandai-hobby.net/item/01_5935/)
+<img src="https://p.sda1.dev/23/2c4c4352b51e0b3fd02b172b41a0f137/20250430_231656.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/f76db283bd3a22b18ffa3ea2c713f5f7/79c11837gy1i0ypfrcmovj20xc0iyqce.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/a2b2d3380928a5a4f2482436337a0783/ys44x1d7klb4wOQn.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/04061dead12ec322c8e8a6bfd6f44e5c/kFEyfp9SPQquqHb5.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/fb31057300510f8ab34d15610477731d/aQY7QRoc7XQFA1Z1.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/f61ad1fa7e771b2532c2b6095aa6e3d8/20250430_231752.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/23/7cee45e6ba9bc9a7ae3fdaa86e45fa3d/20250430_231700.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/e10a863be3014034b77a393c618b7346/79c11837gy1i0ypg7e229j20xc0iywnn.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/2ceb36d8b1cf6817219b175d45b038c0/xHHRKSfFOc7sKaDG.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/6c9f83683359c3e02aaa142817ca30ca/20250430_231756.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/23/d492c20ac28ff84dddc46996b805cd80/20250430_231744.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/4b236b73dbaf7680b2d9b30a0e894cdd/20250430_231741.jpg" referrerpolicy="no-referrer">
+
+[https://weibo.com/2573598147/5161120417186747](https://weibo.com/2573598147/5161120417186747)
+
+总觉得联邦魔女的私服和战斗服甚至发型？是融合了初代骑士+琉璃子的元素。。。 ​​​
+<img src="https://p.sda1.dev/23/dbb2c3b09d38d480a1713f5e44c59356/20250430_233631.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/b4fc728d1dd9920ab020ef77415e477f/20250430_231717.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/f2971ed032af0be0c5e9beeaec13e3c1/20250430_231720.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 10771#         楼主| 发表于 2025-4-30 23:51
+
+荒木哲郎（第四集分镜&amp;演出）
+[https://x.com/ttr1976/status/1917250154564030797](https://x.com/ttr1976/status/1917250154564030797)
+
+『機動戦士Gundam GQuuuuuuX』
+
+4話の画コンテと演出をお手伝いしました！😃
+
+作業時はスタジオカラーに入れてもらって、鶴巻監督の仕事を間近に見せてもらえました。ファン冥利に尽きる体験でした！ありがとうございました！🙇🏻
+<img src="https://p.sda1.dev/23/b34107c7da097fc12fdc3a1c81199fb9/20250430_231502.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/geasa90/status/1917247634647249376](https://x.com/geasa90/status/1917247634647249376)
+
+ジークアクス4話ご視聴ありがとうございました
+
+前回に引き続きメカニカル作画監督、原画で参加しました
+
+久々にオンエアで緊張しました…
+<img src="https://p.sda1.dev/23/37a4b0bb39401167bb8ae0c276d079a4/20250430_231459.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/kouda_nyo/status/1917247546134810848](https://x.com/kouda_nyo/status/1917247546134810848)
+<img src="https://p.sda1.dev/23/4b5f4a5d4bc3d4a5b8d9ed59ab8187ad/20250430_231632.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/YY_shibata/status/1917247019233755354](https://x.com/YY_shibata/status/1917247019233755354)
+
+第4話ご視聴いただきありがとうございます！動画で参加しております
+
+配信等でもお楽しみください！
+<img src="https://p.sda1.dev/23/bebd7bcaa60492fd7084bbc7585c9c58/20250430_231639.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/period_yoooou11/status/1917246801410949303](https://x.com/period_yoooou11/status/1917246801410949303)
+
+ジークアクス#04ご視聴ありがとうございました！
+
+動画として微力ながら参加させて頂きました！
+
+引き続きお楽しみいただければ幸いです！
+<img src="https://p.sda1.dev/23/84c08071f5c6bc214fe257945b54a44d/20250430_231644.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/lilya_litvak/status/1917247522613166237](https://x.com/lilya_litvak/status/1917247522613166237)
+
+本日放送の機動戦士Gundom GQuuuuuuX 第4話『魔女の戦争』に3話に引き続き原画で参加させて頂きました！
+
+今回はMSだけでなくキャラパートまでもやらせて貰いました…
+
+見てください！
+<img src="https://p.sda1.dev/23/e07d371e52a0615ce3d53637247155da/20250430_231636.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/matatabeat/status/1917247033901240711](https://x.com/matatabeat/status/1917247033901240711)
+
+機動戦士ガンダムGQuuuuuuX 4話「魔女の戦争」にてLO原画をお手伝いさせていただきました。
+
+コンチかわいいよコンチ
+
+(SNS掲載許可いただきました。ありがとうございます)
+<img src="https://p.sda1.dev/23/6cd2d478bb81e09054f5050bdaa83ea5/20250430_231455.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  AvenueIII  
+##### 10772#       发表于 2025-4-30 23:53
+
+<blockquote>Piano-Forest 发表于 2025-4-30 23:50
+HG 1/144 格鲁古古 菅井机(GQ)
+
+HG 1/144 格鲁古古 波卡塔机(GQ)
+
+https://bandai-hobby.net/item/01_5932/
+</blockquote>
+痞哥哥的全力支持原来是全力XP放出，我完全理解了
+
+*****
+
+####  Piano-Forest  
+##### 10773#         楼主| 发表于 2025-4-30 23:55
+
+<img src="https://p.sda1.dev/23/653fbc6957c26aea437424ba7f6e8217/20250430_235329.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/989f176eb52e496c10f7170d088f9d84/20250430_235331.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/c4c8f8b62e340a80a70f0fd2404ecf10/20250430_235333.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/59412833f2598da38ea0bfc1c20de77f/20250430_235334.jpg" referrerpolicy="no-referrer">
+

@@ -68,3 +68,13 @@ psn国服特供版确实有和谐，发行负责人之前在微博说过了，�
 
 藤子那边都一百人了，不缺这么点吧（买来冷藏另说）
 
+
+*****
+
+####  ネロ  
+##### 238#       发表于 2025-4-30 23:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769979&amp;ptid=2168791" target="_blank">yohyoh4966 发表于 2025-4-30 16:58</a>
+宣发视频说dlc在做了</blockquote>
+好耶<img src="https://static.stage1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
+
