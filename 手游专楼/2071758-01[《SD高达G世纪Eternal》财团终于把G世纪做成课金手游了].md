@@ -9630,3 +9630,33 @@ BNQS73HN3ZP7C8
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一抽卡就报错，母猪还是太多了
 
+
+*****
+
+####  MMIno  
+##### 904#       发表于 2025-4-30 11:09
+
+2w钻最后一发出了双黄蛋，一个强自 一个支援船
+
+
+*****
+
+####  ddlsyo  
+##### 905#       发表于 2025-4-30 11:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">现在是坛友的晒卡时间
+
+*****
+
+####  zksandy  
+##### 906#       发表于 2025-4-30 11:15
+
+7次出了，08MS，妖刀，NT高达。第7次出了强袭自由
+
+*****
+
+####  winder0707  
+##### 907#       发表于 2025-4-30 11:15
+
+11个十连 最后出的还是欧通自由，我不想活了
+

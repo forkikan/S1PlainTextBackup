@@ -31,3 +31,11 @@ psn国服是吗？这个是别处的评论，说是有和谐。
 
 —— 来自 Xiaomi 24129RT7CC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  thealoneer  
+##### 234#       发表于 2025-4-30 11:13
+
+psn国服特供版确实有和谐，发行负责人之前在微博说过了，唯一优势就是便宜，不然还是港版比较好
+

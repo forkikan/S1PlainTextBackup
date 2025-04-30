@@ -986,3 +986,76 @@ IF的0085年地宇关系没那么离谱，第一话里番茄拿来装定位器�
 
 <img src="https://p.sda1.dev/23/ac3a9b52772eb703a2e8f7d0f6ea4995/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  希望之异热同心  
+##### 10460#       发表于 2025-4-30 11:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768782&amp;ptid=2209276" target="_blank">kulanyee 发表于 2025-4-30 10:59</a>
+
+机体被对面钩住做机动感觉不出来？力的作用不是相互的嘛。先是来个宇宙高达斗兽场，然后在里头又因为这点原 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">单纯是荒木把高达当巨人做了
+
+*****
+
+####  oi99o  
+##### 10461#       发表于 2025-4-30 11:05
+
+也太蜘蛛侠了
+
+<img src="https://img.stage1st.com/forum/202504/30/110533mh2zscmhkhlk2tt9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (21.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 11:05 上传
+
+*****
+
+####  modkingr  
+##### 10462#       发表于 2025-4-30 11:06
+
+这集5分钟麻球妈喊她不要乱填进路希望那里
+
+有种
+
+麻球嫌弃自己妈妈太传统
+
+麻球憧憬修司觉得他不一样
+
+（但其实单方面诉说这一切的麻球也很肤浅）的连贯感，
+
+信息密度很高
+
+*****
+
+####  chilno  
+##### 10463#       发表于 2025-4-30 11:06
+
+鉴定为鹤卷写情书能力不如大和田秀树
+
+*****
+
+####  天邪鬼  
+##### 10464#       发表于 2025-4-30 11:09
+
+越看越像gvg了，只是和游戏不一样，这里面被砍到就是死了
+就是怎么都变格斗机了，开始时不是还有个队友射击吗？nt原来是指猩人类吗？
+
+
+*****
+
+####  未来起航  
+##### 10465#       发表于 2025-4-30 11:13
+
+用不合适的话讲，番茄就是网左<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猎人D  
+##### 10466#       发表于 2025-4-30 11:14
+
+联邦这裁军有点狠啊，ace和技术士官都跑了，看来确实是路边一条了
+
