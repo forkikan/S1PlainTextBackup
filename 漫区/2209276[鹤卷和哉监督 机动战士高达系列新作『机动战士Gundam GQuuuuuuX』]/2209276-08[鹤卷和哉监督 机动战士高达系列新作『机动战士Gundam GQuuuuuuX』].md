@@ -602,3 +602,97 @@ nt之间相互理解但仍要干死对方这确实很老uc味啊
 明面上的老太婆派，实质上的夏亚派啊，第一话不是讲了吗？</blockquote>
 那兰巴怎么不搞这套假意投诚，性格不允许吗（
 
+
+*****
+
+####  希望之异热同心  
+##### 10421#       发表于 2025-4-30 10:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768607&amp;ptid=2209276" target="_blank">pokemon最爱 发表于 2025-4-30 10:19</a>
+
+这集看下来给我的感觉是一般路过宇宙女鬼拉拉发功不知道本体在哪儿的G夸克鸭子上身才让修司翻盘超度了魔女 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">番茄单纯是菜吧，就算机体可以按照自己想法行动但和百人斩老兵比战斗反应还是差太远了
+
+*****
+
+####  大泽瑠璃乃  
+##### 10422#       发表于 2025-4-30 10:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768564&amp;ptid=2209276" target="_blank">EFSF 发表于 2025-4-30 10:05</a>
+
+这第四集什么鬼...
+
+魔女那钩子能死死勾住ms装甲不脱钩，线的韧度也惊人，联邦0079就有此等好材料咋输的？</blockquote>
+都过去五年多了，吉翁打了个皮洛士式胜利元气大伤还要搞内斗，联邦其实就掉了层皮依旧财大气粗，把研究重点放在军事上很容易在这几年比吉翁搓出更多黑科技
+
+*****
+
+####  巴尔干炮  
+##### 10423#       发表于 2025-4-30 10:24
+
+女主全程看戏、女二影薄，然后ED里刷存在感，这样好吗？
+
+*****
+
+####  Sliurus  
+##### 10424#       发表于 2025-4-30 10:26
+
+马秋nt等级低的话，首席哥不就更低了，果然吉翁已无可用之兵<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  暗黑能乐  
+##### 10425#       发表于 2025-4-30 10:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768628&amp;ptid=2209276" target="_blank">大泽瑠璃乃 发表于 2025-4-30 10:24</a>
+
+都过去五年多了，吉翁打了个皮洛士式胜利元气大伤还要搞内斗，联邦其实就掉了层皮依旧财大气粗，把研究重 ...</blockquote>
+但是你退守地球了真的还有反击空间吗，没有宇宙基地可不是什么简单的科研一下就打回来的事，而是你重返宇宙的路线会被对方监控掐死吧
+
+
+*****
+
+####  灵魂收割机  
+##### 10426#       发表于 2025-4-30 10:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768474&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-4-30 09:38</a>
+
+不过我还是觉得纯粹是制作组的锅就是了，漏油帮卷卷脑补这么多真是太亚撒西了，实际就是画面体现出来的让我 ...</blockquote>
+魔女哪像是机体掉头了就会停手的样子，修司要是真浪费时间去砍头，剩下一手两腿再搞点什么花样怎么办？
+
+*****
+
+####  暗黑能乐  
+##### 10427#       发表于 2025-4-30 10:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768638&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-4-30 10:26</a>
+
+马秋nt等级低的话，首席哥不就更低了，果然吉翁已无可用之兵</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">首席哥没有感应框架都能和红高打的有来有回，水平已经至少是接近魔女级别的了吧
+
+*****
+
+####  shbz  
+##### 10428#       发表于 2025-4-30 10:32
+
+nt高低还得看后有没有明确的对比，这集主要是服务与演出
+
+*****
+
+####  Toby_dak  
+##### 10429#       发表于 2025-4-30 10:33
+
+只砍头？不怕对面拼了老命来个last shoot吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.45)
+
+*****
+
+####  暗黑能乐  
+##### 10430#       发表于 2025-4-30 10:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768655&amp;ptid=2209276" target="_blank">灵魂收割机 发表于 2025-4-30 10:30</a>
+
+魔女哪像是机体掉头了就会停手的样子，修司要是真浪费时间去砍头，剩下一手两腿再搞点什么花样怎么办？ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">已经断一只手了，再废一只手就够了，0武装还能有花样吗，自爆嘎
+
