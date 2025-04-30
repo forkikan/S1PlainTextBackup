@@ -9995,3 +9995,21 @@ WechatIMG75.jpg
 你们没井都抽也是胆子大，我存了5w根本没动</blockquote>
 我的本命机到一周年都不见得会出，存来干嘛<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Marseille  
+##### 947#       发表于 2025-4-30 15:32
+
+小号没出货新开小号不能跳过新手任务了？试了两次都不能跳过了。
+
+*****
+
+####  windtrack  
+##### 948#       发表于 2025-4-30 15:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769515&amp;ptid=2071758" target="_blank">silvia 发表于 2025-4-30 14:25</a>
+
+200抽兑换是换个已有ur来强化还是换个新的？</blockquote>
+肯定换新的，驾驶员比机体重要
+

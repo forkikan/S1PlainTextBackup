@@ -44,3 +44,19 @@
 
 叶卡转到僧侣血量安心到我都不愿转回法师了。不差那点基础魔力，大AOE可以靠秘术，唯一就是行动速度慢比较伤。
 
+
+*****
+
+####  elven119  
+##### 272#       发表于 2025-4-30 15:30
+
+<img src="https://img.stage1st.com/forum/202504/30/153023vxvxqvyyi70yizgi.png" referrerpolicy="no-referrer">
+
+<strong>6B1A9947BE8F7970E905446D7E009B10.png</strong> (384.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 15:30 上传
+
+有新骚鸡了，管他强不强，骚就行了。孩子喜欢<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
