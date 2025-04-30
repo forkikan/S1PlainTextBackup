@@ -4218,3 +4218,50 @@ g复国开高扭力背包揍巫夏那集也是荒木哲郎，咋十年过去后�
 
 应该不至于开不了但是进nt聊天室
 
+
+*****
+
+####  岸浪白野  
+##### 10761#       发表于 2025-4-30 23:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67770826&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-4-30 22:40</a>
+
+看推上有人说修司的“唯一的愿望”是不是在致敬独角兽正好都是找东西</blockquote>
+3月份PV的时候就已经有说这句台词，就已经有楼友说过想起巴上帝了
+
+*****
+
+####  岸浪白野  
+##### 10762#       发表于 2025-4-30 23:12
+
+欲しいものすべて (T_001)
+
+<img src="https://img.stage1st.com/forum/202504/30/231034oxuhpu331poz6yps.png" referrerpolicy="no-referrer">
+
+<strong>%{HQQ749ZI]KT8T{V`7Q.png</strong> (920.9 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 23:10 上传
+
+<img src="https://img.stage1st.com/forum/202504/30/231101x5b9kzujl5zcd559.png" referrerpolicy="no-referrer">
+
+<strong>K15C59YUMOY0OWF}5}X`6W2.png</strong> (292.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 23:11 上传
+
+
+*****
+
+####  ryanghj  
+##### 10763#       发表于 2025-4-30 23:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67770872&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-4-30 23:12</a>
+
+欲しいものすべて (T_001)</blockquote>
+[https://www.youtube.com/watch?v=OytfOjDVTkg](https://www.youtube.com/watch?v=OytfOjDVTkg)
+
+还挺好听的，温柔中带一丝悲伤，有点eva风的曲子
+
