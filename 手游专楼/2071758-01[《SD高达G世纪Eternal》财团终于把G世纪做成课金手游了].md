@@ -9749,3 +9749,62 @@ BNQS73HN3ZP7C8
 
 1W2钻出完正义强自，还歪了一台O和天鹅，可以继续玩了
 
+
+*****
+
+####  jackyhuang  
+##### 919#       发表于 2025-4-30 12:17
+
+打着打着感觉哪里不对，活动你就用得起原作BGM啦
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  HATENA  
+##### 920#       发表于 2025-4-30 12:18
+
+掉线了一个早上，凯子还是太多了
+
+
+*****
+
+####  zExs  
+##### 921#       发表于 2025-4-30 12:19
+
+第一发10连就是强自……赶紧来坛里看看打消三星的念头
+
+
+*****
+
+####  无念  
+##### 922#       发表于 2025-4-30 12:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这seed开场有多少新规？我怎么感觉好多没看过？三件同盟分开那段是新的旧的？感觉大天使已经是剧场版的3D建模了，但是一切舱内好像还是TV经典的简笔画远景小人
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  qixinno2  
+##### 923#       发表于 2025-4-30 12:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">30抽一个巴巴托斯 一个强自一个布莱德 跑了
+
+*****
+
+####  无念  
+##### 924#       发表于 2025-4-30 12:23
+
+妖刀，牛，天鹅二号机，X1
+全歪，不抽了
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  natmk  
+##### 925#       发表于 2025-4-30 12:25
+
+40抽出了两个正义 还是等00系了
+

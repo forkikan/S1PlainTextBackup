@@ -1261,3 +1261,90 @@ nt能感知到人杀意的，对方不动杀心他被踹来踹去都不会下杀
 
 蓝毛整天说”高达他在说XX"，再结合这集的信息。夏亚难不成真的也成了阿赖耶识在高达里，驾驶员还是三日月<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  璇瑢子R  
+##### 10487#       发表于 2025-4-30 12:17
+
+对基连视角来说联邦这么强的ace被一个路人干死了
+
+联邦已无可用之兵
+
+是不是可以突击贾布罗了呢
+
+*****
+
+####  ヒトニナル  
+##### 10488#       发表于 2025-4-30 12:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768921&amp;ptid=2209276" target="_blank">iuiuk2 发表于 2025-4-30 11:35</a>
+一个很可爱（）的小细节，魔女给给自己起的ID叫 妈妈魔女</blockquote>
+这张图真的很有日本那张指蟹为海胆的meme的荒谬感
+
+*****
+
+####  EFSF  
+##### 10489#       发表于 2025-4-30 12:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768628&amp;ptid=2209276" target="_blank">大泽瑠璃乃 发表于 2025-4-30 10:24</a>
+
+都过去五年多了，吉翁打了个皮洛士式胜利元气大伤还要搞内斗，联邦其实就掉了层皮依旧财大气粗，把研究重 ...</blockquote>
+这都不是这5年的事儿，而是0079年联邦就能有如此可怕的的东西。
+
+魔女在没能成ACE的时候肯定就用这套战法，使用的东西肯定也是整备部门随手拿现有的东西随便凑的，没人专门给他研发新材料，这东西就能轻松扎破扎古装甲，勾着扎古绕圈圈，一个整备班随手做的东西就能如此恐怖，联邦的战舰外装甲，MS外装甲材料得是啥水平？怎么输的？完全就是为了剧情叙事随便整的战法，因为编剧想不出来怎么更合理描述魔女的机动。
+
+
+*****
+
+####  EFSF  
+##### 10490#       发表于 2025-4-30 12:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768746&amp;ptid=2209276" target="_blank">ProAgressive 发表于 2025-4-30 10:50</a>
+
+话说UC有摄像头死角这种设定吗，量产勇士背后是盲区？
+
+—— 来自 鹅球 v3.0.86-alpha ...</blockquote>
+老UC补充的设定里其实主摄像没了不存在绝对死角，MS全身上下很多辅助摄像头，头里面更多的是集成了各类探测设备，辅助摄像头就只是摄像头，
+
+*****
+
+####  真阿波罗  
+##### 10491#       发表于 2025-4-30 12:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768740&amp;ptid=2209276" target="_blank">operatbig 发表于 2025-4-30 10:49</a>
+
+基本可以确定修斯跟麻球走不到最后。</blockquote>
+查了下言论，这就是你这种逆天河豚的丑态吗？只会一直复读画圈圈咒男主，还是滚回你的专楼找集美和龟龟共振夸母鬼子是神作吧！还踏马幻想新海诚搞lgbt，恶不恶心啊？
+
+*****
+
+####  绿冰  
+##### 10492#       发表于 2025-4-30 12:25
+
+<blockquote>CCMkIII 发表于 2025-4-30 09:49
+其实前几天想，GQX世界里原来0079里被骡子击杀的ace估计都没死，那如果兰巴没死他是不是也能开上一个蓝色的 ...</blockquote>
+十年前就做了，拉尔的大魔R35
+
+*****
+
+####  FishTail  
+##### 10493#       发表于 2025-4-30 12:25
+
+魔女私服第一眼蜘蛛侠，一看技能原来真是蜘蛛侠
+
+*****
+
+####  ryanghj  
+##### 10494#       发表于 2025-4-30 12:25
+
+回看声优访谈，石川直接点名了喵安是向往日常的角色，所以显然是和向往非日常的麻球对立的存在
+
+<img src="https://img.stage1st.com/forum/202504/30/122306v7zf5zdm7bltndg7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (381.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 12:23 上传
+
