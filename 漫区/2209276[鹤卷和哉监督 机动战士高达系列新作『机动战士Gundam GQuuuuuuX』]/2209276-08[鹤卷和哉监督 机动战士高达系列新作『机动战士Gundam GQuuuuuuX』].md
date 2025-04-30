@@ -2554,3 +2554,87 @@ nt不就是单纯能开聊天室、能知道对方攻击意图么…
 
 别等下以一种异常幽默的方式结束了政治戏
 
+
+*****
+
+####  Toby_dak  
+##### 10617#       发表于 2025-4-30 16:16
+
+<blockquote>暗黑能乐 发表于 2025-4-30 13:50
+也算不上多富二代吧，住的不也就是个小公寓</blockquote>
+母亲是能接触最高层的体制内。
+
+水资源紧张的殖民卫星，洗澡用的是浴缸泡浴而不是花洒淋浴。上个洗泡浴的UC女角我只记得塞西莉。
+
+*****
+
+####  OrianaThomson  
+##### 10618#       发表于 2025-4-30 16:18
+
+怎么没人造假药了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  死光光  
+##### 10619#       发表于 2025-4-30 16:19
+
+问题是你去掉什么大格局，什么老人臭，就按顺应时代来说也是太抽象了，机战表现也是一言难尽。
+
+特别最后你被捅了驾驶舱怎么就什么复仇好像都和解了家人孩子也放得下了，然后女主看了也是想说我不真砍人以后就跟不上了这两个地方太抽象太难崩了。这跟高不高达没什么关系，你这段放哪都是难绷<img src="https://static.stage1st.com/image/smiley/animal2017/028.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之异热同心  
+##### 10620#       发表于 2025-4-30 16:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769805&amp;ptid=2209276" target="_blank">变老的大二 发表于 2025-4-30 16:08</a>
+
+关键好死不死，第四集还要嘴一句鸡瘟内斗，夏亚+红高达是异常点。
+
+别等下以一种异常幽默的方式结束了政治 ...</blockquote>
+这个好解决吧，找红高达本来就是基西莉亚让夏利亚去干的，但夏利亚找红高达是为了找夏亚干死扎比家，两人目的不一致，剧情只要聚焦找的过程就好，最后找到红高达要干嘛是夏利亚的事，和鸡瘟的内斗没关系
+
+*****
+
+####  变老的大二  
+##### 10621#       发表于 2025-4-30 16:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769851&amp;ptid=2209276" target="_blank">OrianaThomson 发表于 2025-4-30 16:18</a>
+
+怎么没人造假药了</blockquote>
+在一个主角没有仇敌，没有对手的剧情里，很难造出一个有意义的假药<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  变老的大二  
+##### 10622#       发表于 2025-4-30 16:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769857&amp;ptid=2209276" target="_blank">死光光 发表于 2025-4-30 16:19</a>
+
+问题是你去掉什么大格局，什么老人臭，就按顺应时代来说也是太抽象了，机战表现也是一言难尽。
+
+特别最后你 ...</blockquote>
+我还数了数没有一个高达主角是这样毫无动机的吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+
+哪怕是水魔也在第一集赋予女主一个保护友人的强动机
+
+*****
+
+####  希望之异热同心  
+##### 10623#       发表于 2025-4-30 16:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769857&amp;ptid=2209276" target="_blank">死光光 发表于 2025-4-30 16:19</a>
+
+问题是你去掉什么大格局，什么老人臭，就按顺应时代来说也是太抽象了，机战表现也是一言难尽。
+
+特别最后你 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">有啥难甭的前面的楼分析的帖子一堆，已经把角色的动机心理都分析过了，剧中信息都是给足的
+
+*****
+
+####  zzf111  
+##### 10624#       发表于 2025-4-30 16:23
+
+题外话 楼里打滚的百合豚没封 封了指错的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">（是因为这楼封的吗）
+
