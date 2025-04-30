@@ -4079,3 +4079,36 @@ g复国开高扭力背包揍巫夏那集也是荒木哲郎，咋十年过去后�
 
 安逸生活过无聊了，不满于现状，同班同学找了些未成年禁止的赌博app玩，女主则是找点更刺激的事去追求。前者结局赌到最后一无所有，那后者呢<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  木板春香  
+##### 10749#       发表于 2025-4-30 21:39
+
+  打黑拳的时候有了杀人的觉悟！
+
+
+*****
+
+####  jojonathan  
+##### 10750#       发表于 2025-4-30 21:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769090&amp;ptid=2209276" target="_blank">EFSF 发表于 2025-4-30 12:19</a>
+这都不是这5年的事儿，而是0079年联邦就能有如此可怕的的东西。
+
+魔女在没能成ACE的时候肯定就用这套战法 ...</blockquote>
+其实现实里也是材料的抗拉强度上限远超抗压强度 做出超级钩爪的难度比做出超级护甲的难度简单多了 不可以一概而论的<img src="https://static.stage1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UnrealApartheid  
+##### 10751#       发表于 2025-4-30 21:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67770396&amp;ptid=2209276" target="_blank">无念 发表于 2025-4-30 19:36</a>
+卡哈这群老害可油滑了，又不是今西老贼
+
+—— 来自 HONOR SDY-AN00, Android 14, 鹅球 v3.5.99 ...</blockquote>
+而且今西隆志在Origin前半部分之后就再没出山过了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
