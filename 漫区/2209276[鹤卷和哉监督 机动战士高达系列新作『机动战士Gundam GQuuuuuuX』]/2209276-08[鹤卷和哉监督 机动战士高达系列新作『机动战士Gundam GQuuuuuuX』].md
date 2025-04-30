@@ -3372,3 +3372,57 @@ nt不就是单纯能开聊天室、能知道对方攻击意图么…
 
 2025-4-30 17:36 上传
 
+
+*****
+
+####  木板春香  
+##### 10688#       发表于 2025-4-30 17:47
+
+ 你这地下黑拳一堆军用技术流出了吧
+
+*****
+
+####  lingfeng1236  
+##### 10689#       发表于 2025-4-30 17:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67770112&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-4-30 17:36</a>
+
+反正你是被版主送进去的，又不是我，最后回你一次，懒得无效发言了</blockquote>
+唉，又装了，河豚特有的讲道理讲不过心虚，开始装松弛。被送进去怎么了，你河豚就觉得自己是对的了？豚豚相互，顺风圈地嘲讽。逆风装和平，加上管理权限保护，你们有什么好意思的，不出来骂你们两句，你们还真当自己正大光明了。和隔壁猴区很像啊。
+
+*****
+
+####  OPCI_0125  
+##### 10690#       发表于 2025-4-30 17:51
+
+<blockquote>希望之异热同心 发表于 2025-4-30 17:14
+看完你的分析我终于理解了声优采访里面这段喵安和麻球关系的内容了，两人虽然搭档一起但因为成长环境差 ...</blockquote>
+e1和e4几段两人互动的演出确实挺有趣，空间和心理位置、生物性乃至身份性的，高低错差很好品:-/
+
+*****
+
+####  kykawaiii  
+##### 10691#       发表于 2025-4-30 17:51
+
+志子这角色设计的真好，外表是温柔的萝莉妈妈，内在却潜藏着疯狂的仇恨，这种反差真对胃啊<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  Wondering  
+##### 10692#       发表于 2025-4-30 17:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67770118&amp;ptid=2209276" target="_blank">g救世主高达 发表于 2025-4-30 17:38</a>
+
+还有nt和独角兽这两直接不演了，精神力直接变成对波大战，nt高达直接甩精神力光波出去解体吉翁号 ...</blockquote>
+和标准的超级系还是没法比的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  123gp199  
+##### 10693#       发表于 2025-4-30 17:56
+
+话说剧情主线会不会把在正史里应该都已经死了的机师都拉出来打个bossrunsh？
+

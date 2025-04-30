@@ -1801,3 +1801,15 @@ baldr系列那种本来就是act的除外
 跟串烧阿妈对话被嫌弃味道重了，是因为拿到右眼开了红门杀了野生的铠灵嘛 ...</blockquote>
 是的，杀了一个就会有这个对话
 
+
+*****
+
+####  squallx  
+##### 173#       发表于 2025-4-30 17:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67766877&amp;ptid=2158861" target="_blank">madcow 发表于 2025-4-29 19:16</a>
+跟串烧阿妈对话被嫌弃味道重了，是因为拿到右眼开了红门杀了野生的铠灵嘛 ...</blockquote>
+反正全都得杀 升级材料唯一产地
+
+—— 来自 OnePlus PJZ110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
