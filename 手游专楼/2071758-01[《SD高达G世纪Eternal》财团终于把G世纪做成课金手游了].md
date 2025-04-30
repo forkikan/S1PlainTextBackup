@@ -10052,3 +10052,45 @@ WechatIMG75.jpg
 
 金异端机师不是打完hard就给了么，不过只给了弟弟没给姐姐
 
+
+*****
+
+####  森兰丸  
+##### 954#       发表于 2025-4-30 17:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769988&amp;ptid=2071758" target="_blank">12481632 发表于 2025-4-30 17:02</a>
+
+金异端机师不是打完hard就给了么，不过只给了弟弟没给姐姐</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好吧是我按太快了没有注意
+
+*****
+
+####  王俊凯  
+##### 955#       发表于 2025-4-30 17:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">知道你们说机师不够用 这回送了好几个
+
+*****
+
+####  ddlsyo  
+##### 956#       发表于 2025-4-30 17:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">蓝异端 EX不能掠过。。我又回想起了GBF刷星本Hell的恐惧。这本有没有特殊成就，没有的话打一次就算了
+
+*****
+
+####  邪恶的shah  
+##### 957#       发表于 2025-4-30 17:11
+
+明明也给了机师，结果不给红异端的强化版，估计还要留着拖到下一次活动
+
+还有这次活动才留意到大部分机体都没专属BGM啊，印象里就沙扎比和这三台异端才有专属BGM，这种地方还要抠门
+
+
+*****
+
+####  HEERO.W  
+##### 958#       发表于 2025-4-30 17:13
+
+花了110抽一台SF，开始当屯屯鼠，半年内攻击和防御机不考虑下池子
+

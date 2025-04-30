@@ -2875,3 +2875,109 @@ nt不就是单纯能开聊天室、能知道对方攻击意图么…
 
 正常向讨论楼里一个百合复读机一个是嘴臭要求闭嘴，要么全杀要么我选后一个
 
+
+*****
+
+####  变老的大二  
+##### 10646#       发表于 2025-4-30 17:08
+
+似是故人来<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202504/30/170808ghbnt0kevqchoodh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (16.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 17:08 上传
+
+*****
+
+####  a85982313  
+##### 10647#       发表于 2025-4-30 17:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769996&amp;ptid=2209276" target="_blank">zzf111 发表于 2025-4-30 17:05</a>
+真没有吗，最多是初衷好的但过激执行，而且现在只死了他一个随便任人指责了
+
+正常向讨论楼里一个百合复读机 ...</blockquote>
+可以举报，问为什么不都塞
+
+*****
+
+####  Wondering  
+##### 10648#       发表于 2025-4-30 17:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769996&amp;ptid=2209276" target="_blank">zzf111 发表于 2025-4-30 17:05</a>
+
+真没有吗，最多是初衷好的但过激执行，而且现在只死了他一个随便任人指责了
+
+正常向讨论楼里一个百合复读机 ...</blockquote>
+那我支持两个都塞，顺便能不能把第一个人的ip给曝光一下看看是不是安徽的人<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lingfeng1236  
+##### 10649#       发表于 2025-4-30 17:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769887&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-4-30 16:29</a>
+
+我看他好像也没对楼里讨论有啥建树啊，上来就是查记录开喷，这种人不进去放着污染环境吗 ...</blockquote>
+双标还是你在行啊，那个人复读机要百合百合的，咒修司死，请问对楼里有啥建树吗？回答？这河豚不污染环境吗？回答我。
+
+
+*****
+
+####  希望之异热同心  
+##### 10650#       发表于 2025-4-30 17:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769898&amp;ptid=2209276" target="_blank">OPCI_0125 发表于 2025-4-30 16:32</a>
+
+看完e4感觉还挺有趣的？
+
+咱感到有趣的点并不在于战争的幽灵或是NT的存在意味云云，或者说不在于它们本身。 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202504/30/171134fflmkllyicgvfffg.png" referrerpolicy="no-referrer">
+
+<strong>471c67a0-c021-4b6d-ae75-919ae286b86a.png</strong> (54.16 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 17:11 上传
+
+看完你的分析我终于理解了声优采访里面这段喵安和麻球关系的内容了，两人虽然搭档一起但因为成长环境差异太大频道确实完全对不上
+
+*****
+
+####  死光光  
+##### 10651#       发表于 2025-4-30 17:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769969&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-4-30 16:55</a>
+
+你以前看过什么机战片</blockquote>
+又要开始算资历了吗<img src="https://static.stage1st.com/image/smiley/animal2017/028.png" referrerpolicy="no-referrer">
+
+*****
+
+####  变老的大二  
+##### 10652#       发表于 2025-4-30 17:14
+
+修司吸了个爽
+
+<img src="https://img.stage1st.com/forum/202504/30/171436jhxlzzkqkqqhfa66.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (27.31 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 17:14 上传
+
+*****
+
+####  lingfeng1236  
+##### 10653#       发表于 2025-4-30 17:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769900&amp;ptid=2209276" target="_blank">五九老英雄 发表于 2025-4-30 16:33</a>
+
+平A骗大是这样的，哈基肴以后还是别太应激了</blockquote>
+你这又是哪个混厕二游龟龟来了？
+

@@ -101,3 +101,18 @@
 法系单体打桩现在最强应该是联动的伊亚马 ...</blockquote>
 联动那技能唯一问题就是mp消耗太大了。等级上去以后更高，我手里留了大概5个，看看情况以后喂给谁
 
+
+*****
+
+####  macshi  
+##### 276#       发表于 2025-4-30 17:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769933&amp;ptid=2249235" target="_blank">elven119 发表于 2025-4-30 16:44</a>
+
+联动那技能唯一问题就是mp消耗太大了。等级上去以后更高，我手里留了大概5个，看看情况以后喂给谁 ...</blockquote>
+主要是伊亚马斯自己没有法师心得，继承给其他法师倒是可以稍微缓解一下MP消耗。
+
+定位应该还是打boss决战用技能所以感觉高消耗就还好，单僧侣队伍的话法师还要兼顾干辅助的活，耗蓝虽高也不会一直复读。大幅穿魔防抓住空闲就能无脑用，决战能轰出几发也是划算的，伤害也不输复读全力一击的战士。
+
+关键是这个技能甚至能看法师拿法杖冲过去上下翻飞还挺乐的。<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
