@@ -3706,3 +3706,41 @@ WTF 百杀王牌就这么领便当了？本来看面相如此地无机质，以�
 有个不知将来会不会被提到的隐雷，制作组对吉翁的态度究竟是什么。目前看一周战争、毒气、炸悉尼都是存在的 ...</blockquote>
 看过GRFV的就应该知道现在那边的主流思想了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过联邦肯定不可能忏悔的，最好的结果还是并没有怎么涉及两边的是非对错
 
+
+*****
+
+####  无念  
+##### 10720#       发表于 2025-4-30 19:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67770385&amp;ptid=2209276" target="_blank">Wondering 发表于 2025-4-30 19:32</a>
+看过GRFV的就应该知道现在那边的主流思想了吧不过联邦肯定不可能忏悔的，最好的结果还是并没有怎么涉及两 ...</blockquote>
+卡哈这群老害可油滑了，又不是今西老贼
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  aptx8285144  
+##### 10721#       发表于 2025-4-30 19:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769870&amp;ptid=2209276" target="_blank">变老的大二 发表于 2025-4-30 16:22</a>
+
+我还数了数没有一个高达主角是这样毫无动机的吧。
+
+哪怕是水魔也在第一集赋予女主一个保护友人的强动机 ...</blockquote>
+算上女主到是有，逆夏的葵斯<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 10722#       发表于 2025-4-30 19:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769857&amp;ptid=2209276" target="_blank">死光光 发表于 2025-4-30 16:19</a>
+
+问题是你去掉什么大格局，什么老人臭，就按顺应时代来说也是太抽象了，机战表现也是一言难尽。
+
+特别最后你 ...</blockquote>
+前者到是很好理解，联邦魔女就是心里还是“有病”，孩子和家人是她人生的一个“经历而已”，所以她才对大姐头等人说“现在她有自己的时间”了（吐槽一下翻译虽然很糟糕，但是幸好这里翻译还凑合），现在打不过红色高达也算“另类的功德圆满”，虽然修司应该和她说了些什么
+
