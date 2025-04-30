@@ -60,3 +60,16 @@
 
 有新骚鸡了，管他强不强，骚就行了。孩子喜欢<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Flechette  
+##### 273#       发表于 2025-4-30 15:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769571&amp;ptid=2249235" target="_blank">macshi 发表于 2025-4-30 14:44</a>
+
+爱丽丝转法师太脆皮了，我学完法师技能就给她转回僧侣了。拿个盾+单手杖当奶妈buff人比较好，身板也比较硬 ...</blockquote>
+脆是真的脆，数值也是真的高，爱丽丝智力能上80+，我这只应该还不是智个体
+
+氪佬高克己拉高血量后应该能用，不过现在新角色大概率是暗属性的精灵法，新的法系打桩玩具应该就是她了，爱丽丝还是要转回僧用
+

@@ -2411,3 +2411,36 @@ nt不就是单纯能开聊天室、能知道对方攻击意图么…
 
 红高这集损伤的有点多啊，武装就剩个光剑了，再不和绿叔叔搭上线搞整备的话不好应付后面的战斗。
 
+
+*****
+
+####  windlikeman  
+##### 10603#       发表于 2025-4-30 15:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768817&amp;ptid=2209276" target="_blank">天邪鬼 发表于 2025-4-30 11:09</a>
+
+越看越像gvg了，只是和游戏不一样，这里面被砍到就是死了
+
+就是怎么都变格斗机了，开始时不是还有个队友射击 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉会有人剪机战部分然后贴上全套GVG UI和音效玩梗
+
+胜利画面和出击画面反正动画里已经有现成的了
+
+
+*****
+
+####  渡鸦骑士  
+##### 10604#       发表于 2025-4-30 15:41
+
+<img src="https://p.sda1.dev/23/339a56a6372c4011ccc6a3fe84c2f008/image.jpg" referrerpolicy="no-referrer">
+推特上有人指出魔女疑似强化人，住所是研究所。<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+*****
+
+####  变老的大二  
+##### 10605#       发表于 2025-4-30 15:41
+
+不过说实话已经第四话了，压根没有东西逼迫女主去战斗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+完全是女主NT发作主动跟随红高达的脚步，纯纯的葵丝。
+
