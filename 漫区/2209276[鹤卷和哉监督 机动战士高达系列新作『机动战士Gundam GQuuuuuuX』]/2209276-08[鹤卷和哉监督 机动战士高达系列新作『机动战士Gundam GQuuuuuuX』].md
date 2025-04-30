@@ -3268,3 +3268,107 @@ TV开播前就料到这楼里迟早开撕
 
 进楼第一句就是男主能不能赢能不能赢方便自己去社区踩头的号哪天死了都正常<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暗黑能乐  
+##### 10679#       发表于 2025-4-30 17:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67770095&amp;ptid=2209276" target="_blank">lingfeng1236 发表于 2025-4-30 17:32</a>
+
+你看看自己过往发言，就不能**方方承认是河豚吗？明明是一伙人人，装理中客很有意思？ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">反正你是被版主送进去的，又不是我，最后回你一次，懒得无效发言了
+
+*****
+
+####  g救世主高达  
+##### 10680#       发表于 2025-4-30 17:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769632&amp;ptid=2209276" target="_blank">ParadiseMartyr 发表于 2025-4-30 15:06</a>
+
+nt不就是单纯能开聊天室、能知道对方攻击意图么…
+
+也就卡缪最后能鬼魂实体化加强化机体…</blockquote>
+你在说什么，z和zz一堆靠精神力强化机体的表现，zz甚至有一个精神力大宝剑吧殖民卫星砍成两半，还有zz没电了直接精神力充电的表现，nt表现不行是0079的事<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  g救世主高达  
+##### 10681#       发表于 2025-4-30 17:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769632&amp;ptid=2209276" target="_blank">ParadiseMartyr 发表于 2025-4-30 15:06</a>
+
+nt不就是单纯能开聊天室、能知道对方攻击意图么…
+
+也就卡缪最后能鬼魂实体化加强化机体…</blockquote>
+还有nt和独角兽这两直接不演了，精神力直接变成对波大战，nt高达直接甩精神力光波出去解体吉翁号<img src="https://static.stage1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+*****
+
+####  重巡羊舰  
+##### 10682#       发表于 2025-4-30 17:39
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">已经不指望现在的日本编剧能把故事写好了……能圆回来就好了，不说写个好的，写个正常点的东西吧
+
+*****
+
+####  123gp199  
+##### 10683#       发表于 2025-4-30 17:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768620&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-4-30 10:23</a>
+
+那兰巴怎么不搞这套假意投诚，性格不允许吗（</blockquote>
+兰巴的后台是疤脸但已经死了，而夏利亚情况也没多好，明显是坐了冷板凳，管着一群边缘化的少年兵。
+
+夏利亚最初是基连的人，但他选择了和夏亚合作，从表面上看就是从基连跳去了基西莉亚那边，但基西莉亚很清楚夏亚的身份，所以夏利亚在基西莉亚手下也不被信任，夏亚死了以后他就成了个左右不靠的摆设，论功绩是打赢大战的ACE，论立场是谁都不会信任的可疑分子，只能找个由头供起来。
+
+*****
+
+####  YU_JI  
+##### 10684#       发表于 2025-4-30 17:40
+
+话说对手原定机体是轻加农，那岂不是轻加农也流入民间了？
+
+*****
+
+####  123gp199  
+##### 10685#       发表于 2025-4-30 17:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768658&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-4-30 10:31</a>
+
+首席哥没有感应框架都能和红高打的有来有回，水平已经至少是接近魔女级别的了吧 ...</blockquote>
+首席哥好歹是受过正规训练的职业军人，驾驶技术肯定很好，要不然也不会在弗拉冈这种专门训练NT机师的地方拿到第一名
+
+
+*****
+
+####  123gp199  
+##### 10686#       发表于 2025-4-30 17:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768683&amp;ptid=2209276" target="_blank">EFSF 发表于 2025-4-30 10:37</a>
+
+他名义上是基连的人，毕竟是基连把他送去夏亚身边的，和夏亚交往好肯定会让传统基连派有猜忌，所以给的是 ...</blockquote>
+就现在谁都觉得要打内战的时局，他这种情况更尴尬，无非是好歹是实打实的大战英雄，不能直接弄他所以把他踢出正规军当保姆去了
+
+*****
+
+####  岸浪白野  
+##### 10687#       发表于 2025-4-30 17:46
+
+我负责了GQuuuuuuX版格鲁古古的设计工作。
+
+不过前期部分是基于山下育人先生提供的概略设计稿，
+
+在此基础之上完成了细节处理、整体修正以及背部设计。
+
+最终由3D组进行了整合完善。
+
+<img src="https://img.stage1st.com/forum/202504/30/173653b7af177f3n4l4c7j.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (829.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 17:36 上传
+

@@ -6996,3 +6996,73 @@ On a stage where sorrow, death, fear, love—even the solace of forgetting—are
 AnimeTV チェーン bringing you the latest anime news direct from Japan ~ anytime! — Your new source of information!
 AnimeTV 频道 随时为您带来来自日本的第一手动漫资讯！——您的全新信息源泉！
 
+
+*****
+
+####  堀内爱里衣  
+##### 40745#       发表于 2025-4-30 17:45
+
+<strong>Band Producer Hiroki Matsumoto On Finding Ave Mujica’s Sound, In And Outside Of Anime</strong>
+
+原帖链接：[https://www.pastemagazine.com/games/anime/bang-dream-ave-mujica-interview-hiroki-matsumoto](https://www.pastemagazine.com/games/anime/bang-dream-ave-mujica-interview-hiroki-matsumoto)
+
+<strong>以下为机翻，请谨慎阅读</strong>
+
+<strong>Band Producer Hiroki Matsumoto On Finding Ave Mujica’s Sound, In And Outside Of Anime</strong> <blockquote>《与 Ave Mujica 音乐制作人 Hiroki Matsumoto 的访谈：探寻动画内外 Ave Mujica 之声的历程》</blockquote>
+|By Elijah Gonzalez  |  April 29, 2025 | 12:38pm|
+
+<img src="https://img.stage1st.com/forum/202504/30/174008u7t1lrm7241crmdr.jpg" referrerpolicy="no-referrer">
+
+<strong>ave-mujica-main-2.jpg</strong> (49.27 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 17:40 上传
+
+       Ave Mujica – The Die is Cast – is unusual in more ways than one. Despite being an anime installment in the BanG Dream! series—a multimedia project that spans TV shows, mobile games, live concerts, and albums— nothing about its presentation fits the typically bubbly feel of many other idol-adjacent Japanese music franchises. Building off BanG Dream! It’s MyGO!!!!! and its surprisingly hard-hitting drama, Ave Mujica takes things in an even grimmer direction, incorporating gothic visuals and horror overtones as its characters go to some dark places. <blockquote>《Ave Mujica - The Die is Cast -》在多个维度上打破了常规。尽管作为横跨电视节目、手机游戏、现场演唱会及专辑的多媒体企划《BanG Dream!》系列的动画新作，其整体呈现却与众多日本偶像类音乐 IP 惯有的活泼氛围截然不同。延续前作《BanG Dream! It’s MyGO!!!!!》极具冲击性的戏剧张力，《Ave Mujica》进一步将故事推向更为阴郁的深渊，在角色深陷黑暗之境的同时，融入了哥特式视觉美学与恐怖元素。</blockquote>
+      And the centerpiece of this approach is the music, a series of metal tracks that tie us to this emotional roller-coaster as these musicians jam through several full-length songs. A fascinating element at work is that the voice actors behind the in-universe band Ave Mujica are also members of a real-world band of the same name, each member playing the same instruments as their characters in the show. The group’s first album, Completeness, came out this week. <blockquote>这种理念的核心是音乐，通过一系列金属曲目将我们与情感的过山车紧密相连，五位乐手以即兴演奏形式呈现了数首完整歌曲。尤为有趣的是，剧中乐队 Ave Mujica 的声优们在现实中同样组成了同名乐队，每位成员在现实中演奏的乐器与动画中的角色完全一致。该组合首张专辑《Completeness》已于本周正式发行。</blockquote>
+
+<img src="https://img.stage1st.com/forum/202504/30/174008ux9phcx9qp9baxxv.jpg" referrerpolicy="no-referrer">
+
+<strong>maxresdefault6(1).jpg</strong> (110.53 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 17:40 上传
+
+       To gain some insights into this group and their anime, we got a chance to speak with Band Producer Hiroki Matsumoto, the man behind Ave Mujica’s musical direction. He gave us insights into how they arrived at their sound, the way this complicated collaboration came together, and what’s next for BanG Dream. <blockquote>为了深入了解这支乐队及其动画作品，我们采访了 Ave Mujica 的音乐掌舵人——乐队制作人 Hiroki Matsumoto（松本大辉）。他向我们揭秘了乐队独特音色的诞生过程、复杂合作如何成型，以及 BanG Dream!的下一步计划。</blockquote>
+      <strong>Paste Magazine: Ave Mujica – The Die is Cast – is much darker in tone than its predecessor, BanG Dream! It’s MyGO!!!!!. How did you go about reflecting that change in the series’ music?</strong> <blockquote>Paste Magazine：Ave Mujica 的《The Die is Cast》在风格上比前作《BanG Dream! It’s MyGO!!!!!》更为暗黑。你们是如何在系列音乐中体现这种转变的？</blockquote>
+      <strong>Hiroki Matsumoto</strong>: If we consider MyGO!!!!! as “light,” then Ave Mujica’s music represents “darkness.” We centered our work around metal as the primary genre, crafting heavy sounds that suit the dark storyline. <blockquote>松本浩树：若将 MyGO!!!!!视作“光”，Ave Mujica 的音乐便是“暗”。我们以金属乐为核心，围绕其打造契合黑暗世界观的重型声响。</blockquote>
+      That said, while we describe it as “darkness,” darkness isn’t inherently negative. Light exists because there is darkness, and the reverse is equally true—darkness exists because there is light. Everyone carries a darker side within them, so we hope people can enjoy Ave Mujica’s music without feeling too burdened. <blockquote>不过，虽说我们将其定义为“黑暗”，但黑暗本身并非消极的存在。光明因黑暗而存在，反之亦然——黑暗也因光明而存在。每个人的内心都潜藏着阴暗面，因此希望大家无需背负过多沉重，能够轻松享受 Ave Mujica 的音乐。</blockquote>
+      Some audiences may be unfamiliar with metal as a genre, but thanks to the catchy melodies that transcend language barriers, I think many will find that it’s not as foreign as they might have thought once they give it a listen. <blockquote>或许有些观众对金属乐这一音乐类型并不熟悉，但得益于那些能跨越语言障碍的动听旋律，我相信当他们真正聆听时，会发觉它并不如想象中那般陌生。</blockquote>
+      Also, I believe metal is the perfect genre for unleashing emotions. It was an ideal choice for expressing the heavy feelings portrayed in the anime. <blockquote>此外，我相信金属乐是释放情感的完美载体。这是表达动画中描绘的沉重情感的理想选择。</blockquote>
+      <strong>Paste: The Ave Mujica anime seems to draw from an eclectic mixture of influences like stage plays, gothic aesthetics, and even Herman Hesse’s novel Demian. What were some of your inspirations for Ave Mujica’s music, whether that’s specific bands or anything else?</strong> <blockquote>《Ave Mujica》动画似乎融合了舞台剧、哥特美学甚至赫尔曼·黑塞小说《德米安》等多元灵感源泉。在创作《Ave Mujica》音乐时，您具体受到哪些启发？无论是特定乐队还是其他元素？</blockquote>
+      <strong>Matsumoto</strong>: Of course, there were songs and bands that served as references during the production process. Personally, I’ve been influenced by genres like symphonic metal, melodic speed metal, and metalcore—and I think those influences are reflected in Ave Mujica’s musical style. <blockquote>松本：当然，在制作过程中有一些歌曲和乐队作为参考。就我个人而言，我深受交响金属、旋律速度金属、金属核等流派的影响——我认为这些影响都体现在了 Ave Mujica 的音乐风格中。</blockquote>
+      It just so happened that my personal tastes aligned perfectly with the theme of Ave Mujica—[laughs]—I guess I was lucky in that sense. <blockquote>说来也巧，我的个人喜好与 Ave Mujica 的主题完美契合——[笑]——从这点来说我也算是很幸运了。</blockquote>
+      <strong>Paste: Where did the idea of Ave Mujica as a band come from? Was it a natural extension of where BanG Dream! It’s MyGO!!!!! and its story ended up, or was it decided much earlier that the next BanG Dream! band after MyGO!!!!! would have a much more metal sound?</strong> <blockquote>Ave Mujica 作为乐队的构想是从何而来的？是《BanG Dream! It’s MyGO!!!!!》及其故事线自然延伸的结果，还是早在 MyGO!!!!!时期就已决定下一支 BanG Dream!乐队将采用更具金属风格的音色？</blockquote>
+      <strong>Matsumoto</strong>: It’s MyGO!!!!! and Ave Mujica were conceived as a pair from the very beginning, designed to exist in clear contrast with each other. As the anime’s story developed, that concept naturally led to MyGO!!!!! being rooted in punk, while Ave Mujica settled into metal as its core genre. <blockquote>松本：MyGO!!!!!与 Ave Mujica 从最初构想时便是一组相互对照而存在的企划。随着动画剧情推进，自然形成了 MyGO!!!!!以朋克为基底、Ave Mujica 以金属为核心风格的创作方向。</blockquote>
+      From a broader BanG Dream! perspective, this choice also helped differentiate them from the other bands in the franchise, as there hadn’t been any bands that primarily focused on these genres. That’s how we landed on this setup. <blockquote>从更广泛的 BanG Dream!企划角度来看，这一选择也有助于将她们与企划中的其他乐队区分开来，因为此前还没有任何一支乐队主要专注于这些风格。我们最终敲定了这样的配置。</blockquote>
+      <strong>Paste: I’m curious about the interplay between creating the script and music for Ave Mujica – The Die is Cast –. Was the script written first, and then you made music based on it? Did the music come first? Or were they created at the same time? Could you talk a bit about the collaboration between the screenwriters and music producers here?</strong> <blockquote>我对《Ave Mujica -The Die is Cast-》剧本与音乐的互动关系很感兴趣。是先有剧本再根据剧本创作音乐，还是先有音乐？或者是同步进行的呢？能否谈谈剧本创作者与音乐制作人在这方面的协作方式？</blockquote>
+      <strong>Matsumoto</strong>: The script was written first, and the songs were then created to follow the storyline. Of course, we were working on the music while some parts were still unfinished, but the basic approach was to align the music with the script. <blockquote>松本：剧本是先写好的，然后根据故事情节创作了歌曲。当然我们在部分内容尚未完成时就已经开始制作音乐，但基本方针是让音乐与剧本保持一致。</blockquote>
+      After all, to truly bring out the power of an anime as a medium, it’s important for the songs to have a strong connection to the story. The anime team provided us with a general sense of the scenario and the tone they were aiming for, and from there, we thought about how to translate that into music during the production process. <blockquote>毕竟，要真正发挥动画作为媒介的力量，歌曲与剧情的深度关联性至关重要。动画团队为我们提供了剧本的整体氛围感和他们希望呈现的基调，我们便以此为基础，在创作过程中不断思考如何将其转化为音乐语言。</blockquote>
+      <strong>Paste: I continue to be impressed with how the BanG Dream! band members also voice their counterparts in the anime and games. How did Bushiroad go about finding talents who can play in a band and voice act for Ave Mujica?</strong> <blockquote>Paste：我一直对 BanG Dream!企划中乐队成员同时为动画和游戏角色配音的设定感到惊叹。请问 Bushiroad 是如何为 Ave Mujica 物色到既能演奏乐器又能胜任配音工作的复合型人才的？</blockquote>
+      <strong>Matsumoto</strong>: Actually, some of our voice actresses couldn’t play instruments at first, and others were musicians who had never done voice acting before—so it’s not like we specifically gathered people who could already do both. <blockquote>松本：事实上，我们并非刻意筛选出具备双重技能的人才。成员中既有最初不谙乐器的声优，也有毫无配音经验的乐手，两种类型兼而有之。</blockquote>
+      But since BanG Dream! has become such a long-running franchise, there’s a solid support system in place. Even if someone was a beginner in one area, we had plenty of resources and people to help them grow and succeed. <blockquote>但正因为《BanG Dream!》已成为如此长寿的系列，我们建立了坚实的支持体系。即使成员在某个领域是初学者，我们也有丰富的资源和人手来帮助他们成长并取得成功。</blockquote>
+      <strong>Paste: Considering that the members of Ave Mujica had varying levels of music performance experience prior to the band being formed, what was the process of bringing everyone onto the same page? How did you prepare for live performances?</strong> <blockquote>考虑到 Ave Mujica 成员在乐队成立前音乐表演经验参差不齐，是如何让所有人达成一致的？又是如何为现场演出做准备的？</blockquote>
+      <strong>Matsumoto</strong>: When it comes to instrumental skills, we’ve created an environment where each member can truly grow—we assign dedicated instructors for each instrument, and provide thorough training. We also hold regular band practices, with professional guidance focused on band ensemble performance as well. <blockquote>松本：在乐器演奏技能方面，我们营造了能让每位成员真正成长的环境——为每件乐器配备专属指导老师，进行系统性训练。同时定期开展乐队合练，由专业人士针对乐队整体配合进行指导。</blockquote>
+      Thinking back, I realize that as a producer, one of the most important things was whether I could present a bright future to the members—whether I could help them envision it. To support the band’s continuous improvement, we have frequent discussions with both the members and the staff, and I was once again reminded that communication is absolutely key. <blockquote>回首过往，我意识到作为制作人最重要的一点，是能否为成员们描绘光明的未来愿景。为了支持乐队持续进步，我们与成员和工作人员保持着高频次的讨论，这让我再次深刻认识到沟通才是核心关键。</blockquote>
+      As for live performances, in the past we used to meticulously choreograph positioning and detailed movements. Recently, though, the members have become more comfortable performing while playing, so a lot of the movements now come about naturally. I think that’s a really positive sign of growth as a band. <blockquote>关于现场演出，过去我们会精心编排站位和细节动作。但随着成员们逐渐适应了演奏状态，现在很多动作都是自然流露的表演。我认为这正是乐队成长的可喜表现。</blockquote>
+      <strong>Paste: Ave Mujica’s first studio album, Completeness, is coming out later this month. Could you tell me a bit about the album in general and the process of making it compared to creating music for the show?</strong> <blockquote>Paste：Ave Mujica 的首张录音室专辑《Completeness》将于本月下旬发行。能否请您大致介绍一下这张专辑的总体概念，以及与动画配乐创作相比，本次专辑制作过程中有哪些不同之处？</blockquote>
+      <strong>Matsumoto</strong>: This album includes the seven songs that were featured in the anime. We took a bold approach by keeping the track order exactly the same as their release order in the show—but in doing so, it resulted in a perfect sequence that aligns with the anime’s narrative. <blockquote>松本：这张专辑收录了动画中使用的七首歌曲。我们采取了大胆的做法，保持了曲目顺序与动画播出时的发布顺序完全一致——但正因如此，最终形成了一条与动画叙事完美契合的完美音乐流线。</blockquote>
+      That said, even if you haven’t seen the anime, you’ll still be able to feel the story woven into the album—it stands strong as a musical work alone. I believe it’s a truly remarkable album that fully showcases Ave Mujica’s wide-ranging musicality and unique appeal. <blockquote>即便如此，即使没有看过动画的听众，依然能感受到专辑中编织的故事脉络——它作为独立音乐作品同样具有强大的感染力。我认为这是一张真正非凡的专辑，充分展现了 Ave Mujica 广袤的音乐疆域与独一无二的魅力。</blockquote>
+      <strong>Paste: I’m not sure if you can answer this question, but will you be working on the next season of the show? And if so, has music production already begun?</strong> <blockquote>Paste：不知您是否可以回答这个问题——您会参与动画下一季的制作吗？如果会的话，音乐制作是否已经启动？</blockquote>
+      <strong>Matsumoto</strong>: The fact that the next season has already been announced means that preparations are, of course, well underway. <blockquote>松本：既然新一季已经官宣，自然说明筹备工作正在顺利推进中。</blockquote>
+      That’s about all I can say for now—my sincere apologies! [laughs] <blockquote>目前我只能透露这么多——真的非常抱歉！[笑]</blockquote>
+      <strong>Paste: What is your favorite memory from working on Ave Mujica so far?</strong> <blockquote>Paste：迄今为止参与 Ave Mujica 企划最难忘的回忆是？</blockquote>
+      <strong>Matsumoto</strong>: I think what left the biggest impression on me was everyone’s reaction when “KiLLKiSS” was released. Personally, I felt like we had created the ultimate song, so seeing that people felt the same way was a huge relief. <blockquote>松本：印象最深的应该是《KiLLKiSS》发布时大家的反应吧。我私下觉得我们完成了终极形态的乐曲，看到听众们产生共鸣时真是如释重负。</blockquote>
+      It’s a track filled with so many different emotions from so many different people, so receiving such positive feedback made me truly happy. <blockquote>这首歌曲承载了来自不同人群的丰富情感，能收获如此积极的反馈，让我由衷地感到高兴。</blockquote>
+      Moving forward, I hope to continue creating songs like “KiLLKiSS”—ones that people can really love and connect with. <blockquote>今后希望能继续创作像《KiLLKiSS》这样真正被大家喜爱、产生共鸣的作品。</blockquote>
+
+       Elijah Gonzalez is the assistant Games and TV Editor for Paste Magazine. In addition to playing and watching the latest on the small screen, he also loves film, creating large lists of media he’ll probably never actually get to, and dreaming of the day he finally gets through all the Like a Dragon games. You can follow him on Bluesky @elijahgonzalez.bsky.social. <blockquote>以利亚·冈萨雷斯是《Paste Magazine》杂志游戏与电视版块助理编辑。除了游玩和观看最新电子游戏外，他还热爱电影创作，经常列出自己可能永远无法完成的媒体计划清单，并梦想着有朝一日能通关所有《如龙》系列游戏。您可以通过 Bluesky 社交平台@elijahgonzalez.bsky.social 关注他。</blockquote>
+      For all the latest TV news, reviews, lists and features, follow @Paste_TV. <blockquote>欲获取最新电视资讯、评论、片单及专题报道，请关注@Paste_TV。</blockquote>
+
