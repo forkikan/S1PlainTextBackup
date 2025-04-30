@@ -257,3 +257,42 @@
 
 570石+16呼符一宝，坐等下半莉莉丝<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 16565#       发表于 2025-5-1 05:35
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">看了主线剧情我第一次有了想把刚抽到的五星给撕了的冲动
+
+这什么SB法官SB法庭
+
+*****
+
+####  alucardcz  
+##### 16566#       发表于 2025-5-1 06:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67771197&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-5-1 05:35</a>
+
+看了主线剧情我第一次有了想把刚抽到的五星给撕了的冲动
+
+这什么SB法官SB法庭 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">关键词 刚抽到的五星
+
+*****
+
+####  森兰丸  
+##### 16567#       发表于 2025-5-1 06:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67771210&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-5-1 06:09</a>
+
+关键词 刚抽到的五星</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">萌新今年都不知道在这楼豹跳多少回了就别在这搅浑水了
+
+*****
+
+####  qixinno2  
+##### 16568#       发表于 2025-5-1 07:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">好羡慕你们轻松就能抽到五星 我又一次打水漂了
+
