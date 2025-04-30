@@ -10370,3 +10370,15 @@ boss战是不是就不用凑本系列机体叠奖励buff了？
 
 怎么大家都这么轻松打过去的，我20w战斗力也打不过推荐18w的金异端专家难度啊<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">有没有推荐阵容
 
+
+*****
+
+####  一个陆仁贾  
+##### 988#       发表于 2025-4-30 22:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67770668&amp;ptid=2071758" target="_blank">mobdom 发表于 2025-4-30 21:34</a>
+怎么大家都这么轻松打过去的，我20w战斗力也打不过推荐18w的金异端专家难度啊有没有推荐阵容 ...</blockquote>
+看其他人的思路是盾机只上一台，除了输出主c，机师多用支援类，给boss上defuff种类多一点。比如蓝异端的，风灵这种降防的，降光束/物理耐性的
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
