@@ -2235,3 +2235,91 @@ UC背景下死人不是常有的事吗？夏利尔在0079也不过是一集被�
 符合哈尼定位的估计只 ...</blockquote>
 心理层面长大成人的话，可以用【告白】类似的套路吧，就算社会条件无忧无虑也会因为一些原因走上歧路，不过我不觉得鹤卷能够讲多深<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  虚无缥缈的分身  
+##### 10585#       发表于 2025-4-30 14:47
+
+怎么魔女一集就没了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+魔女的儿子：好颠的婆娘啊，竟然是我妈妈，这下样衰了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+观众：多么嗜血的厮杀啊，看完这一场就是死也值回票价呀！<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ドロロ  
+##### 10586#       发表于 2025-4-30 14:48
+
+下一集是加首席和黑色三连星打3V3吗
+
+
+*****
+
+####  Toby_dak  
+##### 10587#       发表于 2025-4-30 14:52
+
+只有2台大魔，哪来三连星。马修被时空修正了吧。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.45)
+
+*****
+
+####  凤凰院天豪  
+##### 10588#       发表于 2025-4-30 14:52
+
+确实需要一个解释，为啥都挂上绳子了不用电击？
+
+*****
+
+####  57042711  
+##### 10589#       发表于 2025-4-30 14:53
+
+难道真是魔女驾驶技术出神入化可以紧咬目标不让那钢索脱离吗…新人类恐怖如斯<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  huanzhi  
+##### 10590#       发表于 2025-4-30 14:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769567&amp;ptid=2209276" target="_blank">秋月孝三 发表于 2025-4-30 14:43</a>
+钢丝还是比隔热保鲜膜能看一点点的，所以我怀疑这也是致敬
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+保鲜膜好歹剧场还优化了一下，钢丝这立体机动瞬移后面能怎么优化<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ParadiseMartyr  
+##### 10591#       发表于 2025-4-30 14:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769592&amp;ptid=2209276" target="_blank">凤凰院天豪 发表于 2025-4-30 14:52</a>
+确实需要一个解释，为啥都挂上绳子了不用电击？</blockquote>
+她自己也导电啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Launce  
+##### 10592#       发表于 2025-4-30 14:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769460&amp;ptid=2209276" target="_blank">无念 发表于 2025-4-30 14:06</a>
+
+钩索理解是不是可以理解成，我们看着红高达好像没动，其实是两个人都被锁在一起高速移动，只是为了省力所以 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">麻球看过去的红蓝移动轨迹就是mortal眼中的真实
+
+有个细节，红高移动轨迹近弧形，蓝色轨迹因为是玩钢丝硬机动，转弯都带有很明显的锐角
+
+*****
+
+####  gg326  
+##### 10593#       发表于 2025-4-30 14:55
+
+这战术在地球上还可以力大砖飞，在宇宙里面只会是俩机体加速撞到一块<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
