@@ -3858,3 +3858,105 @@ shirakaba_CHIPS
 1-2两集出一个反派寥寥几句电波话语就塑造完成其执念然后接下来被满级主角打败从而释然，这就是榎户洋司哥哥绝对不会翻车，我要吹爆他的脚本
 话说太明白确实没意思，但魔女这边相比玛秋还是比较好懂，玛秋现在的肆意妄为总觉得在后面会狠狠的反馈在自己身上。
 
+
+*****
+
+####  超阳电子炮  
+##### 10732#       发表于 2025-4-30 20:24
+
+地球魔女一集就送了，我还以为是个狠角呢，结果也是无情的经验包
+
+番茄的NT话越来越多了，等一个大结局彻底NT疯了也不是不可能
+
+*****
+
+####  岸浪白野  
+##### 10733#       发表于 2025-4-30 20:26
+
+ 本帖最后由 岸浪白野 于 2025-4-30 20:28 编辑 
+
+[X 上的 くじ：“シイコさん…… [url]https://t.co/I9xfAnBTaT](https://x.com/kujigame/status/1917298497428283416)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202504/30/202808dzq49t4uyjyt7jtt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.41 MB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 20:28 上传
+
+[X 上的 むうりあん◆チャンピオンクロス様で連載中：“ユニカム・シイコスガイの私生活 （ジークアクス・ロングキスグッドナイト篇） （作画の人） #GQuuuuuuX　#ジークアクス](https://x.com/ororiya/status/1917413759490089185)[https://t.co/1nNEug7rQq](https://t.co/1nNEug7rQq)” / X
+
+<img src="https://img.stage1st.com/forum/202504/30/202128dicic2ydmd2cccym.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.32 MB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 20:21 上传
+
+[X 上的 右左見あむろお：“#GQuuuuuuX](https://x.com/usami_amroo/status/1917339602718974452)[https://t.co/EAoAUBP8r9](https://t.co/EAoAUBP8r9)” / X
+
+<img src="https://img.stage1st.com/forum/202504/30/202603hdxx4gs93y0x74j8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (419.55 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 20:26 上传
+
+[X 上的 大川ぶくぶ/bkub：“](https://x.com/bkub_comic/status/1917496907020263695)[https://t.co/HhrrK84prJ](https://t.co/HhrrK84prJ)” / X
+
+<img src="https://img.stage1st.com/forum/202504/30/202013ocb77l9az92i7c4t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (865.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 20:20 上传
+
+*****
+
+####  downnote  
+##### 10734#       发表于 2025-4-30 20:26
+
+喵安刚登场第一个照面，出手果断给人印象仿佛是干练的御姐，令人惊呼在好球带。不过也就这一个照面而已。接下去就打碎得不成样子，吃瘪软糯，犹犹豫豫，似乎能动性不强；但对修司能持有清晰的看法，坚持自己攒钱买泳衣，又蛮独立理性的。
+
+这种性格没有圆滑刁钻扭曲，十分少女。怎么看都不像个摸爬滚打过的难民，跟刚家道中落没多久似的。更令人欣喜了
+
+*****
+
+####  wondor1111  
+##### 10735#       发表于 2025-4-30 20:29
+
+魔女跟麻球老妈这个战争和日子人对位不能拼一起讲两集吗？魔女掉线那么快，感觉麻球老妈下集秒躺概率都很大了
+
+
+*****
+
+####  岸浪白野  
+##### 10736#       发表于 2025-4-30 20:30
+
+ 本帖最后由 岸浪白野 于 2025-4-30 20:31 编辑 
+
+对新人类的概念怀疑但其实自己也有新人类的素质
+[X 上的 サテー@聖牌/OAF：“（コモリ・ハーコート少尉はイイゾ…のｒｋｇｋ4）#GQuuuuuuX](https://x.com/syatey_12/status/1917502455790854290)[https://t.co/sq9CtKMqHM](https://t.co/sq9CtKMqHM)” / X
+
+<img src="https://img.stage1st.com/forum/202504/30/203018l233syzfye77zfiw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.25 MB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 20:30 上传
+
+*****
+
+####  Sliurus  
+##### 10737#       发表于 2025-4-30 20:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67770497&amp;ptid=2209276" target="_blank">wondor1111 发表于 2025-4-30 20:29</a>
+
+魔女跟麻球老妈这个战争和日子人对位不能拼一起讲两集吗？魔女掉线那么快，感觉麻球老妈下集秒躺概率都很大 ...</blockquote>
+不是一个世界的人，还是很安全的，除非下集吉翁准备镇压side6
+

@@ -1055,3 +1055,11 @@ https://forum.gamer.com.tw/C.php?bsn=73316&amp;snA=1848&amp;tnum=2
 这么惟妙惟肖，泷奈你是不是参考了什么</blockquote>
 干瘪瘪的
 
+
+*****
+
+####  王九的哥哥  
+##### 2259#       发表于 2025-4-30 20:34
+
+莫名其妙，youtube aniplex channel只有480的源……<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
