@@ -10390,3 +10390,22 @@ boss战是不是就不用凑本系列机体叠奖励buff了？
 
 <img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">还是有不断的链接出错，应该是批量刷初始发力了
 
+
+*****
+
+####  无念  
+##### 990#       发表于 2025-4-30 22:40
+
+哎你别说，有多余体力的可以把这seedrecollection打了，都是新规画面啊，打到15章了才4场战斗，剧情量灌灌水凑个上下两集OVA不成问题
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  光辉传递者  
+##### 991#       发表于 2025-4-30 22:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">笑嘻了，小号两抽出了个ur自由，再试一发发现是个不给机师的ssr直接停手，一转开发sr自由。强自？不认识，我还是等有五彩的飞自罢（
+
+—— 来自 Xiaomi 24031PN0DC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
