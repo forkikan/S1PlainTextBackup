@@ -2323,3 +2323,21 @@ UC背景下死人不是常有的事吗？夏利尔在0079也不过是一集被�
 
 这战术在地球上还可以力大砖飞，在宇宙里面只会是俩机体加速撞到一块<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  凤凰院天豪  
+##### 10594#       发表于 2025-4-30 14:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768091&amp;ptid=2209276" target="_blank">希望之异热同心 发表于 2025-4-30 02:51</a>
+
+哦还有个更变态的，军团战打完首席哥对搞出人命是很惊讶的，但安琪这边是很平淡的终于打赢了的想法，可能 ...</blockquote>
+第一集手下就说会出人命的怎么能让小孩子来，结果反而激了麻球。
+
+*****
+
+####  暗黑能乐  
+##### 10595#       发表于 2025-4-30 14:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">从头到尾都是不科学的东西就别去想了，各种体操动作完全就是超级系的
+
