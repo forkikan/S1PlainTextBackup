@@ -9984,3 +9984,14 @@ WechatIMG75.jpg
 
 70抽啥都没有，养老收菜了
 
+
+*****
+
+####  里村紅葉  
+##### 946#       发表于 2025-4-30 15:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769433&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2025-4-30 13:55</a>
+
+你们没井都抽也是胆子大，我存了5w根本没动</blockquote>
+我的本命机到一周年都不见得会出，存来干嘛<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

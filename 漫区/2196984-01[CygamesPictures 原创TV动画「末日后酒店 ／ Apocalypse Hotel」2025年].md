@@ -1498,3 +1498,16 @@ https://bangumi.tv/ep/1465152</blockquote>
 
 好舒服的一集
 
+
+*****
+
+####  我是大鲨鱼1453  
+##### 141#       发表于 2025-4-30 15:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768498&amp;ptid=2196984" target="_blank">AraTurambar 发表于 2025-4-30 09:47</a>
+
+这集明牌沙丘了。
+
+现在的问题就是第二集的客人到底有多大嫌疑了。</blockquote>
+致敬风之谷，用来净化地球生态的<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
