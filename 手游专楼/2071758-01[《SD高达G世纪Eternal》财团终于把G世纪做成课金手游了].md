@@ -9538,3 +9538,11 @@ skip了，手动刷太累
 
 所以我感觉零氪抽卡的节点就是周年庆或者新年祭，一般这个时候都会有精选池，全是热门人权机，不会歪
 
+
+*****
+
+####  kulanyee  
+##### 895#       发表于 2025-4-30 09:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要开服才能知道保底和常驻是否分开吗
+
