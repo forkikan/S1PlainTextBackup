@@ -4756,3 +4756,13 @@ https://bandai-hobby.net/item/01_5932/
 感觉GQX的气质很适合让独角兽续篇接棒阿 ...</blockquote>
 大概率铁血外传，毕竟今年是十周年，动画也基本做完了，没理由不放
 
+
+*****
+
+####  白玫瑰之夜  
+##### 10804#       发表于 2025-5-1 04:59
+
+联邦魔女一集就没了有点可惜，人物其实还是有蛮多挖掘空间的不知道后面会不会成宇宙女鬼二号钩索战法感觉真没法细想吧，把我红高达当木桩子整呢<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2337A, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
