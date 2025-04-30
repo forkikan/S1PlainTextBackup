@@ -4012,3 +4012,28 @@ shirakaba_CHIPS
 这么说钢弹还是个医疗产品（</blockquote>
 等尼亚安自己上机也会像吸大了的（
 
+
+*****
+
+####  Tungsten  
+##### 10742#       发表于 2025-4-30 20:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67770570&amp;ptid=2209276" target="_blank">aptx8285144 发表于 2025-4-30 20:54</a>
+
+等尼亚安自己上机也会像吸大了的（</blockquote>
+Recreational Gundam (确信)
+
+*****
+
+####  没取名啊  
+##### 10743#       发表于 2025-4-30 20:57
+
+g复国开高扭力背包揍巫夏那集也是荒木哲郎，咋十年过去后变这么拉了，还是说锅得扣在鹤卷头上
+
+*****
+
+####  岸浪白野  
+##### 10744#       发表于 2025-4-30 20:58
+
+这也是鹤卷所提的，就算是难民的境遇，妮娅安也会是我行我素的态度生活着
+
