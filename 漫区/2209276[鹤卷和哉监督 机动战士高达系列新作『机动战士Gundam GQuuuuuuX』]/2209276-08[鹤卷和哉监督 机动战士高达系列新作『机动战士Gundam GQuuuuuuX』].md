@@ -4623,3 +4623,29 @@ https://bandai-hobby.net/item/01_5932/
 
 我个人认为下一话不会对修司进行补完，目前会让他保持一个谜语人的状态<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  EFSF  
+##### 10792#       发表于 2025-5-1 01:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67770691&amp;ptid=2209276" target="_blank">jojonathan 发表于 2025-4-30 21:42</a>
+
+其实现实里也是材料的抗拉强度上限远超抗压强度 做出超级钩爪的难度比做出超级护甲的难度简单多了 不可以 ...</blockquote>
+你别忘了勾爪还要轻易破甲，这种没有火药做动能的破甲利器在0079大部分都是实体武器情况下，联邦拿这东西全部产弹药要好不好啊，什么MS，铁球的霰弹弹幕你过得来么？
+
+
+*****
+
+####  希望之异热同心  
+##### 10793#       发表于 2025-5-1 01:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67771068&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-1 01:01</a>
+
+第三名是binarys，双子星，应该是减员的三连星，话说这一话打第四名CRS，下一话打三连星，不会TV要把这个 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我感觉还真不好说，鹤卷哥哥什么时候走过寻常路了！
+
+搞不好真军团战排位打上王者之后番茄决定回归生活然后和其他人分道扬镳呢233，那我也只能说一句“你所热爱的就是你的生活”
+
+虽然大概率还是要去地球解开沙仑的玫瑰这个谜底的，但我感觉番茄这套旅途的终点对生活的觉悟可能还真是“你所热爱的就是你的生活”，现在日本人精神状况连热爱是什么都不一定明白。。。
+
