@@ -10482,3 +10482,11 @@ ex难度打不过啊，debuff上满了都打不动，输出机体不够</blockqu
 
 打木桩还行，80几万不够2个回合的<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kerorokun  
+##### 998#       发表于 2025-5-1 04:34
+
+50连下去，1个独角兽1个nt1个正义<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
