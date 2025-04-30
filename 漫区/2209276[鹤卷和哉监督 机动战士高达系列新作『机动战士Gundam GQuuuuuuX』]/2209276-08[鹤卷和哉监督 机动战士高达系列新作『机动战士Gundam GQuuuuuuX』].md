@@ -696,3 +696,139 @@ nt高低还得看后有没有明确的对比，这集主要是服务与演出
 魔女哪像是机体掉头了就会停手的样子，修司要是真浪费时间去砍头，剩下一手两腿再搞点什么花样怎么办？ ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">已经断一只手了，再废一只手就够了，0武装还能有花样吗，自爆嘎
 
+
+*****
+
+####  ryanghj  
+##### 10431#       发表于 2025-4-30 10:35
+
+下集喵安就要上机了，现在看喵安其实是麻球的反面
+
+注意第四话里麻球和喵安在桥上的对话，麻球会把修司的设定浪漫化，而喵安总是用现实的例子反驳，最后麻球说不用担心钱，喵安转头就去筹钱，看起来喵安是放在一个和麻球对比的地位上
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  Sliurus  
+##### 10432#       发表于 2025-4-30 10:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768658&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-4-30 10:31</a>
+
+首席哥没有感应框架都能和红高打的有来有回，水平已经至少是接近魔女级别的了吧 ...</blockquote>
+怎么说也是首席，驾驶水平不会差的，不过没给到修司下死手的压力，应该还是不如真正的ace的
+
+*****
+
+####  xwr  
+##### 10433#       发表于 2025-4-30 10:35
+
+看了这集突然发觉，这军团战恐怕是联邦，吉翁，都暗地里支持，军火商和民间军事公司/安保公司提供资金和机体，连吉翁现役的机体都流出了，只能说有钱能使鬼推磨，军团战既有利于战后稳定，又可以让厂商宣传自己的技术和机体，以受战争影响最少的Side6为主场，还可以经济效果最大化，
+
+鬼知道这赛事幕后的资金流向是什么样，说不定吉翁当年扎古民用化不只是囊中羞涩呢<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  EFSF  
+##### 10434#       发表于 2025-4-30 10:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768588&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-4-30 10:11</a>
+那绿蜀黍凭什么还能拿着木马和鸡胯到处跑，他现在算哪派</blockquote>
+他名义上是基连的人，毕竟是基连把他送去夏亚身边的，和夏亚交往好肯定会让传统基连派有猜忌，所以给的是老船，ms是基西莉亚那边借来的，出了事还会被马克贝整，甚至担心亲卫队会下场。
+说白了就是夹在中间了，但是还有点基连派系的情分，同时和夏亚的关系让基西莉亚的派系不会说一点不管。
+
+—— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  Concrete  
+##### 10435#       发表于 2025-4-30 10:37
+
+<blockquote>ryanghj 发表于 2025-4-30 10:35
+下集喵安就要上机了，现在看喵安其实是麻球的反面
+
+注意第四话里麻球和喵安在桥上的对话，麻球会把修司的设 ...</blockquote>
+是的，感觉女二就是番茄的对立。身世也好，为人处世也好
+
+*****
+
+####  暗黑能乐  
+##### 10436#       发表于 2025-4-30 10:39
+
+不过喵安连怎么去地球什么价位都一清二楚，真的没去过或者不是从地球出来的吗
+
+
+*****
+
+####  大泽瑠璃乃  
+##### 10437#       发表于 2025-4-30 10:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768671&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-4-30 10:35</a>
+
+下集喵安就要上机了，现在看喵安其实是麻球的反面
+
+注意第四话里麻球和喵安在桥上的对话，麻球会把修司的设 ...</blockquote>
+以麻球这个主角为坐标起点，应该说喵安是修司的反面，修司把麻球往聊天室的方向牵引，喵安则在接下来把麻球往现实的方向拉住，这样三主角的役就是平衡的
+
+*****
+
+####  战术核辣条  
+##### 10438#       发表于 2025-4-30 10:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768588&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-4-30 10:11</a>
+
+那绿蜀黍凭什么还能拿着木马和鸡胯到处跑，他现在算哪派</blockquote>
+绿叔叔就是夹在两边中间，主打统战价值最大化<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战术核辣条  
+##### 10439#       发表于 2025-4-30 10:42
+
+四集讲完主角团能动性居然还在起点，这十二集要地球圈降下后面有得飙车的
+
+打戏有点过于全是情绪了
+
+*****
+
+####  赤井稻妻  
+##### 10440#       发表于 2025-4-30 10:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768620&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-4-30 10:23</a>
+
+那兰巴怎么不搞这套假意投诚，性格不允许吗（</blockquote>
+绿叔叔这些nt部队顶多是没什么背景，兰巴可是前朝遗老的儿子
+
+
+*****
+
+####  灵魂收割机  
+##### 10441#       发表于 2025-4-30 10:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768664&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-4-30 10:33</a>
+
+已经断一只手了，再废一只手就够了，0武装还能有花样吗，自爆嘎</blockquote>
+你的0武装情报是谁提供的，修司知道吗？不说别的，丢个闪光弹出来都是大**麻烦。
+
+*****
+
+####  風卷豹  
+##### 10442#       发表于 2025-4-30 10:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768628&amp;ptid=2209276" target="_blank">大泽瑠璃乃 发表于 2025-4-30 10:24</a>
+
+都过去五年多了，吉翁打了个皮洛士式胜利元气大伤还要搞内斗，联邦其实就掉了层皮依旧财大气粗，把研究重 ...</blockquote>
+但是这个战法是79年就有的啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">新搞出来的是磁气膜
+
+这个战法纯粹就是拍脑袋想的，甭管他怎么实现的，就说瞬移到死角这种概念酷不酷炫吧。问题就是拍得不够精彩没法让人抛弃常识而已
+
+*****
+
+####  大泽瑠璃乃  
+##### 10443#       发表于 2025-4-30 10:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768694&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-4-30 10:39</a>
+
+不过喵安连怎么去地球什么价位都一清二楚，真的没去过或者不是从地球出来的吗 ...</blockquote>
+她一个人从自己殖民地开民用机出来的，作为难民逃难之前查过去哪里的成本很正常吧
+
