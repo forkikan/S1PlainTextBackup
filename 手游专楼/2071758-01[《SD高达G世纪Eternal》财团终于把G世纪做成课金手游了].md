@@ -10178,3 +10178,13 @@ BZ282R3987PVJJ  国际服求大佬们填下
 
 —— 来自 vivo V2243A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  blue321  
+##### 968#       发表于 2025-4-30 18:25
+
+现在ex有没有低配都能过的阵容推荐<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
