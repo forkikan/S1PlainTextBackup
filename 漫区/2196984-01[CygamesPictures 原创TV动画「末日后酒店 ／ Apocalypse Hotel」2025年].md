@@ -1561,3 +1561,14 @@ https://bangumi.tv/ep/1465152</blockquote>
 
 这话把地球末日生态环境的残酷味道也多少直接展示出来了（骆驼再见面就是死），神原和三木两个大前辈的丰富履历在这个片场也是有一种时光飞逝的感慨
 
+
+*****
+
+####  我是大鲨鱼1453  
+##### 147#       发表于 2025-5-1 00:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67770955&amp;ptid=2196984" target="_blank">aptx8285144 发表于 2025-5-1 00:00</a>
+
+震惊，这话竟然做出了末日生存，热血战斗甚至残酷争斗片的风格</blockquote>
+狸猫小姐提着电锯跳向沙虫的那一幕，甚至可以配一句“我来助你！”<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

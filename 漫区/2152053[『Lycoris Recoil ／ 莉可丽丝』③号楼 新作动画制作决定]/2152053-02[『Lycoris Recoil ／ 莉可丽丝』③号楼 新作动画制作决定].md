@@ -1113,3 +1113,19 @@ b怎么没更，审核没过是吧
 小动画第三集省流<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/23/35840f98329c41b35ff3f196b704c9f4/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  osore  
+##### 2266#       发表于 2025-5-1 00:09
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前和咖啡店联动是有那个芭菲的，桃子以后也会有吗
+
+
+*****
+
+####  Saber琪  
+##### 2267#       发表于 2025-5-1 00:12
+
+说实在的我搞不懂泥蒜为啥那么偏爱答辩芭菲一类，明明踢屁屁和sakana比这些可爱多了，烂炒？
+
