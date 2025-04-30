@@ -78,3 +78,14 @@ psn国服特供版确实有和谐，发行负责人之前在微博说过了，�
 宣发视频说dlc在做了</blockquote>
 好耶<img src="https://static.stage1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 239#       发表于 2025-5-1 00:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767792&amp;ptid=2168791" target="_blank">MuramasaSP 发表于 2025-4-30 00:26</a>
+
+psn国服是吗？这个是别处的评论，说是有和谐。</blockquote>
+和谐的主要是字幕和文本，语音应该没重录，所以他才能发现XX改成了XX，有一种类似玩日语配音游戏结果中文字幕是根据英文文本翻译的美。另外PSN国服商店标注了多语言还有繁中，实际没法切换
+

@@ -216,3 +216,44 @@
 
 原来以前马修可以上两个的吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 16561#       发表于 2025-4-30 23:37
+
+好消息
+
+學妹終於能全面強化，寶具技能一律向上，絆上限解放
+
+壞消息
+
+條件是變成COST16...
+
+其實能否用完第一次寶具後不會強制變成光炮，好像以前舊版本的學妹不停每回合都一次寶具，BOSS寶具都是0，只要不再來甚麼攻擊前全防禦全ＢＵＦＦ等效果先消除...
+
+另外
+
+貞德被遺忘吧，都是裁職來...
+
+*****
+
+####  quanlix  
+##### 16562#       发表于 2025-4-30 23:56
+
+这次全都只有一套宝具演出，好摸
+
+*****
+
+####  blue321  
+##### 16563#       发表于 2025-4-30 23:56
+
+7号快来吧，憋了小半年就等今天了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白金口袋  
+##### 16564#       发表于 2025-5-1 00:41
+
+570石+16呼符一宝，坐等下半莉莉丝<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -4526,3 +4526,53 @@ https://bandai-hobby.net/item/01_5932/
 
 那过两集确实应该去地球了，脱离军团战以后会有什么呢
 
+
+*****
+
+####  LOLITA  
+##### 10782#       发表于 2025-5-1 00:38
+
+宇宙殖民地都是无法地带么，男主这算故意杀人还是防卫过当<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之异热同心  
+##### 10783#       发表于 2025-5-1 00:41
+
+感觉军团战排行最上面几个队伍应该都是军工企业的马甲，用来测试武器用的，这把军团战高达打联邦ACE开的勇士绝对热度拉满，预告跑来的2台大魔不知道会不会是鸡瘟派过来的，和夏利亚搭上线之后确实得收拾高达跑路了。番茄和她妈的告别估计会是个重头戏吧
+
+*****
+
+####  ParadiseMartyr  
+##### 10784#       发表于 2025-5-1 00:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67771034&amp;ptid=2209276" target="_blank">LOLITA 发表于 2025-5-1 00:38</a>
+宇宙殖民地都是无法地带么，男主这算故意杀人还是防卫过当</blockquote>
+都地下擂台打黑架了还管这个？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ahoge2004  
+##### 10785#       发表于 2025-5-1 00:41
+
+<blockquote>Toby_dak 发表于 2025-4-30 16:16
+母亲是能接触最高层的体制内。
+
+水资源紧张的殖民卫星，洗澡用的是浴缸泡浴而不是花洒淋浴。上个洗泡浴的U ...</blockquote>
+泡澡当然是普露普露普露
+
+
+*****
+
+####  LOLITA  
+##### 10786#       发表于 2025-5-1 00:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67771038&amp;ptid=2209276" target="_blank">ParadiseMartyr 发表于 2025-5-1 00:41</a>
+
+都地下擂台打黑架了还管这个？
+
+—— 来自 鹅球 v3.3.96</blockquote>
+这黑架哪里地下了，不是只要有心就能看转播么，当地**也不管管啊<img src="https://static.stage1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
