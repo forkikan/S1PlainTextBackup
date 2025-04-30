@@ -4735,3 +4735,12 @@ https://bandai-hobby.net/item/01_5932/
 
 感觉GQX的气质很适合让独角兽续篇接棒阿
 
+
+*****
+
+####  桜庭ななみ  
+##### 10802#       发表于 2025-5-1 03:30
+
+其实剧情可以想的简单一点，0079if就是eva破，最后鸭子和拉拉关在红高达里面。
+那现在TV演的就是破到Q中间的故事，结局就是进入Q的后启示录线路，所以TV最后可能是类似阿克西斯真砸了地球之类的世界。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
