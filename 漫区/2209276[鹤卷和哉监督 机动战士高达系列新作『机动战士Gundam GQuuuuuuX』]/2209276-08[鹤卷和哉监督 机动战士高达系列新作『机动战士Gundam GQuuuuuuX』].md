@@ -2341,3 +2341,65 @@ UC背景下死人不是常有的事吗？夏利尔在0079也不过是一集被�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">从头到尾都是不科学的东西就别去想了，各种体操动作完全就是超级系的
 
+
+*****
+
+####  变老的大二  
+##### 10596#       发表于 2025-4-30 15:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实、更神棍的一个解法就是，红高达这集反杀是精神力开门传送到了魔女背后。
+
+所以完全跳过了整个过程。防止剧透。<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Wondering  
+##### 10597#       发表于 2025-4-30 15:05
+
+ 本帖最后由 Wondering 于 2025-4-30 15:10 编辑 
+
+越说越像是【告白】了，鹤卷真能做出这种和外界有关但又若隐若离扭曲化的主角吗，而不是单纯是卡缪哈尼那种因为战争，三明狸猫那种因为社会或者家庭扭曲的主角
+
+*****
+
+####  ParadiseMartyr  
+##### 10598#       发表于 2025-4-30 15:06
+
+nt不就是单纯能开聊天室、能知道对方攻击意图么…
+也就卡缪最后能鬼魂实体化加强化机体…
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  虚无缥缈的分身  
+##### 10599#       发表于 2025-4-30 15:12
+
+是绯红之王删除时间然后移动到敌人身后也是很正常的
+
+*****
+
+####  zzf111  
+##### 10600#       发表于 2025-4-30 15:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769447&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-4-30 13:59</a>
+
+UC背景下死人不是常有的事吗？夏利尔在0079也不过是一集被秒的有脸龙套。捅个联邦魔女能感触起来的，要不恶 ...</blockquote>
+主要原夏利亚也不是特别讨喜的，铁吉翁军人，观众能直接看到数个老阴逼远程bit点杀联邦人场面，一集送掉也没有给个夏利亚家人的画面鞭尸<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+妈妈魔女主要是遗憾，剧情上给人的定位类似女间谍
+
+
+*****
+
+####  变老的大二  
+##### 10601#       发表于 2025-4-30 15:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769632&amp;ptid=2209276" target="_blank">ParadiseMartyr 发表于 2025-4-30 15:06</a>
+
+nt不就是单纯能开聊天室、能知道对方攻击意图么…
+
+也就卡缪最后能鬼魂实体化加强化机体…</blockquote>
+如果独角兽算正史的话，NT靠精骨都可以升格为高维生物了。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
