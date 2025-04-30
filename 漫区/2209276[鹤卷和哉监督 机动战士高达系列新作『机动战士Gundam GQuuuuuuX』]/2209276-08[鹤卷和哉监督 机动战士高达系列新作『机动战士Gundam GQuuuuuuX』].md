@@ -2826,3 +2826,52 @@ nt不就是单纯能开聊天室、能知道对方攻击意图么…
 就算勉强能理解麻球的逻辑，接受修司无与伦比的非人感，但是魔女最后跟修司的对手戏太tm空洞了导致最后给 ...</blockquote>
 你以前看过什么机战片
 
+
+*****
+
+####  serj005  
+##### 10642#       发表于 2025-4-30 16:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769941&amp;ptid=2209276" target="_blank">盐盐盐盐盐 发表于 2025-4-30 16:46</a>
+所以修司驾驶舱里发生zeknova到底是起了什么作用呢（
+我一直觉得就是他瞬移了才能突破封锁，但是如果他就是 ...</blockquote>
+我的理解是驾驶舱赛可谬闪动发功，然后红高达直接瞬移了，最后捅驾驶舱这一刀是夏亚代打的(代打不确定，我猜的)。
+
+主要是原地留着一把光束刀让人觉得是机体主体瞬移造成的结果，如果是修司自己有什么高端操作移动的话光束军刀应该是会一起拿走的。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Wondering  
+##### 10643#       发表于 2025-4-30 16:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769968&amp;ptid=2209276" target="_blank">zxtree 发表于 2025-4-30 16:55</a>
+
+机战有几个不是宏叙的？举国之力才能造出来的东西很难摆脱宏叙
+
+胶达不宏叙，有用吗 ...</blockquote>
+别和高达吧吧宠较劲
+
+*****
+
+####  无念  
+##### 10644#       发表于 2025-4-30 17:01
+
+我觉得第三圣痕的时候已经是鸭子代打了，都不切舱内镜头了
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  zzf111  
+##### 10645#       发表于 2025-4-30 17:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769966&amp;ptid=2209276" target="_blank">Wondering 发表于 2025-4-30 16:54</a>
+
+的确两个都该塞，不过这位维护了啥环境啊上来就麻辣人性别叙事入脑哈基米应激吗一个说百合能不能赢一个说b ...</blockquote>
+真没有吗，最多是初衷好的但是过激执行，而且现在只死了他一个随便任人指责了
+
+正常向讨论楼里一个百合复读机一个是嘴臭要求闭嘴，要么全杀要么我选后一个
+

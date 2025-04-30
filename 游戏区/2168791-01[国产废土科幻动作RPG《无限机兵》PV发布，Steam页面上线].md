@@ -39,3 +39,11 @@ psn国服是吗？这个是别处的评论，说是有和谐。
 
 psn国服特供版确实有和谐，发行负责人之前在微博说过了，唯一优势就是便宜，不然还是港版比较好
 
+
+*****
+
+####  yohyoh4966  
+##### 235#       发表于 2025-4-30 16:58
+
+宣发视频说dlc在做了<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
