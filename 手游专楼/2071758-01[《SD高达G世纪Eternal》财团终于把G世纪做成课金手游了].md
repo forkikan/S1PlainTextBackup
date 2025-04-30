@@ -9949,3 +9949,22 @@ WechatIMG75.jpg
 
 200抽兑换是换个已有ur来强化还是换个新的？
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 942#       发表于 2025-4-30 14:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">后知后觉，池子里怎么是强自搭配正义，正常脑回路不该是无正吗
+
+
+*****
+
+####  xiongxingyu  
+##### 943#       发表于 2025-4-30 14:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769526&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-4-30 14:29</a>
+
+后知后觉，池子里怎么是强自搭配正义，正常脑回路不该是无正吗</blockquote>
+大概财团B觉得无正和阿斯兰的人气也够单独开个限定池再骗一波吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
