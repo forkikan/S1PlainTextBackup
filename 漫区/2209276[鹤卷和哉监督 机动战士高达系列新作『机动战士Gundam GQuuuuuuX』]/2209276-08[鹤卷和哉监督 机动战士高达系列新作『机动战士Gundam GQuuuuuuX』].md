@@ -1348,3 +1348,16 @@ nt能感知到人杀意的，对方不动杀心他被踹来踹去都不会下杀
 
 2025-4-30 12:23 上传
 
+
+*****
+
+####  型月神话伊阿宋  
+##### 10495#       发表于 2025-4-30 12:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769080&amp;ptid=2209276" target="_blank">璇瑢子R 发表于 2025-4-30 12:17</a>
+
+对基连视角来说联邦这么强的ace被一个路人干死了
+
+联邦已无可用之兵</blockquote>
+所以下一集吉翁现役ACE黑色双连星要来称称修斯的分量了
+
