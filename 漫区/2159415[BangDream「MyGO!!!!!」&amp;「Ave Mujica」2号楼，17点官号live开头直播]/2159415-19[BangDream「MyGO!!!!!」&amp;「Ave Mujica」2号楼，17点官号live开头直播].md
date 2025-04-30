@@ -669,3 +669,23 @@ mygo：
 [https://t.bilibili.com/1061490880780697607](https://t.bilibili.com/1061490880780697607)
 [传送门](https://www.bilibili.com/blackboard/activity-Mz9T5bO5Q3.html?id=102857&amp;type=dlc&amp;f_source=social&amp;from=official)
 
+
+*****
+
+####  堀内爱里衣  
+##### 27120#       发表于 2025-4-30 22:03
+
+<img src="https://img.stage1st.com/forum/202504/30/220304xs277x2vkzgpx7g5.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-04-30_22-01-23.jpg</strong> (306.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 22:03 上传
+
+[https://x.com/AnimeDRIFTERJP/status/1917534434418647405](https://x.com/AnimeDRIFTERJP/status/1917534434418647405)
+
+▶5月6日 [https://ticketpay.jp/booking/?event_id=56029](https://ticketpay.jp/booking/?event_id=56029)
+
+▶5月17日 [https://ticketpay.jp/booking/?event_id=56058](https://ticketpay.jp/booking/?event_id=56058)
+
