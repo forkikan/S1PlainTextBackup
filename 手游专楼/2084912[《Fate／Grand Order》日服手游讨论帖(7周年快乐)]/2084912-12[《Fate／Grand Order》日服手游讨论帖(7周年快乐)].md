@@ -185,3 +185,34 @@
 
 妈的，1qp笑死了。
 
+
+*****
+
+####  乾理央  
+##### 16557#       发表于 2025-4-30 22:55
+
+看了下可以改回4星0cost
+
+能喂梦火就相当于后排多一个0cost的蹭羁绊了，也还行吧。
+
+*****
+
+####  岸浪白野  
+##### 16558#       发表于 2025-4-30 23:05
+
+能喂圣杯升120，能喂梦火开15绊，能活人秩序善灵衣绊加成
+
+*****
+
+####  khxooo  
+##### 16559#       发表于 2025-4-30 23:13
+
+5呼符两宝阿育王，可以了<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  里村紅葉  
+##### 16560#       发表于 2025-4-30 23:32
+
+原来以前马修可以上两个的吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

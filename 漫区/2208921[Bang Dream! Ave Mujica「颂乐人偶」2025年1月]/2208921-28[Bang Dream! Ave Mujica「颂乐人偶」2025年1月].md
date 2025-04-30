@@ -7201,3 +7201,16 @@ weirdA_ <strong>作者</strong>
 
 mujica收藏集销量已经超gbc了，虽然肉眼可见不太可能超mygo了（mygo最近迎来一波长尾涨到200w了，这次又有动态表情包复活估计还能再涨点）
 
+
+*****
+
+####  凉良  
+##### 40755#       发表于 2025-4-30 23:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67770881&amp;ptid=2208921" target="_blank">osore 发表于 2025-4-30 23:16</a>
+
+哪个表情被冲了，洗澡？</blockquote>
+睦头喝果汁那个
+
+唯一一个睦头的表情 结果莫名其妙去玩EVA司令叉手手势 动画里就是普通喝果汁。
+
