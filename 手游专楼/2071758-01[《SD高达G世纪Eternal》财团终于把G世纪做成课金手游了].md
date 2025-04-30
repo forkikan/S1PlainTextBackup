@@ -9599,3 +9599,34 @@ GNFlag出场金螃蟹都扑街了他一个浑身上下只有一把打近战的�
 
 这游戏红蓝黄不是全靠策划心情？很多都很搞的
 
+
+*****
+
+####  无念  
+##### 901#       发表于 2025-4-30 10:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768534&amp;ptid=2071758" target="_blank">光辉传递者 发表于 2025-4-30 09:58</a>
+能天使好歹第一季首秀确实是个打不动的盾，这倒还不是问题。
+
+GNFlag出场金螃蟹都扑街了他一个浑身上下只 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">可能是比较耐打，毕竟和能天使拼了个同归因为趁着三红CD傻子那装备掉光了才去一直有争议
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  alialex  
+##### 902#       发表于 2025-4-30 11:02
+
+BNQS73HN3ZP7C8
+
+国际服转生要邀请码的来互点吧，已经有两台UR三动机强自抽不下就不抽了
+
+*****
+
+####  kulanyee  
+##### 903#       发表于 2025-4-30 11:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一抽卡就报错，母猪还是太多了
+
