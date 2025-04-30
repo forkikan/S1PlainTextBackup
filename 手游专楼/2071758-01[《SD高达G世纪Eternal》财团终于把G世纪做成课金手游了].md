@@ -9816,3 +9816,19 @@ BNQS73HN3ZP7C8
 
 怎么是这个斯托莱卡<img src="https://static.stage1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/23/b35e26808a9137b5ee7ac3270c4a10b1/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddlsyo  
+##### 927#       发表于 2025-4-30 12:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">boss战EX的金色机天也太肉了，上了减防30%还是在刮痧
+
+
+*****
+
+####  邪恶的shah  
+##### 928#       发表于 2025-4-30 12:44
+
+10发出了双黄，拉妖+一个铁血战舰，不抽了
+

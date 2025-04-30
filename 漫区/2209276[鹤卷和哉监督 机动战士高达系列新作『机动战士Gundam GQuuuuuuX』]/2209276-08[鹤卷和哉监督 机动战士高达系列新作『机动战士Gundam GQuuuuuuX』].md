@@ -1361,3 +1361,81 @@ nt能感知到人杀意的，对方不动杀心他被踹来踹去都不会下杀
 联邦已无可用之兵</blockquote>
 所以下一集吉翁现役ACE黑色双连星要来称称修斯的分量了
 
+
+*****
+
+####  operatbig  
+##### 10496#       发表于 2025-4-30 12:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769102&amp;ptid=2209276" target="_blank">真阿波罗 发表于 2025-4-30 12:24</a>
+
+查了下言论，这就是你这种逆天河豚的丑态吗？只会一直复读画圈圈咒男主，还是滚回你的专楼找集美和龟龟共 ...</blockquote>
+动不动家访到底谁恶心...<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wolf1997  
+##### 10497#       发表于 2025-4-30 12:36
+
+魔女不肯承认新人类这点，让我想到了包括庵野鹤卷在内许多人都不想承认Z及以后的故事，明明79最后那么充满希望的结局，那么充满未来的新人类，最后只能落到如此下场，论谁都无法接受，直到自己成为失去三四十年的一份子，只缘身在此山中。
+
+也是终于明白为何要把舞台定在这SIDE6了。霸权主义笼罩的阴影，昔日战败国残留的复仇思想，旧日影响尚未褪去，夹缝中不稳的日常下成长的青年们，渴望反抗既定的一切，追寻心中向往的自由，彻底理解了鹤卷所言之“冷战”是什么意思了。一直擅长描写青春期躁动感的鹤卷，这次想要追逐自己这些60年代生人的青春。
+
+*****
+
+####  hulaoda007  
+##### 10498#       发表于 2025-4-30 12:38
+
+毕竟0079结尾骡子一副“啥时候，都能去见拉拉~”的样子，结果Z里面就怕了。现在直接给你拉拉自助餐，几乎人人有份了。（
+
+*****
+
+####  暗黑能乐  
+##### 10499#       发表于 2025-4-30 12:39
+
+麻球所谓的向往特殊目前看来其实还不是很立得住，好歹来点理由吧
+
+
+*****
+
+####  真阿波罗  
+##### 10500#       发表于 2025-4-30 12:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769151&amp;ptid=2209276" target="_blank">operatbig 发表于 2025-4-30 12:34</a>
+
+动不动家访到底谁恶心...</blockquote>
+动不动？就刚才看了一下你就心虚了？你也知道你的言论很恶心吧。高达咒男主、夸木柜子神作、盼着b站搞晋江影视化、看p5锁男主不爽、幻想新海诚搞lgbt。
+
+说句公道话，是个人都看出来你什么成分了，你要是还要脸，就不要再出现在这楼了，滚回去共振吧。
+
+*****
+
+####  noHentai  
+##### 10501#       发表于 2025-4-30 12:41
+
+只能说NT确实是个好设定，总而言之就是聊天室里大家都聊完了和解了，但是没必要跟观众交代<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+话说回来，竹的这个魔女人妻人设真不错啊，夏里亚说NT杀的人太多了，我突然好奇娶她的老公是什么心态。
+
+以及，人妻说“那个驾驶员给我很大压力”然后就上头，我非常跳跃的想到一句话，“家里那个无能丈夫”<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  暗黑能乐  
+##### 10502#       发表于 2025-4-30 12:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769156&amp;ptid=2209276" target="_blank">wolf1997 发表于 2025-4-30 12:36</a>
+
+魔女不肯承认新人类这点，让我想到了包括庵野鹤卷在内许多人都不想承认Z及以后的故事，明明79最后那么充满 ...</blockquote>
+虽然你说的很宏大的样子，但实际很空洞，剧中麻球没有表现出一点对于现有环境到底哪里不满了，对于吉翁是什么态度，只是单纯的想“特殊”，说难听点，其实有点“无病呻吟”内味。
+
+*****
+
+####  operatbig  
+##### 10503#       发表于 2025-4-30 12:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769173&amp;ptid=2209276" target="_blank">真阿波罗 发表于 2025-4-30 12:40</a>
+
+动不动？就刚才看了一下你就心虚了？你也知道你的言论很恶心吧。高达咒男主、夸木柜子神作、盼着b站搞晋 ...</blockquote>
+卧槽，你到底翻了几页记录看得也太仔细了，好变态啊，属实可怕。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
