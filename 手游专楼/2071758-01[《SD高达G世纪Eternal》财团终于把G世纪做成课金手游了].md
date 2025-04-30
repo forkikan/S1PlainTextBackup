@@ -9832,3 +9832,19 @@ BNQS73HN3ZP7C8
 
 10发出了双黄，拉妖+一个铁血战舰，不抽了
 
+
+*****
+
+####  kerorokun  
+##### 929#       发表于 2025-4-30 13:10
+
+ur拉克丝永恒我连中2个，但没出基拉<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  棍机凹升龙  
+##### 930#       发表于 2025-4-30 13:14
+
+全明星，但是是拉妖  70出正义+2UR战舰  不抽了
+

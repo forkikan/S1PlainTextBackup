@@ -1465,3 +1465,16 @@ https://bangumi.tv/ep/1465152</blockquote>
 
 拉电锯准备开锯那一卡真是帅呆了，想到了去年那坨怪兽8号了，比怪兽8号帅10086倍
 
+
+*****
+
+####  NBXX  
+##### 138#       发表于 2025-4-30 13:06
+
+<img src="https://p.sda1.dev/23/5543aba6582d9ecac388865e023be77e/1.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/1a873bc818f12ec7b79144bb88660d1a/2.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/853e7d1730d0fb34507fdf5b87efce59/3.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/1fa132b7cc6d0eb7a63e6584f1ae33d1/4.jpg" referrerpolicy="no-referrer">
+
+官推小漫画汉化（1~4集）。
+
