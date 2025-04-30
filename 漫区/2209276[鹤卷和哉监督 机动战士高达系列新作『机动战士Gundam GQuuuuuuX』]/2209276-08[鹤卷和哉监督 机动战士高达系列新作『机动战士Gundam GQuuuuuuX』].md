@@ -2517,3 +2517,40 @@ nt不就是单纯能开聊天室、能知道对方攻击意图么…
 估 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就12集长度，地球宇宙矛盾肯定不够篇幅的。特意造这个鸡瘟和联邦都无力继续打的背景就是为了讲一个和战争无关的故事。
 
+
+*****
+
+####  死光光  
+##### 10613#       发表于 2025-4-30 16:07
+
+又抽象又难绷 个人评分继续下调<img src="https://static.stage1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
+
+*****
+
+####  神鹰黑手哥  
+##### 10614#       发表于 2025-4-30 16:08
+
+为什么高达厨要一直执着于大格局，说实话，作品肯定要顺应时代发展才能成功，就像eva是因为诞生在泡沫经济和宫崎勤事件后才能成为一代经典，现在的日本已经完全不流行所谓大格局的作品，因为已经没什么实感了，0079的那个时代还处于冷战时期，还有一堆霓虹年轻人经历过杀老师杀日本内阁这些乱七八糟的事，现在已经大不相同了，一味地散发老人臭的结果就是从00到铁血的全面溃败，没有看清真正让seed和w成功的正是少男少女们的偶像剧。以后的原创高达，大概率都不会沉浸于宏大叙事了
+
+*****
+
+####  只吃干拌面  
+##### 10615#       发表于 2025-4-30 16:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769727&amp;ptid=2209276" target="_blank">渡鸦骑士 发表于 2025-4-30 15:41</a>
+
+推特上有人指出魔女疑似强化人，住所是研究所。</blockquote>
+不太可能吧，博美犬的大姐叫她名字的时候体现了她已经改姓的细节，临终前不叫小孩的名字也只是没有必要给一个不会出场的角色设定名字
+
+*****
+
+####  变老的大二  
+##### 10616#       发表于 2025-4-30 16:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769795&amp;ptid=2209276" target="_blank">希望之异热同心 发表于 2025-4-30 16:05</a>
+
+就12集长度，地球宇宙矛盾肯定不够篇幅的。特意造这个鸡瘟和联邦都无力继续打的背景就是为了讲一个和战争 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">关键好死不死，第四集还要嘴一句鸡瘟内斗，夏亚+红高达是异常点。
+
+别等下以一种异常幽默的方式结束了政治戏
+
