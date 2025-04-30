@@ -10324,3 +10324,16 @@ boss票只能打最后一关刷吗，坛友们加成都刷到多少
 
 第一发出拉妖给了我不必要的自信，60连下去啥也不是，问就是非常后悔
 
+
+*****
+
+####  无念  
+##### 984#       发表于 2025-4-30 20:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67770521&amp;ptid=2071758" target="_blank">jackyhuang 发表于 2025-4-30 20:36</a>
+机体突破还加活动加成的吗，没记错开发的金异端蓝异端好像是18%吧，现在看了一眼两星加成21%了
+原来有说明 ...</blockquote>
+同名机只加成一次<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

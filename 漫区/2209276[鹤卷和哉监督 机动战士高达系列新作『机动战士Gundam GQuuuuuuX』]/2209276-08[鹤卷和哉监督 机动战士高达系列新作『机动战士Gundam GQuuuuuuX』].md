@@ -3997,3 +3997,18 @@ shirakaba_CHIPS
 
 2025-4-30 20:43 上传
 
+
+*****
+
+####  aptx8285144  
+##### 10741#       发表于 2025-4-30 20:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67770546&amp;ptid=2209276" target="_blank">Tungsten 发表于 2025-4-30 20:44</a>
+
+搬运一下隔壁的精辟评论
+
+开钢弹=哈草 
+
+这么说钢弹还是个医疗产品（</blockquote>
+等尼亚安自己上机也会像吸大了的（
+
