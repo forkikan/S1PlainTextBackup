@@ -2205,3 +2205,33 @@ UC背景下死人不是常有的事吗？夏利尔在0079也不过是一集被�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">幽默钢丝战术根本没有讨论的价值
 
+
+*****
+
+####  秋月孝三  
+##### 10582#       发表于 2025-4-30 14:43
+
+钢丝还是比隔热保鲜膜能看一点点的，所以我怀疑这也是致敬<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ardente  
+##### 10583#       发表于 2025-4-30 14:44
+
+不考虑画的时候圆不回来这种大人的原因，魔女姐说她nt吧，nt最基础的空间感知能力就不太行，对面人都瞬移了还搁这大喘气看原位<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Wondering  
+##### 10584#       发表于 2025-4-30 14:44
+
+ 本帖最后由 Wondering 于 2025-4-30 14:45 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769534&amp;ptid=2209276" target="_blank">穿越护城河 发表于 2025-4-30 14:31</a>
+
+用了一点那个感觉吧，麻球还不像小四那样被大环境缚起来，side6实际也更宽松自由
+
+符合哈尼定位的估计只 ...</blockquote>
+心理层面长大成人的话，可以用【告白】类似的套路吧，就算社会条件无忧无虑也会因为一些原因走上歧路，不过我不觉得鹤卷能够讲多深<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

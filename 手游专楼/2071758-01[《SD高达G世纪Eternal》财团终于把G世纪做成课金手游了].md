@@ -9968,3 +9968,11 @@ WechatIMG75.jpg
 后知后觉，池子里怎么是强自搭配正义，正常脑回路不该是无正吗</blockquote>
 大概财团B觉得无正和阿斯兰的人气也够单独开个限定池再骗一波吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  captoon  
+##### 944#       发表于 2025-4-30 14:38
+
+6月才开SEED-D，估计到时候再开无正吧
+
