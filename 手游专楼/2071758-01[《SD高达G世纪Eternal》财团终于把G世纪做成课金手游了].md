@@ -9734,3 +9734,18 @@ BNQS73HN3ZP7C8
 
 90抽2个老自由1个巴巴托斯1个EZ8 1艘拉迪史<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">怎么跟隔壁圆哆啦一样歪的天昏地暗
 
+
+*****
+
+####  xiongxingyu  
+##### 917#       发表于 2025-4-30 12:04
+
+第一次看到全明星登场的特殊演出，然后一发10连给了两个强自和一个自由<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dio999  
+##### 918#       发表于 2025-4-30 12:08
+
+1W2钻出完正义强自，还歪了一台O和天鹅，可以继续玩了
+

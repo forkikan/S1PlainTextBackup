@@ -1253,3 +1253,11 @@ nt能感知到人杀意的，对方不动杀心他被踹来踹去都不会下杀
 就是怎么都变格斗机了，开始时不是还有个队友射击 ...</blockquote>
 搞射击的魔女队友被魔女点爆推进器了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  泥潭办证先锋  
+##### 10486#       发表于 2025-4-30 12:10
+
+蓝毛整天说”高达他在说XX"，再结合这集的信息。夏亚难不成真的也成了阿赖耶识在高达里，驾驶员还是三日月<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
