@@ -10829,3 +10829,45 @@ eva巴黎战的时候玩绳子空战不是玩的挺明白吗，这回打戏拍�
 
 但是打戏就不提了，整个演出编排感觉挺微妙的，尤其是音监简直罪犯
 
+
+*****
+
+####  cherryjia12  
+##### 10349#       发表于 2025-4-30 08:09
+
+打戏稀碎
+
+*****
+
+####  双菜  
+##### 10350#       发表于 2025-4-30 08:10
+
+ 本帖最后由 双菜 于 2025-4-30 08:11 编辑 
+
+麻球至少不会是别的角色推着走的类型，在行动力上已经比几个前辈好不少了
+
+
+*****
+
+####  有钱多买小人  
+##### 10351#       发表于 2025-4-30 08:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768101&amp;ptid=2209276" target="_blank">noHentai 发表于 2025-4-30 02:59</a>
+具体怎么样要看后续揭晓修司对魔女说了什么话，即他到底是什么愿望。</blockquote>
+搞不好是人类补完计划：把全人类变NT
+
+*****
+
+####  psycho_Gadfly  
+##### 10352#       发表于 2025-4-30 08:14
+
+ 本帖最后由 psycho_Gadfly 于 2025-4-30 08:16 编辑 
+
+这集看下来，GQX绝对有观看门槛啊。。萌新真的只能一脸地铁老爷爷看手机，回头来一句还是水魔好看吧<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+后半段我一直在“有UC味了”和“NT的脑回路果然不懂”之间反复横跳<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+不过打戏是真的Emmmmm K社加把劲啊
+
+（不过看了大家的解释 二刷之后比前几集观感好不少 至少够劲
+
