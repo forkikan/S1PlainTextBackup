@@ -4659,3 +4659,16 @@ https://bandai-hobby.net/item/01_5932/
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  岸浪白野  
+##### 10795#       发表于 2025-5-1 01:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67771097&amp;ptid=2209276" target="_blank">oi99o 发表于 2025-5-1 01:31</a>
+
+啊，这集有插入歌乜？在哪段？
+
+论坛助手,iPhone</blockquote>
+就是魔女和修司互相交心放的那首，因为是人声哼唱所以叫法算插入歌
+
