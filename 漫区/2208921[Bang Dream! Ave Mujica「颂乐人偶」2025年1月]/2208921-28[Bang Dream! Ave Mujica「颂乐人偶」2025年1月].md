@@ -6562,3 +6562,15 @@ s1解封这么晚 骂都提不起劲了 mujica就这么毁了我三分之一个2
 
 最大的问题还是柿本为了时髦值和“合理性”，把睦的设定搞得尾大不掉了
 
+
+*****
+
+####  Cortana  
+##### 40735#       发表于 2025-4-30 11:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768637&amp;ptid=2208921" target="_blank">与太郎 发表于 2025-4-30 10:26</a>
+我们一般把这个叫病情恶化</blockquote>
+这是发病的情况……
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

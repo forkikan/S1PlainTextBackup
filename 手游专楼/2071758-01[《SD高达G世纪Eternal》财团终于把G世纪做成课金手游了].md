@@ -9660,3 +9660,60 @@ BNQS73HN3ZP7C8
 
 11个十连 最后出的还是欧通自由，我不想活了
 
+
+*****
+
+####  Pumpkin_ccc  
+##### 908#       发表于 2025-4-30 11:19
+
+毫无意外的沉了，转生启动<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lighttt  
+##### 909#       发表于 2025-4-30 11:19
+
+3W出了一个普通自由<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  windtrack  
+##### 910#       发表于 2025-4-30 11:19
+
+攒的100抽光只有拉克斯，删游不蝗了
+
+*****
+
+####  一个陆仁贾  
+##### 911#       发表于 2025-4-30 11:21
+
+怎么一更新完就又进不去了，开不开梯子都一样……
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  kulanyee  
+##### 912#       发表于 2025-4-30 11:21
+
+幽默0.75% pickup率，真就没井不配抽啊。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+吴克吃一次保底攒一年石头是吧<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  体制  
+##### 913#       发表于 2025-4-30 11:23
+
+35000钻一个元祖一个巴巴托斯，要不是卡咖喱我都以为我抽错卡池了。
+
+—— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  12481632  
+##### 914#       发表于 2025-4-30 11:27
+
+100抽下去只抽到正义和船，该转生了
+
