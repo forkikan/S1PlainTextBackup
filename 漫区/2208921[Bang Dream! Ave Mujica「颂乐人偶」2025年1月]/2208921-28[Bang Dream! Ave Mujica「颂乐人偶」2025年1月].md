@@ -6400,3 +6400,16 @@ s1解封这么晚 骂都提不起劲了 mujica就这么毁了我三分之一个2
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  与太郎  
+##### 40725#       发表于 2025-4-30 09:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768348&amp;ptid=2208921" target="_blank">Cortana 发表于 2025-4-30 08:57</a>
+
+是我没说清楚，“其它人格”指的是小墨和黄瓜睦。
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+那么“睦自己”是个什么东西，高于人格还是低于人格？
+
