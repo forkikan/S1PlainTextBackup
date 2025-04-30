@@ -10906,3 +10906,26 @@ ps：直播的时候我看这段聊天室的心态完全是懵的“真死了？
 
 —— 来自 HONOR BVL-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  閻魔愛  
+##### 10356#       发表于 2025-4-30 08:46
+
+魔女的这回避学的是79夏亚对吧？嗖地一下平移掉了。<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  赤黑的假面  
+##### 10357#       发表于 2025-4-30 08:51
+
+联邦魔女对一年战争的执念太深了吧，属于是那种被一年战争亡灵束缚的女人
+
+*****
+
+####  闭挂锁人  
+##### 10358#       发表于 2025-4-30 08:52
+
+ 首席哥还在说没必要杀人吧的时候麻球已经在想不狠怎么能追得上修司了，这就是NT能力的差距吗<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
