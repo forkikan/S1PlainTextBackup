@@ -1078,3 +1078,49 @@ IF的0085年地宇关系没那么离谱，第一话里番茄拿来装定位器�
 
 许久没见的光剑烫美女，虽然MS战变成龙珠，NT变成自在极意功了
 
+
+*****
+
+####  wpcc  
+##### 10469#       发表于 2025-4-30 11:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768863&amp;ptid=2209276" target="_blank">hyde999 发表于 2025-4-30 11:20</a>
+许久没见的光剑烫美女，虽然MS战变成龙珠，NT变成自在极意功了</blockquote>
+z高达都干了
+
+*****
+
+####  57042711  
+##### 10470#       发表于 2025-4-30 11:26
+
+番茄这确实太花痴了，或者说都不知道自己在干嘛…
+该开盘竞彩下一集两大叔能否存活了吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  cayon  
+##### 10471#       发表于 2025-4-30 11:32
+
+ 本帖最后由 cayon 于 2025-4-30 11:33 编辑 
+
+联邦王牌死了就死了，鸡瘟王牌死了绿叔叔不好交代啊
+
+*****
+
+####  iuiuk2  
+##### 10472#       发表于 2025-4-30 11:35
+
+一个很可爱（）的小细节，魔女给给自己起的ID叫 妈妈魔女<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+GptySNubYAAk4JL.jfif
+(51.44 KB, 下载次数: 0)
+
+2025-4-30 11:34 上传
+
+点击文件名下载附件
+
