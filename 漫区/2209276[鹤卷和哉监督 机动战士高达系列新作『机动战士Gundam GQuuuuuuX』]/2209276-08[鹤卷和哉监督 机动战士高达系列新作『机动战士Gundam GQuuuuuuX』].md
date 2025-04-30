@@ -4766,3 +4766,30 @@ https://bandai-hobby.net/item/01_5932/
 
 —— 来自 vivo V2337A, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  法拉  
+##### 10805#       发表于 2025-5-1 05:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67771140&amp;ptid=2209276" target="_blank">.38左轮 发表于 2025-5-1 02:26</a>
+
+没法认真想，能高速运动中射钢丝钉对面，却不来发穿甲弹，还有宇宙转圈圈，还有强度比机体还高的钢丝。 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只要想圆这些圆起来简直不要更简单，不射穿甲弹就说物体越大越容易被察觉，宇宙转圈圈就说相对运动参照物不足，高强度钢丝就说量产机关节强度不够
+
+
+*****
+
+####  xwz  
+##### 10806#       发表于 2025-5-1 05:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67770414&amp;ptid=2209276" target="_blank">Tungsten 发表于 2025-4-30 19:47</a>
+感觉制作组还是挺谨慎的
+
+就连扎古的腿都是peter这一班新人马重新设计过，总帅声优都换了，摆明告诉观众这是 ...</blockquote>
+基连根本就没出场过
+
+我挺期待是福山润来配<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
