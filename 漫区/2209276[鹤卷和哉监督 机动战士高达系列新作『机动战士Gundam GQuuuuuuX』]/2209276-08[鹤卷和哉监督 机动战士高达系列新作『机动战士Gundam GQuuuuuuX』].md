@@ -3575,3 +3575,25 @@ e1和e4几段两人互动的演出确实挺有趣，空间和心理位置、生�
 
 —— 来自 HONOR BVL-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  希望之异热同心  
+##### 10708#       发表于 2025-4-30 18:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67770258&amp;ptid=2209276" target="_blank">赤黑的假面 发表于 2025-4-30 18:34</a>
+所以联邦魔女是强化人到底是真的假的</blockquote>
+假的，她就是NT
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  123gp199  
+##### 10709#       发表于 2025-4-30 18:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67770187&amp;ptid=2209276" target="_blank">Wondering 发表于 2025-4-30 17:58</a>
+
+有这个必要吗，真要打十二集黑拳不走主线了是吧</blockquote>
+就12集的量，极限是基连和基西莉亚在最后阶段全面开片，可主角那几位不像是能上战场的，总要给他们开MS找个由头不是，只要再找5-6人/组人差不多就能完成任务了。
+
