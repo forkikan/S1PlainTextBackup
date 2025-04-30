@@ -9916,3 +9916,36 @@ WechatIMG75.jpg
 
 你们没井都抽也是胆子大，我存了5w根本没动<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  12481632  
+##### 938#       发表于 2025-4-30 14:20
+
+活动的boss战不限制阵容，就不强抽sf了。
+就是每次蓝异端boss刷出来都得手动打挺麻烦的，虽然不难但也得差不多打满回合数才能过
+
+*****
+
+####  qixinno2  
+##### 939#       发表于 2025-4-30 14:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769433&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2025-4-30 13:55</a>
+
+你们没井都抽也是胆子大，我存了5w根本没动</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一时梭哈一时爽 一直梭哈一直爽
+
+*****
+
+####  MMIno  
+##### 940#       发表于 2025-4-30 14:22
+
+不过好像一键开发这个功能没有实装啊，这个要啥时候才上，很急
+
+*****
+
+####  silvia  
+##### 941#       发表于 2025-4-30 14:25
+
+200抽兑换是换个已有ur来强化还是换个新的？
+

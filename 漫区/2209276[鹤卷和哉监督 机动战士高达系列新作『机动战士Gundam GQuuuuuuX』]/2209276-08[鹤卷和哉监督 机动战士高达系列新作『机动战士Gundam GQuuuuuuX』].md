@@ -2100,3 +2100,78 @@ UC背景下死人不是常有的事吗？夏利尔在0079也不过是一集被�
 结识牢修前，麻球虽不是典型的乖女，亦不是是父母的希望，但过的仍是与周围诸多一同上学的少年人完全一样 ...</blockquote>
 如果参考牯岭街少年杀人事件的话，那谁是哈尼呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  木板春香  
+##### 10571#       发表于 2025-4-30 14:18
+
+  青春期主要是性格还没有完全定型，因为遇到的人会影响未来的成长，这种不确定性才是青春的魅力啊
+
+*****
+
+####  pokemon最爱  
+##### 10572#       发表于 2025-4-30 14:19
+
+青春期的烦恼以长大成人后回想的视角看是一种无病呻吟，但对于正在经历青春期的少年少女自身来说并不会觉得是无病呻吟吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+麻球我倾向于是有强大的NT潜质，但目前仅仅觉醒了一部分，所以NT能力表现不是很强。
+
+*****
+
+####  OrianaThomson  
+##### 10573#       发表于 2025-4-30 14:20
+
+传奇嗜血jk爱了爱了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 10574#       发表于 2025-4-30 14:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769447&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-4-30 13:59</a>
+
+UC背景下死人不是常有的事吗？夏利尔在0079也不过是一集被秒的有脸龙套。捅个联邦魔女能感触起来的，要不恶 ...</blockquote>
+战争结束五六年了，软弱的我已经占据上风了jpg
+
+*****
+
+####  ads147147  
+##### 10575#       发表于 2025-4-30 14:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769488&amp;ptid=2209276" target="_blank">林登·万 发表于 2025-4-30 14:17</a>
+
+要真论钩索 既然能神不知鬼不觉的钉上对手的机体 配合上UC宇宙最好用的电击 岂不无敌 ...</blockquote>
+可能是动力炉输出不够，也可能是不如一刀砍死。这套插上去一个动作突变的初见杀，非nt基本就死定了，用不用电击没区别，在战场上以一对多的情况下，一个个电过去还不如多给几把枪还能多杀几个。
+
+而且魔女是开轻加农宰人，轻加农列装的时候估计都战争末期了，能给这么逆天的绳索装备已经很夸张了，多了估计也没资源挤出来。
+
+
+*****
+
+####  xinfengj  
+##### 10576#       发表于 2025-4-30 14:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769464&amp;ptid=2209276" target="_blank">无念 发表于 2025-4-30 14:08</a>
+
+但我想了想你这不就是最强OT的海蛇么，还不如通电呢，有这功夫绕着杀直接电刑吧
+
+—— 来自 HONOR SDY-AN00 ...</blockquote>
+原来是性转亚赞！
+
+*****
+
+####  ヒトニナル  
+##### 10577#       发表于 2025-4-30 14:27
+
+→玛秋卡缪论
+→玛秋哈曼论
+→玛秋葵丝论 new!
+
+*****
+
+####  Sliurus  
+##### 10578#       发表于 2025-4-30 14:28
+
+说实话，魔女的战术只在宇宙战有效吧，陆战勾人纯拼吨位和出力
+
