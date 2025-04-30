@@ -4445,3 +4445,29 @@ https://bandai-hobby.net/item/01_5932/
 <img src="https://p.sda1.dev/23/c4c8f8b62e340a80a70f0fd2404ecf10/20250430_235333.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/23/59412833f2598da38ea0bfc1c20de77f/20250430_235334.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 10774#         楼主| 发表于 2025-4-30 23:56
+
+[https://x.com/money_mendako/status/1917282937575465028](https://x.com/money_mendako/status/1917282937575465028)
+<img src="https://p.sda1.dev/23/29ca5b51c253c24c85eb1b676dd3406b/20250430_235257.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 10775#       发表于 2025-5-1 00:01
+
+实话说第四集机战实在是拉了大胯，第三第四连着两集来之后有点担心往后都是这种表现形式，不会第一话红高GQX那种水平的机战成绝唱了吧
+
+
+*****
+
+####  变老的大二  
+##### 10776#       发表于 2025-5-1 00:03
+
+<blockquote>YU_JI 发表于 2025-5-1 00:01
+实话说第四集机战实在是拉了大胯，第三第四连着两集来之后有点担心往后都是这种表现形式，不会第一话红高GQ ...</blockquote>
+看后面远程武器战做的咋样吧。现在全近战武器更加凸显打戏的拉胯了。
+

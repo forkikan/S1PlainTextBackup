@@ -10420,3 +10420,11 @@ boss战是不是就不用凑本系列机体叠奖励buff了？
 skip了，手动刷太累</blockquote>
 模拟器录个脚本挂着就完了……
 
+
+*****
+
+####  洛克萨斯  
+##### 993#       发表于 2025-4-30 23:54
+
+ex难度打不过啊，<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">debuff上满了都打不动，输出机体不够
+
