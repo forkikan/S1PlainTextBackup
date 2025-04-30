@@ -10458,3 +10458,27 @@ ex难度打不过啊，debuff上满了都打不动，输出机体不够</blockqu
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  帕蕾莉亚  
+##### 997#       发表于 2025-5-1 02:07
+
+<img src="https://img.stage1st.com/forum/202505/01/020607ragttttzgwei5556.jpg" referrerpolicy="no-referrer">
+
+<strong>sd2.jpg</strong> (198.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-1 02:06 上传
+
+<img src="https://img.stage1st.com/forum/202505/01/020606jy6oyyymjjab6a65.jpg" referrerpolicy="no-referrer">
+
+<strong>sd1.jpg</strong> (365.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-1 02:06 上传
+
+打木桩还行，80几万不够2个回合的<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
