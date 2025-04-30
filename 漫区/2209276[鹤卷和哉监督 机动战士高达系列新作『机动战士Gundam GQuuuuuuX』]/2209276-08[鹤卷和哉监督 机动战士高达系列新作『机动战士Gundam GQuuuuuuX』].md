@@ -1973,3 +1973,51 @@ g一串现在打戏就是水魔第一季的水平，放水魔二就啥也不是�
 
 “明明还有家人等她回家”既可以是问修司为什么要杀人，也可以是问魔女为什么有家人还要寻死，最后都出的结论应该是“如果要选择非日常，那就要有抛弃日常，面对杀人与被杀的觉悟”。
 
+
+*****
+
+####  xyion  
+##### 10557#       发表于 2025-4-30 13:59
+
+虽然是UC Alternate，但不说篇幅问题，现在的观众真的期待大规模战争吗？看看这ed<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Toby_dak  
+##### 10558#       发表于 2025-4-30 13:59
+
+UC背景下死人不是常有的事吗？夏利尔在0079也不过是一集被秒的有脸龙套。捅个联邦魔女能感触起来的，要不恶补几集子供向V高进行脱敏疗法麻木下<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.45)
+
+*****
+
+####  Wondering  
+##### 10559#       发表于 2025-4-30 14:00
+
+无关联想，突然想起了早坂吝的爱丽丝的罪恶奇境<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最后爱丽丝杀她妈时候有点那味道
+
+
+*****
+
+####  无念  
+##### 10560#       发表于 2025-4-30 14:06
+
+钩索理解是不是可以理解成，我们看着红高达好像没动，其实是两个人都被锁在一起高速移动，只是为了省力所以画面用红高达为基准看起来就好像吉姆勇士绕着它转一样<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+这一段麻球和魔女队友都好像离线了，其实是这两追不上<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  aptx8285144  
+##### 10561#       发表于 2025-4-30 14:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769438&amp;ptid=2209276" target="_blank">shiko 发表于 2025-4-30 13:56</a>
+
+能看出退缩的不知道是什么理解能力，不过只看出“要杀人”也有点片面啊。
+
+魔女是抛弃日常选择了非日常的角 ...</blockquote>
+其实这个情况，魔女也是来拼命的，修司的非人类感又很明显，确实到了下死手的氛围，如果修司"没有大善心"的话(
+
