@@ -9554,3 +9554,16 @@ skip了，手动刷太累
 
 才看到开发路线里的GNFlag居然是黄机而不是红机，这浑身上下就一把家伙什的居然是支援？？绝对是设计喝高了吧。
 
+
+*****
+
+####  劳动改造归来  
+##### 897#       发表于 2025-4-30 09:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768313&amp;ptid=2071758" target="_blank">highsky 发表于 2025-4-30 08:43</a>
+
+我感觉这游戏和我10年前玩的Super Gundam Royale那个手游差不多的运营思路，好多都似曾相识
+
+所以我感觉零氪 ...</blockquote>
+是的，运营思路和SGR很像，零氪也能靠SR和SRR勉强打起来，UR的强度必须是要重氪才能拉起来
+
