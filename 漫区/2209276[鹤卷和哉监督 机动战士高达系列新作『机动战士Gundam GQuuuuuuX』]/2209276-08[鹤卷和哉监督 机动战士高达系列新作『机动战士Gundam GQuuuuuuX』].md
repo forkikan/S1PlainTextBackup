@@ -3605,3 +3605,38 @@ e1和e4几段两人互动的演出确实挺有趣，空间和心理位置、生�
 
 对于只用一集就塑造出了魔女的人物弧光这点我很满意，但是番茄的电波感越来越强了，尤其是倒数第二句台词刚显得像个正常人，最后那句却给我整麻了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Tungsten  
+##### 10711#       发表于 2025-4-30 18:59
+
+WTF 百杀王牌就这么领便当了？本来看面相如此地无机质，以为魔女是个能贯穿始终的重要配角来着
+
+不是，女二的戏份呢，我一开始是因为有石川才来看的啊
+
+ ducking mindblwoing
+
+脑袋要被炸飞了
+
+我已经等不及看下一周了
+
+*****
+
+####  operatbig  
+##### 10712#       发表于 2025-4-30 19:02
+
+笑死，居然进去了，稍微想想我这-100鹅怎么来的都知道我在这里想干嘛吧。<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 10713#       发表于 2025-4-30 19:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769870&amp;ptid=2209276" target="_blank">变老的大二 发表于 2025-4-30 16:22</a>
+
+我还数了数没有一个高达主角是这样毫无动机的吧。
+
+哪怕是水魔也在第一集赋予女主一个保护友人的强动机 ...</blockquote>
+逃离大小姐生活就是动机
+

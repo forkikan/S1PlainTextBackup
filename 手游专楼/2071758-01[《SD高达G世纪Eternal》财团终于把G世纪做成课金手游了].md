@@ -10204,3 +10204,13 @@ BZ282R3987PVJJ  国际服求大佬们填下
 
 allin80抽只出了一个拉克丝和正义，瞬间不想玩了
 
+
+*****
+
+####  一个陆仁贾  
+##### 971#       发表于 2025-4-30 19:02
+
+没有讨论ex难度，看来大家都过得挺轻松<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
