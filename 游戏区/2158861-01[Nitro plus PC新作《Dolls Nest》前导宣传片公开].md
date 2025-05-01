@@ -1835,3 +1835,17 @@ baldr系列那种本来就是act的除外
 —— 来自 鹅球 v3.3.96</blockquote>
 墙角打伸缩吧
 
+
+*****
+
+####  oidoid  
+##### 176#       发表于 2025-5-1 18:12
+
+[https://docs.qq.com/sheet/DVkRmYXhvenBBVmtm?tab=000001](https://docs.qq.com/sheet/DVkRmYXhvenBBVmtm?tab=000001)
+
+基于STEAM那个指南做了个出处表格
+
+不过原文是英文，机翻味道比较重，加减看看吧
+
+我打算等联动出来了再重打一次了
+
