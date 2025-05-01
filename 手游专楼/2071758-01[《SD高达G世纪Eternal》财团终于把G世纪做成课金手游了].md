@@ -10922,3 +10922,13 @@ SEED新剧情竟然做了将近20分钟的动画，希望这种资源的投入�
 
 想问下，重生这号，自选该选的啥？配合船选沙扎比，妖刀 还是说 凤凰，海盗？
 
+
+*****
+
+####  mobdom  
+##### 1038#       发表于 2025-5-2 00:17
+
+再抽了一发出了强自和自由ex，然后就很容易地打过去了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是真正的技术吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
