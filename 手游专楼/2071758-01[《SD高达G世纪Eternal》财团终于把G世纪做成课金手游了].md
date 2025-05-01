@@ -10757,3 +10757,13 @@ SR的大招是特殊伤害
 
 送的3000钻出了自由<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">sf呢
 
+
+*****
+
+####  无念  
+##### 1023#       发表于 2025-5-1 13:33
+
+我来增加沉船案例<img src="https://p.sda1.dev/23/a010758c1556259a7d61634689ddd836/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
