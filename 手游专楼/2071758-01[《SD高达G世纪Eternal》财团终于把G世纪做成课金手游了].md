@@ -10807,3 +10807,29 @@ ex蓝异端还得靠我妖刀<img src="https://static.stage1st.com/image/smiley/
 
 SEED新剧情竟然做了将近20分钟的动画，希望这种资源的投入不是昙花一现<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hayate0079  
+##### 1028#       发表于 2025-5-1 16:32
+
+送的钻出了正义+巴巴托斯，这下我这小号UR盾齐了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202505/01/163225drnma3ah0qh0ozhh.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250501163225.png</strong> (148.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-1 16:32 上传
+
+*****
+
+####  hayate0079  
+##### 1029#       发表于 2025-5-1 16:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67771573&amp;ptid=2071758" target="_blank">blue321 发表于 2025-5-1 11:05</a>
+
+我是带了四台辅助上四种debuff了，但是在隐藏蓝异端这里，sr自由和全装甲zz伤害明显比刚拉起来的金异端天 ...</blockquote>
+可能驾驶员关系
+

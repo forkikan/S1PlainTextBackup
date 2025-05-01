@@ -5267,3 +5267,13 @@ comoli设定上还对nt持有怀疑态度
 
 2025-5-1 16:13 上传
 
+
+*****
+
+####  希望之异热同心  
+##### 10847#       发表于 2025-5-1 16:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">突然想起来，开局如果不是修斯一掌把番茄推开，番茄开打10秒就熟了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
