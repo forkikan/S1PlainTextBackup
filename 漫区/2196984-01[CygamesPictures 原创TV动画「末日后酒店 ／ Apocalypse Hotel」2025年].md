@@ -1683,3 +1683,24 @@ b站热搜挂了一晚上了可惜看来真推不出去<img src="https://static.
 
 不过另外怪物几个看不清名字是啥
 
+
+*****
+
+####  Delicatus545  
+##### 158#       发表于 2025-5-2 01:15
+
+可爱
+
+
+*****
+
+####  Alicest  
+##### 159#       发表于 2025-5-2 01:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67771245&amp;ptid=2196984" target="_blank">qwased 发表于 2025-5-1 07:27</a>
+这片是真在日本创作者舒适区了，怎么想都不可能翻车，该吹爆了</blockquote>
+之前在bgm看到的参与制作者的发言<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确实是好球区啊
+<img src="https://p.sda1.dev/23/c21876196ec7766625efda58ba629b43/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/076d6a59ecaae79518e4323cd22b4248/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/8767b43b0a7d3177e6b27e4bf3dbb006/image.jpg" referrerpolicy="no-referrer">
+
