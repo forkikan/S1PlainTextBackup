@@ -142,3 +142,11 @@
 
 宿屋に泊まる時になると毎回パーティーから外される魔女 草
 
+
+*****
+
+####  macshi  
+##### 280#       发表于 2025-5-1 12:42
+
+攒的绿石头抽完90抽只有两个普池，弹尽粮绝含恨氪了10发保底井了<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
