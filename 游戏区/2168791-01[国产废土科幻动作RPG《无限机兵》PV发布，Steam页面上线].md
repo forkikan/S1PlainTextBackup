@@ -105,3 +105,13 @@ psn国服是吗？这个是别处的评论，说是有和谐。</blockquote>
 
 说实话，现在国单要靠这种神人来宣传真的是没人了。太尼玛搞笑了
 
+
+*****
+
+####  pgain2004  
+##### 241#       发表于 2025-5-1 15:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67771130&amp;ptid=2168791" target="_blank">Standpronder 发表于 2025-5-1 02:14</a>
+说实话，现在国单要靠这种神人来宣传真的是没人了。太尼玛搞笑了</blockquote>
+到现在也就区区不到5万播放的杂鱼，老菊初见系列总540万播放它不香吗，或者看随义的收集攻略也不错
+

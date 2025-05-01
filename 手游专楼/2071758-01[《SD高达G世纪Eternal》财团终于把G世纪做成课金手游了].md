@@ -10789,3 +10789,13 @@ SR的大招是特殊伤害
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  棍机凹升龙  
+##### 1026#       发表于 2025-5-1 15:27
+
+ex蓝异端还得靠我妖刀<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
