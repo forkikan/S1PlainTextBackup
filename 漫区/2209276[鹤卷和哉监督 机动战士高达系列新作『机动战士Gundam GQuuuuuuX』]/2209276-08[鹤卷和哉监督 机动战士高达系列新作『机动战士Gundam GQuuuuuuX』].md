@@ -5223,3 +5223,23 @@ comoli设定上还对nt持有怀疑态度
 
 本来的世界线对新人类更多也是利用打算，所以才会有那么多强化人研究所，也就夏亚因为拉拉和阿姆罗的经历愿意相信有积极的意义。具体的定义谁也没下过，谁也不知道，更多是按照战斗能力和对宇宙的适应程度猜测
 
+
+*****
+
+####  wpcc  
+##### 10844#       发表于 2025-5-1 15:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67772089&amp;ptid=2209276" target="_blank">Dai-Dai-Dai-Dai 发表于 2025-5-1 15:03</a>
+
+慢慢捅进去受害人不是更痛苦吗？</blockquote>
+表现手法而已 人一秒蒸发了
+
+*****
+
+####  CSWQ  
+##### 10845#       发表于 2025-5-1 15:08
+
+<blockquote>ryanghj 发表于 2025-5-1 15:03
+</blockquote>
+福井和哈萨维同样是粉丝向的？谁的粉丝？
+
