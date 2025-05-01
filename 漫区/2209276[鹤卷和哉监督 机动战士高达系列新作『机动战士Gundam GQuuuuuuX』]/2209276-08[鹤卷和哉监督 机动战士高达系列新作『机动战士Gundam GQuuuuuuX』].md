@@ -6524,3 +6524,16 @@ ChatGundam？
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  法拉  
+##### 10951#       发表于 2025-5-2 01:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67771572&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-1 11:04</a>
+
+还真有可能是机体强度不够，魔女在战时用的是钢加农，肯定比吉姆耐操啊
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还上了磁气覆膜，这玩意是真的会让关节出问题的
+
