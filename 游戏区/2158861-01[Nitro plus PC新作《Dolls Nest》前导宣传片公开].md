@@ -1823,3 +1823,15 @@ baldr系列那种本来就是act的除外
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  蓝雉  
+##### 175#       发表于 2025-5-1 16:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67771885&amp;ptid=2158861" target="_blank">ParadiseMartyr 发表于 2025-5-1 13:24</a>
+下层的那个电浆炮四足怎么打啊，近身直接秒了我
+
+—— 来自 鹅球 v3.3.96</blockquote>
+墙角打伸缩吧
+

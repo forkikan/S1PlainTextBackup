@@ -5243,3 +5243,27 @@ comoli设定上还对nt持有怀疑态度
 </blockquote>
 福井和哈萨维同样是粉丝向的？谁的粉丝？
 
+
+*****
+
+####  ryanghj  
+##### 10846#       发表于 2025-5-1 16:14
+
+推上一个有趣的观察，安琪说的是一年战争而不是吉翁独立战争，后者才是吉翁/宇宙居民的正式称呼，说明安琪极有可能是联邦的人
+
+<img src="https://img.stage1st.com/forum/202505/01/161345pkhp0fnii68s0hen.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (128.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-1 16:13 上传
+
+<img src="https://img.stage1st.com/forum/202505/01/161356o4u3qleuva3uutte.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (184 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-1 16:13 上传
+
