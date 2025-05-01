@@ -1231,3 +1231,13 @@ b怎么没更，审核没过是吧
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">胡桃第一集和本集都是只有声音没有出镜
 
+
+*****
+
+####  Saber琪  
+##### 2276#       发表于 2025-5-1 19:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67772241&amp;ptid=2152053" target="_blank">aptx8285144 发表于 2025-5-1 16:17</a>
+美食不是不可以，好歹学习人家estab  life来点好看的审美观呀</blockquote>
+朝浦od里有讲tkn做一个什么卷也比较失败，但好歹不会像动画这样只有恶俗
+
