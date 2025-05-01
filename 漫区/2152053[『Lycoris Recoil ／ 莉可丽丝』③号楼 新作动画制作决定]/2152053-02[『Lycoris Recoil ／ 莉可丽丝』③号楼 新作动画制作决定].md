@@ -1207,3 +1207,19 @@ b怎么没更，审核没过是吧
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">凡人理解不了天才的闪光
 我们这可是专门请人做的造型设计
 
+
+*****
+
+####  Piano-Forest  
+##### 2274#         楼主| 发表于 2025-5-1 16:56
+
+[https://x.com/_xCelest/status/1917551769518743773](https://x.com/_xCelest/status/1917551769518743773)
+
+『リコリス・リコイル』ショート#3  に第二原画で参加しました、ご視聴ありがとうございました！！
+
+小川さん、任せてくださってありがとうございます 🥹 
+<img src="https://p.sda1.dev/23/373e2cda667caa3e987c35bcec3c6bdf/20250501_165438.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/ama_ekaku/status/1917564317005930933](https://x.com/ama_ekaku/status/1917564317005930933)
+<img src="https://p.sda1.dev/23/3b5520831ab29e35f444b3e697444635/20250501_165434.jpg" referrerpolicy="no-referrer">
+

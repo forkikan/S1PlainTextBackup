@@ -5285,3 +5285,30 @@ comoli设定上还对nt持有怀疑态度
 
 回看z钢弹正好看到汉布拉比三机编队用带电钩锁连携攻击，感觉真比这个强不少啊<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RE㐅ia  
+##### 10849#       发表于 2025-5-1 16:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67772259&amp;ptid=2209276" target="_blank">希望之异热同心 发表于 2025-5-1 16:27</a>
+
+突然想起来，开局如果不是修斯一掌把番茄推开，番茄开打10秒就熟了
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+麻球那点三脚猫功夫没次出招都留下巨大的破绽，削个人棍还是简单的。魔女也说了不是来找她的，单纯就像早点把碍事的清除然后专心对付红高达而已。队友也碍事那就把队友人棍了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 10850#         楼主| 发表于 2025-5-1 16:58
+
+[https://x.com/yoshiyama_yuu/status/1917644106576322726](https://x.com/yoshiyama_yuu/status/1917644106576322726)
+
+ジークアクス　4話
+
+少しだけ参加してました。
+
+宜しくです🐸
+<img src="https://p.sda1.dev/23/d2a76246d054c43d247a5f3b3b6fcf04/20250501_165414.jpg" referrerpolicy="no-referrer">
+
