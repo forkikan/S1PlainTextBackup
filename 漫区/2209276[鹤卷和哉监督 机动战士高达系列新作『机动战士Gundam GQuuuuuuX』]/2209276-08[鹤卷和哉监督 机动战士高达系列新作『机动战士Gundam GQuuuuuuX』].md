@@ -6110,3 +6110,39 @@ NT不一定 驾驶操作可能是强的<img src="https://static.stage1st.com/ima
 
 军团战排行，第七名四蛇眼是主角组第一场军团战的对手，第六名胖搭档在第四集开头被玛秋一穿二了，第五名博美犬，第四名CRS是第四集的主要对手，第三名二连星不用多说，前两名不明。
 
+
+*****
+
+####  王留美  
+##### 10914#       发表于 2025-5-1 23:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67773295&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-1 22:36</a>
+ 而且说过了夏利亚的CV川田是不知道安琪角色的背景的，安琪的背景正片不会提及基本大可能让观众猜，如果是吉 ...</blockquote>
+仔细想想确实，科瓦尔都还在役，比他更核心的赛蒙斯没理由退役的
+
+*****
+
+####  ryanghj  
+##### 10915#       发表于 2025-5-1 23:12
+
+从谷子未公开的角色来看至少还要打四场？
+
+<img src="https://img.stage1st.com/forum/202505/01/231214sqkmj9ppp9mm7pjp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (241.31 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-1 23:12 上传
+
+*****
+
+####  xwz  
+##### 10916#       发表于 2025-5-1 23:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67772822&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-5-1 20:08</a>
+麻球顺手就把人家昵称搞成バカ犬</blockquote>
+最好让她妈来念<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
