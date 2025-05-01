@@ -5070,3 +5070,22 @@ comoli设定上还对nt持有怀疑态度
 
 你们都是NT,感觉对方要杀你的意图，你还准备嘴炮说服么？当然是捅驾驶舱安全第一
 
+
+*****
+
+####  gammatau  
+##### 10830#       发表于 2025-5-1 12:20
+
+其实修司就是阿克西斯人间体，被夏亚的意志推动着想前往地球（
+
+*****
+
+####  体制  
+##### 10831#       发表于 2025-5-1 12:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767725&amp;ptid=2209276" target="_blank">Mika-S 发表于 2025-4-30 00:14</a>
+之前看大家说麻球是新时代地雷妹开高达，我还不得要领；这集麻球在进路调查上写水母，感觉一下就懂了出音味 ...</blockquote>
+水母好像是军团战驾驶员的缩略谐音。
+
+—— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
