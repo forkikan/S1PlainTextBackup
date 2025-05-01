@@ -150,3 +150,13 @@
 
 攒的绿石头抽完90抽只有两个普池，弹尽粮绝含恨氪了10发保底井了<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Flechette  
+##### 281#       发表于 2025-5-1 14:01
+
+真巧啊，我也吃井了<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+攒到现在的石头全部用完，还得等签到送的绿骨头才能凑足抽数
+
