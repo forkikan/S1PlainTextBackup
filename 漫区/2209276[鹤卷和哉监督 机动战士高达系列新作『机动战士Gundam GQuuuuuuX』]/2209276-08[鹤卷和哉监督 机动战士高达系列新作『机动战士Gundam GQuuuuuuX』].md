@@ -6049,3 +6049,48 @@ NT不一定 驾驶操作可能是强的<img src="https://static.stage1st.com/ima
 
 其实0079拍的时候应该是把夏亚当成纯反派来设定的，类似老机战片子里那样，到了Z才给夏亚赋予了一些反派但正论的设定
 
+
+*****
+
+####  刺客ares  
+##### 10909#       发表于 2025-5-1 22:41
+
+真是玛蒂尔达的话
+
+会不会在最后一集安排一下安琪和阿姆罗的对手戏<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+既能解释哈啰的来源，也能揭秘安琪的身份
+
+*****
+
+####  岸浪白野  
+##### 10910#       发表于 2025-5-1 22:41
+
+而且安琪这角色是离过婚的，是什么全看正片的线索自己猜
+
+*****
+
+####  灵魂收割机  
+##### 10911#       发表于 2025-5-1 22:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67773276&amp;ptid=2209276" target="_blank">变老的大二 发表于 2025-5-1 22:29</a>
+
+不过说起来，第四集给人的感觉就是，你把这一集删掉，对主线也没什么影响
+
+透露出来的东西就是拉拉音，和木 ...</blockquote>
+当然有影响了，震撼一下番茄。
+
+*****
+
+####  变老的大二  
+##### 10912#       发表于 2025-5-1 22:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67773296&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-1 22:37</a>
+
+正史夏亚就是被骡子打的自尊心受挫了，变得太过执着于打败骡子
+
+其实0079拍的时候应该是把夏亚当成纯反派 ...</blockquote>
+毕竟夏亚在光头那么多遍的重新塑造中可以算得上UC的真主角了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+变成一个哈姆雷特式的复杂人物了。虽然0079就是个容易上头的小心眼帅哥<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
