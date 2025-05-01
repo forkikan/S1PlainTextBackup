@@ -1157,3 +1157,14 @@ b怎么没更，审核没过是吧
 
 因为是开店的，联动也是开店的，要卖吃的的呀！
 
+
+*****
+
+####  aptx8285144  
+##### 2271#       发表于 2025-5-1 15:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67771023&amp;ptid=2152053" target="_blank">osore 发表于 2025-5-1 00:33</a>
+
+因为是开店的，四舍五入就是美食番</blockquote>
+美食番好歹做点正常的造型，足立这些人的审美观念是被哪些人雷普了吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
