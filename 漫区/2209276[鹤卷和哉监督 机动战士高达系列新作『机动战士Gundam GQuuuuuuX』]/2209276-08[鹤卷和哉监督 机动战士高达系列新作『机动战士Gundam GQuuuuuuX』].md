@@ -5583,3 +5583,11 @@ comoli设定上还对nt持有怀疑态度
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  竞自由  
+##### 10876#       发表于 2025-5-1 20:50
+
+红高达这瞬移好像OO 高达的三红啊 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
