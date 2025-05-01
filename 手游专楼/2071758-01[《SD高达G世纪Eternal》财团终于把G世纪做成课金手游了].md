@@ -10505,3 +10505,23 @@ ex难度打不过啊，debuff上满了都打不动，输出机体不够</blockqu
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">梭哈了 强自+1
 
+
+*****
+
+####  ChrisSnake  
+##### 1001#       发表于 2025-5-1 08:20
+
+<blockquote>leonyang19 发表于 2025-4-29 19:20
+推测他是UR，UR排序高于SSR等，还叫天田士郎（アマダシロー），按50音图也是排第一，所以优先级最高 ...</blockquote>
+牛的也是ur的驾驶员 上什么人不该先看数值吗 为什么要看名字
+
+
+*****
+
+####  ChrisSnake  
+##### 1002#       发表于 2025-5-1 08:22
+
+<blockquote>杂灰 发表于 2025-4-30 12:30
+怎么是这个斯托莱卡</blockquote>
+抽到这个很好了 初始机最强 动不动一拳10多万
+
