@@ -7352,3 +7352,13 @@ BanG Dream! Ave MujicaPR
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然鸡的音乐相关内容都很难绷，但最后这段采访看完真的很难不笑出声
 
+
+*****
+
+####  路人庚  
+##### 40761#       发表于 2025-5-1 21:27
+
+Diggy：アニメが来年に控えているので。
+
+所以算是明确了？这样的话应该是接在pico之后了，26年7月or10月番？
+
