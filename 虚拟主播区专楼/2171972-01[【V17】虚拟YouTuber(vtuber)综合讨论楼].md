@@ -266,3 +266,11 @@
 
 关于这个，我听说的说法是，集美们不爱看直播<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aritaatsu222  
+##### 1090#       发表于 2025-5-1 09:48
+
+直播数字不跟爆米能量相关时，直播数字就不重要了，ankr从来都是没有其他梦想只想要米的公司，而现在如其所愿成了最能爆米的管人会社，thats all
+
