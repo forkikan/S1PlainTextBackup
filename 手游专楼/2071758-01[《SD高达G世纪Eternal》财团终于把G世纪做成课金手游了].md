@@ -10863,3 +10863,11 @@ SEED新剧情竟然做了将近20分钟的动画，希望这种资源的投入�
 SEED新剧情竟然做了将近20分钟的动画，希望这种资源的投入不是昙花一现</blockquote>
 基神部分还凑合吧，阿斯兰部分就是驾驶舱加小飞机过场
 
+
+*****
+
+####  dio999  
+##### 1033#       发表于 2025-5-1 19:43
+
+普通和困难也有隐藏，打完有200钻<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
