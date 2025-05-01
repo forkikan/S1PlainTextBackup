@@ -5050,3 +5050,15 @@ comoli设定上还对nt持有怀疑态度
 而且魔女射钩爪抓着红高达，居然是绕着红色高达 ...</blockquote>
 因为魔女也一副拼命的样子，修司“心不善”或看破魔女有心病成全她（
 
+
+*****
+
+####  ヒトニナル  
+##### 10828#       发表于 2025-5-1 11:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67771619&amp;ptid=2209276" target="_blank">zzy516232108 发表于 2025-5-1 11:26</a>
+只是感觉打黑拳出人命也太不正常了……
+
+但是想到是2v2黑拳，又感觉正常了 ...</blockquote>
+博美犬一开始就对玛秋说过会出人命的，只不过电视机前的人都没当真<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
