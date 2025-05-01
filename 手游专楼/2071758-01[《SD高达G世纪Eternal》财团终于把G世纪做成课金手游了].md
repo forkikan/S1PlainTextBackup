@@ -10668,3 +10668,52 @@ SR的大招是特殊伤害
 
 只刷前六箱的话，慢慢打也能刷够吧，可以量力而行
 
+
+*****
+
+####  blue321  
+##### 1015#       发表于 2025-5-1 11:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67771419&amp;ptid=2071758" target="_blank">hayate0079 发表于 2025-5-1 10:00</a>
+SR的大招是特殊伤害
+
+那么就是打前要给他上破防和特殊增伤</blockquote>
+我是带了四台辅助上四种debuff了，但是在隐藏蓝异端这里，sr自由和全装甲zz伤害明显比刚拉起来的金异端天有差距、更别说和带ex的
+看了一下boss的能力好像也没有减伤技能，大概是吃到的收益不够高吧…
+
+现在蓝异端差8-9管血才能一刀真尴尬
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  blue321  
+##### 1016#       发表于 2025-5-1 11:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67771417&amp;ptid=2071758" target="_blank">一个陆仁贾 发表于 2025-5-1 10:00</a>
+我sp的sr自由满级加45的ur基拉放全部射击就有3万以上伤害了，全部射击那招我是升到lv5的
+
+—— 来自 vivo ...</blockquote>
+感觉ur给的属性还是挺有必要的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  Marseille  
+##### 1017#       发表于 2025-5-1 11:11
+
+金异端我随便自动就过了啊，三个支援两个盾
+
+*****
+
+####  光辉传递者  
+##### 1018#       发表于 2025-5-1 11:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67770361&amp;ptid=2071758" target="_blank">无念 发表于 2025-4-30 19:23</a>
+
+攻击力和攻击范围都比较捉鸡，围住拼输出就好
+
+和红高达正好相反，过了红高达的没道理打不过金异端吧不过 ...</blockquote>
+我红高倒是过了，这边还没仔细研究怎么打……正义的援护围殴保留节目又要上场了？
+
