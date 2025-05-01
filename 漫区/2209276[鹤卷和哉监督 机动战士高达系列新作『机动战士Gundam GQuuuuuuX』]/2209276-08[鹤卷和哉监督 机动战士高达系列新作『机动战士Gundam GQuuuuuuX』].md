@@ -4978,3 +4978,75 @@ comoli设定上还对nt持有怀疑态度
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  zzy516232108  
+##### 10824#       发表于 2025-5-1 11:19
+
+ 本帖最后由 zzy516232108 于 2025-5-1 11:21 编辑 
+
+感觉文戏比打戏好看
+
+2V2对战的分镜特别迷惑，实在看不明白
+
+而且魔女射钩爪抓着红高达，居然是绕着红色高达转圈，物理学不存在了
+
+文戏真不错，魔女人已经结婚了，但是魂永远在一年战争中迷失
+
+然而没明白为什么修司要下死手，也没明白小番茄出场干嘛，被魔女屌了两下以后全程就负责see
+
+2v2打黑拳死人了，博美犬四个人第一反应是赢了，对死人五关心
+
+小番茄说她还有家人，然而一转说我要是做不到这个地步我就无法达到修司的水平
+
+绿大叔是老兵了见怪不贵
+
+所以最惊讶的是首席哥和科莫利姐？
+
+
+*****
+
+####  ryanghj  
+##### 10825#       发表于 2025-5-1 11:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67771599&amp;ptid=2209276" target="_blank">zzy516232108 发表于 2025-5-1 11:19</a>
+感觉文戏比打戏好看
+
+2V2对战的分镜特别迷惑，实在看不明白
+
+而且魔女射钩爪抓着红高达，居然是绕着红色高达 ...</blockquote>
+其实首席哥也在感叹魔女干嘛这么拼命，而不是质疑为啥会死人
+
+0085距离战争才过去5年，人命不像21世纪20年代这么金贵
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  zzy516232108  
+##### 10826#       发表于 2025-5-1 11:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67771613&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-1 11:25</a>
+
+其实首席哥也在感叹魔女干嘛这么拼命，而不是质疑为啥会死人
+
+0085距离战争才过去5年，人命不像21世纪20 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只是感觉打黑拳出人命也太不正常了……
+
+但是想到是2v2黑拳，又感觉正常了
+
+*****
+
+####  aptx8285144  
+##### 10827#       发表于 2025-5-1 11:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67771599&amp;ptid=2209276" target="_blank">zzy516232108 发表于 2025-5-1 11:19</a>
+
+感觉文戏比打戏好看
+
+2V2对战的分镜特别迷惑，实在看不明白
+
+而且魔女射钩爪抓着红高达，居然是绕着红色高达 ...</blockquote>
+因为魔女也一副拼命的样子，修司“心不善”或看破魔女有心病成全她（
+
