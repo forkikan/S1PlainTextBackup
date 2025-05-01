@@ -5720,3 +5720,63 @@ comoli设定上还对nt持有怀疑态度
 
 看B站评论发现这集狗被玛秋的空手骗走注意力和魔女追逐虚无的目标可能构成呼应，台词或许给出了提示（“笨狗”“笨魔女”）。
 
+
+*****
+
+####  psycho_Gadfly  
+##### 10882#       发表于 2025-5-1 21:51
+
+ 本帖最后由 psycho_Gadfly 于 2025-5-1 21:53 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67773112&amp;ptid=2209276" target="_blank">Concrete 发表于 2025-5-1 21:35</a>
+
+修司人家只是有点神神叨叨的。怎么有人把他想的那么坏。。。</blockquote>
+据我观察 X上日语区的攻击性比较小，悼念魔女（还有发涩图梗图）的比较多，还有仔细分析战后PTSD的，整体感觉年龄层比较高（所以果然还是面向姨姥嘛）
+
+英文有不少攻击性挺强的，不知道是不是水魔看的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[叠甲 无意引战 泥水英语区扩圈厉害是事实]
+
+*****
+
+####  ryanghj  
+##### 10883#       发表于 2025-5-1 21:51
+
+这集里面可解读的东西太多了，而且各人有各自的解读角度，这就是整体素质优秀的表现
+
+
+*****
+
+####  ryanghj  
+##### 10884#       发表于 2025-5-1 21:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67772803&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-5-1 20:01</a>
+
+第一集也顺手救了两个女主，修司其实没有一些人形容的这么没人性</blockquote>
+其实我现在在想修司是不是轮回者，突然出现在side6，混战中保护麻球和喵安，引导麻球上机，然后满城画符号和麻球碰面<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">感觉一切都是计划好的，甚至第一集麻球收到的短信也说不定是他发的
+
+<img src="https://img.stage1st.com/forum/202505/01/215514cmeagdev4vrnrrg7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (906.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-1 21:55 上传
+
+*****
+
+####  bonnwang  
+##### 10885#       发表于 2025-5-1 21:55
+
+人妻输在性能
+捅驾驶舱这个
+连黑富野基操也学<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 10886#       发表于 2025-5-1 21:58
+
+会怪牢修下狠手也是因为魔女人设太出彩了吧，要是一个大叔肯定就不会有那么多惋惜的了
+
+顺带，魔女人设很明显更贴近竹的画风，和主角团的画风其实有点差距，应该也是刻意的
+
