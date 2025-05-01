@@ -6221,3 +6221,59 @@ NT不一定 驾驶操作可能是强的<img src="https://static.stage1st.com/ima
 
 2025-5-1 23:37 上传
 
+
+*****
+
+####  岸浪白野  
+##### 10923#       发表于 2025-5-1 23:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67773436&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-1 23:37</a>
+
+@michirushiduki</blockquote>
+我前面就发过了
+
+*****
+
+####  变老的大二  
+##### 10924#       发表于 2025-5-1 23:39
+
+<blockquote>kazz 发表于 2025-5-1 23:36
+本来以为军团战就是闹着玩的，结果给人捅死了……</blockquote>
+最违和的是番茄的高中就是把本子高中硬塞进去。
+
+让所有人觉得这是一个正常和平的环境，结果捅死人了所有人都见怪不怪就很违和了。
+
+*****
+
+####  朋友费小号  
+##### 10925#       发表于 2025-5-1 23:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67773429&amp;ptid=2209276" target="_blank">kazz 发表于 2025-5-1 23:36</a>
+
+本来以为军团战就是闹着玩的，结果给人捅死了……</blockquote>
+我其实真挺不理解这种“闹着玩，不死人”的想法的。
+
+UC的MS基本都是核炉的，就算只砍头（监视器）也是存在殉爆可能性的，而且第一集/剧场版就说了“军团战是会死人的”并且劝玛秋别去，然后这一集博美犬那帮子人看直播的第一反应也是“赢了！”，而不是打死人了。
+
+打黑拳是闹着玩不死人这个念想到底是哪延伸的？难道是看水魔看的？<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 10926#       发表于 2025-5-1 23:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67773283&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-1 22:31</a>
+
+newtype的访谈就已经再谈过一遍修司的真实了</blockquote>
+这集最后聊天室里修司直接说的是“我（僕）的愿望只有一个”，而没有加上“高达说的”，说明即使高达有指示也应该是为了修司完成愿望的建议
+
+ChatGundam？
+
+
+*****
+
+####  Keiji  
+##### 10927#       发表于 2025-5-1 23:47
+
+训狗那里看了好多遍，谁懂<img src="https://static.stage1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
+
