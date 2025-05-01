@@ -296,3 +296,42 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">好羡慕你们轻松就能抽到五星 我又一次打水漂了
 
+
+*****
+
+####  alucardcz  
+##### 16569#       发表于 2025-5-1 07:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67771231&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-5-1 07:15</a>
+
+好羡慕你们轻松就能抽到五星 我又一次打水漂了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">又尬黑 萌新刚刚丢了10张护符无事发生
+
+*****
+
+####  qixinno2  
+##### 16570#       发表于 2025-5-1 08:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67771262&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-5-1 07:58</a>
+
+又尬黑 萌新刚刚丢了10张护符无事发生</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">才十呼符 我可是梭哈了所有的石头和呼符
+
+*****
+
+####  angelooo  
+##### 16571#       发表于 2025-5-1 09:01
+
+<blockquote>森兰丸 发表于 2025-5-1 05:35
+看了主线剧情我第一次有了想把刚抽到的五星给撕了的冲动
+
+这什么SB法官SB法庭 ...</blockquote>
+这个法庭设定确实很傻逼，我就想问一句凭什么
+
+*****
+
+####  qixinno2  
+##### 16572#       发表于 2025-5-1 09:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这剧情战的加拉哈德也太恶心了 
+
