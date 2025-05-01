@@ -5496,3 +5496,50 @@ comoli设定上还对nt持有怀疑态度
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第一集那个我感觉不太科学，红高浮游炮那么近真不会把人吹飞了吗
 
+
+*****
+
+####  az一串字母  
+##### 10868#       发表于 2025-5-1 20:08
+
+只能说以牢修的驾驶水平，平常军团战都是让麻球收人头真是温柔啊，下集还要带个新妹妹上分，好忙碌。什么时候带首席哥，夏利亚上上分
+
+*****
+
+####  Toby_dak  
+##### 10869#       发表于 2025-5-1 20:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67772783&amp;ptid=2209276" target="_blank">woui003woui 发表于 2025-5-1 20:54</a>
+
+重新看了一下这集逗狗的作画，做这么好对比后面的机战感觉很幽默</blockquote>
+
+<img src="https://img.stage1st.com/forum/202505/01/210752xuybfb8z7ilt9444.jpg" referrerpolicy="no-referrer">
+
+<strong>[New-raws] Kidou Senshi Gundam GQuuuuuuX - 04 [1080p] [AMZN].mkv_snapshot_12.20.106.jpg</strong> (271.98 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-1 20:07 上传
+
+麻球顺手就把人家昵称搞成バカ犬<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  型月神话伊阿宋  
+##### 10870#       发表于 2025-5-1 20:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67772821&amp;ptid=2209276" target="_blank">az一串字母 发表于 2025-5-1 20:08</a>
+
+只能说以牢修的驾驶水平，平常军团战都是让麻球收人头真是温柔啊，下集还要带个新妹妹上分，好忙碌。什么时 ...</blockquote>
+下一话要打黑色双子星，修斯不一定能赢吧
+
+
+*****
+
+####  Geyorkias  
+##### 10871#       发表于 2025-5-1 20:14
+
+第一话还特意借首席哥之口讲红高达不算无法无天，还蛮“守规矩”的，说实话都掰扯的够碎的了，已经是生怕你看不懂了。
+
+当时还有人说是不是你鸭子叔叔代打，我只能说要真是你这个79年的鸭子叔叔代打的话第一话一真一假俩JK都得让BIT烤熟咯。
+
