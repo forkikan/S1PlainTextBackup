@@ -4894,3 +4894,20 @@ https://bandai-hobby.net/item/01_5932/
 
 —— 来自 samsung SM-S9110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  暗黑能乐  
+##### 10816#       发表于 2025-5-1 10:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我其实有点怀疑制作组有考虑到这点吗。。如果水这么贵，学校还有这个钱搞泳池吗
+
+*****
+
+####  天邪鬼  
+##### 10817#       发表于 2025-5-1 10:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67771414&amp;ptid=2209276" target="_blank">新人马甲2 发表于 2025-5-1 09:58</a>
+另外这一话小森也听到了啦啦声，夏利亚这条船上该不会全是NT吧？</blockquote>
+宇宙居民就容易出nt，再加上夏利亚可能还有夏亚之前新人类部队的建制，发现新人类第一时间送过去也不是不可能
+

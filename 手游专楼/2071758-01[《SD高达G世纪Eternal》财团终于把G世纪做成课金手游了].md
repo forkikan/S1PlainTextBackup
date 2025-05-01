@@ -10632,3 +10632,11 @@ SR的大招是特殊伤害
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  saber614  
+##### 1011#       发表于 2025-5-1 10:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">新的ssr驾驶员厉害嘛？
+
