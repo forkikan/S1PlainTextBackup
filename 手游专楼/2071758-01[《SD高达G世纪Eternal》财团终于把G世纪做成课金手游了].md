@@ -10879,3 +10879,14 @@ SEED新剧情竟然做了将近20分钟的动画，希望这种资源的投入�
 
 我发现这次限定都有毒，拉克丝加血不加en差评，强袭自由机师缺en严重
 
+
+*****
+
+####  马桶3  
+##### 1035#       发表于 2025-5-1 22:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67773053&amp;ptid=2071758" target="_blank">KTD 发表于 2025-5-1 21:13</a>
+
+我发现这次限定都有毒，拉克丝加血不加en差评，强袭自由机师缺en严重</blockquote>
+二队带回EN船就行，回复buff范围内1队和2队都能生效，我体感高难也用不上两次EN回复
+
