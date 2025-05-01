@@ -6551,3 +6551,14 @@ ChatGundam？
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  gamedreamer  
+##### 10953#       发表于 2025-5-2 06:50
+
+要是喵安也是天才机师是不是对吉翁王牌太残忍了
+世界线干没了一个阿姆罗给他们送来了更多的王牌是吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
