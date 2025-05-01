@@ -1464,3 +1464,21 @@ B站没和谐啊
 第四集看反应视频笑死</blockquote>
 主要还是冲击的最后吧
 
+
+*****
+
+####  新HGCG  
+##### 144#       发表于 2025-5-1 19:00
+
+又是中日英名字不一样
+
+英文版是什么名字？正片字幕不全看不到……
+
+<img src="https://img.stage1st.com/forum/202505/01/190038brjgdkhjn2dbdjqp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (100.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-1 19:00 上传
+
