@@ -10871,3 +10871,11 @@ SEED新剧情竟然做了将近20分钟的动画，希望这种资源的投入�
 
 普通和困难也有隐藏，打完有200钻<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KTD  
+##### 1034#       发表于 2025-5-1 21:13
+
+我发现这次限定都有毒，拉克丝加血不加en差评，强袭自由机师缺en严重
+
