@@ -5332,3 +5332,14 @@ comoli设定上还对nt持有怀疑态度
 —— 来自 鹅球 v3.3.96 ...</blockquote>
 这里其实很有意思的一点是修司虽然说了自己只有一个愿望，别无所求，但是依然在保护麻球，难道麻球是实现他的愿望的很重要的一环？
 
+
+*****
+
+####  wasssf  
+##### 10853#       发表于 2025-5-1 17:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67772101&amp;ptid=2209276" target="_blank">CSWQ 发表于 2025-5-1 15:08</a>
+
+福井和哈萨维同样是粉丝向的？谁的粉丝？</blockquote>
+富野和uc系列ova的大概
+
