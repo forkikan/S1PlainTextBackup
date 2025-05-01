@@ -6537,3 +6537,17 @@ ChatGundam？
 —— 来自 鹅球 v3.3.96-alpha ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还上了磁气覆膜，这玩意是真的会让关节出问题的
 
+
+*****
+
+####  ryanghj  
+##### 10952#       发表于 2025-5-2 01:58
+
+不出意外的话下集喵安就会说出pv这句话了
+
+<img src="https://p.sda1.dev/23/0b2109b32538082a5d0d5b80fd8b5dfc/image.jpg" referrerpolicy="no-referrer">
+
+那个时候 指的应该就是自己小时候开ms逃命的那次
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
