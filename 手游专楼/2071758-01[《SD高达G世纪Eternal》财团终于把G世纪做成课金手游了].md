@@ -10640,3 +10640,13 @@ SR的大招是特殊伤害
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">新的ssr驾驶员厉害嘛？
 
+
+*****
+
+####  远野乙姬  
+##### 1012#       发表于 2025-5-1 10:34
+
+狗粮和钱也太缺了，是不是刷完9次hard还不如去打红高达
+
+—— 来自 OPPO PKH110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+

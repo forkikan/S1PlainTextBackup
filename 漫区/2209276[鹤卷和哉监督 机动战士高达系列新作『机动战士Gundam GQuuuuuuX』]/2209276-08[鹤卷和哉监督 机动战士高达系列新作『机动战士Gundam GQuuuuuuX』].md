@@ -4930,3 +4930,13 @@ https://bandai-hobby.net/item/01_5932/
 
 0079里有塞拉在战舰上泡浴缸，V高达里有殖民卫星里大姐姐带胡说君泡浴缸，所以我觉得不能凭这点说明gqx或者麻球家如何如何
 
+
+*****
+
+####  Gysumitka  
+##### 10820#       发表于 2025-5-1 10:32
+
+<img src="https://p.sda1.dev/23/efbdcfd1d2a6f8f77baac77dce5a768a/image.jpg" referrerpolicy="no-referrer">
+comoli设定上还对nt持有怀疑态度
+修司现在跟个传道者一样，引渡沉溺在过去nt得到解脱，感召新时代的nt。绿叔叔如果不改变的话也危险了
+
