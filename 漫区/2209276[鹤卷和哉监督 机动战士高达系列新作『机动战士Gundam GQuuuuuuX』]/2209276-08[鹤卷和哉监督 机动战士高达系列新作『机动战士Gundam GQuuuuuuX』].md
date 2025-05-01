@@ -6187,3 +6187,37 @@ NT不一定 驾驶操作可能是强的<img src="https://static.stage1st.com/ima
 那我这里还3种和4种呢</blockquote>
 3种那边参考废品商，应该有合图。
 
+
+*****
+
+####  ryanghj  
+##### 10920#       发表于 2025-5-1 23:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67773408&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-1 23:24</a>
+
+那我这里还3种和4种呢</blockquote>
+三个未公开的谷子，加涅邦的成员是挤在一起的，说明后四个角色有两个是一对的
+
+
+*****
+
+####  kazz  
+##### 10921#       发表于 2025-5-1 23:36
+
+本来以为军团战就是闹着玩的，结果给人捅死了……
+
+*****
+
+####  ryanghj  
+##### 10922#       发表于 2025-5-1 23:37
+
+@michirushiduki
+
+<img src="https://img.stage1st.com/forum/202505/01/233755p4l4269k890o80o6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (146.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-1 23:37 上传
+
