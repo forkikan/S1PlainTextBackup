@@ -4864,3 +4864,33 @@ https://bandai-hobby.net/item/01_5932/
 
 目前还不知道这个关于小王子的意象涉不涉及其他的角色，不过在追寻死亡的这一点上说，魔女是和修司成对照效果的一个角色，所以才只在这一话登场就死亡，因为魔女是个为了一个和死亡强烈相关的执著，抛弃现世的幸福生活去寻求死亡的角色，但修司对死亡究竟是什么态度，还得看后面的剧情怎么介绍了
 
+
+*****
+
+####  新人马甲2  
+##### 10813#       发表于 2025-5-1 09:58
+
+另外这一话小森也听到了啦啦声，夏利亚这条船上该不会全是NT吧？
+
+*****
+
+####  暗黑能乐  
+##### 10814#       发表于 2025-5-1 09:59
+
+<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">魔女的东西你觉得好那是因为他确实要表达很多东西，但是全都糅杂在一集里给你呈现了，有好处有坏处吧，好处就是让你觉得能解读的东西很多，但是坏处就是各种感情衔接处理就不够细腻，很多细节过度啥的需要靠观众自己脑补，某些地方突然转折很生硬。
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然，如果非说这种生硬转折是UC特色那我也没话说
+
+*****
+
+####  stmule  
+##### 10815#       发表于 2025-5-1 10:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67769840&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-4-30 16:16</a>
+母亲是能接触最高层的体制内。
+
+水资源紧张的殖民卫星，洗澡用的是浴缸泡浴而不是花洒淋浴。上个洗泡浴的U ...</blockquote>
+对哦，卡缪和花这种住高档住宅区的都是淋浴<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

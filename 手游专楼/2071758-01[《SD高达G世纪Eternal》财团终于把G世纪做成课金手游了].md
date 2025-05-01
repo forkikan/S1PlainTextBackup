@@ -10564,3 +10564,71 @@ seed这新剧情作画真不行
 
 略过只有战利品没有经验值 有时间肝还是正常打多加点练度好
 
+
+*****
+
+####  kulanyee  
+##### 1005#       发表于 2025-5-1 09:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">3000石怎么还没发，我还等着赌上职业生涯的十连
+
+*****
+
+####  blue321  
+##### 1006#       发表于 2025-5-1 09:56
+
+还是没搞懂输出机要怎么拉伤害，sr的满突90级自由+60的技师，4级的技能打金异端没超过3万…
+是我随便拉的sr技师拉还是没ex的机输出就是差不多这样了？
+exia和沙扎比的ex倒是随便就上5-6万往上<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  一个陆仁贾  
+##### 1007#       发表于 2025-5-1 09:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67771320&amp;ptid=2071758" target="_blank">ChrisSnake 发表于 2025-5-1 08:41</a>
+打不过基本是练度不足 或者队伍不行
+
+红高来袭我15w手控过 19w自动过</blockquote>
+是说门票本还是boss本？boss本我手刷也没经验值呢
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  一个陆仁贾  
+##### 1008#       发表于 2025-5-1 10:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67771411&amp;ptid=2071758" target="_blank">blue321 发表于 2025-5-1 09:56</a>
+还是没搞懂输出机要怎么拉伤害，sr的满突90级自由+60的技师，4级的技能打金异端没超过3万…
+是我随便拉的sr ...</blockquote>
+我sp的sr自由满级加45的ur基拉放全部射击就有3万以上伤害了，全部射击那招我是升到lv5的
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  hayate0079  
+##### 1009#       发表于 2025-5-1 10:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67771411&amp;ptid=2071758" target="_blank">blue321 发表于 2025-5-1 09:56</a>
+
+还是没搞懂输出机要怎么拉伤害，sr的满突90级自由+60的技师，4级的技能打金异端没超过3万…
+
+是我随便拉的sr ...</blockquote>
+SR的大招是特殊伤害
+
+那么就是打前要给他上破防和特殊增伤
+
+*****
+
+####  一个陆仁贾  
+##### 1010#       发表于 2025-5-1 10:03
+
+这副本不知道为什么Gqux打金异端只有一两万伤害，该上的debuff都上了，难道是没ex技能吃亏
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
