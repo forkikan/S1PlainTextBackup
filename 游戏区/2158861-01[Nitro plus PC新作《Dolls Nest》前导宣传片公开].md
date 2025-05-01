@@ -1813,3 +1813,13 @@ baldr系列那种本来就是act的除外
 
 —— 来自 OnePlus PJZ110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  ParadiseMartyr  
+##### 174#       发表于 2025-5-1 13:24
+
+下层的那个电浆炮四足怎么打啊，近身直接秒了我
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
