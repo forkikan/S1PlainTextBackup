@@ -1659,3 +1659,27 @@ b站热搜挂了一晚上了可惜看来真推不出去<img src="https://static.
 
 在最后阶段加入链锯，这里的安排十分高效，让人物躲进备品仓库，这样就不需要专门解释链锯怎么来的，而且后面割取沙虫肉的时候也节省了寻找工具的麻烦，拍手称赞。
 
+
+*****
+
+####  TOYSTORY  
+##### 157#       发表于 2025-5-1 22:48
+
+ 本帖最后由 TOYSTORY 于 2025-5-1 22:50 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768421&amp;ptid=2196984" target="_blank">NBXX 发表于 2025-4-30 09:20</a>
+[https://bangumi.tv/ep/1465152](https://bangumi.tv/ep/1465152)</blockquote>
+
+<img src="https://img.stage1st.com/forum/202505/01/225003ai46d4f7ionwdf8f.png" referrerpolicy="no-referrer">
+
+<strong>3awc24.png</strong> (3.66 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-1 22:50 上传
+
+虽然文字模糊化处理了，但右上角和右下角写的就是沙虫（サンドワーム）和蒙古死亡蠕虫（モンゴリアンデスワーム）
+
+根本没打算藏了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过另外怪物几个看不清名字是啥
+
