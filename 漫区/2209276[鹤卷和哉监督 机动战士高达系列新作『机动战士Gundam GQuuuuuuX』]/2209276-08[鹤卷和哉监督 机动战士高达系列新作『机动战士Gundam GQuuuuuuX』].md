@@ -5361,3 +5361,54 @@ comoli设定上还对nt持有怀疑态度
 
 说起来现在现在是不是还没有提过夏利亚来side6（或者说周边）的原因？
 
+
+*****
+
+####  xwz  
+##### 10856#       发表于 2025-5-1 18:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67772599&amp;ptid=2209276" target="_blank">恋叶梦境 发表于 2025-5-1 18:30</a>
+
+说起来现在现在是不是还没有提过夏利亚来side6（或者说周边）的原因？</blockquote>
+就是听说了红高达的消息才来的吧
+
+*****
+
+####  Geyorkias  
+##### 10857#       发表于 2025-5-1 18:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">第一话不就说了他是追着红高达来的
+
+*****
+
+####  YU_JI  
+##### 10858#       发表于 2025-5-1 18:39
+
+<blockquote>恋叶梦境 发表于 2025-5-1 18:30
+说起来现在现在是不是还没有提过夏利亚来side6（或者说周边）的原因？</blockquote>
+找红高啊，夏利亚这次带着木马和GQX出来就是冲着红高来的，side6附近有消息所以他们过来了
+
+*****
+
+####  Toby_dak  
+##### 10859#       发表于 2025-5-1 18:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67772599&amp;ptid=2209276" target="_blank">恋叶梦境 发表于 2025-5-1 19:30</a>
+
+说起来现在现在是不是还没有提过夏利亚来side6（或者说周边）的原因？</blockquote>
+一年战争后自护有在各SIDE调查红高出没的优先权，这次也是因为这原因才来SIDE6的。
+
+
+*****
+
+####  psycho_Gadfly  
+##### 10860#       发表于 2025-5-1 18:42
+
+看到不少因为这话贷款牢修变BOSS的，骂残忍的。。。英文X（圣母刻板印象 +1
+
+日文的倒是玩梗的多，可能都比较了解UC尿性？
+
+个人倒觉得现阶段这种程度远远不够黑 甚至可能才刚开始<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+结合那个男鬼图 唯一的愿望该不会是超度（物理）所有被战争束缚的NT吧
+
