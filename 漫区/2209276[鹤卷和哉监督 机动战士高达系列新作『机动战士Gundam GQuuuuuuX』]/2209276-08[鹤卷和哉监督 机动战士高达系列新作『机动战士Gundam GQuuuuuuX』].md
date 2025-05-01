@@ -5859,3 +5859,71 @@ comoli设定上还对nt持有怀疑态度
 其实修司和魔女也是对位角色啊，都是平时性格温顺的人，到了动真格的时候毫不留情的 ...</blockquote>
 重点是魔女有仇，知道消息就过来了，那人是能动的。修斯是听高达的每天撞大运就能心想事成，谁想抓我就杀人。那就成邪教图了
 
+
+*****
+
+####  刺客ares  
+##### 10895#       发表于 2025-5-1 22:21
+
+我现在有个强烈的预感
+
+喵安上机比玛秋强，而且是全面上位，NT力和驾驶操作都更强那种
+
+只有这样才能接上玛秋逃入雨中+抱着哈啰自闭
+
+*****
+
+####  变老的大二  
+##### 10896#       发表于 2025-5-1 22:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67772834&amp;ptid=2209276" target="_blank">Geyorkias 发表于 2025-5-1 20:14</a>
+
+第一话还特意借首席哥之口讲红高达不算无法无天，还蛮“守规矩”的，说实话都掰扯的够碎的了，已经是生怕你 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过这个时间线的79鸭明显心平气和了很多，原版那个小心眼不会放过卡尔玛，更不会和夏利亚合作的。
+
+*****
+
+####  ryanghj  
+##### 10897#       发表于 2025-5-1 22:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67773247&amp;ptid=2209276" target="_blank">hsyg 发表于 2025-5-1 22:16</a>
+
+重点是魔女有仇，知道消息就过来了，那人是能动的。修斯是听高达的每天撞大运就能心想事成，谁想抓我就杀 ...</blockquote>
+这就要看是不是真的“高达说的了”
+
+土屋弟访谈里有一句话非常有趣：
+
+<img src="https://img.stage1st.com/forum/202505/01/222218hnnj5bncn6o6axny.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (852.74 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-1 22:22 上传
+
+“虽然他的言语听起来特别，但对他来说那是发自内心的真实，在他看来那是理所当然的事。”
+
+
+*****
+
+####  ryanghj  
+##### 10898#       发表于 2025-5-1 22:27
+
+安琪是联邦军的话，会不会是玛蒂尔达中尉？
+
+<img src="https://img.stage1st.com/forum/202505/01/222521i82vztsl83bfysy0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (28.44 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-1 22:25 上传
+
+<img src="https://img.stage1st.com/forum/202505/01/222615uzz3wfvmo2mlafl3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (172.82 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-1 22:26 上传
+
