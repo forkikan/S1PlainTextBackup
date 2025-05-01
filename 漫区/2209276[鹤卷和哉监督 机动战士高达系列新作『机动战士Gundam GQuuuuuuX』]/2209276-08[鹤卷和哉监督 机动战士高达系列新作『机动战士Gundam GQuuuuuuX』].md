@@ -5115,3 +5115,11 @@ comoli设定上还对nt持有怀疑态度
 
 这倒不是问题，上一集就提过番茄上的是贵族女校，有游泳池是合乎设定的。
 
+
+*****
+
+####  Geyorkias  
+##### 10834#       发表于 2025-5-1 12:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能认为第四话魔女没有塑造死的莫名其妙的人可以不用看这片了，这片的信息量不是你能承受的
+
