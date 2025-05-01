@@ -1017,3 +1017,15 @@ CG制作：GAZEN
 
 这是ova还是tv一样的篇幅吗
 
+
+*****
+
+####  褪色的雪花  
+##### 90#       发表于 2025-5-2 02:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67773373&amp;ptid=2155067" target="_blank">aptx8285144 发表于 2025-5-1 23:13</a>
+这是ova还是tv一样的篇幅吗</blockquote>
+新作tv 
+
+—— 来自 Xiaomi 2410DPN6CC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
