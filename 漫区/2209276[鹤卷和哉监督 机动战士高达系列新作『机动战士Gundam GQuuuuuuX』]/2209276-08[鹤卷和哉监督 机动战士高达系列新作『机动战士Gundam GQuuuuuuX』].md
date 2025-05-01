@@ -6484,3 +6484,29 @@ ChatGundam？
 
 这个科技水平，高达还不能无人模式出门逛一圈吗。
 
+
+*****
+
+####  galgamesh11  
+##### 10948#       发表于 2025-5-2 01:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67773606&amp;ptid=2209276" target="_blank">璇瑢子R 发表于 2025-5-2 00:59</a>
+就避免缺席罚款问题。
+
+这个科技水平，高达还不能无人模式出门逛一圈吗。</blockquote>
+很简单，赛事方搞这种条款就是用来创收的，驾驶舱里有没有人都确认不了那就太搞笑了
+
+
+*****
+
+####  zzf111  
+##### 10949#       发表于 2025-5-2 01:14
+
+玛蒂尔达那么正能量的军官发生了什么才会变成gux黑拳垃圾商大姐头安琪的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+（而且前面首席红高打架军警镇压波及难民那里安琪的视点明显偏向宇宙居民）
+
+第四话一年战争和吉翁独立战争的描述说法有点牵强，但是安琪看直播的时候叫魔女志子不是姓挺亲近的
+
+离过婚这个点现在看确实是个线索<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 越看越像
+
