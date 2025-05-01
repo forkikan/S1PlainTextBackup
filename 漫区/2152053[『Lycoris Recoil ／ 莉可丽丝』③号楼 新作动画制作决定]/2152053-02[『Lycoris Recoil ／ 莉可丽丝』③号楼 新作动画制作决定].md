@@ -1223,3 +1223,11 @@ b怎么没更，审核没过是吧
 [https://x.com/ama_ekaku/status/1917564317005930933](https://x.com/ama_ekaku/status/1917564317005930933)
 <img src="https://p.sda1.dev/23/3b5520831ab29e35f444b3e697444635/20250501_165434.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  osore  
+##### 2275#       发表于 2025-5-1 17:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">胡桃第一集和本集都是只有声音没有出镜
+
