@@ -319,3 +319,13 @@
 
 德龙算不上最浪费资源，如果说以数字为本看谁浪费资源的话，其实绿仙开live才是最浪费的，不过由于绿仙曾经贡献了无数好活，直到现在我也是黑不起来的。
 
+
+*****
+
+####  karastar  
+##### 1096#       发表于 2025-5-1 10:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67771410&amp;ptid=2171972" target="_blank">aritaatsu222 发表于 2025-5-1 09:56</a>
+说到底爆米看gachi这个思路早就不存在了，跑了几次线下见点yhm就能感觉到，虹男在yhm眼里其实更接近泡泡玛 ...</blockquote>
+感觉和流量明星的粉丝生态很像
+

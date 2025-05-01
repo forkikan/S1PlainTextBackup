@@ -4940,3 +4940,14 @@ https://bandai-hobby.net/item/01_5932/
 comoli设定上还对nt持有怀疑态度
 修司现在跟个传道者一样，引渡沉溺在过去nt得到解脱，感召新时代的nt。绿叔叔如果不改变的话也危险了
 
+
+*****
+
+####  灵魂收割机  
+##### 10821#       发表于 2025-5-1 10:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67771414&amp;ptid=2209276" target="_blank">新人马甲2 发表于 2025-5-1 09:58</a>
+
+另外这一话小森也听到了啦啦声，夏利亚这条船上该不会全是NT吧？</blockquote>
+那个画面左边的人看上去都是NT，右边的人就没啥反应。
+
