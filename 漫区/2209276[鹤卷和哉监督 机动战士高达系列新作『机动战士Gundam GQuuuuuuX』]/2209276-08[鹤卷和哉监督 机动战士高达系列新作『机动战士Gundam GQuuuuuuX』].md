@@ -6094,3 +6094,19 @@ NT不一定 驾驶操作可能是强的<img src="https://static.stage1st.com/ima
 
 变成一个哈姆雷特式的复杂人物了。虽然0079就是个容易上头的小心眼帅哥<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  灵魂收割机  
+##### 10913#       发表于 2025-5-1 23:07
+
+<img src="https://img.stage1st.com/forum/202505/01/225520efpmafmaascf0ffs.jpg" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2025-05-01 225246.jpg</strong> (60.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-1 22:55 上传
+
+军团战排行，第七名四蛇眼是主角组第一场军团战的对手，第六名胖搭档在第四集开头被玛秋一穿二了，第五名博美犬，第四名CRS是第四集的主要对手，第三名二连星不用多说，前两名不明。
+
