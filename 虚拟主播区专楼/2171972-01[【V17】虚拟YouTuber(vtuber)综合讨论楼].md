@@ -380,3 +380,19 @@ ike怎么突然就爆了
 
 名义毕业实则开除吧
 
+
+*****
+
+####  渡鸦骑士  
+##### 1103#       发表于 2025-5-1 19:58
+
+原来如此，这是我版本没更新了。
+不过照这么说……虹的竞争对手岂不是旧杰尼斯那些人嘛<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+*****
+
+####  渡鸦骑士  
+##### 1104#       发表于 2025-5-1 19:59
+
+好像还没到那份上<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

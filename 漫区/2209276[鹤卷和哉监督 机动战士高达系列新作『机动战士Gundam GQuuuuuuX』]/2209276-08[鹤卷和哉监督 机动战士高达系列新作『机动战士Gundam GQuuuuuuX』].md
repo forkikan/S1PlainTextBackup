@@ -5452,3 +5452,47 @@ comoli设定上还对nt持有怀疑态度
 
 重新看了一下这集逗狗的作画，做这么好对比后面的机战感觉很幽默<img src="https://static.stage1st.com/image/smiley/bundam2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Toby_dak  
+##### 10865#       发表于 2025-5-1 20:01
+
+<img src="https://img.stage1st.com/forum/202505/01/205607gmju9jim1m9lchim.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (25.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-1 19:56 上传
+
+<img src="https://img.stage1st.com/forum/202505/01/205641ckpuvlsgxmsdn5vz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (30.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-1 19:56 上传
+
+别说英文观众了，国内没看过光头子供向动画的年一高、年二高也是没做对阅读理解。
+
+至于日本的reaction，懂日文的推荐看梶田光头的实况。
+[【ジークアクス】マフィア梶田が機動戦士Gundam GQuuuuuuX 第4話を考察して早口になる！ - YouTube](https://www.youtube.com/watch?v=Gzzz7gxfguk)
+
+*****
+
+####  Sliurus  
+##### 10866#       发表于 2025-5-1 20:01
+
+<blockquote>az一串字母 发表于 2025-5-1 18:09
+怀疑比起保护麻球，更像是在保护欧米伽赛克谬</blockquote>
+第一集也顺手救了两个女主，修司其实没有一些人形容的这么没人性
+
+
+*****
+
+####  暗黑能乐  
+##### 10867#       发表于 2025-5-1 20:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第一集那个我感觉不太科学，红高浮游炮那么近真不会把人吹飞了吗
+
