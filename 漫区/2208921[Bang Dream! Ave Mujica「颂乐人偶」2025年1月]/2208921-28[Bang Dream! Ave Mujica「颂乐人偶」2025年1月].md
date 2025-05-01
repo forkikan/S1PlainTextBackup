@@ -7362,3 +7362,27 @@ Diggy：アニメが来年に控えているので。
 
 所以算是明确了？这样的话应该是接在pico之后了，26年7月or10月番？
 
+
+*****
+
+####  堀内爱里衣  
+##### 40762#       发表于 2025-5-1 21:32
+
+ 本帖最后由 堀内爱里衣 于 2025-5-1 21:36 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67773082&amp;ptid=2208921" target="_blank">路人庚 发表于 2025-5-1 21:27</a>
+
+Diggy：アニメが来年に控えているので。
+
+所以算是明确了？这样的话应该是接在pico之后了，26年7月or10月番 ...</blockquote>
+请注意一下文章的发布日期<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.stage1st.com/forum/202505/01/213050ssbh1jloplssp6os.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-05-01_21-30-34.jpg</strong> (6.4 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-1 21:30 上传
+
+简单翻了一下两栋专楼，没找到这篇文章搬运（可能看漏了），所以发一下
+

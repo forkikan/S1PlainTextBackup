@@ -5591,3 +5591,78 @@ comoli设定上还对nt持有怀疑态度
 
 红高达这瞬移好像OO 高达的三红啊 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 10877#       发表于 2025-5-1 21:34
+
+ 本帖最后由 岸浪白野 于 2025-5-1 21:37 编辑 
+
+[X 上的 ニッケル：“1日1ｻﾞﾍﾞ ？](https://x.com/uiuxop/status/1917651179766702327)[https://t.co/Lyfm0CgBGp](https://t.co/Lyfm0CgBGp)” / X
+
+<img src="https://img.stage1st.com/forum/202505/01/213312xpndpwsssjzkndpa.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.71 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-1 21:33 上传
+
+[X 上的 スミカ：“見たー！とりあえず予告の感想。とつよつよマチュと勝てないエグザベくん](https://x.com/rsuhima/status/1917531354142760979)[https://t.co/nwTzBWL1sN](https://t.co/nwTzBWL1sN)” / X
+
+<img src="https://img.stage1st.com/forum/202505/01/213341f315qqe8l1q51e88.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.27 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-1 21:33 上传
+
+[X 上的 ふにゃ：“来週のジークアクス 女子高生をロッカーに連れ込んだ罪でまた豚箱に入れられるシーン、楽しみすぎるだろ](https://x.com/nekokaitasugida/status/1917530366333837334)[https://t.co/7Y0KDjUlvk](https://t.co/7Y0KDjUlvk)” / X
+
+<img src="https://img.stage1st.com/forum/202505/01/213400s5mypamjmbu7iyjp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (927.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-1 21:34 上传
+
+[X 上的 JAZZ JACK：“シイコ・スガイ #GQuuuuuuX #ジークアクス [url]https://t.co/8H2MMlT7Ta](https://x.com/JAZZ_JACK_/status/1917665931343585729)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/01/213626s2kz1qv9mkf2mqmm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (633.54 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-1 21:36 上传
+
+[X 上的 肉ネーム：“[url]https://t.co/SxHHTgz1NU](https://x.com/mn38ka/status/1917611492989640834)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/01/213546b9x0xh90ipcixh0p.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.41 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-1 21:35 上传
+
+[X 上的 しづきみちる：“地球連邦軍エースパイロット シイコ(0079) #ジークアクス　#シイコ・スガイ [url]https://t.co/uUSkEo5G3C](https://x.com/michirushiduki/status/1917884773357461589)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/01/213735lddijfh3yq7jmyo4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.58 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-1 21:37 上传
+
+*****
+
+####  Concrete  
+##### 10878#       发表于 2025-5-1 21:35
+
+修司人家只是有点神神叨叨的。怎么有人把他想的那么坏。。。
+
