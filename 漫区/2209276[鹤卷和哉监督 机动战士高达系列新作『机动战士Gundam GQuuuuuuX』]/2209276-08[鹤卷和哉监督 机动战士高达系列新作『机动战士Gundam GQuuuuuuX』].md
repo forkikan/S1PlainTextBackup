@@ -6432,3 +6432,24 @@ ChatGundam？
 
 女同学的的下场顶多戒戒你好，而玛秋搞不好非死即疯啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gammatau  
+##### 10943#       发表于 2025-5-2 00:49
+
+但原话说的是高达要去找玫瑰，高达才是小王子吗？
+
+小王子的身体被留在地上了……可能修司这样的NT会是穿越星间的灵魂？
+
+*****
+
+####  璇瑢子R  
+##### 10944#       发表于 2025-5-2 00:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67773563&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-2 00:32</a>
+红高这种五年前的古董机，索顿真的有整修能力吗）GQX也是，这次也是夏利亚借出来的，整修能力如何还真不 ...</blockquote>
+加上只有一季，所以没有换主角机的可能性。也就限定了主角在战斗中吃不了太大的憋
+
+想想也挺无聊的
+
