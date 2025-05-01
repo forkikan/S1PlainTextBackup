@@ -1624,3 +1624,16 @@ b站热搜挂了一晚上了可惜看来真推不出去<img src="https://static.
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  aptx8285144  
+##### 154#       发表于 2025-5-1 12:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67768197&amp;ptid=2196984" target="_blank">KDConan 发表于 2025-4-30 07:06</a>
+
+末日后酒店必不会翻车
+
+哎等等，骆驼不能吃么？</blockquote>
+一开始没计划对付骆驼，而后来骆驼应该被沙虫吃得差不多了（
+
