@@ -10490,3 +10490,18 @@ ex难度打不过啊，debuff上满了都打不动，输出机体不够</blockqu
 
 50连下去，1个独角兽1个nt1个正义<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  arthes  
+##### 999#       发表于 2025-5-1 08:02
+
+看到下载资料，然后是塞拉的限定确定演出，想着最强最帅稳了，结果来了个拉妖二番舰，<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">看了下才发现怎么拉妖原来也是限定啊，而且还要300pt才能换，虽然赚了但是我想要最强最帅啊
+
+*****
+
+####  qixinno2  
+##### 1000#       发表于 2025-5-1 08:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">梭哈了 强自+1
+
