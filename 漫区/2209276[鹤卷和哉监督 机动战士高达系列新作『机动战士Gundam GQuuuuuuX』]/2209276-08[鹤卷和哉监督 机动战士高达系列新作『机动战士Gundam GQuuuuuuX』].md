@@ -6424,3 +6424,11 @@ ChatGundam？
 
 修司这个角色本身也有很强的死亡意象，就算说他是死过一次才变成这样的也完全不奇怪
 
+
+*****
+
+####  ヒトニナル  
+##### 10942#       发表于 2025-5-2 00:37
+
+女同学的的下场顶多戒戒你好，而玛秋搞不好非死即疯啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
