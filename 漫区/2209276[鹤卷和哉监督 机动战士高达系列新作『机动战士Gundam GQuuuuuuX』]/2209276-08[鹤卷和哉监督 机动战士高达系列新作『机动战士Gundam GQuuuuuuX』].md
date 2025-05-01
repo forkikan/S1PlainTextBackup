@@ -6302,3 +6302,35 @@ ChatGundam？
 
 到底是什么成见让大家的阅读理解能这么神奇的不同，还能觉得死人很奇怪和觉得违和<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  希望之异热同心  
+##### 10931#       发表于 2025-5-2 00:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67773276&amp;ptid=2209276" target="_blank">变老的大二 发表于 2025-5-1 22:29</a>
+
+不过说起来，第四集给人的感觉就是，你把这一集删掉，对主线也没什么影响
+
+透露出来的东西就是拉拉音，和木 ...</blockquote>
+怎么可能，主角成长需要遇上挫折，而这一集就是挫折的开始，上半集麻球还在开心的对着憧憬的人喊着“一定要去地球”，下半集就是要接近非日常需要这样的觉悟，让麻球意识到了自己有多半吊子，她和她憧憬的人之间有着多大的差距，为之后的成长打下心理基础。还给观众展示NT的能力，参与了战争的NT是什么现状，这绝对是承上启下的一集好吧
+
+*****
+
+####  灵魂收割机  
+##### 10932#       发表于 2025-5-2 00:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67773441&amp;ptid=2209276" target="_blank">变老的大二 发表于 2025-5-1 23:39</a>
+
+最违和的是番茄的高中就是把本子高中硬塞进去。
+
+让所有人觉得这是一个正常和平的环境，结果捅死人了所有 ...</blockquote>
+这集观战的所有人都是军团战相关人士/吉翁军人，军团战相关人士当然见怪不怪，吉翁军人这边你最起码看得到首席哥的错愕吧。
+
+*****
+
+####  希望之异热同心  
+##### 10933#       发表于 2025-5-2 00:03
+
+接我想起如果不是修斯一掌番茄就熟了，这把军团战打完之后夏利亚可能来硬的也要把高达收回来了，保不准后面高达直接军团战被打炸了那就全员完球了！<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
