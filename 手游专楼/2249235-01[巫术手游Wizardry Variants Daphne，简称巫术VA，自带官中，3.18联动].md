@@ -200,3 +200,16 @@
 
 我现在处于一个打独眼巨人需要忍者，上忍者需要打独眼巨人的状态
 
+
+*****
+
+####  elven119  
+##### 286#       发表于 2025-5-1 20:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67772848&amp;ptid=2249235" target="_blank">Flechette 发表于 2025-5-1 20:20</a>
+
+忍者装备是只有独眼巨人的宝箱会出吗
+
+我现在处于一个打独眼巨人需要忍者，上忍者需要打独眼巨人的状态 ...</blockquote>
+忍者不需要输出，就放后排解状态就行了
+
