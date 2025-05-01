@@ -10767,3 +10767,15 @@ SR的大招是特殊伤害
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  silvia  
+##### 1024#       发表于 2025-5-1 14:16
+
+<blockquote>ChrisSnake 发表于 2025-5-1 10:44
+金异端ex我也打不过 打完才打一半血 要打两场才打得死
+
+难道要为了增伤练一堆不想用的机体？ ...</blockquote>
+你放个100级ur跟他对拳就好了，别的围观加点buff
+
