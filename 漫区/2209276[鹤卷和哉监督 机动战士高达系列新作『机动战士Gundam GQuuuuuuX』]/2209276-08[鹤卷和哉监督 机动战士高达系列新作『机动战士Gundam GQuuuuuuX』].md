@@ -5277,3 +5277,11 @@ comoli设定上还对nt持有怀疑态度
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  没取名啊  
+##### 10848#       发表于 2025-5-1 16:47
+
+回看z钢弹正好看到汉布拉比三机编队用带电钩锁连携攻击，感觉真比这个强不少啊<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
