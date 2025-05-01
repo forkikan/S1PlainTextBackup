@@ -4839,3 +4839,14 @@ https://bandai-hobby.net/item/01_5932/
 
 她对NT的看法显然是复杂的，仇视，憧憬共存，这不仅仅是对作为敌人的NT，也是对于自己NT的这一面
 
+
+*****
+
+####  灵魂收割机  
+##### 10811#       发表于 2025-5-1 09:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67771044&amp;ptid=2209276" target="_blank">LOLITA 发表于 2025-5-1 00:43</a>
+
+这黑架哪里地下了，不是只要有心就能看转播么，当地**也不管管啊</blockquote>
+睁一只眼闭一只眼，免得那帮老兵闲来无事惹出别的麻烦。
+
