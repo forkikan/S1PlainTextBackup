@@ -213,3 +213,15 @@
 我现在处于一个打独眼巨人需要忍者，上忍者需要打独眼巨人的状态 ...</blockquote>
 忍者不需要输出，就放后排解状态就行了
 
+
+*****
+
+####  UnknownRei  
+##### 287#       发表于 2025-5-2 03:03
+
+穷逼只能先抽一个玩着了<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+法师确实缺满克己或者像人妻土法转牧师的那一百多血，她这个算上被动，实际血条还会更多一些，生存性不知道跟亚当那个被动比谁更好，不过谭友都抽满克己这么爱了，不如再给她喂几个亚当
+
+光pp慵懒2B脸魔法爽放放完了还有眠炮接着输出的半周年魔女，承蒙款待<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
