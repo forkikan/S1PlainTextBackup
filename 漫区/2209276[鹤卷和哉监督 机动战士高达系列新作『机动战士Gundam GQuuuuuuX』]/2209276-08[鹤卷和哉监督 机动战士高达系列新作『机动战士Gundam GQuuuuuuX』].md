@@ -5666,3 +5666,57 @@ comoli设定上还对nt持有怀疑态度
 
 修司人家只是有点神神叨叨的。怎么有人把他想的那么坏。。。
 
+
+*****
+
+####  岸浪白野  
+##### 10879#       发表于 2025-5-1 21:43
+
+[X 上的 じのう：“もうどうなってもいいや ＃GQuuuuuuX ＃ジークアクス [url]https://t.co/xakYQ4sr3G](https://x.com/Jinou_rakugaki/status/1917910315876204839)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/01/214152nd32lvvoz9khgit9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (541.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-1 21:41 上传
+
+[X 上的 ダオシタカ！：“マチュ #GQuuuuuuX #ジークアクス [url]https://t.co/CAHtUNM2Bs](https://x.com/daoshitaka/status/1917249241359200676)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/01/214227tauifevrkelti4eu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (404.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-1 21:42 上传
+
+[X 上的 山下しゅんや：“マチュ。 [url]https://t.co/5IB6slkwwu](https://x.com/ShunyaYamashita/status/1917777413645496577)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/01/214302gx7y8xjff187fzr9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.11 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-1 21:43 上传
+
+*****
+
+####  灵魂收割机  
+##### 10880#       发表于 2025-5-1 21:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67772907&amp;ptid=2209276" target="_blank">yanghuangu 发表于 2025-5-1 20:38</a>
+
+话说这个IF是不是吉翁在地球还有很多占领地啊，毕竟正史里都有那么多残党了 ...</blockquote>
+没有大片的地盘，不知道有没有残党巢穴。
+
+
+*****
+
+####  灵魂收割机  
+##### 10881#       发表于 2025-5-1 21:47
+
+看B站评论发现这集狗被玛秋的空手骗走注意力和魔女追逐虚无的目标可能构成呼应，台词或许给出了提示（“笨狗”“笨魔女”）。
+

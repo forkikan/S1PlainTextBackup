@@ -7386,3 +7386,16 @@ Diggy：アニメが来年に控えているので。
 
 简单翻了一下两栋专楼，没找到这篇文章搬运（可能看漏了），所以发一下
 
+
+*****
+
+####  路人庚  
+##### 40763#       发表于 2025-5-1 21:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67773095&amp;ptid=2208921" target="_blank">堀内爱里衣 发表于 2025-5-1 21:32</a>
+
+请注意一下文章的发布日期 
+
+简单翻了一下两栋专楼，没找到这篇文章搬运（可能看漏了），所以发一下 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好吧，难绷（
+
