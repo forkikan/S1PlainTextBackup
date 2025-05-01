@@ -689,3 +689,15 @@ mygo：
 
 ▶5月17日 [https://ticketpay.jp/booking/?event_id=56058](https://ticketpay.jp/booking/?event_id=56058)
 
+
+*****
+
+####  堀内爱里衣  
+##### 27121#       发表于 2025-5-1 19:34
+
+<img src="https://img.stage1st.com/forum/202505/01/190916lqj3l9jtllclj69l.jpg" referrerpolicy="no-referrer">
+[https://x.com/BDP_yumemita/status/1917866592735572190](https://x.com/BDP_yumemita/status/1917866592735572190)
+
+<img src="https://img.stage1st.com/forum/202505/01/190917pucjucuj5f2duffj.jpg" referrerpolicy="no-referrer">
+[https://t.bilibili.com/1061938386343821320](https://t.bilibili.com/1061938386343821320)
+
