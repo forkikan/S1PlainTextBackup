@@ -5062,3 +5062,11 @@ comoli设定上还对nt持有怀疑态度
 但是想到是2v2黑拳，又感觉正常了 ...</blockquote>
 博美犬一开始就对玛秋说过会出人命的，只不过电视机前的人都没当真<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  木板春香  
+##### 10829#       发表于 2025-5-1 12:10
+
+你们都是NT,感觉对方要杀你的意图，你还准备嘴炮说服么？当然是捅驾驶舱安全第一
+
