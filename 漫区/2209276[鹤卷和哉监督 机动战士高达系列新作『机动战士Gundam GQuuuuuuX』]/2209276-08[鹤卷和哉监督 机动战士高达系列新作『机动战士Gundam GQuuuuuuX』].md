@@ -4951,3 +4951,30 @@ comoli设定上还对nt持有怀疑态度
 另外这一话小森也听到了啦啦声，夏利亚这条船上该不会全是NT吧？</blockquote>
 那个画面左边的人看上去都是NT，右边的人就没啥反应。
 
+
+*****
+
+####  ryanghj  
+##### 10822#       发表于 2025-5-1 11:01
+
+ 本帖最后由 ryanghj 于 2025-5-1 11:02 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67771404&amp;ptid=2209276" target="_blank">新人马甲2 发表于 2025-5-1 09:54</a>
+魔女感觉很大程度上是个和修司起对比作用的角色，修司这一话的台词说“去地球是为了寻找一朵玫瑰”，这个是 ...</blockquote>
+魔女机的肩上有她的logo，文字是And Death Shall Have No Dominion，一首悼诗的标题，主题是死亡无法战胜精神，显然魔女就是冲着死来的
+
+<img src="https://p.sda1.dev/23/07942013f80aa3feb0aca9ee82dc6c62/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  ryanghj  
+##### 10823#       发表于 2025-5-1 11:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67771198&amp;ptid=2209276" target="_blank">法拉 发表于 2025-5-1 05:36</a>
+只要想圆这些圆起来简直不要更简单，不射穿甲弹就说物体越大越容易被察觉，宇宙转圈圈就说相对运动参照物 ...</blockquote>
+还真有可能是机体强度不够，魔女在战时用的是钢加农，肯定比吉姆耐操啊
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
