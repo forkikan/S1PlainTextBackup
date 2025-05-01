@@ -5431,3 +5431,24 @@ comoli设定上还对nt持有怀疑态度
 
 那看来是我忘了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Tungsten  
+##### 10863#       发表于 2025-5-1 19:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67772235&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-1 16:14</a>
+
+推上一个有趣的观察，安琪说的是一年战争而不是吉翁独立战争，后者才是吉翁/宇宙居民的正式称呼，说明安琪 ...</blockquote>
+安琪很像是落草为寇的联邦老兵，不然魔女也不会想打黑拳了第一时间来找她
+
+经典“我有一个老战友有路子”
+
+
+*****
+
+####  woui003woui  
+##### 10864#       发表于 2025-5-1 19:54
+
+重新看了一下这集逗狗的作画，做这么好对比后面的机战感觉很幽默<img src="https://static.stage1st.com/image/smiley/bundam2017/037.png" referrerpolicy="no-referrer">
+
