@@ -5927,3 +5927,125 @@ comoli设定上还对nt持有怀疑态度
 
 2025-5-1 22:26 上传
 
+
+*****
+
+####  xunit  
+##### 10899#       发表于 2025-5-1 22:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67773261&amp;ptid=2209276" target="_blank">变老的大二 发表于 2025-5-1 22:23</a>
+不过这个时间线的79鸭明显心平气和了很多，原版那个小心眼不会放过卡尔玛，更不会和夏利亚合作的。
+
+ ...</blockquote>
+毕竟这次gqx版夏亚终于能自己飒爽一次了，虽然最后还是吃了个大瘪
+
+*****
+
+####  变老的大二  
+##### 10900#       发表于 2025-5-1 22:29
+
+不过说起来，第四集给人的感觉就是，你把这一集删掉，对主线也没什么影响<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+透露出来的东西就是拉拉音，和木马的女副官也是NT。
+
+*****
+
+####  aptx8285144  
+##### 10901#       发表于 2025-5-1 22:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67773269&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-1 22:27</a>
+
+安琪是联邦军的话，会不会是玛蒂尔达中尉？</blockquote>
+这变化好大呀<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 10902#       发表于 2025-5-1 22:31
+
+newtype的访谈就已经再谈过一遍修司的真实了
+
+这部作品本身就充满了许多谜团，而且修司本身也是个很奇妙的角色。他也不是话多的类型。台词少的话，关于角色塑造的线索也就少了。
+
+ 土屋：的确是这样。所以我在自己内心也有过挣扎，也向监督展示关于修司的形象。虽然他是个很奇怪的人物，但我还是希望能够被当作一个真实存在的人来理解。因此，尽管他是个不可思议的人物，我一直在努力思考，是否能够在某个地方展现出他作为一个活生生的人的细腻之处，那个在生活中不经意流露出来、渗透出来的人性微妙之处，我在努力地思考并演绎这一点。
+
+ ——依然是一个活生生的人类。那么，粉丝之间讨论的“……就像高达说的那样”这句台词，你是怎么理解的呢？
+
+ 土屋：当我说那句话的时候，我是认为“真的就是高达在说这句话”。对于修司来说，发生的一切事情在他心中都是理所当然的。即使说出一些奇怪的台词，我绝对不想让人觉得是在演一个“奇怪的角色”。从外面看可能完全不理解，但在修司的内心，这些话是成立的，我想以这种方式表达出来。
+
+*****
+
+####  YU_JI  
+##### 10903#       发表于 2025-5-1 22:31
+
+<blockquote>ryanghj 发表于 2025-5-1 22:27
+安琪是联邦军的话，会不会是玛蒂尔达中尉？
+
+</blockquote>
+从希姆斯假药到玛蒂尔达了吗？那下一集打三连星是不是安琪要开着什么玩意撞上去了
+
+*****
+
+####  psycho_Gadfly  
+##### 10904#       发表于 2025-5-1 22:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67773255&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-5-1 22:21</a>
+
+我现在有个强烈的预感
+
+喵安上机比玛秋强，而且是全面上位，NT力和驾驶操作都更强那种
+
+只有这样才能接上玛秋 ...</blockquote>
+NT不一定 驾驶操作可能是强的<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+“苦呀西”
+
+*****
+
+####  变老的大二  
+##### 10905#       发表于 2025-5-1 22:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67773273&amp;ptid=2209276" target="_blank">xunit 发表于 2025-5-1 22:28</a>
+
+毕竟这次gqx版夏亚终于能自己飒爽一次了，虽然最后还是吃了个大瘪</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这两个时间线要是放一起解释的话更难绷
+
+原时间线的夏亚被骡子搞上头了，打不了骡子，还被妹妹鄙视了。气急败坏安排掉卡尔马显得自己还在干正经事<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  岸浪白野  
+##### 10906#       发表于 2025-5-1 22:34
+
+日本人怀疑的，主要这集把之前吉翁可能性毙了
+
+<img src="https://img.stage1st.com/forum/202505/01/223306esixkqhdkxdiy57a.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.43 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-1 22:33 上传
+
+*****
+
+####  岸浪白野  
+##### 10907#       发表于 2025-5-1 22:36
+
+而且说过了夏利亚的CV川田是不知道安琪角色的背景的，安琪的背景正片不会提及基本大可能让观众猜
+
+*****
+
+####  ryanghj  
+##### 10908#       发表于 2025-5-1 22:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67773287&amp;ptid=2209276" target="_blank">变老的大二 发表于 2025-5-1 22:31</a>
+
+这两个时间线要是放一起解释的话更难绷
+
+原时间线的夏亚被骡子搞上头了，打不了骡子，还被妹妹鄙视了。气 ...</blockquote>
+正史夏亚就是被骡子打的自尊心受挫了，变得太过执着于打败骡子
+
+其实0079拍的时候应该是把夏亚当成纯反派来设定的，类似老机战片子里那样，到了Z才给夏亚赋予了一些反派但正论的设定
+
