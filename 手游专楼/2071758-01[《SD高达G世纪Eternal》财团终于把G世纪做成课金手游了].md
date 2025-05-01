@@ -10729,3 +10729,11 @@ SR的大招是特殊伤害
 —— 来自 vivo V2419A, Android 15, 鹅球 v3.5.99 ...</blockquote>
 没说清楚 耗体力的才有经验
 
+
+*****
+
+####  kerorokun  
+##### 1020#       发表于 2025-5-1 11:30
+
+送的3000出强自了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">总共170连
+
