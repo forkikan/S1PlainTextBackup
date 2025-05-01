@@ -10843,3 +10843,13 @@ SEED新剧情竟然做了将近20分钟的动画，希望这种资源的投入�
 
 坑大了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ChrisSnake  
+##### 1031#       发表于 2025-5-1 18:00
+
+<blockquote>silvia 发表于 2025-5-1 14:16
+你放个100级ur跟他对拳就好了，别的围观加点buff</blockquote>
+是的… 红蓝都解决了 开始以为boss厉害没敢上 试了下直接上去砍甚至颇有余裕 妖刀最后一拳还没打boss就没了
+
