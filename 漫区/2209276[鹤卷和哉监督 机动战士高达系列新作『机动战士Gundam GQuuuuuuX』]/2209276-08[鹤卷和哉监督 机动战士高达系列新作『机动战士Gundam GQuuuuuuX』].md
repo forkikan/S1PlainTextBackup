@@ -5172,3 +5172,54 @@ comoli设定上还对nt持有怀疑态度
 
 修斯点掉魔女 故意慢放 本质是超度 因为魔女已经陷入证明nt万能与否的悲哀陷阱中去了
 
+
+*****
+
+####  新人马甲2  
+##### 10840#       发表于 2025-5-1 14:55
+
+感觉主要还是世界线差异的原因，这条世界线虽然大家也都知道NT但大多对于这个概念都是将信将疑
+
+本来的UC线是不是因为联邦战后大力宣传和双方推进相关研究导致NT这一概念更深入人心一些
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 10841#       发表于 2025-5-1 15:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67772058&amp;ptid=2209276" target="_blank">wpcc 发表于 2025-5-1 14:48</a>
+
+魔女要图掉红高达就是为了证伪nt万能论 已经杀上头了
+
+修斯点掉魔女 故意慢放 本质是超度 因为魔女已经陷入 ...</blockquote>
+慢慢捅进去受害人不是更痛苦吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 10842#       发表于 2025-5-1 15:03
+
+<img src="https://img.stage1st.com/forum/202505/01/150453hpsowjbbg77osofb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.16 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-1 15:04 上传
+
+<img src="https://img.stage1st.com/forum/202505/01/150352vq09gkznnbekg401.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (114.69 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-1 15:03 上传
+
+*****
+
+####  CSWQ  
+##### 10843#       发表于 2025-5-1 15:05
+
+本来的世界线对新人类更多也是利用打算，所以才会有那么多强化人研究所，也就夏亚因为拉拉和阿姆罗的经历愿意相信有积极的意义。具体的定义谁也没下过，谁也不知道，更多是按照战斗能力和对宇宙的适应程度猜测
+
