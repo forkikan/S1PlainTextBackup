@@ -1168,3 +1168,33 @@ b怎么没更，审核没过是吧
 因为是开店的，四舍五入就是美食番</blockquote>
 美食番好歹做点正常的造型，足立这些人的审美观念是被哪些人雷普了吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 2272#       发表于 2025-5-1 16:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67770986&amp;ptid=2152053" target="_blank">Saber琪 发表于 2025-5-1 00:12</a>
+
+说实在的我搞不懂泥蒜为啥那么偏爱答辩芭菲一类，明明踢屁屁和sakana比这些可爱多了，烂炒？ ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202505/01/161457y8hzifx8onifx1ih.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250501161231.png</strong> (217.19 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-1 16:14 上传
+
+美食不是不可以，好歹学习人家estab  life来点好看的审美观呀<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202505/01/161640lgnp6ead1yvda1ca.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250501161632.png</strong> (221.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-1 16:16 上传
+
+或者搞笑也要到位jpg
+
