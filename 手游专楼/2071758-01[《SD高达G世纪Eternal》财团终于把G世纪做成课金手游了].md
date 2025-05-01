@@ -10833,3 +10833,13 @@ SEED新剧情竟然做了将近20分钟的动画，希望这种资源的投入�
 我是带了四台辅助上四种debuff了，但是在隐藏蓝异端这里，sr自由和全装甲zz伤害明显比刚拉起来的金异端天 ...</blockquote>
 可能驾驶员关系
 
+
+*****
+
+####  草台培训班  
+##### 1030#       发表于 2025-5-1 17:29
+
+原来这次池子的pt和普池的pt不通用，过了活动也就没了。
+
+坑大了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
