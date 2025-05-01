@@ -5089,3 +5089,18 @@ comoli设定上还对nt持有怀疑态度
 
 —— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  体制  
+##### 10832#       发表于 2025-5-1 12:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67767749&amp;ptid=2209276" target="_blank">液体显微隧道 发表于 2025-4-30 00:19</a>
+魔女是不是oldtype吗，为啥她死的时候能进聊天室
+
+—— 来自 鹅球 v3.5.99-alpha</blockquote>
+魔女是nt，但她不愿意承认自己是nt，她认为或者她心中定义的新人类nt是可以不妥协得到一切。自己不是nt所以自己可以选择家庭放弃战场放弃复仇。红高达夏亚也不是nt，所以他也无法得到一切，最后在所罗门消失了。
+结果红高达又出现了，虽然不知道里面是不是夏亚，但她也绷不住了。
+
+—— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

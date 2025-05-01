@@ -1612,3 +1612,15 @@ b站热搜挂了一晚上了可惜看来真推不出去<img src="https://static.
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这沙虫为啥能扛射线却扛不住铁钩子。。
 
+
+*****
+
+####  ParadiseMartyr  
+##### 153#       发表于 2025-5-1 12:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67771718&amp;ptid=2196984" target="_blank">暗黑能乐 发表于 2025-5-1 12:08</a>
+这沙虫为啥能扛射线却扛不住铁钩子。。</blockquote>
+是反射线装甲，不反炮弹(
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
