@@ -4543,3 +4543,15 @@ Months。这样，Months哦。  
 
 我刚才没听错吧，心脏手术准备？
 
+
+*****
+
+####  术士q  
+##### 18398#       发表于 2025-5-1 18:48
+
+ 本帖最后由 术士q 于 2025-5-1 18:50 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67772552&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2025-5-1 18:17</a>
+我刚才没听错吧，心脏手术准备？</blockquote>
+不太清楚，我记得我之前听到的是之前打的时候心脏很难受，做手术这个...有吗?
+说起来咩登上大师之位后也第一时间去母亲的神龛那里告诉母亲了。
+

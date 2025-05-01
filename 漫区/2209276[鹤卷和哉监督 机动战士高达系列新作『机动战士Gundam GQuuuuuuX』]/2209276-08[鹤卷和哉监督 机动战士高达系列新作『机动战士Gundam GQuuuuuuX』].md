@@ -5412,3 +5412,22 @@ comoli设定上还对nt持有怀疑态度
 
 结合那个男鬼图 唯一的愿望该不会是超度（物理）所有被战争束缚的NT吧
 
+
+*****
+
+####  tomzach  
+##### 10861#       发表于 2025-5-1 18:52
+
+<blockquote>psycho_Gadfly 发表于 2025-5-1 18:42
+看到不少因为这话贷款牢修变BOSS的，骂残忍的。。。英文X（圣母刻板印象 +1
+
+日文的倒是玩梗的多，可能都比 ...</blockquote>
+我猜大概率没那么宏大，说不定只是某种很（diu）小（ren）的东西
+
+*****
+
+####  恋叶梦境  
+##### 10862#       发表于 2025-5-1 18:58
+
+那看来是我忘了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
