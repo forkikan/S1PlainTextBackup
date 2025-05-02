@@ -11097,3 +11097,19 @@ SEED新剧情竟然做了将近20分钟的动画，希望这种资源的投入�
 下载了个叫自动按键点击的APP，已经实现铁球全自动化量产了
 [https://www.bilibili.com/video/BV13QGizqEc7](https://www.bilibili.com/video/BV13QGizqEc7) 
 
+
+*****
+
+####  ChrisSnake  
+##### 1055#       发表于 2025-5-2 11:54
+
+<img src="https://img.stage1st.com/forum/202505/02/115246cxn33rlainrfcl55.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5873.jpeg</strong> (236.51 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-2 11:52 上传
+
+zz这3台ssr都是5射程 有2台打同一关就能刷 前期是个不错的拉战力突破口
+
