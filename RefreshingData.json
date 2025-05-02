@@ -396,12 +396,12 @@
     "update": false
   },
   "2086637": {
-    "totalreply": 11005,
+    "totalreply": 11007,
     "title": "[【ぷにち】Hololive所属さくらみこ／Sakuramiko讨论专楼]",
     "newtitle": "[【七代目】Hololive所属さくらみこ／Sakuramiko讨论专楼]",
-    "lastedit": 1745852297,
+    "lastedit": 1746184576,
     "category": "虚拟主播区专楼",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2086516": {
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 159365,
+    "totalreply": 159367,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1746183970,
+    "lastedit": 1746184574,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -10521,10 +10521,10 @@
     "update": false
   },
   "2209276": {
-    "totalreply": 11008,
+    "totalreply": 11009,
     "title": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
     "newtitle": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
-    "lastedit": 1746183488,
+    "lastedit": 1746184693,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 122029,
+    "totalreply": 122032,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1746183736,
+    "lastedit": 1746184693,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11268,10 +11268,10 @@
     "update": false
   },
   "2071758": {
-    "totalreply": 1068,
+    "totalreply": 1069,
     "title": "[《SD高达G世纪Eternal》财团终于把G世纪做成课金手游了]",
     "newtitle": "[《SD高达G世纪Eternal》财团终于把G世纪做成课金手游了]",
-    "lastedit": 1746183736,
+    "lastedit": 1746184331,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12807,10 +12807,10 @@
     "update": false
   },
   "2119636": {
-    "totalreply": 46,
+    "totalreply": 47,
     "title": "[gal归漫叶水怀旧愿望单(ToHeart重制25／06／26发售)]",
     "newtitle": "[gal归漫叶水怀旧愿望单(ToHeart重制25／06／26发售)]",
-    "lastedit": 1746176533,
+    "lastedit": 1746184691,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12906,10 +12906,10 @@
     "update": false
   },
   "2251532": {
-    "totalreply": 47,
+    "totalreply": 48,
     "title": "[有个疑问-为什么像33这种回合制RPG里要加即时制动作元素？]",
     "newtitle": "[有个疑问-为什么像33这种回合制RPG里要加即时制动作元素？]",
-    "lastedit": 1746181812,
+    "lastedit": 1746184574,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12928,6 +12928,15 @@
     "title": "[艾尔登法环：黑夜君临（Nightreign）公开，主打多人pve／2.14-17网络测试，5.30发售]",
     "newtitle": "[艾尔登法环：黑夜君临（Nightreign）公开，主打多人pve／2.14-17网络测试，5.30发售]",
     "lastedit": 1746181830,
+    "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2251416": {
+    "totalreply": 41,
+    "title": "[有没有什么单机游戏可以自己部署着玩的？]",
+    "newtitle": "[有没有什么单机游戏可以自己部署着玩的？]",
+    "lastedit": 1746184577,
     "category": "游戏区",
     "active": true,
     "update": false
