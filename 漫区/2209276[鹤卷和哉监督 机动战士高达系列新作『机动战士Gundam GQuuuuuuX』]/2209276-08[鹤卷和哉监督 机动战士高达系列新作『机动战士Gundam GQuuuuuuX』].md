@@ -7319,3 +7319,50 @@ JK说的是赚的超过500亥特，算小赌意外赚
 
 2025-5-2 20:16 上传
 
+
+*****
+
+####  岸浪白野  
+##### 11013#       发表于 2025-5-2 20:19
+
+我对普通人不感兴趣，有新人类、调整者、高达斗士、变革者就来找我
+[X 上的 約およそ：“マチュに本当に必要だったものって…… キラキラじゃなくてSOS団だったんじゃなかろうか [url]https://t.co/dOuKiCz6rP](https://x.com/yakuoyoso/status/1918244073254645962)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/02/201728floww0yedjdt20wt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (911.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-2 20:17 上传
+
+[X 上的 肉ネーム：“まぁマチュもおかしくなりますよ [url]https://t.co/XvPwiBtSJt](https://x.com/mn38ka/status/1918262920104038875)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/02/201802k59vmo366oruzk9a.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (951.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-2 20:18 上传
+
+[X 上的 スミカ：“シイコさん（ほぼ妄想） [url]https://t.co/8x6kCXaHr5](https://x.com/rsuhima/status/1918259679622512924)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/02/201825dkdnnjfn8ecefhrn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.94 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-2 20:18 上传
+
+
+*****
+
+####  夜雨秋水  
+##### 11014#       发表于 2025-5-2 20:22
+
+有没有一种可能，夏亚一气化三清，自我附身小机器人，超我附身大机器人，最后本我占据了男孩修司的肉体，等到重归一体男孩就能恢复自由，或者是彻底被夺舍。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
