@@ -524,3 +524,27 @@ CT的主角团在CC里真的是完蛋了吗？
 
 龟龟，se终于把镇社之宝搬出来了<img src="https://static.stage1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Booorunestud  
+##### 49#       发表于 2025-5-3 02:44
+
+重制是hd2d？其实品鉴的有点多了，能不能按ff7的规格（褒义）重制
+
+*****
+
+####  jacket  
+##### 50#       发表于 2025-5-3 02:45
+
+又想起了20年前那个夭折的同人3d重制
+
+*****
+
+####  suzakushi  
+##### 51#       发表于 2025-5-3 02:45
+
+如果以DQ11规格甚至12规格重制我就还能再当30年SE孝子！
+
+—— 来自 Sony XQ-AT52, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
