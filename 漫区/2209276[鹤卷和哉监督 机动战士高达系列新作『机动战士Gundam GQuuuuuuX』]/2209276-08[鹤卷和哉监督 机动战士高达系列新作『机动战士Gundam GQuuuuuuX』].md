@@ -7526,3 +7526,16 @@ GQ的核心战机设计什么时候能派上用场呢</blockquote>
 
 —— 来自 HUAWEI NOH-AN00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Toby_dak  
+##### 11029#       发表于 2025-5-3 00:01
+
+<blockquote>引用第11026楼downnote于2025-05-02 23:20发表的  :
+
+究竟要怎样才能算是哈曼？一个人出身和哈曼不同，经历和哈曼不同，地位和哈曼不同，那她要如何与哈曼有关，......</blockquote>
+俗物め！
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.46)
+
