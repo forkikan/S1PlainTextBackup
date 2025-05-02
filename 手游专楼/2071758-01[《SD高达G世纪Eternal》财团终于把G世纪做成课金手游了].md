@@ -11358,3 +11358,14 @@ https://www.bilibili.com/video/BV13QGizqEc7  ...</blockquote>
 
 所以过了初始期再给基础池下石头不是很划算的行为
 
+
+*****
+
+####  帕蕾莉亚  
+##### 1079#       发表于 2025-5-2 23:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67775540&amp;ptid=2071758" target="_blank">史艳文 发表于 2025-5-2 21:54</a>
+
+兄弟，有人要了没有，没人要可以给我吗，刚刚开始玩了几天，抽不出ur</blockquote>
+查私信~
+

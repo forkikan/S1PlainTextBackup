@@ -7506,3 +7506,11 @@ GQ的核心战机设计什么时候能派上用场呢<img src="https://static.st
 GQ的核心战机设计什么时候能派上用场呢</blockquote>
 那必然得致敬一下rx78的最后一击，然后用核心战机逃脱<img src="https://static.stage1st.com/image/smiley/bundam2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  downnote  
+##### 11027#       发表于 2025-5-2 23:20
+
+究竟要怎样才能算是哈曼？一个人出身和哈曼不同，经历和哈曼不同，地位和哈曼不同，那她要如何与哈曼有关，才能成为代表哈曼的角色
+
