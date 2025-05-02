@@ -7134,3 +7134,21 @@ JK说的是赚的超过500亥特，算小赌意外赚
 这是联动吗</blockquote>
 711的联动，参考前面和种自水魔的联动就是买特定零食（上次是巧克力），送立牌色纸还有吧唧
 
+
+*****
+
+####  ryanghj  
+##### 11001#       发表于 2025-5-2 17:59
+
+沙仑也可能指的是闪族语的问候语，指代平安、和平
+
+也就是色俩目
+
+<img src="https://img.stage1st.com/forum/202505/02/175910lu94uwvas1ssigsa.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (164.94 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-2 17:59 上传
+
