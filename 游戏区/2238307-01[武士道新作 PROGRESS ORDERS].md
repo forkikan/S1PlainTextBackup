@@ -30,3 +30,18 @@
 
 2025-5-2 21:51 上传
 
+
+*****
+
+####  芝村舞  
+##### 43#       发表于 2025-5-2 22:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67755343&amp;ptid=2238307" target="_blank">wolf1997 发表于 2025-4-25 17:43</a>
+
+【主线过不过跟我有毛关系！《PROGRESS ORDERS》评测！避雷！-哔哩哔哩】 https://b23.tv/GkYHdaZ
+
+什么劣 ...</blockquote>
+还好最初就被劝退，不是特别喜欢立绘，玩这游戏就浪费生命。
+
+无法理解自动战斗80%胜率。正常不是后台演算该赢就赢该输就输。给个胜率掷骰子算个屁“自动战斗”……
+

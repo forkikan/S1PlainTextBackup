@@ -7532,3 +7532,42 @@ Diggy：アニメが来年に控えているので。
 
 [https://x.com/Kanon_Takao/status/1918279907253338491](https://x.com/Kanon_Takao/status/1918279907253338491)
 
+
+*****
+
+####  堀内爱里衣  
+##### 40769#       发表于 2025-5-2 22:07
+
+<strong>【歌ってみた】KiLLKiSS / Ave Mujica【covered by 梦限大MewType】</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202505/02/220716r167lmk2yleooy1i.jpg" referrerpolicy="no-referrer">
+
+<strong>014b96bb88271ce99fe9e5fe985c87186746a7d7.jpg</strong> (284.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-2 22:07 上传
+
+梦限大Mewtype 全体成员的翻唱视频公开！
+
+5位成员共同翻唱Ave Mujica的「KiLLKiSS」！请不要错过♪
+
+━━━━━━━━━━━━━━━━━━━━━
+
+演唱：梦限大MewType
+
+【Credit】
+
+Recording＆Direction：守谷友希
+
+Mix：さかな
+
+Movie：あしゃろん / 游弋
+
+Movie Direction：さゆう / 游弋
+
+Illust：ほろ
+
+━━━━━━━━━━━━━━━━━━━━━</blockquote>
+[https://www.bilibili.com/video/BV1xoGezxEU8](https://www.bilibili.com/video/BV1xoGezxEU8)
+
