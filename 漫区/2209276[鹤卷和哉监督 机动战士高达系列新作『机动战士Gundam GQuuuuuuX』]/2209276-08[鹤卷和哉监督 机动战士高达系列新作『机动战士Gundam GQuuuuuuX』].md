@@ -7366,3 +7366,25 @@ JK说的是赚的超过500亥特，算小赌意外赚
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  gamedreamer  
+##### 11015#       发表于 2025-5-2 20:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67775112&amp;ptid=2209276" target="_blank">夜雨秋水 发表于 2025-5-2 20:22</a>
+有没有一种可能，夏亚一气化三清，自我附身小机器人，超我附身大机器人，最后本我占据了男孩修司的肉体，等 ...</blockquote>
+万一反过来修斯把夏亚算计了呢<img src="https://static.stage1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  灵魂收割机  
+##### 11016#       发表于 2025-5-2 20:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67774995&amp;ptid=2209276" target="_blank">姬萩九郎 发表于 2025-5-2 19:46</a>
+
+唉，我可能也是过了看高达的年纪了，作为娃爹，看到麻球跟着修司屁股后面跑真的血压升高。tmd宇宙鬼火少年 ...</blockquote>
+到了可以说林有德名台词的时候了<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer"> 
+
