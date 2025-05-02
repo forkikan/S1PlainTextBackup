@@ -7572,3 +7572,15 @@ GQ的核心战机设计什么时候能派上用场呢</blockquote>
 
 side6晚上的夜空是另一面的居住地的灯光吧？
 
+
+*****
+
+####  民工业  
+##### 11033#       发表于 2025-5-3 01:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67776045&amp;ptid=2209276" target="_blank">suika2 发表于 2025-5-3 01:19</a>
+side6晚上的夜空是另一面的居住地的灯光吧？</blockquote>
+是的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
