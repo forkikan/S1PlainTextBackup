@@ -7539,3 +7539,16 @@ GQ的核心战机设计什么时候能派上用场呢</blockquote>
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.46)
 
+
+*****
+
+####  otaku21126  
+##### 11030#       发表于 2025-5-3 00:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67775823&amp;ptid=2209276" target="_blank">downnote 发表于 2025-5-2 23:20</a>
+
+究竟要怎样才能算是哈曼？一个人出身和哈曼不同，经历和哈曼不同，地位和哈曼不同，那她要如何与哈曼有关， ...</blockquote>
+夏亚的经历都已经和原作不同了，马克贝和基西利亚都多活了6年，这时候任何一个角色的经历和原作同位体不同也很正常吧<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+至于出身，独角兽、水魔以及漫画《魔女之夜》都展现了近些年的高达故事是不吝于加入“虚假记忆”或“身世成谜”情节的，出身问题想讲用5分钟时间就能设定完全翻转，甚至不想讲的话1分钟留个悬念暗示观众都行
+
