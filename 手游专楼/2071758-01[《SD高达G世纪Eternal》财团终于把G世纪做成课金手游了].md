@@ -11285,3 +11285,11 @@ https://www.bilibili.com/video/BV13QGizqEc7  ...</blockquote>
 
 求个s1的群
 
+
+*****
+
+####  HEERO.W  
+##### 1072#       发表于 2025-5-2 20:10
+
+账号绑定这事，可以再次绑定相同的账号来解绑的
+
