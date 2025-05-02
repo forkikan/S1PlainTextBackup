@@ -6846,3 +6846,21 @@ UC各主角开上MS的履历，会开小型作业MS的不少。
 
 跟他们置气是我的错<img src="https://static.stage1st.com/image/smiley/face2017/273.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 10978#       发表于 2025-5-2 14:36
+
+ 本帖最后由 岸浪白野 于 2025-5-2 14:41 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67774106&amp;ptid=2209276" target="_blank">Tungsten 发表于 2025-5-2 11:31</a>
+
+说到这个
+
+这一作side6的货币币值明显参考了美元，而不是大手一挥就搞成换皮日元
+
+500哪怕是对美帝高中生来 ...</blockquote>
+JK说的是赚的超过500亥特，算小赌意外赚
+
+以前0080 一张机票520亥特，随时代改变作品里的物价参考有所变动很正常，但一直都不是换皮日元啊
+
