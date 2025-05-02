@@ -516,3 +516,11 @@ CT的主角团在CC里真的是完蛋了吗？
 
 堀井雄二在意大利的漫展不小心透露了CT将要重制，所以CT重制版应该是板上钉钉的事情了
 
+
+*****
+
+####  戏言学者  
+##### 48#         楼主| 发表于 2025-5-3 02:38
+
+龟龟，se终于把镇社之宝搬出来了<img src="https://static.stage1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
