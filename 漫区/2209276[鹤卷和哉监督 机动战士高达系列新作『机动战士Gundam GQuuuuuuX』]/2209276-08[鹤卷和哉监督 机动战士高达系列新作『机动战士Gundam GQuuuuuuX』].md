@@ -6613,3 +6613,59 @@ g高那个是限定场地加驾驶员都精锐，驾驶系统是能完全控制�
 赛克谬没启动但是能躲火箭筒，是尼娅安还是首席在开
 <img src="https://p.sda1.dev/23/6ab51a1dfac9ddddce7046d6ce87baf6/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  七七見奈波  
+##### 10959#       发表于 2025-5-2 11:26
+
+小说版玛姬露达桑和未婚夫本来就是活下来了的，庵野那个废案里我印象中也有采信小说里的内容？说不定能对得上，玛姬露达和未婚夫战后结婚又离婚之类的
+
+说来麻球的同学赚了五百西特就打算拉上小姐妹请客吃喝玩，总不能赚了一笔就全花了或者花掉一半以上，加上前面从喵安那里拿设备要五千西特，大概推算一下可能的物价和消费的话，那十五万是不是该让麻球和喵安更震惊一点。而且都拿到钱了麻球还是没修屏幕<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Tungsten  
+##### 10960#       发表于 2025-5-2 11:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67773241&amp;ptid=2209276" target="_blank">hsyg 发表于 2025-5-1 22:14</a>
+
+按这么说她缺钱还不如开扎古去打灰，不光生活稳定还有人关照一下。</blockquote>
+“这可是生产代码！”
+
+“小屁孩连工作签证都没有……”
+
+“不要把运气好开动了MS和我们这种严肃的工作混为一谈！”
+
+MS机师一向对标的是精英飞行员，一向是机少人多，和平年代减产了就更是如此
+
+自己飞院里的子弟都安排不过来，怎么可能让非法移民上呢
+
+
+*****
+
+####  Tungsten  
+##### 10961#       发表于 2025-5-2 11:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67773514&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-2 00:08</a>
+
+玛秋的高中JK生活和太空的MS黑拳搏斗本来就是硬币的正反面吧，日常和非日常的反差本来就是剧本想表达的东 ...</blockquote>
+说到这个
+
+这一作side6的货币币值明显参考了美元，而不是大手一挥就搞成换皮日元
+
+500哪怕是对美帝高中生来说都算“发了一笔小财”了
+
+只能说番茄的金钱观应该是已经被彻底击碎了
+
+就是不知道她的奖金和博美犬团队是怎么分的
+
+*****
+
+####  galgamesh11  
+##### 10962#       发表于 2025-5-2 11:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67774066&amp;ptid=2209276" target="_blank">蕾洁之风 发表于 2025-5-2 11:13</a>
+赛克谬没启动但是能躲火箭筒，是尼娅安还是首席在开</blockquote>
+首席在线下单杀麻秋呢，考虑到标题，肯定是妮娅安
+
