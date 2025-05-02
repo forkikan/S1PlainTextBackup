@@ -11029,3 +11029,32 @@ SEED新剧情竟然做了将近20分钟的动画，希望这种资源的投入�
 
 —— 来自 vivo V2408A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  一个陆仁贾  
+##### 1048#       发表于 2025-5-2 10:35
+
+有了nt高达的机师，输出环境得到改善，金异端和蓝异端的ex也能顺利过了，好盾牌就是不一样
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  一个陆仁贾  
+##### 1049#       发表于 2025-5-2 10:37
+
+顺便这活动的无限池也太精污了，第5池开始塞了上百个100金币进去，我说怎么抽半天还没把池子清空<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  nagamasa  
+##### 1050#       发表于 2025-5-2 10:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67773934&amp;ptid=2071758" target="_blank">chivalry 发表于 2025-5-2 09:45</a>
+
+我就是转生号，开的强自+拉克丝强行转生，现在队伍才 13w，强自上去会被红高达秒掉 ...</blockquote>
+强自拉到95+，鸡神80+，按总帅的套路把加射程改成必闪就可以单刷了，你有拉妖要求应该更低
+
