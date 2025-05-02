@@ -6693,3 +6693,15 @@ nt虽在love+之盒的uc元年联邦宪法早有提及，但只是一种模糊�
 那么一年战争(甚至之前)魔女是怎样接触新人类思想(很可能是汤大基版而非戴肯版的，从年龄上看)就值得嗯哼哼了。总不能是战时才偷听敌台汤大基的演说吧
 说这么多其实就一个问题：魔女姐姐你当年怎么就参加联邦军了呢？<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真就是为牢修杀人包的饺子
 
+
+*****
+
+####  ryanghj  
+##### 10965#       发表于 2025-5-2 13:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67774094&amp;ptid=2209276" target="_blank">七七見奈波 发表于 2025-5-2 11:26</a>
+小说版玛姬露达桑和未婚夫本来就是活下来了的，庵野那个废案里我印象中也有采信小说里的内容？说不定能对得 ...</blockquote>
+side6货币基本可以理解为美元
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
