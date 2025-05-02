@@ -7152,3 +7152,13 @@ JK说的是赚的超过500亥特，算小赌意外赚
 
 2025-5-2 17:59 上传
 
+
+*****
+
+####  gamedreamer  
+##### 11002#       发表于 2025-5-2 18:10
+
+话说回来，修斯和红高达有没有可能是共轭母子，感觉这俩玩意的相处方式挺像母子关系的<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
