@@ -6864,3 +6864,62 @@ JK说的是赚的超过500亥特，算小赌意外赚
 
 以前0080 一张机票520亥特，随时代改变作品里的物价参考有所变动很正常，但一直都不是换皮日元啊
 
+
+*****
+
+####  downnote  
+##### 10979#       发表于 2025-5-2 14:56
+
+哎呀要是喵安技术太好怎么办，然后给她说驾驶员由你继续，小孩就回去上学吧。小孩一怒之下会做啥可不好说<img src="https://static.stage1st.com/image/smiley/face2017/271.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 10980#       发表于 2025-5-2 14:57
+
+ 本帖最后由 岸浪白野 于 2025-5-2 15:01 编辑 
+
+[X 上的 たくま朋正＠航宙軍8巻発売中：“#GQuuuuuuX #ジークアクス クラバには破れても！シイコはまだ負けておりません！](https://x.com/yunckle19722000/status/1918098038264099166)[https://t.co/bL6gVIhTGH](https://t.co/bL6gVIhTGH)” / X
+
+<img src="https://img.stage1st.com/forum/202505/02/145731icdj5oogjdfqqi8l.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.64 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-2 14:57 上传
+
+[X 上的 木村森：“[url]https://t.co/7cc3Lou3Tq](https://x.com/kimra_shin/status/1917904334383403198)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/02/150053nnq1je5v65nszuuj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (679.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-2 15:00 上传
+
+<img src="https://img.stage1st.com/forum/202505/02/150101d8fyfipikypkfvxr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (256.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-2 15:01 上传
+
+
+*****
+
+####  民工业  
+##### 10981#       发表于 2025-5-2 15:05
+
+[https://x.com/hu_min5/status/1917936518792139030](https://x.com/hu_min5/status/1917936518792139030)
+
+<img src="https://img.stage1st.com/forum/202505/02/150539meevvsy7zxy7j9al.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (104.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-2 15:05 上传
+
