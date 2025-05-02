@@ -6793,3 +6793,18 @@ side6货币基本可以理解为美元
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得可以不用期待喵安的战斗能力，但是可以期待逃跑能力闪避能力。。
 
+
+*****
+
+####  Toby_dak  
+##### 10974#       发表于 2025-5-2 13:50
+
+UC各主角开上MS的履历，会开小型作业MS的不少。
+
+<img src="https://p.sda1.dev/23/eff560861e14567d1c31f9ea0b57c01c/20250206_144409.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/ae1aaa3b18ce583a2d043dc3a55e59fb/20250206_144405.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/087e8147048da9a5c79f63d395a6a0a9/20250206_144413.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/065690a25e0c48274cf074ae7a9714d2/20250206_144417.jpg" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.45)
+
