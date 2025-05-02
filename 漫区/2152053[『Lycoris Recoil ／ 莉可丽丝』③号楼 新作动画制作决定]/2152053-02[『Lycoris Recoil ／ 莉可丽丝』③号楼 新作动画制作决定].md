@@ -1241,3 +1241,16 @@ b怎么没更，审核没过是吧
 美食不是不可以，好歹学习人家estab  life来点好看的审美观呀</blockquote>
 朝浦od里有讲tkn做一个什么卷也比较失败，但好歹不会像动画这样只有恶俗
 
+
+*****
+
+####  oyss  
+##### 2277#       发表于 2025-5-2 23:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67770512&amp;ptid=2152053" target="_blank">王九的哥哥 发表于 2025-4-30 20:34</a>
+
+莫名其妙，youtube aniplex channel只有480的源……</blockquote>
+油‎管刚上传完就这样,其他分辨率版本的还在压.要等.
+
+这是工作人员不会弄,得提前传好定时公开.
+

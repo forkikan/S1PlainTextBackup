@@ -7495,3 +7495,14 @@ X 上的 バニリゾ/BANILIZO：“マrkgk [https://t.co/C82WEtYo3X” / X](htt
 
 GQ的核心战机设计什么时候能派上用场呢<img src="https://static.stage1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sliurus  
+##### 11026#       发表于 2025-5-2 23:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67775780&amp;ptid=2209276" target="_blank">灵魂收割机 发表于 2025-5-2 23:01</a>
+
+GQ的核心战机设计什么时候能派上用场呢</blockquote>
+那必然得致敬一下rx78的最后一击，然后用核心战机逃脱<img src="https://static.stage1st.com/image/smiley/bundam2017/037.png" referrerpolicy="no-referrer">
+
