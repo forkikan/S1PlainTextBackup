@@ -11320,3 +11320,16 @@ https://www.bilibili.com/video/BV13QGizqEc7  ...</blockquote>
 
 草，recollection扫荡给的自由直接40级能做流星，就是给人搞活动票的吧
 
+
+*****
+
+####  史艳文  
+##### 1076#       发表于 2025-5-2 21:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67774885&amp;ptid=2071758" target="_blank">帕蕾莉亚 发表于 2025-5-2 19:09</a>
+
+玩不动小号了，有人要吗？拉妖没抽到，ur船只有电视姬，账号已绑定，邮箱新注册的一起送了
+
+ ...</blockquote>
+兄弟，有人要了没有，没人要可以给我吗，刚刚开始玩了几天，抽不出ur
+
