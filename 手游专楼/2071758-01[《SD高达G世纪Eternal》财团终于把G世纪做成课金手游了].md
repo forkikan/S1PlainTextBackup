@@ -10995,3 +10995,23 @@ SEED新剧情竟然做了将近20分钟的动画，希望这种资源的投入�
 
 氪了三单，300抽就一个sf，仔细一看sf数值好低啊
 
+
+*****
+
+####  arthes  
+##### 1045#       发表于 2025-5-2 09:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67773908&amp;ptid=2071758" target="_blank">chivalry 发表于 2025-5-2 09:31</a>
+红高达打不过 ex 太痛苦了，是不是就没办法拿到三星红高达</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">或者可以考虑重开，强自拉满应该单刷红高达没啥问题，趁活动最后一天早做打算
+
+
+*****
+
+####  chivalry  
+##### 1046#       发表于 2025-5-2 09:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67773918&amp;ptid=2071758" target="_blank">arthes 发表于 2025-5-2 09:36</a>
+或者可以考虑重开，强自拉满应该单刷红高达没啥问题，趁活动最后一天早做打算 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">我就是转生号，开的强自+拉克丝强行转生，现在队伍才 13w，强自上去会被红高达秒掉
+
