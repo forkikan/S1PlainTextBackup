@@ -284,3 +284,11 @@
  ...</blockquote>
 太强了，这魔力眠炮一发多少
 
+
+*****
+
+####  macshi  
+##### 292#       发表于 2025-5-2 12:15
+
+满氪数值太恐怖了，我爱丽丝法师光hp一项才300出头，三章后面随便一个什么不明aoe可能就立躺，转回僧侣才有安心感。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
