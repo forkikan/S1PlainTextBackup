@@ -7467,3 +7467,13 @@ GQUX世界线AE社应该还是民用公司吧，吉翁战胜了，吉翁尼克�
 X 上的 バニリゾ/BANILIZO：“マrkgk [https://t.co/C82WEtYo3X” / X](https://t.co/C82WEtYo3X” / X)</blockquote>
 为什么一个个都是隐藏的巨ru<img src="https://static.stage1st.com/image/smiley/face/11.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  a85982313  
+##### 11023#       发表于 2025-5-2 22:23
+
+就算是真的哈曼，也不会是cv这种理由
+
+要换应该不会在gqux这种if作品换，包括这个夏亚的新cv也一样，就算池田真的不配了，也不觉得他能靠gqux这个无缝接盘其他作品的夏亚资格
+

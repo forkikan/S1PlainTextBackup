@@ -11333,3 +11333,13 @@ https://www.bilibili.com/video/BV13QGizqEc7  ...</blockquote>
  ...</blockquote>
 兄弟，有人要了没有，没人要可以给我吗，刚刚开始玩了几天，抽不出ur
 
+
+*****
+
+####  jackyhuang  
+##### 1077#       发表于 2025-5-2 22:14
+
+赶在最后一晚终于把红高达的浮游炮升满了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
