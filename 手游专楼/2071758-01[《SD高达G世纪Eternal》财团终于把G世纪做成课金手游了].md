@@ -11193,3 +11193,26 @@ https://www.bilibili.com/video/BV13QGizqEc7  ...</blockquote>
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  洛克萨斯  
+##### 1063#       发表于 2025-5-2 16:36
+
+<img src="https://img.stage1st.com/forum/202505/02/163550ue6gn5o8acrkdor6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (205.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-2 16:35 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">种系销冠的含金量，代哥数钱数到手抽筋了
+
+*****
+
+####  洛克萨斯  
+##### 1064#       发表于 2025-5-2 16:39
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">我用送的钻石中了ur正义才帮我一刀过ex难度金异端，两台ur打起来才能过，好像有人能单ur过，挺难的
+
