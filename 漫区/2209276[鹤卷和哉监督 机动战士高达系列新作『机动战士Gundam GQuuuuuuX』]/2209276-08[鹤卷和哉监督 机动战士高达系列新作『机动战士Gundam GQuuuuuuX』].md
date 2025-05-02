@@ -7406,3 +7406,17 @@ JK说的是赚的超过500亥特，算小赌意外赚
 
 GQUX世界线AE社应该还是民用公司吧，吉翁战胜了，吉翁尼克肯定还存在，不知道出现在这里的含义是什么，是不是暗示军团战其实是吉翁尼克暗地里组织的？吉翁尼克顶替了正史AE作为万恶之源的位置
 
+
+*****
+
+####  TRIScRE  
+##### 11018#       发表于 2025-5-2 21:28
+
+<img src="https://img.stage1st.com/forum/202505/02/212836bk98aa4k4kkx99bx.png" referrerpolicy="no-referrer">
+
+<strong>}2DMJ]0IOY{ZV2J%V_VJ%$A.png</strong> (3.33 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-2 21:28 上传
+
