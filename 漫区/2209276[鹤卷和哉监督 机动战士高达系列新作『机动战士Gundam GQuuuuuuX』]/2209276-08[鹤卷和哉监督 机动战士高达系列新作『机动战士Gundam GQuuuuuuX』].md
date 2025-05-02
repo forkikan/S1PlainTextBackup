@@ -7217,3 +7217,13 @@ JK说的是赚的超过500亥特，算小赌意外赚
 
 2025-5-2 18:34 上传
 
+
+*****
+
+####  lunaticfool  
+##### 11007#       发表于 2025-5-2 18:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67774569&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-2 16:16</a>
+红黄蓝</blockquote>
+修斯，你还是苍系啊
+
