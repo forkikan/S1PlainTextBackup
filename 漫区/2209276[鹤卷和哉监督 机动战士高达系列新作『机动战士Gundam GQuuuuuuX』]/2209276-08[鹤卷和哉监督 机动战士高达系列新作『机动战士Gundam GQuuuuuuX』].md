@@ -7162,3 +7162,58 @@ JK说的是赚的超过500亥特，算小赌意外赚
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Concrete  
+##### 11003#       发表于 2025-5-2 18:31
+
+<blockquote>a85982313 发表于 2025-5-2 17:52
+711的联动，参考前面和种自水魔的联动就是买特定零食（上次是巧克力），送立牌色纸还有吧唧 ...</blockquote>
+国内也会有吗
+
+*****
+
+####  秋月孝三  
+##### 11004#       发表于 2025-5-2 18:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比起男👻我更在意钉宫太太第几话进玻璃罩
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  mintslime  
+##### 11005#       发表于 2025-5-2 18:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67774172&amp;ptid=2209276" target="_blank">花達香奈 发表于 2025-5-2 12:10</a>
+
+上次被鹅球吞了再写一遍
+
+人妻魔女对nt擅自期待又擅自破防最终走向死路大家品鉴得够多了，不知道有没有一点 ...</blockquote>
+如果联邦的人有那么重视NT的话，那现在的地球理论上来说除了鸭妹手握三大NT，并且可能已经发现了他们的实力：
+
+没被逛窑子捡回去的神棍印度女人
+
+和爹一起被疏散所以在修儿童玩具的一般通过理工宅
+
+因为理工宅的爹没死所以自己爹没升官所以没有搬家到殖民地的名字像女人的中二男
+
+这地球我寻思着不大能去，要不然你们算了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  岸浪白野  
+##### 11006#       发表于 2025-5-2 18:35
+
+[X 上的 機動戦士Gundam GQuuuuuuX（ジークアクス）：“◤キャストトーク#2◢ 明日・5月3日(土)22時からプレミア公開！ #黒沢ともよ さん、#土屋神葉 さん、そしてシイコ・スガイ役 #塙真奈美 さんが初登場！ 第4話「魔女の戦争」のオーコメやお便り紹介など、たっぷり1時間お話いただきました！ ▼ご視聴は #ガンチャン で [url]https://t.co/Hqj3tIRBGK](https://x.com/G_GQuuuuuuX/status/1918252363288330426) [https://t.co/ljEXG32uaP](https://t.co/ljEXG32uaP)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/02/183408fz335nf1rdyr5110.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.03 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-2 18:34 上传
+

@@ -7434,3 +7434,77 @@ Diggy：アニメが来年に控えているので。
 
 [https://space.bilibili.com/3546875709885026](https://space.bilibili.com/3546875709885026)
 
+
+*****
+
+####  堀内爱里衣  
+##### 40765#       发表于 2025-5-2 18:32
+
+<img src="https://img.stage1st.com/forum/202505/02/183221rt7mpkhe0obuebk4.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-05-02_18-31-43.jpg</strong> (126.48 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-2 18:32 上传
+
+[https://t.bilibili.com/1062295384021270553](https://t.bilibili.com/1062295384021270553)
+[https://bushiroad.com/2025bushiroadexpo_chengdu_special_ch](https://bushiroad.com/2025bushiroadexpo_chengdu_special_ch)
+
+*****
+
+####  堀内爱里衣  
+##### 40766#       发表于 2025-5-2 18:34
+
+ 本帖最后由 堀内爱里衣 于 2025-5-2 18:35 编辑 
+
+<img src="https://img.stage1st.com/forum/202505/02/183352deeu4ujnmzgummz4.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-05-02_18-33-30.jpg</strong> (355.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-2 18:33 上传
+
+[https://x.com/bushi_creative/status/1918168614173327664](https://x.com/bushi_creative/status/1918168614173327664)
+[https://bushiroad-creative.com/items/84413/](https://bushiroad-creative.com/items/84413/)
+[https://bushiroad-creative.com/items/84440/](https://bushiroad-creative.com/items/84440/)
+[https://bushiroad-creative.com/items/84431/](https://bushiroad-creative.com/items/84431/)
+
+<img src="https://img.stage1st.com/forum/202505/02/183518ndixd0nysyygx6wn.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-05-02_18-34-55.jpg</strong> (315.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-2 18:35 上传
+
+[https://x.com/bushi_creative/status/1918168841244615032](https://x.com/bushi_creative/status/1918168841244615032)
+[https://bushiroad-creative.com/items/84421/](https://bushiroad-creative.com/items/84421/)
+[https://bushiroad-creative.com/items/84443/](https://bushiroad-creative.com/items/84443/)
+
+*****
+
+####  堀内爱里衣  
+##### 40767#       发表于 2025-5-2 18:37
+
+<img src="https://img.stage1st.com/forum/202505/02/183635zmf9zx3syf8xfhjs.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-05-02_18-35-52.jpg</strong> (288.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-2 18:36 上传
+
+[https://x.com/bushi_creative/status/1918233100569722897](https://x.com/bushi_creative/status/1918233100569722897)
+
+<img src="https://img.stage1st.com/forum/202505/02/183711toz3slblhpympiwb.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-05-02_18-36-51.jpg</strong> (381.37 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-2 18:37 上传
+
+[https://x.com/bushi_creative/status/1918233208191349226](https://x.com/bushi_creative/status/1918233208191349226)
+

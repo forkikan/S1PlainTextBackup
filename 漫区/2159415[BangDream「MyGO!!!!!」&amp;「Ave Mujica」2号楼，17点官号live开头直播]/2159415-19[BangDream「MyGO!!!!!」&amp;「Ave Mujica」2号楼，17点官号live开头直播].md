@@ -701,3 +701,365 @@ mygo：
 <img src="https://img.stage1st.com/forum/202505/01/190917pucjucuj5f2duffj.jpg" referrerpolicy="no-referrer">
 [https://t.bilibili.com/1061938386343821320](https://t.bilibili.com/1061938386343821320)
 
+
+*****
+
+####  堀内爱里衣  
+##### 27122#       发表于 2025-4-28 23:17
+
+ 本帖最后由 堀内爱里衣 于 2025-4-28 23:33 编辑 
+
+<strong>【Official Music Video】春日影(MyGO!!!!! ver.) / MyGO!!!!!【原创歌曲】</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202504/28/231641qffzfmvzz6fvb6fs.jpg" referrerpolicy="no-referrer">
+
+<strong>4f19fd048669b132a35818c7048b44e4f186f38a.jpg</strong> (133.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-28 23:16 上传
+
+わかれ道の、その先へ──────
+
+「春日影(MyGO!!!!! ver.)」
+
+作词：織田あすか(Elements Garden)
+
+作曲・编曲：藤田淳平(Elements Garden)
+
+歌：MyGO!!!!!
+
+监督 / 撮影：花坂 大気
+
+角色设计 / 插图：二十日
+
+动画 / 插图：
+
+らんか
+
+めだい
+
+れでぃば
+
+田中響
+
+イムヤ
+
+くろすみ
+
+キル
+
+山尾 波留
+
+さにぃがぁる
+
+わくりど
+
+あまのとう
+
+ぬまもみ
+
+超電導
+
+humuu
+
+りけい
+
+Aki
+
+mi
+
+BBBBB_old（SIGNIF）
+
+美术监督：中尾 陽子（キューン・プラント）
+
+美术制作进行：徳留 卓史（キューン・プラント）
+
+3DLO：光明院 藍衣（キューン・プラント）
+
+美术：
+
+市川 大起（キューン・プラント）
+
+松尾 春希（キューン・プラント）
+
+河合 良介（キューン・プラント）
+
+藤本 智（キューン・プラント）
+
+制作人：河崎 義輝（SIGNIF）
+
+制作进行：伊藤 夢（SIGNIF）
+
+制作：SIGNIF Inc.
+
+Streaming/DL：[https://bmu.lnk.to/MyGO_Haruhikageid](https://bmu.lnk.to/MyGO_Haruhikageid)
+
+#BanGDream# #MyGO# #春日影#</blockquote>
+[https://www.bilibili.com/video/BV1JHLUz4EUy](https://www.bilibili.com/video/BV1JHLUz4EUy)
+
+<img src="https://img.stage1st.com/forum/202504/28/233300y51tozu5cddz66t2.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-04-28_23-32-34.jpg</strong> (210.3 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-28 23:33 上传
+
+[https://x.com/bang_dream_mygo/status/1916867751718821934](https://x.com/bang_dream_mygo/status/1916867751718821934)
+[https://www.youtube.com/watch?v=ZsvJUh03MwI](https://www.youtube.com/watch?v=ZsvJUh03MwI)
+
+*****
+
+####  堀内爱里衣  
+##### 27123#       发表于 2025-4-28 23:21
+
+<img src="https://img.stage1st.com/forum/202504/28/232048qp8phpfypz2lehtj.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-04-28_23-20-09.jpg</strong> (182.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-28 23:20 上传
+
+[https://x.com/The_FirstTake/status/1916794525260845385](https://x.com/The_FirstTake/status/1916794525260845385)
+
+<img src="https://img.stage1st.com/forum/202504/28/232138a5tyjlj656cyqrsr.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-04-28_23-21-15.jpg</strong> (221.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-28 23:21 上传
+
+[https://x.com/The_FirstTake/status/1916794771307376656](https://x.com/The_FirstTake/status/1916794771307376656)
+
+*****
+
+####  Litccc  
+##### 27124#       发表于 2025-4-28 23:22
+
+ 本帖最后由 Litccc 于 2025-4-28 23:28 编辑 
+
+编辑           
+
+*****
+
+####  堀内爱里衣  
+##### 27125#       发表于 2025-4-28 23:33
+
+<img src="https://img.stage1st.com/forum/202504/28/233353ayxbpprp8yhp3ihz.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-04-28_23-33-28.jpg</strong> (143.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-28 23:33 上传
+
+[https://x.com/bang_dream_mygo/status/1916870023920124118](https://x.com/bang_dream_mygo/status/1916870023920124118)
+
+*****
+
+####  堀内爱里衣  
+##### 27126#       发表于 2025-4-28 23:53
+
+<img src="https://img.stage1st.com/forum/202504/28/235321blyzcw3pnt0hdtt7.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-04-28_23-49-44.jpg</strong> (217.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-28 23:53 上传
+
+[https://x.com/Hina_Youmiya/status/1916817230379291128](https://x.com/Hina_Youmiya/status/1916817230379291128) <blockquote>致一直支持着我们的大家：
+
+前些天举办的
+
+「在分岔路尽头」为期两天的演唱会
+
+顺利结束了?
+
+无论是不了解MyGO!!!!!的朋友，
+
+还是了解但无法参加的朋友，
+
+都通过各种方式给予了我们力量和支持，
+
+真的非常感谢大家。
+
+MyGO!!!!!将在明天(4月29日)
+
+迈入第4年?
+
+这部作品也成为了让我作为声优，
+
+发生巨大转变的重要契机。
+
+虽然在舞台上以角色的身份继续演出，
+
+但如果可以的话，
+
+也希望大家能够亲临MyGO!!!!!的现场，
+
+那将是无比幸福的?
+
+虽然谈了很多关于MyGO!!!!!的事情，
+
+但作为声优的我，
+
+也将继续一步步认真面对每一份工作。
+
+今后也请大家继续多多指教！
+
+P.S
+
+虽然可能因为赶不上把所有作品都看完而感到焦虑?
+
+但只要大家能遇见、喜欢上这些角色和作品，
+
+我就已经非常非常幸福了?
+
+羊宫妃那</blockquote>
+[译文地址](https://nga.178.com/read.php?tid=42522836&amp;page=553#pid820829068Anchor)
+
+*****
+
+####  堀内爱里衣  
+##### 27127#       发表于 2025-4-29 11:38
+
+<img src="https://img.stage1st.com/forum/202504/29/113817b956ibf5pn6o555o.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-04-29_11-37-49.jpg</strong> (146.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-29 11:38 上传
+
+[https://x.com/bang_dream_mygo/status/1917051225217904848](https://x.com/bang_dream_mygo/status/1917051225217904848)
+
+<strong>MyGO!!!!! 3周年纪念（Shuzuku老师）</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202504/29/113825l0bwtsz5bwdby23b.jpg" referrerpolicy="no-referrer">
+
+<strong>686e68ae325959094924fcf27c70303d73af5ea6.jpg</strong> (228.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-29 11:38 上传
+
+Shuzuku老师为MyGO!!!!!三周年画的贺图。
+[https://bm-echoes.com/creators/shuzuku/](https://bm-echoes.com/creators/shuzuku/)</blockquote>
+[https://www.bilibili.com/video/BV1axGyz4EzC](https://www.bilibili.com/video/BV1axGyz4EzC)
+
+*****
+
+####  堀内爱里衣  
+##### 27128#       发表于 2025-4-29 13:20
+
+<strong>[Hi-Res][250428]『BanG Dream!』MyGO!!!!! - 潜在表明 - From THE FIRST TAKE[48kHz/24bit][FLAC]高松燈(CV.羊宮妃那)、千早愛音(CV.立石凛)、要楽奈(CV.青木陽菜)、長崎そよ(CV.小日向美香)、椎名立希(CV.林鼓子) [64.5MB]</strong>
+
+<img src="https://img.stage1st.com/forum/202504/29/131926g3zjeeuczre83j1f.jpg" referrerpolicy="no-referrer">
+
+<strong>716KufAlXVL.jpg</strong> (260.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-29 13:19 上传
+
+[https://share.dmhy.org/topics/vi ... CV_CV_CV_CV_CV.html](https://share.dmhy.org/topics/view/694221_Hi-Res_250428_BanG_Dream%21_MyGO%21%21%21%21%21_-_-_From_THE_FIRST_TAKE_48kHz_24bit_FLAC_CV_CV_CV_CV_CV.html)
+
+Magnet連接: magnet:?xt=urn:btih:DD4YLI2PSTD3TZYLGUVKUVVB6KYNL2SO
+
+Magnet連接typeII: magnet:?xt=urn:btih:18f985a34f94c7b9e70b352aaa56a1f2b0d5ea4e
+
+*****
+
+####  月島まりな  
+##### 27129#       发表于 2025-4-29 15:45
+
+ 本帖最后由 月島まりな 于 2025-5-2 17:24 编辑 
+
+BanG Dream! 10th Anniversary LIVE
+
+2026年2月28日(土)　開場 12:30／開演 14:00（予定）
+
+S席(特製グッズ付き)：35,000円(税込)
+
+A席(特製グッズ付き)：25,000円(税込)
+
+一般指定席：10,000円(税込)
+
+<[img src="https://s2.loli.net/2025/05/02/Ycd7lpjrwqnGvaW.jpg" referrerpolicy="no-referrer">
+
+游戏先行抽选5/10重开
+
+*****
+
+####  堀内爱里衣  
+##### 27130#       发表于 2025-4-29 23:13
+
+<img src="https://img.stage1st.com/forum/202504/29/231322qfz4kq7srr2zprs2.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-04-29_23-11-39.jpg</strong> (122.91 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-29 23:13 上传
+
+[https://x.com/bang_dream_mygo/status/1917217323272003823](https://x.com/bang_dream_mygo/status/1917217323272003823)
+
+*****
+
+####  堀内爱里衣  
+##### 27131#       发表于 2025-4-30 16:15
+
+<img src="https://img.stage1st.com/forum/202504/30/161553rsbng79j8r8gmnmt.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-04-30_16-14-31.jpg</strong> (154.18 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 16:15 上传
+
+[https://t.bilibili.com/1061490880780697607](https://t.bilibili.com/1061490880780697607)
+[传送门](https://www.bilibili.com/blackboard/activity-Mz9T5bO5Q3.html?id=102857&amp;type=dlc&amp;f_source=social&amp;from=official)
+
+*****
+
+####  堀内爱里衣  
+##### 27132#       发表于 2025-4-30 22:03
+
+<img src="https://img.stage1st.com/forum/202504/30/220304xs277x2vkzgpx7g5.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-04-30_22-01-23.jpg</strong> (306.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-4-30 22:03 上传
+
+[https://x.com/AnimeDRIFTERJP/status/1917534434418647405](https://x.com/AnimeDRIFTERJP/status/1917534434418647405)
+
+▶5月6日 [https://ticketpay.jp/booking/?event_id=56029](https://ticketpay.jp/booking/?event_id=56029)
+
+▶5月17日 [https://ticketpay.jp/booking/?event_id=56058](https://ticketpay.jp/booking/?event_id=56058)
+
+*****
+
+####  堀内爱里衣  
+##### 27133#       发表于 2025-5-1 19:34
+
+<img src="https://img.stage1st.com/forum/202505/01/190916lqj3l9jtllclj69l.jpg" referrerpolicy="no-referrer">
+[https://x.com/BDP_yumemita/status/1917866592735572190](https://x.com/BDP_yumemita/status/1917866592735572190)
+
+<img src="https://img.stage1st.com/forum/202505/01/190917pucjucuj5f2duffj.jpg" referrerpolicy="no-referrer">
+[https://t.bilibili.com/1061938386343821320](https://t.bilibili.com/1061938386343821320)
+
+*****
+
+####  堀内爱里衣  
+##### 27134#       发表于 2025-5-2 18:33
+
+<img src="https://img.stage1st.com/forum/202505/02/183221rt7mpkhe0obuebk4.jpg" referrerpolicy="no-referrer">
+[https://t.bilibili.com/1062295384021270553](https://t.bilibili.com/1062295384021270553)
+[https://bushiroad.com/2025bushiroadexpo_chengdu_special_ch](https://bushiroad.com/2025bushiroadexpo_chengdu_special_ch)
+
