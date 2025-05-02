@@ -7477,3 +7477,21 @@ X 上的 バニリゾ/BANILIZO：“マrkgk [https://t.co/C82WEtYo3X” / X](htt
 
 要换应该不会在gqux这种if作品换，包括这个夏亚的新cv也一样，就算池田真的不配了，也不觉得他能靠gqux这个无缝接盘其他作品的夏亚资格
 
+
+*****
+
+####  Sliurus  
+##### 11024#       发表于 2025-5-2 23:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67775588&amp;ptid=2209276" target="_blank">心灵的乳头 发表于 2025-5-2 22:07</a>
+
+为什么一个个都是隐藏的巨ru</blockquote>
+因为巨R和人妻是约定俗成的组合<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灵魂收割机  
+##### 11025#       发表于 2025-5-2 23:01
+
+GQ的核心战机设计什么时候能派上用场呢<img src="https://static.stage1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+

@@ -11343,3 +11343,18 @@ https://www.bilibili.com/video/BV13QGizqEc7  ...</blockquote>
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  马桶3  
+##### 1078#       发表于 2025-5-2 23:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67775240&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-5-2 20:50</a>
+
+常驻池还有20抽就井了，不想抽SF了怎么办</blockquote>
+常驻完全可以靠抽卡券，目前抽卡券送的很平凡，可以预见常驻抽卡券会持续作为活动奖励
+
+运营策略应该是靠活动给券来稳住吴克微课基本盘来保持游戏热情和战力上限提升，然后靠限定池请氪佬进场的模式
+
+所以过了初始期再给基础池下石头不是很划算的行为
+
