@@ -225,3 +225,26 @@
 
 光pp慵懒2B脸魔法爽放放完了还有眠炮接着输出的半周年魔女，承蒙款待<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mobdom  
+##### 288#       发表于 2025-5-2 08:03
+
+唉，100抽都没有只能靠兑换。好伤
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  elven119  
+##### 289#       发表于 2025-5-2 08:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67773696&amp;ptid=2249235" target="_blank">UnknownRei 发表于 2025-5-2 03:03</a>
+
+穷逼只能先抽一个玩着了
+
+法师确实缺满克己或者像人妻土法转牧师的那一百多血，她这个算上被动，实际血条还 ...</blockquote>
+肯定喂了亚当的，现在亚当喂到了lv5，都是抽满克己的时候歪出来的
+
