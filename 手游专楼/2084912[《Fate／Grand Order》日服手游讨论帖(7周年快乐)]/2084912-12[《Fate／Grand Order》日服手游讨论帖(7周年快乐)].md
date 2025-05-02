@@ -388,3 +388,40 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草 梅塔隆贞德太牛逼了  让大家打了一个月麻将 
 
+
+*****
+
+####  angelooo  
+##### 16577#       发表于 2025-5-2 10:46
+
+<blockquote>v22325 发表于 2025-5-2 09:19
+草 梅塔隆贞德太牛逼了  让大家打了一个月麻将</blockquote>
+看到一个月后那里简直喷了
+
+*****
+
+####  qixinno2  
+##### 16578#       发表于 2025-5-2 11:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67773887&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-5-2 09:13</a>
+
+还得是羁绊石</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">狗萌新
+
+*****
+
+####  大十字紅朔  
+##### 16579#       发表于 2025-5-2 12:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67773896&amp;ptid=2084912" target="_blank">v22325 发表于 2025-5-2 09:19</a>
+
+草 梅塔隆贞德太牛逼了  让大家打了一个月麻将</blockquote>
+雀魂联动fate嘛
+
+*****
+
+####  alucardcz  
+##### 16580#       发表于 2025-5-2 13:09
+
+<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">这神贞德的动作和特效是认真的吗。。。和莉莉丝是同一个时代的产物》？
+

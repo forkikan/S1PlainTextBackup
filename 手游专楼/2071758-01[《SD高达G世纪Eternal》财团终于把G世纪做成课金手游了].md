@@ -11139,3 +11139,16 @@ https://www.bilibili.com/video/BV13QGizqEc7  ...</blockquote>
 —— 来自 vivo V2419A, Android 15, 鹅球 v3.5.99 ...</blockquote>
 先手动生产一个，画面会自动居中到铁球，然后再开始自动点击。录制自动点击过程的时候，生产完成那个动画等它自动播放完稍微再延迟一点再点屏幕，避免受网络波动影响。
 
+
+*****
+
+####  xinfengj  
+##### 1058#       发表于 2025-5-2 13:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67774168&amp;ptid=2071758" target="_blank">一个陆仁贾 发表于 2025-5-2 12:07</a>
+
+每生产完几次游戏画面被拖动，然后软件就点不准了呢
+
+—— 来自 vivo V2419A, Android 15, 鹅球 v3.5.99 ...</blockquote>
+铁球的话可以卡主在画面边缘 设置俩点一直点就行
+
