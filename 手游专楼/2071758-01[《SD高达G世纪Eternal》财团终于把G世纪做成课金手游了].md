@@ -11301,3 +11301,14 @@ https://www.bilibili.com/video/BV13QGizqEc7  ...</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">常驻池还有20抽就井了，不想抽SF了怎么办
 
+
+*****
+
+####  Marseille  
+##### 1074#       发表于 2025-5-2 21:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67775033&amp;ptid=2071758" target="_blank">winder0707 发表于 2025-5-2 20:00</a>
+
+我卡在我的手机无法加软件到无障碍弹窗那里</blockquote>
+我的手机是iqoo的，遇到这种情况是先把无障碍里这个软件开启的选项关掉，再打开一次就好用了，别的手机不清楚。
+
