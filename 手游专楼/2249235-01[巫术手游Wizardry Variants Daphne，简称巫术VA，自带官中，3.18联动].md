@@ -248,3 +248,27 @@
 法师确实缺满克己或者像人妻土法转牧师的那一百多血，她这个算上被动，实际血条还 ...</blockquote>
 肯定喂了亚当的，现在亚当喂到了lv5，都是抽满克己的时候歪出来的
 
+
+*****
+
+####  elven119  
+##### 290#       发表于 2025-5-2 08:17
+
+发个满克己的面板，装备还不太行，还可以提升魔力，刷全自动记得喂个解毒lv3，把mp用光
+
+<img src="https://img.stage1st.com/forum/202505/02/081643gll3bqtughueeglg.png" referrerpolicy="no-referrer">
+
+<strong>面板1.png</strong> (344.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-2 08:16 上传
+
+<img src="https://img.stage1st.com/forum/202505/02/081712s6jpc6xvsxra0uau.png" referrerpolicy="no-referrer">
+
+<strong>面板2.png</strong> (324.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-2 08:17 上传
+
