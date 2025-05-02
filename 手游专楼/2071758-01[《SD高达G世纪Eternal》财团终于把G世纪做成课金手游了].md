@@ -10966,3 +10966,32 @@ SEED新剧情竟然做了将近20分钟的动画，希望这种资源的投入�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">终于打过EX异端金，感觉配队核心是战舰，机体只是挂件。UR提升25%，SSR提升18%实在是太可观了
 
+
+*****
+
+####  chivalry  
+##### 1042#       发表于 2025-5-2 09:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67773598&amp;ptid=2071758" target="_blank">马桶3 发表于 2025-5-2 00:55</a>
+你现在的UR除了打手外，支援buff分别是减防（风灵）、光束增伤（自由）
+
+建议补充物理增伤（凤凰）或者特殊 ...</blockquote>
+红高达打不过 ex 太痛苦了，是不是就没办法拿到三星红高达
+
+*****
+
+####  凤凰院天豪  
+##### 1043#       发表于 2025-5-2 09:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67773908&amp;ptid=2071758" target="_blank">chivalry 发表于 2025-5-2 09:31</a>
+
+红高达打不过 ex 太痛苦了，是不是就没办法拿到三星红高达</blockquote>
+之后会返厂
+
+*****
+
+####  凤凰院天豪  
+##### 1044#       发表于 2025-5-2 09:34
+
+氪了三单，300抽就一个sf，仔细一看sf数值好低啊
+
