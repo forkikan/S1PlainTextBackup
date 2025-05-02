@@ -11152,3 +11152,16 @@ https://www.bilibili.com/video/BV13QGizqEc7  ...</blockquote>
 —— 来自 vivo V2419A, Android 15, 鹅球 v3.5.99 ...</blockquote>
 铁球的话可以卡主在画面边缘 设置俩点一直点就行
 
+
+*****
+
+####  Pumpkin_ccc  
+##### 1059#       发表于 2025-5-2 15:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67773598&amp;ptid=2071758" target="_blank">马桶3 发表于 2025-5-2 00:55</a>
+
+你现在的UR除了打手外，支援buff分别是减防（风灵）、光束增伤（自由）
+
+建议补充物理增伤（凤凰）或者特殊 ...</blockquote>
+好的，感谢，正在加紧肝红高达中
+
