@@ -11015,3 +11015,17 @@ SEED新剧情竟然做了将近20分钟的动画，希望这种资源的投入�
 或者可以考虑重开，强自拉满应该单刷红高达没啥问题，趁活动最后一天早做打算 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">我就是转生号，开的强自+拉克丝强行转生，现在队伍才 13w，强自上去会被红高达秒掉
 
+
+*****
+
+####  马桶3  
+##### 1047#       发表于 2025-5-2 09:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67773915&amp;ptid=2071758" target="_blank">凤凰院天豪 发表于 2025-5-2 09:34</a>
+氪了三单，300抽就一个sf，仔细一看sf数值好低啊</blockquote>
+强自和拉克丝配合下还是很有数值美的
+<img src="https://static.stage1st.com/image/smiley/carton2017/025.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/2159b355ef29d260f2142cefe93527b9/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2408A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

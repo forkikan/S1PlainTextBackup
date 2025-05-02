@@ -6583,3 +6583,14 @@ ChatGundam？
 
 g高那个是限定场地加驾驶员都精锐，驾驶系统是能完全控制机体动作的，就这样都还沾点超级系色彩。ce也就几个人能有这种能力，都是王牌，然后你跟我说地下黑拳起步标准就是这个，这是给超级机器人大战选拔驾驶员是吗？
 
+
+*****
+
+####  Toby_dak  
+##### 10956#       发表于 2025-5-2 09:52
+
+来个细节。
+
+<img src="https://p.sda1.dev/23/5b269a9e80d3df73f80096ed03a738dd/_New-raws_%20Kidou%20Senshi%20Gundam%20GQuuuuuuX%20-%2004%20_1080p_%20_AMZN_.mkv_snapshot_08.25.776.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/26fc117bbb0753f05bfae7222165bbc1/%E3%82%AD%E3%83%A3%E3%83%97%E3%83%81%E3%83%A3.JPG" id="aimg_s287y" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
