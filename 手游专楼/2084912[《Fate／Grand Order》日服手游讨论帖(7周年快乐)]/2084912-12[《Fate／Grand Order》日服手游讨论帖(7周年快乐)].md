@@ -469,3 +469,34 @@
 
 总体来说这奏章4的节奏算是差，但文笔还是在的，个人评价是比前面奏章1和2稍微好一点，但没奏章3紧凑好看。
 
+
+*****
+
+####  rollingusagi  
+##### 16585#       发表于 2025-5-2 19:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">剧情是真的长，才打到14章，不过目前观感是四个奏章里最好的，感觉这章和2.6有点像，前面的日常铺垫巨多但并不无聊，夹了很多主线相关，另外莉莉丝感觉是烟雾镜后又一个让人感觉非常有趣的原创角色，不过怠惰大天使也很有趣（要说缺点就是捏他珈百璃的堕落过于明显了），总的来说这次两新五星形象是真不错
+
+*****
+
+####  仰望神的括约肌  
+##### 16586#       发表于 2025-5-2 21:25
+
+打完了 这主线打官司看的人麻了 又臭又长不说 因为这打官司本身就够绷不住了 最后为了打官司牢卡掏大令咒就更给人一种闹麻了的感觉<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+以及最后打解禁怪的俩龟壳对撞真是顶级设计 但看在宅贞的小白袜的份上暂时原谅了 小白袜MVP<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 16587#       发表于 2025-5-2 21:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">md我今天打了一天才14节 感觉什么都没讲
+
+*****
+
+####  khxooo  
+##### 16588#       发表于 2025-5-3 01:00
+
+搞掂了，虽然整体没什么大问题，但是给我的震撼感和奏章2一个天一个地，可能这就是老婆没了和普通朋友没了的分别吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
