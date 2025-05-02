@@ -11175,3 +11175,21 @@ https://www.bilibili.com/video/BV13QGizqEc7  ...</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  okey3m  
+##### 1061#       发表于 2025-5-2 16:14
+
+又发了3000又没出，是不是无缘永恒之路ex3了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  真贝尔奈普斯  
+##### 1062#       发表于 2025-5-2 16:22
+
+俺就存钻了，等抽DX
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

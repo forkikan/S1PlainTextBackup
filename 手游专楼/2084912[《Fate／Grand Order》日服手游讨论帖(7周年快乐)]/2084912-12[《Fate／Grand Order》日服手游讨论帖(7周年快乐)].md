@@ -425,3 +425,47 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">这神贞德的动作和特效是认真的吗。。。和莉莉丝是同一个时代的产物》？
 
+
+*****
+
+####  qixinno2  
+##### 16581#       发表于 2025-5-2 13:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67774263&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-5-2 13:09</a>
+
+这神贞德的动作和特效是认真的吗。。。和莉莉丝是同一个时代的产物》？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">抽到了就在狗叫 呸 狗萌新已经比我多三个五星了
+
+*****
+
+####  alucardcz  
+##### 16582#       发表于 2025-5-2 13:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67774278&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-5-2 13:15</a>
+
+抽到了就在狗叫 呸 狗萌新已经比我多三个五星了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">5个月只出了7个5星 不到泥潭平均水平！
+
+*****
+
+####  qixinno2  
+##### 16583#       发表于 2025-5-2 13:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67774288&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-5-2 13:17</a>
+
+5个月只出了7个5星 不到泥潭平均水平！</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">呸 诅咒你跟我一样
+
+*****
+
+####  mousy55555  
+##### 16584#       发表于 2025-5-2 16:16
+
+30号晚上一直看到今天下午才看完这个奏章……太TM长太TM折磨了，虽然都懂作者想表达啥，但太TM折腾了，这几天看了至少有30W-50W字，说说自己感想吧。
+
+先说优点，没分上下部估计是听进去了玩家的骂声，让玩家自行决定哪里断开是一件大好事，希望后面还能这么做。剧本里的梗玩得算是相对到位，有搞笑有苦逼有严肃认真有悲情，该有的都有，盾妹强化也渲染得很到位，强度也终于对得起女主角这个名头，学弟的直接出场也算是一种惊喜，这一段绝对是蘑菇写的，对玩家一路走来给出了肯定，辈前的退场也显得很合情合理，最终甚至还给玩家包了饺子。
+
+好了该到喷的时候了，这剧本是真的又长又臭，想塞进去的东西太多从而导致剧本超长而且很多没必要的桥段塞了进去，例如但丁的剧情随便放一个活动里头其实也没所谓，非要用“这个地狱的构造是根据但丁的神曲描述生成的”这种桥段把但丁硬拉进来，整个奏章4从一开始在法庭出来到侦探事务所做任务感觉非常多余，毫无必要，被怠惰BEAM打中搞得打了一个月的麻将这种桥段其实可以在活动里搞，在主线里搞是有点分不清主次的感觉，前期甚至都已经跑到地狱第四层了，结果硬是要你回头从第一层开始继续跑，直到跑到地狱的底部了才有种故事真正进入高潮的感觉，但到这里玩家其实已经看了应该有20万字，很想看下去但真的很困这种感觉无数次出现，最终就是断断续续看了三天233。盾妹的强化剧情其实可以在之前的奏章里塞点预兆或者梦之类的情节，直接全塞到奏章4里头就有种突兀感。剩下的就是角色实在太多了，东一榔头西一棒子搞得玩家的情绪酝酿一团糟，特别是最终法庭那段，辈前用命给咕哒铺好了胜利之路，但胜诉后还要去应付莉莉丝和学弟，之后还有盾妹的第二宝具，就这种剧情高潮一波接一波过完后回到迦勒底才想起辈前挂了再开始哭，这时候玩家都情绪都被消耗掉了，我甚至都看到想快进了。
+
+总体来说这奏章4的节奏算是差，但文笔还是在的，个人评价是比前面奏章1和2稍微好一点，但没奏章3紧凑好看。
+
