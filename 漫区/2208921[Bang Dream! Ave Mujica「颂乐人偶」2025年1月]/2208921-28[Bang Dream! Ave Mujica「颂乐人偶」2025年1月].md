@@ -7508,3 +7508,27 @@ Diggy：アニメが来年に控えているので。
 
 [https://x.com/bushi_creative/status/1918233208191349226](https://x.com/bushi_creative/status/1918233208191349226)
 
+
+*****
+
+####  堀内爱里衣  
+##### 40768#       发表于 2025-5-2 21:10
+
+<img src="https://img.stage1st.com/forum/202505/02/211006clwqvnpqlvlqro9e.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-05-02_21-06-41.jpg</strong> (590.59 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-2 21:10 上传
+
+<img src="https://img.stage1st.com/forum/202505/02/211007eid8kkisezzmkmle.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-05-02_21-06-26.jpg</strong> (466.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-2 21:10 上传
+
+[https://x.com/Kanon_Takao/status/1918279907253338491](https://x.com/Kanon_Takao/status/1918279907253338491)
+
