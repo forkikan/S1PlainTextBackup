@@ -11165,3 +11165,13 @@ https://www.bilibili.com/video/BV13QGizqEc7  ...</blockquote>
 建议补充物理增伤（凤凰）或者特殊 ...</blockquote>
 好的，感谢，正在加紧肝红高达中
 
+
+*****
+
+####  lighttt  
+##### 1060#       发表于 2025-5-2 16:04
+
+好像又发3000了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
