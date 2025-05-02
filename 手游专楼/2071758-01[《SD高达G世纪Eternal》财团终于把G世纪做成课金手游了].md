@@ -11266,3 +11266,22 @@ https://www.bilibili.com/video/BV13QGizqEc7  ...</blockquote>
 
 玩不动小号了，有人要吗？拉妖没抽到，ur船只有电视姬，账号已绑定，邮箱新注册的一起送了
 
+
+*****
+
+####  winder0707  
+##### 1070#       发表于 2025-5-2 20:00
+
+<blockquote>Marseille 发表于 2025-5-2 11:23
+下载了个叫自动按键点击的APP，已经实现铁球全自动化量产了
+
+https://www.bilibili.com/video/BV13QGizqEc7  ...</blockquote>
+我卡在我的手机无法加软件到无障碍弹窗那里
+
+*****
+
+####  winder0707  
+##### 1071#       发表于 2025-5-2 20:02
+
+求个s1的群
+
