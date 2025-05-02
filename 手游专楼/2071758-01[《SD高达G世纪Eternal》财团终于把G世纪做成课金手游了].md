@@ -11394,3 +11394,15 @@ https://www.bilibili.com/video/BV13QGizqEc7  ...</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">啊 这几天发了6000石头？还好我账号没删，游戏装回来再救一下
 
+
+*****
+
+####  blue321  
+##### 1082#       发表于 2025-5-3 01:06
+
+本打算囤井结果没忍住
+结果是100抽两正义一自由+一花园丽战舰…说好不好说坏不坏吧，限定sf再见了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+倒是活动普池票抽完出了nta装备、机体好像不昨样但是给的驾驶有双援护真不错
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
