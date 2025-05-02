@@ -7388,3 +7388,21 @@ JK说的是赚的超过500亥特，算小赌意外赚
 唉，我可能也是过了看高达的年纪了，作为娃爹，看到麻球跟着修司屁股后面跑真的血压升高。tmd宇宙鬼火少年 ...</blockquote>
 到了可以说林有德名台词的时候了<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  ryanghj  
+##### 11017#       发表于 2025-5-2 20:47
+
+才发现OP里修司背后的背景里有个吉翁尼克的LOGO
+
+<img src="https://img.stage1st.com/forum/202505/02/204610plvxpxtgxesgwztw.png" referrerpolicy="no-referrer">
+
+<strong>【4月 主题曲 米津玄师】机动战士高达 GQuuuuuuX NCOP【MCE汉化组】 @00-30.13 174618.png</strong> (278.64 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-2 20:46 上传
+
+GQUX世界线AE社应该还是民用公司吧，吉翁战胜了，吉翁尼克肯定还存在，不知道出现在这里的含义是什么，是不是暗示军团战其实是吉翁尼克暗地里组织的？吉翁尼克顶替了正史AE作为万恶之源的位置
+
