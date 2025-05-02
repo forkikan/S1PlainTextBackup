@@ -6562,3 +6562,14 @@ ChatGundam？
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  千千千千鸟  
+##### 10954#       发表于 2025-5-2 08:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67773497&amp;ptid=2209276" target="_blank">灵魂收割机 发表于 2025-5-2 00:02</a>
+
+这集观战的所有人都是军团战相关人士/吉翁军人，军团战相关人士当然见怪不怪，吉翁军人这边你最起码看得 ...</blockquote>
+完全是翻译问题吧，首席哥说的不是什么对死人感到惊讶，而是军团战这种玩闹完全没必要这样拼命到死。
+
