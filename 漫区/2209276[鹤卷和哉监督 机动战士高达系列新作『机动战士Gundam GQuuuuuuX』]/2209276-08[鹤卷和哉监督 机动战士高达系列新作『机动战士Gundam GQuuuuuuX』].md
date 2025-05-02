@@ -7028,3 +7028,24 @@ JK说的是赚的超过500亥特，算小赌意外赚
 
 会不会蔷薇指的是地球上某个NT组织？修司是来Side6招揽符合条件的NT的
 
+
+*****
+
+####  YU_JI  
+##### 10993#       发表于 2025-5-2 17:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67774700&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-2 17:20</a>
+
+会不会蔷薇指的是地球上某个NT组织？修司是来Side6招揽符合条件的NT的</blockquote>
+你是说紫色老太婆在月神二号地下藏了一个NT组织，所罗门大爆炸的时候整个NT组织消失了吗<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  我聞如是  
+##### 10994#       发表于 2025-5-2 17:35
+
+<blockquote>AvenueIII 发表于 2025-5-2 17:10
+话说有妈妈魔女的新一集声优reaction是几号</blockquote>
+明天晚上9時(北京時間)
+
