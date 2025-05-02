@@ -7049,3 +7049,51 @@ JK说的是赚的超过500亥特，算小赌意外赚
 话说有妈妈魔女的新一集声优reaction是几号</blockquote>
 明天晚上9時(北京時間)
 
+
+*****
+
+####  ryanghj  
+##### 10995#       发表于 2025-5-2 17:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67774711&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-2 17:30</a>
+
+你是说紫色老太婆在月神二号地下藏了一个NT组织，所罗门大爆炸的时候整个NT组织消失了吗 ...</blockquote>
+玫瑰是在格拉纳达地下吧，不是月神二号地下
+
+*****
+
+####  Concrete  
+##### 10996#       发表于 2025-5-2 17:40
+
+<blockquote>岸浪白野 发表于 2025-5-2 16:16
+红黄蓝</blockquote>
+这是联动吗
+
+
+*****
+
+####  ryanghj  
+##### 10997#       发表于 2025-5-2 17:43
+
+ 本帖最后由 ryanghj 于 2025-5-2 17:44 编辑 
+
+问了下AI
+
+<img src="https://img.stage1st.com/forum/202505/02/174340e9lhl5aohj8slpna.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (234.11 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-2 17:43 上传
+
+发现日语里真有把木槿叫做沙仑的玫瑰的
+
+<img src="https://img.stage1st.com/forum/202505/02/174444bh8ih8k5288b5cpk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (296.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-2 17:44 上传
+
