@@ -6604,3 +6604,12 @@ g高那个是限定场地加驾驶员都精锐，驾驶系统是能完全控制�
  来个细节。</blockquote>
 这个我觉得问题倒是不大，Side6的首都对于一个发生在side6的故事来说太合适不过了
 
+
+*****
+
+####  蕾洁之风  
+##### 10958#       发表于 2025-5-2 11:13
+
+赛克谬没启动但是能躲火箭筒，是尼娅安还是首席在开
+<img src="https://p.sda1.dev/23/6ab51a1dfac9ddddce7046d6ce87baf6/image.jpg" referrerpolicy="no-referrer">
+
