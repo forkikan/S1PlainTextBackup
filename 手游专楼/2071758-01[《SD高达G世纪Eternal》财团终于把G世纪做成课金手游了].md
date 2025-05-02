@@ -11077,3 +11077,23 @@ SEED新剧情竟然做了将近20分钟的动画，希望这种资源的投入�
 
 其实这次打桩也不刚需ur红机，我就是一堆黄机乱枪打死的，第三回合只动了一个人
 
+
+*****
+
+####  一个陆仁贾  
+##### 1053#       发表于 2025-5-2 11:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67774030&amp;ptid=2071758" target="_blank">闲度朝夕 发表于 2025-5-2 10:52</a>
+设置一次抽100个就好了</blockquote>
+已经设置过了
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Marseille  
+##### 1054#       发表于 2025-5-2 11:23
+
+下载了个叫自动按键点击的APP，已经实现铁球全自动化量产了
+[https://www.bilibili.com/video/BV13QGizqEc7](https://www.bilibili.com/video/BV13QGizqEc7) 
+
