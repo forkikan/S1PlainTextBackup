@@ -7097,3 +7097,40 @@ JK说的是赚的超过500亥特，算小赌意外赚
 
 2025-5-2 17:44 上传
 
+
+*****
+
+####  岸浪白野  
+##### 10998#       发表于 2025-5-2 17:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67774731&amp;ptid=2209276" target="_blank">Concrete 发表于 2025-5-2 17:40</a>
+
+这是联动吗</blockquote>
+711联动
+
+
+*****
+
+####  ryanghj  
+##### 10999#       发表于 2025-5-2 17:52
+
+沙仑的玫瑰所在地沙仑有理想乡的含义，怕不是NT桃源乡
+
+<img src="https://img.stage1st.com/forum/202505/02/175213o5smk375zqmxcmmx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (312.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-2 17:52 上传
+
+*****
+
+####  a85982313  
+##### 11000#       发表于 2025-5-2 17:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67774731&amp;ptid=2209276" target="_blank">Concrete 发表于 2025-5-2 17:40</a>
+
+这是联动吗</blockquote>
+711的联动，参考前面和种自水魔的联动就是买特定零食（上次是巧克力），送立牌色纸还有吧唧
+
