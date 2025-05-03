@@ -420,3 +420,12 @@ leader高桥波尔卡
 
 —— 来自 Xiaomi 24129RT7CC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Piano-Forest  
+##### 45#         楼主| 发表于 2025-5-4 02:30
+
+【【20250503更新】生活好难部！LOVELIVE BLUEBIRD 情报整理】 
+[https://b23.tv/cYhhhh2](https://b23.tv/cYhhhh2)
+
