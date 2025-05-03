@@ -8291,3 +8291,123 @@ https://natalie.mu/music/pp/yonezukenshi30
 就是说两种「関係性」吧，一种是「主人公のマチュとニャアンの」，一种是「クランバトルにおける2人で1つみ ...</blockquote>
 这两个都是不是一个问题了，后面一段是问律师为什么觉得欠缺什么
 
+
+*****
+
+####  神鹰黑手哥  
+##### 11094#       发表于 2025-5-3 16:46
+
+<blockquote>千恋万花 发表于 2025-5-3 16:44
+就是说两种「関係性」吧，一种是「主人公のマチュとニャアンの」，一种是「クランバトルにおける2人で1つみ ...</blockquote>
+那只是起了一个强调作用
+
+*****
+
+####  刺客ares  
+##### 11095#       发表于 2025-5-3 16:48
+
+如果下集真是喵安上GQX，发现自己是NT，然后也开始迷恋kirakira的流程
+
+那这个主视角图的解读要完全改变了
+
+之前是OT喵安仰望NT玛秋的故事的感觉，但如果喵安也是NT的话
+
+这一幕其实是二人在争夺GQX，也就是争夺kirakira非日常感的意思吗
+
+<img src="https://img.stage1st.com/forum/202505/03/164448pjq5bywwynw5wscn.png" referrerpolicy="no-referrer">
+
+<strong>123.PNG</strong> (2.09 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-3 16:44 上传
+
+
+*****
+
+####  ryanghj  
+##### 11096#       发表于 2025-5-3 16:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67777098&amp;ptid=2209276" target="_blank">神鹰黑手哥 发表于 2025-5-3 16:40</a>
+
+第一段指的就是喵安玛修的关系性，他们两个人的名字是复句的主语，后面半句是用来修饰她们之间怎么的关系性 ...</blockquote>
+你的论据有点搞笑，不过往后看就知道了……现在吵这个也没用
+
+*****
+
+####  盐盐盐盐盐  
+##### 11097#       发表于 2025-5-3 16:51
+
+有没有可能喵安只是一个直觉很好的ot（
+主要我觉得标题叫喵安不知道krkr我总觉得会幽默一下想看的反而看不到
+那个旧原案不知道人物设定还有多少延续在现版本了
+
+*****
+
+####  ryanghj  
+##### 11098#       发表于 2025-5-3 16:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67777118&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-5-3 16:48</a>
+
+如果下集真是喵安上GQX，发现自己是NT，然后也开始迷恋kirakira的流程
+
+那这个主视角图的解读要完全改变了
+
+ ...</blockquote>
+说来到底啥时候能看到玛秋开全武装的gqux<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Concrete  
+##### 11099#       发表于 2025-5-3 16:53
+
+<blockquote>刺客ares 发表于 2025-5-3 16:08
+一定会有这个场面吧
+
+首席哥和玛秋一起看军团战直播
+
+欧米伽塞可缪被喵安启动了
+</blockquote>
+好想看到玛秋回到修司藏身处时，看到喵安和修司的互动(我记得喵安有对修司脸红吧)(ﾟДﾟ)ﾉ。青春活力
+
+少女被迫害什么的太美味了
+
+*****
+
+####  刺客ares  
+##### 11100#       发表于 2025-5-3 16:54
+
+官方出过这种东西
+
+玛秋喵安+GQX，修司+红高达
+
+11种里挑出玛秋喵安GQX，下面还特地给你标个kirakira
+
+GQX并不是双座机，二人不能同时上，那意思是抢同一台机呗
+
+<img src="https://img.stage1st.com/forum/202505/03/165142ip6qe13e44lw2ep4.png" referrerpolicy="no-referrer">
+
+<strong>1234.PNG</strong> (234.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-3 16:51 上传
+
+<img src="https://img.stage1st.com/forum/202505/03/165143wcg455zag25a2a2g.png" referrerpolicy="no-referrer">
+
+<strong>12345.PNG</strong> (142.18 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-3 16:51 上传
+
+*****
+
+####  galgamesh11  
+##### 11101#       发表于 2025-5-3 16:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67777125&amp;ptid=2209276" target="_blank">盐盐盐盐盐 发表于 2025-5-3 16:51</a>
+有没有可能喵安只是一个直觉很好的ot（
+主要我觉得标题叫喵安不知道krkr我总觉得会幽默一下想看的反而看不 ...</blockquote>
+主要“感觉能做到的时候就能做到”，属于完全的天赋型，ot的可能性不高（
+
