@@ -11445,3 +11445,21 @@ https://www.bilibili.com/video/BV13QGizqEc7  ...</blockquote>
 求个s1的群</blockquote>
 同求 现在加了个野群 刷屏速度太快 转眼间就99+
 
+
+*****
+
+####  史艳文  
+##### 1087#       发表于 2025-5-3 10:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67776256&amp;ptid=2071758" target="_blank">harry3 发表于 2025-5-3 08:44</a>
+
+没拉克丝不建议开，纯浪费时间，不如咸鱼小几十块对自己好点</blockquote>
+战舰这么重要的吗？
+
+*****
+
+####  droglo  
+##### 1088#       发表于 2025-5-3 10:25
+
+130抽三个正义两个拉克丝...
+
