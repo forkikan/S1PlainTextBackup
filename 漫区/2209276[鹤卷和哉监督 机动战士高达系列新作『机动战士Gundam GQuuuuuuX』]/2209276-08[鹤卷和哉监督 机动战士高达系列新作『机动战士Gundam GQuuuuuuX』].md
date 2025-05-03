@@ -8830,3 +8830,59 @@ ed纯属幻想的可能性更大
 其实我觉得gqx ed那个脚环有点像水魔结尾的戒指，konchi有点像水魔的大姑，都是橙色塑料壳，如果夏亚在konc ...</blockquote>
 所以喵安是614吧！那还得先演个和麻球相爱相杀，最后裸飘互相理解<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ryanghj  
+##### 11142#       发表于 2025-5-3 19:46
+
+[https://www.bilibili.com/video/BV1ZiVJziECq](https://www.bilibili.com/video/BV1ZiVJziECq)
+
+这老哥虽然一直暴论，但是这次的解析我感觉很有道理
+
+
+*****
+
+####  Toby_dak  
+##### 11143#       发表于 2025-5-3 19:51
+
+◤キャストトーク#2◢
+
+明日・5月3日(土)22時からプレミア公開！
+
+#黒沢ともよ さん、#土屋神葉 さん、そしてシイコ・スガイ役 #塙真奈美 さんが初登場！
+
+第4話「魔女の戦争」のオーコメやお便り紹介など、たっぷり1時間お話いただきました！
+
+▼ご視聴は #ガンチャン で
+[https://youtu.be/CcKnc-J2wt0](https://youtu.be/CcKnc-J2wt0)
+
+(※アニメ本編は各種配信サービス等にてご視聴ください)
+
+#GQuuuuuuX #ジークアクス
+
+*****
+
+####  ryanghj  
+##### 11144#       发表于 2025-5-3 19:53
+
+草，博美犬这几个人融入宝可梦毫无违和感
+
+[https://x.com/iwaibeni83_hrn/status/1918259422201028657](https://x.com/iwaibeni83_hrn/status/1918259422201028657)
+
+<img src="https://img.stage1st.com/forum/202505/03/195334k9tva9bpxxrtd11e.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (148.11 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-3 19:53 上传
+
+<img src="https://img.stage1st.com/forum/202505/03/195342gh7ghgh4hglhhbhz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (418.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-3 19:53 上传
+

@@ -1936,3 +1936,15 @@ baldr系列那种本来就是act的除外
 
 —— 来自 Xiaomi 23078RKD5C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  madcow  
+##### 184#       发表于 2025-5-3 19:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，酒窝这个名字原来是たすけて少个字
+
+再一想到话讲到一半走开的话她会直接惨叫一声。
+
+噫
+
