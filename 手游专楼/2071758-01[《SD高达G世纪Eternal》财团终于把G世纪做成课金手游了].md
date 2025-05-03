@@ -11545,3 +11545,18 @@ https://www.bilibili.com/video/BV13QGizqEc7  ...</blockquote>
 
 这么说虽然我没出强自但是有拉克斯其实也不算坑了<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  HEERO.W  
+##### 1096#       发表于 2025-5-3 16:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67776373&amp;ptid=2071758" target="_blank">史艳文 发表于 2025-5-3 10:23</a>
+战舰这么重要的吗？</blockquote>
+战舰很重要 x
+强度膨胀过的限定战舰很重要 √
+
+你都换初始了，当然全都要啊
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
