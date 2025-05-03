@@ -9332,3 +9332,46 @@ psycommu启动时候的光吧
 
 原来只有名字是吗？之前还催眠自己这个动力管看着挺像的，只是没有头盔<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Toby_dak  
+##### 11181#       发表于 2025-5-4 00:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67778164&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-3 23:42</a>
+
+吉姆？这名字一股联邦的臭味。从今天起你就叫格鲁古古了，听好了——是格鲁古古！
+
+说回来，那个原本打算量 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202505/04/010912evcx1ckolqcfm11t.jpg" referrerpolicy="no-referrer">
+
+<strong>8355dac5gy1i10zlmmua8j20di0i73zz.jpg</strong> (71.68 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-4 00:09 上传
+
+*****
+
+####  岸浪白野  
+##### 11182#       发表于 2025-5-4 00:11
+
+ 本帖最后由 岸浪白野 于 2025-5-4 00:14 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67778164&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-3 22:42</a>
+
+吉姆？这名字一股联邦的臭味。从今天起你就叫格鲁古古了，听好了——是格鲁古古！
+
+说回来，那个原本打算量 ...</blockquote>
+开始GQ这项工作前我曾分析过，高达可能因为技术资源资金这些消耗过大而难以量产。允许提姆·雷继续开发，本质是通过情报战手段故意泄露参数以抬高吉翁方MS研发门槛并拖延其进度。
+
+若视为降级机型又登场太早了实际上高达是为了掩护大量投入实战的真正主力吉姆的烟雾弹项目，这样解读更为合理。
+
+<img src="https://img.stage1st.com/forum/202505/03/235925g49kklflzfu939ii.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (85.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-3 23:59 上传
+
