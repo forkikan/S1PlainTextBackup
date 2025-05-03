@@ -11581,3 +11581,18 @@ https://www.bilibili.com/video/BV13QGizqEc7  ...</blockquote>
 强自和拉克丝配合下还是很有数值美的</blockquote>
 你满破的？？我0+1完全没有这样的数值
 
+
+*****
+
+####  windtrack  
+##### 1099#       发表于 2025-5-3 20:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67777274&amp;ptid=2071758" target="_blank">一个陆仁贾 发表于 2025-5-3 18:00</a>
+
+生产了一堆铁球也只满破了sr战舰，ssr突破材料居然要30000，就算是神壕不停抽出ur分解也没那么容易拿到吧
+
+ ...</blockquote>
+3万GP拆61坦克也就是75万，上个月你要是入坑早比较早就能打5级狗粮本就能凑到
+
+这个月肯定凑的出，就是手动开发+拆1500台坦克
+
