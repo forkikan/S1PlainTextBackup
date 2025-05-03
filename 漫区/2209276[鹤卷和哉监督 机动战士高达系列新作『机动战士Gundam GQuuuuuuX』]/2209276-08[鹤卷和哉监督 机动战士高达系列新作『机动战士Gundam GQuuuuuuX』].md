@@ -8811,3 +8811,22 @@ tv版预告有在宇宙进行天线变形的镜头哦
 
   如果结局真的和ed一样的话，去地球同居，就更像了
 
+
+*****
+
+####  ryanghj  
+##### 11140#       发表于 2025-5-3 19:27
+
+ed纯属幻想的可能性更大
+
+
+*****
+
+####  psycho_Gadfly  
+##### 11141#       发表于 2025-5-3 19:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67777467&amp;ptid=2209276" target="_blank">神鹰黑手哥 发表于 2025-5-3 19:19</a>
+
+其实我觉得gqx ed那个脚环有点像水魔结尾的戒指，konchi有点像水魔的大姑，都是橙色塑料壳，如果夏亚在konc ...</blockquote>
+所以喵安是614吧！那还得先演个和麻球相爱相杀，最后裸飘互相理解<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
