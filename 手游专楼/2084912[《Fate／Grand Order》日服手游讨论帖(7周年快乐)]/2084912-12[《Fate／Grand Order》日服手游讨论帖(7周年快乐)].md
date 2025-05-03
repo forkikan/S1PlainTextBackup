@@ -551,3 +551,52 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">打完主线马修这个强化，越看越觉得青子是个纯纯的小丑了。
 
+
+*****
+
+####  khxooo  
+##### 16594#       发表于 2025-5-3 17:22
+
+ 本帖最后由 khxooo 于 2025-5-3 17:23 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67776779&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2025-5-3 14:19</a>
+
+打完主线马修这个强化，越看越觉得青子是个纯纯的小丑了。</blockquote>国服也就幸好过了魔夜联动最高峰的时期，否则鼠鼠想杀了YLS的心都有<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+有个对比视频，大姐姐甚至要触发地特攻才能勉强超过马修<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 16595#       发表于 2025-5-3 17:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然而还是太麻烦了 
+
+*****
+
+####  qixinno2  
+##### 16596#       发表于 2025-5-3 18:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">终于还是来了 然而我已经没有石头了
+
+<img src="https://img.stage1st.com/forum/202505/03/183326lkez7ovfeyz59kde.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (297.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-3 18:33 上传
+
+*****
+
+####  quanlix  
+##### 16597#       发表于 2025-5-3 21:31
+
+推完了，感觉就月癌说的比较明白，其他几个都稀里糊涂的
+
+*****
+
+####  blue321  
+##### 16598#       发表于 2025-5-3 21:33
+
+这28章的剧情站打起来真折磨啊……
+
