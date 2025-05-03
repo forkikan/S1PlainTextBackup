@@ -9161,3 +9161,29 @@ ed纯属幻想的可能性更大
 
 按理来说，指的是nt光。（
 
+
+*****
+
+####  岸浪白野  
+##### 11171#       发表于 2025-5-3 22:42
+
+吉姆？这名字一股联邦的臭味。从今天起你就叫格鲁古古了，听好了——是格鲁古古！
+
+说回来，那个原本打算量产、却因制式名称被半路截胡而导致计划流产的——开发了肩膀尖刺鱼鳍头重型MS的团队，后来怎么样了呢？
+
+<img src="https://img.stage1st.com/forum/202505/03/223142m938i5xdtx5l3tt9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (39.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-3 22:31 上传
+
+<img src="https://img.stage1st.com/forum/202505/03/223204f8zi1u1qq554di8v.png" referrerpolicy="no-referrer">
+
+<strong>C3UKXNZY}}`HTT[U)@U4OF9.png</strong> (64.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-3 22:32 上传
+
