@@ -8730,3 +8730,11 @@ tv版预告有在宇宙进行天线变形的镜头哦
 
 所以 其实他和麻球约等于 傻子那和精神小伙版本的沙慈<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  otaku21126  
+##### 11131#       发表于 2025-5-3 18:50
+
+不如大胆预测第六集修司就死了，直接上女女关系性
+
