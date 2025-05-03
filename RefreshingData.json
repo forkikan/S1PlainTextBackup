@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 159951,
+    "totalreply": 159957,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1746264372,
+    "lastedit": 1746264975,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -10521,10 +10521,10 @@
     "update": false
   },
   "2209276": {
-    "totalreply": 11118,
+    "totalreply": 11122,
     "title": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
     "newtitle": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
-    "lastedit": 1746264133,
+    "lastedit": 1746264980,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10827,10 +10827,10 @@
     "update": false
   },
   "2238336": {
-    "totalreply": 1513,
+    "totalreply": 1514,
     "title": "[任天堂病 栋12楼，山雨欲来风满楼，新年新机新病 栋！／剑指1.16！]",
     "newtitle": "[任天堂病 栋12楼，山雨欲来风满楼，新年新机新病 栋！]",
-    "lastedit": 1746264252,
+    "lastedit": 1746265094,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11223,10 +11223,10 @@
     "update": false
   },
   "2125794": {
-    "totalreply": 145,
+    "totalreply": 146,
     "title": "[bilibili × Aniplex 凸变英雄X]",
     "newtitle": "[bilibili × Aniplex 凸变英雄X]",
-    "lastedit": 1746107294,
+    "lastedit": 1746264979,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11700,10 +11700,10 @@
     "update": false
   },
   "2186945": {
-    "totalreply": 663,
+    "totalreply": 664,
     "title": "[RPG游戏光与影：33号远征队发布，2025／4／24发售，xs／ps5／pc，首发xgp]",
     "newtitle": "[RPG游戏光与影：33号远征队发布，2025／4／24发售，xs／ps5／pc，首发xgp]",
-    "lastedit": 1746264253,
+    "lastedit": 1746265092,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12578,7 +12578,7 @@
     "newtitle": "[《哑铃能举多少公斤》作者新作女子格斗漫画《一胜千金》]",
     "lastedit": 1746005533,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2209153": {
@@ -12627,10 +12627,10 @@
     "update": false
   },
   "2251429": {
-    "totalreply": 198,
+    "totalreply": 199,
     "title": "[【剧透警告】光与影：33号远征队结局／剧情讨论楼 本楼无反白]",
     "newtitle": "[【剧透警告】光与影：33号远征队结局／剧情讨论楼 本楼无反白 …]",
-    "lastedit": 1746263054,
+    "lastedit": 1746264854,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12969,11 +12969,20 @@
     "update": false
   },
   "2247910": {
-    "totalreply": 50,
+    "totalreply": 51,
     "title": "[寺胖新访谈，看这意思是还有机战？]",
     "newtitle": "[寺胖新访谈，看这意思是还有机战？]",
-    "lastedit": 1746260537,
+    "lastedit": 1746264852,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2244986": {
+    "totalreply": 41,
+    "title": "[LoveLive! 新企划『LOVELIVE! BLUEBIRD』]",
+    "newtitle": "[LoveLive! 新企划『LOVELIVE! BLUEBIRD』]",
+    "lastedit": 1746264735,
+    "category": "漫区",
     "active": true,
     "update": false
   }
