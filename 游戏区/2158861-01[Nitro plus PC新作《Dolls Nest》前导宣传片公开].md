@@ -1868,3 +1868,11 @@ baldr系列那种本来就是act的除外
 上层的光弹无人机和中层的装甲无人机应该都是当地的铠灵生产的。在中层第一次遇到腿很长的蜘蛛无人机时，场 ...</blockquote>
 搞不好圣柜里的怪才是碳基猴子造的 甚至可能是铠灵原型 ？这什么泰坦造人血肉诅咒<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zzy516232108  
+##### 179#       发表于 2025-5-3 16:23
+
+没玩过装甲核心的任何一作，玩过marvlous的dxm，能玩这个吗
+

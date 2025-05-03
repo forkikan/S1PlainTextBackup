@@ -8088,3 +8088,47 @@ ED里玛秋和喵安的脚链都是蓝色，我们现在知道玛秋=红色，�
 https://natalie.mu/music/pp/yonezukenshi30
 不知道能不能贴上来？就这篇
 
+
+*****
+
+####  神鹰黑手哥  
+##### 11077#       发表于 2025-5-3 16:18
+
+<blockquote>盐盐盐盐盐 发表于 2025-5-3 15:58
+这是翻译错误，我去看过原文的，没有说mav关系是“她们”的mav关系，原文是并列的，麻球喵安的关系，mav ...</blockquote>
+日语特有的省略主语罢了、那段是递进关系不是并列关系
+
+<img src="https://img.stage1st.com/forum/202505/03/161729ud7s1tdn3n7n153s.jpg" referrerpolicy="no-referrer">
+
+<strong>1000101661.jpg</strong> (167.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-3 16:17 上传
+
+，我用deepseek翻了一遍
+
+
+*****
+
+####  盐盐盐盐盐  
+##### 11078#       发表于 2025-5-3 16:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67777051&amp;ptid=2209276" target="_blank">神鹰黑手哥 发表于 2025-5-3 16:18</a>
+ 日语特有的省略主语罢了、那段是递进关系不是并列关系 ，我用deepseek翻了一遍 ...</blockquote>
+呃，不用吃二手翻译，原文没指明说的mav是谁，你可以自行理解但是我觉得是不能作为论据啦，毕竟也没有说什么この2人或者彼女たち之类指向性很明显承接的词
+
+*****
+
+####  ryanghj  
+##### 11079#       发表于 2025-5-3 16:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67776965&amp;ptid=2209276" target="_blank">galgamesh11 发表于 2025-5-3 15:43</a>
+
+原来台词是这个吗，和夏日幻听那边的意思完全不一样，他翻译成了“动摇” ...</blockquote>
+あの時もそうだったし…やれそうな気がする時はやれる
+
+那时候也是这样…感觉能做到的时候就能做到
+
+确实是翻译错了，但从这句话来看喵安肯定也是NT
+
