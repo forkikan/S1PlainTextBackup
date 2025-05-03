@@ -9385,3 +9385,21 @@ psycommu启动时候的光吧
 
 不过感觉配的挺不错的，日常状态比较温柔，战斗状态更偏向坚定坚决的感觉。除了开打前那句，没有那种俗气的媚魔女的感觉
 
+
+*****
+
+####  Piano-Forest  
+##### 11184#         楼主| 发表于 2025-5-4 03:09
+
+[https://x.com/mn38ka/status/1917611492989640834](https://x.com/mn38ka/status/1917611492989640834)
+<img src="https://p.sda1.dev/23/122e5c30dc05b88904ec94e8b65f1d13/20250504_025714.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/niko9_niku9/status/1917941735533289604](https://x.com/niko9_niku9/status/1917941735533289604)
+<img src="https://p.sda1.dev/23/4907a311caa5e615b5b14d5c4b592635/20250504_025644.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/Kei_Lori/status/1918263846604775682](https://x.com/Kei_Lori/status/1918263846604775682)
+<img src="https://p.sda1.dev/23/45fb00d58c022a7d2d10c341eef80353/20250504_025630.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/rabigan2/status/1918187241975021935](https://x.com/rabigan2/status/1918187241975021935)
+<img src="https://p.sda1.dev/23/fbbbcddd030c3465e447f880a2efb2d4/20250504_025612.jpg" referrerpolicy="no-referrer">
+
