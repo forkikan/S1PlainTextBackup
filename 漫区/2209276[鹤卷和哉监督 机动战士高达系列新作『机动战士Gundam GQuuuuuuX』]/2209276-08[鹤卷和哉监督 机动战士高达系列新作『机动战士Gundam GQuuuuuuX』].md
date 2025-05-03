@@ -7731,3 +7731,15 @@ X 上的 バニリゾ/BANILIZO：“マrkgk [https://t.co/C82WEtYo3X” / X](htt
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  otaku21126  
+##### 11048#       发表于 2025-5-3 10:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67776157&amp;ptid=2209276" target="_blank">cih 发表于 2025-5-3 04:34</a>
+别再哈哈哈哈曼假药了好吧 真心太蠢了——要不惜破坏系列历史和结构就为了把女主栽成个怨妇战犯？什么脑子, ...</blockquote>
+哈曼对除了富野安彦以外的高达企划staff来说根本就不是“战犯”啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我记得机战最早期就已经能让哈曼作为队友入队了吧，反而从没下过屠杀命令的希洛克更多担当纯反派。
+UCE手游之前更是搞出“夏亚、哈曼纷纷洗白加入主角方，希洛克反而要扔阿克西斯，一人对抗夏亚哈曼阿姆罗卡缪捷度五大NT”的惊天洗白情节。
+女人角色就是罪减一万等啊。
+
