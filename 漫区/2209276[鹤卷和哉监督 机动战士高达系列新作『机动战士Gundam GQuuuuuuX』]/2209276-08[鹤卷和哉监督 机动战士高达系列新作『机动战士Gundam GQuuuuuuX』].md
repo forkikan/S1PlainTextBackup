@@ -8720,3 +8720,13 @@ tv版预告有在宇宙进行天线变形的镜头哦
 
 —— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  psycho_Gadfly  
+##### 11130#       发表于 2025-5-3 17:50
+
+不负责任奶个 修司就是红高机魂的一部分 上机之后才是完全体
+
+所以 其实他和麻球约等于 傻子那和精神小伙版本的沙慈<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

@@ -182,3 +182,11 @@ PC硬件配置千差万别，调试成本会很高吧？
 
 看错了编辑
 
+
+*****
+
+####  妄想中毒  
+##### 3744#       发表于 2025-5-3 17:53
+
+哪怕不谈剧情问题，这游戏也找不到一丝能大卖的理由<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
