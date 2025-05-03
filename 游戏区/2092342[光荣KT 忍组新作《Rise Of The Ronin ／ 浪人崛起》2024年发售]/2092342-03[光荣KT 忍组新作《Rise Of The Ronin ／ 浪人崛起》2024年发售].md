@@ -190,3 +190,11 @@ PC硬件配置千差万别，调试成本会很高吧？
 
 哪怕不谈剧情问题，这游戏也找不到一丝能大卖的理由<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  性兽阿怪  
+##### 3745#       发表于 2025-5-3 23:58
+
+羊蹄山今年都出来了，光荣这几年都干啥去了，原地踏步啊这是
+

@@ -1961,3 +1961,19 @@ baldr系列那种本来就是act的除外
 —— 来自 Xiaomi 23078RKD5C, And ...</blockquote>
 我用大剑砍掉的 应该只是不能锁定正常都能打吧
 
+
+*****
+
+####  Vastoo  
+##### 186#       发表于 2025-5-4 00:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67777530&amp;ptid=2158861" target="_blank">madcow 发表于 2025-5-3 19:49</a>
+草，酒窝这个名字原来是たすけて少个字
+
+再一想到话讲到一半走开的话她会直接惨叫一声。
+
+噫 ...</blockquote>
+简中是酒窝，繁中是九命（
+
+—— 来自 Xiaomi 23078RKD5C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
