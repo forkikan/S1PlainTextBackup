@@ -1914,3 +1914,15 @@ baldr系列那种本来就是act的除外
 没玩过装甲核心的任何一作，玩过marvlous的dxm，能玩这个吗</blockquote>
 随便玩 本体关卡魂的内容更多
 
+
+*****
+
+####  蓝雉  
+##### 182#       发表于 2025-5-3 17:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67777097&amp;ptid=2158861" target="_blank">madcow 发表于 2025-5-3 16:39</a>
+说话头支线那个机器人造型才是明确是人类造的吧
+
+“本机任务是进行自我增值型战略武器，俗称人偶之巢的内部 ...</blockquote>
+说不定是冲出霍德的波洛卡<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

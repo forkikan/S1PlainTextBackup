@@ -8411,3 +8411,138 @@ GQX并不是双座机，二人不能同时上，那意思是抢同一台机呗
 主要我觉得标题叫喵安不知道krkr我总觉得会幽默一下想看的反而看不 ...</blockquote>
 主要“感觉能做到的时候就能做到”，属于完全的天赋型，ot的可能性不高（
 
+
+*****
+
+####  千恋万花  
+##### 11102#       发表于 2025-5-3 16:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67777134&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-5-3 16:54</a>
+
+官方出过这种东西
+
+玛秋喵安+GQX，修司+红高达
+
+11种里挑出玛秋喵安GQX，下面还特地给你标个kirakira</blockquote>
+下面那个应该是「一番くじ」的「きゅんキャラ」系列吧
+
+*****
+
+####  岸浪白野  
+##### 11103#       发表于 2025-5-3 16:57
+
+ 本帖最后由 岸浪白野 于 2025-5-3 16:59 编辑 
+
+第3集说的不要重蹈17番地的覆辙之前还在猜跟什么有关，第4集民众抗议直接说17番地的惨剧，已经又是大规模死人事件了吧
+
+<img src="https://img.stage1st.com/forum/202505/03/164634tgurl5l5ojkgb25u.png" referrerpolicy="no-referrer">
+
+<strong>PLVOSZQ91TP)(1(_$YSGRBW.png</strong> (519.48 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-3 16:46 上传
+
+<img src="https://img.stage1st.com/forum/202505/03/164631bo68h8zx1xovdo16.png" referrerpolicy="no-referrer">
+
+<strong>OKRL9RCGV2J0YH[$V264(%W.png</strong> (707.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-3 16:46 上传
+
+<img src="https://img.stage1st.com/forum/202505/03/165021heuf9edbs5e9edhc.png" referrerpolicy="no-referrer">
+
+<strong>]4QL@U]O@NHF_1(%R2C)OZM.png</strong> (61.65 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-3 16:50 上传
+
+*****
+
+####  灵魂收割机  
+##### 11104#       发表于 2025-5-3 16:57
+
+不要太在意访谈了，还是日语的。慢慢往后看吧。
+
+*****
+
+####  galgamesh11  
+##### 11105#       发表于 2025-5-3 16:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67777140&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-3 16:57</a>
+第3集说不要重蹈17番地的覆辙还是有点神秘，第4集民众抗议说17番地的惨剧，又是大规模死人事件了吧
+
+ ...</blockquote>
+按照传统的话就是上毒气了（）
+
+*****
+
+####  ryanghj  
+##### 11106#       发表于 2025-5-3 16:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67777134&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-5-3 16:54</a>
+
+官方出过这种东西
+
+玛秋喵安+GQX，修司+红高达
+
+11种里挑出玛秋喵安GQX，下面还特地给你标个kirakira</blockquote>
+那个是きゅんキャラ<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">是品牌名
+
+
+*****
+
+####  Concrete  
+##### 11107#       发表于 2025-5-3 17:00
+
+如果qgx喵安可以开，那玛秋的必要性就需要讨论下了
+
+*****
+
+####  galgamesh11  
+##### 11108#       发表于 2025-5-3 17:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67777147&amp;ptid=2209276" target="_blank">Concrete 发表于 2025-5-3 17:00</a>
+
+如果qgx喵安可以开，那玛秋的必要性就需要讨论下了</blockquote>
+
+大魔战看pv一开始连系统都没启动，要是之后连系统都启动了才会进这个议题吧（）
+
+*****
+
+####  a85982313  
+##### 11109#       发表于 2025-5-3 17:02
+
+访谈就算了，可能真有剧透也说不定
+
+周边你们想啥呢，好歹也是主角，混搭一个机体很正常啊，水魔米这种周边里面不也和狸猫风灵异灵放一起的
+
+周边的话喵安的frs附件里面还有修司的小机器人呢，按这个逻辑，是不是修司要被喵安爆金币啊？
+
+*****
+
+####  盐盐盐盐盐  
+##### 11110#       发表于 2025-5-3 17:03
+
+喵安目测打不开omega系统的
+（不过要是不开系统都乱杀那首席哥战力又被垫了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">）
+
+*****
+
+####  夜雨秋水  
+##### 11111#       发表于 2025-5-3 17:03
+
+本作讲的是以主人公天手让叶为中心，以一段相遇为契机改变世界的故事，用任何形式来质疑主人公存在的必要性是不是有点搞笑？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  花達香奈  
+##### 11112#       发表于 2025-5-3 17:05
+
+米奇律师访谈也好讨论么
+他懂个屁高达，怕是鹤卷拿Z的剧本替换了几个名字给他都看不出<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
