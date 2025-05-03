@@ -11479,3 +11479,27 @@ https://www.bilibili.com/video/BV13QGizqEc7  ...</blockquote>
 
 我开了个小号抽到了拉克丝，才打了一天，发现比我大号厉害了。之前还是用的商店换的主角战舰，还是抽拉克丝加强自开局好了。简简单单数值的美，比你算半天的格子有用的多
 
+
+*****
+
+####  一个陆仁贾  
+##### 1091#       发表于 2025-5-3 11:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67776355&amp;ptid=2071758" target="_blank">blue321 发表于 2025-5-3 10:06</a>
+这抽卡特殊演出也会诈骗的吗，阿姆罗出来了但是没通电原来也没有ur的啊
+
+—— 来自 鹅球 v3.4.98 ...</blockquote>
+10连
+普通开舱门，保底ssr
+接近大气层开舱门（外头火红），多个ssr
+
+作战开始 字体周围有ur的彩色，ur
+
+有阿姆罗出现，？
+有鸭妹出现，抽出限定池up的东西
+很多高达齐飞，抽出限定ur
+
+大概是这样，我也挺迷糊的
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
