@@ -7821,3 +7821,68 @@ THE-O這時失蹤
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哈曼是关系户，奶奶头没有关系可托，CO作里待遇当然是不一样的，性别反而是次要因素
 
+
+*****
+
+####  ryanghj  
+##### 11054#       发表于 2025-5-3 12:32
+
+ 本帖最后由 ryanghj 于 2025-5-3 12:33 编辑 
+
+ED里玛秋和喵安的脚链都戴在右脚上，都是蓝色，我们现在知道玛秋=红色，修司=蓝色，喵安=黄色，ED里没有修司出现，会不会是这里在呼应？
+
+<img src="https://img.stage1st.com/forum/202505/03/122616j4j8fcxcfyancrnf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (266.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-3 12:26 上传
+
+<img src="https://img.stage1st.com/forum/202505/03/122722ux6afrp6piue5p5y.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (183.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-3 12:27 上传
+
+这里也是，红的黄的挂件都很多，唯独蓝色的只有一个
+
+<img src="https://img.stage1st.com/forum/202505/03/122758s7j4laja7l444eoe.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (116.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-3 12:27 上传
+
+*****
+
+####  韶华白首  
+##### 11055#       发表于 2025-5-3 12:33
+
+玛秋这头发是染的啊……
+
+开播没怎么爬楼，楼里啥时候发现的？
+
+<img src="https://img.stage1st.com/forum/202505/03/123308h8f20zjhm2x5zgz0.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6940.jpeg</strong> (237.4 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-3 12:33 上传
+
+
+*****
+
+####  YU_JI  
+##### 11056#       发表于 2025-5-3 12:37
+
+<blockquote>韶华白首 发表于 2025-5-3 12:33
+玛秋这头发是染的啊……
+
+开播没怎么爬楼，楼里啥时候发现的？</blockquote>
+人设图出来的时候其实就能看出来了，发尾明显不是阴影
+
