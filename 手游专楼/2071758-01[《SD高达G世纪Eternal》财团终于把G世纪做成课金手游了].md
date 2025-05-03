@@ -11560,3 +11560,13 @@ https://www.bilibili.com/video/BV13QGizqEc7  ...</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  一个陆仁贾  
+##### 1097#       发表于 2025-5-3 18:00
+
+生产了一堆铁球也只满破了sr战舰，ssr突破材料居然要30000，就算是神壕不停抽出ur分解也没那么容易拿到吧<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
