@@ -1926,3 +1926,13 @@ baldr系列那种本来就是act的除外
 “本机任务是进行自我增值型战略武器，俗称人偶之巢的内部 ...</blockquote>
 说不定是冲出霍德的波洛卡<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Vastoo  
+##### 183#       发表于 2025-5-3 18:26
+
+想问下沉积地带那个隐形的生小蜘蛛的母体（？）是只能准星对着硬打吗？<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23078RKD5C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
