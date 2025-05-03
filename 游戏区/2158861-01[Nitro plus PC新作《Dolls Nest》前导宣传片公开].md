@@ -1977,3 +1977,15 @@ baldr系列那种本来就是act的除外
 
 —— 来自 Xiaomi 23078RKD5C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Vastoo  
+##### 187#       发表于 2025-5-4 00:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67777666&amp;ptid=2158861" target="_blank">squallx 发表于 2025-5-3 20:36</a>
+我用大剑砍掉的 应该只是不能锁定正常都能打吧</blockquote>
+之后看了看，好像还不止一个母体，难顶<img src="https://static.stage1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23078RKD5C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

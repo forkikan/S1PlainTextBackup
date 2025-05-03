@@ -600,3 +600,41 @@
 
 这28章的剧情站打起来真折磨啊……
 
+
+*****
+
+####  poor  
+##### 16599#       发表于 2025-5-3 22:57
+
+不想动脑了，28章有什么作业抄吗？
+
+*****
+
+####  大十字紅朔  
+##### 16600#       发表于 2025-5-3 23:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67778247&amp;ptid=2084912" target="_blank">poor 发表于 2025-5-3 22:57</a>
+
+不想动脑了，28章有什么作业抄吗？</blockquote>
+给马修打上指定卡单挑最方便
+
+
+*****
+
+####  poor  
+##### 16601#       发表于 2025-5-4 00:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67778474&amp;ptid=2084912" target="_blank">大十字紅朔 发表于 2025-5-3 23:43</a>
+给马修打上指定卡单挑最方便</blockquote>
+已经XJB打过了，想着反正有灵脉石，结果最后令咒也没用<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虽然打得很辛苦
+
+*****
+
+####  大十字紅朔  
+##### 16602#       发表于 2025-5-4 00:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67778719&amp;ptid=2084912" target="_blank">poor 发表于 2025-5-4 00:45</a>
+
+已经XJB打过了，想着反正有灵脉石，结果最后令咒也没用虽然打得很辛苦</blockquote>
+这一章战斗其实挺简单的
+
