@@ -1876,3 +1876,41 @@ baldr系列那种本来就是act的除外
 
 没玩过装甲核心的任何一作，玩过marvlous的dxm，能玩这个吗
 
+
+*****
+
+####  madcow  
+##### 180#       发表于 2025-5-3 16:39
+
+说话头支线那个机器人造型才是明确是人类造的吧
+
+“本机任务是进行自我增值型战略武器，俗称人偶之巢的内部调查
+
+感觉是人类盖了个兵工厂（圣智庙）然后CELL失控在上边长了个巢出来
+
+<img src="https://img.stage1st.com/forum/202505/03/163112qqrngamm6f0fqg2x.jpg" referrerpolicy="no-referrer">
+
+<strong>Dollsnest Screenshot 2025.04.29 - 18.43.05.61.jpg</strong> (39.11 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-3 16:31 上传
+
+现在不清楚的就是这位出现的没头没脑的，那套不明素体就是她这套吧。
+
+然后对应的头发和脸的描述是于斗争中存活之人（身体は闘争を求める
+
+回本楼第一页那张早期宣传图，她是从外边来的？
+
+但是感觉看其他各处描述铠灵应该是巢内特产
+
+*****
+
+####  squallx  
+##### 181#       发表于 2025-5-3 16:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67777062&amp;ptid=2158861" target="_blank">zzy516232108 发表于 2025-5-3 16:23</a>
+
+没玩过装甲核心的任何一作，玩过marvlous的dxm，能玩这个吗</blockquote>
+随便玩 本体关卡魂的内容更多
+
