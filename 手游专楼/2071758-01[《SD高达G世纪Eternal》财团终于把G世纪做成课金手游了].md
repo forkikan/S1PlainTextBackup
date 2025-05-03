@@ -11503,3 +11503,26 @@ https://www.bilibili.com/video/BV13QGizqEc7  ...</blockquote>
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  棍机凹升龙  
+##### 1092#       发表于 2025-5-3 12:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67776506&amp;ptid=2071758" target="_blank">一个陆仁贾 发表于 2025-5-3 11:42</a>
+10连
+普通开舱门，保底ssr
+接近大气层开舱门（外头火红），多个ssr</blockquote>
+我的就是一堆主角机起飞然后鸭妹，来了拉克丝
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  马桶3  
+##### 1093#       发表于 2025-5-3 12:54
+
+我嫌弃阿姆罗出击动画时间太长，都是直接跳过的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2408A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
