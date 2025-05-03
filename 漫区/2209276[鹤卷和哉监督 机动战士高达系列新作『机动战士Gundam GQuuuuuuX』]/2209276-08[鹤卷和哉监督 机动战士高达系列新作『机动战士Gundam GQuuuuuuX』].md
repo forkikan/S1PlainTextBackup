@@ -9403,3 +9403,23 @@ psycommu启动时候的光吧
 [https://x.com/rabigan2/status/1918187241975021935](https://x.com/rabigan2/status/1918187241975021935)
 <img src="https://p.sda1.dev/23/fbbbcddd030c3465e447f880a2efb2d4/20250504_025612.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 11185#         楼主| 发表于 2025-5-4 03:16
+
+[https://x.com/nisiedas/status/1917726904720974104](https://x.com/nisiedas/status/1917726904720974104)
+
+コピ誌の表紙 シャアとか初めて描いた
+
+元気のGは始まりのGみたいに思ってたんですがどうやらぜんぜん違うようだな、、やはりガンダムはガンダム、、ﾆﾁｬｱ、、ってなってる
+<img src="https://p.sda1.dev/23/afb47963ec588e353aba94cd3eb3e0ab/20250504_025734.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/matahe_i/status/1918105804705767712](https://x.com/matahe_i/status/1918105804705767712)
+<img src="https://p.sda1.dev/23/390f19ea9c224595882ba711bddd41a5/20250504_025635.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/4ffe28faf82a46c032a2d0595069ea68/20250504_031446.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/193x04/status/1918142195518816579](https://x.com/193x04/status/1918142195518816579)
+<img src="https://p.sda1.dev/23/63b93637bee7f5534268296cbeb336f6/20250504_025556.jpg" referrerpolicy="no-referrer">
+
