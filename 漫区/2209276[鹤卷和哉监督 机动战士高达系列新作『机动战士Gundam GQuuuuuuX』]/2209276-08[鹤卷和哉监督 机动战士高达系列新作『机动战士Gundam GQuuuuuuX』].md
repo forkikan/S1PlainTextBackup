@@ -7976,3 +7976,40 @@ ED里玛秋和喵安的脚链都是蓝色，我们现在知道玛秋=红色，�
 完全忘了那个第二版tv pv了 看起来喵安可能开ms技术确实挺厉害，台词是和那时候一样感觉自己能做到的时候大 ...</blockquote>
 原来台词是这个吗，和夏日幻听那边的意思完全不一样，他翻译成了“动摇”
 
+
+*****
+
+####  盐盐盐盐盐  
+##### 11067#       发表于 2025-5-3 15:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67776965&amp;ptid=2209276" target="_blank">galgamesh11 发表于 2025-5-3 15:43</a>
+ 原来台词是这个吗，和夏日幻听那边的意思完全不一样，他翻译成了“动摇” ...</blockquote>
+我听的是やれる　他可能听成揺れる了
+
+*****
+
+####  galgamesh11  
+##### 11068#       发表于 2025-5-3 15:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67776980&amp;ptid=2209276" target="_blank">盐盐盐盐盐 发表于 2025-5-3 15:50</a>
+我听的是やれる　他可能听成揺れる了</blockquote>
+确实能做到更合逻辑，“感觉能做到了”还动摇啥（）
+
+*****
+
+####  神鹰黑手哥  
+##### 11069#       发表于 2025-5-3 15:54
+
+<blockquote>盐盐盐盐盐 发表于 2025-5-3 15:34
+完全忘了那个第二版tv pv了 看起来喵安可能开ms技术确实挺厉害，台词是和那时候一样感觉自己能做到的时候大 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202505/03/155138zt37bbczgwh3h5nh.jpg" referrerpolicy="no-referrer">
+
+<strong>1000095553.jpg</strong> (310.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-3 15:51 上传
+
+  mav是2v2，鹤卷既然认为op这种动画门面应该写双女主的关系性和合作战斗。那么gqx中后期大概就是麻球喵安组合上机了。至于牢修因为什么理由上不了机，有可能是死了，也可能是失踪了，也有可能是叛变了，到底怎么样只有天知道
+
