@@ -11596,3 +11596,17 @@ https://www.bilibili.com/video/BV13QGizqEc7  ...</blockquote>
 
 这个月肯定凑的出，就是手动开发+拆1500台坦克
 
+
+*****
+
+####  一个陆仁贾  
+##### 1100#       发表于 2025-5-3 23:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67777749&amp;ptid=2071758" target="_blank">windtrack 发表于 2025-5-3 20:59</a>
+3万GP拆61坦克也就是75万，上个月你要是入坑早比较早就能打5级狗粮本就能凑到
+
+这个月肯定凑的出，就是手 ...</blockquote>
+五级狗粮本我已经通了，看来之后就是时不时来一次大规模生产了<img src="https://static.stage1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
