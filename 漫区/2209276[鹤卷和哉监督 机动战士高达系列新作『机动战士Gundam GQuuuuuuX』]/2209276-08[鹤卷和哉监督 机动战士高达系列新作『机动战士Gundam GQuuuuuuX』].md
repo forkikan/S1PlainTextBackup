@@ -8132,3 +8132,64 @@ https://natalie.mu/music/pp/yonezukenshi30
 
 确实是翻译错了，但从这句话来看喵安肯定也是NT
 
+
+*****
+
+####  神鹰黑手哥  
+##### 11080#       发表于 2025-5-3 16:27
+
+<blockquote>盐盐盐盐盐 发表于 2025-5-3 16:21
+呃，不用吃二手翻译，原文没指明说的mav是谁，你可以自行理解但是我觉得是不能作为论据啦，毕竟也没有说 ...</blockquote>
+虽然我感觉按日语的语法习惯基本就是deepseek的意思，我本人也是学习日语专业的
+
+
+*****
+
+####  ryanghj  
+##### 11081#       发表于 2025-5-3 16:27
+
+ 本帖最后由 ryanghj 于 2025-5-3 16:29 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67777051&amp;ptid=2209276" target="_blank">神鹰黑手哥 发表于 2025-5-3 16:18</a>
+
+日语特有的省略主语罢了、那段是递进关系不是并列关系
+
+，我用deepseek翻了一遍 ...</blockquote>
+机翻的不对
+
+鶴巻さんとしては、主人公のマチュとニャアンの関係性、クランバトルにおける2人で1つみたいな関係性を主軸にしてほしいという話だったんです。
+
+鹤卷先生希望以主人公玛秋与喵安的关系性、在军团战中两人如一体的关系性为主线来展开
+
+这句话含义是比较模糊的，不是机翻那种非常明确的递进关系，可以从两个角度理解。而且你仔细想想如果这话真的是剧透那8爷也不可能说出来啊
+
+
+*****
+
+####  盐盐盐盐盐  
+##### 11082#       发表于 2025-5-3 16:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67777069&amp;ptid=2209276" target="_blank">神鹰黑手哥 发表于 2025-5-3 16:27</a>
+ 虽然我感觉按日语的语法习惯基本就是deepseek的意思，我本人也是学习日语专业的 ...</blockquote>
+我是觉得如果是递进也该加个什么特に之类的而不是这么并列摆出来，放在中文说你这属于语病嘛<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，前面的二人关系性已经包含后面的军团战里这俩人关系性了，不加个什么尤其是，特别是之类的连接词很怪，后面又不特指的我会暂且把他理解为广义的所有军团战mav的关系
+
+*****
+
+####  神鹰黑手哥  
+##### 11083#       发表于 2025-5-3 16:31
+
+<blockquote>ryanghj 发表于 2025-5-3 16:27
+机翻的不对
+
+鶴巻さんとしては、主人公のマチュとニャアンの関係性、クランバトルにおける2人で1つみたい ...</blockquote>
+只翻了你给我发的那一段，没有往下看
+
+*****
+
+####  Toby_dak  
+##### 11084#       发表于 2025-5-3 16:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67773968&amp;ptid=2209276" target="_blank">王留美 发表于 2025-5-2 11:12</a>
+
+这个我觉得问题倒是不大，Side6的首都对于一个发生在side6的故事来说太合适不过了 ...</blockquote>
+只是想说，一个联邦王牌能退役能跑到殖民卫星生活，那地宇关系没有想象那么紧张？
+
