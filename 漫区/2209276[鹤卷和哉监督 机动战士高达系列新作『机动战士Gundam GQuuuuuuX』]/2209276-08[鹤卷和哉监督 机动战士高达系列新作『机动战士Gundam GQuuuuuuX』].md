@@ -7897,3 +7897,14 @@ ED里玛秋和喵安的脚链都戴在右脚上，都是蓝色，我们现在知
 还有红趾甲，小女生搞这种お揃い只是光明正大地暗示关系性吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 把河豚骗进来杀
 
+
+*****
+
+####  暗黑能乐  
+##### 11058#       发表于 2025-5-3 13:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67776576&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-3 12:32</a>
+
+ED里玛秋和喵安的脚链都是蓝色，我们现在知道玛秋=红色，修司=蓝色，喵安=黄色，ED里没有修司出现，会不会 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">以我个人经验，嗯抠细节也大多属于想太多，特别像是什么代表色之类的，怎么配显得好看点，制作组肯定以好看为第一要义，而不是以什么是谁谁谁的象征色之类的为主，这种东西顶多属于小彩头让你发散，不可能是什么强暗示强关联的
+

@@ -300,3 +300,14 @@
 
 我土法现在天天被秒，书虽然准备好了但是剧情卡在那还没抽出空档，阿贝贝卡南夏莉莉甚至骷髅贼都没升钢呢没轮换空间😅
 
+
+*****
+
+####  elven119  
+##### 294#       发表于 2025-5-3 13:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67773910&amp;ptid=2249235" target="_blank">神手之兔 发表于 2025-5-2 09:33</a>
+
+太强了，这魔力眠炮一发多少</blockquote>
+换了点装备现在魔力510。眠炮1100的样子，测试怪是7f的foe独眼
+
