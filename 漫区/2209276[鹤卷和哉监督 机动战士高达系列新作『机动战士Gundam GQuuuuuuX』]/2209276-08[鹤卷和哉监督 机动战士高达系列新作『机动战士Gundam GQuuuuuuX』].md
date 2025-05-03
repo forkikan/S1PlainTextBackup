@@ -9324,3 +9324,11 @@ psycommu启动时候的光吧
 
 黑泽："她一个人留在录音室反复调整那段表演，搞得我特别消沉，还被川田安慰了...
 
+
+*****
+
+####  Sliurus  
+##### 11180#       发表于 2025-5-3 23:50
+
+原来只有名字是吗？之前还催眠自己这个动力管看着挺像的，只是没有头盔<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
