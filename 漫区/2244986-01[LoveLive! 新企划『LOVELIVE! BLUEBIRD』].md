@@ -408,3 +408,15 @@ leader高桥波尔卡
 现在这设定估计还是kirakira剧本咯</blockquote>
 学历堪比隔壁gbc。
 
+
+*****
+
+####  离心  
+##### 44#       发表于 2025-5-3 18:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67777207&amp;ptid=2244986" target="_blank">1096beam 发表于 2025-5-3 17:29</a>
+现在这设定估计还是kirakira剧本咯</blockquote>
+八成还是各自逐梦那一套，不过加了个网友奔现的设定？
+
+—— 来自 Xiaomi 24129RT7CC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
