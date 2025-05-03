@@ -1948,3 +1948,16 @@ baldr系列那种本来就是act的除外
 
 噫
 
+
+*****
+
+####  squallx  
+##### 185#       发表于 2025-5-3 20:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67777342&amp;ptid=2158861" target="_blank">Vastoo 发表于 2025-5-3 18:26</a>
+
+想问下沉积地带那个隐形的生小蜘蛛的母体（？）是只能准星对着硬打吗？
+
+—— 来自 Xiaomi 23078RKD5C, And ...</blockquote>
+我用大剑砍掉的 应该只是不能锁定正常都能打吧
+
