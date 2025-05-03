@@ -7919,3 +7919,26 @@ ED里玛秋和喵安的脚链都是蓝色，我们现在知道玛秋=红色，�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  ryanghj  
+##### 11060#       发表于 2025-5-3 13:37
+
+看日本人也觉得gqux估计是轮回系的故事，修司其实知道未来的事件，所以才会有类似“我还不会死”这样奇怪的说法
+
+
+*****
+
+####  Gysumitka  
+##### 11061#       发表于 2025-5-3 13:43
+
+像是龙的牙医里早已预知自己死亡时刻，所以没到那个时间怎么都不会死<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ヒトニナル  
+##### 11062#       发表于 2025-5-3 13:43
+
+不知道日本乡民知不知道内地引进版《跨时之战》这个译名<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
