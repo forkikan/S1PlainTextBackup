@@ -500,3 +500,54 @@
 
 搞掂了，虽然整体没什么大问题，但是给我的震撼感和奏章2一个天一个地，可能这就是老婆没了和普通朋友没了的分别吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  壳壳牛  
+##### 16589#       发表于 2025-5-3 06:19
+
+艹20抽来了4个阿育王....
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  大十字紅朔  
+##### 16590#       发表于 2025-5-3 08:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67774567&amp;ptid=2084912" target="_blank">mousy55555 发表于 2025-5-2 16:16</a>
+
+30号晚上一直看到今天下午才看完这个奏章……太TM长太TM折磨了，虽然都懂作者想表达啥，但太TM折腾了，这几 ...</blockquote>
+据说这章其实是给2.6擦屁股的，把2.6没做完的放进去了
+
+莉莉丝的戏份原本是贝贝的（原本预定贝贝想找咕哒索吻？<img src="https://static.stage1st.com/image/smiley/carton2017/041.png" referrerpolicy="no-referrer">）
+
+*****
+
+####  mousy55555  
+##### 16591#       发表于 2025-5-3 13:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67776236&amp;ptid=2084912" target="_blank">大十字紅朔 发表于 2025-5-3 08:21</a>
+
+据说这章其实是给2.6擦屁股的，把2.6没做完的放进去了
+
+莉莉丝的戏份原本是贝贝的（原本预定贝贝想找咕哒 ...</blockquote>
+因为2.6以后其实盾妹就已经自体英灵化了，但无论到2.7还是奏章123盾妹都是空气，到了奏章4唐突把所有信息都告诉你而且还大段大段的交代，莉莉丝是继承了一部分贝贝的戏份，但另一个方面其实她也是心疼盾妹活得没个人样，所以最后其实和解了，学弟也直接吐槽“其实你们两个关系很好吧？”
+
+*****
+
+####  都谷捻柏  
+##### 16592#       发表于 2025-5-3 14:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67776016&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-5-3 01:00</a>
+
+搞掂了，虽然整体没什么大问题，但是给我的震撼感和奏章2一个天一个地，可能这就是老婆没了和普通朋友没了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">血牛+用红卡反击+反击伤害增加+攻击前解除防御buff，看来他们是很懂怎么恶心玩家的，这以后没灵脉石的时候不知道怎么过。不知道以后会不会也来个回想，5倍血。
+
+*****
+
+####  都谷捻柏  
+##### 16593#       发表于 2025-5-3 14:19
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">打完主线马修这个强化，越看越觉得青子是个纯纯的小丑了。
+

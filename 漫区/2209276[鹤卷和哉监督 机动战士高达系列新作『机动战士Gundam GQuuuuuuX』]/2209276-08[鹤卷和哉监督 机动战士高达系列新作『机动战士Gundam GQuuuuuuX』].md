@@ -7942,3 +7942,11 @@ ED里玛秋和喵安的脚链都是蓝色，我们现在知道玛秋=红色，�
 
 不知道日本乡民知不知道内地引进版《跨时之战》这个译名<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  久保由利香  
+##### 11063#       发表于 2025-5-3 14:20
+
+你咋不说喵安头发也是蓝色的
+

@@ -11526,3 +11526,14 @@ https://www.bilibili.com/video/BV13QGizqEc7  ...</blockquote>
 
 —— 来自 vivo V2408A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  zExs  
+##### 1094#       发表于 2025-5-3 14:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67776429&amp;ptid=2071758" target="_blank">horacio 发表于 2025-5-3 10:59</a>
+
+我开了个小号抽到了拉克丝，才打了一天，发现比我大号厉害了。之前还是用的商店换的主角战舰，还是抽拉克丝 ...</blockquote>
+..拉克丝等于一击必杀tag直接给了2破 能不厉害么
+
