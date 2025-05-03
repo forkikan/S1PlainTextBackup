@@ -9044,3 +9044,82 @@ ed纯属幻想的可能性更大
 少女心全开了属于是，土屋弟说柜子太窄了黑泽还说就是窄才好！</blockquote>
 预感玛秋x首席哥cp要火了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ryanghj  
+##### 11159#       发表于 2025-5-3 22:05
+
+还要出主角三人团的香水？
+
+*****
+
+####  千恋万花  
+##### 11160#       发表于 2025-5-3 22:07
+
+塙全猜对了还行，不愧是超级王牌 NT
+
+
+*****
+
+####  岸浪白野  
+##### 11161#       发表于 2025-5-3 22:08
+
+魔女CV猜香味是对应什么人物都猜中了
+
+然后，“不愧是魔女”
+
+
+*****
+
+####  岸浪白野  
+##### 11162#       发表于 2025-5-3 22:10
+
+ 本帖最后由 岸浪白野 于 2025-5-3 22:12 编辑 
+
+先3人组的香水，还会追加人物
+
+<img src="https://img.stage1st.com/forum/202505/03/221244vb87wh2wi8f4z7rh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (631.56 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-3 22:12 上传
+
+*****
+
+####  ryanghj  
+##### 11163#       发表于 2025-5-3 22:10
+
+下一次cv talk是7话了
+
+*****
+
+####  盐盐盐盐盐  
+##### 11164#       发表于 2025-5-3 22:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67778011&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-3 22:03</a>
+ 预感玛秋x首席哥cp要火了</blockquote>
+预告播出之后我就感觉这对cp蛮多人在蠢蠢欲动了（毕竟修司在第四话也有点哈人了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">）
+小森，家危，速归！
+
+*****
+
+####  千恋万花  
+##### 11165#       发表于 2025-5-3 22:11
+
+下一次是 5 月 24 日
+
+*****
+
+####  ryanghj  
+##### 11166#       发表于 2025-5-3 22:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67778048&amp;ptid=2209276" target="_blank">盐盐盐盐盐 发表于 2025-5-3 22:11</a>
+
+预告播出之后我就感觉这对cp蛮多人在蠢蠢欲动了（毕竟修司在第四话也有点哈人了）
+
+小森，家危，速归！ ...</blockquote>
+还没到上舰，等到上了索顿估计绿大叔x麻球也会火
+
