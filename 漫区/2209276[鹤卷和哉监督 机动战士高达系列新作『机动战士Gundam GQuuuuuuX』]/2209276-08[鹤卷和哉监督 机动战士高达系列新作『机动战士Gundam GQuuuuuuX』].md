@@ -7641,3 +7641,18 @@ side6晚上的夜空是另一面的居住地的灯光吧？</blockquote>
 X 上的 バニリゾ/BANILIZO：“マrkgk [https://t.co/C82WEtYo3X” / X](https://t.co/C82WEtYo3X” / X)</blockquote>
 シイコにシコシコ<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  syndrome2032  
+##### 11039#       发表于 2025-5-3 08:37
+
+打黑拳可以打死人这种事基本上是默认隐藏设定了吧。只不过之前两台高达天天炸扎古2鱼有点过分了，所以这次撞上大魔头gm身的勇士+魔女上上强度。
+
+这次主要是沾上了魔女这么个来寻仇的。
+剧本本身没什么问题。
+
+但是前四话看下来，番茄的正常生活太过标准二次元，和打黑拳的ucif这个背景的割裂感太过严重。
+
+并且因为一季度只有12话的原因，背景里的紫色老太婆vs瘦子扎比家的分裂，efsf vs zion的二次战乱感觉都很难转化为实质上的前台背景。
+

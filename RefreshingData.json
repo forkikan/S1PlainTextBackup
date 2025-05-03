@@ -2237,7 +2237,7 @@
     "newtitle": "[绝区零 咖啡馆 交流群 141718492 更多情报 2024年公布]",
     "lastedit": 1745973970,
     "category": "手游专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2043629": {
@@ -10211,7 +10211,7 @@
     "newtitle": "[【纯良向】米哈游百合讨论楼]",
     "lastedit": 1745973372,
     "category": "手游战斗",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1574514": {
@@ -10521,10 +10521,10 @@
     "update": false
   },
   "2209276": {
-    "totalreply": 11038,
+    "totalreply": 11039,
     "title": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
     "newtitle": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
-    "lastedit": 1746220690,
+    "lastedit": 1746232810,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11358,10 +11358,10 @@
     "update": false
   },
   "2236118": {
-    "totalreply": 259,
+    "totalreply": 260,
     "title": "[2025年全年推理游戏发售清单(更新至3.13)，2025推理游戏专楼]",
     "newtitle": "[2025年全年推理游戏发售清单(更新至4.29)，2025推理游戏专楼]",
-    "lastedit": 1746209297,
+    "lastedit": 1746233290,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11687,15 +11687,6 @@
     "newtitle": "[2025四月新番扫雷]",
     "lastedit": 1745027645,
     "category": "漫区",
-    "active": false,
-    "update": false
-  },
-  "2250995": {
-    "totalreply": 43,
-    "title": "[FS社新作 PvPvE多人游戏《The Duskbloods》2026年发售]",
-    "newtitle": "[FS社新作 PvPvE多人游戏《The Duskbloods》2026年发售]",
-    "lastedit": 1745023324,
-    "category": "游戏区",
     "active": false,
     "update": false
   },
@@ -12488,7 +12479,7 @@
     "newtitle": "[《剑星》和《妮姬》真赚钱啊！金亨泰成韩国50大富豪了]",
     "lastedit": 1745973372,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2251374": {
@@ -12663,10 +12654,10 @@
     "update": false
   },
   "2251429": {
-    "totalreply": 174,
+    "totalreply": 175,
     "title": "[【剧透警告】光与影：33号远征队结局／剧情讨论楼 本楼无反白]",
     "newtitle": "[【剧透警告】光与影：33号远征队结局／剧情讨论楼 本楼无反白]",
-    "lastedit": 1746205932,
+    "lastedit": 1746232930,
     "category": "游戏区",
     "active": true,
     "update": false
