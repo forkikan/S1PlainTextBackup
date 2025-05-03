@@ -1989,3 +1989,43 @@ baldr系列那种本来就是act的除外
 
 —— 来自 Xiaomi 23078RKD5C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  半分宅  
+##### 188#       发表于 2025-5-4 01:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67778715&amp;ptid=2158861" target="_blank">Vastoo 发表于 2025-5-3 12:40</a>
+
+之后看了看，好像还不止一个母体，难顶
+
+—— 来自 Xiaomi 23078RKD5C, Android 15, 鹅球 v3.5.99 ...</blockquote>
+5个母蜘蛛。我也是准星对着硬打过去的。
+
+*****
+
+####  半分宅  
+##### 189#       发表于 2025-5-4 01:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67778586&amp;ptid=2158861" target="_blank">Vastoo 发表于 2025-5-3 12:01</a>
+
+简中是酒窝，繁中是九命（
+
+—— 来自 Xiaomi 23078RKD5C, Android 15, 鹅球 v3.5.99</blockquote>
+英文是Elp，(H)elp.
+
+
+*****
+
+####  半分宅  
+##### 190#       发表于 2025-5-4 01:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67777097&amp;ptid=2158861" target="_blank">madcow 发表于 2025-5-3 04:39</a>
+
+说话头支线那个机器人造型才是明确是人类造的吧
+
+“本机任务是进行自我增值型战略武器，俗称人偶之巢的内部 ...</blockquote>
+有一具球状关节素体的描述是铠灵们的原型。串串也说过铠灵们也是一种异形。
+
+推测：原型铠灵是外界人类制造的战术人形，在霍德中偶然生产出了一款有自我意识的变种。所以外界肯定有普通的战术人形，但不确定现在的版本是否有自我意识。
+
