@@ -7743,3 +7743,15 @@ X 上的 バニリゾ/BANILIZO：“マrkgk [https://t.co/C82WEtYo3X” / X](htt
 UCE手游之前更是搞出“夏亚、哈曼纷纷洗白加入主角方，希洛克反而要扔阿克西斯，一人对抗夏亚哈曼阿姆罗卡缪捷度五大NT”的惊天洗白情节。
 女人角色就是罪减一万等啊。
 
+
+*****
+
+####  stmule  
+##### 11049#       发表于 2025-5-3 10:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67774822&amp;ptid=2209276" target="_blank">mintslime 发表于 2025-5-2 18:31</a>
+如果联邦的人有那么重视NT的话，那现在的地球理论上来说除了鸭妹手握三大NT，并且可能已经发现了他们的实 ...</blockquote>
+这不殖民地还有捷多么，可以试一试<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
