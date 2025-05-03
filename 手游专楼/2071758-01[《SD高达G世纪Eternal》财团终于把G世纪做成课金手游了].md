@@ -11537,3 +11537,11 @@ https://www.bilibili.com/video/BV13QGizqEc7  ...</blockquote>
 我开了个小号抽到了拉克丝，才打了一天，发现比我大号厉害了。之前还是用的商店换的主角战舰，还是抽拉克丝 ...</blockquote>
 ..拉克丝等于一击必杀tag直接给了2破 能不厉害么
 
+
+*****
+
+####  windtrack  
+##### 1095#       发表于 2025-5-3 15:29
+
+这么说虽然我没出强自但是有拉克斯其实也不算坑了<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
