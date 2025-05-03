@@ -7721,3 +7721,13 @@ X 上的 バニリゾ/BANILIZO：“マrkgk [https://t.co/C82WEtYo3X” / X](htt
 小说版玛姬露达桑和未婚夫本来就是活下来了的，庵野那个废案里我印象中也有采信小说里的内容？说不定能对得 ...</blockquote>
 感觉这个side6货币大概类似美元
 
+
+*****
+
+####  jackyhuang  
+##### 11047#       发表于 2025-5-3 10:26
+
+【緑川ルリ子 + シイコ 比較 (シン仮面ライダー VS GQuuuuuuX)[ガンダム ジークアクス Shin Kamen Rider Gundam Rurik-哔哩哔哩】 https://b23.tv/zbiNq24
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
