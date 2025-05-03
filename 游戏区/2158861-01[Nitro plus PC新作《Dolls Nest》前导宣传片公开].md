@@ -1857,3 +1857,14 @@ baldr系列那种本来就是act的除外
 
 上层的光弹无人机和中层的装甲无人机应该都是当地的铠灵生产的。在中层第一次遇到腿很长的蜘蛛无人机时，场景里有好几架被挂起来或烧毁的光弹无人机。大概是阿尔坎德某一次对加德纳的攻势失败后丢下的。
 
+
+*****
+
+####  squallx  
+##### 178#       发表于 2025-5-3 15:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67776039&amp;ptid=2158861" target="_blank">半分宅 发表于 2025-5-3 01:16</a>
+
+上层的光弹无人机和中层的装甲无人机应该都是当地的铠灵生产的。在中层第一次遇到腿很长的蜘蛛无人机时，场 ...</blockquote>
+搞不好圣柜里的怪才是碳基猴子造的 甚至可能是铠灵原型 ？这什么泰坦造人血肉诅咒<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
