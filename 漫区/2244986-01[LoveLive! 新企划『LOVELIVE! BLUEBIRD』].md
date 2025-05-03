@@ -388,3 +388,23 @@ leader高桥波尔卡
 
 现在这设定估计还是kirakira剧本咯
 
+
+*****
+
+####  仟音一心  
+##### 42#       发表于 2025-5-3 18:08
+
+<img src="https://p.sda1.dev/23/d9a97b65dd233cc14e25fc6dea379586/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/3243a411673a14c52a4b96045bd35d38/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/6720f7afe27bc692c1eddaddec2305d2/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/7be9c161defec28cedbf1caeaa93a9e4/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 43#       发表于 2025-5-3 18:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67777207&amp;ptid=2244986" target="_blank">1096beam 发表于 2025-5-3 17:29</a>
+现在这设定估计还是kirakira剧本咯</blockquote>
+学历堪比隔壁gbc。
+
