@@ -7711,3 +7711,13 @@ X 上的 バニリゾ/BANILIZO：“マrkgk [https://t.co/C82WEtYo3X” / X](htt
 
 我也没搞懂这背景是想表示什么。
 
+
+*****
+
+####  璇瑢子R  
+##### 11046#       发表于 2025-5-3 10:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67774094&amp;ptid=2209276" target="_blank">七七見奈波 发表于 2025-5-2 11:26</a>
+小说版玛姬露达桑和未婚夫本来就是活下来了的，庵野那个废案里我印象中也有采信小说里的内容？说不定能对得 ...</blockquote>
+感觉这个side6货币大概类似美元
+

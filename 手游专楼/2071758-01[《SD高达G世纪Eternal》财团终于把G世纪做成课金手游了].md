@@ -11425,3 +11425,23 @@ https://www.bilibili.com/video/BV13QGizqEc7  ...</blockquote>
 兄弟，有人要了没有，没人要可以给我吗，刚刚开始玩了几天，抽不出ur</blockquote>
 没拉克丝不建议开，纯浪费时间，不如咸鱼小几十块对自己好点
 
+
+*****
+
+####  blue321  
+##### 1085#       发表于 2025-5-3 10:06
+
+这抽卡特殊演出也会诈骗的吗，阿姆罗出来了但是没通电原来也没有ur的啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  nodkane  
+##### 1086#       发表于 2025-5-3 10:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67775042&amp;ptid=2071758" target="_blank">winder0707 发表于 2025-5-2 20:02</a>
+
+求个s1的群</blockquote>
+同求 现在加了个野群 刷屏速度太快 转眼间就99+
+
