@@ -9594,3 +9594,14 @@ GQ吉...格鲁古古的嘴部采用调节器面罩风格，是因为原版吉姆
 
 EP05倒还可以 至少机战不错
 
+
+*****
+
+####  Toby_dak  
+##### 11196#       发表于 2025-5-4 14:36
+
+<img src="https://p.sda1.dev/23/218a2fe2b53bf1b28d2ea3017bfed760/1000108810.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/da1faf5c22d3bc9ce04b96a1e33f282b/1000108811.jpg" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.46)
+
