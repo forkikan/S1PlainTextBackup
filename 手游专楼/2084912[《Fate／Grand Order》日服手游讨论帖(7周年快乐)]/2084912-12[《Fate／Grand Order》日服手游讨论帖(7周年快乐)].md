@@ -638,3 +638,38 @@
 已经XJB打过了，想着反正有灵脉石，结果最后令咒也没用虽然打得很辛苦</blockquote>
 这一章战斗其实挺简单的
 
+
+*****
+
+####  DARKGRAY  
+##### 16603#       发表于 2025-5-4 08:08
+
+希耶尔随便打莉莉丝，后面仗着6CD的5回合强解耐性再带上梅林的话硬得很，大部分时候没什么压力<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 16604#       发表于 2025-5-4 08:19
+
+好烦啊 王姐这硬币任务。。试了2次都和妖高一起被带走了。。根本没机会给她召复制人。。。总不能。。不带黑杯慢慢打吧。。。？
+
+*****
+
+####  qixinno2  
+##### 16605#       发表于 2025-5-4 08:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67779094&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-5-4 08:19</a>
+
+好烦啊 王姐这硬币任务。。试了2次都和妖高一起被带走了。。根本没机会给她召复制人。。。总不能。。不带黑 ...</blockquote>
+先杀妖崔 妖兰活着时王姐有毅力
+
+*****
+
+####  alucardcz  
+##### 16606#       发表于 2025-5-4 08:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67779125&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-5-4 08:38</a>
+
+先杀妖崔 妖兰活着时王姐有毅力</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">你这还是第1面 我是只剩妖高和王姐了  伤害太高 药高死王姐一起死了
+
