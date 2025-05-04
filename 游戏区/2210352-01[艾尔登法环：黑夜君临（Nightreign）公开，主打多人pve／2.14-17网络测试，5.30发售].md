@@ -2819,3 +2819,14 @@ Xbox也开始疯狂断线了<img src="https://static.stage1st.com/image/smiley/f
 一个衍生作卖情怀导致 ...</blockquote>
 ……也没什么Lore破碎的，同样，一开始就说了是平行世界
 
+
+*****
+
+####  zzf111  
+##### 307#       发表于 2025-5-4 19:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67780335&amp;ptid=2210352" target="_blank">pgain2004 发表于 2025-5-4 18:54</a>
+
+……也没什么Lore破碎的，同样，一开始就说了是平行世界</blockquote>
+这游戏整个都不能细想<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">，复用建筑敌人都是交界地同款建模，还搞个新国家宁姆韦德装装样子
+
