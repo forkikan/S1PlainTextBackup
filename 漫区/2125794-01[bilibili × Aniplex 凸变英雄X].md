@@ -1530,3 +1530,14 @@ BLANKSTER吧
 
 看那个海外排行榜好像排第一？这么牛啤，国漫要火？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新HGCG  
+##### 150#       发表于 2025-5-4 20:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67779770&amp;ptid=2125794" target="_blank">今天不守尸 发表于 2025-5-4 14:24</a>
+
+看那个海外排行榜好像排第一？这么牛啤，国漫要火？</blockquote>
+我的观测就是环日本好评
+
