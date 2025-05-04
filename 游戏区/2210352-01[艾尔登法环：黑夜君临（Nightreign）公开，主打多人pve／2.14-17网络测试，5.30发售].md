@@ -2830,3 +2830,13 @@ Xbox也开始疯狂断线了<img src="https://static.stage1st.com/image/smiley/f
 ……也没什么Lore破碎的，同样，一开始就说了是平行世界</blockquote>
 这游戏整个都不能细想<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">，复用建筑敌人都是交界地同款建模，还搞个新国家宁姆韦德装装样子
 
+
+*****
+
+####  budong  
+##### 308#       发表于 2025-5-4 19:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67780350&amp;ptid=2210352" target="_blank">zzf111 发表于 2025-5-4 19:02</a>
+这游戏整个都不能细想，复用建筑敌人都是交界地同款建模，还搞个新国家宁姆韦德装装样子 ...</blockquote>
+在发生破碎战争之前和原世界一致，夜王入侵后就变成和原世界完全不同的平行世界了
+

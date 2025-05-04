@@ -11845,3 +11845,11 @@ DamageCorrectionParam6 = 3
 
 <img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">10发白嫖券除了山楂饼+风灵，现在只差EZ8了
 
+
+*****
+
+####  nagamasa  
+##### 1115#       发表于 2025-5-4 19:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我也觉得白嫖券比石头好出货，10连白嫖券出过ez8+海盗
+
