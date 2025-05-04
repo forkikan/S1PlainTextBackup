@@ -2736,12 +2736,12 @@
     "update": false
   },
   "2013983": {
-    "totalreply": 1814,
+    "totalreply": 1815,
     "title": "[『鬼灭之刃 游郭篇』完结 &amp; 『锻刀村篇』TV动画化]",
     "newtitle": "[『鬼灭之刃』动画楼 游郭篇／锻刀村篇／柱训练篇 完结 无限城篇 剧场三部作]",
-    "lastedit": 1741244779,
+    "lastedit": 1746360972,
     "category": "漫区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2001095": {
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 160503,
+    "totalreply": 160511,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1746360371,
+    "lastedit": 1746360972,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 123255,
+    "totalreply": 123267,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1746360369,
+    "lastedit": 1746360970,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10827,10 +10827,10 @@
     "update": false
   },
   "2238336": {
-    "totalreply": 1586,
+    "totalreply": 1587,
     "title": "[任天堂病 栋12楼，山雨欲来风满楼，新年新机新病 栋！／剑指1.16！]",
     "newtitle": "[任天堂病 栋12楼，山雨欲来风满楼，新年新机新病 栋！]",
-    "lastedit": 1746360128,
+    "lastedit": 1746361090,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11376,10 +11376,10 @@
     "update": false
   },
   "2176537": {
-    "totalreply": 128,
+    "totalreply": 129,
     "title": "[「mono」TV动画化]",
     "newtitle": "[「mono」TV动画化]",
-    "lastedit": 1746357250,
+    "lastedit": 1746360972,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11709,10 +11709,10 @@
     "update": false
   },
   "2188167": {
-    "totalreply": 627,
+    "totalreply": 630,
     "title": "[小高&amp;打越新作，百日战记 最终防卫学园2025.4.24发售，ns／pc]",
     "newtitle": "[小高&amp;打越新作，百日战记 最终防卫学园2025.4.24发售，ns／pc]",
-    "lastedit": 1746360486,
+    "lastedit": 1746361093,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13032,11 +13032,20 @@
     "update": false
   },
   "2251582": {
-    "totalreply": 46,
+    "totalreply": 47,
     "title": "[求推荐小朋友能玩，简单的游戏。]",
     "newtitle": "[求推荐小朋友能玩，简单的游戏。]",
-    "lastedit": 1746358929,
+    "lastedit": 1746361093,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2189933": {
+    "totalreply": 68,
+    "title": "[少女乐队真爱楼]",
+    "newtitle": "[少女乐队真爱楼]",
+    "lastedit": 1746361094,
+    "category": "手游战斗",
     "active": true,
     "update": false
   }
