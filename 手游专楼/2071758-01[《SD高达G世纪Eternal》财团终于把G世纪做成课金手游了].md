@@ -11827,3 +11827,13 @@ DamageCorrectionParam6 = 3
 小号60抽满破了强自，外加自由和正义，但是支援歪了2个UR。现在靠资源150抽了拉克丝还没来。<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 不得不说100级满破的强自刷图就是爽，简直就像鸡神乱入别的世界调停战争一样……<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，我都想把小号转正了。
 
+
+*****
+
+####  一个陆仁贾  
+##### 1113#       发表于 2025-5-4 15:34
+
+奇了怪了，为什么主线任务关卡的下载经常错误代码200的，这种数据难道和游戏分隔开的？
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
