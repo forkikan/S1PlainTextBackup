@@ -2159,3 +2159,14 @@ baldr系列那种本来就是act的除外
 
 2025-5-4 22:36 上传
 
+
+*****
+
+####  squallx  
+##### 199#       发表于 2025-5-5 00:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67781063&amp;ptid=2158861" target="_blank">madcow 发表于 2025-5-4 22:36</a>
+
+好奇STEAM社区里有些图是怎么截出来的，能关UI我知道，但是没有摄影模式吧（</blockquote>
+捏人界面镜头都不知道怎么平移 只有旋转缩放
+
