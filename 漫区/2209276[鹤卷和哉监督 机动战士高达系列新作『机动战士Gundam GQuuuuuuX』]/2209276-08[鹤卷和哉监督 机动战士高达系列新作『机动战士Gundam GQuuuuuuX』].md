@@ -9635,3 +9635,24 @@ EP05倒还可以 至少机战不错
 
 既然从龙的牙医拉人了那是不是也把林原和山寺拉来客串一下<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  prattwhitney  
+##### 11200#       发表于 2025-5-4 15:37
+
+这个格鲁古古的机设根本就是现有的宇树之类的双足机器人的放大再加一点装甲，连站姿都相同
+
+
+*****
+
+####  wasssf  
+##### 11201#       发表于 2025-5-4 15:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67779609&amp;ptid=2209276" target="_blank">AkaiSuisei 发表于 2025-5-4 13:05</a>
+
+荒木哲郎丢人玩意儿，为了信息控制的前后对比把MS战做成这种效果
+
+榎户洋司也是丢人玩意儿，剧情张力完全建 ...</blockquote>
+搞出类似富野节这块高达w和鲁路修还是ok的
+
