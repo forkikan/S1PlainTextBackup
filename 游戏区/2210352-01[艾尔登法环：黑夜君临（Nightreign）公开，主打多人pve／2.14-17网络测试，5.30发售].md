@@ -2806,3 +2806,16 @@ Xbox也开始疯狂断线了<img src="https://static.stage1st.com/image/smiley/f
 
 一个衍生作卖情怀导致lore破碎，成分太tm杂了
 
+
+*****
+
+####  pgain2004  
+##### 306#       发表于 2025-5-4 18:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67780318&amp;ptid=2210352" target="_blank">zzf111 发表于 2025-5-4 18:44</a>
+
+我看要不是恶魂和血源被索尼抱着不放，黑夜君临里指定要来点曼西斯圣诗班雷兽渴血兽
+
+一个衍生作卖情怀导致 ...</blockquote>
+……也没什么Lore破碎的，同样，一开始就说了是平行世界
+
