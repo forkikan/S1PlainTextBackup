@@ -1277,3 +1277,13 @@ https://x.com/imigimuru/status/1918986168965738731
 男娘作者的肯定</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">点进去一划，发现布谷鸟才转发了这个作者画的安岛
 
+
+*****
+
+####  llconforever  
+##### 2280#       发表于 2025-5-5 00:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67781043&amp;ptid=2152053" target="_blank">osore 发表于 2025-5-4 22:28</a>
+点进去一划，发现布谷鸟才转发了这个作者画的安岛</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">鸟和蒜人的不解之缘
+
