@@ -9664,3 +9664,38 @@ EP05倒还可以 至少机战不错
 
 石川和黑泽也是指定的吧，先确定了石川然后找了和石川声线对立的黑泽
 
+
+*****
+
+####  岸浪白野  
+##### 11203#       发表于 2025-5-4 16:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67779945&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-4 15:59</a>
+
+石川和黑泽也是指定的吧，先确定了石川然后找了和石川声线对立的黑泽</blockquote>
+【【中日字幕】2025年新高达声优首次会谈 收录已全部完成 神秘的迷人角色是？【高达GQuuuuuuX】】 
+[https://www.bilibili.com/video/BV1icraYoE7W/](https://www.bilibili.com/video/BV1icraYoE7W/)
+
+<img src="https://img.stage1st.com/forum/202505/04/161005vaa6p9t62io46mf0.png" referrerpolicy="no-referrer">
+
+<strong>B7)Z7Y1A3%KZ`O5{TL8M2B0.png</strong> (751.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-4 16:10 上传
+
+试镜确定了和指名是不同的..........
+
+
+*****
+
+####  ryanghj  
+##### 11204#       发表于 2025-5-4 16:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67779959&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-4 16:10</a>
+
+【【中日字幕】2025年新高达声优首次会谈 收录已全部完成 神秘的迷人角色是？【高达GQuuuuuuX】】 
+
+https: ...</blockquote>
+我的意思就是邀请试镜
+
