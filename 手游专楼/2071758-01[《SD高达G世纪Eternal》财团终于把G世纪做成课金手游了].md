@@ -12013,3 +12013,13 @@ SR自由是菜刀机，不会给敌方上debuff的，功能性上替代不了UR�
 光束易伤的话那是不是完美适配强自，其实我自己倾向小狸猫多一点，前一个号就是自由，一直没抽出来过狸猫 ...</blockquote>
 你既然想要风灵就选风灵，反正只要一直玩下去，支援类BUFF总是能在开发里做齐的
 
+
+*****
+
+####  okey3m  
+##### 1128#       发表于 2025-5-5 02:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67781129&amp;ptid=2071758" target="_blank">chivalry 发表于 2025-5-4 23:08</a>
+上一个号因为没绑定账号，客户端出问题了只能删除一起灰飞烟灭了，这次重生痛定思痛找了一个 3+3 的号， ...</blockquote>
+功利点的做法是尝试打打永恒之路ex难度，看看攻略，缺哪个换哪个
+
