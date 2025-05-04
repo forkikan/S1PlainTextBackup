@@ -1551,3 +1551,19 @@ BLANKSTER吧
 
 —— 来自 Xiaomi 2410DPN6CC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  Sacross  
+##### 152#       发表于 2025-5-4 21:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67763693&amp;ptid=2125794" target="_blank">acejoe 发表于 2025-4-28 16:38</a>
+其实还我很想吐槽剧情的，但是楼里说有叙述诡计，不想把话说死，有可能是八奇领域。
+
+下面是槽点</blockquote>
+有困扰但是困扰不太多，打一开始他也不是有想跳楼应该，他因为被架起来了才有和他白月光见面的可能
+
+感觉第一篇整个内容的核心是他理所当然的踏出那一步随后理所当然的成了英雄，交代出了这个世界信仰力就是那么个东西，奈斯反而只是个引子
+
+—— 来自 OnePlus IN2020, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
