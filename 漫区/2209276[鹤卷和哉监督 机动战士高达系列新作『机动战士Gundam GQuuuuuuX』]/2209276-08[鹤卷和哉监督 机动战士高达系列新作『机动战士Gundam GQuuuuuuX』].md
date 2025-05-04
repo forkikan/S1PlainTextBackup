@@ -9721,3 +9721,19 @@ https: ...</blockquote>
 还有先确定了石川的出处是哪来的</blockquote>
 [https://weibo.com/5579235499/Pa2fD7HhK](https://weibo.com/5579235499/Pa2fD7HhK)
 
+
+*****
+
+####  岸浪白野  
+##### 11207#       发表于 2025-5-4 17:08
+
+<img src="https://img.stage1st.com/forum/202505/04/170814yq3jqjm3nwqgzorm.png" referrerpolicy="no-referrer">
+
+<strong>O{EEN()XBUQZ04%IOJRI8N4.png</strong> (804.9 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-4 17:08 上传
+
+行了不用了，想起场刊有这段了
+
