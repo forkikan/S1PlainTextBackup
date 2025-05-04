@@ -2762,3 +2762,11 @@ Xbox也开始疯狂断线了<img src="https://static.stage1st.com/image/smiley/f
 
 [https://www.bilibili.com/video/BV1x8V5zKELw](https://www.bilibili.com/video/BV1x8V5zKELw) 新的概览预告
 
+
+*****
+
+####  无畏的巴利斯坦  
+##### 302#       发表于 2025-5-4 10:54
+
+主角团造型都还行，几个夜王看上去也不错，但这个游戏从上次测试来看主要问题还是出在核心玩法上吧
+
