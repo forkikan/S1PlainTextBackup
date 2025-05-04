@@ -2780,3 +2780,16 @@ Xbox也开始疯狂断线了<img src="https://static.stage1st.com/image/smiley/f
 
 加上之前魂boss掺里面，你这是法环衍生作还是还是黑魂衍生作啊
 
+
+*****
+
+####  pgain2004  
+##### 304#       发表于 2025-5-4 18:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67779764&amp;ptid=2210352" target="_blank">zzf111 发表于 2025-5-4 14:23</a>
+
+新宣传图里搞个黑魂黑手法汉索拉尔三代人站挺有点更不知所谓了
+
+加上之前魂boss掺里面，你这是法环衍生作还 ...</blockquote>
+几乎全系列，一开始背景介绍就说了是入侵融合了，女爵连带着垫步一股血源味大家也看出来了，还有只狼那个弹刀的角色呢
+
