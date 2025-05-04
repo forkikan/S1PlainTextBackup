@@ -9710,3 +9710,14 @@ https: ...</blockquote>
 我的意思就是邀请试镜</blockquote>
 还有先确定了石川的出处是哪来的
 
+
+*****
+
+####  ryanghj  
+##### 11206#       发表于 2025-5-4 17:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67780078&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-4 16:54</a>
+
+还有先确定了石川的出处是哪来的</blockquote>
+[https://weibo.com/5579235499/Pa2fD7HhK](https://weibo.com/5579235499/Pa2fD7HhK)
+

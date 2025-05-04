@@ -2091,3 +2091,16 @@ baldr系列那种本来就是act的除外
 
 酒窝可能是异形拟态成了那个铠灵的样子，但还没学会说话
 
+
+*****
+
+####  squallx  
+##### 195#       发表于 2025-5-4 16:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67780028&amp;ptid=2158861" target="_blank">sauron.j 发表于 2025-5-4 16:35</a>
+
+发型描述有提到是临死前的呼救
+
+酒窝可能是异形拟态成了那个铠灵的样子，但还没学会说话 ...</blockquote>
+异形可还行 游戏内好像描述过技师型都是女王根据需求定制生产的 温室大树产大个体？
+
