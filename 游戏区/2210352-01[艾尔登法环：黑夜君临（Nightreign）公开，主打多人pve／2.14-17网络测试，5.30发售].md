@@ -2793,3 +2793,16 @@ Xbox也开始疯狂断线了<img src="https://static.stage1st.com/image/smiley/f
 加上之前魂boss掺里面，你这是法环衍生作还 ...</blockquote>
 几乎全系列，一开始背景介绍就说了是入侵融合了，女爵连带着垫步一股血源味大家也看出来了，还有只狼那个弹刀的角色呢
 
+
+*****
+
+####  zzf111  
+##### 305#       发表于 2025-5-4 18:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67780302&amp;ptid=2210352" target="_blank">pgain2004 发表于 2025-5-4 18:33</a>
+
+几乎全系列，一开始背景介绍就说了是入侵融合了，女爵连带着垫步一股血源味大家也看出来了，还有只狼那个 ...</blockquote>
+我看要不是恶魂和血源被索尼抱着不放，黑夜君临里指定要来点曼西斯唱诗班雷兽渴血兽
+
+一个衍生作卖情怀导致lore破碎，成分太tm杂了
+

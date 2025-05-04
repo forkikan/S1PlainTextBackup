@@ -9784,3 +9784,19 @@ https: ...</blockquote>
 
 不会在tv播放完毕之后，会像老光头一样再出一次叙事流畅的总集篇剧场版，甚至后续剧情剧场版吧
 
+
+*****
+
+####  ryanghj  
+##### 11212#       发表于 2025-5-4 18:43
+
+因为“圣痕攻击”是吉翁方的称呼，而魔女在战斗中说出“圣痕”说明她知道这个称呼而且很中意这个叫法，确实没想到这一层<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202505/04/184215ez5x6xxxjqxfb6f9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (412.51 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-4 18:42 上传
+
