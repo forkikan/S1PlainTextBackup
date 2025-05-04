@@ -2029,3 +2029,27 @@ baldr系列那种本来就是act的除外
 
 推测：原型铠灵是外界人类制造的战术人形，在霍德中偶然生产出了一款有自我意识的变种。所以外界肯定有普通的战术人形，但不确定现在的版本是否有自我意识。
 
+
+*****
+
+####  madcow  
+##### 191#       发表于 2025-5-4 10:59
+
+<img src="https://img.stage1st.com/forum/202505/04/105906s5h4h3nbwpz7z8yh.jpg" referrerpolicy="no-referrer">
+
+<strong>Dollsnest Screenshot 2025.05.04 - 10.55.12.85.jpg</strong> (92.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-4 10:59 上传
+
+<img src="https://img.stage1st.com/forum/202505/04/105906et6xct0p331x1x2p.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2738.webp</strong> (48.82 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-4 10:59 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来不明佣兵这一套要回去捡的，这龟壳好眼熟啊，我知道你哪来的了
+
