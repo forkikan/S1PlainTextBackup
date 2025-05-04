@@ -369,3 +369,16 @@
 
 觸發被動 - 總觸發率 458/600 = 76.3%
 
+
+*****
+
+####  elven119  
+##### 298#       发表于 2025-5-4 08:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67776736&amp;ptid=2249235" target="_blank">碧空之歌P 发表于 2025-5-3 14:00</a>
+
+新角色什么时候来个美少女牧师呀</blockquote>
+官宣图左边的妖精，应该就是下一个牧师or主教
+
+因为妖精要涉及到新种族和基础系统变更，估计会是大版本才会登场
+
