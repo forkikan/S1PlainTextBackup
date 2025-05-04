@@ -9979,3 +9979,18 @@ https: ...</blockquote>
 
 还有这是确定涅安至少并非新人类了吧，废案白皮强化人可能性提升了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  galgamesh11  
+##### 11217#       发表于 2025-5-5 01:08
+
+ 本帖最后由 galgamesh11 于 2025-5-5 01:10 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67781347&amp;ptid=2209276" target="_blank">AvenueIII 发表于 2025-5-5 00:51</a>
+
+有一篇马来西亚媒体的采访（针对剧场版的）似乎没见人搬过
+
+【独家】《高达GQuuuuuuX》导演鹤卷和哉专访： ...</blockquote>
+
+说不好，反过来想，就算妮娅安是nt，也不会在剧场版访谈就说出来吧，这种对于后续的剧透本身就不会这时候就讲出来的
+
