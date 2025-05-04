@@ -2130,3 +2130,16 @@ baldr系列那种本来就是act的除外
 
 但是降积地到禁区到圣智庙这一片里的敌人比起说异形更像是被寄生了的机械？说话头那个支线如果给了污染核心能看到它屁股散热口上长东西出来了
 
+
+*****
+
+####  squallx  
+##### 197#       发表于 2025-5-4 21:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67780221&amp;ptid=2158861" target="_blank">madcow 发表于 2025-5-4 17:55</a>
+
+你看酒窝外观的这个描述（
+
+现在就是不知道哪些敌人算是异形。</blockquote>
+啊 这么黑的？
+
