@@ -1541,3 +1541,13 @@ BLANKSTER吧
 看那个海外排行榜好像排第一？这么牛啤，国漫要火？</blockquote>
 我的观测就是环日本好评
 
+
+*****
+
+####  bartholo4  
+##### 151#       发表于 2025-5-4 21:16
+
+环日本好评主要还是不应该有日语版
+
+—— 来自 Xiaomi 2410DPN6CC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
