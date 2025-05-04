@@ -138,3 +138,19 @@ ps.路上幼女们cos 粉蓝紫的比例是1:0.01:10
 脚踢排球的IDOL是屑</blockquote>
 排球不是可以用脚吗
 
+
+*****
+
+####  我吃诗人  
+##### 825#       发表于 2025-5-4 16:28
+
+一想到接下来一个月都是日常回，似乎也不是那么难以接受了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哎偶q它确实有活啊
+
+md凯特桑来刷什么存在感难蚌<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这银兽就该这么写啊，第8集写的是个啥
+
+反派的走向完全不能细想<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉会很偶q式幽默的处理了
+
+哎没有uta小姐的sololive看我要似了，三人大招是ed真不是人啊
+

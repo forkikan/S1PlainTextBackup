@@ -22,3 +22,12 @@ PC 版原生 4K 屏幕截图
 
 2025-5-4 12:25 上传
 
+
+*****
+
+####  Andariel  
+##### 1926#       发表于 2025-5-4 16:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">新机器已经就位
+还有一个多月了，急急急
+
