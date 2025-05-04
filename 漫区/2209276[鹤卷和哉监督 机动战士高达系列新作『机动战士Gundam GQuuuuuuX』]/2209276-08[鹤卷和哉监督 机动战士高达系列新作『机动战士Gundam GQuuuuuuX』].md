@@ -9443,3 +9443,13 @@ magnet:?xt=urn:btih:BNAEJ3TJSG7PSVQG7CRTTAMJXIQ7A7DY
 
 跟同事唠到元祖第39话神棍拉拉的聊天室里那一片印度咖喱海是拉拉的黄裙子变的嘛，说到黄色连衣裙突然就想到《蒲公英女孩》，也是个“穿越时空的少女”（然后翻出松任谷由实听了起来就是后话了），只不过拉拉是死了之后“穿越时空”的，不过GQX的黄色担当是喵安，也没见喵安的人设图里有黄色连衣裙（只有一件黄色运动抹胸），看来是不会玩这个梗了
 
+
+*****
+
+####  岸浪白野  
+##### 11188#       发表于 2025-5-4 12:34
+
+【中日字幕】魔女追悼会 黑泽朋世(玛秋)土屋神叶(修司)塙真奈美(魔女)陪你看高达GQuuuuuuX第4集【跨时之战TV】
+https://www.bilibili.com/video/BV1BiGozMEfr/
+<img src="https://p.sda1.dev/23/14cc604cbd08147181d1fdb86b5d6eab/image.jpg" referrerpolicy="no-referrer">
+
