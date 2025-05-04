@@ -673,3 +673,55 @@
 先杀妖崔 妖兰活着时王姐有毅力</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">你这还是第1面 我是只剩妖高和王姐了  伤害太高 药高死王姐一起死了
 
+
+*****
+
+####  qixinno2  
+##### 16607#       发表于 2025-5-4 09:02
+
+<blockquote>alucardcz 发表于 2025-5-4 08:43
+你这还是第1面 我是只剩妖高和王姐了  伤害太高 药高死王姐一起死了</blockquote>
+然而我就是这么过的 你马修光炮用太爽了吧
+
+*****
+
+####  qixinno2  
+##### 16608#       发表于 2025-5-4 09:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67779134&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-5-4 08:43</a>
+
+你这还是第1面 我是只剩妖高和王姐了  伤害太高 药高死王姐一起死了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚又试了一把 发卡太傻逼拖到了十回合 
+
+<img src="https://img.stage1st.com/forum/202505/04/095137xxi9zeaahxhw7kag.png" referrerpolicy="no-referrer">
+
+<strong>ZTM0[2%7__(3NJFRKGFW.png</strong> (1.28 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-4 09:51 上传
+
+*****
+
+####  alucardcz  
+##### 16609#       发表于 2025-5-4 09:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67779232&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-5-4 09:51</a>
+
+刚又试了一把 发卡太傻逼拖到了十回合</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">欧 青子 高宝 欧
+
+懒得做了 反正就少一个任务
+
+*****
+
+####  qixinno2  
+##### 16610#       发表于 2025-5-4 10:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67779244&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-5-4 09:59</a>
+
+欧 青子 高宝 欧
+
+懒得做了 反正就少一个任务</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">跟青子没关系吧 就提供个出星和缓冲 感觉能换成鹤小姐 2宝高个蛋 不如狗萌新四个月七个五星欧
+
