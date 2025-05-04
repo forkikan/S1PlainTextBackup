@@ -154,3 +154,15 @@ md凯特桑来刷什么存在感难蚌<img src="https://static.stage1st.com/imag
 
 哎没有uta小姐的sololive看我要似了，三人大招是ed真不是人啊
 
+
+*****
+
+####  leleq  
+##### 826#       发表于 2025-5-4 17:22
+
+继续带货，别说带货算是正经的IDOL工作了<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+若叶：我爽快多了
+
+黄大力：你们有完没完啊<img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+

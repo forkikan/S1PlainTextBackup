@@ -9737,3 +9737,28 @@ https: ...</blockquote>
 
 行了不用了，想起场刊有这段了
 
+
+*****
+
+####  王留美  
+##### 11208#       发表于 2025-5-4 17:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67777125&amp;ptid=2209276" target="_blank">盐盐盐盐盐 发表于 2025-5-3 16:51</a>
+
+有没有可能喵安只是一个直觉很好的ot（
+
+主要我觉得标题叫喵安不知道krkr我总觉得会幽默一下想看的反而看不 ...</blockquote>
+直觉好的OT不就是……NT？
+
+*****
+
+####  王留美  
+##### 11209#       发表于 2025-5-4 17:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67777142&amp;ptid=2209276" target="_blank">galgamesh11 发表于 2025-5-3 16:58</a>
+
+按照传统的话就是上毒气了（）</blockquote>
+毒气不至于
+
+但是吉翁大兵下手没轻重不在意人命踩死几个人打死几个人甚至给殖民地开个大洞都是可以想象的
+
