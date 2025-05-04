@@ -2180,3 +2180,13 @@ baldr系列那种本来就是act的除外
 
 基本上加分点就在地图设计和配装上了，每张图的主题都挺有趣的，攒出一套顺手的搭配后一路平推完净水层的感觉真不错。可惜推图没bgm，只能自己后台播放海滨假日找感觉<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蓝雉  
+##### 201#       发表于 2025-5-5 07:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67781481&amp;ptid=2158861" target="_blank">KL25001 发表于 2025-5-5 04:03</a>
+20小时打完一周目，长度略短了一些，有些意犹未尽，要是后面三张图都有净水层的体量，或者boss战的亮点多一 ...</blockquote>
+净水层我觉得应该放xb2里阿卡狄亚或者洛修利亚的bgm<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
