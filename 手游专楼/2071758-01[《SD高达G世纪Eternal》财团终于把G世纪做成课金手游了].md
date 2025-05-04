@@ -11818,3 +11818,12 @@ DamageCorrectionParam6 = 3
 充了ur包和支援ur包，抽了200拿低保强自，200抽里6个正义，2个拉克丝，1个普通自由，一个沙扎比，我真是醉 ...</blockquote>
 2个拉克丝很欧了，比SF要好
 
+
+*****
+
+####  閻魔愛  
+##### 1112#       发表于 2025-5-4 15:13
+
+小号60抽满破了强自，外加自由和正义，但是支援歪了2个UR。现在靠资源150抽了拉克丝还没来。<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+不得不说100级满破的强自刷图就是爽，简直就像鸡神乱入别的世界调停战争一样……<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，我都想把小号转正了。
+
