@@ -2104,3 +2104,29 @@ baldr系列那种本来就是act的除外
 酒窝可能是异形拟态成了那个铠灵的样子，但还没学会说话 ...</blockquote>
 异形可还行 游戏内好像描述过技师型都是女王根据需求定制生产的 温室大树产大个体？
 
+
+*****
+
+####  madcow  
+##### 196#       发表于 2025-5-4 17:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67780084&amp;ptid=2158861" target="_blank">squallx 发表于 2025-5-4 16:56</a>
+
+异形可还行 游戏内好像描述过技师型都是女王根据需求定制生产的 温室大树产大个体？ ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202505/04/174714lowysmr3otqoj3yi.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>2.jpeg</strong> (29.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-4 17:47 上传
+
+你看酒窝外观的这个描述（
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">现在就是不知道哪些敌人算是异形。
+
+记得阿妈说异形定义是设计之外的玩意（最后还说了句铠灵也算某种意义上的异形）
+
+但是降积地到禁区到圣智庙这一片里的敌人比起说异形更像是被寄生了的机械？说话头那个支线如果给了污染核心能看到它屁股散热口上长东西出来了
+
