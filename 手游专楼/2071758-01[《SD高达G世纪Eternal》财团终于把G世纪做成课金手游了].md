@@ -11979,3 +11979,26 @@ SR自由是菜刀机，不会给敌方上debuff的，功能性上替代不了UR�
 你实际上需要选择的是要 ...</blockquote>
 光束易伤的话那是不是完美适配强自，其实我自己倾向小狸猫多一点，前一个号就是自由，一直没抽出来过狸猫，想试试
 
+
+*****
+
+####  一个陆仁贾  
+##### 1125#       发表于 2025-5-5 01:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67781391&amp;ptid=2071758" target="_blank">chivalry 发表于 2025-5-5 01:25</a>
+自由用 sr 可以平替吗，可以的话我就换风灵</blockquote>
+你要是没错过红高达的话就相当于有一台小风灵了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  chivalry  
+##### 1126#       发表于 2025-5-5 01:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67781403&amp;ptid=2071758" target="_blank">一个陆仁贾 发表于 2025-5-5 01:36</a>
+你要是没错过红高达的话就相当于有一台小风灵了
+
+—— 来自 vivo V2419A, Android 15, 鹅球 v3.5.99 ...</blockquote>
+第一次重生我都快把三星红高达肝出来了，结果号没了瞬间弃坑，后来又幻想这逼游戏万一出到闪哈呢<img src="https://static.stage1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
