@@ -1300,3 +1300,12 @@ https://x.com/imigimuru/status/1918986168965738731
 
 看到老面孔我才想起来自己还欠你们一篇五万字的没写呢。。。
 
+
+*****
+
+####  osore  
+##### 2282#       发表于 2025-5-5 06:50
+
+第一反应是好久不见想打个招呼
+“哟-”<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
