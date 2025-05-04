@@ -11807,3 +11807,14 @@ DamageCorrectionParam6 = 3
 
 妖刀，我的超人，伤害全靠反击来的<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hayate0079  
+##### 1111#       发表于 2025-5-4 15:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67779414&amp;ptid=2071758" target="_blank">winder0707 发表于 2025-5-4 11:33</a>
+
+充了ur包和支援ur包，抽了200拿低保强自，200抽里6个正义，2个拉克丝，1个普通自由，一个沙扎比，我真是醉 ...</blockquote>
+2个拉克丝很欧了，比SF要好
+

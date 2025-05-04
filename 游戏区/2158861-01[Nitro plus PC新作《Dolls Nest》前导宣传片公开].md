@@ -2053,3 +2053,11 @@ baldr系列那种本来就是act的除外
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来不明佣兵这一套要回去捡的，这龟壳好眼熟啊，我知道你哪来的了
 
+
+*****
+
+####  black1991518  
+##### 192#       发表于 2025-5-4 14:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">特技也是突击装甲，太致敬了
+
