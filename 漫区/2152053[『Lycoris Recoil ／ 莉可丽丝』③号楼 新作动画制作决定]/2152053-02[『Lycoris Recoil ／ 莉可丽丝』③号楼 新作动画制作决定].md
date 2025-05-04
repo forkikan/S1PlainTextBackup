@@ -1254,3 +1254,14 @@ b怎么没更，审核没过是吧
 
 这是工作人员不会弄,得提前传好定时公开.
 
+
+*****
+
+####  Delicatus545  
+##### 2278#       发表于 2025-5-4 21:12
+
+[https://x.com/imigimuru/status/1918986168965738731](https://x.com/imigimuru/status/1918986168965738731)
+<img src="https://p.sda1.dev/23/d6297391ceacf48df32c39986e799539/image.png" referrerpolicy="no-referrer">
+
+男娘作者的肯定
+
