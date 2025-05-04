@@ -9699,3 +9699,14 @@ EP05倒还可以 至少机战不错
 https: ...</blockquote>
 我的意思就是邀请试镜
 
+
+*****
+
+####  岸浪白野  
+##### 11205#       发表于 2025-5-4 16:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67779969&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-4 16:15</a>
+
+我的意思就是邀请试镜</blockquote>
+还有先确定了石川的出处是哪来的
+
