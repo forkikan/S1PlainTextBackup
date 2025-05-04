@@ -11621,3 +11621,114 @@ https://www.bilibili.com/video/BV13QGizqEc7  ...</blockquote>
 你满破的？？我0+1完全没有这样的数值</blockquote>
 强自3星，拉克丝1星
 
+
+*****
+
+####  马桶3  
+##### 1102#       发表于 2025-5-4 11:22
+
+转自：[https://bbs.nga.cn/read.php?tid=43997389](https://bbs.nga.cn/read.php?tid=43997389)
+
+伤害计算公式，有点复杂
+
+characterCorrection = Max(0, characterAtk - targetDef) / DamageCorrectionCharacterParam1
+
+unitCorrection = Max(0, RoundUp((unitAtk / 10.0) - (targetUnitDef / 10.0))) / DamageCorrectionUnitParam1
+
+characterAdjustedValue = 1.0 / (Exp((DamageCorrectionCharacterParam2 * (targetDef - characterAtk)) / 100000.0) + 1.0)
+
+unitAdjustedValue = 1.0 / (Exp((DamageCorrectionUnitParam2 * (targetUnitDef - unitAtk)) / 100000.0) + 1.0)
+
+baseDamage = RoundUp((characterCorrection + unitCorrection + characterAdjustedValue + unitAdjustedValue) * power)
+
+attackerCombinedStat = RoundUp((unitAtk + 2 * characterAtk) / 10.0)
+
+targetCombinedStat = RoundUp((targetUnitDef + 2 * targetDef) / 10.0)
+
+damageCorrectExponent1 = ((DamageCorrectionParam1 - attackerCombinedStat) * DamageCorrectionParam3) / 100000.0
+
+damageCorrectExponent2 = ((DamageCorrectionParam4 - targetCombinedStat) * DamageCorrectionParam6) / 100000.0
+
+damageCorrectTerm1 = (DamageCorrectionParam2 / 100.0) / (Exp(damageCorrectExponent1) + 1.0)
+
+damageCorrectTerm2 = (DamageCorrectionParam5 / 100.0) / (Exp(damageCorrectExponent2) + 1.0)
+
+damageCorrection = (damageCorrectTerm1 + damageCorrectTerm2) * baseDamage
+
+battleDamage = RoundUp(baseDamage + damageCorrection)
+
+系数
+
+DamageCorrectionUnitParam1 = 5000
+
+DamageCorrectionUnitParam2 = 25
+
+DamageCorrectionCharacterParam1 = 5000
+
+DamageCorrectionCharacterParam2 = 250
+
+DamageCorrectionParam1 = 5000
+
+DamageCorrectionParam2 = 10000
+
+DamageCorrectionParam3 = 30
+
+DamageCorrectionParam4 = 5000
+
+DamageCorrectionParam5 = -4000
+
+DamageCorrectionParam6 = 3
+
+<strong>极简模型： 基础伤害(由敌我机体机师攻防计算得出)* 武装威力 * 额外伤害加成 * 暴击</strong>
+
+关于机体强度方面：
+
+可以简单理解为攻击力和武装威力数值越高的机体理论伤害越高，这个是比较好理解的，不看伤害公式玩家也能感受到
+<strong>比较反直觉的是攻击力提升收益</strong>
+
+以ex2金螃蟹作为目标，计算提高10%攻击力的收益：
+
+当机体攻击力从10000提升到11000时，伤害提高~10.4%
+
+当机体攻击力从15000提升到16500时，伤害提高~14.4%
+
+当机体攻击力从20000提升至22000时，伤害提高~21.9%
+
+可以看到在这个区间内，攻击力的收益甚至是递增的。当攻击力来到40000的时候，收益才会回落到16.8%
+
+以金异端为目标：
+
+1w-1.1w：12.4%
+
+1w5-1.65w： 12.2%
+
+2w-2w2： 12.3%
+
+当目标防御力过高时，收益趋于稳定。
+
+机师对比模板我们选择夏亚(876)和金凯度(650)作为对比。挨揍的依然是金螃蟹和金异端。
+
+<strong>1.敌方机体防御力越高，机师面板的收益越高。</strong>
+
+当面对金异端时，开20000攻击力的机体，夏亚造成的伤害会比金凯度高34%。
+
+差距非常接近两人面板的比例。
+
+当面对金螃蟹时，开20000攻击力的机体，夏亚造成的伤害会比金凯度高28%。
+
+<strong>2.我方机体攻击力越低，机师面板收益越高。</strong>
+
+当面对金螃蟹时，开10000攻击力的机体，夏亚造成的伤害会比金凯度高42%。
+
+当面对金异端时，开10000攻击力的机体，夏亚造成的伤害会比金凯度高38%。
+
+可以看到，当机体变成10000攻击力以后，夏亚拉开了更大的差距。
+
+可以简单地说，敌人越强，机师面板的收益越高。当双方的机体和机师攻防属性都接近时，提高机师面板的收益约等于线性(提高10%机师面板约等于提高10%最终伤害)
+
+<strong>3.当面对菜鸡敌人时，机师面板的差距会被大幅缩小</strong>
+
+以小怪为对手，夏亚的伤害仅比金凯度高9%-12%。
+
+所以选择机师的时候面板属性是重中之重。夏亚跟金凯度分别开沙扎比和海盗去打金异端，海盗的ex要打出暴击才能比沙扎比的ex高10%。总帅作为一个三动机配合沙扎比长手模板，表面上看对单能力亏模，实际上对单作战快要完爆海盗+金凯度了。
+
