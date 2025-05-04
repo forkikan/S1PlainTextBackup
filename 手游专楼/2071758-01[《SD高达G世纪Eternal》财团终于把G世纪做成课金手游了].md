@@ -11799,3 +11799,11 @@ DamageCorrectionParam6 = 3
 我也是前200抽0强自吃了井，换出强自后因为运营又送了石头，我先抽卡券进普池洗了个脸一看跳出来都是杂鱼 ...</blockquote>
 有个就行了，氪这点都属于我真爱强自了
 
+
+*****
+
+####  nagamasa  
+##### 1110#       发表于 2025-5-4 14:43
+
+妖刀，我的超人，伤害全靠反击来的<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
