@@ -9579,3 +9579,18 @@ z里面提了多次的30号卫星事件是提坦斯灌毒气，这里17号也要
 GQ吉...格鲁古古的嘴部采用调节器面罩风格，是因为原版吉姆的大河原邦男标志性设计之一山形护目镜当面部仅 ...</blockquote>
 他真的好懂 
 
+
+*****
+
+####  psycho_Gadfly  
+##### 11195#       发表于 2025-5-4 14:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67779609&amp;ptid=2209276" target="_blank">AkaiSuisei 发表于 2025-5-4 13:05</a>
+
+荒木哲郎丢人玩意儿，为了信息控制的前后对比把MS战做成这种效果
+
+榎户洋司也是丢人玩意儿，剧情张力完全建 ...</blockquote>
+泥水06还是算了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">大狸老师比精神小妹好不了多少 最后女鬼和解也挺抽象的
+
+EP05倒还可以 至少机战不错
+
