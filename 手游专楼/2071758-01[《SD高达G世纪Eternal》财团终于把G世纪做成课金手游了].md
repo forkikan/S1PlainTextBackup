@@ -11903,3 +11903,29 @@ DamageCorrectionParam6 = 3
 
 —— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  chivalry  
+##### 1120#       发表于 2025-5-4 23:08
+
+<img src="https://img.stage1st.com/forum/202505/04/230035tce6p4u0ps61c6sd.jpg" referrerpolicy="no-referrer">
+
+<strong>D9AAF4E6-0F40-4C92-88D2-DC57CEC6680F.jpg</strong> (377.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-4 23:00 上传
+
+<img src="https://img.stage1st.com/forum/202505/04/230035nfus1nnsygyggl7u.jpg" referrerpolicy="no-referrer">
+
+<strong>8C8E6D64-C587-47E3-86A4-597AFF83E032.jpg</strong> (416.59 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-4 23:00 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">上一个号因为没绑定账号，客户端出问题了只能删除一起灰飞烟灭了，这次重生痛定思痛找了一个 3+3 的号，比较可惜的是错过了红高达，现在还有新手没用，我选个什么比较好，跪求各位大佬指导！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
