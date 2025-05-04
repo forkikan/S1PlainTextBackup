@@ -445,3 +445,16 @@ leader高桥波尔卡
 
 这一号位的设定，简而言之就是小废物？<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">现在是说不是铁废物主角就没法吸引客人了是吗
 
+
+*****
+
+####  ads147147  
+##### 48#       发表于 2025-5-4 16:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67779029&amp;ptid=2244986" target="_blank">奥柏伦亲王 发表于 2025-5-4 07:32</a>
+
+这一号位的设定，简而言之就是小废物？现在是说不是铁废物主角就没法吸引客人了是吗 ...</blockquote>
+要写成长弧线咯。
+
+只要别变成大香那种emo压制自己战斗力的类型就行了。。
+
