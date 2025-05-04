@@ -9480,3 +9480,91 @@ z里面提了多次的30号卫星事件是提坦斯灌毒气，这里17号也要
 不如泥水E06
 高达终究是挣脱不了光头的窠臼，导致永远只有剧情没有剧本，你不叫斧谷稔就不要写富野节
 
+
+*****
+
+####  高达age  
+##### 11192#       发表于 2025-5-4 13:53
+
+富士茄鹰老师果然不会放过GQuuuuuuX
+
+<img src="https://static.stage1st.com/image/smiley/bundam2017/003.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.stage1st.com/forum/202505/04/135342o9s84e548g24m9do.jpg" referrerpolicy="no-referrer">
+
+<strong>f_富士茄鹰老师的推特短篇_GQuuuuu'A_1746330752_1-01.jpg</strong> (302.59 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-4 13:53 上传
+
+<img src="https://img.stage1st.com/forum/202505/04/135342ca8fja7ex871j3nn.jpg" referrerpolicy="no-referrer">
+
+<strong>f_富士茄鹰老师的推特短篇_GQuuuuu'A_1746330752_1-02.jpg</strong> (370.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-4 13:53 上传
+
+<img src="https://img.stage1st.com/forum/202505/04/135343q301mj6nuckjd188.jpg" referrerpolicy="no-referrer">
+
+<strong>f_富士茄鹰老师的推特短篇_GQuuuuu'A_1746330752_1-03.jpg</strong> (345.94 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-4 13:53 上传
+
+<img src="https://img.stage1st.com/forum/202505/04/135343tjfc33t76w2424j3.jpg" referrerpolicy="no-referrer">
+
+<strong>f_富士茄鹰老师的推特短篇_GQuuuuu'A_1746330752_1-04.jpg</strong> (530.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-4 13:53 上传
+
+<img src="https://img.stage1st.com/forum/202505/04/135344dmsejemm52n765k1.jpg" referrerpolicy="no-referrer">
+
+<strong>f_富士茄鹰老师的推特短篇_GQuuuuu'A_1746330752_1-05.jpg</strong> (492.12 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-4 13:53 上传
+
+<img src="https://img.stage1st.com/forum/202505/04/135344kgsdpzhdrsg2gthr.jpg" referrerpolicy="no-referrer">
+
+<strong>f_富士茄鹰老师的推特短篇_GQuuuuu'A_1746330752_1-06.jpg</strong> (329.82 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-4 13:53 上传
+
+*****
+
+####  岸浪白野  
+##### 11193#       发表于 2025-5-4 13:54
+
+ 本帖最后由 岸浪白野 于 2025-5-4 13:55 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67778164&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-3 22:42</a>
+
+吉姆？这名字一股联邦的臭味。从今天起你就叫格鲁古古了，听好了——是格鲁古古！
+
+说回来，那个原本打算量 ...</blockquote>GQ吉...格鲁古古的嘴部采用调节器面罩风格，是因为原版吉姆的大河原邦男标志性设计之一山形护目镜当面部仅保留该特征且强化表现时极易与大魔系混淆，但可改动余地实在有限。
+
+虽然理解80年代中期后吉姆额甲的美型化趋势，但GQ最终决定优先保留山形护目镜结构，将其改造为潜水员面罩样式。
+
+虽然最初只是为了让设计更契合原版风格而做的追加改动，但看来包括制作组和观众们都认为这是吉翁对吉姆进行外形改造变成了吉翁系MS风格面罩。
+
+所以今后我决定统一口径：“没...没错！当然就是这个设计意图啦，高达老哥们说的对！”
+
+和GQuuuuuuX有很多微妙的共通点的是，虽然GQ是纯原创机体，但其实我们也有过一段时期觉得让它在这种地方打野架果然还是太奇怪了吧（虽然后来放弃了）
+
+最终决定采用是让它看起来像经过彻底改装的吉姆的方向，具体绘制时是先完成吉姆的斜前视角草图，再以其为参照绘制GQ
+
+<img src="https://img.stage1st.com/forum/202505/04/124247y5o4458s8ootoloe.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (931.77 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-4 12:42 上传
+
