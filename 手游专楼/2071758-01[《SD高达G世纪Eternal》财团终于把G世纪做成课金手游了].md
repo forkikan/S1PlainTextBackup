@@ -11929,3 +11929,23 @@ DamageCorrectionParam6 = 3
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  马桶3  
+##### 1121#       发表于 2025-5-5 01:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67781129&amp;ptid=2071758" target="_blank">chivalry 发表于 2025-5-4 23:08</a>
+
+上一个号因为没绑定账号，客户端出问题了只能删除一起灰飞烟灭了，这次重生痛定思痛找了一个 3+3 的号， ...</blockquote>
+你这明显缺支援，风灵或者自由都能吃到拉克丝战舰加成，你两个里挑一个呗
+
+*****
+
+####  chivalry  
+##### 1122#       发表于 2025-5-5 01:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67781384&amp;ptid=2071758" target="_blank">马桶3 发表于 2025-5-5 01:22</a>
+你这明显缺支援，风灵或者自由都能吃到拉克丝战舰加成，你两个里挑一个呗 ...</blockquote>
+自由用 sr 可以平替吗，可以的话我就换风灵
+
