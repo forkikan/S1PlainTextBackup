@@ -183,3 +183,16 @@ md凯特桑来刷什么存在感难蚌<img src="https://static.stage1st.com/imag
 偶像是不可以恋爱的，这男偶像却说保密<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 而且刷新频率也太高了，你不用跑现场的嘛<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jaewoongh_  
+##### 829#       发表于 2025-5-4 22:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67780149&amp;ptid=2208663" target="_blank">leleq 发表于 2025-5-4 17:22</a>
+
+继续带货，别说带货算是正经的IDOL工作了
+
+若叶：我爽快多了</blockquote>
+画q版和演艺毕竟是青山的舒适区
+
