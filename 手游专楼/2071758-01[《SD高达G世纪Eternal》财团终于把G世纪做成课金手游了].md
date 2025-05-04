@@ -12002,3 +12002,14 @@ SR自由是菜刀机，不会给敌方上debuff的，功能性上替代不了UR�
 —— 来自 vivo V2419A, Android 15, 鹅球 v3.5.99 ...</blockquote>
 第一次重生我都快把三星红高达肝出来了，结果号没了瞬间弃坑，后来又幻想这逼游戏万一出到闪哈呢<img src="https://static.stage1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  马桶3  
+##### 1127#       发表于 2025-5-5 01:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67781401&amp;ptid=2071758" target="_blank">chivalry 发表于 2025-5-5 01:35</a>
+
+光束易伤的话那是不是完美适配强自，其实我自己倾向小狸猫多一点，前一个号就是自由，一直没抽出来过狸猫 ...</blockquote>
+你既然想要风灵就选风灵，反正只要一直玩下去，支援类BUFF总是能在开发里做齐的
+
