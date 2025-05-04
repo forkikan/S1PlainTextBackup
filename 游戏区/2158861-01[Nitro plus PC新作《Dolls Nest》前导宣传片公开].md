@@ -2143,3 +2143,19 @@ baldr系列那种本来就是act的除外
 现在就是不知道哪些敌人算是异形。</blockquote>
 啊 这么黑的？
 
+
+*****
+
+####  madcow  
+##### 198#       发表于 2025-5-4 22:36
+
+好奇STEAM社区里有些图是怎么截出来的，能关UI我知道，但是没有摄影模式吧（
+
+<img src="https://img.stage1st.com/forum/202505/04/223616h5naps0l3n73t5t0.jpg" referrerpolicy="no-referrer">
+
+<strong>515125.jpg</strong> (208.17 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-4 22:36 上传
+
