@@ -11949,3 +11949,33 @@ DamageCorrectionParam6 = 3
 你这明显缺支援，风灵或者自由都能吃到拉克丝战舰加成，你两个里挑一个呗 ...</blockquote>
 自由用 sr 可以平替吗，可以的话我就换风灵
 
+
+*****
+
+####  马桶3  
+##### 1123#       发表于 2025-5-5 01:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67781391&amp;ptid=2071758" target="_blank">chivalry 发表于 2025-5-5 01:25</a>
+
+自由用 sr 可以平替吗，可以的话我就换风灵</blockquote>
+SR自由是菜刀机，不会给敌方上debuff的，功能性上替代不了UR自由的光束易伤BUFF
+
+你实际上需要选择的是要风灵的减防还是自由的光束易伤
+
+目前根据伤害公式，减防在敌方防御力过高的情况下（比如这次的金异端），收益不如正向的易伤（伤害增加）
+
+但是话又说回来毕竟减防是通用debuff挂上了谁都能吃到，光束易伤就只要光束属性攻击才能享受
+
+结论是平替是不可能的，你还是喜欢哪个就选哪个吧
+
+*****
+
+####  chivalry  
+##### 1124#       发表于 2025-5-5 01:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67781397&amp;ptid=2071758" target="_blank">马桶3 发表于 2025-5-5 01:31</a>
+SR自由是菜刀机，不会给敌方上debuff的，功能性上替代不了UR自由的光束易伤BUFF
+
+你实际上需要选择的是要 ...</blockquote>
+光束易伤的话那是不是完美适配强自，其实我自己倾向小狸猫多一点，前一个号就是自由，一直没抽出来过狸猫，想试试
+

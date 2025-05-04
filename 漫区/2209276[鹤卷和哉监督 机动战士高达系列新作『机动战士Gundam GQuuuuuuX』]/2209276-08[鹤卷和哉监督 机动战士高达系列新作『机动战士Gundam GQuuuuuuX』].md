@@ -9994,3 +9994,16 @@ https: ...</blockquote>
 
 说不好，反过来想，就算妮娅安是nt，也不会在剧场版访谈就说出来吧，这种对于后续的剧透本身就不会这时候就讲出来的
 
+
+*****
+
+####  AvenueIII  
+##### 11218#       发表于 2025-5-5 01:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67781367&amp;ptid=2209276" target="_blank">galgamesh11 发表于 2025-5-5 01:08</a>
+
+说不好，反过来想，就算妮娅安是nt，也不会在剧场版访谈就说出来吧，这种对于后续的剧透本身就不会这时候 ...</blockquote>
+但确实喵安不是NT更有鹤卷gg要的对比感（
+
+不过要是属实那废案前半段的“体验过kirakira”就彻底得吃书了，总不能牢修的nt空间ot都能拉进来
+

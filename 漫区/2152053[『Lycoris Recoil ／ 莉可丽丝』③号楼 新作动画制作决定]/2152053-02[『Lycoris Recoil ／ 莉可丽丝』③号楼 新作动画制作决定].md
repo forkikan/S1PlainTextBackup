@@ -1287,3 +1287,16 @@ https://x.com/imigimuru/status/1918986168965738731
 点进去一划，发现布谷鸟才转发了这个作者画的安岛</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">鸟和蒜人的不解之缘
 
+
+*****
+
+####  Tungsten  
+##### 2281#       发表于 2025-5-5 01:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67753327&amp;ptid=2152053" target="_blank">Saber琪 发表于 2025-4-24 21:40</a>
+
+朝浦原案是鲨鲨鲨，足立改的，这下又得车足立了</blockquote>
+你们循环了两年又循环回zlgg了
+
+看到老面孔我才想起来自己还欠你们一篇五万字的没写呢。。。
+
