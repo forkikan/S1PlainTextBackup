@@ -2061,3 +2061,16 @@ baldr系列那种本来就是act的除外
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">特技也是突击装甲，太致敬了
 
+
+*****
+
+####  半分宅  
+##### 193#       发表于 2025-5-4 15:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67776868&amp;ptid=2158861" target="_blank">squallx 发表于 2025-5-3 03:07</a>
+
+搞不好圣柜里的怪才是碳基猴子造的 甚至可能是铠灵原型 ？这什么泰坦造人血肉诅咒 ...</blockquote>
+圣柜里的大型人偶是防御型铠灵，串串的某段对话里有提到过。
+
+铠灵分4种，普通型（样样通样样松），战斗型（运动能力和反射神经特别发达），技师型（四只手），防御型（需要女王专门培养，自我意识薄弱的移动炮台）。
+
