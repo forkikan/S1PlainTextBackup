@@ -9878,3 +9878,69 @@ https: ...</blockquote>
 
 2025-5-4 18:56 上传
 
+
+*****
+
+####  岸浪白野  
+##### 11214#       发表于 2025-5-4 19:14
+
+[X 上的 すけぽんげ：“5話は…たぶんこう…… #GQuuuuuuX #ジークアクス [url]https://t.co/pD3oKtOcaU](https://x.com/baka_man_/status/1917607529615614289)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/04/190920oran146o34nbgang.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (646.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-4 19:09 上传
+
+[X 上的 そまそ太郎：“エグザベ君… #GQuuuuuuX #ジークアクス [url]https://t.co/J6YBDRz3L4](https://x.com/somasoutaro/status/1918607194658161008)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/04/191059qjqa5f75zcr7w59z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.13 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-4 19:10 上传
+
+[X 上的 秋山：“コモリ少尉 [url]https://t.co/C51O8UQQRO](https://x.com/akiyama_cz4a/status/1918853214507835718)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/04/191249spu6ncicj3rr6ca3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.26 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-4 19:12 上传
+
+[X 上的 Hyde：“マチュ [url]https://t.co/16cXe3Ne5Y](https://x.com/tabakko/status/1918589042339537136)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/04/191213qg66pggp88fgpr8p.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.24 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-4 19:12 上传
+
+[X 上的 양갈래：“[url]https://t.co/WY3PCZYiTz](https://x.com/2wintail__/status/1918633848218460376)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/04/191339kcna5ehzeaker3ar.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.65 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-4 19:13 上传
+
+[X 上的 sü56：“あの顔すぎる [url]https://t.co/63X1F8u51N](https://x.com/sa1korokorokoro/status/1918914722641924354)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/04/191423ob3znbh92j3n6jva.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.64 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-4 19:14 上传
+
