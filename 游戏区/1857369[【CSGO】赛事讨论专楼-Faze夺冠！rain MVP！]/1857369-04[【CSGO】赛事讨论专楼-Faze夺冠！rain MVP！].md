@@ -81,3 +81,13 @@ Niko的软脚感觉是治不好了<img src="https://static.stage1st.com/image/sm
 
 前面几个年轻人好歹出完成绩走的，寒王又熬上了<img src="https://static.stage1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  灰色的狐狸  
+##### 4711#       发表于 2025-5-6 01:38
+
+尼尼这nuke已经完蛋了吧
+
+这两个决赛但凡打好一点都拿下了
+
