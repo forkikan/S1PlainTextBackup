@@ -12198,3 +12198,29 @@ S1这答案怎么还是错的。。。
 
 申请了<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ChrisSnake  
+##### 1146#       发表于 2025-5-5 15:59
+
+<img src="https://img.stage1st.com/forum/202505/05/155708ckw4ocae0ag424bk.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5919.jpeg</strong> (279.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-5 15:57 上传
+
+目前所有可开发的5射程机体 一共9台
+
+高达1台
+
+z高达2台
+
+zz高达3台
+
+seed2台
+
+水星1台
+
