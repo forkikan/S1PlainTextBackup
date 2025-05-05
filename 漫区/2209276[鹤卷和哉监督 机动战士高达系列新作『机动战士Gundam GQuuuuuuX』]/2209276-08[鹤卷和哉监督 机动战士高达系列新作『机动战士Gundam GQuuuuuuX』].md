@@ -10166,3 +10166,11 @@ https://gamerwk.com/wawancara-eksklusif-gundam-gquuuuuux-dengan-kazuya-tsurumaki
 但是卡其脱离太6个人有喵安，其余5个都是NT了就她不是也太怪了233</blockquote>
 小森也没定吧，只是疑似，小森自己也还在质疑NT的存在，第四集那个拉拉音79里NT、OT都能听见吧
 
+
+*****
+
+####  0aleph37  
+##### 11233#       发表于 2025-5-5 11:32
+
+但gqx拉拉声明显有人听得到有人听不到
+
