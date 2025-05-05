@@ -10182,3 +10182,21 @@ https://gamerwk.com/wawancara-eksklusif-gundam-gquuuuuux-dengan-kazuya-tsurumaki
 
 不要带<img src="https://static.stage1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">的节奏
 
+
+*****
+
+####  AvenueIII  
+##### 11235#       发表于 2025-5-5 11:55
+
+那么特地让哈罗说一句“我听不到呦”是什么意思，骡子说大失败<img src="https://static.stage1st.com/image/smiley/bundam2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  王留美  
+##### 11236#       发表于 2025-5-5 11:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67781608&amp;ptid=2209276" target="_blank">转子引擎 发表于 2025-5-5 08:44</a>
+ 当然也有怨念，然后留下试做型的"勇士"投奔联邦，此型MS得名"GM"对吧23333333 ...</blockquote>
+吉姆是敢达量产型的缩写啊
+MS-14凭啥叫敢达
+
