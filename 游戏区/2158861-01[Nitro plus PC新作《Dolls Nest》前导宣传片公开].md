@@ -2214,3 +2214,13 @@ baldr系列那种本来就是act的除外
 
 2025-5-5 10:53 上传
 
+
+*****
+
+####  蓝雉  
+##### 203#       发表于 2025-5-5 11:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67781834&amp;ptid=2158861" target="_blank">madcow 发表于 2025-5-5 10:53</a>
+好奇这人是怎么截屏正面的</blockquote>
+好像是mod
+

@@ -10083,3 +10083,24 @@ ds翻译
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  AvenueIII  
+##### 11225#       发表于 2025-5-5 10:57
+
+<blockquote>ryanghj 发表于 2025-5-5 10:44
+https://gamerwk.com/wawancara-eksklusif-gundam-gquuuuuux-dengan-kazuya-tsurumaki-revolusi-cerita-d ...</blockquote>
+这（zsbd
+
+
+*****
+
+####  希望之异热同心  
+##### 11226#       发表于 2025-5-5 11:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67781781&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-5 10:27</a>
+
+喵安怎么看都还是更像OT吧，想不出设置一个全NT主角三人组情节上有什么好处，而且这第五集标题越是强调“想 ...</blockquote>
+但是卡其脱离太6个人有喵安，其余5个都是NT了就她不是也太怪了233
+

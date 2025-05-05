@@ -12041,3 +12041,26 @@ SR自由是菜刀机，不会给敌方上debuff的，功能性上替代不了UR�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">总之听了各位老哥的话换了风铃，再次感谢
 
+
+*****
+
+####  HEERO.W  
+##### 1131#       发表于 2025-5-5 11:05
+
+<img src="https://img.stage1st.com/forum/202505/05/110141w009oe0l0eg0onpp.jpg" referrerpolicy="no-referrer">
+
+<strong>D5D679B7E01F6F4FEB963D3AE89AF915.jpg</strong> (222.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-5 11:01 上传
+
+其实这4档BUFF都是叠加取最高值的，4档不存在谁平替谁
+
+*****
+
+####  HEERO.W  
+##### 1132#       发表于 2025-5-5 11:06
+
+路人群就是无用信息太多，一大半是问怎么下载更新，怎么氪金，怎么领兑换码
+
