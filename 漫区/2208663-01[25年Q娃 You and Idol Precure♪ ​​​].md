@@ -309,3 +309,11 @@ md凯特桑来刷什么存在感难蚌<img src="https://static.stage1st.com/imag
 而且刷新频率也太高了，你不用跑现场的嘛 ...</blockquote>
 可能是田中<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  我吃诗人  
+##### 834#       发表于 2025-5-5 13:36
+
+想象了一下起床时被人拿着应援棒喊干巴嘞感觉会羞愧至死<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
