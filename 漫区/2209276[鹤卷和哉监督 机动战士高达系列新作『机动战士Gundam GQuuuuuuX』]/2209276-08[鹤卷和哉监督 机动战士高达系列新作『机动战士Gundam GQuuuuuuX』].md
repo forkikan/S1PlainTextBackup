@@ -10240,3 +10240,16 @@ MS-14凭啥叫敢达
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  王留美  
+##### 11239#       发表于 2025-5-5 13:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67782112&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-5 12:53</a>
+
+舰桥那里很明显只有左边的人能听到
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+CIC的金发妹子也能听到的样子
+
