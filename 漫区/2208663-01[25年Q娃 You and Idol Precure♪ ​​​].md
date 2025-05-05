@@ -296,3 +296,16 @@ md凯特桑来刷什么存在感难蚌<img src="https://static.stage1st.com/imag
 
 西武百货在池袋东口
 
+
+*****
+
+####  sheshiro  
+##### 833#       发表于 2025-5-5 10:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67780373&amp;ptid=2208663" target="_blank">渡鸦骑士 发表于 2025-5-4 19:09</a>
+
+偶像是不可以恋爱的，这男偶像却说保密
+
+而且刷新频率也太高了，你不用跑现场的嘛 ...</blockquote>
+可能是田中<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
