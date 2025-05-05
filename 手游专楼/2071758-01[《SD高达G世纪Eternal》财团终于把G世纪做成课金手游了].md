@@ -12072,3 +12072,45 @@ SR自由是菜刀机，不会给敌方上debuff的，功能性上替代不了UR�
 
 顶楼长期未更新，直接征用了，S1群也有推荐
 
+
+*****
+
+####  clauderayvane  
+##### 1134#       发表于 2025-5-5 12:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67781999&amp;ptid=2071758" target="_blank">captoon 发表于 2025-5-5 11:58</a>
+
+顶楼长期未更新，直接征用了，S1群也有推荐</blockquote>
+1L留的群号不对吧?
+
+*****
+
+####  captoon  
+##### 1135#       发表于 2025-5-5 12:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67782014&amp;ptid=2071758" target="_blank">clauderayvane 发表于 2025-5-5 12:07</a>
+
+1L留的群号不对吧?</blockquote>
+对的，群主是S1老人，群名不用管
+
+
+*****
+
+####  clauderayvane  
+##### 1136#       发表于 2025-5-5 12:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67782017&amp;ptid=2071758" target="_blank">captoon 发表于 2025-5-5 12:08</a>
+
+对的，群主是S1老人，群名不用管</blockquote>
+有加群问题 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 是不是改下设置比较好
+
+*****
+
+####  captoon  
+##### 1137#       发表于 2025-5-5 12:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67782021&amp;ptid=2071758" target="_blank">clauderayvane 发表于 2025-5-5 12:10</a>
+
+有加群问题  是不是改下设置比较好</blockquote>
+我问问群主
+
