@@ -12224,3 +12224,15 @@ seed2台
 
 水星1台
 
+
+*****
+
+####  一个陆仁贾  
+##### 1147#       发表于 2025-5-5 16:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67782164&amp;ptid=2071758" target="_blank">chivalry 发表于 2025-5-5 13:15</a>
+那就是嗯刷无限池是吧</blockquote>
+你看看无限池里面那堆100日元硬币再仔细考虑一下要不要硬刷<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
