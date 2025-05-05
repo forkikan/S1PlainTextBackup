@@ -32,3 +32,11 @@ cr玩脱了？
 
 不止夏日口袋，还有其他好几部的片源也都上架了，但是忘记设置为非公开。
 
+
+*****
+
+####  mhss  
+##### 102#       发表于 2025-5-5 14:03
+
+好久没看过gal改了，虽然还不知道要说什么故事但是看起来意外的舒服，人设改的比在网上搜的游戏截图更合我胃口<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
