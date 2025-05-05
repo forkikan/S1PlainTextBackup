@@ -10981,3 +10981,14 @@ gq时间线里，毕斯特财团宅子是不是还在side6啊，很想看这个�
 
 期待明天
 
+
+*****
+
+####  57042711  
+##### 11303#       发表于 2025-5-6 00:22
+
+联邦那边要是来点特殊部队乱入打黑拳的话就好玩了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+想看新锐机只能指望联邦那边了…吉翁太穷了啦！
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
