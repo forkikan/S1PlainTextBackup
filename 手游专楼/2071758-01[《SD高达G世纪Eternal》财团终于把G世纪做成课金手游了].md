@@ -12136,3 +12136,17 @@ S1这答案怎么还是错的。。。
 
 剧情都不出经验书 打多了一堆机体没法升级
 
+
+*****
+
+####  chivalry  
+##### 1140#       发表于 2025-5-5 13:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67782154&amp;ptid=2071758" target="_blank">ChrisSnake 发表于 2025-5-5 13:13</a>
+并不 
+
+活动池可以出机体经验书 最缺的就是它了 
+
+剧情都不出经验书 打多了一堆机体没法升级 ...</blockquote>
+那就是嗯刷无限池是吧
+
