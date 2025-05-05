@@ -1747,3 +1747,11 @@ b站热搜挂了一晚上了可惜看来真推不出去<img src="https://static.
 八千代还是对猫念念不忘，之前的PV2里也有一个猫耳帽形态的八千代来着。
 <img src="https://i.miji.bid/2025/05/05/9e996526e49733f24164c5ad03328fe8.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AkaiSuisei  
+##### 164#       发表于 2025-5-6 06:19
+
+八千代和ポンコ出门那段切橱窗里防毒面具风时装的那卡有种伪jump scare的味道，感觉很屌
+
