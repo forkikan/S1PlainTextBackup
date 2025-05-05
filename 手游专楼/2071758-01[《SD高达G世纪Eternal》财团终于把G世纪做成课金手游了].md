@@ -12275,3 +12275,31 @@ z高达2台</blockquote>
 
 自己平衡就行了
 
+
+*****
+
+####  hayate0079  
+##### 1151#       发表于 2025-5-5 19:33
+
+【【G世代 永恒】 永恒之路EX3(SEED)(优化版)】 [https://www.bilibili.com/video/B ... 846bbc71b38590e5428](https://www.bilibili.com/video/BV12UVVzPEBw/?share_source=copy_web&amp;vd_source=d89a7c11bf2aa846bbc71b38590e5428)
+
+看了下这个视频开局2个流星的站位后把EX3过了
+
+<img src="https://img.stage1st.com/forum/202505/05/193243tk9wwts5yktn9hif.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250505193247.png</strong> (156.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-5 19:32 上传
+
+<img src="https://img.stage1st.com/forum/202505/05/193244ljjcmwsmjmwcwsjs.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250505193251.png</strong> (153.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-5 19:32 上传
+
+我完美强袭没拉，一直在酱油，最后打死BOSS的时候还有一半人没动，感觉是主要看整体练度的1关
+

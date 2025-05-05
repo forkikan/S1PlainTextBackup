@@ -10657,3 +10657,29 @@ new uc 不是 another uc
 
 2025-5-5 19:21 上传
 
+
+*****
+
+####  aptx8285144  
+##### 11275#       发表于 2025-5-5 19:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67782749&amp;ptid=2209276" target="_blank">gamedreamer 发表于 2025-5-5 18:00</a>
+
+真不能再极端了，再极端就哈曼了
+
+—— 来自 鹅球 v3.3.96</blockquote>
+不对吧，再极端不就是葵斯吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  刺客ares  
+##### 11276#       发表于 2025-5-5 19:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67782974&amp;ptid=2209276" target="_blank">Concrete 发表于 2025-5-5 19:21</a>
+
+那么哪位来输出名台词呢(ﾟДﾟ)ﾉ</blockquote>
+喵安旧设不全废的话，应该是她输出颠婆台词了，她驾驶服气质太危险了
+
+相反，喵安旧设全废，玛秋按这集最后状态一路狂奔那就是玛秋输出颠婆台词<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
