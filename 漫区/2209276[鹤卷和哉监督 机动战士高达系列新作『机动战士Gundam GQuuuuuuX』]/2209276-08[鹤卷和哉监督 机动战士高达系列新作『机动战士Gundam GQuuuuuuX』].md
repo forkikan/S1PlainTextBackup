@@ -10564,3 +10564,38 @@ new uc 不是 another uc
 
 按照现在的假药来说，修司会消失＝会回到自己的时间线的可能性最大<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  renkan119  
+##### 11267#       发表于 2025-5-5 18:46
+
+<blockquote>刺客ares 发表于 2025-5-5 17:44
+目前出场的也就一台gqx算完全新机
+
+其余都是老uc的现代化改造
+
+通贩位置不多了吧，还能有全新规原创机吗 ...</blockquote>
+通贩就剩3个位置了 大概一个是夸克斯后继机 一个是最终boss机 还有一个是下集的大魔？
+
+*****
+
+####  AvenueIII  
+##### 11268#       发表于 2025-5-5 18:47
+
+确实看到过一些认为麻球后面会成恶役的假药，至少也是亦正亦邪（安纳金kana？Kirakira原来是原力）
+
+然后主角转为喵安什么的
+
+
+*****
+
+####  galgamesh11  
+##### 11269#       发表于 2025-5-5 18:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67782857&amp;ptid=2209276" target="_blank">AvenueIII 发表于 2025-5-5 18:47</a>
+确实看到过一些认为麻球后面会成恶役的假药，至少也是亦正亦邪（安纳金kana？Kirakira原来是原力）
+
+然后主 ...</blockquote>
+按旧设那个驾驶服，还不好说谁更极端（）
+

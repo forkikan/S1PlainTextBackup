@@ -763,3 +763,37 @@
 终于看完了，不容易啊。我现在就好奇，人理也到a了，都准备去南极了，那降临者没有奏章了？感觉不太可能吧 ...</blockquote>
 可能泳装开
 
+
+*****
+
+####  quanlix  
+##### 16615#       发表于 2025-5-5 14:57
+
+这次开场小番茄又提了嘴降临者，没有老外奏章圣诞阿比那个金瞳状态的坑就白挖了，总不能就情人节送礼用一次，然后三两句话就给解释了，但是又提前把老外的技能树开了，就很莫名其妙
+
+*****
+
+####  克苏鲁系青骑士  
+##### 16616#       发表于 2025-5-5 16:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">没事 降阶跟小番茄都可以所长碎片多几节剧情讲讲 迦球人也可以是外星人 反正元旦灭迦剧情也没正式的主线任务就是怒涛般的展开
+
+*****
+
+####  rollingusagi  
+##### 16617#       发表于 2025-5-5 18:36
+
+<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">。另外迦球居然也学我们这边招从者，终章估计会有从者军团大战了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  DARKGRAY  
+##### 16618#       发表于 2025-5-5 18:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67782152&amp;ptid=2084912" target="_blank">光影mk2 发表于 2025-5-5 13:12</a>
+
+终于看完了，不容易啊。我现在就好奇，人理也到a了，都准备去南极了，那降临者没有奏章了？感觉不太可能吧 ...</blockquote>
+树都开了，肯定不会专门整一章来讲<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
