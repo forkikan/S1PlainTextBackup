@@ -12323,3 +12323,14 @@ z高达2台</blockquote>
 
 原来永恒之路只限制机体的作品，没限制机师
 
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 1154#       发表于 2025-5-6 02:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67781426&amp;ptid=2071758" target="_blank">马桶3 发表于 2025-5-5 01:55</a>
+
+你既然想要风灵就选风灵，反正只要一直玩下去，支援类BUFF总是能在开发里做齐的 ...</blockquote>
+现在自选抽都流行刷出S高达和预订范围内的目标机体了
+

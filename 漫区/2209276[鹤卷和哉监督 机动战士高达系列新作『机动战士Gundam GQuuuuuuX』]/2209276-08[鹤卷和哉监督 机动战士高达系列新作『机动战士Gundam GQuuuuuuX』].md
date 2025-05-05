@@ -10992,3 +10992,16 @@ gq时间线里，毕斯特财团宅子是不是还在side6啊，很想看这个�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  岸浪白野  
+##### 11304#       发表于 2025-5-6 02:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67783749&amp;ptid=2209276" target="_blank">g救世主高达 发表于 2025-5-5 23:46</a>
+
+这个世界线连陆战高达和陆战吉姆都不存在，说不准制作组只看了0079-v高达的设定，独角兽压根不考虑 ...</blockquote>
+没有陆战高达和陆战吉姆是因为首先为了整0079 IF
+
+鹤卷有明说制作组看过了什么设定，就只说了正作相关还有富野笔记和MSV
+
