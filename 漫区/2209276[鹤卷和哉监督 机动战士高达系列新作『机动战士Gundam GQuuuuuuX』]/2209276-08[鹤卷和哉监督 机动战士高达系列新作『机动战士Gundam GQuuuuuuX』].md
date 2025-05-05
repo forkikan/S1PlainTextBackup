@@ -10400,3 +10400,50 @@ GM也只是一个简称，扩展下意思，硬掰出来个其他意思（比如
 
 日経トレンディ的特集吧，正文写的是girl meets boy (girl)<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Gysumitka  
+##### 11251#       发表于 2025-5-5 17:09
+
+所以是什么图，没人发吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 11252#       发表于 2025-5-5 17:12
+
+ 本帖最后由 岸浪白野 于 2025-5-5 17:13 编辑 
+
+<img src="https://img.stage1st.com/forum/202505/05/171341vdf4juyvs0uy48xc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.01 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-5 17:13 上传
+
+*****
+
+####  a85982313  
+##### 11253#       发表于 2025-5-5 17:12
+
+这个吧，new uc+bmg，下面正文里面是gmb（g）
+
+<img src="https://img.stage1st.com/forum/202505/05/171152xhlkv0atzhlbht0a.jpg" referrerpolicy="no-referrer">
+
+<strong>263c5aafa40f4bfb84b4217b454f78f0f7361873.jpg</strong> (541.51 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-5 17:11 上传
+
+
+*****
+
+####  Gysumitka  
+##### 11254#       发表于 2025-5-5 17:17
+
+new uc 不是 another uc
+那续篇的可能性很大了？
+
