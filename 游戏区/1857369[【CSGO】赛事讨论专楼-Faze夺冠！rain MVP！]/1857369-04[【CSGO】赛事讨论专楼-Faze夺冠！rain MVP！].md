@@ -91,3 +91,14 @@ Niko的软脚感觉是治不好了<img src="https://static.stage1st.com/image/sm
 
 这两个决赛但凡打好一点都拿下了
 
+
+*****
+
+####  Rainwedell  
+##### 4712#       发表于 2025-5-6 06:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67783623&amp;ptid=1857369" target="_blank">11116等 发表于 2025-5-5 22:56</a>
+
+那你今早一定串的更开心了</blockquote>
+串也要基本法的，决赛混5张图真的懒得串，尼尼职业生涯的软脚全是关键局来最大的<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
