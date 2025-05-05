@@ -10512,3 +10512,30 @@ new uc 不是 another uc
 
 通贩位置不多了吧，还能有全新规原创机吗
 
+
+*****
+
+####  ryanghj  
+##### 11262#       发表于 2025-5-5 17:53
+
+ 本帖最后由 ryanghj 于 2025-5-5 17:54 编辑 
+
+场刊里黑泽觉得gqux看点在于欲望与混沌，生于欲望的混沌
+
+<img src="https://img.stage1st.com/forum/202505/05/175230a8ozt6q3csvbw06c.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (102.11 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-5 17:52 上传
+
+三个声优显然配音的时候都只知道自己相关的剧情，我感觉玛秋后半部分会变得越来越极端<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sliurus  
+##### 11263#       发表于 2025-5-5 17:53
+
+想看GQ卡碧尼
+

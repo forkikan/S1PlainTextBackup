@@ -5075,3 +5075,13 @@ Lolienne哦在乘车看直播前开播前干嘛？
 大主播那边的粉丝可是天天在嘴你麻的大师</blockquote>
 哪个大主播啊？kasen？shaka？
 
+
+*****
+
+####  术士q  
+##### 18418#       发表于 2025-5-5 17:46
+
+ 本帖最后由 术士q 于 2025-5-5 17:48 编辑 
+
+还有这事?原来主播直播时压力自己的话还有这样的源头的啊，哪个大主播的粉丝<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
