@@ -10200,3 +10200,31 @@ https://gamerwk.com/wawancara-eksklusif-gundam-gquuuuuux-dengan-kazuya-tsurumaki
 吉姆是敢达量产型的缩写啊
 MS-14凭啥叫敢达
 
+
+*****
+
+####  千恋万花  
+##### 11237#       发表于 2025-5-5 12:28
+
+ 本帖最后由 千恋万花 于 2025-5-5 12:30 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67781987&amp;ptid=2209276" target="_blank">AvenueIII 发表于 2025-5-5 11:55</a>
+
+那么特地让哈罗说一句“我听不到呦”是什么意思，骡子说大失败</blockquote>
+依稀记得哈罗这集就两句台词，「看不出来（看不见）」和「听不见」<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202505/05/122957oyy8bai278lbkbbw.jpg" referrerpolicy="no-referrer">
+
+<strong>mpv-shot0003.jpg</strong> (131.19 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-5 12:29 上传
+
+<img src="https://img.stage1st.com/forum/202505/05/122959rcxmz3kkmmsrmrfi.jpg" referrerpolicy="no-referrer">
+
+<strong>mpv-shot0001.jpg</strong> (254.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-5 12:29 上传
+
