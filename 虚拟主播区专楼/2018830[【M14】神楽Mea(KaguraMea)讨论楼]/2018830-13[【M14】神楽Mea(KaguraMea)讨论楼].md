@@ -5065,3 +5065,13 @@ Lolienne哦在乘车看直播前开播前干嘛？
 
 昨天主播复述高飞以前说过的话的时候说漏嘴了，来了一句高飞总是说麻酱不喜欢看地图，然后高飞马上补了一句那是别的人吧！
 
+
+*****
+
+####  TiHaru  
+##### 18417#       发表于 2025-5-5 13:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67782000&amp;ptid=2018830" target="_blank">化鳥虫二 发表于 2025-5-5 11:59</a>
+大主播那边的粉丝可是天天在嘴你麻的大师</blockquote>
+哪个大主播啊？kasen？shaka？
+
