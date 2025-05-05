@@ -10174,3 +10174,11 @@ https://gamerwk.com/wawancara-eksklusif-gundam-gquuuuuux-dengan-kazuya-tsurumaki
 
 但gqx拉拉声明显有人听得到有人听不到
 
+
+*****
+
+####  秋月孝三  
+##### 11234#       发表于 2025-5-5 11:44
+
+不要带<img src="https://static.stage1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">的节奏
+
