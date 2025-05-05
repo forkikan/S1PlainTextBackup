@@ -10123,3 +10123,46 @@ https://gamerwk.com/wawancara-eksklusif-gundam-gquuuuuux-dengan-kazuya-tsurumaki
 尼娅安pv这句不是明示nt吗</blockquote>
 草，英文翻译怎么更加神棍了（）
 
+
+*****
+
+####  灵魂收割机  
+##### 11229#       发表于 2025-5-5 11:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67781807&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-5 10:44</a>
+
+https://gamerwk.com/wawancara-eksklusif-gundam-gquuuuuux-dengan-kazuya-tsurumaki-revolusi-cerita-d ...</blockquote>
+同一个采访的几个不同版本（这几个网站是一家的）：
+[https://www.wanuxi.com/%e3%80%90 ... %e8%ae%bf%ef%bc%9a/](https://www.wanuxi.com/%e3%80%90%e7%8b%ac%e5%ae%b6%e3%80%91%e3%80%8a%e6%9c%ba%e5%8a%a8%e6%88%98%e5%a3%ab%e9%ab%98%e8%be%begquuuuuux%e3%80%8b%e5%af%bc%e6%bc%94%e9%b9%a4%e5%8d%b7%e5%92%8c%e5%93%89%e4%b8%93%e8%ae%bf%ef%bc%9a/)（中）
+[https://gamerwk.com/wawancara-ek ... in-mecha-yang-apik/](https://gamerwk.com/wawancara-eksklusif-gundam-gquuuuuux-dengan-kazuya-tsurumaki-revolusi-cerita-dan-desain-mecha-yang-apik/)（印尼）
+[https://www.gamerbraves.com/excl ... r-kazuya-tsurumaki/](https://www.gamerbraves.com/exclusive-taking-gundam-in-bold-new-directions-interview-with-gquuuuuux-director-kazuya-tsurumaki/)（英）
+[https://gamersantai.com/eksklusi ... t-gundam-gquuuuuux/](https://gamersantai.com/eksklusif-bersama-kazuya-tsurumaki-mengarah-era-baharu-mobile-suit-gundam-gquuuuuux/)（马来）
+
+其中只有印尼文版本说三人都是NT。
+
+*****
+
+####  型月神话伊阿宋  
+##### 11230#       发表于 2025-5-5 11:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67781807&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-5 10:44</a>
+
+https://gamerwk.com/wawancara-eksklusif-gundam-gquuuuuux-dengan-kazuya-tsurumaki-revolusi-cerita-d ...</blockquote>
+坏了，不会下集喵安的表现真比小番茄好吧？
+
+*****
+
+####  galgamesh11  
+##### 11231#       发表于 2025-5-5 11:22
+
+说到底是不是怎么可能从剧场版采访里说出来，明天就知道了（）
+
+*****
+
+####  YU_JI  
+##### 11232#       发表于 2025-5-5 11:23
+
+<blockquote>希望之异热同心 发表于 2025-5-5 11:00
+但是卡其脱离太6个人有喵安，其余5个都是NT了就她不是也太怪了233</blockquote>
+小森也没定吧，只是疑似，小森自己也还在质疑NT的存在，第四集那个拉拉音79里NT、OT都能听见吧
+
