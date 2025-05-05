@@ -10007,3 +10007,14 @@ https: ...</blockquote>
 
 不过要是属实那废案前半段的“体验过kirakira”就彻底得吃书了，总不能牢修的nt空间ot都能拉进来
 
+
+*****
+
+####  南朝Sonicbbs  
+##### 11219#       发表于 2025-5-5 08:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67748784&amp;ptid=2209276" target="_blank">gogoneogg 发表于 2025-4-23 14:14</a>
+
+影院里后半部分真是把我看麻了。。。不知道从什么时候日本动画里的主题曲都是这种咿咿呀呀的二次元风格了。 ...</blockquote>
+大众喜欢，你算老几？
+
