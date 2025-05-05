@@ -66,3 +66,13 @@ cr玩脱了？
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">但是个人线就这么点东西?
 
+
+*****
+
+####  tiro_finale  
+##### 106#       发表于 2025-5-6 01:09
+
+动画的鸥太可爱了，感觉这一条就值了
+
+原作剧情忘差不多了，但还记得鸥线是印象最好的那条
+
