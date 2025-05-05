@@ -10018,3 +10018,35 @@ https: ...</blockquote>
 影院里后半部分真是把我看麻了。。。不知道从什么时候日本动画里的主题曲都是这种咿咿呀呀的二次元风格了。 ...</blockquote>
 大众喜欢，你算老几？
 
+
+*****
+
+####  南朝Sonicbbs  
+##### 11220#       发表于 2025-5-5 08:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67752932&amp;ptid=2209276" target="_blank">千千千千鸟 发表于 2025-4-24 19:24</a>
+
+目前3首有词的歌都好烂好烂，反而是BGM很动听，殖民卫星的她以及修司开门那段氛围太棒了，军团站初战上机那 ...</blockquote>
+很好听啊！
+
+*****
+
+####  转子引擎  
+##### 11221#       发表于 2025-5-5 08:44
+
+<blockquote>岸浪白野 发表于 2025-5-3 22:42
+吉姆？这名字一股联邦的臭味。从今天起你就叫格鲁古古了，听好了——是格鲁古古！
+
+说回来，那个原本打算量 ...</blockquote>
+当然也有怨念，然后留下试做型的"勇士"投奔联邦，此型MS得名"GM"对吧23333333
+
+*****
+
+####  南朝Sonicbbs  
+##### 11222#       发表于 2025-5-5 08:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67756070&amp;ptid=2209276" target="_blank">碳. 发表于 2025-4-25 22:43</a>
+
+这老人臭都溢出来了谁还看不出是遗老片啊，外在上够明显了，光是这完全脱离时代的BGM作曲和使用方式，第 ...</blockquote>
+你对老人有什么不满吗？
+
