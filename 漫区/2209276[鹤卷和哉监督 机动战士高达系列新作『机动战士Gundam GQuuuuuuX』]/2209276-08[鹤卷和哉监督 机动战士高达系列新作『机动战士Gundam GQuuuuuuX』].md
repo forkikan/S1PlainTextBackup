@@ -10599,3 +10599,33 @@ new uc 不是 another uc
 然后主 ...</blockquote>
 按旧设那个驾驶服，还不好说谁更极端（）
 
+
+*****
+
+####  Gysumitka  
+##### 11270#       发表于 2025-5-5 18:57
+
+万一这条线就得极端点才能达成he，短信和哈罗一直在推波助澜 <img src="https://static.stage1st.com/image/smiley/bundam2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LOLITA  
+##### 11271#       发表于 2025-5-5 18:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67782726&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-5-5 17:53</a>
+
+想看GQ卡碧尼</blockquote>
+估计也是个高达脸<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  刺客ares  
+##### 11272#       发表于 2025-5-5 19:02
+
+这两个人是对比角色，那么在和修司相关的事上也会形成对比吧，本集在桥上的镜头被路灯隔开，下集在红高达上被修司隔开……
+
+最后会发展成(玛/喵)+修VS(玛/喵)？
+
+就像当初0079那三个人一样
+
