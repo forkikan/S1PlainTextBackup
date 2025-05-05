@@ -12190,3 +12190,11 @@ S1这答案怎么还是错的。。。
 
 群主说已经调整过了....可以加了
 
+
+*****
+
+####  hayate0079  
+##### 1145#       发表于 2025-5-5 15:52
+
+申请了<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
