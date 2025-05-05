@@ -10265,3 +10265,31 @@ CIC的金发妹子也能听到的样子
 
 反過來說，GQ和初鋼一樣，只有NT能聽到拉拉音
 
+
+*****
+
+####  岸浪白野  
+##### 11241#       发表于 2025-5-5 14:29
+
+ 本帖最后由 岸浪白野 于 2025-5-5 14:31 编辑 
+
+[全国のセブン‐イレブンで「ガンダムシリーズ キャンペーン」が5月8日より順次開催決定！対象商品の購入でオリジナルグッズをプレゼント！ | GUNDAM.INFO](https://www.gundam.info/news/hot-topics/01_17320.html)
+
+711高达联动GQ相关商品
+
+<img src="https://img.stage1st.com/forum/202505/05/142841u673notf0bfz3fz5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-5 14:28 上传
+
+<img src="https://img.stage1st.com/forum/202505/05/142854brb7or61vh60z1na.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.79 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-5 14:28 上传
+
