@@ -24,3 +24,25 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Roedeer  
+##### 4705#       发表于 2025-5-5 21:47
+
+ 本帖最后由 Roedeer 于 2025-5-5 21:52 编辑 
+
+雨神也无了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+skullz只代打达拉斯，奥斯汀major还是rain<img src="https://static.stage1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  heseran  
+##### 4706#       发表于 2025-5-5 21:49
+
+ 本帖最后由 heseran 于 2025-5-5 21:50 编辑 
+
+原来是个人原因
+
