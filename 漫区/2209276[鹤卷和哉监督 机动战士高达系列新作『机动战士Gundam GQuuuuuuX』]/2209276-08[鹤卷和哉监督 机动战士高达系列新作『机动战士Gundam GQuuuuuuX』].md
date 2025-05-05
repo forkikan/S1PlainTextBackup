@@ -10332,3 +10332,31 @@ CIC的金发妹子也能听到的样子
 </blockquote>
 是时候精神力发波了
 
+
+*****
+
+####  xwz  
+##### 11245#       发表于 2025-5-5 15:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67782447&amp;ptid=2209276" target="_blank">eilot 发表于 2025-5-5 15:33</a>
+突然想起
+
+第一集紅色高達沒了兩個bit
+
+今集又沒了流星鎚</blockquote>
+“流派•东方不败！”<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  转子引擎  
+##### 11246#       发表于 2025-5-5 15:42
+
+<blockquote>王留美 发表于 2025-5-5 11:56
+吉姆是敢达量产型的缩写啊
+
+MS-14凭啥叫敢达</blockquote>
+GM也只是一个简称，扩展下意思，硬掰出来个其他意思（比如General Model)的全称也不是不行。况且在GQX的世界线上，原本意思的GM有没有开发计划都难说。
+
