@@ -40,3 +40,13 @@ cr玩脱了？
 
 好久没看过gal改了，虽然还不知道要说什么故事但是看起来意外的舒服，人设改的比在网上搜的游戏截图更合我胃口<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  椎名mahuyo  
+##### 103#       发表于 2025-5-5 23:42
+
+这集居然刹住车没发刀子，下一集内容多时间紧了<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3708, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

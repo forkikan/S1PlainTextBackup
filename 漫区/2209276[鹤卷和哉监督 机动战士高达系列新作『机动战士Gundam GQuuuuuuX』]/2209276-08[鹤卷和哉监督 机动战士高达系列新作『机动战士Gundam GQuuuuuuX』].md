@@ -10962,3 +10962,14 @@ KIRAKIRA中毒的玛秋
 
 莫名有种站在直太位上的玛秋会很恐怖的预感
 
+
+*****
+
+####  g救世主高达  
+##### 11301#       发表于 2025-5-5 23:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67783157&amp;ptid=2209276" target="_blank">az一串字母 发表于 2025-5-5 20:14</a>
+
+gq时间线里，毕斯特财团宅子是不是还在side6啊，很想看这个时间线里独角兽有多么神棍 ...</blockquote>
+这个世界线连陆战高达和陆战吉姆都不存在，说不准制作组只看了0079-v高达的设定，独角兽压根不考虑
+
