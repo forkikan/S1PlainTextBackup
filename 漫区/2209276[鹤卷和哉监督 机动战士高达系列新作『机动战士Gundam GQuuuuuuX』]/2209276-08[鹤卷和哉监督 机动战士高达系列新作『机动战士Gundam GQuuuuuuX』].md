@@ -10556,3 +10556,11 @@ new uc 不是 another uc
 
 欲望，混沌，看起来不是什么王道的故事？<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">，留白，这点篇幅坑会很多的吧
 
+
+*****
+
+####  ヒトニナル  
+##### 11266#       发表于 2025-5-5 18:19
+
+按照现在的假药来说，修司会消失＝会回到自己的时间线的可能性最大<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
