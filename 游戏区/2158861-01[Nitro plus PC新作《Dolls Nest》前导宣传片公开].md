@@ -2224,3 +2224,16 @@ baldr系列那种本来就是act的除外
 好奇这人是怎么截屏正面的</blockquote>
 好像是mod
 
+
+*****
+
+####  oidoid  
+##### 204#       发表于 2025-5-5 16:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67781063&amp;ptid=2158861" target="_blank">madcow 发表于 2025-5-4 22:36</a>
+
+好奇STEAM社区里有些图是怎么截出来的，能关UI我知道，但是没有摄影模式吧（</blockquote>
+虽然姿势是MOD但悠悠这个集装箱有一点很有趣。
+
+铠灵毕竟只是模拟人形的机械生物，居然也会有少女的喜好可爱天性么？
+

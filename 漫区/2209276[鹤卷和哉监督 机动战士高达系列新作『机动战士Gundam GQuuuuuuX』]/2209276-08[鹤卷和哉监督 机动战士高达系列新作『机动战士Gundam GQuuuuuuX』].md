@@ -10392,3 +10392,11 @@ GM也只是一个简称，扩展下意思，硬掰出来个其他意思（比如
 
 就是不知道修司最后走的是“解除宿命回归平凡”，还是“如同流星突然出现又突然消失（死亡），只剩回忆”这两条路中的哪一个
 
+
+*****
+
+####  ryanghj  
+##### 11250#       发表于 2025-5-5 16:54
+
+日経トレンディ的特集吧，正文写的是girl meets boy (girl)<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
