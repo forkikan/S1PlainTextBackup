@@ -12236,3 +12236,18 @@ seed2台
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  captoon  
+##### 1148#       发表于 2025-5-5 17:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67782495&amp;ptid=2071758" target="_blank">ChrisSnake 发表于 2025-5-5 15:59</a>
+
+目前所有可开发的5射程机体 一共9台
+
+高达1台
+
+z高达2台</blockquote>
+即将要出的骰子高达也是5射程的
+
