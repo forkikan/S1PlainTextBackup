@@ -2190,3 +2190,27 @@ baldr系列那种本来就是act的除外
 20小时打完一周目，长度略短了一些，有些意犹未尽，要是后面三张图都有净水层的体量，或者boss战的亮点多一 ...</blockquote>
 净水层我觉得应该放xb2里阿卡狄亚或者洛修利亚的bgm<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  madcow  
+##### 202#       发表于 2025-5-5 10:53
+
+<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">好奇这人是怎么截屏正面的
+
+<img src="https://img.stage1st.com/forum/202505/05/105309b6glf256ol2112gm.jpg" referrerpolicy="no-referrer">
+
+<strong>GqGWB1xawAA5nAR.jpg</strong> (217.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-5 10:53 上传
+
+<img src="https://img.stage1st.com/forum/202505/05/105311qinfii6ufsfn5m3z.jpg" referrerpolicy="no-referrer">
+
+<strong>GqGWLU3aMAA4raY.jpg</strong> (256.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-5 10:53 上传
+

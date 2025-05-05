@@ -10058,3 +10058,28 @@ https: ...</blockquote>
 
 喵安怎么看都还是更像OT吧，想不出设置一个全NT主角三人组情节上有什么好处，而且这第五集标题越是强调“想看聊天室”，感觉离聊天室就越远了（）
 
+
+*****
+
+####  ryanghj  
+##### 11224#       发表于 2025-5-5 10:44
+
+ 本帖最后由 ryanghj 于 2025-5-5 10:47 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67781347&amp;ptid=2209276" target="_blank">AvenueIII 发表于 2025-5-5 00:51</a>
+有一篇马来西亚媒体的采访（针对剧场版的）似乎没见人搬过
+
+【独家】《高达GQuuuuuuX》导演鹤卷和哉专访： ...</blockquote>
+https://gamerwk.com/wawancara-eksklusif-gundam-gquuuuuux-dengan-kazuya-tsurumaki-revolusi-cerita-dan-desain-mecha-yang-apik/
+
+马来语报道里说的是三人都是nt<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+Meski saat ini GQuuuuuuX masih terasa seperti preview atau film kompilasi, Tsurumaki menjanjikan bahwa karakter-karakter utamanya akan mendapatkan perkembangan yang menarik di seri lengkapnya nanti. Machu, Nyaan, dan Shuji disebutkan sebagai Newtypes yang potensial, dan penonton bisa menantikan bagaimana kisah mereka akan terungkap.
+
+ds翻译
+
+尽管目前《GQuuuuuuX》仍给人以预告片或剪辑合集的观感，但鹤卷和哉（Tsurumaki）承诺在完整剧集中将为主要角色设计引人入胜的成长线。玛丘（Machu）、喵恩（Nyaan）和修治（Shuji）被定位为具有潜力的新人类（Newtypes），观众可期待他们故事的精彩展开。
+
+反正下集就能看到了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
