@@ -725,3 +725,41 @@
 懒得做了 反正就少一个任务</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">跟青子没关系吧 就提供个出星和缓冲 感觉能换成鹤小姐 2宝高个蛋 不如狗萌新四个月七个五星欧
 
+
+*****
+
+####  alucardcz  
+##### 16611#       发表于 2025-5-4 11:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67779250&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-5-4 10:05</a>
+
+跟青子没关系吧 就提供个出星和缓冲 感觉能换成鹤小姐 2宝高个蛋 不如狗萌新四个月七个五星欧 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">你怎么还有鹤小姐 欧 羡慕
+
+*****
+
+####  qixinno2  
+##### 16612#       发表于 2025-5-4 11:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67779357&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-5-4 11:03</a>
+
+你怎么还有鹤小姐 欧 羡慕</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">你不是也有 装个毛
+
+*****
+
+####  光影mk2  
+##### 16613#       发表于 2025-5-5 13:12
+
+终于看完了，不容易啊。我现在就好奇，人理也到a了，都准备去南极了，那降临者没有奏章了？感觉不太可能吧，我猜12月开降临者奏章，然后年底无缝开终章
+
+*****
+
+####  大十字紅朔  
+##### 16614#       发表于 2025-5-5 13:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67782152&amp;ptid=2084912" target="_blank">光影mk2 发表于 2025-5-5 13:12</a>
+
+终于看完了，不容易啊。我现在就好奇，人理也到a了，都准备去南极了，那降临者没有奏章了？感觉不太可能吧 ...</blockquote>
+可能泳装开
+
