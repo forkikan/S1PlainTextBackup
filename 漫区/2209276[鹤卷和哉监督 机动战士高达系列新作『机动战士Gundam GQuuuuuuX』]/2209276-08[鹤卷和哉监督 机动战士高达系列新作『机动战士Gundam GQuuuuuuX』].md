@@ -10683,3 +10683,33 @@ new uc 不是 another uc
 
 相反，喵安旧设全废，玛秋按这集最后状态一路狂奔那就是玛秋输出颠婆台词<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王留美  
+##### 11277#       发表于 2025-5-5 19:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67782700&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-5-5 17:44</a>
+ 目前出场的也就一台gqx算完全新机 其余都是老uc的现代化改造 通贩位置不多了吧，还能有全新规原创机吗 ...</blockquote>
+cde应该都是类似勇士GQ这种说法吧？
+
+C大概率是大魔GQ
+
+*****
+
+####  YU_JI  
+##### 11278#       发表于 2025-5-5 19:36
+
+<blockquote>renkan119 发表于 2025-5-5 18:46
+通贩就剩3个位置了 大概一个是夸克斯后继机 一个是最终boss机 还有一个是下集的大魔？ ...</blockquote>
+
+我奶一口boss机就是神棍模式的红高，我是觉得GQ和红高肯定还有一架打，常规红高达太古董就来个神棍模式（）
+
+
+*****
+
+####  天邪鬼  
+##### 11279#       发表于 2025-5-5 19:42
+
+难道不是两人都开始发癫，感情最激烈的碰撞然后引发泽克诺娃现象把吉连和老太婆的要塞一起爆了吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

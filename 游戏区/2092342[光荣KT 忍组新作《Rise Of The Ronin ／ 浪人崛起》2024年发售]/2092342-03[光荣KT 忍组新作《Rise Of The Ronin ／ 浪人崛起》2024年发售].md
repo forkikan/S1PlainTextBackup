@@ -198,3 +198,14 @@ PC硬件配置千差万别，调试成本会很高吧？
 
 羊蹄山今年都出来了，光荣这几年都干啥去了，原地踏步啊这是
 
+
+*****
+
+####  黑修士  
+##### 3746#       发表于 2025-5-5 19:45
+
+看4月底的财报，下一波应该就那几个新作了，完全没有首发的兴趣
+
+还是听信长唱歌吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+[https://www.bilibili.com/video/BV1znL2zJEK5](https://www.bilibili.com/video/BV1znL2zJEK5)
+
