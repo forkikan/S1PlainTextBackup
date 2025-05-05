@@ -10360,3 +10360,13 @@ CIC的金发妹子也能听到的样子
 MS-14凭啥叫敢达</blockquote>
 GM也只是一个简称，扩展下意思，硬掰出来个其他意思（比如General Model)的全称也不是不行。况且在GQX的世界线上，原本意思的GM有没有开发计划都难说。
 
+
+*****
+
+####  gamedreamer  
+##### 11247#       发表于 2025-5-5 16:10
+
+话说回来，那个说修斯和麻球是bmg的图，咱们这里没人转吗<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
