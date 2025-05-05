@@ -10228,3 +10228,15 @@ MS-14凭啥叫敢达
 
 2025-5-5 12:29 上传
 
+
+*****
+
+####  ryanghj  
+##### 11238#       发表于 2025-5-5 12:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67781928&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-5 11:23</a>
+小森也没定吧，只是疑似，小森自己也还在质疑NT的存在，第四集那个拉拉音79里NT、OT都能听见吧 ...</blockquote>
+舰桥那里很明显只有左边的人能听到
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
