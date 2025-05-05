@@ -10813,3 +10813,58 @@ gq时间线里，毕斯特财团宅子是不是还在side6啊，很想看这个�
 
 拉拉会在倒数第二集
 
+
+*****
+
+####  ryanghj  
+##### 11289#       发表于 2025-5-5 22:45
+
+KIRAKIRA中毒的玛秋
+
+<img src="https://img.stage1st.com/forum/202505/05/224545mbq6vro6ipkobvbb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.55 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-5 22:45 上传
+
+*****
+
+####  岸浪白野  
+##### 11290#       发表于 2025-5-5 22:46
+
+母..爱？
+[X 上的 麦：“子どもの日ということで……大きく育てよ🌱](https://x.com/Lamp_mugi/status/1919343418238550443)[https://t.co/yfuEVDNSmc](https://t.co/yfuEVDNSmc)” / X
+
+<img src="https://img.stage1st.com/forum/202505/05/224558qmanbuxxa3nn13f3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.91 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-5 22:45 上传
+
+*****
+
+####  ryanghj  
+##### 11291#       发表于 2025-5-5 22:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67783488&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-5-5 21:57</a>
+
+骡子如果出来的话会在最后一集吧
+
+拉拉会在倒数第二集</blockquote>
+看起来在刻意回避正史主角团的角色，出场的反而都是边缘角色
+
+比如前夫哥都出来了，米莱还不出来
+
+*****
+
+####  hahah  
+##### 11292#       发表于 2025-5-5 22:47
+
+<blockquote>巨馍蘸酱 发表于 2025-5-5 21:04
+修司不就是FLCL的春原晴子吗</blockquote>
+尼亚安是班长还是真见美?
+
