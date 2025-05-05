@@ -65,3 +65,11 @@ skullz只代打达拉斯，奥斯汀major还是rain<img src="https://static.stag
 9-3 的时候我都开始嘴硬准备等到 major 开串了，没想到尼尼和孩孩真来个大的，后面快到加时狂送看得我都串 ...</blockquote>
 那你今早一定串的更开心了<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  朔方原的星  
+##### 4709#         楼主| 发表于 2025-5-6 00:05
+
+Niko的软脚感觉是治不好了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
