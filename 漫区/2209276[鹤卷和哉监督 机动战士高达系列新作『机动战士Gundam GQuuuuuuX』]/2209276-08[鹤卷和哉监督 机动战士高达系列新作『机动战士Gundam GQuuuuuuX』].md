@@ -11484,3 +11484,27 @@ X 上的 竹：“💐 #GQuuuuuuX #ジークアクスhttps://t.co/VVed9acCRd” 
 大SNS时代也有可取之处嘛，起码有竹小姐时不时的新图看<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 梦回戏言系列了
 
+
+*****
+
+####  ryanghj  
+##### 11347#       发表于 2025-5-6 22:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67786810&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-6 20:29</a>
+
+【高达GQuuuuuuX 新插曲2 短板试听 5月7日解禁！】 https://www.bilibili.com/video/BV174Vmz7EAc/
+
+ ...</blockquote>
+lofi风格啊
+
+*****
+
+####  竹様  
+##### 11348#       发表于 2025-5-6 22:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67787002&amp;ptid=2209276" target="_blank">白色池塘 发表于 2025-5-6 21:21</a>
+
+大SNS时代也有可取之处嘛，起码有竹小姐时不时的新图看
+梦回戏言系列了 ...</blockquote>
+其实竹在上推之前也一直在星海社的竹画廊更新发新图来着。
+
