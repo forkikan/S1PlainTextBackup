@@ -22,3 +22,13 @@
 
 教堂好走吧，主要是几个出生怪都是教团的<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  小田切宁宁  
+##### 246#       发表于 2025-5-6 18:06
+
+采访文章写的不错 制作人的观点很好 不是一定要做3A 目标是轨迹 传说这种系列作品 
+
+挺好的 
+

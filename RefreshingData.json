@@ -2390,7 +2390,7 @@
     "newtitle": "[タカヒロ×竹村洋平《魔都精兵的奴隶》漫画专楼]",
     "lastedit": 1746267140,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2098519": {
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 14201,
+    "totalreply": 14202,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》4.29 赞不绝口]",
-    "lastedit": 1746517577,
+    "lastedit": 1746526333,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 161041,
+    "totalreply": 161044,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1746525969,
+    "lastedit": 1746526332,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 125011,
+    "totalreply": 125021,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1746526087,
+    "lastedit": 1746526572,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11187,10 +11187,10 @@
     "update": false
   },
   "2168791": {
-    "totalreply": 245,
+    "totalreply": 246,
     "title": "[国产废土科幻动作RPG《无限机兵》PV发布，Steam页面上线]",
     "newtitle": "[国产废土科幻动作RPG《无限机兵》 3月27日发售]",
-    "lastedit": 1746525729,
+    "lastedit": 1746526333,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11547,10 +11547,10 @@
     "update": false
   },
   "2179189": {
-    "totalreply": 192,
+    "totalreply": 194,
     "title": "[华策引进 攻壳机动队95版 艺联专线上映]",
-    "newtitle": "[攻壳机动队95版 5.10上映（确定了！）]",
-    "lastedit": 1746517817,
+    "newtitle": "[攻壳机动队95版 5.10艺联专线上映 5.17全国上映（确定了！）]",
+    "lastedit": 1746526576,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11844,10 +11844,10 @@
     "update": false
   },
   "2251065": {
-    "totalreply": 66,
+    "totalreply": 67,
     "title": "[后宫文／修罗场文讨论楼避难所]",
     "newtitle": "[后宫文／修罗场文讨论楼避难所]",
-    "lastedit": 1746513376,
+    "lastedit": 1746526213,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12429,10 +12429,10 @@
     "update": false
   },
   "2251429": {
-    "totalreply": 290,
+    "totalreply": 292,
     "title": "[【剧透警告】光与影：33号远征队结局／剧情讨论楼 本楼无反白]",
     "newtitle": "[【剧透警告】光与影：33号远征队结局／剧情讨论楼 本楼无反白 …]",
-    "lastedit": 1746524169,
+    "lastedit": 1746526333,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12753,10 +12753,10 @@
     "update": false
   },
   "2251541": {
-    "totalreply": 56,
+    "totalreply": 57,
     "title": "[在NS2即将发售前，来回忆一下NS发售时的名梗]",
     "newtitle": "[在NS2即将发售前，来回忆一下NS发售时的名梗]",
-    "lastedit": 1746517817,
+    "lastedit": 1746526576,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12987,10 +12987,10 @@
     "update": false
   },
   "2251597": {
-    "totalreply": 64,
+    "totalreply": 65,
     "title": "[s1众喜欢的平成令和假面骑士作品]",
     "newtitle": "[s1众喜欢的平成令和假面骑士作品]",
-    "lastedit": 1746520214,
+    "lastedit": 1746526213,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13082,6 +13082,15 @@
     "newtitle": "[【怀旧懒人包】GBA汉化中文游戏全集（500多款已经全分类）]",
     "lastedit": 1746524778,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2236127": {
+    "totalreply": 77,
+    "title": "[【露米专楼】完美世界古堡小镇三号楼]",
+    "newtitle": "[【露米专楼】完美世界古堡小镇三号楼]",
+    "lastedit": 1746526577,
+    "category": "虚拟主播区专楼",
     "active": true,
     "update": false
   }
