@@ -12389,3 +12389,17 @@ z高达2台</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  一个陆仁贾  
+##### 1161#       发表于 2025-5-6 10:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67784615&amp;ptid=2071758" target="_blank">blue321 发表于 2025-5-6 10:25</a>
+现在170抽但是没钻了，一星期感觉凑不到30抽
+
+—— 来自 鹅球 v3.4.98</blockquote>
+商店里的ur机体礼包正好能补上呢<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
