@@ -2264,3 +2264,15 @@ baldr系列那种本来就是act的除外
 好大</blockquote>
 这只是用MOD把玩家模型放大了搞出来的截图吧，毕竟不是四手
 
+
+*****
+
+####  蓝雉  
+##### 207#       发表于 2025-5-6 19:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67782601&amp;ptid=2158861" target="_blank">oidoid 发表于 2025-5-5 16:54</a>
+虽然姿势是MOD但悠悠这个集装箱有一点很有趣。
+
+铠灵毕竟只是模拟人形的机械生物，居然也会有少女的喜好可 ...</blockquote>
+坦克姐还会给幼灵做小饰品
+
