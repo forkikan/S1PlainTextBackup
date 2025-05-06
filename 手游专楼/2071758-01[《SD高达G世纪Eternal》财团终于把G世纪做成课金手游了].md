@@ -12360,3 +12360,22 @@ z高达2台</blockquote>
 
 看了几个EX1视频美曰其名少UR机其实都是自带UR机师<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kenqqex  
+##### 1158#       发表于 2025-5-6 09:18
+
+按照nga和一些攻略组的测试方法 35%和30% 在高防环境差距并不是很多...
+
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 1159#       发表于 2025-5-6 09:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67784321&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-5-6 09:10</a>
+
+出了拉克丝，但是没有SF，并且攒不满一井，感觉亏炸了</blockquote>
+还有一个星期呢
+
