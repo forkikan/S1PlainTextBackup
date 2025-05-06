@@ -11013,3 +11013,23 @@ gq时间线里，毕斯特财团宅子是不是还在side6啊，很想看这个�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">我觉得不如把独角兽当成gq一串世界线的0096，这样意外的更合理了
 
+
+*****
+
+####  wpcc  
+##### 11306#       发表于 2025-5-6 11:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67784242&amp;ptid=2209276" target="_blank">Yugao 发表于 2025-5-6 08:38</a>
+
+我觉得不如把独角兽当成gq一串世界线的0096，这样意外的更合理了</blockquote>
+金鸟确实符合gqu世界水平
+
+*****
+
+####  ryanghj  
+##### 11307#       发表于 2025-5-6 11:16
+
+gqux世界里nt研究进展快的吉翁获得了能够承载nt能力的硬件（高达），所以精神力高达进展快得多
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
