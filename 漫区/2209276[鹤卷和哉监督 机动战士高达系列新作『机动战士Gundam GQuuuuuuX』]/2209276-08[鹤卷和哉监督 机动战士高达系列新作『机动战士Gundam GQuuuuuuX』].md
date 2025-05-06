@@ -13870,3 +13870,104 @@ EVA终的时候就想吐槽了，这卡拉的3D就是不行吧，塑料感特别
 
 另外被电的时候我是真以为会像伊莱克特一样爆衣的，不过想了想福利在前面已经给过了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zzf111  
+##### 11601#       发表于 2025-5-7 01:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67788012&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-5-7 01:22</a>
+
+基西莉亚不会是亲临side6试图调解，然后被基连的人直接暗杀了吧。总不能和w一样主角怒劈飞机了吧
+
+—— 来 ...</blockquote>
+上集17号殖民地事件这集吉翁收废铁，下集预告刺杀基西莉亚，大的要来了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  暗黑能乐  
+##### 11602#       发表于 2025-5-7 01:37
+
+我有点忘记了，z高被电是其他人解围才挣脱的吗还是咋样来着
+
+—— 来自 HONOR BVL-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  猎人D  
+##### 11603#       发表于 2025-5-7 01:39
+
+紫色老太婆要死也不会是下集就死，别想太多了
+
+*****
+
+####  ryanghj  
+##### 11604#       发表于 2025-5-7 01:39
+
+答案是玩梗<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202505/07/013933ujjypejmyausvgpm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (110.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 01:39 上传
+
+*****
+
+####  璇瑢子R  
+##### 11605#       发表于 2025-5-7 01:39
+
+感觉下一集基西利亚大概会是一个第三方势力干的。然后下半部就都是在打这个第三方势力了。
+
+之前提过几次基连基西利亚内斗是故意引人误解。
+
+感觉这片就不想开大规模战争。
+
+
+*****
+
+####  acg_gyanc  
+##### 11606#       发表于 2025-5-7 01:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67787735&amp;ptid=2209276" target="_blank">arthurmizuki 发表于 2025-5-7 00:16</a>
+为什么这些年高达打戏基本没好过，要么一眼烂，要么看着不偷工减料但完全没sense，真没人才了吗 ...</blockquote>
+g复国剧场版第四部是22年的，应该算是近些年的巅峰了吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lucasxp  
+##### 11607#       发表于 2025-5-7 01:41
+
+这感情戏也挺迷的，这是内衣啊又不是泳衣，说是有好感吧，就这么露内衣放现实其实是没把修司当男人才会这样吧
+
+*****
+
+####  暗黑能乐  
+##### 11608#       发表于 2025-5-7 01:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">基西莉亚死了的话，首席还真就不得不跟了夏利亚了。。本来还是卧底的结果光速失去卧底意义
+
+—— 来自 HONOR BVL-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 11609#       发表于 2025-5-7 01:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67788038&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-7 01:31</a>
+大概能理解黑泽在场刊里提到的 留白了
+
+三人平时的交流都留白了，让你们自己想象，反正现在的结果就是玛秋 ...</blockquote>
+原来是留白。
+
+听见喵安喊“修酱”我就感到迷惑，关系进展的太快了。喵安是自来熟？还是太喜欢他起手就喊小名。
+
+*****
+
+####  sunny_am  
+##### 11610#       发表于 2025-5-7 01:45
+
+うまくなりたい　うまくなりたい　うまくなりたい
+
