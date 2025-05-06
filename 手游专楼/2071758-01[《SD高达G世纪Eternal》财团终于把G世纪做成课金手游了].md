@@ -12345,3 +12345,18 @@ z高达2台</blockquote>
 如果你是这俩里选那我推荐风灵，风灵ex武装射程5，也有减光束的副武装，攻击力还高那么一丢丢；自由ex射 ...</blockquote>
 如果是站桩走位，自由的MAP不被反击也是优势
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 1156#       发表于 2025-5-6 09:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">出了拉克丝，但是没有SF，并且攒不满一井，感觉亏炸了
+
+*****
+
+####  棍机凹升龙  
+##### 1157#       发表于 2025-5-6 09:11
+
+看了几个EX1视频美曰其名少UR机其实都是自带UR机师<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
