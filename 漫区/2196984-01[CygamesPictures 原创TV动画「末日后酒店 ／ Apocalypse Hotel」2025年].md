@@ -1815,3 +1815,15 @@ aiko的大部分歌好像都这样
 
 <img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">op原来就是这么编成的吗？我以为和10多年前那种养成系op一样越来越好最后会有一个正经版。但确实到第二集时已经很顺耳了（
 
+
+*****
+
+####  concert  
+##### 171#       发表于 2025-5-7 01:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67787976&amp;ptid=2196984" target="_blank">NBXX 发表于 2025-5-7 01:13</a>
+这集节奏放缓下来，补充了一下前面对于挖温泉执念的背景。又以老板的酒为线，贯穿一集，旧瓶装新酒将属于银 ...</blockquote>
+能收回伏笔就很符合预期了
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
