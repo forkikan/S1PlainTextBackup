@@ -12475,3 +12475,14 @@ AP补给包优惠代码：TSYMCET
 
 <img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">还能送人的，下一集该送喵安了吧
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 1168#       发表于 2025-5-7 00:52
+
+ 本帖最后由 螺旋的小夜曲 于 2025-5-7 00:53 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">歪出了UR782，感觉没有什么用啊，倒是够肉
+<img src="https://static.stage1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">骡子从79到93杀人如麻，能点驾驶舱就从来不点躯干，怎么给了个盾的定位
+
