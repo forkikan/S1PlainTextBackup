@@ -405,3 +405,16 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 301#         楼主| 发表于 2025-5-6 22:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67786988&amp;ptid=2249235" target="_blank">mobdom 发表于 2025-5-6 21:17</a>
+
+想问一下，在水路把贤者救出来了之后是推荐重新推另外两条线还是去要塞那边比较好？
+
+—— 来自 鹅球 v3.3. ...</blockquote>
+第三章难度不低，小怪也很强，我认为先把水路三线全通了比较好，先不说装备，等级太低了真的可能被路边野怪一刀带走
+
