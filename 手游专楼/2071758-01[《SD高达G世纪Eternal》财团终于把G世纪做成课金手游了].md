@@ -12486,3 +12486,17 @@ AP补给包优惠代码：TSYMCET
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">歪出了UR782，感觉没有什么用啊，倒是够肉
 <img src="https://static.stage1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">骡子从79到93杀人如麻，能点驾驶舱就从来不点躯干，怎么给了个盾的定位
 
+
+*****
+
+####  一个陆仁贾  
+##### 1169#       发表于 2025-5-7 00:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67787884&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-5-7 00:52</a>
+歪出了UR782，感觉没有什么用啊，倒是够肉
+
+骡子从79到93杀人如麻，能点驾驶舱就从来不点躯干，怎么给了个盾 ...</blockquote>
+ex降低攻击力聊胜于无，高闪避率的援护防御体现在永恒之路以外的副本，如果有高达nt那个ur机师，可以给他开元祖
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

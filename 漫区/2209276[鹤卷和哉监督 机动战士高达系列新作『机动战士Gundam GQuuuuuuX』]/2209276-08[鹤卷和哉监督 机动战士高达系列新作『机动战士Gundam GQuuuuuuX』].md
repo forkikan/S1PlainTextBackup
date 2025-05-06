@@ -13231,3 +13231,133 @@ OT亚赞可以和NT卡缪打得有来回。
 
 首席哥其实是老太婆安插在绿叔叔身边的啊
 
+
+*****
+
+####  上坂莲华  
+##### 11537#       发表于 2025-5-7 00:56
+
+这还不好理解么，麻球这会已经开始膨胀了，这集专门两个小插曲展示
+
+一个是给喵安和修斯看自己买了穿梭机那段，整个人飘得不行，然后喵安还在那捧哏说你们很努力很辛苦
+
+一个是军警那段先是自信的【这是我朋友】，结果军警没鸟瞬间气的炸毛，之后军警催了句快点直接暴起
+
+*****
+
+####  Swss  
+##### 11538#       发表于 2025-5-7 00:56
+
+二连星确实也没能想到这么耐揍吧，都电两次了还能打的
+
+*****
+
+####  希望之异热同心  
+##### 11539#       发表于 2025-5-7 00:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67787850&amp;ptid=2209276" target="_blank">梦诗歌雪 发表于 2025-5-7 00:42</a>
+
+大魔砍掉头怎么就爆了有说法吗</blockquote>
+主要是光剑吧。。。热能斧应该不会爆
+
+*****
+
+####  岸浪白野  
+##### 11540#       发表于 2025-5-7 00:58
+
+玛秋虽然并不小看是难民的妮娅安，但这种在自己面前表现胆小不敢和别人搭话又温柔的其实能做到和自己同样的“特别”
+
+*****
+
+####  ArthurDent  
+##### 11541#       发表于 2025-5-7 00:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67787515&amp;ptid=2209276" target="_blank">gammatau 发表于 2025-5-6 23:43</a>
+不是这X暗示太多了
+
+首席哥贴这么近都进不了聊天室，是暗示他不行（</blockquote>
+海苔眉毛<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Gaybird  
+##### 11542#       发表于 2025-5-7 00:59
+
+谁知道电疗之后人还越打越精神了，这确实不能全怪三连星
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  七七見奈波  
+##### 11543#       发表于 2025-5-7 00:59
+
+EVA Q开始打戏就已经不行了<img src="https://static.stage1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">怪剧场版0079趴给了我错误的期待好了
+
+*****
+
+####  marlun  
+##### 11544#       发表于 2025-5-7 01:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67787903&amp;ptid=2209276" target="_blank">Swss 发表于 2025-5-7 00:56</a>
+二连星确实也没能想到这么耐揍吧，都电两次了还能打的</blockquote>
+二连星想的就是一顿电炮+托马斯大回旋，把你折磨晕后美美收人头
+
+—— 来自 vivo V2408A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 11545#       发表于 2025-5-7 01:00
+
+连续三场队友长时间OB的战斗，观感烂完了，制作组不会战斗编排很明确了。
+
+*****
+
+####  marlun  
+##### 11546#       发表于 2025-5-7 01:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67787922&amp;ptid=2209276" target="_blank">Dai-Dai-Dai-Dai 发表于 2025-5-7 01:00</a>
+连续三场队友长时间OB的战斗，观感烂完了，制作组不会战斗编排很明确了。 ...</blockquote>
+剧情编排上就是1抢高达 2背景 345个人战，6的预告就是大事件展开，后续应该就是鹤卷最熟悉的少年少女卷入了大事件的漩涡
+
+—— 来自 vivo V2408A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  七七見奈波  
+##### 11547#       发表于 2025-5-7 01:02
+
+麻球这种状态很简单，就是很多人都有的、年少时不自觉地认为自己是故事的主角，舞台的中心。她主观上没有察觉到自己的这种想法，但表现出来的全是有这种潜意识的人才会有的行为和思考逻辑
+
+*****
+
+####  ArthurDent  
+##### 11548#       发表于 2025-5-7 01:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67787624&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-7 00:00</a>
+虽然不想这么说，但是这集烂片雷达真有点响了，榎户哥哥的新型三人关系性真是三角恋吗 ...</blockquote>
+抢凤晓生罢了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Sliurus  
+##### 11549#       发表于 2025-5-7 01:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67787878&amp;ptid=2209276" target="_blank">白色池塘 发表于 2025-5-7 00:51</a>
+
+绿叔叔这集说“重要的是决心”，喵安和玛修都是怒火中烧的状态下激活赛可谬系统的，那我猜系统启动的条件就 ...</blockquote>
+首席哥太理智了不适合开GQ？这集宁愿通过GQ的出场来否定也不愿意相信自己的印象
+
+*****
+
+####  AkaiSuisei  
+##### 11550#       发表于 2025-5-7 01:06
+
+注意提防喵安(复仇之魂)：移形换位
+
