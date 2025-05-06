@@ -382,3 +382,16 @@
 
 因为妖精要涉及到新种族和基础系统变更，估计会是大版本才会登场
 
+
+*****
+
+####  电脑死机  
+##### 299#       发表于 2025-5-6 19:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67772848&amp;ptid=2249235" target="_blank">Flechette 发表于 2025-5-1 20:20</a>
+
+忍者装备是只有独眼巨人的宝箱会出吗
+
+我现在处于一个打独眼巨人需要忍者，上忍者需要打独眼巨人的状态 ...</blockquote>
+随机给的，不过都是衣服，武器实际掉落率低的不像话
+
