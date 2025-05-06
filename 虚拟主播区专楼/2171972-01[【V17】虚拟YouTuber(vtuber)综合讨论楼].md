@@ -882,3 +882,14 @@ MV版： [https://www.bilibili.com/video/B ... 9723db41c045a2c3b1d](https://www.
 
 vtuber当然不可能流汗，就好像vtuber不会哭那样，这自然是被事前安排好的镜头和特写，我心知肚明。但正如我在魂1偶然踩下电梯回到祭祀场的那一刻所感受到的那样，我永远会为这种精心设计过的“骗局”拍手叫好。（当然像用买修改rom卡带来嗯造人设的就有多远滚多远，看着）
 
+
+*****
+
+####  CielChloe  
+##### 1113#       发表于 2025-5-6 23:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67771410&amp;ptid=2171972" target="_blank">aritaatsu222 发表于 2025-5-1 09:56</a>
+
+说到底爆米看gachi这个思路早就不存在了，跑了几次线下见点yhm就能感觉到，虹男在yhm眼里其实更接近泡泡玛 ...</blockquote>
+正确的，可不止是管人，整个文创大类下的版本答案就是把产品做成一种时尚品，内容怎么样有几个人关心呢？够潮就行了。追流行的现充才是最优质的客户，核心受众人少又挑剔，从商业角度出发，该怎么做还用说吗？
+

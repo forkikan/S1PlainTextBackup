@@ -12435,3 +12435,27 @@ AP补给包优惠代码：TSYMCET
 
 狠下心补了，万代你赢了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 1165#       发表于 2025-5-6 23:39
+
+<img src="https://img.stage1st.com/forum/202505/06/233907kanqhj5j3j8akdan.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (106.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-6 23:39 上传
+
+<img src="https://img.stage1st.com/forum/202505/06/233931mlnburmobf1syuxm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (83.64 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-6 23:39 上传
+
+送角色没送配套机体
+
