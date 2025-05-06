@@ -11254,3 +11254,24 @@ kirakira让玛秋觉得自己无所不能，所谓的欣快感，这效果妥妥
 印象中都是直接聊天室背景飘着一个人直接做出和红高一 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">和魔女打很被动的时候有画面，后面闪现没画面
 
+
+*****
+
+####  woui003woui  
+##### 11325#       发表于 2025-5-6 17:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67786044&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-5-6 16:58</a>
+
+和魔女打很被动的时候有画面吧，后面闪现没画面</blockquote>
+被圣痕限位那段我也只记得他飘在空中左右回头了，操纵机械画面还真想不起来
+
+*****
+
+####  暗黑能乐  
+##### 11326#       发表于 2025-5-6 17:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67786083&amp;ptid=2209276" target="_blank">woui003woui 发表于 2025-5-6 17:08</a>
+
+被圣痕限位那段我也只记得他飘在空中左右回头了，操纵机械画面还真想不起来 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">原来那样也不算吗，主要动作像是握着操纵杆吧
+
