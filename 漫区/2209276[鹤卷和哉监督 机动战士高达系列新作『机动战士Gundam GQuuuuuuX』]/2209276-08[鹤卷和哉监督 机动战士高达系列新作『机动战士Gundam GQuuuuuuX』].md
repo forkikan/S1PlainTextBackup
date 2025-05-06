@@ -14518,3 +14518,12 @@ khara这三渲二问题太明显了，动作僵硬没有大张力的运镜和透
 
 下集应该是纯文戏回了，预告没有ms战，再往后计划有变红高暴露总该和索顿联系了吧
 
+
+*****
+
+####  xwz  
+##### 11659#       发表于 2025-5-7 04:52
+
+🍅
+反应过来了，番茄顶上是绿色的，没毛病<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
