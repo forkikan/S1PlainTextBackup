@@ -11365,3 +11365,20 @@ I_006A的啦啦啦是人唱的，也是人聲版(X)
 
 加了歌词感觉变俗了（
 
+
+*****
+
+####  岸浪白野  
+##### 11338#       发表于 2025-5-6 17:59
+
+GQ集数标题风格生成
+[GQuuuuuuXサブタイトル風画像ジェネレータ2](https://gq-title2.bills-appworks.net/?)
+
+<img src="https://img.stage1st.com/forum/202505/06/175720yzfz514s34m1u0qm.png" referrerpolicy="no-referrer">
+
+<strong>[(M8({L}9Q%)YCI7EVC$P4U.png</strong> (223.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-6 17:57 上传
+
