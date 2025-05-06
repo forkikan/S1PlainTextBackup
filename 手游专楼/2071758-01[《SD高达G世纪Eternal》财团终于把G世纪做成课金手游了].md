@@ -12379,3 +12379,13 @@ z高达2台</blockquote>
 出了拉克丝，但是没有SF，并且攒不满一井，感觉亏炸了</blockquote>
 还有一个星期呢
 
+
+*****
+
+####  blue321  
+##### 1160#       发表于 2025-5-6 10:25
+
+现在170抽但是没钻了，一星期感觉凑不到30抽<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
