@@ -12234,3 +12234,239 @@ nt原来是负责搞笑的
 
 句句不离蝈蝈之《这集为什么让我想起了蝈蝈的肥仔呢》
 
+
+*****
+
+####  Gysumitka  
+##### 11436#       发表于 2025-5-7 00:06
+
+没想到三人里最正常的是玛秋<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  七七見奈波  
+##### 11437#       发表于 2025-5-7 00:06
+
+ 本帖最后由 七七見奈波 于 2025-5-7 00:09 编辑 
+
+……我看了个什么玩意<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">算了白天再看一遍说不定观感会变。不过怎么说呢，麻球的头每集都圆溜溜的眼睛也圆圆的看着真满足球形爱好者
+
+是说一开始知道三连星变双子星的时候大家都以为马修死了，结果人家和金发大波妹快活去了这便是没想到<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  woui003woui  
+##### 11438#       发表于 2025-5-7 00:06
+
+不知道鹤卷准备怎么写麻球，现在看她的整个状态还在非常轻浮的阶段，接连不断的情绪刺激很可能导向一鼓作气的极端化走向，那极端完剩下的篇幅还够回头吗，还是说就根本不打算回头了
+还有一个问题是这片现在主角三人组都谈不上讨喜，麻球还在挤压破防状态不提，修司就基本没心路塑造，喵安虽然侧写不错但还是微妙的影薄，相比之下成年人组正面太多了（）看不到成长路线我也不安desu了
+
+*****
+
+####  白色池塘  
+##### 11439#       发表于 2025-5-7 00:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67787356&amp;ptid=2209276" target="_blank">竹様 发表于 2025-5-6 22:55</a>
+
+其实竹在上推之前也一直在星海社的竹画廊更新发新图来着。</blockquote>
+多年前还不太懂日语的时候，我一直以为《竹画廊》就是画集名字，上面的年号代表着这段时间的商绘或者私人作品之类，从来没有想过是web画廊，就这样误解了五六年吧<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hoyice  
+##### 11440#       发表于 2025-5-7 00:07
+
+<img src="https://p.sda1.dev/24/b986fbf192f7fa4b3ad3b8b5ad4bb888/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Mr1z  
+##### 11441#       发表于 2025-5-7 00:07
+
+以前还以为nya会是日常侧的，结果也是个颠婆
+看来番茄未来应该会慢慢融不进去这两个癫人的圈子，心理上的转变可能会由此展开，毕竟nya的驾驶技术要比番茄强得多
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  a85982313  
+##### 11442#       发表于 2025-5-7 00:07
+
+话说回来，这么看废案基本都保留了？那驾驶服应该也有机会吧
+
+*****
+
+####  hulaoda007  
+##### 11443#       发表于 2025-5-7 00:07
+
+首席哥，你这种人跟我们去08ms片场好了，不要和这群癫佬癫婆混在一起了。
+
+*****
+
+####  岸浪白野  
+##### 11444#       发表于 2025-5-7 00:08
+
+[X 上的 YY：“第5話ご視聴いただき、ありがとうございました！動画で参加しております！ 配信等でもお楽しみください！ #GQuuuuuuX #ジークアクス [url]https://t.co/zXWdjce0wd](https://x.com/YY_shibata/status/1919782783255286162)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/07/000818qtsqtjqz7puqjaq7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (980.49 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 00:08 上传
+
+[X 上的 YY：“水着マチュ #GQuuuuuuX #ジークアクス [url]https://t.co/t6zHWHnyge](https://x.com/YY_shibata/status/1919782835193356724)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/07/000831xslqeq3qdv2jqddt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (657.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 00:08 上传
+
+[X 上的 コウダ：“マチュとアンキー #GQuuuuuuX #ジークアクス [url]https://t.co/6822JlmrtI](https://x.com/kouda_nyo/status/1919784237072580652)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/07/000844xzezmeskqgmlekdw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.77 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 00:08 上传
+
+*****
+
+####  Gaybird  
+##### 11445#       发表于 2025-5-7 00:08
+
+最后我应该没听错吧，绿色叔叔说要把自己的人MA开过来。
+之前谁预言的喵安上机打的比麻球还好，大型ntr现场啊。
+那个喵安开MA的玩笑最好不要成真吧（悲）
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  woui003woui  
+##### 11446#       发表于 2025-5-7 00:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67787642&amp;ptid=2209276" target="_blank">未来起航 发表于 2025-5-7 00:02</a>
+其实相当合理吧。麻球主打的就是一个日常过得人都要烂掉，想闹点大动静但连个搞事的理由都找不着。
+蓝毛 ...</blockquote>
+因为很合理，所以开始担心她后续的线……反抗精神的深度经不起推敲，破防的点其实要说也都还停在何不食肉糜阶段，这是2025年青春动画片的主人公诶鹤卷哥哥你再不来点亮点我人要麻了呀
+
+
+*****
+
+####  ryanghj  
+##### 11447#       发表于 2025-5-7 00:11
+
+重新听了下下集预告的喵安自述，说的是从以前开始只要一得意忘形就会倒霉
+
+*****
+
+####  Earendil_C  
+##### 11448#       发表于 2025-5-7 00:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">首席哥，这把是不是你打的有问题
+
+*****
+
+####  暗黑能乐  
+##### 11449#       发表于 2025-5-7 00:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">赶紧接入主线吧，别成天nm思考什么kira不kira的了，这集红高连盾都爆了，也差不多到头了吧
+
+*****
+
+####  オルガピピック  
+##### 11450#       发表于 2025-5-7 00:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67787595&amp;ptid=2209276" target="_blank">suzakushi 发表于 2025-5-6 23:57</a>
+
+无语了，每集的战斗看着都是折磨。</blockquote>
+一律反色背景和慢镜的拉胯观感 鹤卷弄不来能不能低头让痞子哥哥来画机战分镜啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  shqingda_  
+##### 11451#       发表于 2025-5-7 00:12
+
+这是母鸡卡嘛<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">怎么那么多神人
+
+*****
+
+####  YU_JI  
+##### 11452#       发表于 2025-5-7 00:12
+
+这集真闻到一股大搞炒作的味……不安……我要先回第一集看看机战洗洗眼睛，沟槽的怎么能把机战拍成这样的，难道这片其实很万策尽吗？
+
+*****
+
+####  xunit  
+##### 11453#       发表于 2025-5-7 00:12
+
+我怎么感觉麻球这状态还能理解，制作组大概是为了复刻阿姆罗喊"我才是开高达开得最好"
+但是这打戏是真不行吔，有点像十几年前开始的国内电视剧打戏全用慢动作应付的时代
+
+*****
+
+####  sliver1997  
+##### 11454#       发表于 2025-5-7 00:12
+
+机战做好看点就好了，慢动作+黄色背景太过分了
+
+*****
+
+####  洛亚替身  
+##### 11455#       发表于 2025-5-7 00:13
+
+主要这部才十二集<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Devola  
+##### 11456#       发表于 2025-5-7 00:14
+
+<img src="https://img.stage1st.com/forum/202505/07/001405hgjpbuyjldpd6ccu.jpg" referrerpolicy="no-referrer">
+
+<strong>4306568c04dd3173230fa6a1a1cc02a0.jpg</strong> (67.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 00:14 上传
+
+*****
+
+####  Mika-S  
+##### 11457#       发表于 2025-5-7 00:14
+
+这集来看这个军团战应该确实打到头了吧，老兵都知道吉翁忍不住开始军备，该准备打扎比内战了
+
+*****
+
+####  二阶堂真琉  
+##### 11458#       发表于 2025-5-7 00:15
+
+观后感：
+
+QQ图片20250507001314.jpg
+(114.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 00:15 上传
+
+<img src="https://img.stage1st.com/forum/202505/07/001505k7fcqxscgnsxqcq2.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  newise  
+##### 11459#       发表于 2025-5-7 00:15
+
+水货首席哥和小森是nt界最后的良心！这夫妇俩最后不会也要发癫吧不会吧<img src="https://static.stage1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">
+
