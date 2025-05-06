@@ -59,3 +59,36 @@
 [https://x.com/rockinon_fes/status/1919592958711758937](https://x.com/rockinon_fes/status/1919592958711758937)
 [https://www.bilibili.com/video/BV1uNVmzaEHY](https://www.bilibili.com/video/BV1uNVmzaEHY)   &lt;——搬运视频
 
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 40795#       发表于 2025-5-6 21:15
+
+为什么来广州要搞得这么咖喱味。。。
+
+*****
+
+####  堀内爱里衣  
+##### 40796#       发表于 2025-5-6 21:18
+
+<img src="https://img.stage1st.com/forum/202505/06/211812whlsg7ledxr7zput.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-05-06_21-17-58.jpg</strong> (163.21 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-6 21:18 上传
+
+[https://x.com/sasakirico/status/1919653098345144748](https://x.com/sasakirico/status/1919653098345144748)
+
+<img src="https://img.stage1st.com/forum/202505/06/211847saa84xxxxtoh1o4v.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-05-06_21-18-32.jpg</strong> (396.27 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-6 21:18 上传
+
+[https://x.com/AkaneY_banu/status/1919705343820759095](https://x.com/AkaneY_banu/status/1919705343820759095)
+
