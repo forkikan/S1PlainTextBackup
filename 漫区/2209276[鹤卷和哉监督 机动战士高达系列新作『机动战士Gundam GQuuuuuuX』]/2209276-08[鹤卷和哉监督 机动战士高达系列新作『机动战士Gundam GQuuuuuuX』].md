@@ -11086,3 +11086,14 @@ https://realsound.jp/tech/2025/05/post-2010584_3.html
 
 也就斧王用上了脑波操控，领先正史11年，也难怪很多人往穿越方面猜。
 
+
+*****
+
+####  希望之异热同心  
+##### 11310#       发表于 2025-5-6 13:21
+
+新的杂志图
+<img src="https://p.sda1.dev/24/5004a954e1ed61416190a44f41c33434/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
