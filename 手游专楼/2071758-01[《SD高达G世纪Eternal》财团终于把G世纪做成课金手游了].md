@@ -12420,3 +12420,18 @@ z高达2台</blockquote>
 
 AP补给包优惠代码：TSYMCET
 
+
+*****
+
+####  blue321  
+##### 1164#       发表于 2025-5-6 19:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67784695&amp;ptid=2071758" target="_blank">一个陆仁贾 发表于 2025-5-6 10:40</a>
+
+商店里的ur机体礼包正好能补上呢
+
+—— 来自 vivo V2419A, Android 15, 鹅球 v3.5.99 ...</blockquote>
+刚硬凑3000出来再抽，结果正义2突
+
+狠下心补了，万代你赢了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
