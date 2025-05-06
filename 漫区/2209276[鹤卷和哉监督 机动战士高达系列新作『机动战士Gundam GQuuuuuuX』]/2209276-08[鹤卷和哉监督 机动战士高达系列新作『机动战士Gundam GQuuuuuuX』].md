@@ -13776,3 +13776,97 @@ https://www.bilibili.com/video/BV1bCVszTEvb/
 
 这不又是反派死于话多和我寻思之力，随便打打得了，多拍点美少女(男)小心思争风吃醋好了
 
+
+*****
+
+####  downnote  
+##### 11592#       发表于 2025-5-7 01:26
+
+黑泽朋世配破防的声音特别好玩，难道这就是选她配音的理由么
+
+*****
+
+####  希望之异热同心  
+##### 11593#       发表于 2025-5-7 01:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67788017&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-7 01:23</a>
+
+现在有立场暗杀紫婆的只有汤大基和联邦侧了吧，夏利亚总没理由现在揭竿动手，之前强调了扎比内战，那八成就 ...</blockquote>
+番茄妈是side6高管，去接机然后。。。。。。<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Arinori  
+##### 11594#       发表于 2025-5-7 01:28
+
+<blockquote>ardente 发表于 2025-5-7 01:12
+难绷，基西莉亚连黑三连的军职都保不住？有点搞笑了哥们，这还内斗个屁，完全失势了都，是被马克贝背刺了？ ...</blockquote>
+有这个可能性，剧场版里马克贝打月神二号的时候不是就和副官乌拉冈嘀咕过“若是自己做主，就会去找基连欠个人情提前把大扎姆部队部署到位”之类的话。
+
+*****
+
+####  岸浪白野  
+##### 11595#       发表于 2025-5-7 01:29
+
+叠的太整齐了，环境出身不同的真的很对比
+
+<img src="https://img.stage1st.com/forum/202505/07/012742o8t45gs7tz1tn7h7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (281.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 01:27 上传
+
+<img src="https://img.stage1st.com/forum/202505/07/012755egzsoccgnqcdoidc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (176.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 01:27 上传
+
+
+*****
+
+####  ryanghj  
+##### 11596#       发表于 2025-5-7 01:31
+
+ 本帖最后由 ryanghj 于 2025-5-7 01:33 编辑 
+
+大概能理解黑泽在场刊里提到的 留白了
+
+三人平时的交流都留白了，让你们自己想象，反正现在的结果就是玛秋已经深陷牢修泥潭<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">自己挣到的钱全上贡了
+
+*****
+
+####  暗黑能乐  
+##### 11597#       发表于 2025-5-7 01:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67788027&amp;ptid=2209276" target="_blank">希望之异热同心 发表于 2025-5-7 01:27</a>
+番茄妈是side6高管，去接机然后。。。。。。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">我上周说side6可能有惨案发生推动剧情，有漏油说访谈表示本剧氛围比较轻松来着
+
+—— 来自 HONOR BVL-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  ryanghj  
+##### 11598#       发表于 2025-5-7 01:32
+
+另外这集喵安的kirakira里没出现牢修，虽然牢修身体原因，但是感觉又是伏笔
+
+*****
+
+####  lucasxp  
+##### 11599#       发表于 2025-5-7 01:32
+
+EVA终的时候就想吐槽了，这卡拉的3D就是不行吧，塑料感特别重
+
+*****
+
+####  lucasxp  
+##### 11600#       发表于 2025-5-7 01:34
+
+另外被电的时候我是真以为会像伊莱克特一样爆衣的，不过想了想福利在前面已经给过了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
