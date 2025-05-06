@@ -12706,3 +12706,206 @@ QQ图片20250507001314.jpg
 
 甩头躲子弹真的有点好笑了
 
+
+*****
+
+####  猪突猛进R  
+##### 11483#       发表于 2025-5-7 00:27
+
+这下最初的宣传图又可以有新的理解了
+
+<img src="https://p.sda1.dev/20/1300d4f3ffcf5fd807a082e2bfd4afd4/img_kv_ja.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 11484#       发表于 2025-5-7 00:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67787789&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-7 00:27</a>
+
+这下最初的宣传图又可以有新的理解了</blockquote>
+这集最后的分镜完全就是这张图反过来
+
+*****
+
+####  az一串字母  
+##### 11485#       发表于 2025-5-7 00:27
+
+所以现在谁是真mav，谁是假mav
+
+*****
+
+####  Swss  
+##### 11486#       发表于 2025-5-7 00:27
+
+捋了一下，麻球的思路大概是
+不愿接受平凡\日常
+开鸡夸和修司mav打黑拳，有了新的容身之所➡️非日常
+然后喵安也能干这些事➡️identity危机
+
+*****
+
+####  岸浪白野  
+##### 11487#       发表于 2025-5-7 00:27
+
+<img src="https://img.stage1st.com/forum/202505/07/002751h2hh2b52ye3mivvp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (820.43 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 00:27 上传
+
+*****
+
+####  希望之异热同心  
+##### 11488#       发表于 2025-5-7 00:27
+
+喵安预期是说是驾驶技术好不如说她本身就对日常对规则无感所以高达回应了她的想法，番茄菜是因为她真的只是当游戏玩
+
+*****
+
+####  woui003woui  
+##### 11489#       发表于 2025-5-7 00:28
+
+ 本帖最后由 woui003woui 于 2025-5-7 00:29 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67787754&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-7 00:19</a>
+麻球被牛的反应总看着有点别扭，闹别扭可以理解，崩溃雨夜出逃是不是有点太反应过头了，观感很不舒服，真就 ...</blockquote>
+上机+修司mav军团战+宇宙聊天室，以上在麻球看是她摆脱这个极其厌倦、想要逃离，又没有真实认知过的无聊现实生活的最大也是唯一接口，她没办法接受这个接口被人夺走/自己完全不是那么特别
+会被随口一句说出来的甚至完全和她无关的“去地球”吸引，把奖金一起塞给修司买装载机就显示出来她已经有点偏执了
+包括魔女死以后博美犬军团几个staff在担心她是不是心态豹变，而她实际在想的是修司<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+总之要说逻辑大体上还是通的，但我实在不太想接受她现在是这么个人物塑造，甚至一时半会还看不到她的成长契机。。。
+明明蓦然回首里藤野破防也是这么个剧情但观感特么的不太一样啊，是因为麻球已经高中生了吗！
+
+*****
+
+####  YU_JI  
+##### 11490#       发表于 2025-5-7 00:28
+
+这集的GQX直接就是紫眼形态
+
+*****
+
+####  oyss  
+##### 11491#       发表于 2025-5-7 00:29
+
+最后会不会俩人一人一台机一起上.
+
+*****
+
+####  Sliurus  
+##### 11492#       发表于 2025-5-7 00:29
+
+完了，玩游戏错过直播了，好像有什么大的<img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 11493#       发表于 2025-5-7 00:29
+
+<img src="https://img.stage1st.com/forum/202505/07/002942lwpt7p7htfsh01zj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (227.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 00:29 上传
+
+
+*****
+
+####  青空独  
+##### 11494#       发表于 2025-5-7 00:31
+
+这集虽然看着挺乐，但老实说完全理解不了剧情展开，你们能理解吗
+
+*****
+
+####  岸浪白野  
+##### 11495#       发表于 2025-5-7 00:31
+
+<img src="https://img.stage1st.com/forum/202505/07/003154n8ppwjqpjtt8phow.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.59 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 00:31 上传
+
+<img src="https://img.stage1st.com/forum/202505/07/003136lswbp9nhpphnniyk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.25 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 00:31 上传
+
+*****
+
+####  oi99o  
+##### 11496#       发表于 2025-5-7 00:32
+
+修司的藏身处曝光了，我该怎么办？答：去暗杀基西莉亚<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202505/07/003121x9y240hkp11t241m.png" referrerpolicy="no-referrer">
+
+<strong>Mobile.Suit.Gundam.GQuuuuuuX.S01E05.Nyaan.Doesnt.Know.About.Kira-Kira.1080p.AMZN.png</strong> (234.43 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 00:31 上传
+
+<img src="https://img.stage1st.com/forum/202505/07/003052d4ee79t2i39i79tp.png" referrerpolicy="no-referrer">
+
+<strong>Mobile.Suit.Gundam.GQuuuuuuX.S01E05.Nyaan.Doesnt.Know.About.Kira-Kira.1080p.AMZN.png</strong> (202.79 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 00:30 上传
+
+<img src="https://img.stage1st.com/forum/202505/07/003054jimbrwwvbtu1zfud.png" referrerpolicy="no-referrer">
+
+<strong>Mobile.Suit.Gundam.GQuuuuuuX.S01E05.Nyaan.Doesnt.Know.About.Kira-Kira.1080p.AMZN.png</strong> (140.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 00:30 上传
+
+*****
+
+####  七七見奈波  
+##### 11497#       发表于 2025-5-7 00:32
+
+这集喵安上来就已经管修司叫修酱了（管麻球叫麻球倒可能是麻球一开始就没说过真名？），怎么着这俩的关系性难道最终发展方向是大小姐和阿特拉吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Swss  
+##### 11498#       发表于 2025-5-7 00:32
+
+谁规定mav只能是两个人的，就该三个人一起上打黑色三连星<img src="https://static.stage1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 11499#       发表于 2025-5-7 00:33
+
+喵安也是假名吧
+
+*****
+
+####  suzakushi  
+##### 11500#       发表于 2025-5-7 00:33
+
+一共才12集啊，这都要一半了，主要角色全对着莫名其妙的kirakira发癫，什么描写都看不到，观感真的好不起来。
+
+*****
+
+####  中野梓  
+##### 11501#       发表于 2025-5-7 00:35
+
+<blockquote>青空独 发表于 2025-5-7 00:31
+这集虽然看着挺乐，但老实说完全理解不了剧情展开，你们能理解吗</blockquote>
+这么平铺直叙有很难理解吗？
+
