@@ -502,3 +502,13 @@ Fan Club会员们大家好，这里是栞叶琉璃。Fan Club成立之后终于�
 
 看讨论，VSpo粉丝也在吵偶像化路线了。笑<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  karastar  
+##### 1110#       发表于 2025-5-6 13:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67784586&amp;ptid=2171972" target="_blank">渡鸦骑士 发表于 2025-5-6 10:20</a>
+看讨论，VSpo粉丝也在吵偶像化路线了。笑</blockquote>
+回旋镖来了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
