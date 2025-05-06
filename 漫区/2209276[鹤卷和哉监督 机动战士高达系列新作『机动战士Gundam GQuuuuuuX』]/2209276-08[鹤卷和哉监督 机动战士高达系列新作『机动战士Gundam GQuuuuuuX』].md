@@ -11113,3 +11113,13 @@ https://realsound.jp/tech/2025/05/post-2010584_3.html
 
 其实比起殖民地的她我还是更喜欢目覚めたい魂たち这种比较大气磅礴、有戏剧感和时代洪流感的风格
 
+
+*****
+
+####  57042711  
+##### 11313#       发表于 2025-5-6 14:49
+
+可以参考本家元祖第一集啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
