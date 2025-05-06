@@ -11275,3 +11275,20 @@ kirakira让玛秋觉得自己无所不能，所谓的欣快感，这效果妥妥
 被圣痕限位那段我也只记得他飘在空中左右回头了，操纵机械画面还真想不起来 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">原来那样也不算吗，主要动作像是握着操纵杆吧
 
+
+*****
+
+####  Sliurus  
+##### 11327#       发表于 2025-5-6 17:20
+
+这动画就没怎么画过使用操纵杆的画面吧，这么直接的画面都要怀疑很容易陷入假药里出不来
+
+*****
+
+####  windlikeman  
+##### 11328#       发表于 2025-5-6 17:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">主要修司和红高姿势同步率太高了
+
+麻球也都是虚空背景驾驶画面 但是就不会这样去猜想
+
