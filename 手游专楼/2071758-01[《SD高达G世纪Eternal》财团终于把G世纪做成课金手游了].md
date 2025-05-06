@@ -12403,3 +12403,12 @@ z高达2台</blockquote>
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 1162#       发表于 2025-5-6 10:47
+
+自动战斗编队技巧与实战活动EX难度BOSS
+[https://www.bilibili.com/video/BV1BAVyzKEKN?t=25.1](https://www.bilibili.com/video/BV1BAVyzKEKN?t=25.1)
+
