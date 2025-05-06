@@ -12470,3 +12470,239 @@ QQ图片20250507001314.jpg
 
 水货首席哥和小森是nt界最后的良心！这夫妇俩最后不会也要发癫吧不会吧<img src="https://static.stage1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ryanghj  
+##### 11460#       发表于 2025-5-7 00:16
+
+这集喵安都是瞄着驾驶室去的，最后甚至直接劈成两半，反而修司是只砍头
+
+麻球是狂犬，喵安是猛兽<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  arthurmizuki  
+##### 11461#       发表于 2025-5-7 00:16
+
+为什么这些年高达打戏基本没好过，要么一眼烂，要么看着不偷工减料但完全没sense，真没人才了吗
+
+*****
+
+####  whzfjd  
+##### 11462#       发表于 2025-5-7 00:16
+
+玛秋尝到甜头是想深度体验，探索未知
+
+喵安尝到甜头则是破坏欲拉满，支配一切
+
+*****
+
+####  gameseve  
+##### 11463#       发表于 2025-5-7 00:16
+
+喵的描写，很像小人物拿到力量，然后不自觉的自我膨胀，然后最后垫掉，小丑化。
+
+不过作为主角团，应该不会这样描写吧？
+
+*****
+
+####  猪突猛进R  
+##### 11464#       发表于 2025-5-7 00:17
+
+<img src="https://img.stage1st.com/forum/202505/07/001704gm5pr4s4q2l4g49p.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>-9lddQ1a9-b8v4K1aT1kSex-8t.jpeg</strong> (38.04 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 00:17 上传
+
+*****
+
+####  ryanghj  
+##### 11465#       发表于 2025-5-7 00:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67787735&amp;ptid=2209276" target="_blank">arthurmizuki 发表于 2025-5-7 00:16</a>
+
+为什么这些年高达打戏基本没好过，要么一眼烂，要么看着不偷工减料但完全没sense，真没人才了吗 ...</blockquote>
+别的不说我今天重新看了一遍独角兽的打戏，是真的精彩
+
+巅峰的泽野配乐
+
+可惜独角兽剧情烂了
+
+*****
+
+####  暗黑能乐  
+##### 11466#       发表于 2025-5-7 00:18
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这自由哒我是真喷了
+
+*****
+
+####  猪突猛进R  
+##### 11467#       发表于 2025-5-7 00:18
+
+今天的牛高达是剧情精彩，打戏烂了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 11468#       发表于 2025-5-7 00:18
+
+<img src="https://img.stage1st.com/forum/202505/07/001828y848aksu2t9p49hp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.02 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 00:18 上传
+
+<img src="https://img.stage1st.com/forum/202505/07/001835j4wse4svzvzsv0zu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (993.91 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 00:18 上传
+
+<img src="https://img.stage1st.com/forum/202505/07/001840uxnrazas3zops7xe.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (969.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 00:18 上传
+
+*****
+
+####  拖鞋脚后跟  
+##### 11469#       发表于 2025-5-7 00:19
+
+<img src="https://p.sda1.dev/24/e85fbd524db0b115c102ce52525ea156/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9730, Android 11, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  7an绫  
+##### 11470#       发表于 2025-5-7 00:19
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">榎户发力了，很银河美少年啊
+
+*****
+
+####  YU_JI  
+##### 11471#       发表于 2025-5-7 00:19
+
+麻球被牛的反应总看着有点别扭，闹别扭可以理解，崩溃雨夜出逃总觉得有点反应过头了
+
+
+*****
+
+####  安广多惠子  
+##### 11472#       发表于 2025-5-7 00:20
+
+对打戏彻底放弃期待后看着还挺乐的，小番茄的大番茄真诱人啊（
+
+*****
+
+####  woui003woui  
+##### 11473#       发表于 2025-5-7 00:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">不管了反正下集第六集了，还没苗头我也该调整预期了
+
+*****
+
+####  ryanghj  
+##### 11474#       发表于 2025-5-7 00:21
+
+这集一开始玛秋和安琪恋爱相谈，一副扭捏的样子，安琪鼓励玛秋大胆去追（男人）
+
+结果后半集男人就被牛走了，太搞了
+
+*****
+
+####  岸浪白野  
+##### 11475#       发表于 2025-5-7 00:21
+
+<img src="https://img.stage1st.com/forum/202505/07/002131rikxsdql18qkls1u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (749.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 00:21 上传
+
+*****
+
+####  オルガピピック  
+##### 11476#       发表于 2025-5-7 00:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67787735&amp;ptid=2209276" target="_blank">arthurmizuki 发表于 2025-5-7 00:16</a>
+
+为什么这些年高达打戏基本没好过，要么一眼烂，要么看着不偷工减料但完全没sense，真没人才了吗 ...</blockquote>
+是的 是真的没人了 水魔就暴露出来现在的画师完全不懂机械作画 但khara一堆老登都把分镜搞成这样实在是莫名其妙<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  暗黑能乐  
+##### 11477#       发表于 2025-5-7 00:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67787758&amp;ptid=2209276" target="_blank">woui003woui 发表于 2025-5-7 00:20</a>
+
+我也不介意这片演到最后跟某些契诃夫作品一样除了kirakira值得向往，主角团无人讨喜，但这片开头感觉不是这 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">好歹找点正经事思考一下吧，真就kirakira驱动就开始各发各的颠确实有点无语了
+
+*****
+
+####  ミオリネ  
+##### 11478#       发表于 2025-5-7 00:22
+
+麻球这状态与其说是因为修被抢了，我觉得更多的是心中认为的那个独一无二的自己崩坏了，意识到了其实自己并不没有那么特别
+
+一直无意识中小看的喵，那个需要自己保护的难民，其实可以比自己做得更好
+
+*****
+
+####  ryanghj  
+##### 11479#       发表于 2025-5-7 00:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67787764&amp;ptid=2209276" target="_blank">ミオリネ 发表于 2025-5-7 00:22</a>
+
+麻球这状态与其说是因为修被抢了，我觉得更多的是心中认为的那个独一无二的自己崩坏了，意识到了其实自己并 ...</blockquote>
+这个其实对上了鹤卷NT访谈里说的“才能是否真实存在”
+
+鹤卷：比如当年轻人想"成为漫画家"或"成为音乐家"时，总会纠结"自己的才能是否真实""在班级里很受欢迎，在文化祭上也很受欢迎，但真的能把这个当成将来的工作吗？自己是否具备能够与大家都知道的著名漫画家或艺术家相媲美的真正才华，还是仅仅在小圈子里才会被认可的那种程度的才华"这种烦恼是会有的吧。我认为这种对真实价值的质疑本身就值得探讨。
+
+*****
+
+####  Gaybird  
+##### 11480#       发表于 2025-5-7 00:24
+
+喵安把mav当肉盾这种狂气描写我还挺喜欢的
+偏偏这集修司还发烧了迷迷糊糊的，没法听肉盾那方的意见
+什么？高达说它觉得很有趣？那没事了
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  岸浪白野  
+##### 11481#       发表于 2025-5-7 00:25
+
+“坐上GQuuuuuuX，感觉世界都在回应我”
+
+觉得这种特别的独一无二在自己心里被破坏了
+
+*****
+
+####  -SLSL-  
+##### 11482#       发表于 2025-5-7 00:26
+
+虾爬真是依托答辩
+
+甩头躲子弹真的有点好笑了
+
