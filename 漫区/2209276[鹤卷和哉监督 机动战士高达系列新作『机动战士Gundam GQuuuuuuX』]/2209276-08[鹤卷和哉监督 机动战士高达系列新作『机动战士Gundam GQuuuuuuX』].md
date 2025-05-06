@@ -11005,3 +11005,11 @@ gq时间线里，毕斯特财团宅子是不是还在side6啊，很想看这个�
 
 鹤卷有明说制作组看过了什么设定，就只说了正作相关还有富野笔记和MSV
 
+
+*****
+
+####  Yugao  
+##### 11305#       发表于 2025-5-6 08:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">我觉得不如把独角兽当成gq一串世界线的0096，这样意外的更合理了
+
