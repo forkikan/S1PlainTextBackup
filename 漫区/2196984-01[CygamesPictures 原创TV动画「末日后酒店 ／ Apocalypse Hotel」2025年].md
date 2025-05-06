@@ -1851,3 +1851,14 @@ aiko的大部分歌好像都这样
 
 搞笑动画不需要讲逻辑，一话一个平行世界么
 
+
+*****
+
+####  The_Ether_  
+##### 174#       发表于 2025-5-7 07:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67788001&amp;ptid=2196984" target="_blank">Yinacona 发表于 2025-5-7 01:18</a>
+
+op原来就是这么编成的吗？我以为和10多年前那种养成系op一样越来越好最后会有一个正经版。但确实到第二集时 ...</blockquote>
+看b站评论区说OP也不是专门为了动画做的，让监督自己挑了一首。ED才是专门做给动画的？
+
