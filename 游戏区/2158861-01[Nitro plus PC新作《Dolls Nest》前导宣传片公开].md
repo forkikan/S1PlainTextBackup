@@ -2276,3 +2276,11 @@ baldr系列那种本来就是act的除外
 铠灵毕竟只是模拟人形的机械生物，居然也会有少女的喜好可 ...</blockquote>
 坦克姐还会给幼灵做小饰品
 
+
+*****
+
+####  madcow  
+##### 208#       发表于 2025-5-6 22:36
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你搞到隐藏房间里坦克姐她妹给她的信的话会发现这人完全死妹控死萝莉控
+
