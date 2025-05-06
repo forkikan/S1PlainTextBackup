@@ -14404,3 +14404,36 @@ khara这三渲二问题太明显了，动作僵硬没有大张力的运镜和透
 能路过就一眼看出来难民，只能认为是肤色问题了。那肯定不是假id能简单过关的。 ...</blockquote>
 这事就是日本人在街上就算看不出中国人韩国人，但是一眼看出越南人尼泊尔人还是没问题的
 
+
+*****
+
+####  xwz  
+##### 11650#       发表于 2025-5-7 03:15
+
+麻球在突然间就失去了一切，不会把一切责任都怪到首席哥身上吧<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 11651#       发表于 2025-5-7 03:17
+
+玛秋的内衣从第一话的运动内衣变成了普通内衣，暗示一种心境变化
+
+玛秋对修司的感情应该不仅限于憧憬了，而确实是男女之情
+
+<img src="https://img.stage1st.com/forum/202505/07/031619izwwekbso3sosw3i.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (137.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 03:16 上传
+
+<img src="https://img.stage1st.com/forum/202505/07/031652hzajjs6wz17jwd31.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (187.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 03:16 上传
+
