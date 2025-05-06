@@ -13361,3 +13361,298 @@ EVA Q开始打戏就已经不行了<img src="https://static.stage1st.com/image/s
 
 注意提防喵安(复仇之魂)：移形换位
 
+
+*****
+
+####  RE㐅ia  
+##### 11551#       发表于 2025-5-7 01:06
+
+<blockquote>marlun 发表于 2025-5-7 01:01
+剧情编排上就是1抢高达 2背景 345个人战，6的预告就是大事件展开，后续应该就是鹤卷最熟悉的少年少女卷入 ...</blockquote>
+鹤卷byd到头来又龟缩回自己最擅长的6集长度了嘛（
+
+*****
+
+####  Sliurus  
+##### 11552#       发表于 2025-5-7 01:07
+
+马秋说是狂犬，纳凉的时候脱下的衣服放得整整齐齐，本质是希望能变得特立独行的乖乖女
+
+听起来有点耳熟，难道真是高达版flcl<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 11553#       发表于 2025-5-7 01:07
+
+ 本帖最后由 岸浪白野 于 2025-5-7 01:08 编辑 
+
+正如楼上说的，一边是兴奋的玛秋，一边是喵安捧哏
+
+衣服更不用说了
+
+<img src="https://img.stage1st.com/forum/202505/07/010757q8m80jh8zm050jzm.png" referrerpolicy="no-referrer">
+
+<strong>MFG%N_E8Q45MV[21`Z)N.png</strong> (705.31 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 01:07 上传
+
+*****
+
+####  暗黑能乐  
+##### 11554#       发表于 2025-5-7 01:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67787880&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-7 00:51</a>
+机战槽点有点太多了但是还是想提一嘴，喵安一开始挂机那会二连星又是电击又是拳打脚踢的，有这功夫打个头真 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这问题已经几集了，从第三集开始每集对手都喜欢近身战范围不砍头在那疯狂格斗，除了震一震驾驶员感觉不到有啥用
+
+—— 来自 HONOR BVL-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  downnote  
+##### 11555#       发表于 2025-5-7 01:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67774431&amp;ptid=2209276" target="_blank">downnote 发表于 2025-5-2 14:56</a>
+
+哎呀要是喵安技术太好怎么办，然后给她说驾驶员由你继续，小孩就回去上学吧。小孩一怒之下会做啥可不好说 ...</blockquote>
+难道是我预测的？
+
+*****
+
+####  zzf111  
+##### 11556#       发表于 2025-5-7 01:07
+
+这集塑造我觉得都还行，到低谷期后麻球等后续一个成长的契机（但是看下集预告的话好像还要再别扭一集），nyan就该这样，平常软弱可欺癫的时候变成狂人
+
+就是这哈啰太鬼了，两次解锁塞可缪都有台词像他推了一把一样，进度快过半了还不讲讲来历吗
+
+*****
+
+####  上坂莲华  
+##### 11557#       发表于 2025-5-7 01:08
+
+打戏槽点其实特别大
+
+比如喵安能直接把修斯抓过来使用防御降临，说明她挨打挨电的时候修斯其实一直在她手边上挂机<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 11558#       发表于 2025-5-7 01:08
+
+等等等等，重看一遍发现，喵安踹电线那块的机械动作流畅的要命啊，有这功夫为什么不做到战斗里去啊！
+
+*****
+
+####  麻巳巳  
+##### 11559#       发表于 2025-5-7 01:08
+
+打斗一如既往地难看，这剧情走向别又是一个剑指下一集让多少追多少就好了
+
+*****
+
+####  a85982313  
+##### 11560#       发表于 2025-5-7 01:08
+
+战斗拍的差就算了
+
+这个mav设计的，也没看出来到底什么必要自己搞出mav概念来打双人战了吧，这几场战斗甚至连1+1vs1+1都算不上，更别提2V2了
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 11561#       发表于 2025-5-7 01:09
+
+喵安喊“修酱”喊得很亲热，她真的很重视另外两个人，下集被小番茄伤到的时候会非常美味吧<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Gaybird  
+##### 11562#       发表于 2025-5-7 01:09
+
+麻球挺照顾喵安的，最初看到喵安被军警揍了心疼，泳装也说帮她买，这集在军警面前还在护喵安
+结果军团战打完，发现喵安根本不需要自己守护，跟修司的kirakira也不是独属于自己特别的东西，甚至喵安穿的驾驶服还是自己的，这破防在雨里跑也是可以理解的
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  zycilcy  
+##### 11563#       发表于 2025-5-7 01:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67787900&amp;ptid=2209276" target="_blank">上坂莲华 发表于 2025-5-7 00:56</a>
+
+这还不好理解么，麻球这会已经开始膨胀了，这集专门两个小插曲展示
+
+一个是给喵安和修斯看自己买了穿梭机那 ...</blockquote>
+膨胀是第四集的事，从魔女被捅死番茄的精神状态很明显是下行的。
+
+买穿梭机应该是之前商量好的，钱大概是修斯和番茄两个人的分红。
+
+军警那里是番茄用自己的居民身份给女二作保，炸毛很明显是复刻第一集正义感上头了。
+
+*****
+
+####  LLLLLuB  
+##### 11564#       发表于 2025-5-7 01:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67787850&amp;ptid=2209276" target="_blank">梦诗歌雪 发表于 2025-5-7 00:42</a>
+大魔砍掉头怎么就爆了有说法吗</blockquote>
+rx78-1也是被光束军刀爆头就炸了
+
+—— 来自 Xiaomi 23046RP50C, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  你妈的为什么  
+##### 11565#       发表于 2025-5-7 01:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这集战斗逻辑看懂了，慢放还是有用的
+
+就是打斗场面还是不好看啊
+
+*****
+
+####  zycilcy  
+##### 11566#       发表于 2025-5-7 01:11
+
+伴随主线，第六集结尾，或者第七集番茄应该就会被修正了。
+
+*****
+
+####  上坂莲华  
+##### 11567#       发表于 2025-5-7 01:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67787960&amp;ptid=2209276" target="_blank">Gaybird 发表于 2025-5-7 01:09</a>
+
+麻球挺照顾喵安的，最初看到喵安被军警揍了心疼，泳装也说帮她买，这集在军警面前还在护喵安
+
+结果军团战打 ...</blockquote>
+反了，先是破防在雨里跑，然后才看到GQX驾驶员是喵安的，下来喘气的时候周边很明显的大片水渍
+
+*****
+
+####  暗黑能乐  
+##### 11568#       发表于 2025-5-7 01:12
+
+但是玛秋那个踢裆不是反而激起巡逻的注意吗，喵安应该掏的出来蒙混过关的id卡吧，如果查难民有这么严格side6也不会这么多了
+
+—— 来自 HONOR BVL-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  ardente  
+##### 11569#       发表于 2025-5-7 01:12
+
+难绷，基西莉亚连黑三连的军职都保不住？有点搞笑了哥们，这还内斗个屁，完全失势了都，是被马克贝背刺了？<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hsyg  
+##### 11570#       发表于 2025-5-7 01:14
+
+<blockquote>marlun 发表于 2025-5-7 01:00
+二连星想的就是一顿电炮+托马斯大回旋，把你折磨晕后美美收人头
+
+—— 来自 vivo V2408A, Android 15, 鹅 ...</blockquote>
+问题是这是红高达站旁边睡觉为前提定的作战计划？魔女前只是虐菜都算了，魔女后连闪卡都有了，总不会觉得高达很简单能打得过吧？还是说其实规则是一个被打爆就算赢了？
+
+*****
+
+####  YU_JI  
+##### 11571#       发表于 2025-5-7 01:14
+
+其实重新理一遍发现这集机战比上集好看多了，有几个镜头还不错的……喵安踹电线和二连星的推进镜头都做的不错，但是速度线和慢镜头实在是多到堪称泛滥成灾的水平，观感被完全割裂了……
+
+*****
+
+####  Gaybird  
+##### 11572#       发表于 2025-5-7 01:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67787969&amp;ptid=2209276" target="_blank">上坂莲华 发表于 2025-5-6 12:11</a>
+反了，先是破防在雨里跑，然后才看到GQX驾驶员是喵安的，下来喘气的时候周边很明显的大片水渍 ...</blockquote>
+草，对不起我的锅，那就是最后那个心死的眼神，真是美味的破防
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  galgamesh11  
+##### 11573#       发表于 2025-5-7 01:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67787972&amp;ptid=2209276" target="_blank">ardente 发表于 2025-5-7 01:12</a>
+难绷，基西莉亚连黑三连的军职都保不住？有点搞笑了哥们，这还内斗个屁，完全失势了都，是被马克贝背刺了？ ...</blockquote>
+下集人身安全都有问题了，大概真的比较狼狈吧（）
+
+*****
+
+####  死光光  
+##### 11574#       发表于 2025-5-7 01:14
+
+战斗比之前强了虽然还是不好看，但是很好笑啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202505/07/011358zqwfwer41lffylcw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (185.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 01:13 上传
+
+*****
+
+####  chondroitin  
+##### 11575#       发表于 2025-5-7 01:15
+
+继强制soulmate动画后又是强制newtype动画吗<img src="https://static.stage1st.com/image/smiley/carton2017/489.png" referrerpolicy="no-referrer">
+
+感觉下集展开基西莉亚暗杀计划线就是夏利亚主场了，番茄的这种拧巴大概会发酵到10~11集然后发展成两人之一反水，最后展开命运的决斗吧（
+
+考虑到这是高达，多开点机子互相打架吧，万代是这么说的
+
+*****
+
+####  acguy  
+##### 11576#       发表于 2025-5-7 01:15
+
+<img src="https://img.stage1st.com/forum/202505/07/011447y2972xa4ih99ffm8.jpg" referrerpolicy="no-referrer">
+
+<strong>1000020148.jpg</strong> (497.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 01:14 上传
+
+*****
+
+####  hsyg  
+##### 11577#       发表于 2025-5-7 01:15
+
+<blockquote>暗黑能乐 发表于 2025-5-7 01:12
+但是玛秋那个踢裆不是反而激起巡逻的注意吗，喵安应该掏的出来蒙混过关的id卡吧，如果查难民有这么严格side ...</blockquote>
+能路过就一眼看出来难民，只能认为是肤色问题了。那肯定不是假id能简单过关的。
+
+*****
+
+####  ardente  
+##### 11578#       发表于 2025-5-7 01:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67787957&amp;ptid=2209276" target="_blank">a85982313 发表于 2025-5-7 01:08</a>
+
+战斗拍的差就算了
+
+这个mav设计的，也没看出来到底什么必要自己搞出mav概念来打双人战了吧，这几场战斗甚至 ...</blockquote>
+本来就是口嗨的东西他们自己想不出花头，怕是去抄都不知道抄谁<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  真爱与热情  
+##### 11579#       发表于 2025-5-7 01:16
+
+唯一小丑哈萨维，uc105被电成烤肉<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

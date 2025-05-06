@@ -12500,3 +12500,26 @@ ex降低攻击力聊胜于无，高闪避率的援护防御体现在永恒之路
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 1170#       发表于 2025-5-7 01:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67787901&amp;ptid=2071758" target="_blank">一个陆仁贾 发表于 2025-5-7 00:56</a>
+
+ex降低攻击力聊胜于无，高闪避率的援护防御体现在永恒之路以外的副本，如果有高达nt那个ur机师，可以给他 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">那78骡本身可以干啥？
+
+
+*****
+
+####  一个陆仁贾  
+##### 1171#       发表于 2025-5-7 01:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67787941&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-5-7 01:06</a>
+那78骡本身可以干啥？</blockquote>
+我看别人推荐是开精神力的
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
