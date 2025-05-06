@@ -102,3 +102,32 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  堀内爱里衣  
+##### 40798#       发表于 2025-5-6 22:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67787053&amp;ptid=2208921" target="_blank">画画的北北 发表于 2025-5-6 21:34</a>
+
+补mygo 第7集了，这剧情太颠了吧，唐氏 超雄 舔狗  自闭 夜猫，还有个蓝色魅魔，
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+第四话和第七话ED结束后还有C Part，希望坛友没有遗漏。
+
+
+*****
+
+####  堀内爱里衣  
+##### 40799#       发表于 2025-5-6 22:21
+
+<img src="https://img.stage1st.com/forum/202505/06/222233aoayxt1w476sy1et.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-05-06_22-21-01.jpg</strong> (368.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-6 22:22 上传
+
+[https://x.com/bang_dream_info/status/1919754235853390241](https://x.com/bang_dream_info/status/1919754235853390241)
+
