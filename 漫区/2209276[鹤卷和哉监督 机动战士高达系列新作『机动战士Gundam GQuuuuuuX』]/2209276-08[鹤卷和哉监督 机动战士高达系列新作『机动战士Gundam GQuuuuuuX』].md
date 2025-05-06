@@ -14114,3 +14114,52 @@ g复国剧场版第四部是22年的，应该算是近些年的巅峰了吧<img 
 —— 来自 HONOR BVL-AN00, Androi ...</blockquote>
 鹤卷在配音的时候都是让cv配到哪就给哪里的脚本，所以他们配的时候也不知道未来是什么样的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ryanghj  
+##### 11622#       发表于 2025-5-7 02:06
+
+ 本帖最后由 ryanghj 于 2025-5-7 02:09 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67788083&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-5-7 01:56</a>
+
+从喵安的表情来看我觉得不像这种展开，如果她下机后表情还在回味会比较有可能有你说的倾向，但目前来说应 ...</blockquote>
+从下集预告来看喵安事后还是有在反省的
+
+这集能看出喵安和麻球对kirakira态度的差异，麻球是“世界在回应我”，喵安是“世界会按我所想”，而且“我不需要配合任何人”
+
+而且高喊“自由だ”，这绝对是有意识在玩梗吧，怪不得会选石川
+
+*****
+
+####  cayon  
+##### 11623#       发表于 2025-5-7 02:07
+
+说实话一点也get不到这三人有啥关系性，原本是三人互相欠债的关系过了两集突然变成三人组小团体了，前面两集动不动还有人掉线，这跳跃的也太快了，还有喵安突然就修酱的叫上了，感觉难以理解
+
+*****
+
+####  oyss  
+##### 11624#       发表于 2025-5-7 02:08
+
+为什么行李寄存是中文.....
+
+*****
+
+####  ryanghj  
+##### 11625#       发表于 2025-5-7 02:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67788098&amp;ptid=2209276" target="_blank">oyss 发表于 2025-5-7 02:08</a>
+
+为什么行李寄存是中文.....</blockquote>
+他们这个地方是中国人比较多的，安琪开的那个回收店的名字也是kaneban有限公司
+
+*****
+
+####  YU_JI  
+##### 11626#       发表于 2025-5-7 02:11
+
+<blockquote>oyss 发表于 2025-5-7 02:08
+为什么行李寄存是中文.....</blockquote>
+这里的side6是东亚文化大熔炉
+
