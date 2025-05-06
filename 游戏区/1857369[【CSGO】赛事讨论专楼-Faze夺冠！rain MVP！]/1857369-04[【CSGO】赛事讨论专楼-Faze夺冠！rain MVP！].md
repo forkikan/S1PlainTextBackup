@@ -102,3 +102,14 @@ Niko的软脚感觉是治不好了<img src="https://static.stage1st.com/image/sm
 那你今早一定串的更开心了</blockquote>
 串也要基本法的，决赛混5张图真的懒得串，尼尼职业生涯的软脚全是关键局来最大的<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Rainwedell  
+##### 4713#       发表于 2025-5-6 08:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67783886&amp;ptid=1857369" target="_blank">ispep 发表于 2025-5-6 00:40</a>
+
+前面几个年轻人好歹出完成绩走的，寒王又熬上了</blockquote>
+major后等重组呗，皮箱看走不走了，主要是除了navi以外没有一线队伍有换狙需求，faze市面上能买到的狙除了拍拍这种没上限的也没得选。雨这么多年队友轮换下来很明显管理层就是要给一个和olof一样打到退役的公务员待遇。老猪属于俱乐部和karrigan都不知道怎么办，直接传统路径依赖抽top1明星卡了，除非鸡雨表猪这4个真有什么变态的化学反应开个时间机器回2018，不然抽得到才是见鬼了，faze到现在都没完全解决鸡雨的位置问题，老猪这种高风险打法别更难看就不错了。frozen从去faze开始就感觉不在体系里面，去年三次机会自己也干了一次，打下来也发现了这人并不是车主或者尼尼这种级别以上的建队核心组件。
+
