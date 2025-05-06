@@ -11105,3 +11105,11 @@ https://realsound.jp/tech/2025/05/post-2010584_3.html
 
 这么说来如果要交代喵安和家人分开的难民遭遇的话…用哪个画风<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  七七見奈波  
+##### 11312#       发表于 2025-5-6 14:07
+
+其实比起殖民地的她我还是更喜欢目覚めたい魂たち这种比较大气磅礴、有戏剧感和时代洪流感的风格
+
