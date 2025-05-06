@@ -14059,3 +14059,58 @@ g复国剧场版第四部是22年的，应该算是近些年的巅峰了吧<img 
 
 —— 来自 HONOR BVL-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  暗黑能乐  
+##### 11618#       发表于 2025-5-7 01:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67788073&amp;ptid=2209276" target="_blank">tomzach 发表于 2025-5-7 01:50</a>
+说起来，这一集之前完全没考虑过喵安上机的可能，总觉得她这种人只会站在一边，永远做一个旁观者那种感觉… ...</blockquote>
+从喵安的表情来看我觉得不像这种展开，如果她下机后表情还在回味会比较有可能有你说的倾向，但目前来说应该是回归冷静了
+
+—— 来自 HONOR BVL-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  岸浪白野  
+##### 11619#       发表于 2025-5-7 01:58
+
+依旧是对比
+
+<img src="https://img.stage1st.com/forum/202505/07/015830cqhg4ci3g4ykf9o3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.45 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 01:58 上传
+
+<img src="https://img.stage1st.com/forum/202505/07/015837yq2tmr7ffffm0am7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.15 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 01:58 上传
+
+*****
+
+####  Swss  
+##### 11620#       发表于 2025-5-7 02:01
+
+是不是某种意义上讲，故事完全被哈罗在推着走，你到底是谁！<img src="https://p.sda1.dev/24/992d952476ab82a13d24d28623d77c93/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ryanghj  
+##### 11621#       发表于 2025-5-7 02:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67788080&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-5-7 01:54</a>
+
+这种话其实蛮恐怖的吧，往坏了想就是“这动画啥玩意完全搞不懂啥意思”
+
+—— 来自 HONOR BVL-AN00, Androi ...</blockquote>
+鹤卷在配音的时候都是让cv配到哪就给哪里的脚本，所以他们配的时候也不知道未来是什么样的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
