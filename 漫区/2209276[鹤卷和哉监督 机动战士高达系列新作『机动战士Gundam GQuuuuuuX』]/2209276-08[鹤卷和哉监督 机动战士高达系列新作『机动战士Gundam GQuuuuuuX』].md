@@ -13656,3 +13656,123 @@ rx78-1也是被光束军刀爆头就炸了
 
 唯一小丑哈萨维，uc105被电成烤肉<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ryanghj  
+##### 11580#       发表于 2025-5-7 01:16
+
+慢放明显是想表达clan battle的高速，因为理论上clan battle只有5分钟时间（第三集说了时间长了会有警察来）
+
+*****
+
+####  Gaybird  
+##### 11581#       发表于 2025-5-7 01:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67787987&amp;ptid=2209276" target="_blank">acguy 发表于 2025-5-6 12:15</a></blockquote>
+夏利亚开的基克罗格在gqux0079部分已经有登场了，外形就是布劳·布罗一样的MA
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  ryanghj  
+##### 11582#       发表于 2025-5-7 01:19
+
+砍了大魔头部会爆炸是因为背后的推进器吧
+
+*****
+
+####  暗黑能乐  
+##### 11583#       发表于 2025-5-7 01:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67787990&amp;ptid=2209276" target="_blank">hsyg 发表于 2025-5-7 01:15</a>
+能路过就一眼看出来难民，只能认为是肤色问题了。那肯定不是假id能简单过关的。 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">一般冷静处理是id卡先看，能混过去就不惹事，还怀疑再开搞。喵安已经给了个冷静手势了，感觉玛秋确实是有点“觉得自己很能”的状态，才会去踢这一脚，试图证明自己的叛逆，证明自己有能力保护其他人，有能力掌握周围的事
+
+—— 来自 HONOR BVL-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  暗黑能乐  
+##### 11584#       发表于 2025-5-7 01:22
+
+ 本帖最后由 暗黑能乐 于 2025-5-7 01:23 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">基西莉亚不会是亲临side6试图调解，然后被基连的人直接暗杀了吧。总不能和w一样主角怒劈飞机了吧
+
+—— 来自 HONOR BVL-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  UnrealApartheid  
+##### 11585#       发表于 2025-5-7 01:23
+
+ 本帖最后由 UnrealApartheid 于 2025-5-7 01:24 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67787836&amp;ptid=2209276" target="_blank">液体显微隧道 发表于 2025-5-7 00:38</a>
+—— 来自 鹅球 v3.5.99-alpha</blockquote>
+我自己也整了个活，但是用的是第一季久美子喃喃自语“我要做得更好”的场景……
+
+https://www.bilibili.com/video/BV1bCVszTEvb/
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  chondroitin  
+##### 11586#       发表于 2025-5-7 01:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67787992&amp;ptid=2209276" target="_blank">真爱与热情 发表于 2025-5-7 01:16</a>
+
+唯一小丑哈萨维，uc105被电成烤肉</blockquote>
+哈萨维的电强度不一样吧，机子都电坏了驾驶员反而没死。
+
+不过面对黑色两连星强力殴打，战损都没有是真的离谱，真实感骤减，虽说也是因为gqx没有uc高达通常标配并且重点描写的靠谱后勤吧。
+
+*****
+
+####  YU_JI  
+##### 11587#       发表于 2025-5-7 01:23
+
+现在有立场暗杀紫婆的只有汤大基和联邦侧了吧，夏利亚总没理由现在揭竿动手，之前强调了扎比内战，那八成就是汤大基干的了
+
+*****
+
+####  Sliurus  
+##### 11588#       发表于 2025-5-7 01:24
+
+<blockquote>暗黑能乐 发表于 2025-5-7 01:19
+一般冷静处理是id卡先看，能混过去就不惹事，还怀疑再开搞。喵安已经给了个冷静手势了，感觉玛秋确实是有 ...</blockquote>
+玛秋就是叛逆期啦，想变得特立独行，前面顺风顺水所以行为越来越大胆，然后这两集给个当头一棒
+
+*****
+
+####  岸浪白野  
+##### 11589#       发表于 2025-5-7 01:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67787987&amp;ptid=2209276" target="_blank">acguy 发表于 2025-5-7 01:15</a></blockquote>
+这个几个月前就知道了............79动画夏利亚的MA改成这名字就是制作组看了设定故意改的
+
+<img src="https://img.stage1st.com/forum/202505/07/012326f21zz2z07cyeqd52.png" referrerpolicy="no-referrer">
+
+<strong>K9UYX$U46K`}PPI1YL]_D05.png</strong> (523.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 01:23 上传
+
+*****
+
+####  ftyaid  
+##### 11590#       发表于 2025-5-7 01:24
+
+紫色老太婆是火箭筒爆头还是穿梭机爆炸呢，真是期待
+
+*****
+
+####  Delicatus545  
+##### 11591#       发表于 2025-5-7 01:25
+
+这不又是反派死于话多和我寻思之力，随便打打得了，多拍点美少女(男)小心思争风吃醋好了
+

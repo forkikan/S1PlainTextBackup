@@ -1807,3 +1807,11 @@ aiko的大部分歌好像都这样
 
 当然最有意思的还是给八千代灌酒的那段。
 
+
+*****
+
+####  Yinacona  
+##### 170#       发表于 2025-5-7 01:18
+
+<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">op原来就是这么编成的吗？我以为和10多年前那种养成系op一样越来越好最后会有一个正经版。但确实到第二集时已经很顺耳了（
+
