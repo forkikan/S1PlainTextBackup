@@ -12523,3 +12523,14 @@ ex降低攻击力聊胜于无，高闪避率的援护防御体现在永恒之路
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 1172#       发表于 2025-5-7 04:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67787901&amp;ptid=2071758" target="_blank">一个陆仁贾 发表于 2025-5-7 00:56</a>
+
+ex降低攻击力聊胜于无，高闪避率的援护防御体现在永恒之路以外的副本，如果有高达nt那个ur机师，可以给他 ...</blockquote>
+面对高伤BOSS减攻就很有用了
+
