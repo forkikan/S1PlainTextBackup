@@ -11382,3 +11382,29 @@ GQ集数标题风格生成
 
 2025-5-6 17:57 上传
 
+
+*****
+
+####  岸浪白野  
+##### 11339#       发表于 2025-5-6 18:21
+
+ 本帖最后由 岸浪白野 于 2025-5-6 18:24 编辑 
+
+[X 上的 竹：“💐 #GQuuuuuuX #ジークアクス](https://x.com/_take_oekaki/status/1919698684880814419)[https://t.co/VVed9acCRd](https://t.co/VVed9acCRd)” / X
+
+<img src="https://img.stage1st.com/forum/202505/06/182358mwlhen68heeleepe.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (20.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-6 18:23 上传
+
+<img src="https://img.stage1st.com/forum/202505/06/182055bh9tyyyh17ttht9n.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.18 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-6 18:20 上传
+
