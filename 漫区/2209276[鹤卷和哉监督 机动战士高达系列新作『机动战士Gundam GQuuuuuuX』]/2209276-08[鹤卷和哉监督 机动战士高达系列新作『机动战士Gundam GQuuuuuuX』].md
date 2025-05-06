@@ -14527,3 +14527,62 @@ khara这三渲二问题太明显了，动作僵硬没有大张力的运镜和透
 🍅
 反应过来了，番茄顶上是绿色的，没毛病<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  爱撕衣魔刃  
+##### 11660#       发表于 2025-5-7 03:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67788147&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-7 03:17</a>
+
+玛秋的内衣从第一话的运动内衣变成了普通内衣，暗示一种心境变化
+
+玛秋对修司的感情应该不仅限于憧憬了，而 ...</blockquote>
+这土味内衣还不如泳衣吸引异性<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  战术核辣条  
+##### 11661#       发表于 2025-5-7 03:59
+
+ω赛克缪越写越邪乎，直奔iden去了
+不让首席开机应该是首席上不了套
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  xwz  
+##### 11662#       发表于 2025-5-7 04:16
+
+说起来，麻球那个身体素质还真是强，那么窄的栏杆都敢直接上去走……
+
+这回斧头也弄丢了，虽然从红高达那边薅了把光剑回来但是应该也都没有别的武器了吧？
+
+总不至于等下次麻球上机之后只能开始流派·东方不败了？
+
+*****
+
+####  盐盐盐盐盐  
+##### 11663#       发表于 2025-5-7 04:25
+
+下集应该是纯文戏回了，预告没有ms战，再往后计划有变红高暴露总该和索顿联系了吧
+
+*****
+
+####  xwz  
+##### 11664#       发表于 2025-5-7 04:52
+
+🍅
+反应过来了，番茄顶上是绿色的，没毛病<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  concert  
+##### 11665#       发表于 2025-5-7 05:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67788125&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-7 02:31</a></blockquote>
+影法师都画同人了
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
