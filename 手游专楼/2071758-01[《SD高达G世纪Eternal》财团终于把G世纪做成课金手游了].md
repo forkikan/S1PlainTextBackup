@@ -12334,3 +12334,14 @@ z高达2台</blockquote>
 你既然想要风灵就选风灵，反正只要一直玩下去，支援类BUFF总是能在开发里做齐的 ...</blockquote>
 现在自选抽都流行刷出S高达和预订范围内的目标机体了
 
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 1155#       发表于 2025-5-6 08:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67781555&amp;ptid=2071758" target="_blank">nagamasa 发表于 2025-5-5 07:15</a>
+
+如果你是这俩里选那我推荐风灵，风灵ex武装射程5，也有减光束的副武装，攻击力还高那么一丢丢；自由ex射 ...</blockquote>
+如果是站桩走位，自由的MAP不被反击也是优势
+
