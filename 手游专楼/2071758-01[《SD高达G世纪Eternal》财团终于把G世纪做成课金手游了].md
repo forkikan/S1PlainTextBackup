@@ -12467,3 +12467,11 @@ AP补给包优惠代码：TSYMCET
 
 我竟然有这台白色高达GQ，也不知道啥时候抽到的完全没用过……
 
+
+*****
+
+####  windtrack  
+##### 1167#       发表于 2025-5-7 00:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">还能送人的，下一集该送喵安了吧
+

@@ -11829,3 +11829,408 @@ op里跑步的果然是6个nt啊<img src="https://static.stage1st.com/image/smil
 
 这就是最新最in的女女关系性！
 
+
+*****
+
+####  a85982313  
+##### 11386#       发表于 2025-5-6 23:56
+
+战斗就这样了，别抱期待了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  风夏  
+##### 11387#       发表于 2025-5-6 23:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看笑了
+
+*****
+
+####  希望之异热同心  
+##### 11388#       发表于 2025-5-6 23:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">果然是小番茄继续受挫的走向啊，接下来就该触底反弹了吧
+
+*****
+
+####  huanzhi  
+##### 11389#       发表于 2025-5-6 23:56
+
+有牛啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  fmban  
+##### 11390#       发表于 2025-5-6 23:56
+
+这战斗无力吐槽<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，总是搞时停慢动作不说，背景也换成kirakira的颜色真的很出戏
+
+*****
+
+####  游蜓  
+##### 11391#       发表于 2025-5-6 23:56
+
+有牛啊！
+
+番茄看破防笑死了
+
+怎么喵安比番茄还疯，地雷女是吧
+
+*****
+
+####  奇幻梦境  
+##### 11392#       发表于 2025-5-6 23:57
+
+战斗是有点搞笑 但是剧情很乐
+
+*****
+
+####  suzakushi  
+##### 11393#       发表于 2025-5-6 23:57
+
+无语了，每集的战斗看着都是折磨。
+
+*****
+
+####  YU_JI  
+##### 11394#       发表于 2025-5-6 23:57
+
+我超，下一集老太婆
+
+*****
+
+####  斯卡文分则能成  
+##### 11395#       发表于 2025-5-6 23:57
+
+明明是我先来的<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  暗黑能乐  
+##### 11396#       发表于 2025-5-6 23:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">暗杀基西莉亚？尊嘟假嘟
+
+*****
+
+####  Ferrari  
+##### 11397#       发表于 2025-5-6 23:57
+
+女二成反派确率大涨啊<img src="https://static.stage1st.com/image/smiley/animal2017/029.png" referrerpolicy="no-referrer">
+
+*****
+
+####  acg_gyanc  
+##### 11398#       发表于 2025-5-6 23:57
+
+基西莉亚暗杀计划？
+
+*****
+
+####  新HGCG  
+##### 11399#       发表于 2025-5-6 23:57
+
+“明明是我先！”
+
+*****
+
+####  秋月孝三  
+##### 11400#       发表于 2025-5-6 23:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要暗杀紫色老太婆了
+
+
+*****
+
+####  oi99o  
+##### 11401#       发表于 2025-5-6 23:58
+
+预告的台词和画面跟下集标题完全无关<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  民工业  
+##### 11402#       发表于 2025-5-6 23:58
+
+草，暗杀基西利亚<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  花達香奈  
+##### 11403#       发表于 2025-5-6 23:58
+
+紫婆还是逃不掉火箭筒爆头吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  伊露伊道格拉斯  
+##### 11404#       发表于 2025-5-6 23:58
+
+夸克斯：溜冰吗，纯纯的冰块。
+
+首席因为太过正常，无法进入溜冰模式，被夸克斯拒绝了
+
+*****
+
+####  ryanghj  
+##### 11405#       发表于 2025-5-6 23:58
+
+下集不会救了老太婆然后顺利上舰吧？
+
+*****
+
+####  gammatau  
+##### 11406#       发表于 2025-5-6 23:58
+
+年轻人，别冲动啊（串台
+
+*****
+
+####  齿轮轴君  
+##### 11407#       发表于 2025-5-6 23:59
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这集有点搞，喵安化身最终boss可能性**提升
+
+*****
+
+####  岸浪白野  
+##### 11408#       发表于 2025-5-6 23:59
+
+暗杀紫婆
+
+<img src="https://img.stage1st.com/forum/202505/06/235906cd41uu1bp599vf2i.jpg" referrerpolicy="no-referrer">
+
+<strong>}~(SC9GDAG($X@ZLX}S1E1Y_tmb.jpg</strong> (46.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-6 23:59 上传
+
+*****
+
+####  洛亚替身  
+##### 11409#       发表于 2025-5-6 23:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67787603&amp;ptid=2209276" target="_blank">秋月孝三 发表于 2025-5-6 23:57</a>
+
+(大概是汤大基)要暗杀紫色老太婆了</blockquote>
+我这魔女那集还没看，准备留两集一起看......这集搞这么大活？<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  千千千千鸟  
+##### 11410#       发表于 2025-5-6 23:59
+
+全是慢动作，反色、kirakira的战斗画面。。
+
+*****
+
+####  Gysumitka  
+##### 11411#       发表于 2025-5-6 23:59
+
+神人回，ntr看笑了
+
+*****
+
+####  whzfjd  
+##### 11412#       发表于 2025-5-6 23:59
+
+可以的，剧本是真不怂
+
+战斗我看似乎是在模仿0079？
+
+*****
+
+####  没取名啊  
+##### 11413#       发表于 2025-5-6 23:59
+
+老逼们，单拍个79if让人以为老UC要素到此为止，结果后面全是致敬，把新观众骗进来杀<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Devola  
+##### 11414#       发表于 2025-5-6 23:59
+
+nt原来是负责搞笑的
+
+这就是新时代的nt吗
+
+这集的新大魔值回票价
+
+*****
+
+####  暗黑能乐  
+##### 11415#       发表于 2025-5-7 00:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">喵安这到底算不算有里人格，感觉反差有点大得离谱
+
+*****
+
+####  YU_JI  
+##### 11416#       发表于 2025-5-7 00:00
+
+虽然不想这么说，但是这集烂片雷达真有点响了
+
+*****
+
+####  hulaoda007  
+##### 11417#       发表于 2025-5-7 00:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你这一集uc味一集少女漫味的故事我也很为难的啊。
+
+
+*****
+
+####  gammatau  
+##### 11418#       发表于 2025-5-7 00:00
+
+仔细想想上一个如此直白地用上机暗示X行为的还是国家队吧（排除创圣
+
+*****
+
+####  型月神话伊阿宋  
+##### 11419#       发表于 2025-5-7 00:00
+
+剧情暴走中
+
+*****
+
+####  a85982313  
+##### 11420#       发表于 2025-5-7 00:00
+
+什么时候致不共戴天的你
+
+<img src="https://img.stage1st.com/forum/202505/07/000022bomujuemvj2uj1x2.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (613.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 00:00 上传
+
+*****
+
+####  ryanghj  
+##### 11421#       发表于 2025-5-7 00:01
+
+下集预告喵安说了一急就会性格大变
+
+*****
+
+####  jaewoongh_  
+##### 11422#       发表于 2025-5-7 00:02
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卧槽，新高达每集都爆，这还不是优秀原创吗
+
+*****
+
+####  cayon  
+##### 11423#       发表于 2025-5-7 00:02
+
+爱猫tv爱出事了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  新HGCG  
+##### 11424#       发表于 2025-5-7 00:02
+
+番茄是狂犬
+
+喵是狂野犬
+
+*****
+
+####  猪突猛进R  
+##### 11425#       发表于 2025-5-7 00:02
+
+<img src="https://img.stage1st.com/forum/202505/07/000234awwfm90dbba0y1z4.png" referrerpolicy="no-referrer">
+
+<strong>-9lddQ1a9-63ptXsT3cS1n6-yg.png</strong> (128.65 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 00:02 上传
+
+*****
+
+####  未来起航  
+##### 11426#       发表于 2025-5-7 00:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67787580&amp;ptid=2209276" target="_blank">woui003woui 发表于 2025-5-6 23:55</a>
+我真有点担心麻球的塑造了明明才第五集为什么开始焦虑了</blockquote>
+其实相当合理吧。麻球主打的就是一个日常过得人都要烂掉，想闹点大动静但连个搞事的理由都找不着。
+蓝毛是有难民受压迫这一茬，理由充分得很；麻球这就经典我们新自由主义是这样的.jpg没有压迫的威权就没有反抗的目标，你日子过得差了连泄愤都不知道找谁泄
+
+—— 来自 Xiaomi 23116PN5BC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  ryanghj  
+##### 11427#       发表于 2025-5-7 00:02
+
+不得不说もうどうなってもいいや这ED确实配的好啊，这几集下来每次到结尾都是让人摸不着头脑的走向
+
+*****
+
+####  秋月孝三  
+##### 11428#       发表于 2025-5-7 00:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67787616&amp;ptid=2209276" target="_blank">洛亚替身 发表于 2025-5-6 23:59</a>
+我这魔女那集还没看，准备留两集一起看......这集搞这么大活？</blockquote>
+是下集预告<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  二阶堂真琉  
+##### 11429#       发表于 2025-5-7 00:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">乐疯了这集
+
+*****
+
+####  巨馍蘸酱  
+##### 11430#       发表于 2025-5-7 00:03
+
+这集下来看不懂喵安这个角色的定位了，之前还以为她是正常人
+
+*****
+
+####  游蜓  
+##### 11431#       发表于 2025-5-7 00:04
+
+首席哥：我常常因为过于正常感到与你们格格不入
+
+*****
+
+####  王留美  
+##### 11432#       发表于 2025-5-7 00:04
+
+拉拉呀，怎么可以这么劲的？ 
+
+*****
+
+####  PascalLefèvre  
+##### 11433#       发表于 2025-5-7 00:04
+
+太可怕了hjgg
+
+*****
+
+####  Concrete  
+##### 11434#       发表于 2025-5-7 00:05
+
+访谈一开始就说了，喵安会是个反差大到难以想象的人物
+
+*****
+
+####  Gandalf  
+##### 11435#       发表于 2025-5-7 00:05
+
+句句不离蝈蝈之《这集为什么让我想起了蝈蝈的肥仔呢》
+
