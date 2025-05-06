@@ -1783,3 +1783,13 @@ b站热搜挂了一晚上了可惜看来真推不出去<img src="https://static.
 有没有比较了解日本音乐的，给我讲讲这个番它的op歌到底是怎么回事儿，我是头一次见到这么诡异的op，这个歌 ...</blockquote>
 aiko的大部分歌好像都这样
 
+
+*****
+
+####  KDConan  
+##### 168#       发表于 2025-5-6 18:52
+
+啊？不是因为女主是机器人所以故意唱跑调的吗<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

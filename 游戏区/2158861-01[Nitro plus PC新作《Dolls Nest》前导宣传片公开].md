@@ -2253,3 +2253,14 @@ baldr系列那种本来就是act的除外
 
 <img src="https://static.stage1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">好大
 
+
+*****
+
+####  oidoid  
+##### 206#       发表于 2025-5-6 18:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67786425&amp;ptid=2158861" target="_blank">madcow 发表于 2025-5-6 18:32</a>
+
+好大</blockquote>
+这只是用MOD把玩家模型放大了搞出来的截图吧，毕竟不是四手
+
