@@ -935,3 +935,15 @@ vtuber当然不可能流汗，就好像vtuber不会哭那样，这自然是被�
 
 将普男普女包装成偶像本就逆天行道，久了露馅了就不想给普男普女消费了，但如果最开始就只是为了流行，那后面这些事根本不重要，这也是为什么我说持续性发展的本质在不依靠中之人的素质能力
 
+
+*****
+
+####  karastar  
+##### 1117#       发表于 2025-5-7 07:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67788016&amp;ptid=2171972" target="_blank">poipanchao 发表于 2025-5-7 01:23</a>
+杏最近这毕业潮搞得大家伙儿都有方向性转变PTSD了，今天beni都把方向性拿来当梗玩了下
+
+主要是虹杏在转型路 ...</blockquote>
+杏哪来的转型，20年以后都是偶像化路线了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
