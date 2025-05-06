@@ -92,3 +92,13 @@
 
 [https://x.com/AkaneY_banu/status/1919705343820759095](https://x.com/AkaneY_banu/status/1919705343820759095)
 
+
+*****
+
+####  画画的北北  
+##### 40797#       发表于 2025-5-6 21:34
+
+补mygo 第7集了，这剧情太颠了吧，唐氏 超雄 舔狗  自闭 夜猫，还有个蓝色魅魔，
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
