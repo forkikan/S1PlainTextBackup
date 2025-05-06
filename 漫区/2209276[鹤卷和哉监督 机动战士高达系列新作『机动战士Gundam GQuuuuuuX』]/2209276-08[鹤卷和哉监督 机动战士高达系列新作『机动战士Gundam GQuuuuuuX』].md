@@ -11166,3 +11166,69 @@ https://realsound.jp/tech/2025/05/post-2010584_3.html
 
 毕竟格鲁古古自己那个造型就很神奇了。
 
+
+*****
+
+####  ryanghj  
+##### 11317#       发表于 2025-5-6 16:47
+
+玛秋第一集上机的确是朴素正义感在驱使，但是第三集开始就是纯纯为了kirakira了
+
+kirakira让玛秋觉得自己无所不能，所谓的欣快感，这效果妥妥的冰啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  暗黑能乐  
+##### 11318#       发表于 2025-5-6 16:47
+
+嗯？殖民地的她偷跑了啊
+
+
+*****
+
+####  千恋万花  
+##### 11319#       发表于 2025-5-6 16:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67786006&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-5-6 16:47</a>
+
+嗯？殖民地的她偷跑了啊</blockquote>
+剧场版里的 4 首 BGM 在上映后不久（ 1 月 22 日）就上线了流媒体 <blockquote>01. 目覚めたい魂たち (I_004) / 照井順政
+
+02. クランバトル (I_011) / 蓮尾理之
+
+03. 秘密 (I_017) / 照井順政
+
+04. コロニーの彼女 (I_006A) / 照井順政</blockquote>
+
+*****
+
+####  暗黑能乐  
+##### 11320#       发表于 2025-5-6 16:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67786021&amp;ptid=2209276" target="_blank">千恋万花 发表于 2025-5-6 16:50</a>
+
+剧场版里的 4 首 BGM 在上映后不久（ 1 月 22 日）就上线了流媒体</blockquote>
+人声版的
+
+
+*****
+
+####  Gysumitka  
+##### 11321#       发表于 2025-5-6 16:52
+
+高达GQuuuuuuX 新插曲 人声版『コロニーの彼女/殖民地的她』试听 https://b23.tv/PopNZ0h
+
+填词版偷跑，不过配上人声变普通了
+
+*****
+
+####  千恋万花  
+##### 11322#       发表于 2025-5-6 16:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67786026&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-5-6 16:51</a>
+
+人声版的</blockquote>
+哦，这个的话部分区的流媒体会提前上（好像是时差问题）
+
