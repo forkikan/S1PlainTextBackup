@@ -14319,3 +14319,50 @@ Ps麻球最后雨里奔跑的镜头我怎么感觉像没穿胖次一样（）
 
 你为什么这么惨呢 对黑泽一提到首席哥就笑逐渐感同身受<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ryanghj  
+##### 11641#       发表于 2025-5-7 02:47
+
+说起来巨人主角团是两男一女，gqux是两女一男
+
+<img src="https://img.stage1st.com/forum/202505/07/024629zyleqduu3a5yu335.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (274.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 02:46 上传
+
+*****
+
+####  普通哈尼  
+##### 11642#       发表于 2025-5-7 02:48
+
+结尾笑死我了，像玛秋跟喵安这样的好姐妹这辈子都不会再有了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  西洛克  
+##### 11643#       发表于 2025-5-7 02:50
+
+三连星另一个混得不错啊，现实世界有普通兵痞几年混到市长的例子吗
+
+
+*****
+
+####  oi99o  
+##### 11644#       发表于 2025-5-7 02:52
+
+哦对，首席哥喵安兄妹假药也破产了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  桜庭ななみ  
+##### 11645#       发表于 2025-5-7 02:55
+
+大魔背后这三角推进器太帅了吧赶紧出模型。
+
+khara这三渲二问题太明显了，动作僵硬没有大张力的运镜和透视感，这个EVA的时候就很明显了手绘部分的镜头就是比3D转制的要灵动，不知道是为了省钱还是技术不行。
+
