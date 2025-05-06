@@ -11232,3 +11232,25 @@ kirakira让玛秋觉得自己无所不能，所谓的欣快感，这效果妥妥
 人声版的</blockquote>
 哦，这个的话部分区的流媒体会提前上（好像是时差问题）
 
+
+*****
+
+####  windlikeman  
+##### 11323#       发表于 2025-5-6 16:56
+
+有个问题 修司是不是没有直接画过驾驶舱里驾驶画面？
+
+印象中都是直接聊天室背景飘着一个人直接做出和红高一样的回避动作
+
+*****
+
+####  暗黑能乐  
+##### 11324#       发表于 2025-5-6 16:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67786040&amp;ptid=2209276" target="_blank">windlikeman 发表于 2025-5-6 16:56</a>
+
+有个问题 修司是不是没有直接画过驾驶舱里驾驶画面？
+
+印象中都是直接聊天室背景飘着一个人直接做出和红高一 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">和魔女打很被动的时候有画面，后面闪现没画面
+
