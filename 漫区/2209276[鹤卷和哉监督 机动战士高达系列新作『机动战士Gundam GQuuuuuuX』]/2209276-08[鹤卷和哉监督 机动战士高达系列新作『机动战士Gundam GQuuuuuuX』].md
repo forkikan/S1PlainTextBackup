@@ -14961,3 +14961,48 @@ SSSS没什么不好，除开少女乐队番外是近年来泥潭最受欢迎的�
 
 番茄头和喵安说不定都是普通人类，只有哈罗是NT<img src="https://static.stage1st.com/image/smiley/carton2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暗黑能乐  
+##### 11703#       发表于 2025-5-7 09:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67788385&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-5-7 09:00</a>
+
+看过白箱都应该知道，动画制作流程不一定是按顺序的。有时某话进度快或者剧本先写好就会先配音，有时还会 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只是想说，声优就是会说些八面玲珑的话而已，如果后面表现好，他的话就是“故事确实有深度等待每个人挖掘”，后面拉了，就是“我早说了我也没看懂，还不够委婉吗”
+
+*****
+
+####  暗黑能乐  
+##### 11704#       发表于 2025-5-7 09:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67788402&amp;ptid=2209276" target="_blank">Geyorkias 发表于 2025-5-7 09:04</a>
+
+小姑娘下手没轻没重不讲武德啊，黑二招招对着砍头就赢了去的，你直接竖劈取人性命 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">额，火箭筒打头那个爆炸可不好说不会死人，实弹武器而且距离太近
+
+
+*****
+
+####  岸浪白野  
+##### 11705#       发表于 2025-5-7 09:51
+
+加多的路人挺好的
+
+<img src="https://img.stage1st.com/forum/202505/07/095015idxgp2pczzgpziqi.png" referrerpolicy="no-referrer">
+
+<strong>{RKN9TH}AZ6%MM8MSY[})V0.png</strong> (181.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 09:50 上传
+
+<img src="https://img.stage1st.com/forum/202505/07/094959p2h42rv1k2recllv.png" referrerpolicy="no-referrer">
+
+<strong>RP4AT{IOT{WXHCBXDE0{{72.png</strong> (700.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 09:49 上传
+
