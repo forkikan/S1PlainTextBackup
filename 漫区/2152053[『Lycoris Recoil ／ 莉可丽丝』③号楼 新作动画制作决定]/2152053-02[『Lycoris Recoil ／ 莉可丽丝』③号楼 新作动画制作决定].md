@@ -1350,3 +1350,11 @@ https://x.com/imigimuru/status/1918986168965738731
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我还以为胡桃已经永远离开大家了
 
+
+*****
+
+####  Saber琪  
+##### 2288#       发表于 2025-5-7 21:12
+
+想知道最后众人尖叫tkn叫了没<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">yysytkn这叫声跟我想象中不一样，可能莫缇斯的叫声听多了
+
