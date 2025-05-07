@@ -14825,3 +14825,41 @@ SSSS没什么不好，除开少女乐队番外是近年来泥潭最受欢迎的�
 
 这集的打戏没有上一集奇奇怪怪的瞬移，观感和逻辑都要更流畅，主要还是太喜欢用慢动作了，一套交锋被慢动作拉的很长，缺少一种爽快感
 
+
+*****
+
+####  岸浪白野  
+##### 11691#       发表于 2025-5-7 09:04
+
+[X 上的 ガンダムフィギュア／魂ネイションズ公式：“✨　COMING SOON　✨ 　　キラキラだ……！ #GQuuuuuuX #ジークアクス #ガンダムフィギュア #t_shf #マチュ](https://x.com/gundam_tamashii/status/1919920163488768262)[https://t.co/bp7kmbljPs](https://t.co/bp7kmbljPs)” / X
+
+<img src="https://img.stage1st.com/forum/202505/07/090432jhfgg9t3io4fof79.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.3 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 09:04 上传
+
+*****
+
+####  Geyorkias  
+##### 11692#       发表于 2025-5-7 09:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小姑娘下手没轻没重不讲武德啊，黑二招招对着砍头就赢了去的，你直接竖劈取人性命
+
+
+*****
+
+####  風卷豹  
+##### 11693#       发表于 2025-5-7 09:11
+
+这集上来二连星宛如报菜名般的死亡FALG连发看笑了，新时代高达搞这么土的发言真的好吗<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  闭挂锁人  
+##### 11694#       发表于 2025-5-7 09:13
+
+这下nt真的杀人太多了，不管新时代的还是老时代的<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
