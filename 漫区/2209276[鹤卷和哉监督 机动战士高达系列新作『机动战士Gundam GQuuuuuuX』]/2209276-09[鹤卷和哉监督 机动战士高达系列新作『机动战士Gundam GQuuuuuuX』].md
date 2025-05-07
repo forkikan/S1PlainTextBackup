@@ -221,3 +221,19 @@
 不知道鹤卷准备怎么写麻球，现在看她的整个状态还在非常轻浮的阶段，接连不断的情绪刺激很可能导向一鼓作气 ...</blockquote>
 这不就是Z开篇卡缪的状态吗，拳打提坦斯**——我会开高达！牛逼坏了——父母双亡
 
+
+*****
+
+####  暗黑能乐  
+##### 11862#       发表于 2025-5-7 15:59
+
+<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">卡缪好歹像个愤青，麻球啥都不懂
+
+
+*****
+
+####  Lawliet.L  
+##### 11863#       发表于 2025-5-7 16:05
+
+不是说更像葵丝<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
