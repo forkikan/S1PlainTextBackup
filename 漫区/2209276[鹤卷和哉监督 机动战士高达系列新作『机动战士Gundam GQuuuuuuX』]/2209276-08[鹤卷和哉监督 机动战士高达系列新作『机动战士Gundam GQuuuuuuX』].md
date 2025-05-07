@@ -14863,3 +14863,23 @@ SSSS没什么不好，除开少女乐队番外是近年来泥潭最受欢迎的�
 
 这下nt真的杀人太多了，不管新时代的还是老时代的<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  丹德里恩  
+##### 11695#       发表于 2025-5-7 09:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67788402&amp;ptid=2209276" target="_blank">Geyorkias 发表于 2025-5-7 09:04</a>
+
+小姑娘下手没轻没重不讲武德啊，黑二招招对着砍头就赢了去的，你直接竖劈取人性命 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那你要这么说，二连星前面不装逼打连续拳早就赢了
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 11696#       发表于 2025-5-7 09:18
+
+奖金是平分的还是让小番茄管着？
+
+明明是修司提出要买船，却是小番茄实行，小白脸的观感。
+
