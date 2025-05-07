@@ -12534,3 +12534,14 @@ ex降低攻击力聊胜于无，高闪避率的援护防御体现在永恒之路
 ex降低攻击力聊胜于无，高闪避率的援护防御体现在永恒之路以外的副本，如果有高达nt那个ur机师，可以给他 ...</blockquote>
 面对高伤BOSS减攻就很有用了
 
+
+*****
+
+####  凤凰院天豪  
+##### 1173#       发表于 2025-5-7 08:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67787901&amp;ptid=2071758" target="_blank">一个陆仁贾 发表于 2025-5-7 00:56</a>
+
+ex降低攻击力聊胜于无，高闪避率的援护防御体现在永恒之路以外的副本，如果有高达nt那个ur机师，可以给他 ...</blockquote>
+ex2的主流玩法就是减攻让exia硬吃一刀
+
