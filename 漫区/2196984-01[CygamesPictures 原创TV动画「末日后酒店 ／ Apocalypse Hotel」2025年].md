@@ -1862,3 +1862,13 @@ aiko的大部分歌好像都这样
 op原来就是这么编成的吗？我以为和10多年前那种养成系op一样越来越好最后会有一个正经版。但确实到第二集时 ...</blockquote>
 看b站评论区说OP也不是专门为了动画做的，让监督自己挑了一首。ED才是专门做给动画的？
 
+
+*****
+
+####  KDConan  
+##### 175#       发表于 2025-5-7 07:52
+
+已经在银河间有口碑了啊<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
