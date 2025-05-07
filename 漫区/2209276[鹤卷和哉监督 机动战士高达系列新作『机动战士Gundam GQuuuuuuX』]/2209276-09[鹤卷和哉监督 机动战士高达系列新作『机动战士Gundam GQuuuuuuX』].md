@@ -656,3 +656,25 @@
 
 如果预计1集1个6,7集就能把2个也出了，7集有声优视听肯定重要<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mengsu  
+##### 11900#       发表于 2025-5-7 18:34
+
+新大魔的机设真棒，这个机设完全覆盖掉旧版也没问题。
+
+上一话捅驾驶舱就全机殉爆还可以解释为试验机体有自爆装置，这次三连星就被砍了个头怎么也殉爆了？
+
+*****
+
+####  昆古尼尔  
+##### 11901#       发表于 2025-5-7 18:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67789323&amp;ptid=2209276" target="_blank">璇瑢子R 发表于 2025-5-7 12:38</a>
+
+基西利亚没有专机吗？
+
+还要坐经济舱？</blockquote>
+基克罗格这部里不知道会是啥样的设计
+
