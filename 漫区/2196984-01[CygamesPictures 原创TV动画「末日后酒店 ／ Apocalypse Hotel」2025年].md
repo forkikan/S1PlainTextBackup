@@ -1935,3 +1935,13 @@ aiko是宇多田光和滨崎步那代的有名歌手，新生代的歌手比如�
 
 只能说是风格了——当然我不懂音乐
 
+
+*****
+
+####  KDConan  
+##### 181#       发表于 2025-5-7 12:32
+
+这片的时间概念类似于一个科幻版的芙莉莲，只不过从辛逝纪变为人离纪<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

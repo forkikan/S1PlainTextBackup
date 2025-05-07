@@ -16093,3 +16093,81 @@ a part洗战斗服的时候特殊的麻球站栏杆上走，喵安普通走，�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  王留美  
+##### 11796#       发表于 2025-5-7 12:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67788402&amp;ptid=2209276" target="_blank">Geyorkias 发表于 2025-5-7 09:04</a>
+ 小姑娘下手没轻没重不讲武德啊，黑二招招对着砍头就赢了去的，你直接竖劈取人性命 ...</blockquote>
+NGA看到的一个说法是喵安进kirakira以后已经是没有用眼睛而是纯粹用NT的感觉去feeling了，对她来说战斗的对象不是具体的MS而是对面的恶意，而对面的恶意的原点就是驾驶舱里面的那个人
+
+我觉得很有道理
+
+*****
+
+####  岸浪白野  
+##### 11797#       发表于 2025-5-7 12:26
+
+力克大魔依然是由射尾卓弥负责，按照鹤卷要求
+
+<img src="https://img.stage1st.com/forum/202505/07/122450pdfgc0c8oczmfufc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (169.53 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 12:24 上传
+
+*****
+
+####  ryanghj  
+##### 11798#       发表于 2025-5-7 12:28
+
+另外喵安的kirakira没有拉拉音，应该也是刻意的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  岸浪白野  
+##### 11799#       发表于 2025-5-7 12:28
+
+本来就是第1集命运的相遇之前就不难猜，修司闻头发也是以前就说过
+
+
+*****
+
+####  ardente  
+##### 11800#       发表于 2025-5-7 12:30
+
+黑三正史11月上旬就死了，夏亚10月接触高达对他们原有功绩地位没影响
+
+而且这事关键在哪，这哥三教导机动大队出身，战时是基西莉亚直属，根正苗红的基西莉亚派
+
+亲兵都要放野，突击机动军现在跟谁姓啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  moondigi  
+##### 11801#       发表于 2025-5-7 12:32
+
+<img src="https://img.stage1st.com/forum/202505/07/123130ghnd3lfwy8d50vn0.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (37.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 12:31 上传
+
+*****
+
+####  lucasxp  
+##### 11802#       发表于 2025-5-7 12:33
+
+内衣和泳衣是不一样的啊，和泳衣
+
+不是一般的痴女了已经是
+
