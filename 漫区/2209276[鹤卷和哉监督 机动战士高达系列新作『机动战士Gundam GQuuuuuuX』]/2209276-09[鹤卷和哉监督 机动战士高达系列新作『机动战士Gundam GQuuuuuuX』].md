@@ -885,3 +885,19 @@
 
 既然机体都在炒79冷饭，最终boss机一定就是<img src="https://static.stage1st.com/image/smiley/bundam2017/002.png" referrerpolicy="no-referrer">了
 
+
+*****
+
+####  ryanghj  
+##### 11920#       发表于 2025-5-7 20:24
+
+池田秀一的昵称就是秀酱（秀ちゃん＝シュウちゃん），果然修司对应的是秀二吧
+
+<img src="https://img.stage1st.com/forum/202505/07/202423zckceuj0k0z37krt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (37.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 20:24 上传
+

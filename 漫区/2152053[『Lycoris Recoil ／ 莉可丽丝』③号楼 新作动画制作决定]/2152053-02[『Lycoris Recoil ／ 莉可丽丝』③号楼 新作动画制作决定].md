@@ -1324,3 +1324,29 @@ https://x.com/imigimuru/status/1918986168965738731
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泷奈用的是实弹吗
 
+
+*****
+
+####  灼眼的夏娜酱  
+##### 2285#       发表于 2025-5-7 20:16
+
+中间几个镜头还挺有恐怖片的感觉<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qz66618  
+##### 2286#       发表于 2025-5-7 20:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67790699&amp;ptid=2152053" target="_blank">osore 发表于 2025-5-7 20:15</a>
+泷奈用的是实弹吗</blockquote>
+肯定实弹啊，只能说千束为了吓泷奈算是豁出命了，而且好像就朝千束开了三枪<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  osore  
+##### 2287#       发表于 2025-5-7 20:18
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我还以为胡桃已经永远离开大家了
+
