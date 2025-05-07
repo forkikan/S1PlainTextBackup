@@ -15167,3 +15167,43 @@ NT之间是这样的。
 我觉得鹤卷单纯没把杀人当回事，就是想表达这个世道因此似人了也正常的雅痞，因为这集垃圾屋其他几个小弟不 ...</blockquote>
 第四集结束那会，首席哥，一个军人，在为高达砂仁错愕的时候，那几个捡垃圾的已经开香槟庆祝了
 
+
+*****
+
+####  ParadiseMartyr  
+##### 11721#       发表于 2025-5-7 10:46
+
+首席哥，片场唯一的正常人
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  moondigi  
+##### 11722#       发表于 2025-5-7 10:46
+
+正常打黑拳的肯定不会冲着杀人去的，这黑拳人人都能看，你冲着杀人那对手遇到你肯定也得抱着会被杀的前提开战，你这团队能有多少个王牌机师？更别说杀人后对方还可能线下pk你呢
+
+*****
+
+####  岸浪白野  
+##### 11723#       发表于 2025-5-7 10:47
+
+战场最严酷的情况就是会死，盖亚不就是正中了自己的嘴
+
+<img src="https://img.stage1st.com/forum/202505/07/104430hn20mxwananxxlcx.png" referrerpolicy="no-referrer">
+
+<strong>OUQND4K@IAKNIQOX@}C_(]K.png</strong> (69.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 10:44 上传
+
+<img src="https://img.stage1st.com/forum/202505/07/104532o7jn7dcdoeun7dz7.png" referrerpolicy="no-referrer">
+
+<strong>0JGDPE`1BU2NFO{Q(31K3}L.png</strong> (98.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 10:45 上传
+
