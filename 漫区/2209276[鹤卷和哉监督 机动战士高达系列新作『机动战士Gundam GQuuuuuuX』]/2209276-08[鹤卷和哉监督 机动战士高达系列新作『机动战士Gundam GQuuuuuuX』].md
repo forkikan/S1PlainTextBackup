@@ -14922,3 +14922,42 @@ SSSS没什么不好，除开少女乐队番外是近年来泥潭最受欢迎的�
 
 基西莉亚现在是个什么情况，我看预告她大概是坐民用航班来的？
 
+
+*****
+
+####  岸浪白野  
+##### 11701#       发表于 2025-5-7 09:42
+
+之前看错了，这里照片正确来说是Jn15=June 15，时间也是6月8号-6月11号-6月15号
+
+<img src="https://img.stage1st.com/forum/202505/07/093929wx0hoxdk05bstsos.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.25 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 09:39 上传
+
+<img src="https://img.stage1st.com/forum/202505/07/094052iy2vdmff21cbi38r.png" referrerpolicy="no-referrer">
+
+<strong>GC[Z%]ZKY8HWWSSJ@__]X7I.png</strong> (788.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 09:40 上传
+
+<img src="https://img.stage1st.com/forum/202505/07/093827d9h1hdwbcvuhdshp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.99 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 09:38 上传
+
+*****
+
+####  pmoe  
+##### 11702#       发表于 2025-5-7 09:42
+
+番茄头和喵安说不定都是普通人类，只有哈罗是NT<img src="https://static.stage1st.com/image/smiley/carton2017/022.png" referrerpolicy="no-referrer">
+
