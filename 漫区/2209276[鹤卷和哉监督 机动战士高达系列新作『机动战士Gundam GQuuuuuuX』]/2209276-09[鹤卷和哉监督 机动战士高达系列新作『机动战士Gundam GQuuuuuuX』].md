@@ -901,3 +901,14 @@
 
 2025-5-7 20:24 上传
 
+
+*****
+
+####  kcalb  
+##### 11921#       发表于 2025-5-7 20:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67790657&amp;ptid=2209276" target="_blank">newise 发表于 2025-5-7 19:54</a>
+
+既然机体都在炒79冷饭，最终boss机一定就是了</blockquote>
+MAV要两机，加个大扎姆，打不过还能合体成伟大鸡瘟号
+
