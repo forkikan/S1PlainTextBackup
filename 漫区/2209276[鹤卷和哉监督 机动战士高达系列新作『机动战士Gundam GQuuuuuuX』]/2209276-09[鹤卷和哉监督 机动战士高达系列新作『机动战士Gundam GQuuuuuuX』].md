@@ -1043,3 +1043,83 @@ MAV要两机，加个大扎姆，打不过还能合体成伟大鸡瘟号
 
 这图里的中文明显是翻得太着急有错误。
 
+
+*****
+
+####  mhss  
+##### 11934#       发表于 2025-5-7 21:48
+
+这是又死了2个吧？
+有个镜头像是在还原徒手掰钢水。
+置物柜那段莫名的像死亡笔记。
+首席哥：番茄就拘束在我的眼前，如果gquuuuuux没有登场，她就不是奇拿。
+番茄：完蛋了。
+尼娅安：海砂前来救场，今天也是闪亮亮的一天！
+
+*****
+
+####  Sacross  
+##### 11935#       发表于 2025-5-7 21:48
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">预测未来，谁开谁疯，我懂了，这个赛克缪系统是零式
+
+
+*****
+
+####  Piano-Forest  
+##### 11936#         楼主| 发表于 2025-5-7 21:55
+
+HG 1/144 力克･大魔 盖亚机/奥尔迪加机(GQ)
+[https://bandai-hobby.net/item/01_5986/](https://bandai-hobby.net/item/01_5986/)
+
+<img src="https://p.sda1.dev/24/99a746ff0d3160e31704f328dbdbe727/20250507_214751.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/da33eb0d1c7f930022ec63c82a168124/79c11837gy1i16sp44x4mj20xc0iydoi.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/661c317ac93085378c0a45f613912cd4/20250507_214831.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/a97af7ce37263f1926a980044533a334/Rslkr0BER8TIqGZu.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/2158a32c38259472c80349ca23f9daea/BEOVdHXeSzyLaO6Y.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/a57f0d1e45b3a3acecd99290f1667e05/K5WOZAU8Mrppkydn.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/323cf30491ec285b9271a143025962f7/hCN19lVy2qeAIcyt.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 11937#       发表于 2025-5-7 21:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67790953&amp;ptid=2209276" target="_blank">EFSF 发表于 2025-5-7 21:42</a>
+
+麻球说kirakira是因为修司说麻球你明白的吧，指涂鸦的那种NT聊天室光点，麻球是这顺着这个往下说，啊，这 ...</blockquote>
+それは彼がそうしろと言っているんだ
+
+那是他在说“就该这样”的
+
+或许指的是：psycommu会分析驾驶员的意图，然后将意图转化为行动，然后将行动传回驾驶员，让驾驶员认为这是自己的想法
+
+举例：第一集玛秋上机后不知道怎么办，看到对面攻过来很害怕抱住了头，结果gqux自动进行了闪避。psycommu识别到玛秋的害怕，于是判断应该进行躲避，然后把躲避的动作传给的玛秋，玛秋认识到了应该如何躲避，此时高达被psycommu控制进行了同样的躲避行动，于是玛秋觉得是自己想到的躲避动作，而gqux只是在执行自己的想法
+
+*****
+
+####  Piano-Forest  
+##### 11938#         楼主| 发表于 2025-5-7 21:57
+
+【【照井順政】机动戦士高达 GQuuuuuuX 第5话插入曲「水槽の街から」＆「夏の現在地」by みきまりあ (NOMELONNOLEMON)＆岡地織花】 
+[https://b23.tv/aFwsKjV](https://b23.tv/aFwsKjV)
+
+<img src="https://p.sda1.dev/24/bfaf279f45e54a785f4a38a0c89aec65/20250507_214820.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/38d28d3f703077bed36a7dd3929a22b1/20250507_214824.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/a183c34e322bac616adea1e1b60dd523/20250507_214828.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/YY_shibata/status/1919782783255286162](https://x.com/YY_shibata/status/1919782783255286162)
+
+第5話ご視聴いただき、ありがとうございました！動画で参加しております！
+
+配信等でもお楽しみください！
+<img src="https://p.sda1.dev/24/9fdd9b5a704d983661eff3924c47ff11/20250507_215426.jpg" referrerpolicy="no-referrer">
+
+水着マチュ
+<img src="https://p.sda1.dev/24/b9d3c4c47b922a1aa7559b5250534a4d/20250507_215430.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/kouda_nyo/status/1919784237072580652](https://x.com/kouda_nyo/status/1919784237072580652)
+
+マチュとアンキー
+<img src="https://p.sda1.dev/24/ecd2713a83619dd0c5a5907f74fb850d/20250507_215433.jpg" referrerpolicy="no-referrer">
+
