@@ -22,3 +22,13 @@
 
 翻版仙水<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KDConan  
+##### 1348#       发表于 2025-5-7 23:21
+
+这话每个转折我读者都会不意外<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只有对面一直在吃瘪
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
