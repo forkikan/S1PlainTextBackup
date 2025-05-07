@@ -58,3 +58,40 @@
 
 看他军团战都是老老实实给俩妹子打辅助完全没想着自己当主火力
 
+
+*****
+
+####  0aleph37  
+##### 11846#       发表于 2025-5-7 14:26
+
+修司现在就是给个攒钱去地球找玫瑰的主线目标，给个继续打黑拳的驱动力
+
+塑造一下电波系大胃王涂鸦狂魔形象
+
+充当一下mav工具人，时而强，时而没影，时而病弱，以推动麻球喵安形象塑造为第一优先级
+
+
+*****
+
+####  璇瑢子R  
+##### 11847#       发表于 2025-5-7 14:31
+
+小番茄：我若是问心有愧呢<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+喵安：我偏要勉强<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CCMkIII  
+##### 11848#       发表于 2025-5-7 14:33
+
+开始没看清以为大魔用上光剑了，结果重看一遍+看模型情报，似乎还是烧火棍？烧火棍为何发绿<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刺客ares  
+##### 11849#       发表于 2025-5-7 14:35
+
+牢修后面应该会有个人回的
+
+玛秋和喵安的名字都出现在单集标题里了，修司还没有
+
