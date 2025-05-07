@@ -139,3 +139,33 @@
 
 2025-5-7 14:54 上传
 
+
+*****
+
+####  暗黑能乐  
+##### 11854#       发表于 2025-5-7 15:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67789566&amp;ptid=2209276" target="_blank">白色池塘 发表于 2025-5-7 13:50</a>
+
+因为开了欧米伽塞可缪以后就是机体自己在动了吧
+
+喵安：呜呜呜，我要干死你们这班臭杂碎
+
+塞可缪：干死是吧 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">额，又不是独角兽，哪有这么夸张啊
+
+
+*****
+
+####  zzf111  
+##### 11855#       发表于 2025-5-7 15:10
+
+站同一派不代表互相看得上，一个人文关怀只剩人文的军官和只在战时混得开的兵痞一眼看出来谁手段高<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zoomegg  
+##### 11856#       发表于 2025-5-7 15:14
+
+不是，你们都能开buster machine，那谁是诺诺？
+
