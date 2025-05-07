@@ -513,3 +513,64 @@
 麻球在雨里跑的时候是不知道谁在开gqx，但是说的是她后面见到是喵安从驾驶舱出来那种打击感里，可能有她觉 ...</blockquote>
 修司这一集完全下线，喵安一人扛的啊。修司只是喵安的道具（哪里没对
 
+
+*****
+
+####  灵魂收割机  
+##### 11890#       发表于 2025-5-7 17:55
+
+<img src="https://img.stage1st.com/forum/202505/07/174910bfs858cvqnrnrfo4.png" referrerpolicy="no-referrer">
+
+<strong>img_MAV-AcrylicStand_add0507_pc_Tn5Qu8tk.png</strong> (87.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 17:49 上传
+
+不对劲，还有七集左右的篇幅，相对重要的新人物就只剩两个了？（而且二连星其实完全不重要吧<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer"> ）
+
+*****
+
+####  盐盐盐盐盐  
+##### 11891#       发表于 2025-5-7 17:56
+
+<blockquote>EFSF 发表于 2025-5-7 17:47
+修司这一集完全下线，喵安一人扛的啊。修司只是喵安的道具（哪里没对</blockquote>
+后面被抓过去之后削了对面的炮，挡火什么的，辅助打的还是不错的，修司主动往下把喵安向前拉助攻她砍到驾驶舱那个操作发着烧能打出来很厉害了（
+
+最后还小收了个头，可惜只是被打掉头部还是整机炸了，剧本要你炸打哪都没用
+
+*****
+
+####  岸浪白野  
+##### 11892#       发表于 2025-5-7 17:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67790316&amp;ptid=2209276" target="_blank">灵魂收割机 发表于 2025-5-7 17:55</a>
+
+不对劲，还有七集左右的篇幅，相对重要的新人物就只剩两个了？（而且二连星其实完全不重要吧 ） ...</blockquote>
+
+就是2个了
+
+<img src="https://img.stage1st.com/forum/202505/07/175853uxkml3oj833mukfm.png" referrerpolicy="no-referrer">
+
+<strong>L0ZL1Y$MG_9GPG9XG)R2P(Q.png</strong> (429.43 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 17:58 上传
+
+<img src="https://img.stage1st.com/forum/202505/07/175854c44gasssnu64foqu.png" referrerpolicy="no-referrer">
+
+<strong>1BA510~44Y{2UXB8{M)36$U.png</strong> (377.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 17:58 上传
+
+*****
+
+####  木板春香  
+##### 11893#       发表于 2025-5-7 18:00
+
+ 是先震惊，然后雨中奔跑（苦亚希），最后才确认那个能替代自己去KIRAKIRA的人是喵安，这个顺序很重要。  倒果为因要不得
+
