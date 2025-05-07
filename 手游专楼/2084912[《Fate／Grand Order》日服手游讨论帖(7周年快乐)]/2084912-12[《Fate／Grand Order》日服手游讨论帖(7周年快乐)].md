@@ -886,3 +886,40 @@
 
 120石头沉了，还以为摩根那里垫了，这次容易出货<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 16628#       发表于 2025-5-7 17:14
+
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">寄！
+
+*****
+
+####  壳壳牛  
+##### 16629#       发表于 2025-5-7 17:24
+
+免费石寄了...付费石想留着单抽...
+
+*****
+
+####  cckuku  
+##### 16630#       发表于 2025-5-7 17:24
+
+感觉不如之前那个宣传图。。。
+
+*****
+
+####  qixinno2  
+##### 16631#       发表于 2025-5-7 17:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">靠着仅剩的一呼符33石出了
+
+<img src="https://img.stage1st.com/forum/202505/07/173225u99tzk2t99pzlsst.png" referrerpolicy="no-referrer">
+
+<strong>5EOM%]`FLL}%FZM~GN7UO%0.png</strong> (281.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 17:32 上传
+
