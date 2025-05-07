@@ -1309,3 +1309,18 @@ https://x.com/imigimuru/status/1918986168965738731
 第一反应是好久不见想打个招呼
 “哟-”<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Delicatus545  
+##### 2283#       发表于 2025-5-7 20:11
+
+米卡，原来你是这样的母0<img src="https://static.stage1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  osore  
+##### 2284#       发表于 2025-5-7 20:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泷奈用的是实弹吗
+

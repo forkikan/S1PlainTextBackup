@@ -24,3 +24,13 @@
 
 像一些近战模组强但不是范围的就不一一说了，不弱但作为AI队友清怪事比不上上面的，比如东京最强。
 
+
+*****
+
+####  江戸前ルナ  
+##### 1446#         楼主| 发表于 2025-5-7 20:11
+
+这次主线更新，看似美帝、毛子、天朝的几个女演员都分道扬镳，但最终大概还是在中东决战聚首了。红花那段看日本人写的，真尴尬啊，祖国有令当然要先执行再谈自己的心愿，然后阿嘎里的是反过来先谈条件，日本人不愧是日本人<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+最后夜露和枫理念冲突。虽然性能上我很不喜欢用枫，但夜露这种圣母式相互理解思维真的有点绷不住<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
