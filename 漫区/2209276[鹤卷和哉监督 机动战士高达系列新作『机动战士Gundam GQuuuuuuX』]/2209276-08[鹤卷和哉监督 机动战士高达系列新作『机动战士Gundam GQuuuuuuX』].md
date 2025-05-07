@@ -15127,3 +15127,43 @@ NT之间是这样的。
 —— 来自 鹅球 v3.3.96 ...</blockquote>
 我感觉来打拳的全员PTSD或者脑子坏了，就番茄正常人<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暗黑能乐  
+##### 11716#       发表于 2025-5-7 10:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">我觉得鹤卷单纯没把杀人当回事，就是想表达这个世道因此似人了也正常的雅痞，因为这集垃圾屋其他几个小弟不都觉得没啥吗，还认为只是麻球出生在和平的side6没见过比较难接受
+
+*****
+
+####  Lawliet.L  
+##### 11717#       发表于 2025-5-7 10:31
+
+看到高达吧说这地下黑拳类似装甲骑兵，本质老兵回收站，确实有些道理<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ヒトニナル  
+##### 11718#       发表于 2025-5-7 10:35
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这打戏……
+下集应该没军团战了罢
+
+*****
+
+####  赤井稻妻  
+##### 11719#       发表于 2025-5-7 10:36
+
+我觉得女生穿不穿运动内衣，可能主要取决于那天有没有体育课吧
+
+*****
+
+####  wincle  
+##### 11720#       发表于 2025-5-7 10:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67788741&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-5-7 10:31</a>
+我觉得鹤卷单纯没把杀人当回事，就是想表达这个世道因此似人了也正常的雅痞，因为这集垃圾屋其他几个小弟不 ...</blockquote>
+第四集结束那会，首席哥，一个军人，在为高达砂仁错愕的时候，那几个捡垃圾的已经开香槟庆祝了
+
