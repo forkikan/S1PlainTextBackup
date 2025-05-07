@@ -15239,3 +15239,190 @@ NT之间是这样的。
 3人都能开，但机子就2台，后续怎么分配？刀掉1个，还是跳反1个蹭别人的，又或者再变1台出来？玩具情报那边 ...</blockquote>
 最后绿叔叔不是要调MA来吗，后面安排给强化人喵安不就得了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  a85982313  
+##### 11728#       发表于 2025-5-7 10:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67788849&amp;ptid=2209276" target="_blank">moudianzi 发表于 2025-5-7 10:52</a>
+3人都能开，但机子就2台，后续怎么分配？刀掉1个，还是跳反1个蹭别人的，又或者再变1台出来？玩具情报那边 ...</blockquote>
+顶多从玩具有个三千多日元能看出应该是大型机
+
+*****
+
+####  岸浪白野  
+##### 11729#       发表于 2025-5-7 10:58
+
+[X 上的 ガンマ_絵垢 @skeb募集中：“このままじゃニャアンが頭進撃になっちゃう #GQuuuuuuX #ジークアクス #ガンマ美術館 [url]https://t.co/RZ1LYlhBow](https://x.com/y_ganman3/status/1919889923684909548)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/07/105732ga7q9qu793fqtka0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.19 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 10:57 上传
+
+[X 上的 ななてる🤖アニメ化決定『アルマちゃんは家族になりたい』：“Gジェネジークアクスまんが [url]https://t.co/pDrljUTwXY](https://x.com/renkonan/status/1919805251621687546)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/07/105555kesb0ufeoflu2w22.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (694.18 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 10:55 上传
+
+[X 上的 ダイナミックベーコン：“[url]https://t.co/5qtnZvI3Nj](https://x.com/dasazyake/status/1919898530426327413)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/07/105614te0vnkcn38hg60rz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (864.69 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 10:56 上传
+
+*****
+
+####  hsyg  
+##### 11730#       发表于 2025-5-7 10:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67788742&amp;ptid=2209276" target="_blank">Lawliet.L 发表于 2025-5-7 10:31</a>
+
+看到高达吧说这地下黑拳类似装甲骑兵，本质老兵回收站，确实有些道理</blockquote>
+问题还是那个，这么高强度的对抗的话。那博美队这些是啥人，是不是专门骗人去死的团队。
+
+这集盖亚他们都排前5了，拿到的赏金都快入不裹出。博美这种反而可以分出来赏金。
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 11731#       发表于 2025-5-7 11:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67788879&amp;ptid=2209276" target="_blank">hsyg 发表于 2025-5-7 10:59</a>
+问题还是那个，这么高强度的对抗的话。那博美队这些是啥人，是不是专门骗人去死的团队。
+
+这集盖亚他们都 ...</blockquote>
+不要问 问就是联邦军的大手
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  白色池塘  
+##### 11732#       发表于 2025-5-7 11:02
+
+反过来讲手下留人是老兵才办得到的事情，喵安一个菜鸟被连电带打虐了半天，脑子里已经全乱了，怎么还能注意别把对面弄死，只会一拳把欺负自己的人打爆吧
+
+*****
+
+####  YU_JI  
+##### 11733#       发表于 2025-5-7 11:02
+
+ 本帖最后由 YU_JI 于 2025-5-7 11:03 编辑 
+<blockquote>hsyg 发表于 2025-5-7 10:59
+问题还是那个，这么高强度的对抗的话。那博美队这些是啥人，是不是专门骗人去死的团队。
+
+这集盖亚他们都 ...</blockquote>
+
+说起这个，博美这边是真省钱吧，只用冷兵器，盖亚他们说钱都用来维护和补充弹药了，博美这边根本就没有需要补充弹药的武装，两台高达也是耐艹，就没见有啥战损，红高也不需要他们维护（）
+
+
+*****
+
+####  Tungsten  
+##### 11734#       发表于 2025-5-7 11:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67788777&amp;ptid=2209276" target="_blank">wincle 发表于 2025-5-7 10:38</a>
+
+第四集结束那会，首席哥，一个军人，在为高达砂仁错愕的时候，那几个捡垃圾的已经开香槟庆祝了 ...</blockquote>
+首席哥是和平年代出来的军校生啊，刚毕业没多久的
+
+博美组的怕不是人均一年战争老兵
+
+*****
+
+####  岸浪白野  
+##### 11735#       发表于 2025-5-7 11:04
+
+ 本帖最后由 岸浪白野 于 2025-5-7 11:05 编辑 
+
+之前博美犬是连买机枪的钱都没有，红高达不用自己负责，这边没有射击武器不用补充弹药
+
+*****
+
+####  暗黑能乐  
+##### 11736#       发表于 2025-5-7 11:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67788893&amp;ptid=2209276" target="_blank">白色池塘 发表于 2025-5-7 11:02</a>
+
+反过来讲手下留人是老兵才办得到的事情，喵安一个菜鸟被连电带打虐了半天，脑子里已经全乱了，怎么还能注意 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">喵安那些动作真不太像所谓的菜鸟吧，麻球说是菜鸟还贴切点，都能精准砍头了，这对开了欧米茄框架的人来说应该不是啥难事
+
+*****
+
+####  YU_JI  
+##### 11737#       发表于 2025-5-7 11:06
+
+<blockquote>Tungsten 发表于 2025-5-7 11:04
+首席哥是和平年代出来的军校生啊，刚毕业没多久的
+
+博美组的怕不是人均一年战争老兵
+
+ ...</blockquote>
+博美那边就安琪年纪大点，35，其他人都是19-20岁，比番茄大不了多少，一年战争那会都还没成年
+
+*****
+
+####  岸浪白野  
+##### 11738#       发表于 2025-5-7 11:07
+
+<img src="https://img.stage1st.com/forum/202505/07/110629oyllfczpn0phlrp8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (852.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 11:06 上传
+
+<img src="https://img.stage1st.com/forum/202505/07/110636xeux4eek593qx4hl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (909.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 11:06 上传
+
+*****
+
+####  岸浪白野  
+##### 11739#       发表于 2025-5-7 11:07
+
+<img src="https://img.stage1st.com/forum/202505/07/110731v06opfyaj0pj630z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.14 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 11:07 上传
+
+<img src="https://img.stage1st.com/forum/202505/07/110736qz2vhhh5c9hch7du.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.12 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 11:07 上传
+
+*****
+
+####  ParadiseMartyr  
+##### 11740#       发表于 2025-5-7 11:08
+
+不是，马修飞黄腾达了，也不把俩战友兄弟带带？
+搞的俩兄弟沦落到打黑拳
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
