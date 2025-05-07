@@ -15574,3 +15574,66 @@ NT之间是这样的。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">首席哥作为基西莉亚派显得这么纯良，不会是打算把基西莉亚往好了写吧
 
+
+*****
+
+####  ParadiseMartyr  
+##### 11754#       发表于 2025-5-7 11:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这世界吉西莉亚陨石到头上都不跑了，豪杰啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  aptx8285144  
+##### 11755#       发表于 2025-5-7 11:26
+
+机战分镜水平有所改善，也流畅了不少，但还不是顶尖，首席哥如果脸，发型，时间都对上其实换成我就要坚信自己的判断，理论上来讲驾驶员又不是不可以换的
+
+*****
+
+####  暗黑能乐  
+##### 11756#       发表于 2025-5-7 11:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67789012&amp;ptid=2209276" target="_blank">ParadiseMartyr 发表于 2025-5-7 11:25</a>
+
+这世界吉西莉亚陨石到头上都不跑了，豪杰啊
+
+—— 来自 鹅球 v3.3.96</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就算这样，夏亚还是不打算诚心投靠吗，气量也太小了
+
+
+*****
+
+####  ryanghj  
+##### 11757#       发表于 2025-5-7 11:30
+
+这一幕好像还没出现吧，看起来是下一集的画面
+
+<img src="https://p.sda1.dev/24/c8f4bc79fe6d83a101bcc6ab5aa1f6e8/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  Concrete  
+##### 11758#       发表于 2025-5-7 11:30
+
+三连星明显没有正史那种战功，而且还是兵痞，被排挤走很正常吧
+
+*****
+
+####  猪突猛进R  
+##### 11759#       发表于 2025-5-7 11:31
+
+马克杯和黑三连都是紫婆派系的啊，有什么必要排挤自己人吗？
+
+除非真像有些人推测的那样：马克杯背刺紫婆了。
+
+而这可能性又不高，马克杯对紫婆忠心耿耿，是正统吉翁军的二把手。
+
+但是，这条世界线紫婆对夏亚是有偏袒的，马克杯与夏亚不睦，说不定因爱生恨？
+
+还得看后续怎么发展。
+
