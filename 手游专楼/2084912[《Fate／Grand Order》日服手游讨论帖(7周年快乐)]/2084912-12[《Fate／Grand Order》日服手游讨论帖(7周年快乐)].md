@@ -828,3 +828,61 @@
 
 到了南极发现从牧夫座开始打
 
+
+*****
+
+####  大十字紅朔  
+##### 16623#       发表于 2025-5-6 23:47
+
+存了450石头等抽莉莉丝
+
+勝ちたかった―――負けたくなかった
+
+一つの生命体として彼女の上位に立ちたかった
+
+パラディーン・マシュ
+
+聖騎士のクラスを獲得した、お前へ、貴女へ、君へ！
+
+これが最後……！　これで最後……！アテシの……私の全てをぶつけてやる！
+
+第二宝具改竄彷徨える儚き祈りを君へ（フォア・キリエライト！）
+
+*****
+
+####  yangun22  
+##### 16624#       发表于 2025-5-7 14:50
+
+发现莉莉丝对摩根来说全是雷点啊，欺负马修，刺杀哈贝喵，狂阶<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 16625#       发表于 2025-5-7 17:02
+
+小安技能本<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202505/07/170235l22iazna9n88ts9a.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (159.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 17:02 上传
+
+*****
+
+####  angelooo  
+##### 16626#       发表于 2025-5-7 17:04
+
+为啥是小安？？？
+
+莉莉丝急急急
+
+*****
+
+####  khxooo  
+##### 16627#       发表于 2025-5-7 17:05
+
+120石头沉了，还以为摩根那里垫了，这次容易出货<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
