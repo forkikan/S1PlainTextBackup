@@ -15426,3 +15426,45 @@ NT之间是这样的。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  暗黑能乐  
+##### 11741#       发表于 2025-5-7 11:09
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">大尉都能在军队混不下去感觉真有点夸张了，只能说又是“设定如此”了，基西莉亚如果真被架得空空的，还有啥暗杀的必要吗，直接软禁了得了
+
+*****
+
+####  岸浪白野  
+##### 11742#       发表于 2025-5-7 11:10
+
+<img src="https://img.stage1st.com/forum/202505/07/111017cosllofsfioii5jl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.09 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 11:10 上传
+
+*****
+
+####  scorbian  
+##### 11743#       发表于 2025-5-7 11:10
+
+草，黑皮喵安要是去开MA那岂不就是拉拉的生态位吗<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 11744#       发表于 2025-5-7 11:11
+
+这个标题可能是纯neta，是不是真的搞刺杀还说不准呢，只能确定老太婆要正式出场了而已
+
+*****
+
+####  zing223  
+##### 11745#       发表于 2025-5-7 11:13
+
+尼亚安怎么一副女番长造型
+
