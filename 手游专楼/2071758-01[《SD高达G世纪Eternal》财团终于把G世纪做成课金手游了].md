@@ -12644,3 +12644,25 @@ EX3只要把机体等级拉满就能过真是太友好了<img src="https://stati
 
 沙扎比 自由 正义 1突强袭自由 风灵 巴巴托斯 带战舰拉克丝
 
+
+*****
+
+####  里村紅葉  
+##### 1183#       发表于 2025-5-7 21:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67787884&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-5-7 00:52</a>
+
+歪出了UR782，感觉没有什么用啊，倒是够肉
+
+骡子从79到93杀人如麻，能点驾驶舱就从来不点躯干，怎么给了个盾 ...</blockquote>
+UR三明也是盾机<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  blue321  
+##### 1184#       发表于 2025-5-7 21:35
+
+玛修和GQUX后面强度渐渐有点跟不上没法一斧头一个了
+
+搞得有点想给她SP化<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

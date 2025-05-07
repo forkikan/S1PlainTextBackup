@@ -1023,3 +1023,35 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">第一次双黄
 
+
+*****
+
+####  xunit  
+##### 16641#       发表于 2025-5-7 19:42
+
+来了8个阿三，4星PU最准的一次<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 16642#       发表于 2025-5-7 19:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67790501&amp;ptid=2084912" target="_blank">zechins 发表于 2025-5-7 18:53</a>
+
+第一次双黄</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">欧 羡慕 我上一次双黄还是在上一次
+
+*****
+
+####  里村紅葉  
+##### 16643#       发表于 2025-5-7 21:26
+
+70抽出了一个小恩一个马老师一个红A，这是什么池子<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rollingusagi  
+##### 16644#       发表于 2025-5-7 21:31
+
+三十发就出了然后开始一直黑，歪了个月神开始感觉不对劲了，五百石了还没见第二宝，不敢抽了<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
