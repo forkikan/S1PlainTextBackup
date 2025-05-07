@@ -1366,3 +1366,11 @@ https://x.com/imigimuru/status/1918986168965738731
 
 最后镜头一直给狗头,我还以为狗头会对着镜头邪魅一笑,结果飘过去一只死掉的胡桃<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oyss  
+##### 2290#       发表于 2025-5-8 00:45
+
+以后每集她都打算先喝点啥然后喷么
+
