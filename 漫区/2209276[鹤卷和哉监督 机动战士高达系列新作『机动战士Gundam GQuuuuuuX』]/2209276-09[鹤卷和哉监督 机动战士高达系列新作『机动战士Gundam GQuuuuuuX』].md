@@ -746,3 +746,64 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  我聞如是  
+##### 11909#       发表于 2025-5-7 19:16
+
+<blockquote>xwz 发表于 2025-5-7 18:49
+麻球不会怒向胆边生直接把修司推了吧……</blockquote>
+好傢伙
+
+目擊現場的喵安靜靜說了句為什麼不是我
+
+下一話加入吉翁軍的瑪秋在索頓艦橋上和夏利亞一起吸煙
+
+夏利亞 “從軍才半年的實習兵就碰上吉翁內戰 你真是不走運啊”
+
+*****
+
+####  巴尔干炮  
+##### 11910#       发表于 2025-5-7 19:19
+
+到目前为止的展开只能用脱力来形容，还不如用原创世界观呢。
+
+
+*****
+
+####  xwz  
+##### 11911#       发表于 2025-5-7 19:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67790558&amp;ptid=2209276" target="_blank">我聞如是 发表于 2025-5-7 19:16</a>
+
+好傢伙
+
+目擊現場的喵安靜靜說了句為什麼不是我
+
+下一話加入吉翁軍的瑪秋在索頓艦橋上和夏利亞一起吸煙</blockquote>
+<img src="https://img.stage1st.com/forum/202504/16/171755zwlwmwblmzw7xwkw.png" referrerpolicy="no-referrer">
+
+╯ 　乀
+
+ヘ　 へ
+
+　′
+
+　﹀      ​​​“不也……”
+
+也可以是这样<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天邪鬼  
+##### 11912#       发表于 2025-5-7 19:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67790012&amp;ptid=2209276" target="_blank">mintslime 发表于 2025-5-7 16:19</a>
+我觉得那个走栏杆的镜头已经暗示的很清楚了：麻球差一点就会跨过那条“非常人”的危险界限，但是我感觉鹤 ...</blockquote>
+那我觉得单纯是制作组比较抓人物性格，就像修司设定是电波系，那别说内衣了，脱光放他面前和去地球没关系的话他也不会当回事
+
+首席也是，可能是被迫害位加常识人，要不是尼亚安顶号他可能直接确定嫌疑拉去战舰上拷问了。这两人就是警和贼的关系
+
+而且玛秋的人设就是恋爱脑，这集开头基本明着告诉你玛秋喜欢修司了，也不可能关同一个衣柜就暧昧上了
+
