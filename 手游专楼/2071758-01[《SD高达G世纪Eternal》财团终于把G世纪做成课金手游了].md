@@ -12617,3 +12617,20 @@ EX3只要把机体等级拉满就能过真是太友好了<img src="https://stati
 
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">拉满一堆SEED系机体后SEED EX没过反而先把非UC的EX过了...
 
+
+*****
+
+####  12481632  
+##### 1180#       发表于 2025-5-7 15:37
+
+非uc和seed的ex都是输出不够，uc的ex倒是只要注意下地图炮就能过
+
+*****
+
+####  无念  
+##### 1181#       发表于 2025-5-7 15:40
+
+一键开发啥时候上线啊，急急急
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

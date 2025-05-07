@@ -198,3 +198,15 @@
 不是，你们都能开buster machine，那谁是诺诺？</blockquote>
 诺诺崇拜拉尔克，喵安对玛秋那样能过着普通生活抱有憧憬和向往是类似的
 
+
+*****
+
+####  57042711  
+##### 11860#       发表于 2025-5-7 15:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67789318&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-7 12:36</a>
+感知到的敌意的表现方式这个大家都熟悉，主要用闻到气味表达这就像和以前修司是闻气味来清楚是不是NT是一 ...</blockquote>
+阿姆罗：有邪气！<img src="https://static.stage1st.com/image/smiley/bundam2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
