@@ -12609,3 +12609,11 @@ EX3只要把机体等级拉满就能过真是太友好了<img src="https://stati
 
 不过我之前填过别人的了，抱歉<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  windtrack  
+##### 1179#       发表于 2025-5-7 15:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">拉满一堆SEED系机体后SEED EX没过反而先把非UC的EX过了...
+
