@@ -15028,3 +15028,66 @@ SSSS没什么不好，除开少女乐队番外是近年来泥潭最受欢迎的�
 
 目前主角都有一个初步的人物形象了，剩下七集来讲主线应该是够的。叙事节奏确实比较老炮，不是那种第一集就展示完角色特性的动画，就是不知道适不适合季番
 
+
+*****
+
+####  绞首浪漫派丶  
+##### 11708#       发表于 2025-5-7 10:08
+
+下集绿大叔要自己上了吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 11709#       发表于 2025-5-7 10:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67788508&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-7 09:42</a>
+
+之前看错了，这里照片正确来说是Jn15=June 15，时间也是6月8号-6月11号-6月15号
+
+ ...</blockquote>
+
+如果以换上夏季校服来表达时间变化，时间线要到7月份吧
+
+<img src="https://img.stage1st.com/forum/202505/07/100902hacm1sfasjsmjcdo.png" referrerpolicy="no-referrer">
+
+<strong>20250507100629.png</strong> (122.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 10:09 上传
+
+
+*****
+
+####  cfxiao  
+##### 11710#       发表于 2025-5-7 10:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67788097&amp;ptid=2209276" target="_blank">cayon 发表于 2025-5-7 02:07</a>
+
+说实话一点也get不到这三人有啥关系性，原本是三人互相欠债的关系过了两集突然变成三人组小团体了，前面两 ...</blockquote>
+NT之间是这样的。
+
+哪怕是阿姆罗，到死都在发出疑惑呢，“母亲，拉拉吗?”
+
+*****
+
+####  jackyhuang  
+##### 11711#       发表于 2025-5-7 10:14
+
+原来才一个星期吗，这黑拳也打得太频繁了吧
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  岸浪白野  
+##### 11712#       发表于 2025-5-7 10:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67788611&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-5-7 10:05</a>
+
+虽然没有明说，但这两集都表明喵安很珍惜这两个同龄人朋友
+
+朋友说要去地球就主动揽活攒钱；尝试模仿修司的 ...</blockquote>
+这就是石川说的对妮娅安来说，与玛秋和修司的相遇，就像是遇到了前所未有的朋友，让她产生了"想和大家在一起"的心情。
+

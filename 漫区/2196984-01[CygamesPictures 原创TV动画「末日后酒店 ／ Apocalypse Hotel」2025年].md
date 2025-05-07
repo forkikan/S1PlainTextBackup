@@ -1902,3 +1902,36 @@ op原来就是这么编成的吗？我以为和10多年前那种养成系op一�
 搞笑动画不需要讲逻辑，一话一个平行世 ...</blockquote>
 加上之前酿酒失败的反复折腾，可能真的如八千代所说过了一百年
 
+
+*****
+
+####  kwin_  
+##### 178#       发表于 2025-5-7 10:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67786218&amp;ptid=2196984" target="_blank">喵喵叫的猫 发表于 2025-5-6 17:40</a>
+
+aiko的大部分歌好像都这样
+
+话说刚才b站评论里翻到个链接是对这首歌的解析</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">好 好厉害。这曲子开头部分真的很诡异，听全曲理解下来可能是先抑后扬的一种特殊表达方式吧
+
+*****
+
+####  kwin_  
+##### 179#       发表于 2025-5-7 10:14
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">喝酒成为大人body，好像没有什么不对的。
+
+以后会不会驯服沙虫来挖温泉呢（×）
+
+*****
+
+####  obulis  
+##### 180#       发表于 2025-5-7 10:15
+
+<blockquote>montanaB 发表于 2025-5-6 14:35
+有没有比较了解日本音乐的，给我讲讲这个番它的op歌到底是怎么回事儿，我是头一次见到这么诡异的op，这个歌 ...</blockquote>
+aiko是宇多田光和滨崎步那代的有名歌手，新生代的歌手比如胡子男都是其粉丝，怎么也不至于唱跑调——或者不至于把唱跑调的歌拿出来当正式作品吧
+
+只能说是风格了——当然我不懂音乐
+
