@@ -377,3 +377,71 @@
 
 好一點就是姐姐叫弟弟的綽號吧
 
+
+*****
+
+####  小妻水亚美  
+##### 11877#       发表于 2025-5-7 17:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67790117&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-7 16:56</a>
+有些解读认为是玛秋内心把喵安看低一层or玛秋觉得自己才是特别的，结果因为喵安开的比自己好or被喵安抢了机 ...</blockquote>
+确实恋爱脑了
+我已经脑补是地上爬行的重女了
+
+—— 来自 OPPO PGFM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  行政裁定书  
+##### 11878#       发表于 2025-5-7 17:06
+
+ 本帖最后由 行政裁定书 于 2025-5-7 17:08 编辑 
+
+不会真走两女一男三角恋路线吧，还是嬉皮士颓废风。
+
+感觉现在只有uc老人物出场的看点了，如果是独立世界观，连uc平行宇宙的看点都没了。
+
+*****
+
+####  aptx8285144  
+##### 11879#       发表于 2025-5-7 17:09
+
+大姐头达成和玛秋共进一餐的成就，修司和尼安都还没做到，虽然修司看起来更像对吃高达更感兴趣JPG
+
+
+*****
+
+####  gamedreamer  
+##### 11880#       发表于 2025-5-7 17:10
+
+喵安在nt聊天室感觉就像被基连的优等人类论迫害的精神不正常了反而信这套了。就是因为户口本被一年战争清空了反而对强大的力量深信不疑的那种人<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  焚尘  
+##### 11881#       发表于 2025-5-7 17:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">现在年轻人杀心这么重的吗，人家逗逗你的，上来就砍驾驶舱
+
+*****
+
+####  jojonathan  
+##### 11882#       发表于 2025-5-7 17:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67790162&amp;ptid=2209276" target="_blank">焚尘 发表于 2025-5-7 17:11</a>
+现在年轻人杀心这么重的吗，人家逗逗你的，上来就砍驾驶舱</blockquote>
+直接电吗 那很友好了<img src="https://static.stage1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  暗黑能乐  
+##### 11883#       发表于 2025-5-7 17:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67790168&amp;ptid=2209276" target="_blank">jojonathan 发表于 2025-5-7 17:13</a>
+
+直接电吗 那很友好了隔壁猜喵安说不定是回忆起被条子拿电棍抽的感受了 加上哈罗拱火 彻底疯狂 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这种都是没根据的，如果想让你这么想就应该加几个闪回，啥都没有全让你凭空想象那就是二创了
+
