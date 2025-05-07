@@ -23,3 +23,13 @@
 
 我很懷疑預告出現的只是基西莉亞的替身
 
+
+*****
+
+####  Sliurus  
+##### 11843#       发表于 2025-5-7 13:57
+
+其实我觉得现在的修司有点像超时空要塞F的公主，除了长得不错、会开机好像没什么优点，不过修司这种电波系倒是避免了背个渣男的名号<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+希望后面能加点正面描写
+
