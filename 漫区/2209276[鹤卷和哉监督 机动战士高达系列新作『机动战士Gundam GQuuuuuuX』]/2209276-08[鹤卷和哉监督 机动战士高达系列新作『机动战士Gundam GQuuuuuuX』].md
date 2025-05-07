@@ -15091,3 +15091,39 @@ NT之间是这样的。
 朋友说要去地球就主动揽活攒钱；尝试模仿修司的 ...</blockquote>
 这就是石川说的对妮娅安来说，与玛秋和修司的相遇，就像是遇到了前所未有的朋友，让她产生了"想和大家在一起"的心情。
 
+
+*****
+
+####  LOLITA  
+##### 11713#       发表于 2025-5-7 10:19
+
+以前的高达杀人好歹给个说得过去的理由或背景
+
+这部直接为了钱打黑拳还招招奔着取人性命去可还行<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ParadiseMartyr  
+##### 11714#       发表于 2025-5-7 10:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67788677&amp;ptid=2209276" target="_blank">LOLITA 发表于 2025-5-7 10:19</a>
+以前的高达杀人好歹给个说得过去的理由或背景
+
+这部直接为了钱打黑拳还招招奔着取人性命去可还行 ...</blockquote>
+小番茄没冲性命去，魔女是有怨念，这集喵那是直接强化人剧本。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  LOLITA  
+##### 11715#       发表于 2025-5-7 10:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67788706&amp;ptid=2209276" target="_blank">ParadiseMartyr 发表于 2025-5-7 10:24</a>
+
+小番茄没冲性命去，魔女是有怨念，这集喵那是直接强化人剧本。
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+我感觉来打拳的全员PTSD或者脑子坏了，就番茄正常人<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
