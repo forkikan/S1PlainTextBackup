@@ -849,3 +849,31 @@
 
 —— 来自 HONOR BVL-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  猪突猛进R  
+##### 11917#       发表于 2025-5-7 19:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67790608&amp;ptid=2209276" target="_blank">盐盐盐盐盐 发表于 2025-5-7 19:30</a>
+
+他这么肯定能拉到喵安给他打工吗
+
+喵安作为第二主角还要开大叔的二手ma是否有点委屈了（ ...</blockquote>
+他的意思可能是强化人+MA的剧本<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+目前想都不用想肯定是绿叔叔自用，至于之后有什么变动再说。
+
+*****
+
+####  gammatau  
+##### 11918#       发表于 2025-5-7 19:40
+
+<blockquote>盐盐盐盐盐 发表于 2025-5-7 19:30
+他这么肯定能拉到喵安给他打工吗
+
+喵安作为第二主角还要开大叔的二手ma是否有点委屈了（ ...</blockquote>
+如果是强化人的话可能有办法控制吧
+
+又或者只是想多凑齐几个NT给他们发塞可缪再爆一次大的
+
