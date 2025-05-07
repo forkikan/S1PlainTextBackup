@@ -12666,3 +12666,17 @@ UR三明也是盾机<img src="https://static.stage1st.com/image/smiley/face2017/
 
 搞得有点想给她SP化<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一个陆仁贾  
+##### 1185#       发表于 2025-5-7 22:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67790938&amp;ptid=2071758" target="_blank">blue321 发表于 2025-5-7 21:35</a>
+玛修和GQUX后面强度渐渐有点跟不上没法一斧头一个了
+
+搞得有点想给她SP化</blockquote>
+别，本来机体和机师上限就那样sp了也只是高效清杂能手而已
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
