@@ -169,3 +169,32 @@
 
 不是，你们都能开buster machine，那谁是诺诺？
 
+
+*****
+
+####  cih  
+##### 11857#       发表于 2025-5-7 15:16
+
+<blockquote>Sliurus 发表于 2025-5-7 13:10
+人多不好控制，劫机可能出意外。直接击落客机的话，势力斗争波及太多平民很容易产生暴动 ...</blockquote>
+…你对宇宙纳粹的精神状况是不是有什么误解
+
+*****
+
+####  朋友费小号  
+##### 11858#       发表于 2025-5-7 15:17
+
+“吵什么吵，就这么一点事。今天我们大家之所以欢聚在这里，是为我们正气凛然的好姐妹玛秋，庆祝她的kirakira。今天，我要敬我的好姐妹，感谢她，分享我的悲惨人生。我也发自内心地祝愿她，从此以后，和我的人生一样，开始发烂，发臭！”
+
+虽然我不太喜欢女女关系性，但是这个改的还是太搞了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 11859#       发表于 2025-5-7 15:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67789796&amp;ptid=2209276" target="_blank">zoomegg 发表于 2025-5-7 15:14</a>
+
+不是，你们都能开buster machine，那谁是诺诺？</blockquote>
+诺诺崇拜拉尔克，喵安对玛秋那样能过着普通生活抱有憧憬和向往是类似的
+
