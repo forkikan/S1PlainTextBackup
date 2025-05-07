@@ -16171,3 +16171,64 @@ NGA看到的一个说法是喵安进kirakira以后已经是没有用眼睛而是
 
 不是一般的痴女了已经是
 
+
+*****
+
+####  ryanghj  
+##### 11803#       发表于 2025-5-7 12:36
+
+脱衣服那里也可以理解成其实喵安更理解修司，玛秋只是在一旁看着，喵安却干预走出第一步
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  岸浪白野  
+##### 11804#       发表于 2025-5-7 12:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67789275&amp;ptid=2209276" target="_blank">王留美 发表于 2025-5-7 12:25</a>
+
+NGA看到的一个说法是喵安进kirakira以后已经是没有用眼睛而是纯粹用NT的感觉去feeling了，对她来说战斗的 ...</blockquote>
+感知到的敌意的表现方式这个大家都熟悉，主要用闻到气味表达这就像和以前修司是闻气味来清楚是不是NT是一样的
+
+<img src="https://img.stage1st.com/forum/202505/07/123355rsgazr0j19ag0hj1.png" referrerpolicy="no-referrer">
+
+<strong>`R@F`M)XU5ID4_GP)345RFY.png</strong> (242.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 12:33 上传
+
+<img src="https://img.stage1st.com/forum/202505/07/123453f2ym66iz6pcpyjtd.png" referrerpolicy="no-referrer">
+
+<strong>BDD$AL4FTZV34V8C35X7WHY.png</strong> (880.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 12:34 上传
+
+*****
+
+####  璇瑢子R  
+##### 11805#       发表于 2025-5-7 12:38
+
+基西利亚没有专机吗？
+还要坐经济舱？
+
+夏利亚把自己机体调过来目的如何？
+考虑到这部非常强调mav，似乎并不太可能他一个人出击。
+用来收编主角团？
+
+
+*****
+
+####  灵魂收割机  
+##### 11806#       发表于 2025-5-7 12:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67788508&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-7 09:42</a>
+
+之前看错了，这里照片正确来说是Jn15=June 15，时间也是6月8号-6月11号-6月15号
+
+ ...</blockquote>
+这么算下来番茄和修司基本上每天晚上都在打军团战<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
