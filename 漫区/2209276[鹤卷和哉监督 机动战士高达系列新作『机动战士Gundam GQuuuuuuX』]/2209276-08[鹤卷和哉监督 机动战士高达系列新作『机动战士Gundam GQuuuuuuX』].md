@@ -14712,3 +14712,17 @@ SSSS没什么不好，除开少女乐队番外是近年来泥潭最受欢迎的�
 
 是高达
 
+
+*****
+
+####  Toby_dak  
+##### 11679#       发表于 2025-5-7 08:32
+
+以为马修被时空修正，没想到居然是笑到最后的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+喵安这拿的根本是强化人剧本啊。
+红高和GQuuuuuuX装备都打光了，钱又都去买穿梭机，是时候上木马了。
+搞出这么大动静，基利西亚机关早就知道了，还怀疑夏利尔的忠诚度。
+下集标题明显neta啦，什么ギレン暗殺計画<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.46)
+
