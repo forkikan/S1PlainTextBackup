@@ -14742,3 +14742,49 @@ SSSS没什么不好，除开少女乐队番外是近年来泥潭最受欢迎的�
 
 说是三个人之间的交流留白了，但谁也没发现修司满脸通红还贪凉是因为发烧也是很够呛的关系就是了<img src="https://static.stage1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Toby_dak  
+##### 11682#       发表于 2025-5-7 08:45
+
+<blockquote>oyss 发表于 2025-5-7 03:08
+为什么行李寄存是中文.....</blockquote>
+其实不单中文，中日英都有。
+
+<img src="https://p.sda1.dev/24/45c091a3f3d636d28b925a3daa91201d/1000109400.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KDConan  
+##### 11683#       发表于 2025-5-7 08:45
+
+这下side 6也有苦呀西大桥了<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Keiji  
+##### 11684#       发表于 2025-5-7 08:47
+
+之前没看过高达，感觉挺好的呀，已经想把之前的都慢慢补完了，不然总感觉有一些梗看不懂<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 11685#       发表于 2025-5-7 08:47
+
+虽然这3个人是还不算伙伴还只是单纯聚在一起没真正清楚对方是访谈就想表达的
+
+但这里是螃蟹帮他量了才让观众知道他发烧了，这就是这两个觉得和平时的他没什么区别
+
+*****
+
+####  Toby_dak  
+##### 11686#       发表于 2025-5-7 08:48
+
+<blockquote>acguy 发表于 2025-5-7 02:15
+</blockquote>
+本作0079IF里面キケロガ是MSN-03。
+

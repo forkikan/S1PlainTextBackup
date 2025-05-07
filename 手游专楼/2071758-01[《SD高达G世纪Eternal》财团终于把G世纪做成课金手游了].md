@@ -12570,3 +12570,14 @@ ex2的主流玩法就是减攻让exia硬吃一刀
 
 另外国际服转生号求个邀请码互填BY28SDAMJ2UGJE
 
+
+*****
+
+####  xiongxingyu  
+##### 1176#       发表于 2025-5-7 08:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67788346&amp;ptid=2071758" target="_blank">fxc731 发表于 2025-5-7 08:42</a>
+
+请教下地形适应性除了影响移动力外，伤害影响吗？抽到个EZ8，但是这地形适应实在 ...</blockquote>
+只有移动，ez8射程不错，原配的西罗有射程+1和移动+1，用起来还行，主要是伤害是真的足。我ex1就是用93骡配ez8过的，虽然腿短走位有点难受，不过影响不是很大。而且坚牢特性应该是目前除了一击必杀之外最好的了，海盗、ez8、78-2和nt-a都是这个特性，ssr里也有全装ZZ和精神力这种好手，虽然缺支援机，不过支援机主要就是挂个debuff，面板影响不大。
+

@@ -1872,3 +1872,18 @@ op原来就是这么编成的吗？我以为和10多年前那种养成系op一�
 
 —— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  scorbian  
+##### 176#       发表于 2025-5-7 08:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67788185&amp;ptid=2196984" target="_blank">ddsdsdsdf 发表于 2025-5-7 04:31</a>
+
+酿酒怎么也酿了20多年吧……最后成品都15年了
+
+狸猫完全没长大，可怕
+
+搞笑动画不需要讲逻辑，一话一个平行世 ...</blockquote>
+姐姐之前说她五十多岁，假如姐姐按人类年龄七岁来算，也就长了三岁这样
+
