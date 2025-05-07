@@ -16232,3 +16232,111 @@ NGA看到的一个说法是喵安进kirakira以后已经是没有用眼睛而是
  ...</blockquote>
 这么算下来番茄和修司基本上每天晚上都在打军团战<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  璇瑢子R  
+##### 11807#       发表于 2025-5-7 12:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67789330&amp;ptid=2209276" target="_blank">灵魂收割机 发表于 2025-5-7 12:41</a>
+这么算下来番茄和修司基本上每天晚上都在打军团战</blockquote>
+军团战这么高频率这六年下来要死多少人损坏多少机体
+
+*****
+
+####  YU_JI  
+##### 11808#       发表于 2025-5-7 12:45
+
+<blockquote>璇瑢子R 发表于 2025-5-7 12:38
+基西利亚没有专机吗？
+
+还要坐经济舱？
+</blockquote>
+强调MAV但也没非得2v2，第一集不就是红高GQ1v1
+
+*****
+
+####  Sliurus  
+##### 11809#       发表于 2025-5-7 12:46
+
+<blockquote>璇瑢子R 发表于 2025-5-7 12:38
+基西利亚没有专机吗？
+
+还要坐经济舱？
+</blockquote>
+坐客机隐藏行踪吧，专机太容易被劫了，平民多也不好下手
+
+*****
+
+####  ftyaid  
+##### 11810#       发表于 2025-5-7 12:47
+
+按照原作残党遍地刷新的样子，吉翁的机体和老兵确实太多了
+
+*****
+
+####  Sliurus  
+##### 11811#       发表于 2025-5-7 12:48
+
+<blockquote>璇瑢子R 发表于 2025-5-7 12:44
+军团战这么高频率这六年下来要死多少人损坏多少机体</blockquote>
+不一定每天都打吧，一年开一次或者几次比赛，一开打几天
+
+
+*****
+
+####  岸浪白野  
+##### 11812#       发表于 2025-5-7 12:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67789224&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-7 12:11</a>
+
+大魔就是新商品E(仮)</blockquote>
+
+<img src="https://img.stage1st.com/forum/202505/07/124955fb815k5uvekhk6q8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.02 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 12:49 上传
+
+<img src="https://img.stage1st.com/forum/202505/07/125002my4wkhzkcecqycbz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.13 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 12:50 上传
+
+<img src="https://img.stage1st.com/forum/202505/07/125016cz9laal47dacm9qm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.16 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 12:50 上传
+
+<img src="https://img.stage1st.com/forum/202505/07/125038yd81d18zwdzw81jq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.22 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 12:50 上传
+
+<img src="https://img.stage1st.com/forum/202505/07/125051wdzrrjr8x8cbfdi8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (980.77 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 12:50 上传
+
+<img src="https://img.stage1st.com/forum/202505/07/125059skl8xl08kl16k1xf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1015.52 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 12:50 上传
+
