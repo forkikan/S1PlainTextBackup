@@ -999,3 +999,11 @@ cover上市后的操作更像是要去偶像化
 
 硬要说的话难道真能坚持套一张皮播十年么，一张皮用腻了换张皮也很正常吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aritaatsu222  
+##### 1122#       发表于 2025-5-8 02:37
+
+這些人轉生後有誰長得跟原皮差很多嗎，還沒翡翠換設定前後的區別大
+
