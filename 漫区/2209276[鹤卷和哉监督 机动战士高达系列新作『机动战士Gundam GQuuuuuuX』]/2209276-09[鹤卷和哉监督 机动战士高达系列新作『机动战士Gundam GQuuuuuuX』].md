@@ -598,3 +598,61 @@
 
 笑死
 
+
+*****
+
+####  灵魂收割机  
+##### 11895#       发表于 2025-5-7 18:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67790322&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-7 17:59</a>
+
+就是2个了</blockquote>
+我的意思是，这点角色要演七集，行不行啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  王留美  
+##### 11896#       发表于 2025-5-7 18:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67790322&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-7 17:59</a>
+ 就是2个了</blockquote>
+这个怕不是前期的哦
+两个位里面我看紫色老太婆就能占掉一个了
+
+
+*****
+
+####  我聞如是  
+##### 11897#       发表于 2025-5-7 18:22
+
+不得不說牢修發燒這招真妙
+
+上Debuff之餘有效減低觀眾角度覺得他出軌的觀感(雖然不是男女關係但好歹是MAV)
+
+只是，瑪秋實際上和修司只有在第三集kirakira爽了一下
+
+下集就演到全話的一半了，能不能在鶴卷GG那句“紅高達是否存在”演出來之前
+
+讓他倆來一次正式的MAV配合？
+
+*****
+
+####  希望之异热同心  
+##### 11898#       发表于 2025-5-7 18:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67790245&amp;ptid=2209276" target="_blank">盐盐盐盐盐 发表于 2025-5-7 17:34</a>
+麻球在雨里跑的时候是不知道谁在开gqx，但是说的是她后面见到是喵安从驾驶舱出来那种打击感里，可能有她觉 ...</blockquote>
+这分析对味但感觉喵安要把自己的心态，没和修斯神交的事情说清楚让麻球知道只能一起进高达然后nt感应了233
+傻子那在哪，有空来开个三红拯救jk闹别扭么<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  岸浪白野  
+##### 11899#       发表于 2025-5-7 18:26
+
+因为也不排除这是前期商品
+
+如果预计1集1个6,7集就能把2个也出了，7集有声优视听肯定重要<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
