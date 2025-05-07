@@ -12592,3 +12592,20 @@ EX3只要把机体等级拉满就能过真是太友好了<img src="https://stati
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  胖达君  
+##### 1178#       发表于 2025-5-7 14:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67788346&amp;ptid=2071758" target="_blank">fxc731 发表于 2025-5-7 08:42</a>
+
+请教下地形适应性除了影响移动力外，伤害影响吗？抽到个EZ8，但是这地形适应实在
+
+另外国际服转生号求个邀 ...</blockquote>
+不影响伤害~
+
+我的国际服号：BKGZZZZGYGTP4J，如果有新入坑的可以填我的~~
+
+不过我之前填过别人的了，抱歉<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

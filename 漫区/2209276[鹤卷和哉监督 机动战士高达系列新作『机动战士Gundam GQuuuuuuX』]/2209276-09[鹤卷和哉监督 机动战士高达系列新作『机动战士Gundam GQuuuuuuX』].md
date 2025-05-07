@@ -95,3 +95,47 @@
 
 玛秋和喵安的名字都出现在单集标题里了，修司还没有
 
+
+*****
+
+####  永远的春天  
+##### 11850#       发表于 2025-5-7 14:45
+
+<blockquote>Concrete 发表于 2025-5-7 11:30
+三连星明显没有正史那种战功，而且还是兵痞，被排挤走很正常吧</blockquote>
+三连星是最早参与扎古试验机的士兵，gto里是兰巴的训练对手，参与追杀米博士的战斗。tv是紫色老太婆的教官队成员。
+
+*****
+
+####  0aleph37  
+##### 11851#       发表于 2025-5-7 14:50
+
+马克杯还是紫婆的人吗？
+
+不是的话就容易解释了
+
+
+*****
+
+####  没取名啊  
+##### 11852#       发表于 2025-5-7 14:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67789715&amp;ptid=2209276" target="_blank">0aleph37 发表于 2025-5-7 14:50</a>
+马克杯还是紫婆的人吗？
+
+不是的话就容易解释了</blockquote>
+可能性不大吧，正史里可是到死前一刻都忠心耿耿
+
+*****
+
+####  岸浪白野  
+##### 11853#       发表于 2025-5-7 14:54
+
+<img src="https://img.stage1st.com/forum/202505/07/145453bdtbzxj5atxcbktj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.64 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 14:54 上传
+
