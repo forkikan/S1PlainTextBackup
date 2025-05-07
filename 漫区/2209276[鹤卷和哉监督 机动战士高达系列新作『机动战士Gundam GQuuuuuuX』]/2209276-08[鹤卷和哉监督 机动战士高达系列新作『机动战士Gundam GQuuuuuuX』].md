@@ -16503,3 +16503,54 @@ side6这治安状况，坐民航不怕小混混吗？
 所以为什么是马克杯把黑色三连星挤走了？没记错的话他们应该都隶属于老太婆派系的吧。 ...</blockquote>
 可能优雅的人看不惯兵痞吧
 
+
+*****
+
+####  猪突猛进R  
+##### 11829#       发表于 2025-5-7 13:15
+
+剧中之前提到的17号殖民卫星事件？
+
+这条世界线马克杯相当于提坦斯的电子眼，黑三被派去干黑活搞砸了？
+
+*****
+
+####  Geyorkias  
+##### 11830#       发表于 2025-5-7 13:16
+
+马克杯在79IF的部分就有点不对劲了，可能这次并不完全是彻底的老太婆派。
+
+*****
+
+####  灵魂收割机  
+##### 11831#       发表于 2025-5-7 13:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67789344&amp;ptid=2209276" target="_blank">璇瑢子R 发表于 2025-5-7 12:44</a>
+
+军团战这么高频率这六年下来要死多少人损坏多少机体</blockquote>
+军团战倒不至于有那么长的历史吧。
+
+
+*****
+
+####  桜庭ななみ  
+##### 11832#       发表于 2025-5-7 13:21
+
+这个三足模式好合理啊，既符合气垫滑行的特色，又跟地下黑市那种简单实用的粗糙廉价感很搭。
+
+<img src="https://img.stage1st.com/forum/202505/07/131854fizpm66ia6bzml40.jpg" referrerpolicy="no-referrer">
+
+<strong>BEOVdHXeSzyLaO6Y.jpg</strong> (128.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 13:18 上传
+
+<img src="https://img.stage1st.com/forum/202505/07/131854gdzlv8ccjcccgvoj.jpg" referrerpolicy="no-referrer">
+
+<strong>hCN19lVy2qeAIcyt.jpg</strong> (108.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 13:18 上传
+
