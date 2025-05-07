@@ -293,3 +293,54 @@
 
 结果那两女人就光顾着便乘了，甚至都不看看他的健康状况
 
+
+*****
+
+####  xwz  
+##### 11869#       发表于 2025-5-7 16:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67790029&amp;ptid=2209276" target="_blank">穿越护城河 发表于 2025-5-7 16:25</a>
+
+那一段可不是日光浴啊，是牢修发烧烧糊涂了趴钢弹外壳上物理降温
+
+结果那两女人就光顾着便乘了，甚至都不 ...</blockquote>
+说明这俩人都没有照顾病人的经验……
+
+*****
+
+####  ryanghj  
+##### 11870#       发表于 2025-5-7 16:40
+
+看到日推有人说喵安不知道什么时候管修司叫修酱，就像熏不知道什么时候管加持叫良酱，和明日香管剑介叫剑剑是一个道理的，不做解释让你自己想象<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  轮太  
+##### 11871#       发表于 2025-5-7 16:42
+
+两连星被马克贝挖个坑埋了也不是不能理解
+但是马修都混成市长了给老兄弟安排个警察局副局长之类的不还是轻轻松松
+突然感觉也是塑料兄弟
+
+*****
+
+####  ryanghj  
+##### 11872#       发表于 2025-5-7 16:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67790075&amp;ptid=2209276" target="_blank">轮太 发表于 2025-5-7 16:42</a>
+
+两连星被马克贝挖个坑埋了也不是不能理解
+
+但是马修都混成市长了给老兄弟安排个警察局副局长之类的不还是轻 ...</blockquote>
+马修应该是战伤光荣退役的
+
+*****
+
+####  YU_JI  
+##### 11873#       发表于 2025-5-7 16:45
+
+搞不好是马修把战功全揽在自己身上才光荣退役的
+
