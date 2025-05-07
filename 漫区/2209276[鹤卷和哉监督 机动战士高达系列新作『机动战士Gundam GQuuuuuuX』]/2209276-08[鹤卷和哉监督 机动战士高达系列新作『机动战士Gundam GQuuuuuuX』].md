@@ -15990,3 +15990,106 @@ a part洗战斗服的时候特殊的麻球站栏杆上走，喵安普通走，�
 
 2025-5-7 12:13 上传
 
+
+*****
+
+####  猪突猛进R  
+##### 11787#       发表于 2025-5-7 12:15
+
+对新观众来说这俩就是一集死的杂鱼<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuiuk2  
+##### 11788#       发表于 2025-5-7 12:16
+
+喵安最后还把牢修光剑顺走了，要是没还，下集红高全身上下岂不是就一把光剑了，再不想办法维（被）护（抓）下，就要上拳头了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a85982313  
+##### 11789#       发表于 2025-5-7 12:17
+
+这么贵，虽然可以临时追加，但是如果没有临时追加的话，那剩下的也就两千多日元，不可能是大型机ma这种了呀
+
+*****
+
+####  syndrome2032  
+##### 11790#       发表于 2025-5-7 12:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67789238&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-7 12:15</a>
+对新观众来说这俩就是一集死的杂鱼</blockquote>
+原版0079也没差多少吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  我聞如是  
+##### 11791#       发表于 2025-5-7 12:21
+
+這套立牌剩下兩個沒開獎
+
+紫婆可以預訂一個嗎？
+
+<img src="https://img.stage1st.com/forum/202505/07/122055dphhpa3pwa30135n.png" referrerpolicy="no-referrer">
+
+<strong>1000027861.png</strong> (87.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 12:20 上传
+
+*****
+
+####  朋友费小号  
+##### 11792#       发表于 2025-5-7 12:21
+
+真行，这讨论氛围能烂成这样<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+“连着两场军团战招招毙命”：
+指第二场对面魔女奔着杀人来的，修司不得不下杀手。
+第三场喵安被对面电疗加拳打脚踢搞应激了说不该下杀手。
+这么喜欢道德审判角色，能不能先去当地精神病院做一个疗程电疗啊，我看你下了电椅还是不是这个想法<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+“黑色三连星大尉军衔能在军中混不下去？太扯了吧”：
+怎么？父母给你保护太好了？还是没出社会？真没见过前一天还风风光光布置各种任务，然后第二天就因为后台倒了没人保了，被JW提溜的？<img src="https://static.stage1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">
+就差明牌告诉你被北宋的壶搞了，还“哎呀，我不信！”。
+
+*****
+
+####  秋月孝三  
+##### 11793#       发表于 2025-5-7 12:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">黑三原作里也是两集死，不过带走了骡子初恋
+
+*****
+
+####  lucasxp  
+##### 11794#       发表于 2025-5-7 12:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67789125&amp;ptid=2209276" target="_blank">aptx8285144 发表于 2025-5-7 11:48</a>
+
+在修司的“感染”下，三个把萝卜当海滩晒玩还挺爆笑的，萝卜片历史上有这么搞的吗233，尼安反杀三连星开始 ...</blockquote>
+有的哥们，有的
+
+<img src="https://img.stage1st.com/forum/202505/07/122142oevnfeno4466afx9.png" referrerpolicy="no-referrer">
+
+<strong>121919.png</strong> (1.93 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 12:21 上传
+
+*****
+
+####  ryanghj  
+##### 11795#       发表于 2025-5-7 12:23
+
+所以第一话这里玛秋的确是感到nt的共鸣了，颜色也确实是玛秋kirakira的颜色
+
+<img src="https://p.sda1.dev/24/38431c4a626806af4253860aaa1ac4da/image.jpg" referrerpolicy="no-referrer">
+
+修司会闻她俩也是确认都是nt
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
