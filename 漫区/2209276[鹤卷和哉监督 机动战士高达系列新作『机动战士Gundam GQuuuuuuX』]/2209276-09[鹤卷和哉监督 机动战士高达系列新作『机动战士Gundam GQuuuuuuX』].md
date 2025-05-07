@@ -1224,3 +1224,26 @@ nyan胸前放两个烫斗是我不能理解的审美<img src="https://static.sta
 
 不过如果是这样的话psycommu也太危险了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  灵魂收割机  
+##### 11947#       发表于 2025-5-7 22:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67791079&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-7 22:15</a>
+
+日语原文没有宾语，我觉得不是命令世界这样做，而是高达会自己预测该发生什么，然后将这个预测传给驾驶员 ...</blockquote>
+“そうしろ”就是命令吧？
+
+*****
+
+####  ryanghj  
+##### 11948#       发表于 2025-5-7 22:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67791103&amp;ptid=2209276" target="_blank">灵魂收割机 发表于 2025-5-7 22:23</a>
+
+“そうしろ”就是命令吧？</blockquote>
+是命令形，但是没说是命令谁啊，没有宾语
+
+那是他（高达/psycommu）让（世界/你）这样做的
+
