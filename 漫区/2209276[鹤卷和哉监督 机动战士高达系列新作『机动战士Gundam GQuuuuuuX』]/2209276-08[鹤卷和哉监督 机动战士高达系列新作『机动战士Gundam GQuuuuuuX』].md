@@ -15874,3 +15874,119 @@ gqux目前打戏的表现不足主要问题还是出在没有把3d优势运用�
 
 储藏柜里那段番茄好像能读心首席哥，但是首席哥就完全读不到的样子，唉，NT。另外对面不是GQX驾驶员明摆着也是知道什么的样子吧，首席哥就这样直接放人走了吗？
 
+
+*****
+
+####  winda  
+##### 11780#       发表于 2025-5-7 12:03
+
+这话ab part之间还是有点对仗的。
+
+a part麻球为目睹诗子之死而自闭，b part喵安手起斧落就是一个三连星。
+
+a part洗战斗服的时候特殊的麻球站栏杆上走，喵安普通走，后面面对军警直接出脚时麻球也有一份认为自己特殊，要帮助普通人的小小优越感。
+
+结果b part喵安杀人不眨眼，轻易就踏入了修司的领域，麻球的自信和自命不凡直接哐哐碎一地
+
+*****
+
+####  岸浪白野  
+##### 11781#       发表于 2025-5-7 12:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67789172&amp;ptid=2209276" target="_blank">Tungsten 发表于 2025-5-7 11:58</a>
+
+三连星一台被对半砍断，大概率爆了反应炉，这个炸了能理解
+
+可第二台是点到为止的断头，那又是怎么炸出那么 ...</blockquote>
+这个问题和79的时候GQ夏亚开白高达明明砍的是01高达的头但依然全爆了是一样的
+
+<img src="https://img.stage1st.com/forum/202505/07/120407b5usqx6reeeqmee5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1005.68 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 12:04 上传
+
+*****
+
+####  暗黑能乐  
+##### 11782#       发表于 2025-5-7 12:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67789176&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-7 11:59</a>
+储藏柜里那段番茄好像能读心首席哥，但是首席哥就完全读不到的样子，唉，NT。另外对面不是GQX驾驶员明摆着 ...</blockquote>
+那里应该只是表现手法在隔空对话而已吧，营造喜剧感
+
+—— 来自 HONOR BVL-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  Toby_dak  
+##### 11783#       发表于 2025-5-7 12:06
+
+严重怀疑喵安看到的キラキラ是电疗产生的副作用<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.46)
+
+*****
+
+####  lunaticfool  
+##### 11784#       发表于 2025-5-7 12:09
+
+喵安可能本来就是失忆强化人吧。看到红高达会不爽。懦弱的样子是因为怕麻烦装出来的，电一下暂时恢复了一下，可能在强化人机关没被少电
+
+
+*****
+
+####  岸浪白野  
+##### 11785#       发表于 2025-5-7 12:11
+
+大魔就是新商品E(仮)
+
+<img src="https://img.stage1st.com/forum/202505/07/121004h6hi8w9951fwjeaz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.2 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 12:10 上传
+
+<img src="https://img.stage1st.com/forum/202505/07/121118f2yxgm172sbyq693.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (585.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 12:11 上传
+
+*****
+
+####  岸浪白野  
+##### 11786#       发表于 2025-5-7 12:13
+
+[X 上的 『機動戦士ガンダム』関連イベント情報 【バンダイナムコアミューズメント公式】：“／ 5月8日（木） ガイア、オルテガ登場！！ ＼ 機動戦士Gundam GQuuuuuuX （読み：#ジークアクス）期間限定公式ショップに5月8日 ガイア、オルテガの新商品が登場！ ✨MAVアクリルスタンド✨ ✨S賞アクリルパネル✨ ✨A´賞缶バッジ✨ 公式サイト ▶[url]https://t.co/lS03gmuAsb](https://x.com/am_ev_gundam/status/1919965535900729555) #gquuuuuu [https://t.co/Lz2lPOUwzW](https://t.co/Lz2lPOUwzW)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/07/121256rffn0spenssi7kse.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (760.52 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 12:12 上传
+
+<img src="https://img.stage1st.com/forum/202505/07/121302qzm3md6366me6s3g.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (853.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 12:13 上传
+
+<img src="https://img.stage1st.com/forum/202505/07/121306xdgz0jryriasyi2n.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (630.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 12:13 上传
+
