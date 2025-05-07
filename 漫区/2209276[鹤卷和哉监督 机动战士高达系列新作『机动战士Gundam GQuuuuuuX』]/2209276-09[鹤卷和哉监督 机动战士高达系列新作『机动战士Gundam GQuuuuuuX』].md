@@ -877,3 +877,11 @@
 
 又或者只是想多凑齐几个NT给他们发塞可缪再爆一次大的
 
+
+*****
+
+####  newise  
+##### 11919#       发表于 2025-5-7 19:54
+
+既然机体都在炒79冷饭，最终boss机一定就是<img src="https://static.stage1st.com/image/smiley/bundam2017/002.png" referrerpolicy="no-referrer">了
+
