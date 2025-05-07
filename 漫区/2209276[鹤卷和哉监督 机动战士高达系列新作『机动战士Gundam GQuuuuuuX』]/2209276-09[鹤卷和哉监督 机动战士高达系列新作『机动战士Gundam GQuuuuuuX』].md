@@ -1485,3 +1485,21 @@ NT透過完全把握狀況而在潛意識做出最佳的決定
 
 就只剩老铁你一位没死了啊
 
+
+*****
+
+####  王留美  
+##### 11968#       发表于 2025-5-8 00:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67791377&amp;ptid=2209276" target="_blank">adretyu67. 发表于 2025-5-8 00:17</a>
+ 我倒是比较好奇三连星里马修会不会横跳回来送人头最后凑一个一家人就是整整齐齐 就只剩老铁你一位没死了啊 ...</blockquote>
+人家市长当得春风得意，哪怕被文春炮出轨了也不至于要来打拳吧
+真要给好兄弟报仇难道手下还没点干私活的黑手套？话说真的是好兄弟吗？
+
+*****
+
+####  七七見奈波  
+##### 11969#       发表于 2025-5-8 00:31
+
+其他人都一本正经地追跑打闹（？）怎么只有修司的画风如此清奇<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
