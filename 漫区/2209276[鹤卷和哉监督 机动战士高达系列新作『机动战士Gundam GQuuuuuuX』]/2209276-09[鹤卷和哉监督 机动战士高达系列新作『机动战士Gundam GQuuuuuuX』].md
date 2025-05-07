@@ -1123,3 +1123,45 @@ HG 1/144 力克･大魔 盖亚机/奥尔迪加机(GQ)
 マチュとアンキー
 <img src="https://p.sda1.dev/24/ecd2713a83619dd0c5a5907f74fb850d/20250507_215433.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sacross  
+##### 11939#       发表于 2025-5-7 21:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67790919&amp;ptid=2209276" target="_blank">1096beam 发表于 2025-5-7 21:30</a>
+
+对面的大魔机师便当了？</blockquote>
+一个肯定死了，黑长直所有的攻击都是冲着驾驶舱去的，一台大魔驾驶舱被砍破之后连着火箭筒一起捅穿驾驶舱劈两半，另一个被修司砍头之后殉爆的说不准能苟一下
+
+比较奇怪的是贴脸的火箭筒感觉是不自然的被弹开的，不知道那个镜头的用意是什么
+
+*****
+
+####  只会双持开拓者  
+##### 11940#       发表于 2025-5-7 22:00
+
+看了五集下来，我看的是高达吗，莫名其妙
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 11941#       发表于 2025-5-7 22:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67791013&amp;ptid=2209276" target="_blank">Piano-Forest 发表于 2025-5-7 21:57</a>
+
+【【照井順政】机动戦士高达 GQuuuuuuX 第5话插入曲「水槽の街から」＆「夏の現在地」by みきまりあ (NOMEL ...</blockquote>
+nyan胸前放两个烫斗是我不能理解的审美<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sauron.j  
+##### 11942#       发表于 2025-5-7 22:05
+
+无论最后展开是否翻车，原创度是要扣不少分了
+
+致敬和借鉴得比例太高以至于你怀疑它究竟还剩下几分属于自己的东西，在创作者角度有点致命<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
