@@ -947,3 +947,11 @@ vtuber当然不可能流汗，就好像vtuber不会哭那样，这自然是被�
 主要是虹杏在转型路 ...</blockquote>
 杏哪来的转型，20年以后都是偶像化路线了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sekai2014  
+##### 1118#       发表于 2025-5-7 08:16
+
+cover上市后的操作更像是要去偶像化
+
