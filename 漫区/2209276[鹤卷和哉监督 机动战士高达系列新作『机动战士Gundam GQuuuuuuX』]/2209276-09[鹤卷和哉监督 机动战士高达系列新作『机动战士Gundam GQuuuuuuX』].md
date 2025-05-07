@@ -1165,3 +1165,62 @@ nyan胸前放两个烫斗是我不能理解的审美<img src="https://static.sta
 
 致敬和借鉴得比例太高以至于你怀疑它究竟还剩下几分属于自己的东西，在创作者角度有点致命<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  傘木希美  
+##### 11943#       发表于 2025-5-7 22:08
+
+新歌真好听啊<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2227A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Concrete  
+##### 11944#       发表于 2025-5-7 22:09
+
+两首新插曲都很不错呢，很空灵。雨中那首的意境(星空的🌌感觉)很棒
+
+<img src="https://img.stage1st.com/forum/202505/07/220907b5zbogbsl5glubgw.jpg" referrerpolicy="no-referrer">
+
+<strong>1000039631.jpg</strong> (205.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 22:09 上传
+
+*****
+
+####  我聞如是  
+##### 11945#       发表于 2025-5-7 22:10
+
+<blockquote>az一串字母 发表于 2025-5-7 21:16
+有没有人能解读一下修司这句话到底在聊什么，前文还是麻球聊kirakira，他突然来这一句很突兀，像没跟上话题 ...</blockquote>
+英文配音版是這樣，比較好懂但不知榎戶的原意保留了多少
+
+"When I'm in the GQuuuuuuX, somehow I could feel the whole universe responding to me."
+
+(當我坐上GQuuuuuuX的時候，感覺整個宇宙都在回應我)
+
+"That's him telling the universe to do that"
+
+(那是他叫宇宙這樣做的)
+
+考慮到修司一直叫高達做高達，這裡會特別用"他"，應該指的是GQuuuuuuX
+
+
+*****
+
+####  ryanghj  
+##### 11946#       发表于 2025-5-7 22:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67791059&amp;ptid=2209276" target="_blank">我聞如是 发表于 2025-5-7 22:10</a>
+
+英文配音版是這樣，比較好懂但不知榎戶的原意保留了多少
+
+"When I'm in the GQuuuuuuX, somehow I could f ...</blockquote>
+日语原文没有宾语，我觉得不是命令世界这样做，而是高达会自己预测该发生什么，然后将这个预测传给驾驶员，驾驶员以为这是自己的想法
+
+不过如果是这样的话psycommu也太危险了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
