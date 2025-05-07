@@ -1403,3 +1403,85 @@ NT透過完全把握狀況而在潛意識做出最佳的決定
 
 从第七集开始可以当第二季看了（确信）
 
+
+*****
+
+####  Gysumitka  
+##### 11962#       发表于 2025-5-8 00:10
+
+突入鹤卷的六集领域<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  神意  
+##### 11963#       发表于 2025-5-8 00:12
+
+北宋的壶我记得是中将还是少将来着？
+排挤黑色三连星？？
+拜托，这三捡战功都比不上夏亚，对马克杯毫无威胁。哪有人嫌打手多的，真要是排挤又怎么可能给他们带走里克大魔，这玩意可不像扎古那样生产了一大堆
+
+*****
+
+####  YU_JI  
+##### 11964#       发表于 2025-5-8 00:13
+
+鹤卷：瞎几把做了六集之后终于可以好好拍东西了
+
+
+*****
+
+####  ryanghj  
+##### 11965#       发表于 2025-5-8 00:16
+
+这六集内容搁以前来拍的确能排成一季度甚至半年<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+后六集肯定要被收安了
+
+*****
+
+####  岸浪白野  
+##### 11966#       发表于 2025-5-8 00:17
+
+[【グッズ-スタンドポップ】機動戦士Gundam GQuuuuuuX トコトコアクリルスタンド | アニメイト](https://www.animate-onlineshop.jp/pn/pd/3125284/)
+
+<img src="https://img.stage1st.com/forum/202505/08/001705qnn7ui4uuyck9y09.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (351.21 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-8 00:17 上传
+
+<img src="https://img.stage1st.com/forum/202505/08/001709i2eijjxk6j8be0k3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (211.56 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-8 00:17 上传
+
+<img src="https://img.stage1st.com/forum/202505/08/001712onsnz6nhdb491wfz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (538.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-8 00:17 上传
+
+<img src="https://img.stage1st.com/forum/202505/08/001718kr1uqtrqu3rq61lq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (543.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-8 00:17 上传
+
+*****
+
+####  adretyu67.  
+##### 11967#       发表于 2025-5-8 00:17
+
+我倒是比较好奇三连星里马修会不会横跳回来送人头最后凑一个一家人就是整整齐齐<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+就只剩老铁你一位没死了啊
+
