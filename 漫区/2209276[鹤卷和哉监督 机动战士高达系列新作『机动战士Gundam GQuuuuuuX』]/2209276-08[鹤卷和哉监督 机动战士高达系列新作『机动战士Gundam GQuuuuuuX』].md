@@ -16402,3 +16402,104 @@ NGA看到的一个说法是喵安进kirakira以后已经是没有用眼睛而是
 
 不是正式访问的话自然就不会坐专机了。
 
+
+*****
+
+####  璇瑢子R  
+##### 11819#       发表于 2025-5-7 13:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67789426&amp;ptid=2209276" target="_blank">tomzach 发表于 2025-5-7 13:03</a>
+大概率不是正式访问，否则前脚索顿突入side6后脚吉翁公国两大实权派系之一的领袖就跑过来，对side6的刺激 ...</blockquote>
+那也可以开个补给船来就当给木马送东西就行
+
+side6这治安状况，坐民航不怕小混混吗？
+
+*****
+
+####  暗黑能乐  
+##### 11820#       发表于 2025-5-7 13:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">但是基西莉亚那个位置的人，坐经济舱确实有点太夸张了，属于是很想死了，不敢公开的话秘密约定一下就好了，又不是坐专机就等于满世界都知道
+
+*****
+
+####  猪突猛进R  
+##### 11821#       发表于 2025-5-7 13:06
+
+猜猜下集暗杀能不能成功？
+
+*****
+
+####  ftyaid  
+##### 11822#       发表于 2025-5-7 13:09
+
+<blockquote>猪突猛进R 发表于 2025-5-7 13:06
+猜猜下集暗杀能不能成功？</blockquote>
+不能，暗杀成功了内战可能性就很小了
+
+*****
+
+####  岸浪白野  
+##### 11823#       发表于 2025-5-7 13:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67789415&amp;ptid=2209276" target="_blank">王留美 发表于 2025-5-7 13:01</a>
+
+德姆的肩膀上也有类似勇士的柱状传感器
+
+我觉得勇士是兹玛德出品的概率更高了 ...</blockquote>
+之前发过的山下笑话吉翁尼克失去机会就已经给兹玛德继续加暗示了吧
+
+<img src="https://img.stage1st.com/forum/202505/07/130916hyuu1848081nzwcn.png" referrerpolicy="no-referrer">
+
+<strong>NDO`HC4573HQPF)5Q[BQD}3.png</strong> (446.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 13:09 上传
+
+*****
+
+####  王留美  
+##### 11824#       发表于 2025-5-7 13:09
+
+从马修的新闻上看黑三连还是有名气的
+马修识时务跑得快应该是buff拿足了
+剩下的两个人搞不好是被马克贝安排搞砸了什么任务后丢待遇了（参考正史弄死卡尔马后的鸭子
+
+*****
+
+####  Sliurus  
+##### 11825#       发表于 2025-5-7 13:10
+
+<blockquote>暗黑能乐 发表于 2025-5-7 13:00
+没道理的，不存在所谓的平民多不好下手这种善良的举动。。</blockquote>
+人多不好控制，劫机可能出意外。直接击落客机的话，势力斗争波及太多平民很容易产生暴动
+
+
+*****
+
+####  tomzach  
+##### 11826#       发表于 2025-5-7 13:12
+
+所以为什么是马克杯把黑色三连星挤走了？没记错的话他们应该都隶属于老太婆派系的吧。
+
+*****
+
+####  暗黑能乐  
+##### 11827#       发表于 2025-5-7 13:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67789455&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-5-7 13:10</a>
+人多不好控制，劫机可能出意外。直接击落客机的话，势力斗争波及太多平民很容易产生暴动 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">但是吉翁不在乎平民的人确实就是这么多吧
+
+—— 来自 HONOR BVL-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  璇瑢子R  
+##### 11828#       发表于 2025-5-7 13:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67789461&amp;ptid=2209276" target="_blank">tomzach 发表于 2025-5-7 13:12</a>
+所以为什么是马克杯把黑色三连星挤走了？没记错的话他们应该都隶属于老太婆派系的吧。 ...</blockquote>
+可能优雅的人看不惯兵痞吧
+
