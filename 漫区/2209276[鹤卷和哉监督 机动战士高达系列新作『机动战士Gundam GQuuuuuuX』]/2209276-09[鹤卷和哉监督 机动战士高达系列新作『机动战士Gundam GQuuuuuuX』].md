@@ -950,3 +950,67 @@ MAV要两机，加个大扎姆，打不过还能合体成伟大鸡瘟号
 
 玛秋在目睹了喵安和修司作战后，会不会失去欲望？失去欲望的玛秋是否也无法启动omega psycommu？最后又将如何解决这个心结？看起来第6集要一集把这些事情讲完了，但是却起了个“基西莉亚暗杀计划”的标题<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  az一串字母  
+##### 11925#       发表于 2025-5-7 21:16
+
+有没有人能解读一下修司这句话到底在聊什么，前文还是麻球聊kirakira，他突然来这一句很突兀，像没跟上话题还在解释为什么要涂鸦
+
+<img src="https://img.stage1st.com/forum/202505/07/211548txcdxfo2kxkhynxx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250507_211521_tv.danmaku.bili.jpg</strong> (173.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 21:15 上传
+
+*****
+
+####  ylssb10438  
+##### 11926#       发表于 2025-5-7 21:17
+
+ 本帖最后由 ylssb10438 于 2025-5-7 21:20 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67790525&amp;ptid=2209276" target="_blank">Aunn 发表于 2025-5-7 19:01</a>
+
+没怎么看讨论，很困惑，这都快一半了，剧情主线甚至支线都还是模糊不清，难道就是颠婆颠佬发电最后和解吗， ...</blockquote>
+反正对我来说男主与其说是色，不如说是“兄弟，你好骚啊”，可能是人设导致吧，反正感觉与少主那种色和麻中蓬那种可爱不是一回事，没有那种doki的感觉。然后女二穿驾驶服后还行，日常有点普普的感觉。。。目前最有感觉的还是魔女
+
+*****
+
+####  YU_JI  
+##### 11927#       发表于 2025-5-7 21:19
+
+<blockquote>az一串字母 发表于 2025-5-7 21:16
+有没有人能解读一下修司这句话到底在聊什么，前文还是麻球聊kirakira，他突然来这一句很突兀，像没跟上话题 ...</blockquote>
+这个翻译不是很好，我看的版本是“当我乘上GQuuuuuux的时候，整个世界都会努力回应我”“因为那是高达让它（世界）做的”
+
+
+*****
+
+####  阿布都督  
+##### 11928#       发表于 2025-5-7 21:24
+
+这个剧到目前为止真的很莫名其妙，不知道在干啥，“脱力”这个词形容的很准确
+
+*****
+
+####  ryanghj  
+##### 11929#       发表于 2025-5-7 21:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67790861&amp;ptid=2209276" target="_blank">az一串字母 发表于 2025-5-7 21:16</a>
+
+有没有人能解读一下修司这句话到底在聊什么，前文还是麻球聊kirakira，他突然来这一句很突兀，像没跟上话题 ...</blockquote>
+“他”指的是高达吧
+
+*****
+
+####  ryanghj  
+##### 11930#       发表于 2025-5-7 21:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67790868&amp;ptid=2209276" target="_blank">ylssb10438 发表于 2025-5-7 21:17</a>
+
+反正对我来说男主与其说是色，不如说是“兄弟，你好骚啊”，可能是人设导致吧，反正感觉与少主那种色和麻 ...</blockquote>
+修司的色完全是女性特攻（
+

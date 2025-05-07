@@ -1964,3 +1964,18 @@ aiko是宇多田光和滨崎步那代的有名歌手，新生代的歌手比如�
 官推小漫画 第五张。变身的原理。
 <img src="https://p.sda1.dev/24/1c7a82e5e676a1a73cea1b9286f37511/5.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 184#       发表于 2025-5-7 21:19
+
+这集很像调酒师+等待与希望了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 185#       发表于 2025-5-7 21:22
+
+调酒后期，八千代的画风<strong>好像有点变老了</strong>，不知道是涂了口红还是眉毛变多了的关系？
+
