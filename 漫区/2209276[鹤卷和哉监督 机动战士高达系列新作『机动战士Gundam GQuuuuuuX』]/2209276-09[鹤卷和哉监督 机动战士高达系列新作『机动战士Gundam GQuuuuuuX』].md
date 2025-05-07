@@ -1586,3 +1586,39 @@ GQ两个字母既简单又本来就代表性想什么
 
 为啥喵安知道她能开gqx，试过？
 
+
+*****
+
+####  otaku21126  
+##### 11979#       发表于 2025-5-8 01:30
+
+虽然开播前我不认为“哈曼说”有可能性，但是在开播后看着越来越缺乏正经爆点的展开，现在反而期待起“哈曼说”成真了。
+
+大胆预测一下，后半程剧情可能会出现以下情节（按情节发生先后顺序）：
+
+玛秋一行人下宇宙看海，侧身搂着修斯让尼亚安给他俩拍合影；
+
+夏利亚秘密调查发现，基西利亚在第6话乘机前往side6，就是去秘密探望玛秋的；
+
+GquuuuuuX作为高达惯例的TV后半程改修，是增加了BIT的最新改进型武装Funnel。
+
+第12话标题解明，GQubeleyX
+
+*****
+
+####  岸浪白野  
+##### 11980#       发表于 2025-5-8 01:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67791376&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-8 00:17</a>
+
+【グッズ-スタンドポップ】機動戦士Gundam GQuuuuuuX トコトコアクリルスタンド | アニメイト</blockquote>
+[【トレーディングフィギュア】ちょこりんコレクション 機動戦士Gundam GQuuuuuuX | アニメイト](https://www.animate-onlineshop.jp/products/detail.php?product_id=3126571&amp;transactionid=72f72822940481b652453479c2dd8819ebdc918a)
+
+<img src="https://img.stage1st.com/forum/202505/08/013137rxqzdxvcaunsmppn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (348.48 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-8 01:31 上传
+
