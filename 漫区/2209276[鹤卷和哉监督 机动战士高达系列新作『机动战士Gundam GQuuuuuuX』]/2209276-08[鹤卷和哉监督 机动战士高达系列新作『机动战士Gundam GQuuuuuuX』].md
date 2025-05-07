@@ -15207,3 +15207,35 @@ NT之间是这样的。
 
 2025-5-7 10:45 上传
 
+
+*****
+
+####  moudianzi  
+##### 11724#       发表于 2025-5-7 10:52
+
+3人都能开，但机子就2台，后续怎么分配？刀掉1个，还是跳反1个蹭别人的，又或者再变1台出来？玩具情报那边有没有相关的消息剧透？
+
+*****
+
+####  Xekueins  
+##### 11725#       发表于 2025-5-7 10:53
+
+男主我还是觉得没啥魅力，要不早点下线算了
+
+*****
+
+####  a85982313  
+##### 11726#       发表于 2025-5-7 10:55
+
+<img src="https://p.sda1.dev/24/4c6b425493c977c27f33d031f653d3ce/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  yanghuangu  
+##### 11727#       发表于 2025-5-7 10:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67788849&amp;ptid=2209276" target="_blank">moudianzi 发表于 2025-5-7 10:52</a>
+
+3人都能开，但机子就2台，后续怎么分配？刀掉1个，还是跳反1个蹭别人的，又或者再变1台出来？玩具情报那边 ...</blockquote>
+最后绿叔叔不是要调MA来吗，后面安排给强化人喵安不就得了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
