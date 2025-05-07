@@ -807,3 +807,45 @@
 
 而且玛秋的人设就是恋爱脑，这集开头基本明着告诉你玛秋喜欢修司了，也不可能关同一个衣柜就暧昧上了
 
+
+*****
+
+####  天邪鬼  
+##### 11913#       发表于 2025-5-7 19:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67790162&amp;ptid=2209276" target="_blank">焚尘 发表于 2025-5-7 17:11</a>
+现在年轻人杀心这么重的吗，人家逗逗你的，上来就砍驾驶舱</blockquote>
+这两集都是明显带着杀意来的，只是上集联邦魔女是针对红高达，这集是针对gqx驾驶员
+
+*****
+
+####  猪突猛进R  
+##### 11914#       发表于 2025-5-7 19:29
+
+麻球和首席哥被关储物柜时有个NTR发言“对不起，修司”<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+后面确实被牛了，不过是喵安牛的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  盐盐盐盐盐  
+##### 11915#       发表于 2025-5-7 19:30
+
+<blockquote>ryanghj 发表于 2025-5-7 19:13
+他的ma有赛课谬的，给喵安送机来了吧
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+他这么肯定能拉到喵安给他打工吗
+
+喵安作为第二主角还要开大叔的二手ma是否有点委屈了（
+
+
+*****
+
+####  暗黑能乐  
+##### 11916#       发表于 2025-5-7 19:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">能端上来个能看的新机吗，全是爆改老机炒冷饭
+
+—— 来自 HONOR BVL-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
