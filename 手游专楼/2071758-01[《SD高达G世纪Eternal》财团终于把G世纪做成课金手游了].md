@@ -12680,3 +12680,11 @@ UR三明也是盾机<img src="https://static.stage1st.com/image/smiley/face2017/
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  windtrack  
+##### 1186#       发表于 2025-5-7 22:50
+
+玛修底子其实不错，但是得等到以后给gqux开更多的机体，后面如果有比较厉害的ssr开发机就好用了
+
