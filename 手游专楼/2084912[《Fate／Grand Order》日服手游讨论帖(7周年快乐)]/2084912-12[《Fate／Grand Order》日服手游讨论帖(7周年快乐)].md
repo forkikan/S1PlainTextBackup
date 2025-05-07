@@ -1055,3 +1055,46 @@
 
 三十发就出了然后开始一直黑，歪了个月神开始感觉不对劲了，五百石了还没见第二宝，不敢抽了<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DARKGRAY  
+##### 16645#       发表于 2025-5-7 21:44
+
+都五百了，顶多也就再丢四百（恶魔低语）
+
+*****
+
+####  quanlix  
+##### 16646#       发表于 2025-5-7 22:36
+
+给你游贡献了10单
+
+*****
+
+####  大十字紅朔  
+##### 16647#       发表于 2025-5-8 00:58
+
+ 本帖最后由 大十字紅朔 于 2025-5-8 01:08 编辑 
+
+总算宝具2了
+
+大概510石头+40呼符
+
+无氪的极限
+
+<img src="https://img.stage1st.com/forum/202505/08/005839za192l9qpmq6f5ld.jpg" referrerpolicy="no-referrer">
+
+<strong>a08f3263219d1868e3dd2ba7275bcc10.jpg</strong> (242.11 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-8 00:58 上传
+
+*****
+
+####  DARKGRAY  
+##### 16648#       发表于 2025-5-8 03:20
+
+打玛修硬币本随便用了令咒，不是说这两场的令咒独立计算么，打完就傻眼了，完全没恢复<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
