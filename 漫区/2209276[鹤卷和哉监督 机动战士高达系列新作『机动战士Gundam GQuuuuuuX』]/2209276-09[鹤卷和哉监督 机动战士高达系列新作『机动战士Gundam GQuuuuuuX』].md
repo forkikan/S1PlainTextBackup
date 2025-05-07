@@ -1662,3 +1662,19 @@ GquuuuuuX作为高达惯例的TV后半程改修，是增加了BIT的最新改进
 
 这次扎比家除了汤小美她爹其他人都还在？
 
+
+*****
+
+####  zzf111  
+##### 11985#       发表于 2025-5-8 04:59
+
+<img src="https://img.stage1st.com/forum/202505/08/045844tcedg586hu4hj51j.jpg" referrerpolicy="no-referrer">
+
+<strong>1746614797501.jpg</strong> (241.52 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-8 04:58 上传
+
+[(2) X 上的 約およそ：“次回！　ジークアクス第６話！！！ 来週も、ぜってぇ観てくれよな！！ [url]https://t.co/B39i3xVfCC](https://x.com/yakuoyoso/status/1920056015992856890)” / X[/url]
+
