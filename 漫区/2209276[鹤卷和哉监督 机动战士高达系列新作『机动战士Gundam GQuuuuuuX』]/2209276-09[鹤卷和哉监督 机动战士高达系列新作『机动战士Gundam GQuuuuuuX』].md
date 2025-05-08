@@ -2584,3 +2584,11 @@ kirakira聊天室的配色总觉得就是修斯没事做喜欢喷涂的那个，
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  YU_JI  
+##### 12068#       发表于 2025-5-9 00:36
+
+之前都忙着骂痞子主题公园式直球复刻，现在看还是说早了，鹤卷哥哥也干了，看来能忍着痞子一起混这么多年不是没有原因的<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

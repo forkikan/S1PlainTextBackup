@@ -12898,3 +12898,27 @@ EX2没能天没SF也能过，就是练度要求比较高</blockquote>
 家里有2破exia和0破SF，有什么靠谱战法</blockquote>
 1边1个输出干就是了，上好增伤，然后剩余的拿盾保这2个，可看情况上必闪的机师
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 1207#       发表于 2025-5-9 00:28
+
+<img src="https://img.stage1st.com/forum/202505/09/002757o8dgdd4v8k7v5uvi.png" referrerpolicy="no-referrer">
+
+<strong>MuMu12-20250509-002610.png</strong> (521.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 00:27 上传
+
+<img src="https://img.stage1st.com/forum/202505/09/002757tf3y6izejxoz4yi4.png" referrerpolicy="no-referrer">
+
+<strong>MuMu12-20250509-002625.png</strong> (501.4 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 00:27 上传
+
+井了普池，麻烦各位帮我看看普池换什么好？
+
