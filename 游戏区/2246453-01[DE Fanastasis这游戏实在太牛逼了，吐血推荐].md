@@ -4373,3 +4373,14 @@ steam版搞汉化方便吗</blockquote>
 三兄弟，第一个在下水道入口传送点往阿尔卡姆平原走，第二个在达卡斯地下墓地传送点往西北方向，第三个是 ...</blockquote>
 问下，三个处刑人都干掉了，但是硬币只有两个，我是遇到 bug 了还是哪里出错了。
 
+
+*****
+
+####  DDWarrior  
+##### 398#       发表于 2025-5-8 14:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67792282&amp;ptid=2246453" target="_blank">莫名奇妙封ID 发表于 2025-5-8 10:33</a>
+
+问下，三个处刑人都干掉了，但是硬币只有两个，我是遇到 bug 了还是哪里出错了。 ...</blockquote>
+看看是不是漏了平原那位的硬币？硬币不在他身上，在平原入口往南走的房子那边
+

@@ -2137,3 +2137,17 @@ g夸x快点展现完全体吧，我游戏里还等着这机体强化加招呢
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  猪突猛进R  
+##### 12029#       发表于 2025-5-8 14:35
+
+还别说，如果马修把另外俩人当兄弟的话，说不定后面真的会齐齐整整<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+在GTO的敖德萨战里，盖亚和奥尔迪加在死了马修后获得了新人和补给，加起来一共8台大魔，本来的任务是伏击木马。
+
+但他俩看到高达后就不淡定了，暂时放弃目标先去寻仇，结果8台大魔被白色恶魔反杀。
+
+GQX里也可以来这套，把领头的换成马修就行。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
