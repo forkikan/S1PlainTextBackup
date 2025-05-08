@@ -2775,3 +2775,281 @@ GQX的最终结局怎样，还有待继续观察。
 
 2025-5-9 05:14 上传
 
+
+*****
+
+####  sliver1997  
+##### 12075#       发表于 2025-5-9 01:08
+
+黑拳打太难看了才是问题哇，要每场黑拳机战戏水平都很高，吐槽黑拳的人会少点的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ryanghj  
+##### 12076#       发表于 2025-5-9 01:27
+
+ 本帖最后由 ryanghj 于 2025-5-9 01:32 编辑 
+
+说实话我觉得打戏没啥问题，不是顶级也是次顶级了，而且集集有战斗有啥好不满的
+
+前几部高达我记得好多观众都抱怨文戏太多来着，gqux有种把两季内容塞成一季的感觉，没有日常回，没有纯文戏回
+
+其实日常回实际上是为了制作上的方便搞出来的省工回，尤其是老片那种年番体制下不可能集集做到有打戏，但是这种做法后面越来越滥用，半年番，甚至季番都开始注水<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mintslime  
+##### 12077#       发表于 2025-5-9 01:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67795384&amp;ptid=2209276" target="_blank">白色池塘 发表于 2025-5-9 01:07</a>
+
+我猜哈罗里面可能含有脑波检测系统之类的吧，所以能判断驾驶者是否能启动欧米伽塞可缪。
+
+考虑到安洁老姐 ...</blockquote>
+我觉得可能是夏利亚搞了鬼坑首席，不然首席再怎么说也是能脑门过闪的正经nt，没理由不能用。再说这集都明说首席很傻很天真别被夏利亚利用了，总不能夏利亚真的就只是善良大叔上司吧。
+
+前几话已经说了，扎比家内战谁赢谁得宇宙，就只有红高达这一个变数，所以无论是紫婆还是基连，都会想要灭夏亚口，gqux上面的系统都直接叫“alphacide”了，这词除了alpha杀手之外没啥别的翻译方法，名字上来说就是冲着干死红高达去的。夏利亚想要找回夏亚的话，肯定不会想让机体留在吉翁的手上。
+
+*****
+
+####  猪突猛进R  
+##### 12078#       发表于 2025-5-9 01:52
+
+打戏还行啊，除了魔女那场有点莫名其妙，搞不清是红高达发功还是修司的驾驶技术。
+
+分镜我倒不是很在意，气氛到了就行。尤其是这集喵安一开始想摸鱼，结果被黑二连追着电疗+一顿老拳，看得很欢乐<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+总体来看GQX是对标水魔的，之前也有人讨论过了，可能是甲方按要求发包，一群乙方交作业，所以有相似之处。
+
+就目前观感而言，GQX＞水魔。
+
+GQX前三集其实受先行剧场版拖累了，尤其第2集剪的什么鬼玩意，但第4、5集，哪个不是高潮迭起。
+
+所以只要最后平安落地，GQX就是十多年来最优秀的高达。
+
+其实铁血和水魔本来也有机会的，但最后都是脸朝下坠地。
+
+GQX的最终结局怎样，还有待继续观察。
+
+*****
+
+####  岸浪白野  
+##### 12079#       发表于 2025-5-9 05:18
+
+ 本帖最后由 岸浪白野 于 2025-5-9 05:32 编辑 
+
+[X 上的 양갈래：“🚔](https://x.com/2wintail__/status/1919991540648137055)[https://t.co/a3iYR3dnT8](https://t.co/a3iYR3dnT8)” / X
+
+<img src="https://img.stage1st.com/forum/202505/09/045245hd63sgo6iszcxenw.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250509045149.jpg</strong> (1.49 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 04:52 上传
+
+[X 上的 九石三羽：“5話に出てきたマチュのファンの娘のファンアートです。 #ジークアクス](https://x.com/sasakamakue/status/1920080387289788484)[https://t.co/HBdaddDyDf](https://t.co/HBdaddDyDf)” / X
+
+<img src="https://img.stage1st.com/forum/202505/09/045433trfx06ax3hx69mp9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.44 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 04:54 上传
+
+[X 上的 AMETAROU：“へ～女の子なら誰とでもオメガサイコミュしちゃうんだー](https://x.com/NikkariAoe1/status/1920158925783248941)[https://t.co/tTRduAJnmL](https://t.co/tTRduAJnmL)” / X
+
+<img src="https://img.stage1st.com/forum/202505/09/050150ew49iu89uwwd8844.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (849.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 05:01 上传
+
+[X 上的 誰何。：“きらきらくらげのマチュ](https://x.com/suikano5/status/1919961959769788617)[https://t.co/zDk4iHAPRd](https://t.co/zDk4iHAPRd)” / X
+
+<img src="https://img.stage1st.com/forum/202505/09/050249ybp9if4i9z1md94u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.55 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 05:02 上传
+
+[X 上的 ぐんじょうです❗️ご依頼/Skeb募集中：“絶対領域マチュ](https://x.com/nanashnojo/status/1920418576156024943)[https://t.co/aHZ9S99F09](https://t.co/aHZ9S99F09)” / X
+
+<img src="https://img.stage1st.com/forum/202505/09/050634lae8jayjloxn3lco.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250509050542.jpg</strong> (753.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 05:06 上传
+
+[X 上的 Edgar_syu：“「文化祭メイド出勤中(´・ω・`)」 #GQuuuuuuX #ジークアクス [url]https://t.co/Ifbf8SDrQH](https://x.com/Edgar_Syu/status/1920433548219080837)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/09/053239nas030rkvcu8v3ij.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250509053141.jpg</strong> (1.41 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 05:32 上传
+
+[X 上的 えど開店休業：“シイコとアンキー #GQuuuuuuX](https://x.com/edo_mond/status/1920071111582298504)[https://t.co/SKVy3qke3k](https://t.co/SKVy3qke3k)” / X
+
+<img src="https://img.stage1st.com/forum/202505/09/051659vu9vhu2tn9qd2vv9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.27 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 05:16 上传
+
+[X 上的 またへい：“](https://x.com/matahe_i/status/1920354950195839213)[https://t.co/qegfb5pFNF](https://t.co/qegfb5pFNF)” / X
+
+<img src="https://img.stage1st.com/forum/202505/09/050313n0kdrdo1sse431sw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (613.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 05:03 上传
+
+[X 上的 木村森：“](https://x.com/kimra_shin/status/1920110069548802335)[https://t.co/3wu29pNCrh](https://t.co/3wu29pNCrh)” / X
+
+<img src="https://img.stage1st.com/forum/202505/09/051013u5lptknhsk5fwlws.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.11 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 05:10 上传
+
+[X 上的 🫧：“](https://x.com/uwawawaua/status/1920157882789810235)[https://t.co/LDUuEBkm2J](https://t.co/LDUuEBkm2J)” / X
+
+<img src="https://img.stage1st.com/forum/202505/09/051334sotbbym42b4ococb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1010.05 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 05:13 上传
+
+[X 上的 wgE：“#GQuuuuuuX #ジークアクス](https://x.com/dantadant/status/1920222108451557600)[https://t.co/KOuaMmrrs0](https://t.co/KOuaMmrrs0)” / X
+
+<img src="https://img.stage1st.com/forum/202505/09/051404yh7mbs6znzd17zjf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.31 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 05:14 上传
+
+*****
+
+####  岸浪白野  
+##### 12080#       发表于 2025-5-9 05:55
+
+[X 上的 ハルキ：“5話前のシュウ←マチュ いつもよりかわいい下着を買うマチュ [url]https://t.co/Mp8NcpDOrU](https://x.com/haruki_chise/status/1920177875065676131)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/09/052132cqua4d54nwsmvw8b.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.01 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 05:21 上传
+
+[X 上的 おじすこ＊H-06浅草ぱんっあ(4/29)：“マチュとニャアン、将来シュウジをめぐってメビウスの輪から抜け出せなくなりそう #GQuuuuuuX #ジークアクス [url]https://t.co/ERUbQitz1o](https://x.com/shirususuri/status/1920119630057873818)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/09/051958qhi9rraq9zmrlr33.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.98 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 05:19 上传
+
+<img src="https://img.stage1st.com/forum/202505/09/052005n7t1v00k2uyshrtt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.42 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 05:20 上传
+
+[X 上的 Ervin@Sked1000円で描く男：“因果応報はこのくらいやる筈！ #GQuuuuuuX #ジークアクス [url]https://t.co/xNOdrRdjfp](https://x.com/Ervin0083/status/1920231930647241096)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/09/054123ta9ppyxa1969k1n6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (919.77 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 05:41 上传
+
+[X 上的 #鹿[Shika]™：““マチュ” [url]https://t.co/00PDfyHx9O](https://x.com/shika_snkrs/status/1920267632856428894)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/09/052158r1lnd4z1xze4j5db.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.26 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 05:21 上传
+
+[X 上的 なむ76＠きららMAXゲスト連載：“5話視聴前・視聴後（ニャアン） #GQuuuuuuX #ジークアクス [url]https://t.co/EcPxvU6EVY](https://x.com/767676na/status/1920463779277451753)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/09/053900vyv99j5vsu6fbybj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.8 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 05:39 上传
+
+[X 上的 すのーらいと❄️：“ニャアン #GQuuuuuuuX #ジークアクス #ニャアン [url]https://t.co/nIyUHcVXN5](https://x.com/Snow_Light__/status/1920423758503764267)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/09/055513ee2ofdgoy2gomzgo.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250509055404.jpg</strong> (640.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 05:55 上传
+
+[X 上的 おもち commission open：“泥494日目 マチュはこう思春期特有の万能感からの無鉄砲ってイメージからのニャアンである [url]https://t.co/gUp2UCqO8U](https://x.com/mochi_skymega/status/1920253107428024662)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/09/052641lzkrpcrvxppsxxss.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.8 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 05:26 上传
+
+[X 上的 JAZZ JACK：“ニャアン #GQuuuuuuX #ジークアクス [url]https://t.co/ik5AiTmLNW](https://x.com/JAZZ_JACK_/status/1920538711768408142)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/09/052605yjbf5wbfe19mz1hu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (622.43 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 05:26 上传
+
+[X 上的 景都：“マチュニャ～ [url]https://t.co/Rb5ibYoEw1](https://x.com/kate_jgk/status/1920086642955850152)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/09/052042rvojj7abob1bgagq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.28 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 05:20 上传
+
