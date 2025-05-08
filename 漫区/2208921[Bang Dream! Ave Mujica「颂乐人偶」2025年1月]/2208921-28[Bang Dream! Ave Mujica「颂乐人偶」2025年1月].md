@@ -613,3 +613,27 @@
 
 [https://x.com/sasakirico/status/1919781196504141865](https://x.com/sasakirico/status/1919781196504141865)
 
+
+*****
+
+####  丰川祥  
+##### 40820#       发表于 2025-5-8 22:21
+
+gsc手办化决定
+
+<img src="https://img.stage1st.com/forum/202505/08/222134bua7az99ubbymzt1.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0802.jpeg</strong> (99.79 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-8 22:21 上传
+
+<img src="https://img.stage1st.com/forum/202505/08/222134imomzp3zzytnhilp.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0801.jpeg</strong> (104.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-8 22:21 上传
+
