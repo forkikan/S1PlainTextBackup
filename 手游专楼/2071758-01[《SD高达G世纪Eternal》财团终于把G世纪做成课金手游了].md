@@ -12822,3 +12822,17 @@ seed那个ex好难，第二轮茫茫多的杂兵和boss，直接把我能量都�
 
 没有的话感觉非UC的好打一点，非UC系目前开发机强度整体比UC强不少
 
+
+*****
+
+####  棍机凹升龙  
+##### 1200#       发表于 2025-5-8 16:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67792637&amp;ptid=2071758" target="_blank">windtrack 发表于 2025-5-8 11:51</a>
+
+看你手头UR机和SSR机配置咋样
+
+如果你强自和自由都有而且还有拉妖战舰，那肯定SEED最好打</blockquote>
+<img src="https://pic1.imgdb.cn/item/681c693058cb8da5c8e55885.jpg" referrerpolicy="no-referrer">
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">左右各1平均得一比导致两边都不上不下  估计只能新UR来打破平衡
+
