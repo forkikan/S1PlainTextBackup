@@ -2031,3 +2031,11 @@ aiko近几年唱歌只有跑调和没那么跑调两个状态，音番默认翻�
 
 刚出预告以为是星之梦酒店机器人版，这几集看下来是人类衰退之后外星交流篇（误）
 
+
+*****
+
+####  itsmyrailgun  
+##### 192#       发表于 2025-5-8 10:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">那来来往往这么多外星人都没提到人类空间站的活动，人类估计还是死透了
+

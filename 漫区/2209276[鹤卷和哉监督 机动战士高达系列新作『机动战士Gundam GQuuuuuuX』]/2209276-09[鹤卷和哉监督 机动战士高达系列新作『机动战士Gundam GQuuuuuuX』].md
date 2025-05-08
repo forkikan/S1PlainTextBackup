@@ -1935,3 +1935,34 @@ https://x.com/iynhfgPFRr3yRwP/status/1919912203064389830?s=19
 
 一旦习惯了这种设定，怎么回事？还挺带感的。反正第五话最后两女主相见的眼神，我突然就来劲了。想知道下一集到底怎么讲的，情敌见面？甚至变成政敌？还是话疗开始？甚至互相理解？
 
+
+*****
+
+####  evestart  
+##### 12011#       发表于 2025-5-8 10:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67791893&amp;ptid=2209276" target="_blank">yichengyu 发表于 2025-5-8 09:25</a>
+
+那你不如去看水星魔女，也是对战过家家</blockquote>
+打黑拳是过家家这种说法怎么流行起来的？
+
+
+*****
+
+####  otaku21126  
+##### 12012#       发表于 2025-5-8 10:40
+
+看NGA有贴提到一件事
+如果把修司负片翻转，他看起来是一个金发青眼的男子
+
+这或许是一个灯下黑伏笔。
+仔细想想，为什么明明红高达是与夏亚一起消失的，它再出现的时候大家都默认坐在上面的人一定不是夏亚呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+考虑到KiraKira表现出的色彩撞色非常严重，或许泽克诺瓦对夏亚进行了重构再生，色彩翻转就是其表现形式
+
+*****
+
+####  woui003woui  
+##### 12013#       发表于 2025-5-8 10:43
+
+总帅重构以后变成这样了吗，那很NT了<img src="https://static.stage1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+
