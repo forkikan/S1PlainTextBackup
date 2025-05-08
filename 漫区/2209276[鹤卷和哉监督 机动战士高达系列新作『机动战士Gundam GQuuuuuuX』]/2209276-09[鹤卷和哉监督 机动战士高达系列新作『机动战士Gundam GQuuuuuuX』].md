@@ -1853,3 +1853,24 @@ g q x 目前这种一边是少女和少年青春懵懂的相遇，一边是快�
 下一话GUX，番茄因妒生恨投入别的团队跟博美组兵戎相见。同时暗杀计划让基西莉亚坐的船卷入黑拳赛，正好就 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没了赛克缪，麻球哪开的动MS。。
 
+
+*****
+
+####  gamedreamer  
+##### 12002#       发表于 2025-5-8 09:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67791893&amp;ptid=2209276" target="_blank">yichengyu 发表于 2025-5-8 09:25</a>
+那你不如去看水星魔女，也是对战过家家</blockquote>
+不要只看前半句啊混蛋(指指点点)<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  有钱多买小人  
+##### 12003#       发表于 2025-5-8 09:54
+
+不是，真要哈曼番茄了吗<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/24/3eb7e7240267c1552282474533cb43fe/image.jpg" referrerpolicy="no-referrer">
+

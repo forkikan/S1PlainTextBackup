@@ -12741,3 +12741,13 @@ UR三明也是盾机<img src="https://static.stage1st.com/image/smiley/face2017/
 可以开溢出的红高达</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">很明显我没有，现在安排开精神力ssr
 
+
+*****
+
+####  无念  
+##### 1192#       发表于 2025-5-8 09:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">我强烈怀疑代哥不送魔女是因为她要进池子了
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
