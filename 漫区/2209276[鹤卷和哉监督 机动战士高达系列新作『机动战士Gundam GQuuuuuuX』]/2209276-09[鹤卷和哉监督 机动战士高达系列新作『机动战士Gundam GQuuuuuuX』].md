@@ -2151,3 +2151,50 @@ g夸x快点展现完全体吧，我游戏里还等着这机体强化加招呢
 
 GQX里也可以来这套，把领头的换成马修就行。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 12030#       发表于 2025-5-8 15:18
+
+那可真是好兄弟
+
+<img src="https://img.stage1st.com/forum/202505/08/151739vvtkvtkpazxjvytt.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20250508013616.jpg</strong> (76.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-8 15:17 上传
+
+<img src="https://img.stage1st.com/forum/202505/08/151757myfqwc12aao8z1a1.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250508013720.png</strong> (403.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-8 15:17 上传
+
+<img src="https://img.stage1st.com/forum/202505/08/151811ddrljgg7mdqbappp.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250508013725.png</strong> (1.17 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-8 15:18 上传
+
+
+*****
+
+####  aptx8285144  
+##### 12031#       发表于 2025-5-8 15:24
+
+我疑惑NGA为什么有些人纠结黑拳会死人，先不说黑拳会死人这事早就交待过，你觉得修司是那种对对手拼命时会圣母(褒义)的主角吗，明显不是呀<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，那杀对方从剧情逻辑上立得住呀，这和SIDE星球不是大规模战争时期所以不会死人有啥必然关系??
+
+*****
+
+####  虚无缥缈的分身  
+##### 12032#       发表于 2025-5-8 15:26
+
+怎么有吃三人行一夫一妻制的女主嬷因本集箭头中心不对绝赞破防中，改去拉首席哥的cp了，首席哥看op不是有他自己的cp对象吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
