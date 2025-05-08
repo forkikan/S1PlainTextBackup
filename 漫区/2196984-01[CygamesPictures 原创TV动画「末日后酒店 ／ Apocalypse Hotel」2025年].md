@@ -2039,3 +2039,41 @@ aiko近几年唱歌只有跑调和没那么跑调两个状态，音番默认翻�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">那来来往往这么多外星人都没提到人类空间站的活动，人类估计还是死透了
 
+
+*****
+
+####  wolf1997  
+##### 193#       发表于 2025-5-8 10:56
+
+诠释时间意义的一集，漫长岁月下的得与失，无尽时光里的变与不变，赋予时间以颜色，这真是一个十分适合通过机器人和外星人来诉说的题目。
+
+
+*****
+
+####  镜中  
+##### 194#       发表于 2025-5-8 11:00
+
+我倒是觉得地球人在外面混得挺不错的，地球的文明文化明显很受欢迎，第二集的外星人还不太明白地球的文明文化，这集的两个外星人已经明显被地球文明文化腌入味了，包括纸质的书本、显眼的女士包包……
+
+*****
+
+####  暗黑能乐  
+##### 195#       发表于 2025-5-8 11:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67792429&amp;ptid=2196984" target="_blank">镜中 发表于 2025-5-8 11:00</a>
+
+我倒是觉得地球人在外面混得挺不错的，地球的文明文化明显很受欢迎，第二集的外星人还不太明白地球的文明文 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真不是地球人贫乏的想象力束缚了自己吗
+
+*****
+
+####  暗黑能乐  
+##### 196#       发表于 2025-5-8 11:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67792137&amp;ptid=2196984" target="_blank">hoyice 发表于 2025-5-8 10:07</a>
+
+这集一下就快一百年出去了啊
+
+酒瘾被钩出来了</blockquote>
+没有吧，酒不是十五年熟成而已吗，我一开始也以为要酿百年
+

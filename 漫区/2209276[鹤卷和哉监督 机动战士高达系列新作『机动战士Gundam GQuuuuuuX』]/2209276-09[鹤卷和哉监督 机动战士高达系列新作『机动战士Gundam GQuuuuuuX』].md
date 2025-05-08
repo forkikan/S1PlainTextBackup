@@ -1990,3 +1990,11 @@ https://x.com/iynhfgPFRr3yRwP/status/1919912203064389830?s=19
 
 现实里打黑拳不一定会现场打死，但是打成瘫痪和植物人这种下死手的例子还是有的吧。
 
+
+*****
+
+####  暗黑能乐  
+##### 12017#       发表于 2025-5-8 10:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑拳确实不过家家啊，但我看对手都挺过家家的，近身格斗撞来撞去不下死手几次了，到现在夸克斯没得整备都没掉点部件全靠对手只撞你不砍你吧
+
