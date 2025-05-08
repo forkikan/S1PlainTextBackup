@@ -1842,3 +1842,14 @@ g q x 目前这种一边是少女和少年青春懵懂的相遇，一边是快�
 这个是在哪看到的消息 ...</blockquote>
 看你敢不敢想了，心有多大天空就有多大（
 
+
+*****
+
+####  暗黑能乐  
+##### 12001#       发表于 2025-5-8 09:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67791922&amp;ptid=2209276" target="_blank">姬萩九郎 发表于 2025-5-8 09:31</a>
+
+下一话GUX，番茄因妒生恨投入别的团队跟博美组兵戎相见。同时暗杀计划让基西莉亚坐的船卷入黑拳赛，正好就 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没了赛克缪，麻球哪开的动MS。。
+

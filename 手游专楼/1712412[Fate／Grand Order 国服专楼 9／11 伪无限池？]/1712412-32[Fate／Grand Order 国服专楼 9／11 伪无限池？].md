@@ -372,3 +372,13 @@ c呆耐久耗尽了，惨！
 
 疯了，打所长打到第九层一不小心重开了
 
+
+*****
+
+####  马桶3  
+##### 47140#       发表于 2025-5-8 09:45
+
+昨天晚上刷本忽然掉了个礼装，得到了启示去青子池扔护符，扔到第6张彩圈了，好耶，结果一看怎么是果心居士，差点以为自己抽错了池<img src="https://static.stage1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+不甘心去友情池洗了把脸，30石青子池10连启动！然后青子来了<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+

@@ -12720,3 +12720,24 @@ UR三明也是盾机<img src="https://static.stage1st.com/image/smiley/face2017/
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">代哥送一个白高达啊，不然gq鸭子开啥啊
 
+
+*****
+
+####  马桶3  
+##### 1190#       发表于 2025-5-8 09:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67791953&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2025-5-8 09:35</a>
+
+代哥送一个白高达啊，不然gq鸭子开啥啊</blockquote>
+可以开溢出的红高达
+
+*****
+
+####  洛克萨斯  
+##### 1191#       发表于 2025-5-8 09:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67791981&amp;ptid=2071758" target="_blank">马桶3 发表于 2025-5-8 09:40</a>
+
+可以开溢出的红高达</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">很明显我没有，现在安排开精神力ssr
+
