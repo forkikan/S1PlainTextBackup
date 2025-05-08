@@ -2206,3 +2206,24 @@ GQX里也可以来这套，把领头的换成马修就行。<img src="https://st
 
 我好像明白了，这片得当高达里的《荡寇志》看……
 
+
+*****
+
+####  Concrete  
+##### 12034#       发表于 2025-5-8 16:40
+
+我好想昏死到下周二看第六集啊
+
+*****
+
+####  ryanghj  
+##### 12035#       发表于 2025-5-8 16:43
+
+<img src="https://img.stage1st.com/forum/202505/08/164320ohyryuiy9h8469ru.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (162 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-8 16:43 上传
+
