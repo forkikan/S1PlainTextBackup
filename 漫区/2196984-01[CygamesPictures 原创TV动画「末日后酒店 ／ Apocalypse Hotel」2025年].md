@@ -2123,3 +2123,14 @@ aiko近几年唱歌只有跑调和没那么跑调两个状态，音番默认翻�
 没有吧，酒不是十五年熟成而已吗，我一开始也以为要酿百年</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">酿了好几波酒，小木筏出海探险，还有改良作物，这花的时间应该很长了
 
+
+*****
+
+####  暗黑能乐  
+##### 202#       发表于 2025-5-8 12:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67792614&amp;ptid=2196984" target="_blank">pzk 发表于 2025-5-8 11:44</a>
+
+酿了好几波酒，小木筏出海探险，还有改良作物，这花的时间应该很长了</blockquote>
+合计感觉应该没有到一百年就是了，几十年是有的
+
