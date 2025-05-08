@@ -658,3 +658,331 @@ gsc手办化决定
 <img src="https://p.sda1.dev/24/03dd8eeafee79940b203c9192e2b3c71/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/24/3e749ad56c8ab3a721e5c125db413fd3/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  堀内爱里衣  
+##### 40823#       发表于 2025-5-7 12:09
+
+<strong>《BanG Dream!》《D4DJ》声优、冈田梦以来B站啦！</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202505/07/120900p4fsl444lllzf481.jpg" referrerpolicy="no-referrer">
+
+<strong>b62e6eabca6ebb32b5bd34dd75c7d4d2903652b2.jpg</strong> (220.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 12:09 上传
+
+</blockquote>
+[https://www.bilibili.com/video/BV1zAVUzQE3J](https://www.bilibili.com/video/BV1zAVUzQE3J)
+
+*****
+
+####  南宮凝香  
+##### 40824#       发表于 2025-5-7 12:37
+
+另外，真愛樓是隔壁版主連續幹碎兩棟專樓後的碎片
+
+實際上並不是本意
+
+真愛樓加起來一天的回覆也沒之前其中一棟專樓多
+
+*****
+
+####  结衣小比取  
+##### 40825#       发表于 2025-5-7 15:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67789147&amp;ptid=2208921" target="_blank">syndrome2032 发表于 2025-5-7 11:54</a>
+
+作为偶像企划，真爱楼比动画播出节点还晚。
+
+盖楼的真不是串子</blockquote>
+问了下隔壁网友，真爱楼是[Ave Mujica专楼](https://nga.178.com/read.php?tid=42522830&amp;_ff=510483&amp;page=12751)写满后（NGA主题有255000回复数量限制），管理员又不让开新楼，所导致连锁反应的产物之一<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| aptx8285144| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  6030sylar  
+##### 40826#       发表于 2025-5-7 15:46
+
+<img src="https://img.stage1st.com/forum/202505/07/154124j17i7vtd3usedl7k.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>c7c7fa23fc1a7a16af1c56786da8a246.jpeg</strong> (176.16 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 15:41 上传
+
+<img src="https://img.stage1st.com/forum/202505/07/154338ajhwwszvdjwj8qv1.png" referrerpolicy="no-referrer">
+
+<strong>ce60df56500f2815e618408cc15c8ba8.png</strong> (12.19 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 15:43 上传
+
+<img src="https://static.stage1st.com/image/smiley/carton2017/489.png" referrerpolicy="no-referrer">原来安排中大2号馆才200人容量，大麦还想卖官牛，卖给谁呢，有人问到隔壁一号馆空着在群里喊升舱了
+
+*****
+
+####  shinoverse  
+##### 40827#       发表于 2025-5-8 09:53
+
+据我所知Nga此前根本就没有真爱楼这种文化（这玩意不是二十年前贴吧搞出来的么）
+
+*****
+
+####  半年  
+##### 40828#       发表于 2025-5-8 12:03
+
+<img src="https://img.stage1st.com/forum/202505/08/120259tqrwpfhrsv41bh8d.jpg" referrerpolicy="no-referrer">
+
+<strong>GqY8RvBWwAAyS8w.jpg</strong> (550.82 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-8 12:02 上传
+
+[https://x.com/Kaga306/status/1920288585275658618/photo/1](https://x.com/Kaga306/status/1920288585275658618/photo/1)
+
+*****
+
+####  钦念以忱  
+##### 40829#       发表于 2025-5-8 13:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67792057&amp;ptid=2208921" target="_blank">shinoverse 发表于 2025-5-8 09:53</a>
+
+据我所知Nga此前根本就没有真爱楼这种文化（这玩意不是二十年前贴吧搞出来的么） ...</blockquote>
+动画讨论楼或专区，主要发帖内容都是各路同人的搬运和基于此的进一步讨论，这是哪里的文化，以前各种动漫社区好像都不是这样的。
+
+*****
+
+####  仟音一心  
+##### 40830#       发表于 2025-5-8 14:27
+
+『MyGO!!!!! 雨中祈晴』漫画第5话② ​​​
+<img src="https://p.sda1.dev/24/18b812e76e1319600682a5317afbcdd4/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/e48f09bb7a421efc62d0d9c19bd92452/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/4b257aac363b20449ecf54f5058b1509/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/9d4d3fd165ea242d8f3b793b5daf1c17/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/56d1227ec1c94e74c85cc6c31d260c71/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/808f3378b82a5013b8dca601a66c1ad1/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/3a18dd887d80f049650020e2c56efe03/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/54b5f3206c805f1ea03f1c78a87d0547/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/af0bf66e95581309620f29aaae11a503/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 40831#       发表于 2025-5-8 14:32
+
+ 本帖最后由 仟音一心 于 2025-5-8 14:37 编辑 
+
+『MyGO!!!!! 雨中祈晴』漫画特别短篇
+<img src="https://p.sda1.dev/24/79168628c1f38a5e555f2fe831feeb44/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/cb91c17b1b372dbcc590569234fe92a9/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/b670d4a4a8418f9015ec77ef7aac394c/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/dded63c8db13dfd6ba26b2d19bd76017/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/3bb36fe311fadca9a0e6f929930eafb0/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/0201e2f4b2592e93cd19a0728b8f2dc9/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/6a8625a6d406529b2d43191fc3ce3cea/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/22cc95049f34ae8f46ae4fd2d4477f91/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/ead85ea5a09009c8a0e82f6c030a492e/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/62e3abe052a8d7992f000b16fda39415/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/16034297edc9abcb6a651e42f4613b6c/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/eaabd9cb973418130c203157b929ab45/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/b75e1f73f8d449ae247167854c7c404e/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/9de8b3638eb0285c07587e278f00bba5/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/a14ed15d6b3b98c0dddfeaa7fcbf8140/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/5da8f89b8492188eb668dc750dcbd81d/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  osore  
+##### 40832#       发表于 2025-5-8 15:20
+
+感觉祥子直接被立希喷哭了<img src="https://static.stage1st.com/image/smiley/carton2017/483.png" referrerpolicy="no-referrer">
+
+立希火上浇油之前祥子还能维持表情管理的
+
+*****
+
+####  丰川祥  
+##### 40833#       发表于 2025-5-8 18:08
+
+梦以b站生日直播
+
+<img src="https://img.stage1st.com/forum/202505/08/180825m31kjei11tri1ddt.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0780.jpeg</strong> (167.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-8 18:08 上传
+
+*****
+
+####  凉良  
+##### 40834#       发表于 2025-5-8 18:29
+
+鸡一销量有点好啊
+
+*****
+
+####  堀内爱里衣  
+##### 40835#       发表于 2025-5-8 18:58
+
+<img src="https://img.stage1st.com/forum/202505/08/185737muq0he6ukd6z33tt.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-05-08_18-56-39.jpg</strong> (183.9 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-8 18:57 上传
+
+[https://x.com/Kanon_Takao/status/1920311628781727749](https://x.com/Kanon_Takao/status/1920311628781727749)
+
+<img src="https://img.stage1st.com/forum/202505/08/185812vh5sz6j6f5iz3c5a.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-05-08_18-57-49.jpg</strong> (278.91 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-8 18:58 上传
+
+[https://x.com/Kanon_Takao/status/1920382218553471031](https://x.com/Kanon_Takao/status/1920382218553471031)
+
+*****
+
+####  南宮凝香  
+##### 40836#       发表于 2025-5-8 19:02
+
+<blockquote>仟音一心 发表于 2025-5-8 14:27
+『MyGO!!!!! 雨中祈晴』漫画第5话② ​​​</blockquote>
+接下來的幾話才是灰一串有多少能力的體現
+
+第一卷灰一串就只是往甜裡寫
+
+把兩星期寫到像一年， 對不上第一季的鍋也能甩到動畫組頭上
+
+第二卷能不能在不洗白Soyo 的情況下寫好就是見真章的時候了
+
+老實說，我不看好
+
+*****
+
+####  [皆神孝介]  
+##### 40837#       发表于 2025-5-8 20:40
+
+专辑到了，CD盒子被压出裂痕，万幸CD没事<img src="https://static.stage1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202505/08/203825wk3qtul07lf3fsfs.jpg" referrerpolicy="no-referrer">
+
+<strong>专辑照片.jpg</strong> (1.28 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-8 20:38 上传
+
+以下有缘坛友可自取<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202505/08/203817gubt83wxouzctotk.jpg" referrerpolicy="no-referrer">
+
+<strong>抽选卷.jpg</strong> (634.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-8 20:38 上传
+
+[公演情报] [https://bang-dream.com/avemujica_completeness](https://bang-dream.com/avemujica_completeness)
+
+[受付URL] [https://eplus.jp/avemujica/serial/completeness](https://eplus.jp/avemujica/serial/completeness)
+
+シリアルナンバー2wrQCu34复制代码
+
+*****
+
+####  丰川祥  
+##### 40838#       发表于 2025-5-8 21:44
+
+新谷
+
+<img src="https://img.stage1st.com/forum/202505/08/214405x5t662ixag5rr21e.png" referrerpolicy="no-referrer">
+
+<strong>IMG_0795.png</strong> (205.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-8 21:44 上传
+
+<img src="https://img.stage1st.com/forum/202505/08/214405kmweqmt6bh5rjjj5.png" referrerpolicy="no-referrer">
+
+<strong>IMG_0794.png</strong> (402.79 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-8 21:44 上传
+
+*****
+
+####  丰川祥  
+##### 40839#       发表于 2025-5-8 22:21
+
+gsc手办化决定
+
+<img src="https://img.stage1st.com/forum/202505/08/222134bua7az99ubbymzt1.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0802.jpeg</strong> (99.79 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-8 22:21 上传
+
+<img src="https://img.stage1st.com/forum/202505/08/222134imomzp3zzytnhilp.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0801.jpeg</strong> (104.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-8 22:21 上传
+
+*****
+
+####  堀内爱里衣  
+##### 40840#       发表于 2025-5-8 22:43
+
+ 本帖最后由 堀内爱里衣 于 2025-5-8 22:44 编辑 
+
+编辑编辑。
+
+
+*****
+
+####  仟音一心  
+##### 40841#       发表于 2025-5-8 23:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67794740&amp;ptid=2208921" target="_blank">丰川祥 发表于 2025-5-8 21:44</a>
+新谷</blockquote>
+<img src="https://p.sda1.dev/24/03dd8eeafee79940b203c9192e2b3c71/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/3e749ad56c8ab3a721e5c125db413fd3/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 40842#       发表于 2025-5-9 07:29
+
+あかせあかり ​​​
+<img src="https://p.sda1.dev/24/a4f4cc9171f096aa9274ef8f9de6c8da/image.jpg" referrerpolicy="no-referrer">
+
