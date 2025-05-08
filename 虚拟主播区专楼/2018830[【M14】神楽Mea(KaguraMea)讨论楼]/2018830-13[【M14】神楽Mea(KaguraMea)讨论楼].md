@@ -5926,3 +5926,21 @@ FP？FP是国家资格？   
 
 饭盒动，不知道发了个啥
 
+
+*****
+
+####  TiHaru  
+##### 18430#       发表于 2025-5-8 20:11
+
+才发现刚上大师的第二天直播玩小号还撞到了ゆきお（两边都在直播），还因为ゆきお先出奎所以选了波比
+
+
+*****
+
+####  TiHaru  
+##### 18431#       发表于 2025-5-8 20:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67794045&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2025-5-8 18:15</a>
+
+饭盒动，不知道发了个啥</blockquote><blockquote>やるき０すいっち</blockquote>
+
