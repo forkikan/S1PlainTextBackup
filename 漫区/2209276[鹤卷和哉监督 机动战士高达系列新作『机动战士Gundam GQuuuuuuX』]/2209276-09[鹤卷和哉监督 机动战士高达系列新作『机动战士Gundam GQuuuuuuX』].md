@@ -1998,3 +1998,26 @@ https://x.com/iynhfgPFRr3yRwP/status/1919912203064389830?s=19
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑拳确实不过家家啊，但我看对手都挺过家家的，近身格斗撞来撞去不下死手几次了，到现在夸克斯没得整备都没掉点部件全靠对手只撞你不砍你吧
 
+
+*****
+
+####  Sacross  
+##### 12018#       发表于 2025-5-8 11:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67792366&amp;ptid=2209276" target="_blank">downnote 发表于 2025-5-8 10:47</a>
+修司的发色感觉就是麻球和喵安平均一下？红和蓝之间是紫色
+
+剧情没有表现他们有在训练，麻球只是比赛才上机 ...</blockquote>
+仗着机体性能能打一点菜鸡到中等强度的，中间小比赛部分全略过了，第四话全程只能看戏
+真要说是赛克缪系统把操作难度部分删了，g夸又梆硬，没那个系统走路都不一定能走
+
+—— 来自 OnePlus IN2020, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  行政裁定书  
+##### 12019#       发表于 2025-5-8 11:21
+
+ms黑拳已经够儿戏了，跟笑话一样，快点结束这个阶段吧
+

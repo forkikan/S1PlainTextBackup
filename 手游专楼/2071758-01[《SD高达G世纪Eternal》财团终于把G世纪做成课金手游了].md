@@ -12751,3 +12751,13 @@ UR三明也是盾机<img src="https://static.stage1st.com/image/smiley/face2017/
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  闲度朝夕  
+##### 1193#       发表于 2025-5-8 11:19
+
+把红高给鸭也不错，5格射程可以给很多boss挂减防了
+
+双盾保人很有安全感
+

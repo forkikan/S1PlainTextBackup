@@ -2077,3 +2077,31 @@ aiko近几年唱歌只有跑调和没那么跑调两个状态，音番默认翻�
 酒瘾被钩出来了</blockquote>
 没有吧，酒不是十五年熟成而已吗，我一开始也以为要酿百年
 
+
+*****
+
+####  hoyice  
+##### 197#       发表于 2025-5-8 11:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67792455&amp;ptid=2196984" target="_blank">暗黑能乐 发表于 2025-5-8 11:06</a>
+
+没有吧，酒不是十五年熟成而已吗，我一开始也以为要酿百年</blockquote>
+搭蒸馏厂外加前面几次试错应该有个大几十年的
+
+*****
+
+####  暗黑能乐  
+##### 198#       发表于 2025-5-8 11:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67792513&amp;ptid=2196984" target="_blank">hoyice 发表于 2025-5-8 11:20</a>
+
+搭蒸馏厂外加前面几次试错应该有个大几十年的</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这蒸馏厂感觉建起来也很不可思议，那些仪器管道啥的都哪来的。。
+
+*****
+
+####  没取名啊  
+##### 199#       发表于 2025-5-8 11:23
+
+有这生产力，下集就把温泉搓出来也不是问题吧
+
