@@ -647,3 +647,14 @@ gsc手办化决定
 
 编辑编辑。
 
+
+*****
+
+####  仟音一心  
+##### 40822#       发表于 2025-5-8 23:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67794740&amp;ptid=2208921" target="_blank">丰川祥 发表于 2025-5-8 21:44</a>
+新谷</blockquote>
+<img src="https://p.sda1.dev/24/03dd8eeafee79940b203c9192e2b3c71/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/3e749ad56c8ab3a721e5c125db413fd3/image.jpg" referrerpolicy="no-referrer">
+

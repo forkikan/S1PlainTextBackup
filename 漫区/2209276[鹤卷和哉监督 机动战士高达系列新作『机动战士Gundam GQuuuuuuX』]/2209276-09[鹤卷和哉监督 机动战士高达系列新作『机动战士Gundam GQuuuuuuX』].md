@@ -2551,3 +2551,16 @@ kirakira聊天室的配色总觉得就是修斯没事做喜欢喷涂的那个，
 这集战斗分镜完全照搬0079打三连星，连背景都高清重置了，我还看到推上吐槽这是怎么做的，以前老动画是拿某 ...</blockquote>
 喷了 只能说 们卡拉开心就好
 
+
+*****
+
+####  老耗子  
+##### 12065#       发表于 2025-5-8 23:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67792163&amp;ptid=2209276" target="_blank">xwz 发表于 2025-5-8 10:11</a>
+
+其实有点好奇这个世界里的哈曼是啥样的
+
+—— 来自 鹅球 v3.3.96</blockquote>
+双马尾清纯女学生吧
+
