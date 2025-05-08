@@ -2269,3 +2269,13 @@ GQX里也可以来这套，把领头的换成马修就行。<img src="https://st
 
 因为夏亚的魂跑了，所以剩下的身体变成反色了，然后修斯是这个身体新出来的魂吗，有意思
 
+
+*****
+
+####  暗黑能乐  
+##### 12041#       发表于 2025-5-8 18:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">夏亚身体还能自动缩水变成竹竿的是吗
+
+—— 来自 HONOR BVL-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+

@@ -12846,3 +12846,13 @@ seed那个ex好难，第二轮茫茫多的杂兵和boss，直接把我能量都�
 左右各1平均得一比导致两边都不上不下  估计只能新UR来打破平衡</blockquote>
 这能打ex1了吧，拉几个盾机保妖刀就行
 
+
+*****
+
+####  okey3m  
+##### 1202#       发表于 2025-5-8 18:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67793634&amp;ptid=2071758" target="_blank">棍机凹升龙 发表于 2025-5-8 16:22</a>
+左右各1平均得一比导致两边都不上不下  估计只能新UR来打破平衡</blockquote>
+b站抄一下作业，应该ex1和2都能打了
+
