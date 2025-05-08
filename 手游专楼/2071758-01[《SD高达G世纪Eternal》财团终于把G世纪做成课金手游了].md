@@ -12887,3 +12887,14 @@ EX2没能天没SF也能过，就是练度要求比较高</blockquote>
 
 我是参照这个过的，盾机和debuff管够就行
 
+
+*****
+
+####  hayate0079  
+##### 1206#       发表于 2025-5-8 19:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67794215&amp;ptid=2071758" target="_blank">电脑死机 发表于 2025-5-8 19:19</a>
+
+家里有2破exia和0破SF，有什么靠谱战法</blockquote>
+1边1个输出干就是了，上好增伤，然后剩余的拿盾保这2个，可看情况上必闪的机师
+
