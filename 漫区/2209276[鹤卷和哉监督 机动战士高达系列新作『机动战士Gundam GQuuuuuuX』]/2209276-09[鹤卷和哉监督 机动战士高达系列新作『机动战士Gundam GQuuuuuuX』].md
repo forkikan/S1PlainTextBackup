@@ -2021,3 +2021,30 @@ https://x.com/iynhfgPFRr3yRwP/status/1919912203064389830?s=19
 
 ms黑拳已经够儿戏了，跟笑话一样，快点结束这个阶段吧
 
+
+*****
+
+####  行政裁定书  
+##### 12020#       发表于 2025-5-8 11:31
+
+不会是哈曼，年龄对不上
+
+*****
+
+####  玖羽  
+##### 12021#       发表于 2025-5-8 11:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67790999&amp;ptid=2209276" target="_blank">Piano-Forest 发表于 2025-5-7 21:55</a>
+
+HG 1/144 力克･大魔 盖亚机/奥尔迪加机(GQ)
+
+https://bandai-hobby.net/item/01_5986/</blockquote>
+我是DOM控，这个三腿DOM超赞的，可以说完全抓住了DOM机设的精髓<img src="https://static.stage1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+*****
+
+####  行政裁定书  
+##### 12022#       发表于 2025-5-8 11:35
+
+g夸x快点展现完全体吧，我游戏里还等着这机体强化加招呢
+

@@ -12761,3 +12761,20 @@ UR三明也是盾机<img src="https://static.stage1st.com/image/smiley/face2017/
 
 双盾保人很有安全感
 
+
+*****
+
+####  mobdom  
+##### 1194#       发表于 2025-5-8 11:30
+
+seed那个ex好难，第二轮茫茫多的杂兵和boss，直接把我能量都用完了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  windtrack  
+##### 1195#       发表于 2025-5-8 11:35
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">28级给的UR必得卷抽出个重复的自由...结果自由满破了
+
+我想要天鹅啊...
+
