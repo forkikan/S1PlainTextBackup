@@ -1713,3 +1713,15 @@ X一个响指其他人都掉下去了</blockquote>
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67790811&amp;ptid=2125794" target="_blank">新HGCG 发表于 2025-5-7 20:56</a></blockquote>
 第五集？这算高还是低啊？
 
+
+*****
+
+####  DARK_HGCG  
+##### 165#       发表于 2025-5-8 17:43
+
+<blockquote>草台培训班 发表于 2025-5-7 22:49
+第五集？这算高还是低啊？</blockquote>
+不算高吧
+
+你看母鸡卡这种第一档都是八十几九十几
+
