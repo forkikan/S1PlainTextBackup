@@ -2023,3 +2023,11 @@ aiko近几年唱歌只有跑调和没那么跑调两个状态，音番默认翻�
 
 酒瘾被钩出来了<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nocode  
+##### 191#       发表于 2025-5-8 10:23
+
+刚出预告以为是星之梦酒店机器人版，这几集看下来是人类衰退之后外星交流篇（误）
+

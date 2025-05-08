@@ -1912,3 +1912,11 @@ https://x.com/iynhfgPFRr3yRwP/status/1919912203064389830?s=19
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  adretyu67.  
+##### 12008#       发表于 2025-5-8 10:18
+
+鸭子跑了，估计还留着当年那个双马尾发型吧。
+
