@@ -1374,3 +1374,13 @@ https://x.com/imigimuru/status/1918986168965738731
 
 以后每集她都打算先喝点啥然后喷么
 
+
+*****
+
+####  Saber琪  
+##### 2291#       发表于 2025-5-8 12:03
+
+https://www.ptt.cc/bbs/C_Chat/M.1746609797.A.CB0.html
+
+小动画5-6集剧透<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+

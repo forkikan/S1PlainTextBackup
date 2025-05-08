@@ -382,3 +382,13 @@ c呆耐久耗尽了，惨！
 
 不甘心去友情池洗了把脸，30石青子池10连启动！然后青子来了<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shimotsuki14  
+##### 47141#       发表于 2025-5-8 12:00
+
+有珠还是挺给面子的……
+
+之前剩点石头东拼西凑加上换了点圣晶片才凑到十连，昨天中午突然来了感觉就抽到有珠了。
+
