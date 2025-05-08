@@ -2243,3 +2243,21 @@ GQX里也可以来这套，把领头的换成马修就行。<img src="https://st
 
 官二代大小姐整天和难民小偷小女孩，持枪流浪涂鸦街头艺术家混在一起，还在聚众吸毒开淫趴，，，
 
+
+*****
+
+####  风夏  
+##### 12038#       发表于 2025-5-8 17:09
+
+捏麻麻滴, 如果修司是魂穿夏亚的话, 那番茄哈曼一下子就合理起来了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 12039#       发表于 2025-5-8 17:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67793735&amp;ptid=2209276" target="_blank">modkingr 发表于 2025-5-8 16:55</a>
+
+喵安在这集显露出来的攻击性太强了，感觉作为反派的起点是完全有可能的</blockquote>
+推上说喵安是真嗣位，平时懦弱，一直在刃，一破防了比谁下手都狠<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
