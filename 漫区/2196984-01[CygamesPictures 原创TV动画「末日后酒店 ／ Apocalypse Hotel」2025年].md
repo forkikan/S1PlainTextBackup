@@ -2113,3 +2113,13 @@ aiko近几年唱歌只有跑调和没那么跑调两个状态，音番默认翻�
 
 温泉第一话就在挖，也得挖了几百年了
 
+
+*****
+
+####  pzk  
+##### 201#       发表于 2025-5-8 11:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67792455&amp;ptid=2196984" target="_blank">暗黑能乐 发表于 2025-5-8 11:06</a>
+没有吧，酒不是十五年熟成而已吗，我一开始也以为要酿百年</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">酿了好几波酒，小木筏出海探险，还有改良作物，这花的时间应该很长了
+
