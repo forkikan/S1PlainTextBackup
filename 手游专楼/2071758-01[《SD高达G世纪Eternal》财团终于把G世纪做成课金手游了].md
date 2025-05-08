@@ -12864,3 +12864,14 @@ b站抄一下作业，应该ex1和2都能打了
 
 EX2没能天没SF也能过，就是练度要求比较高
 
+
+*****
+
+####  电脑死机  
+##### 1204#       发表于 2025-5-8 19:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67794126&amp;ptid=2071758" target="_blank">hayate0079 发表于 2025-5-8 18:43</a>
+
+EX2没能天没SF也能过，就是练度要求比较高</blockquote>
+家里有2破exia和0破SF，有什么靠谱战法
+
