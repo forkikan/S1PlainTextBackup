@@ -1098,3 +1098,39 @@
 
 打玛修硬币本随便用了令咒，不是说这两场的令咒独立计算么，打完就傻眼了，完全没恢复<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sosgame67  
+##### 16649#       发表于 2025-5-8 06:35
+
+800石头一宝，脸黑的想卸载了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 16650#       发表于 2025-5-8 06:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67791550&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2025-5-8 03:20</a>
+
+打玛修硬币本随便用了令咒，不是说这两场的令咒独立计算么，打完就傻眼了，完全没恢复
+
+看来只有第二场独立 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">好像只有摩根是独立的
+
+*****
+
+####  森兰丸  
+##### 16651#       发表于 2025-5-8 16:34
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这懒贞还挺萌的.....好想就这么跟着她一起堕落下去浑浑噩噩的过日子
+
+*****
+
+####  qixinno2  
+##### 16652#       发表于 2025-5-8 17:30
+
+<blockquote>森兰丸 发表于 2025-5-8 16:34
+这懒贞还挺萌的.....好想就这么跟着她一起堕落下去浑浑噩噩的过日子</blockquote>
+欧 羡慕 我也想要懒贞
+
