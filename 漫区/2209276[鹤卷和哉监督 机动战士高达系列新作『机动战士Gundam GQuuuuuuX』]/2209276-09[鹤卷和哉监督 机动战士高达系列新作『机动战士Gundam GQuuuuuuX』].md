@@ -2097,3 +2097,16 @@ g夸x快点展现完全体吧，我游戏里还等着这机体强化加招呢
 之前g世纪就剧透了修司的 我还不会死， ...</blockquote>
 修司我还不会死这句话不就是对魔女说的吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Geyorkias  
+##### 12026#       发表于 2025-5-8 13:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67791407&amp;ptid=2209276" target="_blank">王留美 发表于 2025-5-8 00:30</a>
+
+人家市长当得春风得意，哪怕被文春炮出轨了也不至于要来打拳吧
+
+真要给好兄弟报仇难道手下还没点干私活的 ...</blockquote>
+但凡真把剩下两个当兄弟，还能不给兄弟安排个保安队长的活计嘛，让兄弟沦落到side6收垃圾，那就是眼里没兄弟啦。
+
