@@ -2564,3 +2564,23 @@ kirakira聊天室的配色总觉得就是修斯没事做喜欢喷涂的那个，
 —— 来自 鹅球 v3.3.96</blockquote>
 双马尾清纯女学生吧
 
+
+*****
+
+####  灵魂收割机  
+##### 12066#       发表于 2025-5-9 00:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67795018&amp;ptid=2209276" target="_blank">江之岛右手 发表于 2025-5-8 23:00</a>
+
+喷了 只能说 们卡拉开心就好</blockquote>
+鹤卷搬分镜搬爽了，集集都搬，不光搬0079的，还搬FLCL的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  57042711  
+##### 12067#       发表于 2025-5-9 00:26
+
+这次确实连兰巴大战骡子的分镜都有<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
