@@ -1143,12 +1143,12 @@
     "update": false
   },
   "2052401": {
-    "totalreply": 1303,
+    "totalreply": 1306,
     "title": "[这种败坏魔王军形象的部门]",
     "newtitle": "[这种败坏魔王军形象的部门]",
-    "lastedit": 1745672417,
+    "lastedit": 1746712696,
     "category": "漫区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2064739": {
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 161675,
+    "totalreply": 161676,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1746711970,
+    "lastedit": 1746712570,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -9243,10 +9243,10 @@
     "update": false
   },
   "2192962": {
-    "totalreply": 11557,
+    "totalreply": 11559,
     "title": "[【明日方舟】国服15号楼 7.16集成战略#5 「萨卡兹的无终奇语」周六19点30夏活前瞻]",
     "newtitle": "[【明日方舟】国服15号楼 5.1 SS「众生行记」六周年快乐 (本楼含YJWL动态交流）]",
-    "lastedit": 1746711497,
+    "lastedit": 1746712462,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -9891,10 +9891,10 @@
     "update": false
   },
   "2093389": {
-    "totalreply": 719,
+    "totalreply": 720,
     "title": "[小岛工作室新作《死亡搁浅2 ／ DS2》正式公开，2025年发售]",
     "newtitle": "[小岛工作室新作《死亡搁浅2 ／ DS2》新PV公开，2025年6月26日发售]",
-    "lastedit": 1746711854,
+    "lastedit": 1746712213,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -10521,10 +10521,10 @@
     "update": false
   },
   "2209276": {
-    "totalreply": 12054,
+    "totalreply": 12055,
     "title": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
     "newtitle": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
-    "lastedit": 1746712096,
+    "lastedit": 1746712693,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 126976,
+    "totalreply": 126993,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1746712093,
+    "lastedit": 1746712696,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11304,10 +11304,10 @@
     "update": false
   },
   "2236118": {
-    "totalreply": 274,
+    "totalreply": 275,
     "title": "[2025年全年推理游戏发售清单(更新至3.13)，2025推理游戏专楼]",
     "newtitle": "[2025年全年推理游戏发售清单(更新至4.29)，2025推理游戏专楼]",
-    "lastedit": 1746699269,
+    "lastedit": 1746712462,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13014,10 +13014,10 @@
     "update": false
   },
   "2251737": {
-    "totalreply": 279,
+    "totalreply": 287,
     "title": "[极客湾出NS2芯片相关视频了]",
     "newtitle": "[极客湾出NS2芯片相关视频了]",
-    "lastedit": 1746711610,
+    "lastedit": 1746712455,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13064,6 +13064,15 @@
     "newtitle": "[日常作者新井圭一『CITY』TV动画化 2025年]",
     "lastedit": 1746711739,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2251767": {
+    "totalreply": 41,
+    "title": "[任天堂24-25财年财报，Switch累计1亿5212万，Switch 2首年预期1500万台]",
+    "newtitle": "[任天堂24-25财年财报，Switch累计1亿5212万，Switch 2首年预期1500万台]",
+    "lastedit": 1746712462,
+    "category": "游戏区",
     "active": true,
     "update": false
   }

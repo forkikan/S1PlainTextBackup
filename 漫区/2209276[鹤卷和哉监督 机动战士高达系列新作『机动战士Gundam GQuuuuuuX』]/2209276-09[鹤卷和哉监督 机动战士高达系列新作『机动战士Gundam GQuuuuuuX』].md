@@ -2448,3 +2448,23 @@ PS：我觉得GQX膜的挺好的 ​​​
 绿叔叔这集说“重要的是决心”，喵安和玛修都是怒火中烧的状态下激活赛可谬系统的，那我猜系统启动的条件就 ...</blockquote>
 难道不是因为首席没带哈罗吗<img src="https://static.stage1st.com/image/smiley/bundam2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 12055#       发表于 2025-5-8 21:56
+
+ 本帖最后由 岸浪白野 于 2025-5-8 21:57 编辑 
+
+假药讨论总能回到色彩相关也是真的
+
+最近的kirakira聊天室颜色分等级用可见光谱论证就是个例子
+
+<img src="https://img.stage1st.com/forum/202505/08/215609yjo8yxzrdfuz8sh0.png" referrerpolicy="no-referrer">
+
+<strong>Q5PIOBP%5QVKZXL5D2Q~9`E.png</strong> (247.17 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-8 21:56 上传
+
