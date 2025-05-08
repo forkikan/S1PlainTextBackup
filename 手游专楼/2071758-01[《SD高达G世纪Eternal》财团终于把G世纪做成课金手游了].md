@@ -12778,3 +12778,47 @@ seed那个ex好难，第二轮茫茫多的杂兵和boss，直接把我能量都�
 
 我想要天鹅啊...
 
+
+*****
+
+####  blue321  
+##### 1196#       发表于 2025-5-8 11:46
+
+其实哪个ex比较好打？现在使命就缺打ex就能拿ur傻必了…但是练得太分散三个关卡需要的都不高，打算先砸进一个
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  无念  
+##### 1197#       发表于 2025-5-8 11:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67792621&amp;ptid=2071758" target="_blank">blue321 发表于 2025-5-8 11:46</a>
+其实哪个ex比较好打？现在使命就缺打ex就能拿ur傻必了…但是练得太分散三个关卡需要的都不高，打算先砸进一 ...</blockquote>
+好像是seed，只要等级够就力大砖飞
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  闲度朝夕  
+##### 1198#       发表于 2025-5-8 11:49
+
+<blockquote>blue321 发表于 2025-5-8 11:46
+其实哪个ex比较好打？现在使命就缺打ex就能拿ur傻必了…但是练得太分散三个关卡需要的都不高，打算先砸进一 ...</blockquote>
+看看自己有啥ur能抄什么作业呗
+
+*****
+
+####  windtrack  
+##### 1199#       发表于 2025-5-8 11:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67792621&amp;ptid=2071758" target="_blank">blue321 发表于 2025-5-8 11:46</a>
+
+其实哪个ex比较好打？现在使命就缺打ex就能拿ur傻必了…但是练得太分散三个关卡需要的都不高，打算先砸进一 ...</blockquote>
+看你手头UR机和SSR机配置咋样
+
+如果你强自和自由都有而且还有拉妖战舰，那肯定SEED最好打
+
+没有的话感觉非UC的好打一点，非UC系目前开发机强度整体比UC强不少
+
