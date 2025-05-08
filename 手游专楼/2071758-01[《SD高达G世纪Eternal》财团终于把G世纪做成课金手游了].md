@@ -12875,3 +12875,15 @@ EX2没能天没SF也能过，就是练度要求比较高
 EX2没能天没SF也能过，就是练度要求比较高</blockquote>
 家里有2破exia和0破SF，有什么靠谱战法
 
+
+*****
+
+####  okey3m  
+##### 1205#       发表于 2025-5-8 19:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67794215&amp;ptid=2071758" target="_blank">电脑死机 发表于 2025-5-8 19:19</a>
+家里有2破exia和0破SF，有什么靠谱战法</blockquote>
+【[SD高达G世纪永恒]0星能天使+自由平民阵容过永恒之路EX2平民攻略-哔哩哔哩】 https://b23.tv/0L1V3kp
+
+我是参照这个过的，盾机和debuff管够就行
+
