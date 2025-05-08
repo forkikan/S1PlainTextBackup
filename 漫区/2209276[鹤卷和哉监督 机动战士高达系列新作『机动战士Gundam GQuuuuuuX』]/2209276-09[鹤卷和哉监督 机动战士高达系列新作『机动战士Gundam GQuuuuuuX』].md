@@ -1874,3 +1874,22 @@ g q x 目前这种一边是少女和少年青春懵懂的相遇，一边是快�
 
 <img src="https://p.sda1.dev/24/3eb7e7240267c1552282474533cb43fe/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  有钱多买小人  
+##### 12004#       发表于 2025-5-8 09:56
+
+https://x.com/iynhfgPFRr3yRwP/status/1919912203064389830?s=19
+
+<img src="https://p.sda1.dev/24/71a5107144f098dac6b63a3458d8d199/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  天邪鬼  
+##### 12005#       发表于 2025-5-8 09:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67791499&amp;ptid=2209276" target="_blank">一色いろは 发表于 2025-5-8 01:26</a>
+为啥喵安知道她能开gqx，试过？</blockquote>
+之前开过小型ms，，再加上她以为自己是凑人头开游戏的，修司带飞就行了
+
