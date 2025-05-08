@@ -1756,3 +1756,36 @@ GquuuuuuX作为高达惯例的TV后半程改修，是增加了BIT的最新改进
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  RE㐅ia  
+##### 11993#       发表于 2025-5-8 08:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67791319&amp;ptid=2209276" target="_blank">夜雨秋水 发表于 2025-5-7 23:51</a>
+
+下集所有的预告影像应该都要收回了（本来以为这集就能全部收回的），进度还未过半感觉各种宣传的坑都快用完 ...</blockquote>
+"场外全新的一套宣传材料、新的主视觉图，场内新op新地图主角团新造型"
+
+这个是在哪看到的消息
+
+
+*****
+
+####  yguygyu  
+##### 11994#       发表于 2025-5-8 09:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67790953&amp;ptid=2209276" target="_blank">EFSF 发表于 2025-5-7 21:42</a>
+
+麻球说kirakira是因为修司说麻球你明白的吧，指涂鸦的那种NT聊天室光点，麻球是这顺着这个往下说，啊，这 ...</blockquote>
+直译是：他叫 [缺失宾语] 这样做的
+
+そうしろ 是命令形，就是说话人（他）要求听话人（缺失宾语）这样做。原句就省略了宾语，字幕组估计也不敢随便阅读理解，所以也没有加宾语。按照英文翻译的理解这个听话人是“宇宙”，这个“他”指谁就看各位观众的阅读理解了。
+
+*****
+
+####  yguygyu  
+##### 11995#       发表于 2025-5-8 09:05
+
+话说之前泄露的企划书说了 GQuuuuuuX 的开发代号叫 アルファ殺し，该不会正式名字是 gMS-Ω Alphacide 吧。第三集的 UI 里出现过。
+
