@@ -2085,3 +2085,15 @@ g夸x快点展现完全体吧，我游戏里还等着这机体强化加招呢
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  ヒトニナル  
+##### 12025#       发表于 2025-5-8 12:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67792625&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-8 11:47</a>
+玛秋在g世纪里的台词 别再……妨碍我了…… 目前还没在原片里出现
+
+之前g世纪就剧透了修司的 我还不会死， ...</blockquote>
+修司我还不会死这句话不就是对魔女说的吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
