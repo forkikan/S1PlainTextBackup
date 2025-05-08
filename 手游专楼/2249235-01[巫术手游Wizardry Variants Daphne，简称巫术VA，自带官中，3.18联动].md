@@ -430,3 +430,19 @@
 —— 来自 鹅球 v3.3. ...</blockquote>
 可以优先先去第三章换掉武器（法师牧师买商店的沙漠杖其他可以换白板冥刚或破魔），前排有100回避左右可以b4解锁武道修行派遣。
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 303#         楼主| 发表于 2025-5-8 23:30
+
+妈的瓜尔达民风确实剽悍，我看第三章路边随便拉来只狗都比门上挂着那只(特指有侵蚀普通形态)强<img src="https://static.stage1st.com/image/smiley/face2017/064.png">
+
+<img src="https://img.stage1st.com/forum/202505/08/232631kkrokosm67fjj2ps.jpg" referrerpolicy="no-referrer">
+
+<strong>20250508223111_1.jpg</strong> (104.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-8 23:26 上传
+
