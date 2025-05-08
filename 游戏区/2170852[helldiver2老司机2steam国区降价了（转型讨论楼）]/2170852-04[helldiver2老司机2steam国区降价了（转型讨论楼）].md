@@ -58,3 +58,19 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">开游戏算我输
 
+
+*****
+
+####  qwased  
+##### 5909#       发表于 2025-5-8 23:57
+
+炒鸡地球防守战再说吧，懒得上线
+
+
+*****
+
+####  kalavinka  
+##### 5910#         楼主| 发表于 2025-5-9 00:06
+
+确实来了坨大的<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
