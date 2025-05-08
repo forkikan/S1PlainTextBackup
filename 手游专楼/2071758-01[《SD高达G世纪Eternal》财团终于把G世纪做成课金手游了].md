@@ -12938,3 +12938,14 @@ EX2没能天没SF也能过，就是练度要求比较高</blockquote>
 
 5正义up完会进普池可以选，正义井出来不太值但可以留着看看下个卡池的普池单位是什么，强的话留着等那个
 
+
+*****
+
+####  blue321  
+##### 1209#       发表于 2025-5-9 06:47
+
+分别试了下ex2和ex3，2是伤害扛不住3是输出不够没法清杂兵海…
+感觉是技能等级和支援战舰的问题<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
