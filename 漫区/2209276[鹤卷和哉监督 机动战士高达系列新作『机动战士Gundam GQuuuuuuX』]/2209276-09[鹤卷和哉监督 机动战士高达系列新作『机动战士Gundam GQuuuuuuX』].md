@@ -2372,3 +2372,79 @@ PS：我觉得GQX膜的挺好的 ​​​
 
 这次找高达组合打黑拳一方面是想暴打高达出一口79年被红高达抢战功的气，另一方面就是想用战胜高达来给自己卖个好价去当佣兵准备重回战场。
 
+
+*****
+
+####  岸浪白野  
+##### 12052#       发表于 2025-5-8 21:38
+
+所以不一定要往不好的方面去想，马修早跑路是表现他更精明也不代表没理兄弟。剩下2个本来也准备计划当佣兵脱离军团战，其实也表现了平稳过日子不感兴趣
+
+上面也有人说了最后退场还喊了马修的名字
+
+[X 上的 こんぼい飛梭魚：“残された星 #ジークアクス](https://x.com/Bell_airacuda37/status/1920101369702420826)[https://t.co/OLUP5720Tj](https://t.co/OLUP5720Tj)” / X
+
+<img src="https://img.stage1st.com/forum/202505/08/213815a2yiyqskvbys3quk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (945.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-8 21:38 上传
+
+
+*****
+
+####  岸浪白野  
+##### 12053#       发表于 2025-5-8 21:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67792329&amp;ptid=2209276" target="_blank">otaku21126 发表于 2025-5-8 10:40</a>
+
+看NGA有贴提到一件事
+
+如果把修司负片翻转，他看起来是一个金发青眼的男子</blockquote>
+反色这个其实也是3月初就已经有和讨论过了，那时也有这样的讨论图和同人
+
+<img src="https://img.stage1st.com/forum/202505/08/214224l2lhw2z9ww90ahw9.jpg" referrerpolicy="no-referrer">
+
+<strong>AHOM@9KWX8W{[ZV(W0`S4NT_tmb.jpg</strong> (155.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-8 21:42 上传
+
+[X 上的 れん田2：“マウ"🫶↔︎ [url]https://t.co/2SxCsHK5iO](https://x.com/renda_GN/status/1903039028271911246)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/08/214244xnz6h1u42nup1dvv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (546.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-8 21:42 上传
+
+<img src="https://img.stage1st.com/forum/202505/08/214255fnms84tfxmnbt440.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.09 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-8 21:42 上传
+
+<img src="https://img.stage1st.com/forum/202505/08/214300m4bqgjlqrqzvd5dq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.56 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-8 21:43 上传
+
+*****
+
+####  XSK小龙王  
+##### 12054#       发表于 2025-5-8 21:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67787878&amp;ptid=2209276" target="_blank">白色池塘 发表于 2025-5-7 00:51</a>
+绿叔叔这集说“重要的是决心”，喵安和玛修都是怒火中烧的状态下激活赛可谬系统的，那我猜系统启动的条件就 ...</blockquote>
+难道不是因为首席没带哈罗吗<img src="https://static.stage1st.com/image/smiley/bundam2017/001.png" referrerpolicy="no-referrer">
+
