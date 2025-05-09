@@ -3905,3 +3905,38 @@ gqx应该不能完全算作日升的吧，后续企划要看看
 
 GQX这个造型，估计卖不过巴巴托斯
 
+
+*****
+
+####  草台培训班  
+##### 12153#       发表于 2025-5-9 20:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67798091&amp;ptid=2209276" target="_blank">Concrete 发表于 2025-5-9 20:10</a>
+
+gqx应该不能完全算作日升的吧，后续企划要看看</blockquote>
+商业成绩好怎么都好说。
+
+但我觉得需要至少持平铁血的热度才能有除了tv动画外的后续企划。
+
+而且铁血主角机的模型销量可不算低，gqx真不好说。
+
+不过gqx在中日的口碑肯定能好过铁血，（铁血在欧美的评分非常高，也挺奇葩的）
+
+但口碑对商业的影响关系不大。
+
+*****
+
+####  草台培训班  
+##### 12154#       发表于 2025-5-9 20:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67798104&amp;ptid=2209276" target="_blank">psycho_Gadfly 发表于 2025-5-9 20:14</a>
+
+所以爆火真是玄学，记得SEED在欧美评分和人气好像都一般（
+
+小林宽是不是先去欧美做了市场调研
+
+GQX这个造 ...</blockquote>
+高达直到铁血才开始在欧美有点声量的。
+
+这次gqx那么多老高达的东西，对他们来说没有什么情怀加成
+
