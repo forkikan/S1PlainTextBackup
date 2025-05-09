@@ -4068,3 +4068,21 @@ GQX这个造 ...</blockquote>
 
 2025-5-9 21:29 上传
 
+
+*****
+
+####  我聞如是  
+##### 12163#       发表于 2025-5-10 00:24
+
+日本人的腦洞：修醬的修會不會是叉燒的燒(日文裡同音)
+
+的確第五話裡挺燒的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202505/10/002349hhokki7ffo4jai7i.jpg" referrerpolicy="no-referrer">
+
+<strong>1000027926.jpg</strong> (164.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-10 00:23 上传
+
