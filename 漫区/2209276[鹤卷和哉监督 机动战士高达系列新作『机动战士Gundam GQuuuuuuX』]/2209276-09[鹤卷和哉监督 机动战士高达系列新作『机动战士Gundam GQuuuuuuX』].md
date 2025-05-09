@@ -3495,3 +3495,26 @@ gqux完全就是一季拍了两季的剧情
 
 大魔都3600了，比大魔还便宜那么多的MA和大型MS感觉都不太可能
 
+
+*****
+
+####  lunaticfool  
+##### 12121#       发表于 2025-5-9 15:08
+
+鸭妹加农肯定得出吧
+
+*****
+
+####  岸浪白野  
+##### 12122#       发表于 2025-5-9 15:09
+
+[X 上的 たけ：“[url]https://t.co/DGG2Z5gAjo](https://x.com/tktktktknoko/status/1920547291586273510)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/09/150854ns9buiswrszxoobs.gif" referrerpolicy="no-referrer">
+
+<strong>twitter_1920547291586273510.gif</strong> (1.09 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 15:08 上传
+
