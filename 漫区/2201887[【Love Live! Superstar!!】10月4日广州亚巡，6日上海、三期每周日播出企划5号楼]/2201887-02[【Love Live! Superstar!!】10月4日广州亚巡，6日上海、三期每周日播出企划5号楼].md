@@ -37,3 +37,17 @@
 
 —— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  csolfans  
+##### 1605#       发表于 2025-5-10 01:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67798786&amp;ptid=2201887" target="_blank">starring 发表于 2025-5-10 00:30</a>
+第一本的质量真的不怎么样，yj的拍摄水平太差。第二本就好不少，这销量应得的
+
+—— 来自 Sony XQ-DQ72, An ...</blockquote>
+可惜剪了长发(长发控路过
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
