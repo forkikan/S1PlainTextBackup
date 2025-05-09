@@ -13197,3 +13197,14 @@ seed那个ex好难，第二轮茫茫多的杂兵和boss，直接把我能量都�
 
 这游戏对模拟器多开有限制吗？隔一会就显示连线忙碌中<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  clauderayvane  
+##### 1234#       发表于 2025-5-10 00:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67798657&amp;ptid=2071758" target="_blank">superwza 发表于 2025-5-9 23:32</a>
+
+这游戏对模拟器多开有限制吗？隔一会就显示连线忙碌中</blockquote>
+应该是对同网络情况下同时登陆之类的有检测，反正我一般只能同时开3个，不论是模拟器还是手机平板之类
+
