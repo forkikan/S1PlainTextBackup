@@ -1177,3 +1177,48 @@
 今年到现在为止我也就抽了1宝梅贞和2宝莉莉丝 ...</blockquote>
 你这不是出了么 2宝还不欧阿
 
+
+*****
+
+####  森兰丸  
+##### 16657#       发表于 2025-5-8 21:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67794313&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-5-8 19:57</a>
+
+你这不是出了么 2宝还不欧阿</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不都说了都是仓鼠存下来的石头
+
+都存了1000多石头100多张护符这要还不出也太说不过去了吧
+
+*****
+
+####  qixinno2  
+##### 16658#       发表于 2025-5-8 21:23
+
+<blockquote>森兰丸 发表于 2025-5-8 21:19
+不都说了都是仓鼠存下来的石头
+
+都存了1000多石头100多张护符这要还不出也太说不过去了吧 ...</blockquote>
+不是很正常么 各种补二宝被干碎的倒霉蛋
+
+*****
+
+####  森兰丸  
+##### 16659#       发表于 2025-5-9 07:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">卧槽槽槽这次奏4刚看开头虽然做好了卡多克要死的准备但怎么也没想到这么快就没了啊
+
+以为还能挺一段时间的结果这次奏4就死了.....这种事不要啊
+
+*****
+
+####  alucardcz  
+##### 16660#       发表于 2025-5-9 07:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67794106&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-5-8 18:33</a>
+
+非洲人可从来都没欧过....都是靠仓鼠存下的石头硬抽的
+
+今年到现在为止我也就抽了1宝梅贞和2宝莉莉丝 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">太欧了 这就是欧皇吗
+
