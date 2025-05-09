@@ -3477,3 +3477,13 @@ gqux完全就是一季拍了两季的剧情
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  王留美  
+##### 12119#       发表于 2025-5-9 14:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67796869&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-9 14:15</a>
+ 新商品cd是啥呢，从价格上来看和红高差不多价格，意味着要么大一些，要么装备多一些  我估计其中之一是基克 ...</blockquote>
+如果里面有基克罗格，那大概率是正史版的拿过来坐79年GQ版的后继机了
+
