@@ -13079,3 +13079,15 @@ EX2 EX3都不需要能天强自
 
 是不是现在还没有除了日常基地请求之外的钻石获取渠道，活动也不给钻石和限定票，感觉再有两次限定池，无氪就拿不到机体了啊
 
+
+*****
+
+####  无念  
+##### 1223#       发表于 2025-5-9 16:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67797133&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-5-9 15:12</a>
+欧贝隆要出了，但是可以换掉这个傻逼男主吗</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">等大土豆出UR了肯定送原版希洛克啊，你要不要
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
