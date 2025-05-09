@@ -3170,3 +3170,19 @@ gqx的赛克缪应该和0096金鸟坐一桌的 搞不好真的可以降神
 
 <img src="https://p.sda1.dev/24/0098330f8283bd373c770d2fecc051e7/20250508_215530.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  灵魂收割机  
+##### 12093#       发表于 2025-5-9 10:32
+
+[https://x.com/neterawa/status/1920465368423768190](https://x.com/neterawa/status/1920465368423768190)
+
+<img src="https://img.stage1st.com/forum/202505/09/103153rrlxs8w82lns8287.jpg" referrerpolicy="no-referrer">
+
+<strong>GqbdE0KXcAA2_eF.jpg</strong> (82.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 10:31 上传
+
