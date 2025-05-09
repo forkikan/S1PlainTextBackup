@@ -3218,3 +3218,40 @@ gqx的赛克缪应该和0096金鸟坐一桌的 搞不好真的可以降神
 
 — from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  赤黑的假面  
+##### 12097#       发表于 2025-5-9 11:15
+
+<blockquote>mffx 发表于 2025-5-9 11:05
+黑拳第一印象不都是打死不管吗？怎么又成了过家家代名词了？除了打仗都是过家家是吧
+
+— from S1 Next Goos ...</blockquote>
+难绷，高达这个ip真是戏里戏外都是四战之地
+
+*****
+
+####  Lawliet.L  
+##### 12098#       发表于 2025-5-9 11:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67796228&amp;ptid=2209276" target="_blank">mffx 发表于 2025-5-9 11:05</a>
+
+黑拳第一印象不都是打死不管吗？怎么又成了过家家代名词了？除了打仗都是过家家是吧
+
+— from S1 Next Goos ...</blockquote>
+你把过家家换成偶像剧不妨碍理解，核心在于情绪而非故事，不过我倒是不在意这个更在意打得好不好<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  王留美  
+##### 12099#       发表于 2025-5-9 11:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67795932&amp;ptid=2209276" target="_blank">88ace88 发表于 2025-5-9 09:58</a>
+ 嫌0079战斗演出你别“借鉴”啊，“借鉴”完还要嫌烂还要甩锅那真的是牛逼。 ...</blockquote>
+鹤卷他们第一没嫌弃第二也没在甩锅吧
+get到的观众我看也没人在嫌弃的
+
+至于没get到的观众，get到的观众帮忙解释一下为什么是这样子也算甩锅吗？
+
