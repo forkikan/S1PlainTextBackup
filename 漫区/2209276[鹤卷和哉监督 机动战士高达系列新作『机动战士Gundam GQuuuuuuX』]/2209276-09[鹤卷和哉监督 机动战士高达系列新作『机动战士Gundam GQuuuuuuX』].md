@@ -3129,3 +3129,14 @@ gqx的赛克缪应该和0096金鸟坐一桌的 搞不好真的可以降神
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  evestart  
+##### 12089#       发表于 2025-5-9 10:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67795762&amp;ptid=2209276" target="_blank">yichengyu 发表于 2025-5-9 09:15</a>
+
+相较于随便一个战争题材，打黑拳不就是过家家，拿军队顶尖战力在地下拳场进行测试是吧 ...</blockquote>
+冷战背景下，不能直接爆发大规模战争，在灰色地带搞局部战斗测试数据积累实战经验算过家家吗？
+
