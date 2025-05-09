@@ -3186,3 +3186,16 @@ gqx的赛克缪应该和0096金鸟坐一桌的 搞不好真的可以降神
 
 2025-5-9 10:31 上传
 
+
+*****
+
+####  yichengyu  
+##### 12094#       发表于 2025-5-9 10:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67795978&amp;ptid=2209276" target="_blank">evestart 发表于 2025-5-9 10:08</a>
+
+冷战背景下，不能直接爆发大规模战争，在灰色地带搞局部战斗测试数据积累实战经验也不算过家家吧。
+
+ ...</blockquote>
+。。还能扯冷战，你太饿了，说多了都是喂食
+
