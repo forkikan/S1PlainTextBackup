@@ -3061,3 +3061,37 @@ GQX的最终结局怎样，还有待继续观察。
 
 打戏难看还是摸79的问题 照抄79分镜就是这个ppt节奏了 毕竟那时候还搞不清到底要怎么打 到cca才算是搞明白了
 
+
+*****
+
+####  wpcc  
+##### 12082#       发表于 2025-5-9 09:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67791045&amp;ptid=2209276" target="_blank">sauron.j 发表于 2025-5-7 22:05</a>
+
+无论最后展开是否翻车，原创度是要扣不少分了
+
+致敬和借鉴得比例太高以至于你怀疑它究竟还剩下几分属于自己 ...</blockquote>
+你都借了别人的名字和世界观了 原创不到哪里去的 除了战斗分镜其他都还挺新的了
+
+*****
+
+####  57042711  
+##### 12083#       发表于 2025-5-9 09:54
+
+主要是和前辈们对比吧，一般高达的故事格局都比较大<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wpcc  
+##### 12084#       发表于 2025-5-9 09:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67791148&amp;ptid=2209276" target="_blank">我聞如是 发表于 2025-5-7 22:38</a>
+
+如果不考慮配音版內容的話，我和你的想法其實差不多
+
+就是現實中科學研究的發現：大腦已經下決定了，然後 ...</blockquote>
+gqx的赛克缪应该和0096金鸟坐一桌的 搞不好真的可以降神 
+

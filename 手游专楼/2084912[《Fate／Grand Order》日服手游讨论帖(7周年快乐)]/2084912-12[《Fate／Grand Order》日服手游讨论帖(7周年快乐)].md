@@ -1222,3 +1222,47 @@
 今年到现在为止我也就抽了1宝梅贞和2宝莉莉丝 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">太欧了 这就是欧皇吗
 
+
+*****
+
+####  森兰丸  
+##### 16661#       发表于 2025-5-9 08:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67795603&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-5-9 07:51</a>
+
+太欧了 这就是欧皇吗</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">尼奏凯.....非洲人可是真被这个一点都没预料到的便当给弄郁闷了
+
+奏2 BAN了整个仇组....奏4给卡多克发便当....蘑菇是真不做人啊
+
+还有小芬奇的旗子也竖起来了....这辣鸡游戏不会真打算第2部完结后就关服了吧
+
+*****
+
+####  alucardcz  
+##### 16662#       发表于 2025-5-9 08:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67795669&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-5-9 08:35</a>
+
+尼奏凯.....非洲人可是真被这个一点都没预料到的便当给弄郁闷了
+
+奏2 BAN了整个仇组....奏4给卡多克发便 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你这就好比觉得钱太多 所以我不要了一样
+
+*****
+
+####  qixinno2  
+##### 16663#       发表于 2025-5-9 09:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">羁绊的30石没有灵魂阿 抽懒贞失败
+
+*****
+
+####  alucardcz  
+##### 16664#       发表于 2025-5-9 09:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67795852&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-5-9 09:37</a>
+
+羁绊的30石没有灵魂阿 抽懒贞失败</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不欧 不羡慕
+
