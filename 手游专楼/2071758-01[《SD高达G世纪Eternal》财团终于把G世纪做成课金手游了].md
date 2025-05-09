@@ -13010,3 +13010,31 @@ Z ZZ W这仨图难到是不难，主要真不想把机师狗粮给一堆SR...
 永恒expert有人能过吗？怪多也就算了，还要限制三回合
 都拉到了九十级去打，第二波敌人出来看了下战斗力就直接放弃了。。
 
+
+*****
+
+####  rockroxas  
+##### 1216#       发表于 2025-5-9 13:44
+
+ 本帖最后由 rockroxas 于 2025-5-9 13:45 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67796716&amp;ptid=2071758" target="_blank">warerest 发表于 2025-5-9 13:22</a>
+
+永恒expert有人能过吗？怪多也就算了，还要限制三回合
+
+都拉到了九十级去打，第二波敌人出来看了下战斗力就 ...</blockquote>
+3？正常练就过了（指开发SSR三星满级），第一回合至少要求敌回合清光对面怪让增援下来
+
+敌人就是血特别厚，只有金异端是ex的攻击水平，多用MAP挺好过的（SP自由，两个流星）
+
+*****
+
+####  captoon  
+##### 1217#       发表于 2025-5-9 13:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67796716&amp;ptid=2071758" target="_blank">warerest 发表于 2025-5-9 13:22</a>
+
+永恒expert有人能过吗？怪多也就算了，还要限制三回合
+
+都拉到了九十级去打，第二波敌人出来看了下战斗力就 ...</blockquote>
+可以看看顶楼的EX3攻略
+
