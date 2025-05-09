@@ -13177,3 +13177,15 @@ seed那个ex好难，第二轮茫茫多的杂兵和boss，直接把我能量都�
 
 原来手游唯一的乐趣就是抽卡啊，新手任务完成也没活动真的索然无味了，我也想开新号了
 
+
+*****
+
+####  lighttt  
+##### 1232#       发表于 2025-5-9 22:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67798562&amp;ptid=2071758" target="_blank">silvia 发表于 2025-5-9 22:25</a>
+原来手游唯一的乐趣就是抽卡啊，新手任务完成也没活动真的索然无味了，我也想开新号了 ...</blockquote>
+感觉刷初始比清体力好玩多了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
