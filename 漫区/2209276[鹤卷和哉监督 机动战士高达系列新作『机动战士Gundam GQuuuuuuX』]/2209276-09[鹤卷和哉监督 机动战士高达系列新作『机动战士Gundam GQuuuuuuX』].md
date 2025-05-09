@@ -3776,3 +3776,18 @@ gqux完全就是一季拍了两季的剧情
 
 2025-5-9 19:09 上传
 
+
+*****
+
+####  psycho_Gadfly  
+##### 12145#       发表于 2025-5-9 19:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67797846&amp;ptid=2209276" target="_blank">uponutopia 发表于 2025-5-9 18:41</a>
+
+修司这角色工具感太强，从人设就很敷衍，一个造型从头穿到尾，戏份也很敷衍快过半了还是人机状态，甚至色相 ...</blockquote>
+上限性转拉拉吧，工具人就行了要什么塑造<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+不过这剧怎么看都是大女主吧。。喵安在这集之前也影薄，甚至她这集的表现都是为了衬托出番茄独特性的丧失
+
+看下面怎么写吧 不然这双女主也双不起来啊
+
