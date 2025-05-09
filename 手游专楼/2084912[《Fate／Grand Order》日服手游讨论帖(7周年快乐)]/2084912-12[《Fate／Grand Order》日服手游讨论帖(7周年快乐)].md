@@ -1266,3 +1266,47 @@
 羁绊的30石没有灵魂阿 抽懒贞失败</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不欧 不羡慕
 
+
+*****
+
+####  qixinno2  
+##### 16665#       发表于 2025-5-9 17:35
+
+幽默 又来一次全up是吧
+
+*****
+
+####  alucardcz  
+##### 16666#       发表于 2025-5-9 18:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">这卡池数量 。真搞笑
+
+*****
+
+####  Jamaisvu  
+##### 16667#       发表于 2025-5-9 18:08
+
+<img src="https://img.stage1st.com/forum/202505/09/180153j30nnh4hyhoxhu3h.jpg" referrerpolicy="no-referrer">
+
+<strong>1746784608101.jpg</strong> (106.09 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-5-9 18:01 上传
+
+这破游戏是真没活了，翻来覆去up那一大堆破池子，出率也不高，真没动力抽...
+
+本来还隔三差五氪一单当月卡（？）用于每日付费单抽，现在属实乏了...
+
+但愿戴冠式能整出点新东西吧，连saber liliy都跟着up，希望能化厨力为强度。
+
+（不过在运营眼中最体现厨力的可能是硬币数...）
+
+*****
+
+####  琴酒  
+##### 16668#       发表于 2025-5-9 18:19
+
+给我一种要跑路前再捞一笔的错觉<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

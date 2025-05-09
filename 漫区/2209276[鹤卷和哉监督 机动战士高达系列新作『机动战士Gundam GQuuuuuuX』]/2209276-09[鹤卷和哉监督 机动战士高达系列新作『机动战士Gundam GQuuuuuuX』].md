@@ -3605,3 +3605,46 @@ gqux完全就是一季拍了两季的剧情
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  我聞如是  
+##### 12132#       发表于 2025-5-9 18:21
+
+個人比較在意瑪秋和修司的MAV成分不足
+
+第三話只有一下子，第四、五話瑪秋在掛機
+
+連勝的幾場被略過掉了
+
+這樣第六話就要拆伙的話，瑪秋要追上修司的動機會很沒說服力
+
+技術什麼的綠叔叔也說了，是覺悟問題
+
+*****
+
+####  刺客ares  
+##### 12133#       发表于 2025-5-9 18:22
+
+有没有可能喵安被紫婆拐走了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+她吃拉面这个镜头对面的人穿了个黑外套，喵安看这人的眼神很警惕
+
+正好几秒后紫婆出现，还穿了件黑色大衣
+
+<img src="https://img.stage1st.com/forum/202505/09/182012udxpr4attoga0neh.png" referrerpolicy="no-referrer">
+
+<strong>3.png</strong> (213.27 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 18:20 上传
+
+喵安无论是跟夏利亚走还是跟安琪走，都很难变成黑色驾驶服那个精神状态吧
+
+没准真是被微服私访的紫婆看中，拉回格拉纳达，爱喵TV一通爆改<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这仨人分道扬镳的话，应该是玛秋上索冬跟夏利亚，喵安被紫婆带去格拉纳达，牢修自己和红高下地球
+
+这样后半段就是玛秋先去地球找牢修，二人再一起上宇宙救喵安
+
