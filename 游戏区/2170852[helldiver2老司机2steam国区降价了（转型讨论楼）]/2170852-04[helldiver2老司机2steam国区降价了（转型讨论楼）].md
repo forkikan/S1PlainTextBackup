@@ -74,3 +74,13 @@
 
 确实来了坨大的<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  -v-  
+##### 5911#       发表于 2025-5-9 09:23
+
+“shit your pants”  ×
+
+“shit”  √
+
