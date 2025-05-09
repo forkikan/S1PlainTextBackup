@@ -4096,3 +4096,19 @@ GQX这个造 ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  downnote  
+##### 12165#       发表于 2025-5-10 04:28
+
+手画太慢没时间弄，试着用AI搞了梗图
+
+<img src="https://img.stage1st.com/forum/202505/10/042815dim00k0dn00h0rfk.png" referrerpolicy="no-referrer">
+
+<strong>ChatGPT Image 2025年5月10日 02_18_17#.png</strong> (950.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-10 04:28 上传
+
