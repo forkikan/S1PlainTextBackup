@@ -469,3 +469,16 @@
 
 反观高层那些巡逻怪真是每个人都有过人之处，每个都有独门绝招，撞脸奇袭更是给你意外的惊喜<img src="https://static.stage1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  电脑死机  
+##### 306#       发表于 2025-5-9 12:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67796375&amp;ptid=2249235" target="_blank">macshi 发表于 2025-5-9 11:42</a>
+
+一周目全侵蚀普通形态的大异形确实菜鸡，正攻2个战士复读全力一击也是被揍的爬都爬不起来。
+
+反观高层那些巡 ...</blockquote>
+侵蚀E的也菜，侵蚀D的把我压着打……后面还有CBA，好奇一般人是不是要五章的水平才能打无侵蚀的
+
