@@ -13149,3 +13149,13 @@ seed那个ex好难，第二轮茫茫多的杂兵和boss，直接把我能量都�
 
 这游戏钻给得太抠了，只能存井，不然抽崩一次就结束了
 
+
+*****
+
+####  rockroxas  
+##### 1229#       发表于 2025-5-9 20:50
+
+更新之后防御bug被修了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">以后只能强打了
+
+攻略感觉也会有变化？
+

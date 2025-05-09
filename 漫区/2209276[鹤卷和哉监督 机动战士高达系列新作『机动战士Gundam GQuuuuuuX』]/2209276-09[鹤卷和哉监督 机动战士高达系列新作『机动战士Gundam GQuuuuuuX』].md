@@ -3984,3 +3984,18 @@ GQX这个造 ...</blockquote>
 
 就看gqx商业能不能搞好了。
 
+
+*****
+
+####  ryanghj  
+##### 12157#       发表于 2025-5-9 20:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67798208&amp;ptid=2209276" target="_blank">草台培训班 发表于 2025-5-9 20:42</a>
+
+肯定不属于了。
+
+正常情况下，只要人类继续发展，因为木星的体量和资源摆在这里，未来必然是太阳系的中心 ...</blockquote>
+现在看已经很成功了，光先行剧场版就大卖
+
+而且模型卖的也很好，刚出的勇士更是大火，还带动了不少UC老模型
+
