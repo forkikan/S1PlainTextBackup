@@ -3999,3 +3999,48 @@ GQX这个造 ...</blockquote>
 
 而且模型卖的也很好，刚出的勇士更是大火，还带动了不少UC老模型
 
+
+*****
+
+####  ProAgressive  
+##### 12158#       发表于 2025-5-9 20:57
+
+又看了遍预告发现照片是安琪拍的（绿色指甲油）
+
+<img src="https://img.stage1st.com/forum/202505/09/204714a86g8pg5pzdask2s.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (199.9 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 20:47 上传
+
+之后虽然没什么证据但是喵安的实际年龄可能比另外二人小？首先是自称喵~安就有点可疑了，之后这集脱衣服也可以解读成其实还是小孩，最后虽然有点牵强预告里说自己一直“大人しくして”（意思确实是安分守己但是就是觉得有点不对）并且吃面的时候特意在嘴角画上酱汁。身高最高可能是难民时期在无重力环境待久了造成的障眼法。
+
+<img src="https://img.stage1st.com/forum/202505/09/205412p0vhzizfchq1qqv4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (124.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 20:54 上传
+
+*****
+
+####  ryanghj  
+##### 12159#       发表于 2025-5-9 21:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67798281&amp;ptid=2209276" target="_blank">ProAgressive 发表于 2025-5-9 20:57</a>
+
+又看了遍预告发现照片是安琪拍的（绿色指甲油）</blockquote>
+主角三人团在设定集里写的都是17岁
+
+*****
+
+####  岸浪白野  
+##### 12160#       发表于 2025-5-9 21:01
+
+你要趋势是第一第二不还是依然有..............
+
+真想知道和对比不又是比发推数..........
+
