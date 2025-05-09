@@ -13159,3 +13159,13 @@ seed那个ex好难，第二轮茫茫多的杂兵和boss，直接把我能量都�
 
 攻略感觉也会有变化？
 
+
+*****
+
+####  一个陆仁贾  
+##### 1230#       发表于 2025-5-9 21:30
+
+这日常福利扣的程度比fgo还厉害啊<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
