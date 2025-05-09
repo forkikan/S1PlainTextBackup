@@ -3381,3 +3381,22 @@ gqux完全就是一季拍了两季的剧情
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Geyorkias  
+##### 12110#       发表于 2025-5-9 12:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">深夜档的热度就不要想着和噱头拉满的日五档比了
+
+*****
+
+####  0aleph37  
+##### 12111#       发表于 2025-5-9 12:41
+
+ 本帖最后由 0aleph37 于 2025-5-9 12:45 编辑 
+
+现在第五集肯定是不如水魔连环爆爆爆的热度的
+
+但能这么比吗？水魔可以说是重新刷新了高达在年轻一代里的认知度…
+
