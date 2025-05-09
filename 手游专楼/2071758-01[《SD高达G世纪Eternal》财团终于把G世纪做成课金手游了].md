@@ -13129,3 +13129,13 @@ seed那个ex好难，第二轮茫茫多的杂兵和boss，直接把我能量都�
 
 —— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  風卷豹  
+##### 1227#       发表于 2025-5-9 18:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67797348&amp;ptid=2071758" target="_blank">附庸风雅者 发表于 2025-5-9 16:06</a>
+是不是现在还没有除了日常基地请求之外的钻石获取渠道，活动也不给钻石和限定票，感觉再有两次限定池，无氪 ...</blockquote>
+就是故意逼氪的，后面大师联盟也没钻，再这么抠肯定会有一波退坑潮，但是对流水影响大不大不好说<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
