@@ -3428,3 +3428,16 @@ gqux完全就是一季拍了两季的剧情
 
 但是也是动不动前三十占掉一半甚至三分之二的程度了
 
+
+*****
+
+####  pokemon最爱  
+##### 12115#       发表于 2025-5-9 13:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67796181&amp;ptid=2209276" target="_blank">yichengyu 发表于 2025-5-9 10:53</a>
+
+。。还能扯冷战，你太饿了，说多了都是喂食</blockquote>
+旧UC系作品创作的大背景就是冷战，所以鹤卷庵野这些老登们做UCif线必然是脱不开冷战背景的，脱离了冷战就不对味了。
+
+就像种系大背景是世纪之交包括多莉羊等技术的冲击，蛋蛋系的大背景是全球化蒸蒸日上的时代一样。
+
