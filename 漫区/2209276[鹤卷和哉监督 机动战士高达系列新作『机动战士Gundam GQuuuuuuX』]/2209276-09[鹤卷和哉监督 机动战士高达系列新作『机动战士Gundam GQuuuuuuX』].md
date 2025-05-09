@@ -3140,3 +3140,33 @@ gqx的赛克缪应该和0096金鸟坐一桌的 搞不好真的可以降神
 相较于随便一个战争题材，打黑拳不就是过家家，拿军队顶尖战力在地下拳场进行测试是吧 ...</blockquote>
 冷战背景下，不能直接爆发大规模战争，在灰色地带搞局部战斗测试数据积累实战经验算过家家吗？
 
+
+*****
+
+####  暗黑能乐  
+##### 12090#       发表于 2025-5-9 10:18
+
+这人物关系的推进方式确实不像是有第二季的，各种“留白”让你脑补一下就过了，有大篇幅的应该不至于这么写
+
+*****
+
+####  Piano-Forest  
+##### 12091#         楼主| 发表于 2025-5-9 10:18
+
+[https://x.com/daoshitaka/status/1919752609327399066](https://x.com/daoshitaka/status/1919752609327399066)
+<img src="https://p.sda1.dev/24/666fe59590b343908c7a52c60693a293/20250508_215318.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/o_ro_ro_n24/status/1919752403949387895](https://x.com/o_ro_ro_n24/status/1919752403949387895)
+<img src="https://p.sda1.dev/24/d37dc044e6a86792cf22efca84f16e5c/20250508_215233.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/930ca2352c40a10d790c459274bf0980/20250508_215245.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/eb783b5abc0ec1e9f58a2b25b19fa582/20250508_215251.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/a5521e8b3597ac456bd4a09a4a36e5bd/20250508_215259.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 12092#         楼主| 发表于 2025-5-9 10:20
+
+<img src="https://p.sda1.dev/24/0098330f8283bd373c770d2fecc051e7/20250508_215530.jpg" referrerpolicy="no-referrer">
+
