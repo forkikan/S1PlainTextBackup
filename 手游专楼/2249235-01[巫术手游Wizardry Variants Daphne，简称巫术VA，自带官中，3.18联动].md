@@ -446,3 +446,16 @@
 
 2025-5-8 23:26 上传
 
+
+*****
+
+####  电脑死机  
+##### 304#       发表于 2025-5-9 08:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67795114&amp;ptid=2249235" target="_blank">风浦可符香(P.N) 发表于 2025-5-8 23:30</a>
+
+妈的瓜尔达民风确实剽悍，我看第三章路边随便拉来只狗都比门上挂着那只(特指有侵蚀普通形态)强
+
+ ...</blockquote>
+这是打谁那么凄惨……另外王国里面人才济济，你也不想想赌场混混能把你压在地上摩擦
+
