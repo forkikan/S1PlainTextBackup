@@ -106,3 +106,20 @@ ign5在某种意义上给这游戏做了很好的宣传，2A魂市面上太多�
 
 是男人就下一百层的问题是这游戏掉落后会有自动翻滚以及手柄基本没有死区
 
+
+*****
+
+####  Sorastlos  
+##### 254#       发表于 2025-5-9 21:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67797947&amp;ptid=2168791" target="_blank">Chia 发表于 2025-5-9 19:25</a>
+
+打完了
+
+长版还是迷宫设计，包括早期用有限素材的一些有效的氛围塑造。
+
+让人怀疑是被谁开光的程度。</blockquote>
+下落攻击取消自动翻滚，小子
+
+这个也致敬了
+
