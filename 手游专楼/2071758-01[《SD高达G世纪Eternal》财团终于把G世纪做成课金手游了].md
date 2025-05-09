@@ -13117,3 +13117,15 @@ EX2 EX3都不需要能天强自
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  体制  
+##### 1226#       发表于 2025-5-9 17:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67792555&amp;ptid=2071758" target="_blank">mobdom 发表于 2025-5-8 11:30</a>
+seed那个ex好难，第二轮茫茫多的杂兵和boss，直接把我能量都用完了</blockquote>
+练个sr自由，不用sp化，上去打地图炮辅助清杂。
+
+—— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
