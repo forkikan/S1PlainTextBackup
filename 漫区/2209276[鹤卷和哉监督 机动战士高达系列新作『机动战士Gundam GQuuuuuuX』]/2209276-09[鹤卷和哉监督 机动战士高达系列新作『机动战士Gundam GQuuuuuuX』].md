@@ -3095,3 +3095,37 @@ GQX的最终结局怎样，还有待继续观察。
 就是現實中科學研究的發現：大腦已經下決定了，然後 ...</blockquote>
 gqx的赛克缪应该和0096金鸟坐一桌的 搞不好真的可以降神 
 
+
+*****
+
+####  88ace88  
+##### 12085#       发表于 2025-5-9 09:58
+
+嫌0079战斗演出你别“借鉴”啊，“借鉴”完还要嫌烂还要甩锅那真的是牛逼。
+
+*****
+
+####  mengsu  
+##### 12086#       发表于 2025-5-9 09:58
+
+12话真搞不出什么大格局的故事，这黑拳都打了5话了，后面去个地球再卷入个什么大事件就完事了。
+
+
+*****
+
+####  solora  
+##### 12087#       发表于 2025-5-9 10:02
+
+不说百分百有第二季吧，大概率有吧...<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  oi99o  
+##### 12088#       发表于 2025-5-9 10:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67795554&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-9 06:24</a>
+「去了配音现场后，好多人都说我是“形象选角”（指长相和角色相似的人被选角）呢。」「连钉宫也说我很像， ...</blockquote>
+然后都离过婚
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
