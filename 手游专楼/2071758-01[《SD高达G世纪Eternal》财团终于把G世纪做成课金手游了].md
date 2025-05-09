@@ -13189,3 +13189,11 @@ seed那个ex好难，第二轮茫茫多的杂兵和boss，直接把我能量都�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  superwza  
+##### 1233#       发表于 2025-5-9 23:32
+
+这游戏对模拟器多开有限制吗？隔一会就显示连线忙碌中<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
