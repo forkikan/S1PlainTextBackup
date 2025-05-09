@@ -13104,3 +13104,16 @@ EX2 EX3都不需要能天强自
 —— 来自 HONOR SDY-AN00, Android 14, 鹅球 v3.5.99 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">脱甲送原装正版希洛克的话那怎么都得要啊
 
+
+*****
+
+####  无念  
+##### 1225#       发表于 2025-5-9 17:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67797412&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-5-9 16:28</a>
+脱甲送原装正版希洛克的话那怎么都得要啊</blockquote>
+原版大土豆可不会脱皮
+不过要是和隔壁UCE联动的话倒是有个特大号土豆<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
