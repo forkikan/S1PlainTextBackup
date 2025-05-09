@@ -997,3 +997,14 @@ gsc手办化决定
 <img src="https://p.sda1.dev/24/c9d7a336fcf925af1e2e2e5f319519e5/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/24/9c83e79045654b8cbf590bf130689be9/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  凉良  
+##### 40844#       发表于 2025-5-9 22:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67798097&amp;ptid=2208921" target="_blank">草台培训班 发表于 2025-5-9 20:11</a>
+
+多少？</blockquote>
+三万一了
+
