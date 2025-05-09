@@ -1310,3 +1310,32 @@
 
 给我一种要跑路前再捞一笔的错觉<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xiongxingyu  
+##### 16669#       发表于 2025-5-9 18:38
+
+突然发现一个惊异的事实，身为全图鉴的开服老登，我居然没有一个100级的剑阶从者，唯一喂过杯子的是90级的黑呆<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 16670#       发表于 2025-5-9 18:44
+
+反正现在强卡强度都飞的不行了 直接给带冠的来个技能数值额外增加50% 持续加一回合 全技能cd额外减一算了 
+
+*****
+
+####  DARKGRAY  
+##### 16671#       发表于 2025-5-9 18:51
+
+看了看预热两周包括剑阶养成系列，那别的职阶也该有，然后职阶战只能一周，空出来的时间塞个所长本，或许还能再有一次活动<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天王寺凯伊姆  
+##### 16672#       发表于 2025-5-9 19:26
+
+没懂，你给育成券和大失败，狗粮和修炼场都减半了，为什么qb没减半？干嘛天天开这个卡池催着抽多宝
+
