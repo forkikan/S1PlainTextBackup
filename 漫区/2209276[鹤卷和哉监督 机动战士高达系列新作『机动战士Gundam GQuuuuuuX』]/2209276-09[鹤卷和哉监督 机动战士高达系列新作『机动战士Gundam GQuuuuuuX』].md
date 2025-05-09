@@ -3737,3 +3737,42 @@ gqux完全就是一季拍了两季的剧情
 
 喵安对面的是她上级的那个开卡车大叔吧，喵安这个性格应该不会和陌生人一起吃饭，看状态挺放松的
 
+
+*****
+
+####  岸浪白野  
+##### 12143#       发表于 2025-5-9 19:08
+
+<img src="https://img.stage1st.com/forum/202505/09/190831lyz9pupuoowwe4pk.jpg" referrerpolicy="no-referrer">
+
+<strong>9KB%6TUC}A95Y(TG8SJAFDR.jpg</strong> (273.65 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 19:08 上传
+
+*****
+
+####  岸浪白野  
+##### 12144#       发表于 2025-5-9 19:09
+
+|[X 上的 【公式】ガンダムカードゲーム：“||◤NEWS⑬◢|| 「機動戦士Gundam GQuuuuuuX（ジークアクス）」から、新規カード「GQuuuuuuX(オメガ・サイコミュ起動時)」のイラストを公開！ #ガンダムカード #GCG [url]https://t.co/WUvzcC32FH](https://x.com/GUNDAM_GCG_JP/status/1920795313826148541)” / X[/url]|
+
+<img src="https://img.stage1st.com/forum/202505/09/190902l2lqvtqgvg8vb5qm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.57 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 19:09 上传
+
+|[X 上的 【公式】ガンダムカードゲーム：“||◤NEWS⑭◢|| 「機動戦士Gundam GQuuuuuuX（ジークアクス）」から、新規カード「アマテ・ユズリハ(マチュ)」のイラストを公開！ #ガンダムカード #GCG [url]https://t.co/KHm0lBCt4R](https://x.com/GUNDAM_GCG_JP/status/1920795378435211678)” / X[/url]|
+
+<img src="https://img.stage1st.com/forum/202505/09/190921bfayfzaaoyutzyxt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.41 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 19:09 上传
+
