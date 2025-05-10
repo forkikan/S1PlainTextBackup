@@ -2344,3 +2344,15 @@ baldr系列那种本来就是act的除外
 
 （话是这么说，二周目还是继续在四足/二足和直推足之间换来换去了，主要就是找找新的推关体验。因为跳跃高度不够而不得不寻找新的攻略路线也是二周目目前体验下来最有趣的一个点了）
 
+
+*****
+
+####  蓝雉  
+##### 212#       发表于 2025-5-10 12:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67799528&amp;ptid=2158861" target="_blank">斯普林菲尔德 发表于 2025-5-10 12:03</a>
+20小时通关了
+
+画面贫穷归贫穷，从地图质量（大桥BOSS前的那个捷径走出来的一瞬是真的震惊到了）到可玩部件 ...</blockquote>
+悬浮足就是拿载重换综合高机动性，手感确实舒服，特别是这游戏重武器很多产废<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
