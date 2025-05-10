@@ -2160,3 +2160,26 @@ aiko近几年唱歌只有跑调和没那么跑调两个状态，音番默认翻�
 
 即便设定年龄已合法，姐姐喝酒的时候还是只能闻一闻舔一舔
 
+
+*****
+
+####  失忆的香槟  
+##### 206#       发表于 2025-5-10 14:28
+
+成熟的身体与过于成熟的嘴唇，恐怕这也是owner的个人审美吧。看到酒店转职成酒厂之后感觉以后变成兵工厂也不意外了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+
+这片现在的时间跨度很大，也没有一个固定的参照物，一个转场后就过来几百几千年一点都不奇怪，倒是狸猫一家落地常驻之后把时间跨度压缩到大概300年以内，像本集酿酒跨度100年还是20年其实都说的通。芙莉莲也是在费伦上线前时间跟不要钱一样的过。
+
+PS：井上和彦又配了一个渣男，真不能怪我戴有色眼镜瞎想<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  失忆的香槟  
+##### 207#       发表于 2025-5-10 14:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67791488&amp;ptid=2196984" target="_blank">依然荏苒 发表于 2025-5-8 01:20</a>
+
+论创意这季最强了，可惜字幕组做的都好慢，基本都要下周一才出。</blockquote>
+不嫌弃可以先看阿b源
+

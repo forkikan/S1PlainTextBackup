@@ -431,3 +431,18 @@ q娃母亲节回向来都是出神回的 然而狗大友就喜欢搞迫害 看�
 
 不知名的蓝毛骷髅在海底。jpg<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  modedd  
+##### 843#       发表于 2025-5-10 14:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67799946&amp;ptid=2208663" target="_blank">我吃诗人 发表于 2025-5-10 14:23</a>
+
+游泳池，万代捧起kkr，uta在旁边要死
+
+不知名的蓝毛骷髅在海底。jpg</blockquote>
+蓝.......毛？
+
+没什么印象啊，偶q有这种有这种角色来着吗（）
+
