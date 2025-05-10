@@ -1339,3 +1339,40 @@
 
 没懂，你给育成券和大失败，狗粮和修炼场都减半了，为什么qb没减半？干嘛天天开这个卡池催着抽多宝
 
+
+*****
+
+####  quanlix  
+##### 16673#       发表于 2025-5-9 19:54
+
+总比弄一堆限定然后不给抽强，有喜欢的就抽，没喜欢的就跳，挺好
+
+说到冠位，现在还是没想出骑阶有哪个值得升100的
+
+*****
+
+####  alucardcz  
+##### 16674#       发表于 2025-5-10 07:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">看了眼 弓 骑 术 杀 都没有百级  也没什么特别强的卡  想了想把弓呆c呆骑无毛100级了。。杀阶一个呆都没有。。拉了个荚膜
+
+*****
+
+####  qixinno2  
+##### 16675#       发表于 2025-5-10 08:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67799007&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-5-10 07:42</a>
+
+看了眼 弓 骑 术 杀 都没有百级  也没什么特别强的卡  想了想把弓呆c呆骑无毛100级了。。杀阶一个呆都没有 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕
+
+*****
+
+####  alucardcz  
+##### 16676#       发表于 2025-5-10 08:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67799032&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-5-10 08:09</a>
+
+欧 羡慕</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这楼你最欧 
+
