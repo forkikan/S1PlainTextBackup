@@ -4485,3 +4485,51 @@ GQuuuuuuX玛秋等人居住的半商业半工业型殖民卫星伊兹玛，其�
 差不多吧
 总之就是伊兹玛利用反光板在夜间启用熔炼炉，收集各处的废品进行精练再卖给进行重建的殖民地，因此聚集了很多的废品业者，黑拳这种赌博活动也因此盛行
 
+
+*****
+
+####  Sliurus  
+##### 12187#       发表于 2025-5-10 21:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67800621&amp;ptid=2209276" target="_blank">Huanghaozheng 发表于 2025-5-10 20:06</a>
+
+从水魔的女女关系性到6个u的宇宙白色相薄
+
+是否可以看作吻蒜大战的一次伟大胜利（ ...</blockquote>
+机战三角恋，隔壁macross已经玩了几十年了，屡试不爽<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mintslime  
+##### 12188#       发表于 2025-5-10 21:19
+
+重看前几集有很多有趣的细节，确实是有藏内容的
+
+<img src="https://img.stage1st.com/forum/202505/10/210616x87671tu39otq377.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20250510210437.png</strong> (99.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-10 21:06 上传
+
+他们买的那台太空滑翔机，是米莱家在战前生产的，剩下两台都是战后Zenith（没在UC出现过的公司）生产的.
+
+米莱会开太空滑翔机，所以接下来米莱搞不好会出场？都特意买了她家的滑翔机总得有点意义吧。
+
+至于Zenith，UC时间线不存在，在战后出头并且80年就能造滑翔机了，怀疑是联邦人的下岗再就业项目。
+
+还有虽然首席这几集吃瘪看起来有种哈基首的可爱，但是这人就一丐版朱雀，自己难民出身结果为了立功直接把红高达撞进殖民地的货。要不是修司挡了一下，麻球第一集就被盾砸成麻饼了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+还有一个有意思的地方
+
+<img src="https://img.stage1st.com/forum/202505/10/210819mv9qo6q9pe6o94cc.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250510210758.png</strong> (62.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-10 21:08 上传
+
+一开始大家（包括喵安自己）都以为这句话的对象是喵安，但是这句话的对象其实是麻球
+
