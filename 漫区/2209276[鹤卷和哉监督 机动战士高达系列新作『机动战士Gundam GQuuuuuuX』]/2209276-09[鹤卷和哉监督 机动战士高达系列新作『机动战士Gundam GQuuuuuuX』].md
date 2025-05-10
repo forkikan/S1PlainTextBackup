@@ -4382,3 +4382,71 @@ GQuuuuuuX玛秋等人居住的半商业半工业型殖民卫星伊兹玛，其�
 
 2025-5-10 18:44 上传
 
+
+*****
+
+####  岸浪白野  
+##### 12182#       发表于 2025-5-10 18:55
+
+ 本帖最后由 岸浪白野 于 2025-5-10 18:58 编辑 
+
+[X 上的 れもん茶：“シュウジの風邪 #GQuuuuuuX](https://x.com/lemoontya/status/1920839901173440997)[https://t.co/6lvDHFJGOo](https://t.co/6lvDHFJGOo)” / X
+
+<img src="https://img.stage1st.com/forum/202505/10/184901hurri94xik7jqlfp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.82 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-10 18:49 上传
+
+[X 上的 またへい：“](https://x.com/matahe_i/status/1920698098289963363)[https://t.co/Y48oSJZfNe](https://t.co/Y48oSJZfNe)” / X
+
+<img src="https://img.stage1st.com/forum/202505/10/184928vqaypt7ope9qeoof.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (656.32 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-10 18:49 上传
+
+[X 上的 ダオシタカ！：“ニャアンはどうしてマチュが怒っているのかわからない！ #GQuuuuuuX #ジークアクス](https://x.com/daoshitaka/status/1920669099786453313)[https://t.co/m5LCmcYXSP](https://t.co/m5LCmcYXSP)” / X
+
+<img src="https://img.stage1st.com/forum/202505/10/185023cew4e9h9be1x416e.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (405.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-10 18:50 上传
+
+[X 上的 長頼(ながより)：“ずっと描きたかったマチュ](https://x.com/nagayori000/status/1920775493948764411)[https://t.co/PNREujv5YR](https://t.co/PNREujv5YR)” / X
+
+<img src="https://img.stage1st.com/forum/202505/10/185103pqyqnnlgbmf5yy2w.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.1 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-10 18:51 上传
+
+[X 上的 えむ：“マチュ #ジークアクス #GQuuuuuuX](https://x.com/emya26/status/1920963559220986007)[https://t.co/q0vFnp4k9O](https://t.co/q0vFnp4k9O)” / X
+
+<img src="https://img.stage1st.com/forum/202505/10/185122b3hpn22z3y2nlo3b.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (616.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-10 18:51 上传
+
+[X 上的 ハルキ：“イズマコロニーは豪雨 (写真参考あり)](https://x.com/haruki_chise/status/1920848684276662731)[https://t.co/ktHyK2eaoe](https://t.co/ktHyK2eaoe)” / X
+
+<img src="https://img.stage1st.com/forum/202505/10/185458qn0p69smsww79w0n.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.87 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-10 18:54 上传
+
