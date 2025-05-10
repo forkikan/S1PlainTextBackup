@@ -528,3 +528,18 @@
 
 https://m.gamer.com.tw/forum/C.php?bsn=70180&amp;page=&amp;snA=1997&amp;last=
 
+
+*****
+
+####  toblkr  
+##### 311#       发表于 2025-5-10 15:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67799978&amp;ptid=2249235" target="_blank">风浦可符香(P.N) 发表于 2025-5-10 14:42</a>
+
+词条固定的，一般想要好数值应该是先全变，第一条防御改掉，强化，最后精炼
+
+具体教学</blockquote>
+妈呀，还要多个全变造<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
+roll到13%攻和18攻就可以用+4-6攻击改掉防御，然后只强化第一词条，最后精炼？ 这样？
+
