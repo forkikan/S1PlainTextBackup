@@ -13244,3 +13244,14 @@ https://www.bilibili.com/video/BV1EFVWzmExP/?vd_source=64e0114332634ff9c6b83359b
 这个作业为 ...</blockquote>
 ai只有在map攻击范围内有2个以上敌人时才会用map，同时boss只要能打到人就会站桩，所以ex1只要找个人贴脸然后其他人避开map范围就能防止boss放地图炮。不然按照ex关卡这攻击力根本就无解，无条件2动加地图炮一回合就能把我方给扬了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 1238#       发表于 2025-5-10 11:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67799140&amp;ptid=2071758" target="_blank">xiongxingyu 发表于 2025-5-10 09:26</a>
+
+ai只有在map攻击范围内有2个以上敌人时才会用map，同时boss只要能打到人就会站桩，所以ex1只要找个人贴脸 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">我把小番茄换成独角兽，奎曼沙就不会走到距离一格的位置，怪事。但是我的小番茄输出没他这个高
+
