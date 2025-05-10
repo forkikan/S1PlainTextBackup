@@ -510,3 +510,21 @@
 
 —— 来自 OnePlus PJZ110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 310#         楼主| 发表于 2025-5-10 14:42
+
+ 本帖最后由 风浦可符香(P.N) 于 2025-5-10 14:47 编辑 
+<blockquote>toblkr 发表于 2025-5-10 13:46
+那个战士试炼的戒指该怎么强化？先全变造吗
+
+—— 来自 OnePlus PJZ110, Android 15上的 S1Next-鹅版 v2.5. ...</blockquote>
+
+词条固定的，一般想要好数值应该是先全变，第一条防御改掉，强化，最后精炼
+
+具体教学
+
+https://m.gamer.com.tw/forum/C.php?bsn=70180&amp;page=&amp;snA=1997&amp;last=
+
