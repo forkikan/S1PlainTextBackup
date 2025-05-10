@@ -4238,3 +4238,21 @@ UC的MS设定在宇宙空间散热是不如大气 ...</blockquote>
 这人物光速出场又退场，我看真的没有第二季，就是到目前为止这故事主线也太难绷了。 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">说不定真就是玩一票就没后续的的玩梗作
 
+
+*****
+
+####  玖羽  
+##### 12178#       发表于 2025-5-10 16:06
+
+我懒得往前翻了，之前有人提过吗
+
+第4话拉拉音的时候舰桥上有反应(NT)和没有反应的人正好被构图分割成两组
+
+<img src="https://img.stage1st.com/forum/202505/10/160436uf2agxa1bufjao8a.jpg" referrerpolicy="no-referrer">
+
+<strong>4.jpg</strong> (280.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-10 16:04 上传
+
