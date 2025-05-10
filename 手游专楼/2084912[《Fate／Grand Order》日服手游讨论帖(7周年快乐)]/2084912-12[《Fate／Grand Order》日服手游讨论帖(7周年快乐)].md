@@ -1376,3 +1376,37 @@
 欧 羡慕</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这楼你最欧 
 
+
+*****
+
+####  qixinno2  
+##### 16677#       发表于 2025-5-10 08:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67799036&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-5-10 08:14</a>
+
+这楼你最欧</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">一年最少比我多7个五星的狗萌新说什么呢
+
+*****
+
+####  khxooo  
+##### 16678#       发表于 2025-5-10 13:40
+
+剑：武藏，弓：金皮卡，枪：艾蕾，骑：羽蛇神，杀：迦摩，术：水摩根，狂：水C呆，可惜没有抽到莉莉丝，否则就给她的。
+
+*****
+
+####  大十字紅朔  
+##### 16679#       发表于 2025-5-10 14:57
+
+原来选冠位是非得每个职介选一个吗，我弓完全没有想选的怎么办
+
+*****
+
+####  希望之花  
+##### 16680#       发表于 2025-5-10 15:14
+
+剑：麻雀，弓：妖崔，枪：艾蕾，骑：拉二，杀：刑部姬，术：尼托，狂：班扬/千利休
+
+千利休还没满绊不知道能不能赶得上<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
