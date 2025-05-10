@@ -4147,3 +4147,13 @@ UC的MS设定在宇宙空间散热是不如大气 ...</blockquote>
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.46)
 
+
+*****
+
+####  oi99o  
+##### 12169#       发表于 2025-5-10 11:53
+
+摁喇叭还可以说是在公频通讯里，爆炸声就真的没得找补了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
