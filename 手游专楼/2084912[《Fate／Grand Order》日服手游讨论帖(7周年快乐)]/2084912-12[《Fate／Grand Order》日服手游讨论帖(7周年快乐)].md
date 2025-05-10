@@ -1458,3 +1458,44 @@
 冠位好像只要100级310，然后特定关卡可以额外装备满绊礼装</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">那还好 不然要寄了 弓杀骑都没有100级+羁绊10的人  
 
+
+*****
+
+####  qixinno2  
+##### 16685#       发表于 2025-5-10 16:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67800038&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-5-10 15:23</a>
+
+能不能全上巴萨卡 正好7个</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕
+
+*****
+
+####  壳壳牛  
+##### 16686#       发表于 2025-5-10 17:57
+
+卧槽羁绊石太灵了<img src="https://static.stage1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/81c314fa8f8226d0e0e4716e8c23caa5/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  qixinno2  
+##### 16687#       发表于 2025-5-10 18:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67800360&amp;ptid=2084912" target="_blank">壳壳牛 发表于 2025-5-10 17:57</a>
+
+卧槽羁绊石太灵了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">为什么我的羁绊石就没有灵魂
+
+*****
+
+####  khxooo  
+##### 16688#       发表于 2025-5-10 23:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67800360&amp;ptid=2084912" target="_blank">壳壳牛 发表于 2025-5-10 17:57</a>
+
+卧槽羁绊石太灵了</blockquote>
+卧槽，真是欧羡慕了<img src="https://static.stage1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">
+
