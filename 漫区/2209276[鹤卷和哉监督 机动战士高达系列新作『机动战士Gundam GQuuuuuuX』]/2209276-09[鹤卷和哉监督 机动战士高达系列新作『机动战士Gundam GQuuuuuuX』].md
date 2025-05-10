@@ -4627,3 +4627,51 @@ GQuuuuuuX玛秋等人居住的半商业半工业型殖民卫星伊兹玛，其�
 
 這部是Khara和日昇聯合製作，要用哪個角色就是打電話問問，頂多開個會的事
 
+
+*****
+
+####  otaku21126  
+##### 12198#       发表于 2025-5-10 22:46
+
+下一话基西利亚暗杀计划有没有可能说的是OYW时期联邦对基西利亚的暗杀计划，也就是剧场版的后半段<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+这样基本上就在前6话把所有旧物料全放出了
+
+前面待揭秘的立牌就是阿尔黛西亚和基西利亚，待公布的模型就是高达1号机和轻加农塞拉专用机<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猪突猛进R  
+##### 12199#       发表于 2025-5-10 22:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67800880&amp;ptid=2209276" target="_blank">mintslime 发表于 2025-5-10 21:19</a>
+
+重看前几集有很多有趣的细节，确实是有藏内容的
+
+他们买的那台太空滑翔机，是米莱家在战前生产的，剩下两台 ...</blockquote>
+Zenith是《前线任务》里的机甲啊，不知有没有在玩梗。
+
+（前线任务和高达搭得上线的，貌似只有雷霆宙域？）
+
+另外搜了下现实里的Zenith是卖表的，这个应该没关系<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  桜庭ななみ  
+##### 12200#       发表于 2025-5-10 22:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67801034&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-10 21:55</a>
+
+什么叫只有0079ip改编权你难道觉得0079不属于高达系列吗</blockquote>
+我意思是，你看机战游戏参战作品都是按动画分ip的，逆袭的夏亚，高达z这种都是单独算版权的。虽然这部动画还是日升的产品，但是有没有可能内部有这种按ip分类管理的限制之类的，让他们只能对初代也就是0079范围进行再创作。
+
+
+*****
+
+####  隔壁老黄  
+##### 12201#       发表于 2025-5-10 22:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67801179&amp;ptid=2209276" target="_blank">桜庭ななみ 发表于 2025-5-10 22:47</a>
+我意思是，你看机战游戏参战作品都是按动画分ip的，逆袭的夏亚，高达z这种都是单独算版权的。虽然这部动 ...</blockquote>
+NB收购创通后早就没版权问题了
+
