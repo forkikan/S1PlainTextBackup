@@ -1410,3 +1410,51 @@
 
 千利休还没满绊不知道能不能赶得上<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 16681#       发表于 2025-5-10 15:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67800023&amp;ptid=2084912" target="_blank">希望之花 发表于 2025-5-10 15:14</a>
+
+剑：麻雀，弓：妖崔，枪：艾蕾，骑：拉二，杀：刑部姬，术：尼托，狂：班扬/千利休
+
+千利休还没满绊不知道能 ...</blockquote>
+阿？ 还要满羁绊的？ 那我寄了阿<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 16682#       发表于 2025-5-10 15:23
+
+<img src="https://img.stage1st.com/forum/202505/10/152245lr5e40kq0nbznke2.png" referrerpolicy="no-referrer">
+
+<strong>123.png</strong> (221.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-10 15:22 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能不能全上巴萨卡 正好7个
+
+*****
+
+####  希望之花  
+##### 16683#       发表于 2025-5-10 15:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67800030&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-5-10 15:20</a>
+
+阿？ 还要满羁绊的？ 那我寄了阿</blockquote>
+冠位好像只要100级310，然后特定关卡可以额外装备满绊礼装
+
+*****
+
+####  alucardcz  
+##### 16684#       发表于 2025-5-10 15:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67800042&amp;ptid=2084912" target="_blank">希望之花 发表于 2025-5-10 15:25</a>
+
+冠位好像只要100级310，然后特定关卡可以额外装备满绊礼装</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">那还好 不然要寄了 弓杀骑都没有100级+羁绊10的人  
+
