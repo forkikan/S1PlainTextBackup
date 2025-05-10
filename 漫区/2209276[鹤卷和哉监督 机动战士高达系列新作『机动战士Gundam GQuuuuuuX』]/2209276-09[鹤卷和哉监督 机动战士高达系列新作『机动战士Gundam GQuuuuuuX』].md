@@ -4700,3 +4700,34 @@ NB收购创通后早就没版权问题了</blockquote>
 当然这也只是猜测剧情 ...</blockquote>
 0079主角也没出现啊，我认为这就是故意设置的，不让主角团出现只让边缘角色出现而已
 
+
+*****
+
+####  秋月孝三  
+##### 12204#       发表于 2025-5-10 23:58
+
+兰巴拉尔到现在连个名字都没有才更奇怪<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  mintslime  
+##### 12205#       发表于 2025-5-11 00:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67800908&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-5-10 21:26</a>
+
+米莱没和家族断绝关系也不会让大小姐来送飞机吧</blockquote>
+但是有可能是米莱开过的飞机，如果不是要引出米莱的话，没必要特意设计买了一台战前米莱家产的飞机吧
+
+*****
+
+####  mintslime  
+##### 12206#       发表于 2025-5-11 00:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67801177&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-10 22:46</a>
+
+Zenith是《前线任务》里的机甲啊，不知有没有在玩梗。
+
+（前线任务和高达搭得上线的，貌似只有雷霆宙域？ ...</blockquote>
+zenith=天顶，天穹的最高点，天顶星人也是因为开头是zen才被这样翻译的，是个逼格很高但是没啥特别意义的词
+
