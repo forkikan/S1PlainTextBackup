@@ -4533,3 +4533,40 @@ GQuuuuuuX玛秋等人居住的半商业半工业型殖民卫星伊兹玛，其�
 
 一开始大家（包括喵安自己）都以为这句话的对象是喵安，但是这句话的对象其实是麻球
 
+
+*****
+
+####  Toby_dak  
+##### 12189#       发表于 2025-5-10 21:25
+
+09R是目前为止机设感觉最好的。之前动画出现的大魔版Jet Stream Attack都是在地面（不记得野望的过场有没有），两脚只要气垫飞起来就行。这次三脚版09R，在宇宙Jet Stream Attack飞得更合理了。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.46)
+
+*****
+
+####  Sliurus  
+##### 12190#       发表于 2025-5-10 21:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67800880&amp;ptid=2209276" target="_blank">mintslime 发表于 2025-5-10 21:19</a>
+
+重看前几集有很多有趣的细节，确实是有藏内容的
+
+他们买的那台太空滑翔机，是米莱家在战前生产的，剩下两台 ...</blockquote>
+米莱没和家族断绝关系也不会让大小姐来送飞机吧
+
+
+*****
+
+####  mintslime  
+##### 12191#       发表于 2025-5-10 21:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67789323&amp;ptid=2209276" target="_blank">璇瑢子R 发表于 2025-5-7 12:38</a>
+
+基西利亚没有专机吗？
+
+还要坐经济舱？</blockquote>
+我有个大胆的想法：紫婆坐经济舱不是去side 6，是去地球
+
+只是去side 6的话没任何必要坐民用航班，但是如果想要去地球和联邦串通搞死二哥，那就只能从side 6坐麻球上集提过的1000块的旅游航班了
+
