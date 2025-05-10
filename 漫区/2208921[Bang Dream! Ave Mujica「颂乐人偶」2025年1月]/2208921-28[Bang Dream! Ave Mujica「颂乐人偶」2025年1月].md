@@ -1008,3 +1008,744 @@ gsc手办化决定
 多少？</blockquote>
 三万一了
 
+
+*****
+
+####  UNISONIA  
+##### 40845#       发表于 2025-5-9 10:46
+
+ 本帖最后由 UNISONIA 于 2025-5-9 10:47 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然而Mujica 1.0活的两个月剧中一起活动的时间加起来还不一定有Crychic那四周多（而且祥目测翘了至少一周的Crychic活动的）
+
+*****
+
+####  南宮凝香  
+##### 40846#       发表于 2025-5-9 11:26
+
+五月下半結成，
+
+六月 Live 
+
+Live 後牢祥就不來
+
+算上半死不活的時間可能有一個月
+
+實質活動時間也就幾週
+
+WSD 給3C 的日常關係越加糖，
+
+越顯得黑刀之夜後大家偽人
+
+*****
+
+####  osore  
+##### 40847#       发表于 2025-5-9 11:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67796150&amp;ptid=2208921" target="_blank">UNISONIA 发表于 2025-5-9 10:46</a>
+
+然而Mujica 1.0活的两个月剧中一起活动的时间加起来还不一定有Crychic那四周多（而且祥目测翘了至少一周的C ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鸡1.0团魂度接近0，你确定要和鸡比？
+
+*****
+
+####  南宮凝香  
+##### 40848#       发表于 2025-5-9 11:32
+
+母雞卡上武道館，開全國巡演，上節目
+
+正常來說排練加一起活動的時間是爆殺3C的
+
+至於為什麼母雞卡不排練
+
+這點你去問WSD
+
+*****
+
+####  adretyu67.  
+##### 40849#       发表于 2025-5-9 11:36
+
+反正鸡真排练初华也不怎么来，全靠本事临场or自主加练。
+
+*****
+
+####  UNISONIA  
+##### 40850#       发表于 2025-5-9 12:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67796326&amp;ptid=2208921" target="_blank">osore 发表于 2025-5-9 11:29</a>
+
+鸡1.0团魂度接近0，你确定要和鸡比？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说的好像2.0不是接近0一样的
+
+*****
+
+####  UNISONIA  
+##### 40851#       发表于 2025-5-9 12:11
+
+剧中的music floor（捏他的原型大概是MUSIC STATION）一共前后就上了两次
+
+Tour是一共四场（东京→仙台→福冈→东京），其中取消后两场。武道馆之前除了Debut LIVE以外大概只演出过1~2次（符合ppp和RAS同期的情况），加上ARG曾经给过Mujica剧中的商业LIVE在全长1小时左右的设定（近似KK免费LIVE的体量？）
+
+*****
+
+####  6030sylar  
+##### 40852#       发表于 2025-5-9 12:15
+
+<img src="https://static.stage1st.com/image/smiley/carton2017/489.png" referrerpolicy="no-referrer">竟然升舱成功了
+
+—— 来自 OnePlus PKG110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  钦念以忱  
+##### 40853#       发表于 2025-5-9 13:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67794170&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-5-8 19:02</a>
+
+接下來的幾話才是灰一串有多少能力的體現
+
+第一卷灰一串就只是往甜裡寫</blockquote>
+第一卷本来也没多少动画没有的新剧情，素世本身还是有C团时期第一人称视角的叙事的。灰一串稍微给睦的行为加了点新内容，让睦回答素世说祥没事，就有争议了。
+
+*****
+
+####  osore  
+##### 40854#       发表于 2025-5-9 13:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67796456&amp;ptid=2208921" target="_blank">UNISONIA 发表于 2025-5-9 12:04</a>
+
+说的好像2.0不是接近0一样的</blockquote>
+海铃都破釜沉舟了，保底也有20%
+
+*****
+
+####  凉良  
+##### 40855#       发表于 2025-5-9 16:20
+
+总感觉 祥子两个麻花辫的人设图 看着越来越傻憨憨
+
+*****
+
+####  刑部姬真可爱  
+##### 40856#       发表于 2025-5-9 16:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67797393&amp;ptid=2208921" target="_blank">凉良 发表于 2025-5-9 16:20</a>
+
+总感觉 祥子两个麻花辫的人设图 看着越来越傻憨憨</blockquote>
+祥子就像fate的贞德，精致的外表掩盖了莽夫的气质
+
+*****
+
+####  osore  
+##### 40857#       发表于 2025-5-9 17:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">白贞黑贞贞德Lily都有了是吧，还差个泳装的
+
+*****
+
+####  堀内爱里衣  
+##### 40858#       发表于 2025-5-9 19:33
+
+<img src="https://img.stage1st.com/forum/202505/09/193237xwkpyy52knn14px7.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-05-09_19-28-48.jpg</strong> (235.16 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 19:32 上传
+
+[https://x.com/bang_dream_info/status/1920750590000591137](https://x.com/bang_dream_info/status/1920750590000591137)
+[https://t.co/eKlRoxuiY9](https://t.co/eKlRoxuiY9)
+[https://t.co/3jthLRMSQk](https://t.co/3jthLRMSQk)
+
+*****
+
+####  草台培训班  
+##### 40859#       发表于 2025-5-9 20:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67794092&amp;ptid=2208921" target="_blank">凉良 发表于 2025-5-8 18:29</a>
+
+鸡一销量有点好啊</blockquote>
+多少？
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 40860#       发表于 2025-5-9 20:12
+
+<img src="https://img.stage1st.com/forum/202505/09/201202ng6z7hhgy6ayvlpl.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (265.37 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 20:12 上传
+
+炒作是对的，就该狠狠炒作
+
+*****
+
+####  堀内爱里衣  
+##### 40861#       发表于 2025-5-9 20:34
+
+ 本帖最后由 堀内爱里衣 于 2025-5-9 21:21 编辑 
+
+<img src="https://img.stage1st.com/forum/202505/09/204436nkmgey2zqljlymle.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-05-09_20-44-25.jpg</strong> (98.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 20:44 上传
+
+[https://x.com/bang_dream_info/status/1920791775955800356](https://x.com/bang_dream_info/status/1920791775955800356)
+[https://bang-dream.com/news/2067](https://bang-dream.com/news/2067)
+
+<strong>Ave Mujica 解谜拉力赛举办</strong>
+
+原文链接：[https://bang-dream.com/news/2067](https://bang-dream.com/news/2067)
+
+<strong>以下为机翻，请谨慎阅读</strong>
+
+      ……………………
+
+      ……………………
+
+      ……………………
+
+      <strong>前略</strong>
+
+      2025年5月9日更新
+
+      【なぞのデザイナーによる解答・解説】   <blockquote>【神秘设计师的解答与解说】</blockquote>
+     まずは冊子に掲載されているQ1~5を、各店舗に設置された「謎に使う人物の条件」の情報を集めながら解いていきましょう。 <blockquote>首先，请一边收集各店铺设置的“谜题使用人物条件”信息，一边解答手册中刊载的 Q1~5 问题吧。</blockquote>
+     答えをLINEに送信することで、一答につき一つアルファベットが手に入ります。 <blockquote>通过 LINE 发送答案后，每次回答即可获得一个字母。</blockquote>
+     Q-1-1
+
+      この謎に使う人物の条件は「名前にひらがなを含む人」 <blockquote>解开这个谜题所需人物的条件是「名字中包含平假名的人」</blockquote>
+     Ave Mujicaの中では「祐天寺(ゆうてんじ)にゃむ」が該当します。 <blockquote>在 Ave Mujica 中对应的是「祐天寺(ゆうてんじ)にゃむ」。</blockquote>
+     ピンクの文字の中で「ゆ→う→て→ん→じ→に→ゃ→む(→ゆ)」を結び、その中の文字を左から読むと、答えは「くまもと(熊本)」です。 <blockquote>在粉色文字中连接「ゆ→う→て→ん→じ→に→ゃ→む(→ゆ)」，将其中的文字从左至右阅读后，答案即为「くまもと（熊本）」。</blockquote>
+     
+
+<img src="https://img.stage1st.com/forum/202505/09/201407nsnqqxkstzq4zxi8.png" referrerpolicy="no-referrer">
+
+<strong>48fc6f0a-079b-4299-866a-7915e8404e81.png</strong> (551.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 20:14 上传
+
+      Q-2-1
+
+      この謎に使う人物の条件は「歌を歌う人」   <blockquote>解开此谜题所需人物的条件为“会唱歌的人”</blockquote>
+     Ave Mujicaの中では「三角初華(みすみういか)」が該当します。 <blockquote>在 Ave Mujica 中，「三角初华（みすみういか）」为对应成员。</blockquote>
+     迷路の中で「う→い→か」だけを通るように迷路を通り、そのルートの赤い文字を逆から読むと、「おもいでがこたえ」となります。 <blockquote>在迷宫中只按照「う→い→か」的顺序通行，沿着该路线逆向阅读红色文字便会得到「回忆即为答案」。</blockquote>
+     答えは「おもいで(思い出)」です。   <blockquote>答案是回忆（思い出）。</blockquote>
+     
+
+<img src="https://img.stage1st.com/forum/202505/09/201406kber6no7664nr8b8.png" referrerpolicy="no-referrer">
+
+<strong>74ccd576-4f96-4032-8d3e-a81795f0f5b7.png</strong> (480.3 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 20:14 上传
+
+      Q-3-1
+
+      この謎に使う人物の条件は「髪が黒い人」   <blockquote>解开这个谜题的人物条件是「头发为黑色的人」</blockquote>
+     Ave Mujicaの中では「八幡海鈴(やはたうみり)」が該当します。 <blockquote>在 Ave Mujica 中对应的是“八幡海鈴（やはたうみり）”。</blockquote>
+     青い文字の中で、名前に含まれている、もしくは連想できる漢字は「海」。 <blockquote>在蓝色文字中，名字里包含的或能联想到的汉字是"海"。</blockquote>
+     「海」を作れるようにサンズイと毎を結び、その間の文字を右から読むと、答えは「しんよう(信用)」です。 <blockquote>将“氵”与“每”相连即可组成“海”字，中间的文字从右往左读，答案即为“信用”。</blockquote>
+     
+
+<img src="https://img.stage1st.com/forum/202505/09/201406kb9ndb81b8b4bgbg.png" referrerpolicy="no-referrer">
+
+<strong>3a8c06d7-03a5-44a0-8f38-198f302e5fa4.png</strong> (561.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 20:14 上传
+
+      Q-4-1
+
+      この謎に使う人物の条件は「演技がうまい人」   <blockquote>解开此谜题所需人物的条件是"擅长演技的人"</blockquote>
+     Ave Mujicaの中では「若葉睦(わかばむつみ)」が該当します。 <blockquote>在 Ave Mujica 中对应的是「若葉睦（わかばむつみ）」。</blockquote>
+     ヒントを見ると、「ひと２」が１、「ふた２」が２。 <blockquote>查看提示的话，“ひと2”为一，“ふた2”为二。</blockquote>
+     おそらく「２＝つ」であろう、また３や６がヒントの１や２と同じフォントがあることを考えると、ひとつ、ふたつ、みっつ…むっつとなるように繋がっていくのでは、と考えることができます。 <blockquote>或许可以推测为"2=つ"，且考虑到 3 和 6 与提示 1、2 的字体相同，可能数字是按照一（ひとつ）、二（ふたつ）、三（みっつ）...六（むっつ）的顺序连接下去的。</blockquote>
+     すると、「１＝む、２＝つ、３＝み」。名前の文字数を表していました。 <blockquote>于是，「１＝む、２＝つ、３＝み」表示了名字的字数。</blockquote>
+     これを最後のところに当てはめると、図のようになります。 <blockquote>将其套用到最后的部分后，就会如图所示。</blockquote>
+     答えは「かがみうつし(鏡写し)」です。   <blockquote>答案是「かがみうつし（镜写し）」。</blockquote>
+     
+
+<img src="https://img.stage1st.com/forum/202505/09/201405ul5gdc4o23o4n5yc.png" referrerpolicy="no-referrer">
+
+<strong>188e0e36-a0ef-4e5b-8a4a-b803682d5136.png</strong> (463.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 20:14 上传
+
+      Q-5-1
+
+      この謎に使う人物の条件は「ピアノを弾く人」   <blockquote>解谜所需人物的条件是“会弹钢琴的人”</blockquote>
+     Ave Mujicaの中では「豊川祥子(とがわさきこ)」が該当します。 <blockquote>在 Ave Mujica 中对应的是“丰川祥子（とがわさきこ）”。</blockquote>
+     ヒントを見ると、「いか」が「あお」に、「きし」が「かさ」になっています。 <blockquote>查看提示的话，「いか」变成了「あお」，「きし」变成了「かさ」。</blockquote>
+     これは日本語の五十音で、一文字前に戻っています。 <blockquote>这是日语的五十音，需回退一个字符。</blockquote>
+     「さきこ」を一つ戻すと「こかけ」。最後に濁点をつけると、答えは「こかげ(木陰)」です。 <blockquote>将「さきこ」回退一个字得到「こかけ」，最后加上浊音符号，答案就是「こかげ（木荫）」。</blockquote>
+      
+
+<img src="https://img.stage1st.com/forum/202505/09/201404xvkg6j0j6g6zv66v.png" referrerpolicy="no-referrer">
+
+<strong>e48646a5-d408-44d2-97f9-2048b0128528.png</strong> (377.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 20:14 上传
+
+      最後の問題-1   <blockquote>最后的问题-1</blockquote>
+     ここまでのすべての謎が解けると、以下のアルファベットが手に入ります。 <blockquote>解开迄今为止所有的谜题后，即可获得以下字母。</blockquote>
+     
+
+<img src="https://img.stage1st.com/forum/202505/09/201404y5cwvbvpxoz0oway.png" referrerpolicy="no-referrer">
+
+<strong>b1347816-fa5d-4847-b13c-c91894d68e4e.png</strong> (615.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 20:14 上传
+
+      そして最終地点には、このようにマークの入ったポスターがありました。 <blockquote>而在最终地点，有一张像这样带有标记的海报。</blockquote>
+     よく見ると矢印が入っています。   <blockquote>仔细一看，里面有一个箭头。</blockquote>
+     
+
+<img src="https://img.stage1st.com/forum/202505/09/201403kspmki47p2wv4knz.png" referrerpolicy="no-referrer">
+
+<strong>008816b8-5b3a-4687-85e2-489731fe0924.png</strong> (1.53 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 20:14 上传
+
+      このポスターにいるAve Mujicaメンバーに文字を当てはめ、矢印のように右から左に文字を読んでみると <blockquote>将文字对应到海报上的 Ave Mujica 成员身上，按照箭头方向从右至左阅读文字的话</blockquote>
+     最後の答えは「TRUTH」でした。   <blockquote>最后的答案是「TRUTH」。</blockquote>
+     
+
+<img src="https://img.stage1st.com/forum/202505/09/201402fipssroenl5rr5i5.png" referrerpolicy="no-referrer">
+
+<strong>9859d7cf-991a-4ff3-998f-afa8a341a86a.png</strong> (600.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 20:14 上传
+
+      この答えを入力すると、公式LINEからこのようなメッセージが送られてきます。 <blockquote>输入这个答案后，官方 LINE 便会发送这样的消息过来。</blockquote>
+     
+
+<img src="https://img.stage1st.com/forum/202505/09/201402mk0pn6kepvznmvg6.png" referrerpolicy="no-referrer">
+
+<strong>3282d163-46fb-4812-81b8-c3dad61ce4f5.png</strong> (173.37 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 20:14 上传
+
+      このあと下に表示されたチケットを持って、最終地点の交換所で特典アイテムを手に入れられれば、Ave Mujica謎解きラリーは終了となります。 <blockquote>之后，只要持有下方显示的票券，在终点的兑换处领取到特典物品，Ave Mujica 谜题拉力赛即告结束。</blockquote>
+      お疲れ様でした！   <blockquote>辛苦了！</blockquote>
+     そしてここから先は、ある”違和感”に気づく必要がありました。 <blockquote>而接下来，必须察觉到某种"违和感"。</blockquote>
+     それは先ほどのクリア画面。   <blockquote>那就是刚才的通关画面。</blockquote>
+      
+
+<img src="https://img.stage1st.com/forum/202505/09/201401ojwm8gj2jb75r97w.png" referrerpolicy="no-referrer">
+
+<strong>3282d163-46fb-4812-81b8-c3dad61ce4f5 (1).png</strong> (173.37 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 20:14 上传
+
+      『Ave Mujica謎解きラリー』という名前のイベントで、わざわざ「Ave Mujicaコース」なんて言う必要があるでしょうか？ <blockquote>在名为『Ave Mujica 谜解きラリー』的活动中，有必要特意称之为「Ave Mujica 路线」吗？</blockquote>
+     まるで、いくつかあるコースの中の「Ave Mujicaコース」を選んだ、とでもいいたげな言い回しです。 <blockquote>这种措辞简直就像是在说，从现有的几个路线中特意选择了“Ave Mujicaコース”一般。</blockquote>
+     疑いの目をもってみると、最後の問題に使用したポスターにもおかしい点がありました。 <blockquote>若以怀疑的目光审视，便会发现最后的问题中所使用的海报也存在可疑之处。</blockquote>
+     先ほどはAve Mujicaの部分を使って謎を解きましたが、よくみると <blockquote>虽然刚才使用 Ave Mujica 的部分解开了谜题，但仔细一看</blockquote>
+     
+
+<img src="https://img.stage1st.com/forum/202505/09/201401bm29ggoxftdl92mj.png" referrerpolicy="no-referrer">
+
+<strong>ce900602-8ca2-4f0d-b5c0-c973c4592bbe.png</strong> (1.5 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 20:14 上传
+
+      他のバンド・ユニットにも矢印があることがわかります。 <blockquote>可以看出其他乐队·组合的图标上也有箭头。</blockquote>
+     つまり、ここからわかることは、この謎解きラリーには確実に「Ave Mujicaコース」以外の、ポスターに載っているバンド・ユニットのコースも存在しているということ。 <blockquote>也就是说，由此可知本次解谜拉力赛除了"Ave Mujicaコース"之外，确实还存在其他海报上刊载的乐队/组合专属路线。</blockquote>
+     そう思ってとQ-1からQ-3の問題を見返すと、一気に発見があるはずです。 <blockquote>这样想着再回过头看看 Q-1 到 Q-3 的问题，应该能一口气发现线索。</blockquote>
+     Q-1-2
+
+      この謎に使う人物の条件は「名前にひらがなを含む人」 <blockquote>解开这个谜题所需人物的条件是「名字中包含平假名的人」</blockquote>
+     Ave Mujicaの中に限定しなければ、この条件には「長崎(ながさき)そよ」も該当します。 <blockquote>如果不限定于 Ave Mujica 内部，这一条件同样适用于「長崎(ながさき)そよ」。</blockquote>
+     ピンクの文字の中で「な→が→さ→き→そ→よ(→な)」を結び、その中の文字を左から読むと、答えは「こうちゃ(紅茶)」です。 <blockquote>在粉色文字中连接「な→が→さ→き→そ→よ(→な)」，将其中的文字从左往右读，答案即为「こうちゃ(紅茶)」。</blockquote>
+     
+
+<img src="https://img.stage1st.com/forum/202505/09/201400sfa8jwaiojrk2i3r.png" referrerpolicy="no-referrer">
+
+<strong>dc9b48da-d59a-4ad8-87f4-eec3d79fdaf0.png</strong> (538.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 20:14 上传
+
+      Q-2-2
+
+      この謎に使う人物の条件は「歌を歌う人」   <blockquote>解开此谜题所需人物的条件为“会唱歌的人”</blockquote>
+     Ave Mujicaの中に限定しなければ、この条件には「高松燈(たかまつともり)」も該当します。 <blockquote>如果不限定于 Ave Mujica 成员范围，该条件也适用于「高松燈（たかまつともり）」。</blockquote>
+     迷路の中で「と→も→り」だけを通るように迷路を通り、そのルートの赤い文字を逆から読むと、「にんげんがこたえ」となります。 <blockquote>在迷宫中只沿着「と→も→り」的顺序通过路线，并将该路线上的红色文字从后往前阅读，即可得到「にんげんがこたえ」。</blockquote>
+     答えは「にんげん(人間)」です。   <blockquote>答案是「人类（人間）」。</blockquote>
+     
+
+<img src="https://img.stage1st.com/forum/202505/09/201359mllkpuqkq7puuuau.png" referrerpolicy="no-referrer">
+
+<strong>12ab0f23-35ca-4f70-b7e7-0b1a8a202ab5.png</strong> (481.43 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 20:13 上传
+
+      Q-3-2
+
+      この謎に使う人物の条件は「髪が黒い人」   <blockquote>解开这个谜题的人物条件是「头发为黑色的人」</blockquote>
+     Ave Mujicaの中に限定しなければ、この条件には「椎名立希(しいなたき)」も該当します。 <blockquote>如果不限定在 Ave Mujica 范围内的话，椎名立希（しいなたき）也符合这一条件。</blockquote>
+     青い文字の中で、名前に含まれている、もしくは連想できる漢字は「滝」。 <blockquote>在蓝色的文字中，名字里包含的或能联想到的汉字是「泷」。</blockquote>
+     「滝」を作れるようにサンズイと竜を結び、その間の文字を右から読むと、答えは「はっけん(発見)」です。 <blockquote>将“氵”和“龙”组合成「滝」字，从右往左阅读中间的文字，答案即为「はっけん（発見）」。</blockquote>
+     
+
+<img src="https://img.stage1st.com/forum/202505/09/201359a9d9sb4vcp6dggxh.png" referrerpolicy="no-referrer">
+
+<strong>2afe2bcc-03dd-4358-bdf6-9422366a3ab6.png</strong> (561.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 20:13 上传
+
+      そうすると、最後の問題の答えも自ずと変わります。 <blockquote>这样一来，最后一个问题的答案自然就会改变。</blockquote>
+     最後の問題-2   <blockquote>最后的问题-2</blockquote>
+     長崎そよ、高松燈、椎名立希のアルファベットと、Ave Mujicaコースで手に入れた若葉睦、豊川祥子のアルファベットを合わせることで、CRYCHIC全員分のアルファベットを手に入れることができました。 <blockquote>通过结合长崎爽世、高松灯、椎名立希的英文字母，以及从 Ave Mujica 路线获得的若叶睦、丰川祥子的英文字母，成功集齐了 CRYCHIC 全体成员的英文字母。</blockquote>
+     
+
+<img src="https://img.stage1st.com/forum/202505/09/201358yyn1l7n1ny08bn8c.png" referrerpolicy="no-referrer">
+
+<strong>14fe9715-49f6-4260-aa8a-6a8a86efc64c.png</strong> (651.32 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 20:13 上传
+
+      そして、最終地点にあったポスターにいるCRYCHICの場所文字を当てはめ、矢印のように左から右に文字を読んでみると <blockquote>然后，将最终地点海报上 CRYCHIC 的位置文字填入，试着像箭头那样从左到右阅读文字时</blockquote>
+     
+
+<img src="https://img.stage1st.com/forum/202505/09/201358hflmp7mw7hwwhpha.png" referrerpolicy="no-referrer">
+
+<strong>295a8499-311f-4b44-a86f-681df0e9571d.png</strong> (1.53 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 20:13 上传
+
+      最後の答えは「ROUTE」でした。   <blockquote>最后的答案是「ROUTE」。</blockquote>
+     
+
+<img src="https://img.stage1st.com/forum/202505/09/201357fgi68g6ki7lg797s.png" referrerpolicy="no-referrer">
+
+<strong>7f7e3e6b-e488-486d-b4dc-7fcc5fa1228b.png</strong> (630.72 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 20:13 上传
+
+      さらに、これで終わりではありません。   <blockquote>此外，这还不是全部。</blockquote>
+     実はQ1~3の条件をすべて満たすことができる人物が、一人だけ存在していました。 <blockquote>其实，满足 Q1~3 所有条件的人物，仅有一人存在。</blockquote>
+     そう、ポスターの一番下。sumimiの純田まなです。 <blockquote>没错，就在海报的最下方。sumimi 的纯田真那。</blockquote>
+     彼女の名前を当てはめてみると……   <blockquote>将她的名字代入的话……</blockquote>
+     Q-1-3
+
+      この謎に使う人物の条件は「名前にひらがなを含む人」 <blockquote>解开这个谜题所需人物的条件是「名字中包含平假名的人」</blockquote>
+     「純田まな」もひらがなを含むため、当然該当します。 <blockquote>“纯田まな”也包含平假名，自然属于该情况。</blockquote>
+     ピンクの文字の中で「す→み→た→ま→な(→す)」を結び、その中の文字を左から読むと、答えは「あいどる(アイドル)」です。 <blockquote>在粉色文字中按「す→み→た→ま→な(→す)」顺序连接，并将其中文字从左至右阅读后，答案即为「あいどる(偶像)」。</blockquote>
+     
+
+<img src="https://img.stage1st.com/forum/202505/09/201356xuayib4ihab5r1a5.png" referrerpolicy="no-referrer">
+
+<strong>305c6696-beba-45ff-b98e-fdd49a38dec5.png</strong> (544.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 20:13 上传
+
+      Q-2-3
+
+      この謎に使う人物の条件は「歌を歌う人」   <blockquote>解开此谜题所需人物的条件为“会唱歌的人”</blockquote>
+     sumimiはアイドルユニットなので、「純田まな」も当然歌を歌います。 <blockquote>sumimi 是偶像组合，因此“纯田真奈”自然也会参与歌唱。</blockquote>
+     迷路の中で「ま→な」だけを通るように迷路を通り、そのルートの赤い文字を逆から読むと、「あいどるがこたえ」となります。 <blockquote>在迷宫中只沿着「ま→な」的路线前进，将该路线的红色文字倒过来读，即为「偶像即答案」。</blockquote>
+     答えは「あいどる(アイドル)」です。   <blockquote>答案是「偶像（アイドル）」。</blockquote>
+     
+
+<img src="https://img.stage1st.com/forum/202505/09/201356teil9rlvp2fiis2i.png" referrerpolicy="no-referrer">
+
+<strong>653f1512-ca2b-4d51-9c08-3540144a7450.png</strong> (481.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 20:13 上传
+
+      Q-3-3
+
+      この謎に使う人物の条件は「髪が黒い人」 <blockquote>解开这个谜题的人物条件是「头发为黑色的人」</blockquote>
+     「純田まな」も黒髪のため、当然該当します。   <blockquote>“纯田まな”也是黑发，自然符合条件。</blockquote>
+     青い文字の中で、名前に含まれている、もしくは連想できる漢字は「すみ”たま”な」から「玉」。 <blockquote>在蓝色文字中，名字中包含或能联想到的汉字是从「すみ"たま"な」到「玉」。</blockquote>
+     「玉」を作れるように王と、実は青色だった問題文の読点を結び、その間の文字を右から読むと、答えは「あいどる(アイドル)」です。 <blockquote>将能够形成「玉」的「王」与题目中实际呈蓝色的逗号相连，其间文字从右往左读可得答案「あいどる（アイドル）」。</blockquote>
+     
+
+<img src="https://img.stage1st.com/forum/202505/09/201355sakbimb58ib8kam7.png" referrerpolicy="no-referrer">
+
+<strong>2abf2934-0e38-4336-a88b-5d6d7ca0ceba.png</strong> (563.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 20:13 上传
+
+      このように、純田まなは三問分の条件を満たすことができるため、Q1~3のすべてで共通した答えを出すことができました。 <blockquote>这样一来，纯田真那能够满足三个问题的条件，因此可以在 Q1~3 的所有问题中给出共同的答案。</blockquote>
+     そしてアルファベットも三問分、三文字手に入ります。 <blockquote>此外，通过解答三题还能获得三个字母。</blockquote>
+     
+
+<img src="https://img.stage1st.com/forum/202505/09/201354bhnzkeuk1ckhz5k1.png" referrerpolicy="no-referrer">
+
+<strong>0937e72b-1e78-4c86-8228-430a9088614a.png</strong> (598.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 20:13 上传
+
+      最後の問題-3   <blockquote>最后的问题-3</blockquote>
+     純田まなのアルファベットと、Ave Mujicaコースで手に入れ三角初華のアルファベットを合わせることで、sumimi二人分のアルファベットを手に入れることができました。 <blockquote>通过结合纯田まな的字母与 Ave Mujica 路线中获得的三角初華的字母，成功集齐了 sumimi 两位成员的完整字母。</blockquote>
+     そして、最終地点にあったポスターにいるsumimiの場所文字を当てはめ、矢印のように左から右に文字を読んでみると <blockquote>然后，将最终地点海报上 sumimi 的位置文字填入，并按照箭头所示从左到右阅读文字的话</blockquote>
+     
+
+<img src="https://img.stage1st.com/forum/202505/09/201354jkwdjmll9dn95dwl.png" referrerpolicy="no-referrer">
+
+<strong>13464b96-da05-4588-806c-fdb1b0aea98b.png</strong> (1.54 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 20:13 上传
+
+      最後の答えは「HERE」でした。   <blockquote>最后的答案是「HERE」。</blockquote>
+     
+
+<img src="https://img.stage1st.com/forum/202505/09/201353yivvnyvpbzsqjz9e.png" referrerpolicy="no-referrer">
+
+<strong>4fe665ad-dfc8-4871-b632-4ccc544b8ee2.png</strong> (597.72 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 20:13 上传
+
+      このような別コースの答えまでたどり着いたプレイヤーが一定数を超えた段階で、バンドリ公式Xから以下のような画像がポストされました。 <blockquote>当抵达此类不同路线答案的玩家超过一定数量后，邦邦官方 X 便发布了如下图片。</blockquote>
+      [https://x.com/bang_dream_info/status/1914162256486752715](https://x.com/bang_dream_info/status/1914162256486752715)
+
+      
+
+<img src="https://img.stage1st.com/forum/202505/09/202713t07744v9atct7e5v.jpg" referrerpolicy="no-referrer">
+
+<strong>进度66.jpg</strong> (115.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 20:27 上传
+
+      暗い部分をよくみると、座標と日付が書かれています。 <blockquote>仔细观察暗处的话，会发现上面写有坐标和日期。</blockquote>
+     これを検索すると、以下の場所と日付が出てきました。 <blockquote>搜索后，出现了以下地点和日期。</blockquote>
+     ・4/26-27 Kアリーナ横浜(ピンクの文字) <blockquote>・4 月 26 日～27 日 Kアリーナ横浜（粉色文字）</blockquote>
+     ・5/3-4 東京ビッグサイト南展示場(緑の文字) <blockquote>・5/3-4 东京国际展览中心南展厅（绿色文字）</blockquote>
+     これらの日付、場所ではそれぞれ、MyGO!!!!!×Ave Mujica 合同ライブ「わかれ道の、その先へ」と、ローソンエンタテインメント presents カードゲーム祭2025が開催されていました。 <blockquote>在这些日期和地点，分别举办了 MyGO!!!!!×Ave Mujica 联合演唱会《分岔路的彼端》，以及罗森娱乐主办的卡牌游戏祭 2025。</blockquote>
+     二つのイベントの現地で探索を行うと、以下の特別な問題を発見することができます。 <blockquote>在两个活动的现场进行探索，即可发现以下特别谜题。</blockquote>
+     
+
+<img src="https://img.stage1st.com/forum/202505/09/201352uf7omjpvmff87vy9.png" referrerpolicy="no-referrer">
+
+<strong>5183e08a-c55b-496e-8459-7774bddb09a2.png</strong> (383.37 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 20:13 上传
+
+      
+
+<img src="https://img.stage1st.com/forum/202505/09/201352h9rrbbru72bxurbr.png" referrerpolicy="no-referrer">
+
+<strong>372b056e-7f6d-4149-a05d-719d3586d587.png</strong> (349.52 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 20:13 上传
+
+      これらを解いて新たに手に入る千早愛音と要楽奈のアルファベットを、CRYCHICコースで手に入れた長崎そよ、高松燈、椎名立希のアルファベットと組み合わせることで、MyGO!!!!!全員分のアルファベットを手に入れることができました。 <blockquote>通过解开这些谜题获得的新字母——千早爱音和要乐奈的字母，与在 CRYCHIC 路线中获取的长崎そよ、高松燈、椎名立希的字母进行组合后，终于集齐了 MyGO!!!!!全体成员的完整字母。</blockquote>
+     
+
+<img src="https://img.stage1st.com/forum/202505/09/201351nuw5wk881mxixyo8.png" referrerpolicy="no-referrer">
+
+<strong>092fbfd9-c635-4c7a-80b6-fa087b9e9e9a.png</strong> (675.93 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 20:13 上传
+
+      今までのようにポスターのMyGO!!!!!の場所に当てはめると…… <blockquote>像之前那样套用海报上 MyGO!!!!!的位置的话……</blockquote>
+     
+
+<img src="https://img.stage1st.com/forum/202505/09/201351asxo1lwxz11kkzl1.png" referrerpolicy="no-referrer">
+
+<strong>d82c4ab3-b722-4e28-8f2d-eb6b41844970.png</strong> (1.54 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 20:13 上传
+
+      最後の答えは「PROEM」でした。   <blockquote>最后的答案是「PROEM」。</blockquote>
+     文学作品や論文における、序章や序文を指す言葉です。 <blockquote>在文学作品和论文中，指代序章或序文的术语。</blockquote>
+     
+
+<img src="https://img.stage1st.com/forum/202505/09/201350o6qzwe3pbzsew6qp.png" referrerpolicy="no-referrer">
+
+<strong>593b6497-db63-4374-b3ec-fb0952282c38.png</strong> (654.53 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 20:13 上传
+
+       この4つのコースを踏破したプレイヤーが一定数を超えた段階で、バンドリ公式Xから以下のような画像がポストされました。 <blockquote>当完成这四个路线的玩家人数超过一定数量时，バンドリ公式 X 发布了以下所示的图片。</blockquote>
+     [https://x.com/bang_dream_info/status/1918592745137922371](https://x.com/bang_dream_info/status/1918592745137922371)
+
+      
+
+<img src="https://img.stage1st.com/forum/202505/09/202830s2hjf1zql1faqqjl.jpg" referrerpolicy="no-referrer">
+
+<strong>进度100.jpg</strong> (50.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 20:28 上传
+
+      達成度は100％に到達しました！これでゲームクリア…… <blockquote>达成度已达 100%！这样就算游戏通关了……</blockquote>
+
+      かと思いきや。   <blockquote>本以为如此，却……</blockquote>
+     今までアップされてきた進行度の画像を比較すると、右上のロゴがありません。 <blockquote>对比至今为止上传的进度图片，右上角的 logo 消失了。</blockquote>
+     もしかしたら何かあるのでは……と考え、画像をタップしてみると…… <blockquote>心里想着或许有什么……试着点击图片后……</blockquote>
+      
+
+<img src="https://img.stage1st.com/forum/202505/09/201349ggzw4v4i4pr70w3w.png" referrerpolicy="no-referrer">
+
+<strong>e6761aca-579b-4e60-af6f-17ecd7436402.png</strong> (628.77 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 20:13 上传
+
+       
+
+<img src="https://img.stage1st.com/forum/202505/09/201349wm3shsmdwhsrprq0.png" referrerpolicy="no-referrer">
+
+<strong>ee7d0bc7-b4bf-4095-921f-dba84d7d555c.png</strong> (600.4 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 20:13 上传
+
+       そこにはFinal Questionが隠されていました！ <blockquote>那里隐藏着 Final Question！</blockquote>
+     これが今回の『Ave Mujica謎解きラリー』正真正銘の最後の問題のようです。 <blockquote>看来这就是本次『Ave Mujica 谜解接力赛』货真价实的最后一个问题了。</blockquote>
+     数字と記号しか存在せず、非常に難解な問題ですが、2枚目の画像から「これが問題文になりそうだ」ということをイメージできれば、 <blockquote>虽然只有数字和符号构成，问题极为晦涩难懂，但若能通过第二张图片联想到"这应该就是题目原文"的话，</blockquote>
+     丸に何かしらの文字を入れたい、という発想になるでしょう。 <blockquote>应该会想到要在圆形中加入某些文字吧。</blockquote>
+     これだけ大量の枠に埋められる文字といえば……それはプレイヤーの皆様が積み重ねてきたもの。 <blockquote>能够填满如此大量框架的文字...那便是各位玩家一路积累的成果。</blockquote>
+     
+
+<img src="https://img.stage1st.com/forum/202505/09/201348r692ag6avuln6x1u.png" referrerpolicy="no-referrer">
+
+<strong>074157e5-81df-4f3f-8fc1-a9793c5a6bfd.png</strong> (620.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 20:13 上传
+
+       そう、これまでの謎の答えです。   <blockquote>没错，这就是迄今为止所有谜题的答案。</blockquote>
+     ちなみに、これは上記のMyGO!!!!!の二人分の答えを知らなくても <blockquote>顺带一提，即使不知道上述 MyGO!!!!!两人的答案也</blockquote>
+     ・六文字の答えが「かがみうつし」ともう一つしかない <blockquote>六个字的答案除「かがみうつし」之外仅剩一个</blockquote>
+     ・三文字の答えが「こかげ」しかない   <blockquote>・三个字的答案只能是「树荫」</blockquote>
+     ・「かがみうつし」と「こかげ」がつながるのは左側しかない <blockquote>・“镜映”与“树荫”只能在左侧相连</blockquote>
+     ・小さい文字の関係で「はっけん」「こうちゃ」が入るのが一箇所しかない <blockquote>・因小字体限制，「はっけん」「こうちゃ」只能出现在一处</blockquote>
+     ということを踏まえることで埋まる文字をほぼ確定させつつ、 <blockquote>基于以上内容，几乎可以确定需要填入的文字，同时</blockquote>
+     2枚目の左側にある１２３の数字がQ4の「むつみ」を示していたのと同じフォントであること、矢印がQ5の「五十音で一つ戻す」法則の逆向きになっていることに気がつければ、完璧に位置を把握することができたのです。 <blockquote>只要注意到第二张左侧的 123 数字与 Q4"睦"字采用相同字体、箭头是 Q5"五十音倒退一位"规则的逆向这两点，就能完美定位到正确位置。</blockquote>
+     すべての答えを埋めきり、文章を埋めるとこうなります。 <blockquote>填满所有答案并完成句子后，就会变成这样。</blockquote>
+     
+
+<img src="https://img.stage1st.com/forum/202505/09/201348djkj75dnvi7qrrjr.png" referrerpolicy="no-referrer">
+
+<strong>b33e9ad1-a77d-4c7a-a5a0-642d43c33dfa.png</strong> (575.4 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 20:13 上传
+
+       Final Questionの問題文は、「最後のアンサーは夢を英語で」 <blockquote>Final Question 的问题描述为「最后的答案是将梦译为英语」</blockquote>
+     この謎解きラリーを締めくくる答えも、もちろん五文字の英単語。 <blockquote>为这场解谜拉力收尾的答案，自然也是五个字母的英文单词。</blockquote>
+     最後の答えは、「DREAM」でした。   <blockquote>最后的答案是「DREAM」。</blockquote>
+     
+
+<img src="https://img.stage1st.com/forum/202505/09/201347ea00e4je4tezqe4e.png" referrerpolicy="no-referrer">
+
+<strong>09043cdd-adf2-44a9-a4c8-d2b595bdf20f.png</strong> (562.55 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 20:13 上传
+
+       これが『BanG Dream! Ave Mujica』をテーマとした謎解きラリーのすべてとなります。 <blockquote>这就是以《BanG Dream! Ave Mujica》为主题的解谜拉力赛的全部内容。</blockquote>
+     ご参加頂いた皆様、本当にありがとうございました！   <blockquote>参加此次活动的各位来宾，真的非常感谢！</blockquote>
+     なぞのデザイナー   <blockquote>谜之设计师</blockquote>
+
+*****
+
+####  仟音一心  
+##### 40862#       发表于 2025-5-9 21:29
+
+<img src="https://p.sda1.dev/24/41a44a4e0cffe0795ee9e09b47fe4556/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/81a04a83a04ff2843f22ed639b383d89/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/c9d7a336fcf925af1e2e2e5f319519e5/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/9c83e79045654b8cbf590bf130689be9/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  凉良  
+##### 40863#       发表于 2025-5-9 22:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67798097&amp;ptid=2208921" target="_blank">草台培训班 发表于 2025-5-9 20:11</a>
+
+多少？</blockquote>
+三万一了
+
+*****
+
+####  丰川祥  
+##### 40864#       发表于 2025-5-10 12:09
+
+b站收藏集动态表情已出
+
+后续各成员还会追加一个
+
+<img src="https://img.stage1st.com/forum/202505/10/120936wb5ehengzj5ezba6.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0846.jpeg</strong> (87.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-10 12:09 上传
+

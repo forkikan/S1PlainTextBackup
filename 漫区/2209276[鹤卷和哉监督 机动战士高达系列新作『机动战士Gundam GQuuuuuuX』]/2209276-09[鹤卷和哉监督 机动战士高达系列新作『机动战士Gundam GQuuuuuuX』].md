@@ -4165,3 +4165,18 @@ UC的MS设定在宇宙空间散热是不如大气 ...</blockquote>
 
 爆炸是不是有气体生成？受到气体冲击是不是有声音？<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  EFSF  
+##### 12171#       发表于 2025-5-10 12:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67799468&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-5-10 11:41</a>
+
+看了这么多年萝卜片，宇宙里机体的爆炸音效怎么就不吐槽
+
+----发送自 Sony XQ-CT44,Android 14 ...</blockquote>
+宇宙爆炸是所有的通病，然而高达MS因为机体运作发热导致外甲是热的是高达自己的设定<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+当时寒带吉姆就被吐槽你特么MS动起来热得不行驻扎在寒带不正好，你特化里有防冻什么鬼？
+
