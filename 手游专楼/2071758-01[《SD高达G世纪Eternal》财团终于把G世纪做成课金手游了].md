@@ -13277,3 +13277,16 @@ ai只有在map攻击范围内有2个以上敌人时才会用map，同时boss只�
 井了普池，麻烦各位帮我看看普池换什么好？</blockquote>
 非UC系的太少了补自由或者风灵、凤凰吧
 
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 1241#       发表于 2025-5-10 17:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67797577&amp;ptid=2071758" target="_blank">体制 发表于 2025-5-9 17:25</a>
+
+练个sr自由，不用sp化，上去打地图炮辅助清杂。
+
+—— 来自 Xiaomi 2211133C, Android 15, 鹅球 v3.5.99- ...</blockquote>
+自由、正义的流星装备的MAP范围更大
+
