@@ -13290,3 +13290,31 @@ ai只有在map攻击范围内有2个以上敌人时才会用map，同时boss只�
 —— 来自 Xiaomi 2211133C, Android 15, 鹅球 v3.5.99- ...</blockquote>
 自由、正义的流星装备的MAP范围更大
 
+
+*****
+
+####  草台培训班  
+##### 1242#       发表于 2025-5-10 18:07
+
+永恒几年前测试时候的画面，ui那么帅的吗？有点老g世纪的风格了，简洁有科技感。
+
+最后还是没用。
+
+<img src="https://img.stage1st.com/forum/202505/10/180659vk0iik2bbpvccf3z.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (1 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-10 18:06 上传
+
+<img src="https://img.stage1st.com/forum/202505/10/180701rslnzs0nt31zndff.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (1.68 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-10 18:07 上传
+
+希望是家用机版的正作会用这个ui吧
+
