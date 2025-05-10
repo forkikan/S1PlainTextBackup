@@ -4228,3 +4228,13 @@ UC的MS设定在宇宙空间散热是不如大气 ...</blockquote>
 
 别老想着几方争霸，当然如果能演出来也算牛逼，比如紫婆能不能活过下周二<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  格林达姆  
+##### 12177#       发表于 2025-5-10 14:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67799734&amp;ptid=2209276" target="_blank">kyo1165 发表于 2025-5-10 13:04</a>
+这人物光速出场又退场，我看真的没有第二季，就是到目前为止这故事主线也太难绷了。 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">说不定真就是玩一票就没后续的的玩梗作
+
