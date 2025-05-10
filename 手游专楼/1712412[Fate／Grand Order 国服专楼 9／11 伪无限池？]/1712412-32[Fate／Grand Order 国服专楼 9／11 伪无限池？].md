@@ -402,3 +402,16 @@ c呆耐久耗尽了，惨！
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  marxel  
+##### 47143#       发表于 2025-5-10 18:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67797689&amp;ptid=1712412" target="_blank">溯夜 发表于 2025-5-9 17:51</a>
+
+日服又搞全复刻，国服又爽到了
+
+论坛助手,iPhone</blockquote>
+真能完结吗
+
