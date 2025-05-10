@@ -644,3 +644,14 @@ dtcg手游什么时候出啊？dtcg规则看起来比ptcg好玩，想尝试玩�
 
 还是别对神木有任何大的期待<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  游蜓  
+##### 63#       发表于 2025-5-10 14:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67683689&amp;ptid=2250190" target="_blank">hsyg 发表于 2025-3-19 08:51</a>
+
+正常实卡游戏不会场上4个单位手上还能有十几张卡吧，那玩的人运算量得多大，手得多长（） ...</blockquote>
+抽的牌多又不一定能用，一般来说过牌快的游戏整体牌效没那么高
+
