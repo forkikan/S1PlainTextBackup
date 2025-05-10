@@ -13255,3 +13255,14 @@ ai只有在map攻击范围内有2个以上敌人时才会用map，同时boss只�
 ai只有在map攻击范围内有2个以上敌人时才会用map，同时boss只要能打到人就会站桩，所以ex1只要找个人贴脸 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">我把小番茄换成独角兽，奎曼沙就不会走到距离一格的位置，怪事。但是我的小番茄输出没他这个高
 
+
+*****
+
+####  rockroxas  
+##### 1239#       发表于 2025-5-10 11:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67799430&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-5-10 11:28</a>
+
+我把小番茄换成独角兽，奎曼沙就不会走到距离一格的位置，怪事。但是我的小番茄输出没他这个高 ...</blockquote>
+他这个SP的
+

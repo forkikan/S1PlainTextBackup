@@ -4137,3 +4137,13 @@ UC的MS设定在宇宙空间散热是不如大气 ...</blockquote>
 
 这片第一集就在宇宙里摁车喇叭了，科幻含量是零。
 
+
+*****
+
+####  Toby_dak  
+##### 12168#       发表于 2025-5-10 11:41
+
+看了这么多年萝卜片，宇宙里机体的爆炸音效怎么就不吐槽<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.46)
+
