@@ -13231,3 +13231,16 @@ https://www.bilibili.com/video/BV1EFVWzmExP/?vd_source=64e0114332634ff9c6b83359b
 这个作业为 ...</blockquote>
 葵曼沙的map是扇形啊，这位置不管怎么放都只能打一个人，就不放了
 
+
+*****
+
+####  xiongxingyu  
+##### 1237#       发表于 2025-5-10 09:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67798957&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-5-10 04:20</a>
+
+https://www.bilibili.com/video/BV1EFVWzmExP/?vd_source=64e0114332634ff9c6b83359b299283b
+
+这个作业为 ...</blockquote>
+ai只有在map攻击范围内有2个以上敌人时才会用map，同时boss只要能打到人就会站桩，所以ex1只要找个人贴脸然后其他人避开map范围就能防止boss放地图炮。不然按照ex关卡这攻击力根本就无解，无条件2动加地图炮一回合就能把我方给扬了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
