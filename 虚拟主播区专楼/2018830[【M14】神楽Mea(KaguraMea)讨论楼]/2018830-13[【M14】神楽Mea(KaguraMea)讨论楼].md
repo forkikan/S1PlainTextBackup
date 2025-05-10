@@ -6146,3 +6146,17 @@ FP？FP是国家资格？   
 
 2025-5-10 02:39 上传
 
+
+*****
+
+####  术士q  
+##### 18443#       发表于 2025-5-10 08:56
+
+回看的时候发现还有午夜凶铃环节，这个滚动告知怎么搞得像是心理恐怖游戏直播（
+<img src="https://p.sda1.dev/24/369eb5da8837d8a8485c28832df7911f/image.jpg" referrerpolicy="no-referrer">
+妹啊怎么又变成血红色的告知了，这对吗<img src="https://p.sda1.dev/24/eb1c7fd8030ffb6de8bc2e44af428f8b/image.jpg" referrerpolicy="no-referrer">
+
+用好像很无辜和软糯的语气的语气整大活大概（）
+
+可惜那段大部分被版权炮静音了，残念（
+
