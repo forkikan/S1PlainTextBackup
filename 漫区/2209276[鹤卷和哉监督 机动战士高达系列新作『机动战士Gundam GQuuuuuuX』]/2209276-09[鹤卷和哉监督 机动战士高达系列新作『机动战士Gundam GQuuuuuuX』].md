@@ -4157,3 +4157,11 @@ UC的MS设定在宇宙空间散热是不如大气 ...</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  newise  
+##### 12170#       发表于 2025-5-10 12:04
+
+爆炸是不是有气体生成？受到气体冲击是不是有声音？<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
