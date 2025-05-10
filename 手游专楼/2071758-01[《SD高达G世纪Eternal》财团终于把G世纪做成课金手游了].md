@@ -13336,3 +13336,15 @@ ai只有在map攻击范围内有2个以上敌人时才会用map，同时boss只�
 
 金异端EX打不过了，感觉有点亏券<img src="https://static.stage1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  体制  
+##### 1245#       发表于 2025-5-11 07:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67800322&amp;ptid=2071758" target="_blank">卡奥斯·克斯拉 发表于 2025-5-10 17:36</a>
+自由、正义的流星装备的MAP范围更大</blockquote>
+输出不如sr自由，4格影响走位，而且打ex你得上10台机，sr自由和流星都得上。
+
+—— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
