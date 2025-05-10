@@ -4619,3 +4619,11 @@ GQuuuuuuX玛秋等人居住的半商业半工业型殖民卫星伊兹玛，其�
 这片目前出场是不是只有0079的平行人物？是不是只有0079的ip改编权？</blockquote>
 什么叫只有0079ip改编权<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你难道觉得0079不属于高达系列吗
 
+
+*****
+
+####  我聞如是  
+##### 12197#       发表于 2025-5-10 22:11
+
+這部是Khara和日昇聯合製作，要用哪個角色就是打電話問問，頂多開個會的事
+
