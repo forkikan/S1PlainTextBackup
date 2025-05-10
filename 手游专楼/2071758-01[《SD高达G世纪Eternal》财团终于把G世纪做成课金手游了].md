@@ -13266,3 +13266,14 @@ ai只有在map攻击范围内有2个以上敌人时才会用map，同时boss只�
 我把小番茄换成独角兽，奎曼沙就不会走到距离一格的位置，怪事。但是我的小番茄输出没他这个高 ...</blockquote>
 他这个SP的
 
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 1240#       发表于 2025-5-10 14:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67795325&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-5-9 00:28</a>
+
+井了普池，麻烦各位帮我看看普池换什么好？</blockquote>
+非UC系的太少了补自由或者风灵、凤凰吧
+
