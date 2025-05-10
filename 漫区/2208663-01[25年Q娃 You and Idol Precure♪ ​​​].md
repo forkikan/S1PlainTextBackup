@@ -365,3 +365,25 @@ md凯特桑来刷什么存在感难蚌<img src="https://static.stage1st.com/imag
 
 18 你是谁？怦然心动了
 
+
+*****
+
+####  咲良うた  
+##### 837#       发表于 2025-5-10 11:06
+
+第14話　お母さんへ～こころからのメッセージ～
+
+脚本：稲葉央明
+
+演出：のもとゆうや
+
+作画監督：藤原未来夫
+
+美術：中林由貴
+
+母の日の朝、こころ（CV.高森奈津美）が目を覚ますと、こころの母は休日出勤で出かけるところだった。母を送り出し、商店街の花屋さんでカーネーションを買ったこころだが、メッセージカードに何を書こうか、と考え込む。休憩中の喫茶グリッターを訪れ、うた（CV.松岡美里）たちに「伝えたいことが多すぎてまとまらない」と相談するこころ。なな（CV.髙橋ミナミ）に「お母さんとの思い出で、いちばん心キュンキュンしたことを思い出してみたら？」と言われたこころは、街を歩きながら、保育園に通っていた頃、母が迎えに来てくれたことを思い出し、今日は自分が迎えに行こうと思いつく。夕方になり、駅前で待っていたこころは、母の姿を見つけて駆け出していく。しかしそこにザックリーがあらわれ、こころの母をマックランダーに閉じ込めてしまい──
+<img src="https://files.catbox.moe/y494cz.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/3cn6b3.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/gsikuw.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/q3emx6.jpg" referrerpolicy="no-referrer">
+

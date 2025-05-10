@@ -621,3 +621,14 @@ dtcg手游什么时候出啊？dtcg规则看起来比ptcg好玩，想尝试玩�
 
 神木优，是公主Q娃那个神木P吗
 
+
+*****
+
+####  恋叶梦境  
+##### 61#       发表于 2025-5-10 11:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67799270&amp;ptid=2250190" target="_blank">黑夜守望者 发表于 2025-5-10 10:40</a>
+
+神木优，是公主Q娃那个神木P吗</blockquote>
+对，是她
+
