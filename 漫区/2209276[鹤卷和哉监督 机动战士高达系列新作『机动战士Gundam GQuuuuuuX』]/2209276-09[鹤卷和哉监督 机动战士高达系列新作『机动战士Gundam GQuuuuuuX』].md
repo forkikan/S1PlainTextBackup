@@ -4570,3 +4570,11 @@ GQuuuuuuX玛秋等人居住的半商业半工业型殖民卫星伊兹玛，其�
 
 只是去side 6的话没任何必要坐民用航班，但是如果想要去地球和联邦串通搞死二哥，那就只能从side 6坐麻球上集提过的1000块的旅游航班了
 
+
+*****
+
+####  ardente  
+##### 12192#       发表于 2025-5-10 21:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我当天就倒回去看了下，八洲集团这架是这页倒数第二便宜的
+

@@ -13326,3 +13326,13 @@ ai只有在map攻击范围内有2个以上敌人时才会用map，同时boss只�
 
 更新实在太慢了，我买了个ps5版的创世玩起来了…的确还是需要个单机新作，这地图选技能的ui真的可以用在家用机上
 
+
+*****
+
+####  lighttt  
+##### 1244#       发表于 2025-5-10 21:43
+
+新转生的号有点欧，就差两个独角兽就全了<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+金异端EX打不过了，感觉有点亏券<img src="https://static.stage1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
