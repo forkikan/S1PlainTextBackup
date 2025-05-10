@@ -13218,3 +13218,16 @@ seed那个ex好难，第二轮茫茫多的杂兵和boss，直接把我能量都�
 
 这个作业为什么奎曼沙2动不会放地图炮，想不明白啊
 
+
+*****
+
+####  rockroxas  
+##### 1236#       发表于 2025-5-10 08:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67798957&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-5-10 04:20</a>
+
+https://www.bilibili.com/video/BV1EFVWzmExP/?vd_source=64e0114332634ff9c6b83359b299283b
+
+这个作业为 ...</blockquote>
+葵曼沙的map是扇形啊，这位置不管怎么放都只能打一个人，就不放了
+
