@@ -4256,3 +4256,15 @@ UC的MS设定在宇宙空间散热是不如大气 ...</blockquote>
 
 2025-5-10 16:04 上传
 
+
+*****
+
+####  王留美  
+##### 12179#       发表于 2025-5-10 16:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67800141&amp;ptid=2209276" target="_blank">玖羽 发表于 2025-5-10 16:06</a>
+ 我懒得往前翻了，之前有人提过吗  第4话拉拉音的时候舰桥上有反应(NT)和没有反应的人正好被构图分割成两组 </blockquote>
+有的，但是没什么后续讨论
+
+毕竟那三个太明显了，cic又太小透明了
+
