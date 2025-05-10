@@ -4578,3 +4578,44 @@ GQuuuuuuX玛秋等人居住的半商业半工业型殖民卫星伊兹玛，其�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我当天就倒回去看了下，八洲集团这架是这页倒数第二便宜的
 
+
+*****
+
+####  创始’’’天翔  
+##### 12193#       发表于 2025-5-10 21:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67798073&amp;ptid=2209276" target="_blank">草台培训班 发表于 2025-5-9 20:07</a>
+
+没法比，水魔每集出来的时候，推特趋势都能排第一第二的，极其离谱。
+
+而且我觉得和日五播放时间关系也不大 ...</blockquote>
+跟铁血比是不是有点。。。铁血成绩也不怎么样吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ardente  
+##### 12194#       发表于 2025-5-10 21:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67800623&amp;ptid=2209276" target="_blank">桜庭ななみ 发表于 2025-5-10 20:06</a>
+
+这片目前出场是不是只有0079的平行人物？是不是只有0079的ip改编权？</blockquote>
+大概是只会让老tv的人物出场
+
+
+*****
+
+####  az一串字母  
+##### 12195#       发表于 2025-5-10 21:53
+
+这个时间线有为应该已经被生下来了吧
+
+*****
+
+####  ryanghj  
+##### 12196#       发表于 2025-5-10 21:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67800623&amp;ptid=2209276" target="_blank">桜庭ななみ 发表于 2025-5-10 20:06</a>
+
+这片目前出场是不是只有0079的平行人物？是不是只有0079的ip改编权？</blockquote>
+什么叫只有0079ip改编权<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你难道觉得0079不属于高达系列吗
+
