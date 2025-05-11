@@ -5061,3 +5061,20 @@ zenith=天顶，天穹的最高点，天顶星人也是因为开头是zen才被�
 
 就这还能共情？怪不得主创都喜欢小森<img src="https://static.stage1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王留美  
+##### 12235#       发表于 2025-5-11 22:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67801599&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-11 01:14</a>
+
+留美哥看到隔壁有聊这话题感兴趣也不用在这边装
+
+就是2,3月份就有零散日本人聊的街机人物台词这边终于也有 ...</blockquote>
+才看到啊
+
+你也说了这玩意就零散有人聊，我昨天看到了专门去搜也就搜到3个视频和几条X而已，国内我印象中这次之外是没什么人提过的
+
+台词会不会原样在TV里出现不好说，但是角色性格和底层设定这种东西应该不至于差太多吧
+
