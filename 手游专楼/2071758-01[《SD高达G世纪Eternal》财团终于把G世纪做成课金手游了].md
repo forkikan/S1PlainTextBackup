@@ -13371,3 +13371,13 @@ EX1也过掉了，让精神力放了次地图炮爆了两台机还是过了，�
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  jackyhuang  
+##### 1248#       发表于 2025-5-11 09:09
+
+对了，机体捕获的概率每个关卡间有没有差别啊，有没有比较容易出捕获的，快被捕获任务恶心死了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
