@@ -13407,3 +13407,15 @@ X等开发后续机就行，现在这些打起来太累
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  体制  
+##### 1251#       发表于 2025-5-11 10:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67801938&amp;ptid=2071758" target="_blank">卡奥斯·克斯拉 发表于 2025-5-11 08:50</a>
+SP自由你是花了代价的自然强，正义流星是攻击类型输出绝对够自由de流星MAP还有减防效果比一个个点效率高 ...</blockquote>
+我再说打ex3，你在说啥。
+
+—— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
