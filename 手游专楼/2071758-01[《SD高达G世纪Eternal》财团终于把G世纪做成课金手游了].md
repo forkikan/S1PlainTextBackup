@@ -13585,3 +13585,18 @@ z肯定带一击必杀的伤害王，搞不好全是加伤被动，看你心动�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  chivalry  
+##### 1271#       发表于 2025-5-11 19:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">想要 z，但是也想要以后的本命柯西，不知道啥时候能有
+
+*****
+
+####  winder0707  
+##### 1272#       发表于 2025-5-11 19:44
+
+没抽强自的随便，或者转生初始号，氪的钱都够买mb了，玩啥呢，你要是一发648能搞定我也不说什么了
+
