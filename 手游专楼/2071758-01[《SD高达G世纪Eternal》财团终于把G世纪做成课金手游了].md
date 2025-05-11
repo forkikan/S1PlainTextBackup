@@ -13360,3 +13360,14 @@ ai只有在map攻击范围内有2个以上敌人时才会用map，同时boss只�
 —— 来自 Xiaomi 2211133C ...</blockquote>
 SP自由你是花了代价的自然强，正义流星是攻击类型输出绝对够自由de流星MAP还有减防效果比一个个点效率高多了
 
+
+*****
+
+####  jackyhuang  
+##### 1247#       发表于 2025-5-11 09:04
+
+EX1也过掉了，让精神力放了次地图炮爆了两台机还是过了，容错意外的可以
+该回头研究几个HARD，还有高达X的永恒之路怎么过了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
