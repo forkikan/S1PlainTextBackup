@@ -13394,3 +13394,16 @@ EX1也过掉了，让精神力放了次地图炮爆了两台机还是过了，�
 —— 来自  ...</blockquote>
 没差别，都是看脸
 
+
+*****
+
+####  无念  
+##### 1250#       发表于 2025-5-11 10:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67801967&amp;ptid=2071758" target="_blank">jackyhuang 发表于 2025-5-11 09:04</a>
+EX1也过掉了，让精神力放了次地图炮爆了两台机还是过了，容错意外的可以
+该回头研究几个HARD，还有高达X的 ...</blockquote>
+X等开发后续机就行，现在这些打起来太累
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
