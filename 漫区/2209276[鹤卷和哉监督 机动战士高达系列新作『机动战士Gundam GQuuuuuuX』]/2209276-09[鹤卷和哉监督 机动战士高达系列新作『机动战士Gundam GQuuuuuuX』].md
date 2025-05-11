@@ -4863,3 +4863,11 @@ zenith=天顶，天穹的最高点，天顶星人也是因为开头是zen才被�
 
 紫婆这回就是为了这事来SIDE6的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sauron.j  
+##### 12219#       发表于 2025-5-11 13:56
+
+番茄嫉妒他俩kirakira的事也是在致敬闪光的宇宙吧？骡子和拉拉神交时被夏亚打断
+
