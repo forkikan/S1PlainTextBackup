@@ -13448,3 +13448,11 @@ SP自由你是花了代价的自然强，正义流星是攻击类型输出绝对
 各有千秋，没有超强气要求的更方便，主要是因为ZZ武装威力的数值给的高，攻击力拉上去之后伤害是攻击力和 ...</blockquote>
 多谢，那我先各搞一台满突备着吧看看以后永恒之路用不用的上
 
+
+*****
+
+####  xiongxingyu  
+##### 1255#       发表于 2025-5-11 16:25
+
+新卡池是Z和the O，果然平成人气王之后就是昭和人气王吗，财团B你是懂端水的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -4905,3 +4905,22 @@ zenith=天顶，天穹的最高点，天顶星人也是因为开头是zen才被�
 
 —— 来自 HUAWEI GLK-AL00, Android 10, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  jojonathan  
+##### 12223#       发表于 2025-5-11 16:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67803022&amp;ptid=2209276" target="_blank">markztl 发表于 2025-5-11 15:32</a>
+润side6的难民都这么多，润地球的应该更多吧，85年还没有闪哈那时候的人类猎人啥的，qx世界线北美粮仓没被 ...</blockquote>
+地球不一定接受难民 联邦主打一个嫌地球活人太多 接收难民不太可能<img src="https://static.stage1st.com/image/smiley/face2017/088.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jojonathan  
+##### 12224#       发表于 2025-5-11 16:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67803156&amp;ptid=2209276" target="_blank">jojonathan 发表于 2025-5-11 16:20</a>
+地球不一定接受难民 联邦主打一个嫌地球活人太多 接收难民不太可能</blockquote>
+不把地球难民赶上太空就不错了 联邦胜利线是怎么干的<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
