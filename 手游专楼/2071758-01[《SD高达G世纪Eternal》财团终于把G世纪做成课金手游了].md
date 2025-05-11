@@ -13528,3 +13528,11 @@ zz和强化zz主要看你有啥ur机师，骡子这种觉醒高的就合适强�
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  ddlsyo  
+##### 1264#       发表于 2025-5-11 18:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">一个月两个限定池，游戏内容更新跟得上卡池更新的速度吗
+
