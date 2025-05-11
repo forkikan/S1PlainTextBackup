@@ -7866,10 +7866,10 @@
     "update": false
   },
   "2171972": {
-    "totalreply": 1123,
+    "totalreply": 1124,
     "title": "[【V17】虚拟YouTuber(vtuber)综合讨论楼]",
     "newtitle": "[【V17】虚拟YouTuber(vtuber)综合讨论楼]",
-    "lastedit": 1746817328,
+    "lastedit": 1746978014,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 162904,
+    "totalreply": 162909,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1746977661,
+    "lastedit": 1746978368,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -9891,10 +9891,10 @@
     "update": false
   },
   "2093389": {
-    "totalreply": 736,
+    "totalreply": 737,
     "title": "[小岛工作室新作《死亡搁浅2 ／ DS2》正式公开，2025年发售]",
     "newtitle": "[小岛工作室新作《死亡搁浅2 ／ DS2》新PV公开，2025年6月26日发售]",
-    "lastedit": 1746928819,
+    "lastedit": 1746978263,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -10458,10 +10458,10 @@
     "update": false
   },
   "2208663": {
-    "totalreply": 861,
+    "totalreply": 862,
     "title": "[25年Q娃 You and Idol Precure♪ ​​​]",
     "newtitle": "[2025年Q娃 You and Idol Precure♪ ​​​]",
-    "lastedit": 1746976813,
+    "lastedit": 1746978019,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10521,10 +10521,10 @@
     "update": false
   },
   "2209276": {
-    "totalreply": 12238,
+    "totalreply": 12240,
     "title": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
     "newtitle": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
-    "lastedit": 1746977661,
+    "lastedit": 1746978263,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 129269,
+    "totalreply": 129271,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1746977655,
+    "lastedit": 1746978019,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10809,10 +10809,10 @@
     "update": false
   },
   "2186947": {
-    "totalreply": 1075,
+    "totalreply": 1076,
     "title": "[《明末：渊虚之羽》2025年发售]",
     "newtitle": "[《明末：渊虚之羽》2025年7月24日发售]",
-    "lastedit": 1746977290,
+    "lastedit": 1746978263,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11304,10 +11304,10 @@
     "update": false
   },
   "2236215": {
-    "totalreply": 202,
+    "totalreply": 203,
     "title": "[原创TV动画「日々は過ぎれど飯うまし」]",
     "newtitle": "[原创TV动画『时光流逝 饭菜依旧美味』]",
-    "lastedit": 1746976210,
+    "lastedit": 1746978263,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11619,10 +11619,10 @@
     "update": false
   },
   "2198136": {
-    "totalreply": 87,
+    "totalreply": 88,
     "title": "[原创TV动画『前橋ウィッチーズ ／ 前桥魔女』 2025年4月]",
     "newtitle": "[原创TV动画『前橋ウィッチーズ ／ 前桥魔女』 2025年4月]",
-    "lastedit": 1746977059,
+    "lastedit": 1746978257,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12033,10 +12033,10 @@
     "update": false
   },
   "2251429": {
-    "totalreply": 370,
+    "totalreply": 371,
     "title": "[【剧透警告】光与影：33号远征队结局／剧情讨论楼 本楼无反白]",
     "newtitle": "[【剧透警告】光与影：33号远征队结局／剧情讨论楼 本楼无反白 …]",
-    "lastedit": 1746976690,
+    "lastedit": 1746978263,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12839,7 +12839,7 @@
     "newtitle": "[任天堂24-25财年财报，Switch累计1亿5212万，Switch 2首年预期1500万台]",
     "lastedit": 1746718931,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2208350": {
@@ -13162,6 +13162,15 @@
     "title": "[谁有ps4，这是真的吗？]",
     "newtitle": "[谁有ps4，这是真的吗？]",
     "lastedit": 1746977059,
+    "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2173536": {
+    "totalreply": 115,
+    "title": "[洛奇英雄传ip新作，动作RPG《Vindictus： Defying Fate》公开｜3.14进行测试]",
+    "newtitle": "[洛奇英雄传ip新作，动作RPG《Vindictus： Defying Fate》公开｜3.14进行测试]",
+    "lastedit": 1746978267,
     "category": "游戏区",
     "active": true,
     "update": false

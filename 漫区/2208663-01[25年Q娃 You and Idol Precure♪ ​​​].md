@@ -624,3 +624,36 @@ q娃母亲节回向来都是出神回的 然而狗大友就喜欢搞迫害 看�
 演出野本是制作进行转演出助理 演出分镜
 就拿之前宠物和这集表现 给我再去练个几年吧<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 862#         楼主| 发表于 2025-5-11 23:34
+
+[https://x.com/sugimoto_mi_ho_/status/1921357589796860189](https://x.com/sugimoto_mi_ho_/status/1921357589796860189)
+
+\こころ💜お誕生日おめでとう🎂✨/
+<img src="https://p.sda1.dev/24/0476e020da619bf1bc49fe4f44fc07d3/20250511_233149.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/kuubyo/status/1921384114810126766](https://x.com/kuubyo/status/1921384114810126766)
+
+こころ💜キュンキュン！
+
+お誕生日本当におめでとう！！
+
+ステキな1年にね〜💜
+<img src="https://p.sda1.dev/24/5d26730a9f385162078916a0f35f747c/20250511_233154.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/wato_0913/status/1921354205484241297](https://x.com/wato_0913/status/1921354205484241297)
+
+『キミとアイドルプリキュア♪』第14話
+
+第二原画で参加しました！
+
+キュンキュンレーザーとラストシーンを数カット描かせていただきました。
+
+母の日回に携われたことを嬉しく思います。
+
+こころちゃんお誕生日おめでとう！🎉
+<img src="https://p.sda1.dev/24/005030a028e0601934557d69cbd83b99/20250511_233159.jpg" referrerpolicy="no-referrer">
+
