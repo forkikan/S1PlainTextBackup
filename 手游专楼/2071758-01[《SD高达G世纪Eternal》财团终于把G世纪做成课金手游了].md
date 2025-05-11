@@ -13456,3 +13456,18 @@ SP自由你是花了代价的自然强，正义流星是攻击类型输出绝对
 
 新卡池是Z和the O，果然平成人气王之后就是昭和人气王吗，财团B你是懂端水的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  闲度朝夕  
+##### 1256#       发表于 2025-5-11 16:51
+
+zz和强化zz主要看你有啥ur机师，骡子这种觉醒高的就合适强化zz
+
+*****
+
+####  洛克萨斯  
+##### 1257#       发表于 2025-5-11 16:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
