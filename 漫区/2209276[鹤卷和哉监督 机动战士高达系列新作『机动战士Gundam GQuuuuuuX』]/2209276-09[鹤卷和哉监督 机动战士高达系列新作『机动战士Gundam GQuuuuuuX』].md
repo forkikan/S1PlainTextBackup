@@ -4924,3 +4924,18 @@ zenith=天顶，天穹的最高点，天顶星人也是因为开头是zen才被�
 地球不一定接受难民 联邦主打一个嫌地球活人太多 接收难民不太可能</blockquote>
 不把地球难民赶上太空就不错了 联邦胜利线是怎么干的<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 12225#       发表于 2025-5-11 16:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67802622&amp;ptid=2209276" target="_blank">久井路路 发表于 2025-5-11 13:07</a>
+
+看了几眼夸克斯的考察：
+
+牢修太不像正常人了，恐怕是强化人
+
+人妻这么疯癫，恐怕是强化人，夫儿只不过是嗑药嗑 ...</blockquote>
+魔女那个不至于，因为孩子是主角在“聊天室”都看到的<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
