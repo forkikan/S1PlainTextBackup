@@ -1761,3 +1761,14 @@ X一个响指其他人都掉下去了</blockquote>
 
 怎么结尾总要死个人
 
+
+*****
+
+####  新HGCG  
+##### 170#       发表于 2025-5-11 13:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67802096&amp;ptid=2125794" target="_blank">index 发表于 2025-5-11 09:56</a>
+
+怎么结尾总要死个人</blockquote>
+大概就是大家说的豪林三板斧吧
+
