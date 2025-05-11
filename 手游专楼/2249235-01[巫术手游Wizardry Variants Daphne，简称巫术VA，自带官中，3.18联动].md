@@ -576,3 +576,13 @@ roll到13%攻和18攻就可以用+4-6攻击改掉防御，然后只强化第一�
 战士试炼的时候换了一本皇女的转战士书，然后周商店刷了个转回骑士的书，我是不是可以不限次数来回转了 ...</blockquote>
 书是消耗品，转一次用一本
 
+
+*****
+
+####  toblkr  
+##### 315#       发表于 2025-5-12 07:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67804457&amp;ptid=2249235" target="_blank">风浦可符香(P.N) 发表于 2025-5-12 00:56</a>
+书是消耗品，转一次用一本</blockquote>
+有点变态了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
