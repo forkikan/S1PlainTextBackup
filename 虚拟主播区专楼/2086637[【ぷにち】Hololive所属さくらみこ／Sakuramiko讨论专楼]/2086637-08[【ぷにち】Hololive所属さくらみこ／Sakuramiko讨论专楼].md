@@ -125,3 +125,30 @@ ykw全责
 
 昨天更新的官网个人资料页的新写真照
 
+
+*****
+
+####  渡鸦骑士  
+##### 11024#       发表于 2025-5-11 16:29
+
+今天好像也中了？<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  holofan  
+##### 11025#       发表于 2025-5-11 21:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67803183&amp;ptid=2086637" target="_blank">渡鸦骑士 发表于 2025-5-11 16:29</a>
+
+今天好像也中了？</blockquote>
+？不会日语的人不要乱说话好吧
+
+*****
+
+####  holofan  
+##### 11026#       发表于 2025-5-11 21:50
+
+这游戏难怪差评，游戏性差趣味性也很差难度还异常高
+
+还好先试了一下水，看起来基本不会跟其他holomem一起玩了，太地狱了
+
