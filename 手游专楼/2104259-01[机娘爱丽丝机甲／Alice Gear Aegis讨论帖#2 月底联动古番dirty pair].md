@@ -20,3 +20,17 @@ bingo里几个要打的怪都该上哪打（</blockquote>
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  冰风血羽  
+##### 1449#       发表于 2025-5-12 04:56
+
+<img src="https://p.sda1.dev/24/0154e8a5ef7dddf8107abb2b3e53af8c/image.jpg" referrerpolicy="no-referrer">
+
+首通高难偶遇隐藏关卡，火冰暗三连强如怪物，拼尽全力无法战胜<img src="https://static.stage1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+谁能告诉我打通这个给啥吗？
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
