@@ -13560,3 +13560,28 @@ zz和强化zz主要看你有啥ur机师，骡子这种觉醒高的就合适强�
 
 z肯定带一击必杀的伤害王，搞不好全是加伤被动，看你心动不心动
 
+
+*****
+
+####  winder0707  
+##### 1268#       发表于 2025-5-11 19:28
+
+这估计不氪不行了，但这氪的太贵了，一井小两千了啊，我现在就20抽，不充了，2000哪怕买个垃圾mb z也好
+
+*****
+
+####  arthes  
+##### 1269#       发表于 2025-5-11 19:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">只能跳过，等本命ur艾比安或者蛋蛋剑三再说了
+
+
+*****
+
+####  lighttt  
+##### 1270#       发表于 2025-5-11 19:32
+
+ 本帖最后由 lighttt 于 2025-5-11 19:35 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
