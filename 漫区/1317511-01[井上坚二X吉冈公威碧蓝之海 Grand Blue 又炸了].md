@@ -65,3 +65,12 @@
 最后给钱啥意思</blockquote>
 肯定不是什么好事<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mishidexieyu  
+##### 1352#       发表于 2025-5-11 14:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">说明妆尸兽那时候就是最底层的时候被主角亚撒西拯救了，把好感混淆了
+但怎么看对耕平的感情似乎也是这样啊<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
