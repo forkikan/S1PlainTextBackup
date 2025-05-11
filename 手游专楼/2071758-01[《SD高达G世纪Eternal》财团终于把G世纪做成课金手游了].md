@@ -13608,3 +13608,11 @@ z肯定带一击必杀的伤害王，搞不好全是加伤被动，看你心动�
 
 还是养服大佬太多了，等半年看看会不会退掉一大半人<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blue321  
+##### 1274#       发表于 2025-5-11 20:23
+
+感觉这比学马还狠，无氪还是存井或者等收大佬退坑号吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

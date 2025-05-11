@@ -5038,3 +5038,26 @@ zenith=天顶，天穹的最高点，天顶星人也是因为开头是zen才被�
 
 麻球哭的麻将头有没有啊
 
+
+*****
+
+####  psycho_Gadfly  
+##### 12234#       发表于 2025-5-11 20:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67801750&amp;ptid=2209276" target="_blank">茄子自走炮 发表于 2025-5-11 06:40</a>
+
+被匿名版的子宮アクス笑到了
+
+不抓紧给修司补点塑造还是继续高达复读机+出卖色相的话，很多观众很难移情现 ...</blockquote>
+女主大小姐 叛逆精神小妹 
+
+女2 莫名发癫 疑似人格分裂
+
+男3 无塑造人机 莫名其妙就魅魔了
+
+看似唯一正常的首席哥 感觉也后续不妙
+
+绿叔叔似乎一直在算计 但也不知道在算啥
+
+就这还能共情？怪不得主创都喜欢小森<img src="https://static.stage1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
