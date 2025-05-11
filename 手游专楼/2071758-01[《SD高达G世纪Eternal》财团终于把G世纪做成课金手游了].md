@@ -13671,3 +13671,15 @@ z肯定带一击必杀的伤害王，搞不好全是加伤被动，看你心动�
 
 —— 来自 vivo V2408A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  无念  
+##### 1281#       发表于 2025-5-11 23:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67803801&amp;ptid=2071758" target="_blank">captoon 发表于 2025-5-11 21:04</a>
+精神力Z 是单时代的，不跨ZZ剧本</blockquote>
+挺好，ZZ时代Z也挥不出这个ex了，符合设定<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
