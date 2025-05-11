@@ -4849,3 +4849,17 @@ zenith=天顶，天穹的最高点，天顶星人也是因为开头是zen才被�
 
 《机动战士高达-强化克斯》<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猪突猛进R  
+##### 12218#       发表于 2025-5-11 13:30
+
+谈强化怎么能没有小番茄<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+小番茄这么kira中毒，怕不是哈曼系列的克隆人。
+
+她以为她妈很“普通”，其实是弗兰纳罕机关的前研究员，把她偷抱出来的。
+
+紫婆这回就是为了这事来SIDE6的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
