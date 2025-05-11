@@ -13496,3 +13496,35 @@ zz和强化zz主要看你有啥ur机师，骡子这种觉醒高的就合适强�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">微课党建议先搜搜偶像大师再决定是否氪金
 
+
+*****
+
+####  jackyhuang  
+##### 1261#       发表于 2025-5-11 17:30
+
+ 本帖最后由 jackyhuang 于 2025-5-11 17:31 编辑 
+
+开服一个月都没有就两个限定，太美丽了家人们<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  HEERO.W  
+##### 1262#       发表于 2025-5-11 17:30
+
+跳池子咯，攻击机没有一丝抽取意愿
+
+*****
+
+####  无念  
+##### 1263#       发表于 2025-5-11 17:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67797402&amp;ptid=2071758" target="_blank">无念 发表于 2025-5-9 16:24</a>
+等大土豆出UR了肯定送原版希洛克啊，你要不要
+
+—— 来自 HONOR SDY-AN00, Android 14, 鹅球 v3.5.99 ...</blockquote>
+我靠真的是大土豆，佛了
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
