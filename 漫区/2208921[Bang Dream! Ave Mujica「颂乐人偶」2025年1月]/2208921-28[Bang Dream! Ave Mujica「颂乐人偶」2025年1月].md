@@ -1869,3 +1869,38 @@ b站收藏集动态表情已出
 
 連吃十二集的我想不到能怎麼反應
 
+
+*****
+
+####  堀内爱里衣  
+##### 40873#       发表于 2025-5-12 21:10
+
+       <strong>【中字/羊宫妃那】对邦感想＆三次春日影有什么不同＆有注意到站台吗？</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202505/12/211011cmebpp9rmophlp44.jpg" referrerpolicy="no-referrer">
+
+<strong>216091520e12b6e925653b8d9802eea77b4c3237.jpg</strong> (145.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 21:10 上传
+
+<img src="https://img.stage1st.com/forum/202505/12/211010osm4j341iolizl4o.jpg" referrerpolicy="no-referrer">
+
+<strong>MyGO羊宫春日影.jpg</strong> (807.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 21:10 上传
+
+<img src="https://img.stage1st.com/forum/202505/12/211009yj72ss7gikbggdeg.jpg" referrerpolicy="no-referrer">
+
+<strong>CRYCHIC羊宫春日影.jpg</strong> (373.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 21:10 上传
+
+</blockquote>
+       [https://www.bilibili.com/video/BV1VXE3zHEwJ](https://www.bilibili.com/video/BV1VXE3zHEwJ)
+
