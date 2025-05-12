@@ -5141,3 +5141,11 @@ gq每集都会标出重点人物or事物
 
 上上周（第四集，因为黄金周出数据延期）一小时番组收视率 个人1.8 世带3.4<img src="https://p.sda1.dev/24/347a5f1febdf6b349c39d955b7d8bd7c/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Concrete  
+##### 12242#       发表于 2025-5-12 14:22
+
+明天好像又有新歌了
+
