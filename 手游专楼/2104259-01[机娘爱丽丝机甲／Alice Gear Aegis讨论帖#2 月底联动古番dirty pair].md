@@ -34,3 +34,16 @@ bingo里几个要打的怪都该上哪打（</blockquote>
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  江戸前ルナ  
+##### 1450#         楼主| 发表于 2025-5-12 20:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67804587&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2025-5-12 04:56</a>
+
+首通高难偶遇隐藏关卡，火冰暗三连强如怪物，拼尽全力无法战胜
+
+谁能告诉我打通这个给啥吗？</blockquote>
+这是现在每次高难VH难度都有的最终关啊，通了后还可以加等级一直加到250。奖励就是给钱，和解锁一键清NOMAL和HARD功能。
+
