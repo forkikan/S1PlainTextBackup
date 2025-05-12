@@ -1101,3 +1101,11 @@ cover上市后的操作更像是要去偶像化
 没事，还记得你黑历史的已经没几个了</blockquote>
 你误会我的意思了，我不在乎有没有人讨厌我，我又不会因为有人讨厌我就不写了，我只是误以为写点正经内容加点真情实感在现在管人圈是一种落伍的行为<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aritaatsu222  
+##### 1127#       发表于 2025-5-12 17:24
+
+好羨慕黛灰畢業後才發覺yamien是賤人的人，他還是黛灰時我就已經發現了
+

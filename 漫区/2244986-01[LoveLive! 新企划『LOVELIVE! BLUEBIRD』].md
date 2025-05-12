@@ -717,3 +717,48 @@ nina和momoka好歹是高中学霸辍学
 
 查看全部评分
 
+
+*****
+
+####  kongxian  
+##### 106#       发表于 2025-5-12 17:27
+
+这么一看期待极了，那这部一定人文关怀气质拉满了
+
+*****
+
+####  ashero  
+##### 107#       发表于 2025-5-12 17:29
+
+脚本不作他选了吧 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Victorino  
+##### 108#       发表于 2025-5-12 17:30
+
+<blockquote>仟音一心 发表于 2025-5-12 16:22
+我懂，“好的专科并不比一本差。”</blockquote>
+倒不如说，本职就是唱歌跳舞的人，接受太多理科教育反而是一种浪费，在财政教育预算的意义上
+
+
+*****
+
+####  zakufa782  
+##### 109#       发表于 2025-5-12 17:33
+
+<blockquote>osore 发表于 2025-5-12 17:18
+洋的要素在哪里</blockquote>
+像披风一样的领子、荷叶边、靴子都不是和服元素吧
+
+*****
+
+####  Unlight  
+##### 110#       发表于 2025-5-12 17:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67806850&amp;ptid=2244986" target="_blank">虚无缥缈的分身 发表于 2025-5-12 17:23</a>
+现在对里面的人物印象就是</blockquote>
+别尬黑，这两位起码会四则运算（
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
