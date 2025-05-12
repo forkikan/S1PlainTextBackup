@@ -670,3 +670,50 @@ nina和momoka好歹是高中学霸辍学
 槽点最多的其实是这个环保少女</blockquote>
 难绷，有点太刻板印象了
 
+
+*****
+
+####  osore  
+##### 104#       发表于 2025-5-12 17:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67806698&amp;ptid=2244986" target="_blank">zakufa782 发表于 2025-5-12 16:46</a>
+
+和服女这身和洋搭配是最近的新时尚吗</blockquote>
+洋的要素在哪里
+
+
+*****
+
+####  虚无缥缈的分身  
+##### 105#       发表于 2025-5-12 17:23
+
+现在对里面的人物印象就是
+
+<img src="https://img.stage1st.com/forum/202505/12/172217g1z19kf33hhrhlu1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (18.11 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 17:22 上传
+
+<img src="https://img.stage1st.com/forum/202505/12/172329nfavjv6m8baf2vfz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (45.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 17:23 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 月战老兵铃仙| + 1|草|
+
+查看全部评分
+

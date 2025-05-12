@@ -1515,3 +1515,25 @@
 
 问题来了，现在手上只有300石头，是等这次追学姐还是等下次冠位up的时候再下池子<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blue321  
+##### 16691#       发表于 2025-5-12 17:16
+
+ 本帖最后由 blue321 于 2025-5-12 17:18 编辑 
+
+最近运气真好，100抽学姐和莉莉丝都到手了
+在想要不要奢侈一点补个二宝<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+——————————————
+还是说必须抽个水bb搭配学姐用吗？
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  alucardcz  
+##### 16692#       发表于 2025-5-12 17:23
+
+<img src="https://static.stage1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">太欧了 漏油 为什么萌新就不欧
+

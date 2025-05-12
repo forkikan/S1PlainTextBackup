@@ -5183,3 +5183,150 @@ gq每集都会标出重点人物or事物
 
 nomelon nolemon基本就是这部的pillows了吧
 
+
+*****
+
+####  岸浪白野  
+##### 12247#       发表于 2025-5-12 17:17
+
+[機動戦士 Gundam GQuuuuuuX（読み：ジークアクス）｜プレミアムバンダイ｜バンダイナムコグループ公式通販サイト](https://p-bandai.jp/chara/c2956/?page=1&amp;n=60&amp;C5=AA&amp;sort=1)
+
+<img src="https://img.stage1st.com/forum/202505/12/165005o8tdrp2qbzqrdtwz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (668.3 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 16:50 上传
+
+<img src="https://img.stage1st.com/forum/202505/12/165025nmjjgwcjpb9i0fb6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (612.55 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 16:50 上传
+
+<img src="https://img.stage1st.com/forum/202505/12/165045wxb9f0l9leia9bgq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (672.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 16:50 上传
+
+*****
+
+####  岸浪白野  
+##### 12248#       发表于 2025-5-12 17:22
+
+[X 上的 宇宙柚＿yuko：“#GQuuuuuuX [url]https://t.co/t0AQE9pFnQ](https://x.com/Usami_Yuko512/status/1921534111082049672)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/12/165416ezxytlynt53kuy3o.png" referrerpolicy="no-referrer">
+
+<strong>DJYRD6TFHR`KX05H}1Y(}6B.png</strong> (3.75 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 16:54 上传
+
+[X 上的 獅子村ヤヅカ(るつむら)：“ストリートビューに映ってしまった３人 #GQuuuuuuX [url]https://t.co/5EES0gEFXK](https://x.com/Lion_Kazuya/status/1921524927401758775)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/12/165738y9qabf1u91frraao.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.54 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 16:57 上传
+
+[X 上的 85猫：“母の日 #GQuuuuuuX　#ジークアクス [url]https://t.co/d1qJxstDUk](https://x.com/85boxcat/status/1921426337455067181)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/12/165541tkxm2pcc6ummlr5u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (728.57 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 16:55 上传
+
+[X 上的 麦：“ちびすけだった頃のヒーロー（強めの幻覚） [url]https://t.co/pYci61OJwB](https://x.com/Lamp_mugi/status/1921536226730910164)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/12/165441wgdlgzrh7ghl07g0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.25 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 16:54 上传
+
+[X 上的 ム：“[url]https://t.co/y7UzEV98Vn](https://x.com/camera001_/status/1921541942887797239)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/12/165503dxng9izo08426r6h.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.37 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 16:55 上传
+
+[X 上的 🍚：“シュウマチュ　冥土の日♡ [url]https://t.co/UuTYuBiozs](https://x.com/Ymmmkome/status/1921523861268394310)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/12/170943xwqqztxwb7nqjwdn.png" referrerpolicy="no-referrer">
+
+<strong>`$VV_VC}32P3UE6)61AM_ZI.png</strong> (3.59 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 17:09 上传
+
+[X 上的 そとみち：“マチュ「ニャアンとシュウジ、私がいない間にキラキラしたんだ！！」 アンキー「交尾したみたいに言うな」 #ジークアクス　#GQuuuuuuX [url]https://t.co/msICybrwWV](https://x.com/sotomiti763/status/1921146738296971406)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/12/165326yxxif4x1zn1dr6tg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.32 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 16:53 上传
+
+[X 上的 てのひら：“寝マチュ… [url]https://t.co/mEKR69qWCB](https://x.com/tenoo12/status/1921575060919222400)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/12/165702hocy76gnonn166gh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (866.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 16:57 上传
+
+[X 上的 泉水茜：“ドーナツ食べマチュ #GQuuuuuuX #ジークアクス [url]https://t.co/LoDE3JRXQL](https://x.com/izumi_akn/status/1921507309219455133)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/12/165830y2ze9zcdiah1c9ji.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (388.64 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 16:58 上传
+
+[X 上的 B捌：“5話マチュ [url]https://t.co/cOTXfKecbk](https://x.com/bhachi88888888/status/1921508476406378707)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/12/165817nrr6zri5zrda56nr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.58 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 16:58 上传
+
+[X 上的 マーセ🐫：“マチュ [url]https://t.co/jQfjKVvmul](https://x.com/Marse_6/status/1921221263143350312)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/12/170028fuz879ggpvlydv87.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250512165953.jpg</strong> (757.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 17:00 上传
+
