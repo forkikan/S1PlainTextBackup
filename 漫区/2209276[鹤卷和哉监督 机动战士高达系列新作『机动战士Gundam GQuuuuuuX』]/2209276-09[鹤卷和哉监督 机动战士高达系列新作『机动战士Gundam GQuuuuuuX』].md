@@ -5579,3 +5579,44 @@ X 上的 #鹿[Shika]™：“マチュとニャアン [https://t.co/IdFF4kZ200�
 
 2025-5-12 23:02 上传
 
+
+*****
+
+####  王留美  
+##### 12256#       发表于 2025-5-12 23:06
+
+“突击攻击型机动步兵” 
+
+<img src="https://img.stage1st.com/forum/202505/12/230540kzhdukv81tc65ff8.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_7298.jpeg</strong> (843.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 23:05 上传
+
+<img src="https://img.stage1st.com/forum/202505/12/230540yo1wkp1w8obpq84w.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_7301.jpeg</strong> (206.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 23:05 上传
+
+*****
+
+####  蕾洁之风  
+##### 12257#       发表于 2025-5-12 23:10
+
+刚好完结一周后参加两个展会，会不会宣布什么续作之类的
+
+*****
+
+####  中野梓  
+##### 12258#       发表于 2025-5-12 23:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67807781&amp;ptid=2209276" target="_blank">王留美 发表于 2025-5-12 23:06</a>
+
+“突击攻击型机动步兵”</blockquote>
+哈哈，老登们还是懂得多
+
