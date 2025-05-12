@@ -14072,3 +14072,11 @@ IOS端应该没这么麻烦
 西洛克这技能组和解包的数值居然是普池..............</blockquote>
 感觉theO射程应该不行，换其他机体又少阵营加成了，到头来只能靠本机打输出吧
 
+
+*****
+
+####  lighttt  
+##### 1319#       发表于 2025-5-12 20:05
+
+还好不厉害可以不抽了，西洛克比卡缪厉害感觉，卡缪的回血技能要干啥<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
