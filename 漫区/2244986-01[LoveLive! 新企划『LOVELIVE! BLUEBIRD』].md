@@ -371,3 +371,18 @@ nina和momoka好歹是高中学霸辍学
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  Mr.Giraffe  
+##### 77#       发表于 2025-5-12 15:20
+
+四轱辘爱抖露既不school也不idol<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Totokei  
+##### 78#       发表于 2025-5-12 15:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">好久没见到这种人设全是槽点的企划了
+

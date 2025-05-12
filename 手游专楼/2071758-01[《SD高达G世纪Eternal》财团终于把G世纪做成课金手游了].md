@@ -13953,3 +13953,11 @@ IOS端应该没这么麻烦
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  胖达君  
+##### 1308#       发表于 2025-5-12 15:21
+
+话说S1的高达手游有微信群么？QQ已经不用好几年了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
