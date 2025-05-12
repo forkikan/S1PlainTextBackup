@@ -13749,3 +13749,11 @@ UR朱德也是解包信息里出的，已经是预定出的
 想多了，解包无误的话下一个卡池就是无正+命运</blockquote>
 更不用抽了，SEEDD里面最讨厌的角色就是傻鸟和渣狼
 
+
+*****
+
+####  arthes  
+##### 1288#       发表于 2025-5-12 10:18
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这么快就出命运了吗？我还挺想要的，但是实在抽不起了，也不知道多久才能攒出一个井
+
