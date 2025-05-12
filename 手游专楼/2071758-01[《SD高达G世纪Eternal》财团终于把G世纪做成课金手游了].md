@@ -13961,3 +13961,11 @@ IOS端应该没这么麻烦
 
 话说S1的高达手游有微信群么？QQ已经不用好几年了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  captoon  
+##### 1309#       发表于 2025-5-12 16:11
+
+这Z看技能一般了，就看到时候面板如何了....武装这伤害有点尴尬
+

@@ -1507,3 +1507,11 @@
 
 原来冠位还要100级吗<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">我常规职介只喂了大王龙娘王姐三个100级
 
+
+*****
+
+####  cckuku  
+##### 16690#       发表于 2025-5-12 16:04
+
+问题来了，现在手上只有300石头，是等这次追学姐还是等下次冠位up的时候再下池子<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

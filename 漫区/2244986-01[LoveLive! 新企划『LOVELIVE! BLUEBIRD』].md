@@ -471,3 +471,38 @@ nina和momoka好歹是高中学霸辍学
 
 说起来莲团有动画企划吗？
 
+
+*****
+
+####  日野下花帆  
+##### 87#       发表于 2025-5-12 16:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67806492&amp;ptid=2244986" target="_blank">灼眼的夏娜酱 发表于 2025-5-12 16:06</a>
+说起来莲团有动画企划吗？</blockquote>
+没有
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Victorino  
+##### 88#       发表于 2025-5-12 16:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67806445&amp;ptid=2244986" target="_blank">cleverfox 发表于 2025-5-12 15:54</a>
+
+因为这位的数学还不如小学生
+
+你觉得这个连这种人都收的学校能好到哪里去？ ...</blockquote>
+所以宵崎奏和东云绘名数学很好吗
+
+同作品的东云彰人（东云绘名的亲弟弟）和白石杏也是成绩不好
+
+感觉只有内娱饭圈才会卷学历
+
+*****
+
+####  虚无缥缈的分身  
+##### 89#       发表于 2025-5-12 16:10
+
+大家玩学历笑话只是图个乐呵，不是真的学历歧视，楼u不要太较真，，，
+
