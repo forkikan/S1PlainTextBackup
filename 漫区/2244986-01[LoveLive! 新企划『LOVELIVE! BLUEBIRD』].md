@@ -660,3 +660,13 @@ nina和momoka好歹是高中学霸辍学
 
 泥潭应该没有学历歧视吧，如果我没记错姜萍那会儿谭友都是力挺中专妹的立场，回想起来也是令人暖心<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  月战老兵铃仙  
+##### 103#       发表于 2025-5-12 17:06
+
+<blockquote>仟音一心 发表于 2025-5-12 17:01
+槽点最多的其实是这个环保少女</blockquote>
+难绷，有点太刻板印象了
+
