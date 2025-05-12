@@ -13793,3 +13793,18 @@ UR朱德也是解包信息里出的，已经是预定出的
 或者是剧场版没疯的卡喵</blockquote>
 按照目前的一些迹象表明，这游戏估计有部分当初SGR的人员参与，至少从大地图战斗动画就能看出来有当年SGR的味道。反正在SGR的设定里，ZATE HYPER模式是限定了只能在Z的剧本里有加成，不过卡碧尼倒是没Z和ZZ的区分，都能有加成，但是卡碧尼HYPER模式是限定ZZ。
 
+
+*****
+
+####  captoon  
+##### 1292#       发表于 2025-5-12 10:59
+
+这游戏没法做到你所设想的那样
+
+*****
+
+####  arthes  
+##### 1293#       发表于 2025-5-12 10:59
+
+卡碧尼连ssr都分了z和zz版的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
