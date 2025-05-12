@@ -38,3 +38,11 @@
 
 这一条长濑居然是那种**方方地说出自己阴暗本性的阳角嘛……好恐怖的生物<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  灼眼的夏娜酱  
+##### 104#       发表于 2025-5-12 19:39
+
+笑死，终于看到变身直接发必杀技的桥段了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
