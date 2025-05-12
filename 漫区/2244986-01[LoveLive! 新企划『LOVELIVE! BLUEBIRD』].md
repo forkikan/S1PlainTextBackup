@@ -793,3 +793,32 @@ nina和momoka好歹是高中学霸辍学
 倒不如说，本职就是唱歌跳舞的人，接受太多理科教育反而是一种浪费，在财政教育预算的意义上 ...</blockquote>
 如果是L学院是艺校，我赞同你的话。
 
+
+*****
+
+####  疑病妄想  
+##### 114#       发表于 2025-5-12 17:48
+
+我能想到圆8 + 7这事的原因，就是这女主“不会使用电器”也包括手机，社媒蓝鸟是团里其他人运营的，然后某天闹矛盾了运营者开个玩笑...真要这么直白的学弱设定就是烂活<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Victorino  
+##### 115#       发表于 2025-5-12 17:50
+
+<blockquote>Unlight 发表于 2025-5-12 17:35
+别尬黑，这两位起码会四则运算（
+
+—— 来自 S1Fun</blockquote>
+姜萍很显然指的是麻布麻衣，不是polka吧
+
+*****
+
+####  stygian  
+##### 116#       发表于 2025-5-12 17:55
+
+L高摆明了元ネタ就是角川旗下的N高，N这个名字来自niconico，学生有艺能人有电竞选手有职业棋士有音乐家
+
+第一波传播这种中专函授直接就把印象定死了还行<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+

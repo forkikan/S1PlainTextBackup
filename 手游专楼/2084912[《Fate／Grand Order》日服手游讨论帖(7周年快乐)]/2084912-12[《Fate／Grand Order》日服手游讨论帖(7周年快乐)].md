@@ -1537,3 +1537,18 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">太欧了 漏油 为什么萌新就不欧
 
+
+*****
+
+####  alucardcz  
+##### 16693#       发表于 2025-5-12 17:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67806818&amp;ptid=2084912" target="_blank">blue321 发表于 2025-5-12 17:16</a>
+
+最近运气真好，100抽学姐和莉莉丝都到手了
+
+在想要不要奢侈一点补个二宝
+
+——————————————</blockquote>
+不必须 很少上水bb
+
