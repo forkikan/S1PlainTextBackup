@@ -368,3 +368,32 @@ so2也配？ 你说so3dc我还能吹一吹</blockquote>
 
 —— 来自 Xiaomi 23116PN5BC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  戏言学者  
+##### 47#       发表于 2025-5-13 06:21
+
+ign一年出800个排行榜<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 48#       发表于 2025-5-13 06:21
+
+ 本帖最后由 alucardcz 于 2025-5-13 06:26 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67808113&amp;ptid=2251925" target="_blank">kimmmmmm 发表于 2025-5-13 06:07</a>
+
+其实so2重制版的素质很可以，除了原生的2D小人分辨率过低没啥缺点
+
+—— 来自 Xiaomi 23116PN5BC, Androi ...</blockquote>
+怎么没有缺点 原版有的问题新版都有 例如剧情 后面都是啥
+
+还有战斗系统 初见还行 后期数值崩坏 做出那些个技能后除了对刚还是对刚
+
+你说算个好游戏吗 我觉得算
+
+但这是THE 25 BEST JRPGS OF ALL TIME。。。。我只能说不配上榜（当然这榜单里不配上的不止这一个。。
+
+而且拿同系列对比的话我觉得肯定不如so3dc so6也不一定打的过 选个so2r 真的很谜<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
