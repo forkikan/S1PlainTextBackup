@@ -1,0 +1,324 @@
+﻿
+*****
+
+####  电磁炮233  
+##### 1#       楼主       发表于 2025-5-12 19:10
+
+幽默排名幽默视频，SMT6都来了
+[https://www.youtube.com/watch?v=PWnyL3C535k](https://www.youtube.com/watch?v=PWnyL3C535k)
+
+<img src="https://img.stage1st.com/forum/202505/12/191007cxuiuh3i1xn7n7au.png" referrerpolicy="no-referrer">
+
+<strong>QQ20250512-190702.png</strong> (226.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 19:10 上传
+
+*****
+
+####  电磁炮233  
+##### 2#         楼主| 发表于 2025-5-12 19:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">怎么好意思把八方2放上来的
+
+*****
+
+####  lastimempty  
+##### 3#       发表于 2025-5-12 19:13
+
+ 本帖最后由 lastimempty 于 2025-5-12 19:16 编辑 
+
+ff6: 落魄了家人们，曾几何时这种排名跟在CT后面的还是我
+
+*****
+
+####  wondor1111  
+##### 4#       发表于 2025-5-12 19:15
+
+这么喜欢高桥gg，一看就很有品味，高雅
+
+*****
+
+####  karastar  
+##### 5#       发表于 2025-5-12 19:15
+
+怎么还有二之国
+
+*****
+
+####  lilod  
+##### 6#       发表于 2025-5-12 19:17
+
+难绷 bdff2 以及暗喻幻想
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  はちたや  
+##### 7#       发表于 2025-5-12 19:17
+
+标题没有xb3恐怕是钓不起ppa11和穿着熊
+
+*****
+
+####  高贵的  
+##### 8#       发表于 2025-5-12 19:19
+
+虽然作为小等这图里的我只玩过XB3和心金魂银，但我还是想问：XB3这么高吗？
+
+*****
+
+####  医生狼多  
+##### 9#       发表于 2025-5-12 19:19
+
+标题可改成:xb3略强于xg，不如暗喻幻想<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 10#       发表于 2025-5-12 19:19
+
+so2也配？ 你说so3dc我还能吹一吹<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lmclmc2  
+##### 11#       发表于 2025-5-12 19:20
+
+我其实确实思考了一阵这个榜的思路，不然很神秘
+
+我个人的解读是，每个作品系列选一个作品，按这些作品再排
+
+*****
+
+####  草台培训班  
+##### 12#       发表于 2025-5-12 19:20
+
+什么鬼……
+
+*****
+
+####  大鹅  
+##### 13#       发表于 2025-5-12 19:20
+
+我以前把这些榜单当成权威
+
+*****
+
+####  heseran  
+##### 14#       发表于 2025-5-12 19:21
+
+找了半天没看到FF6，我还以为我看错了，又看了一遍真没有。。。。
+
+*****
+
+####  抽水机  
+##### 15#       发表于 2025-5-12 19:21
+
+北欧女神这么没存在感？最好的狒狒不是6或者9？
+
+*****
+
+####  名居守  
+##### 16#       发表于 2025-5-12 19:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">教日本做JRPG又教中国人看真实/历史剧/悲剧/成年剧的MC用户评分历史第一名的超前神作33号怎么没有在榜单上
+
+*****
+
+####  umbasa  
+##### 17#       发表于 2025-5-12 19:24
+
+破晓传说呢?
+
+*****
+
+####  88ace88  
+##### 18#       发表于 2025-5-12 19:24
+
+确实按这个路子不应该没有破晓传说
+
+*****
+
+####  月光乱舞  
+##### 19#       发表于 2025-5-12 19:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">哪个游戏争议最大，好难猜啊
+
+*****
+
+####  suzakushi  
+##### 20#       发表于 2025-5-12 19:29
+
+点开之前完全没想到这么好笑，还得是白皮。
+
+*****
+
+####  alucardcz  
+##### 21#       发表于 2025-5-12 19:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要他写得all time。。那有几个作品就很搞笑了
+
+*****
+
+####  iou90  
+##### 22#       发表于 2025-5-12 19:41
+
+x 在我这排系列第五算不错了都
+4/8
+6
+9
+x
+
+*****
+
+####  milky658  
+##### 23#       发表于 2025-5-12 20:16
+
+还是疑惑桥野rpg是怎么成为欧美时尚单品的
+
+*****
+
+####  卡拉德利姆  
+##### 24#       发表于 2025-5-12 20:17
+
+我确信这是白皮轨迹侠为了醋包的饺子<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Dreammask  
+##### 25#       发表于 2025-5-12 20:46
+
+前10里两个桥野RPG，你桥野哥哥的真身是对白皮魅魔吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  clover293  
+##### 26#       发表于 2025-5-12 21:27
+
+注意点，前5，前5就俩xs
+
+*****
+
+####  渺小小  
+##### 27#       发表于 2025-5-12 21:31
+
+bd2能入榜是怎么想的？这货能被我放进历史倒数top里面去……
+
+*****
+
+####  荆棘花冠  
+##### 28#       发表于 2025-5-12 21:37
+
+白皮魅魔桥野桂
+
+*****
+
+####  大暴死  
+##### 29#       发表于 2025-5-12 21:39
+
+经典白皮先把chrono trigger放第一然后下面乱排
+
+—— 来自 Xiaomi 25019PNF3C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  sephal  
+##### 30#       发表于 2025-5-12 21:45
+
+只要我把CT放到第一后面我就可以乱写了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  牧月萌  
+##### 31#       发表于 2025-5-12 21:56
+
+33号远征队呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  佛罗伦萨  
+##### 32#       发表于 2025-5-12 22:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">国内ign啥时转载一下
+
+*****
+
+####  huahuaanying  
+##### 33#       发表于 2025-5-12 22:19
+
+这种排行看看就算了，因为不论由谁来排，都肯定有人不满意的。
+
+*****
+
+####  cc-2  
+##### 34#       发表于 2025-5-12 22:29
+
+ 本帖最后由 cc-2 于 2025-5-12 22:35 编辑 
+
+看到暗喻和女神异闻录5，我恍然大悟
+
+*****
+
+####  casualice  
+##### 35#       发表于 2025-5-12 22:44
+
+无聊看了下视频，他们确实是按IP来排的...嗯虽然即使这样还是挺微妙的
+
+所以有哪个倒霉IP没有上榜吗<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿尔法突袭  
+##### 36#       发表于 2025-5-12 22:56
+
+白皮不管是排名还是奖项都喜欢给暗喻幻想尽孝，但为什么就是没人买啊，到现在这作还没公布200w销量
+
+*****
+
+####  Bruce33  
+##### 37#       发表于 2025-5-12 22:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67807731&amp;ptid=2251925" target="_blank">casualice 发表于 2025-5-12 22:44</a>
+ 无聊看了下视频，他们确实是按IP来排的...嗯虽然即使这样还是挺微妙的 所以有哪个倒霉IP没有上榜吗 ...</blockquote>
+要是按ip算那该有的都有了吧我扫了一眼没想出来啥顶多就伊苏吧
+
+*****
+
+####  尘落樱飞  
+##### 38#       发表于 2025-5-12 23:10
+
+<blockquote>casualice 发表于 2025-5-12 22:44
+无聊看了下视频，他们确实是按IP来排的...嗯虽然即使这样还是挺微妙的
+
+所以有哪个倒霉IP没有上榜吗 ...</blockquote>
+狭义点的jrpg来说，妖表和圣剑传说。
+
+*****
+
+####  尘落樱飞  
+##### 39#       发表于 2025-5-12 23:16
+
+<blockquote>Bruce33 发表于 2025-5-12 22:57
+要是按ip算那该有的都有了吧我扫了一眼没想出来啥顶多就伊苏吧</blockquote>
+伊苏估计算成arpg了，2b同理。srpg的代表火纹和皇骑，drpg的世界树和弗兰等等都没入选，以及泥潭经常调侃的魂系列和怪猎
+
+*****
+
+####  cmnewfan  
+##### 40#       发表于 2025-5-12 23:26
+
+ign是多么喜欢捧atlus的臭脚
+
+—— 来自 vivo V2303A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  vvNemo  
+##### 41#       发表于 2025-5-13 00:53
+
+失落的奥德赛音乐很好听，人设我也非常喜欢，如果能用最新的虚幻重制下，把战斗改改，那就是神作了
+
