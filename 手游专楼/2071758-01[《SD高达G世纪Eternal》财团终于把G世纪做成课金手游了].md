@@ -13915,3 +13915,11 @@ GGETSURVEY
 竟然搞那么复杂，看来是不行了</blockquote>
 大部分人都无法做到，这个很麻烦的，蚊子腿就不要了
 
+
+*****
+
+####  王俊凯  
+##### 1304#       发表于 2025-5-12 14:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">是这么复杂的吗，10多年前就绑好的bnid摁进去就行了..
+
