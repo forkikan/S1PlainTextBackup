@@ -891,3 +891,11 @@ L高摆明了元ネタ就是角川旗下的N高，N这个名字来自niconico，
 
 她该不会连自己团里有几个成员都数不利索吧<img src="https://static.stage1st.com/image/smiley/face2017/176.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  勇者仁杰  
+##### 124#       发表于 2025-5-12 20:05
+
+好看，想看，等着看<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
