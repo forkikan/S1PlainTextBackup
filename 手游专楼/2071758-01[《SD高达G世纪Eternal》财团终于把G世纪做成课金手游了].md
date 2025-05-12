@@ -13702,3 +13702,13 @@ UR朱德也是解包信息里出的，已经是预定出的
 坏了，我还真就是第一次玩万代手游。
 <img src="https://static.stage1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">没见过这么着急，吃相这么难看的
 
+
+*****
+
+####  胖达君  
+##### 1284#       发表于 2025-5-12 09:52
+
+呀，接下来都是UC系列高达？太好了，可以存钻了~~<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+只抽SEED、W、G、OO系列的高达
+
