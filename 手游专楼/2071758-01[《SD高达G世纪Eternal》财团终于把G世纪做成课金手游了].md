@@ -13765,3 +13765,31 @@ UR朱德也是解包信息里出的，已经是预定出的
 
 活动只打困难还没搬完池子<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无念  
+##### 1290#       发表于 2025-5-12 10:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67805089&amp;ptid=2071758" target="_blank">劳动改造归来 发表于 2025-5-12 10:14</a>
+那万代为什么还能堂而皇之的出个HGUC ZATE GUNDAM 0088 生物感知器Ver.
+
+虽然按照以往的高达游戏经验来看 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说不定是骡子在开呢
+或者是剧场版没疯的卡喵
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  劳动改造归来  
+##### 1291#       发表于 2025-5-12 10:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67805207&amp;ptid=2071758" target="_blank">无念 发表于 2025-5-12 10:37</a>
+
+说不定是骡子在开呢
+
+或者是剧场版没疯的卡喵</blockquote>
+按照目前的一些迹象表明，这游戏估计有部分当初SGR的人员参与，至少从大地图战斗动画就能看出来有当年SGR的味道。反正在SGR的设定里，ZATE HYPER模式是限定了只能在Z的剧本里有加成，不过卡碧尼倒是没Z和ZZ的区分，都能有加成，但是卡碧尼HYPER模式是限定ZZ。
+
