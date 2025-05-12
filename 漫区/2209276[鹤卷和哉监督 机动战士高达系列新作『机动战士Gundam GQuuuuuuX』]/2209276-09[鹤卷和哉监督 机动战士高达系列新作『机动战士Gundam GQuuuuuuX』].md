@@ -5720,3 +5720,19 @@ X 上的 #鹿[Shika]™：“マチュとニャアン [https://t.co/IdFF4kZ200�
 
 该开盘今天晚上1.麻丘喵安能否和解2.基西莉亚死不死3.番茄妈死不死了<img src="https://static.stage1st.com/image/smiley/carton2017/088.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ftyaid  
+##### 12265#       发表于 2025-5-13 01:47
+
+<blockquote>jojonathan 发表于 2025-5-13 01:11
+该开盘今天晚上1.麻丘喵安能否和解2.基西莉亚死不死3.番茄妈死不死了</blockquote>
+我赌一手
+
+能和解
+
+紫色老太婆不死
+
+番茄妈死
+
