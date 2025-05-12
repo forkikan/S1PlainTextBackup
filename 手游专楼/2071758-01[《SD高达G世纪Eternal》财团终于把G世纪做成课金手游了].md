@@ -13904,3 +13904,14 @@ GGETSURVEY
 比如你注册的是谷歌邮箱，注册的时候要 ...</blockquote>
 竟然搞那么复杂，看来是不行了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  劳动改造归来  
+##### 1303#       发表于 2025-5-12 13:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67805990&amp;ptid=2071758" target="_blank">行政裁定书 发表于 2025-5-12 13:45</a>
+
+竟然搞那么复杂，看来是不行了</blockquote>
+大部分人都无法做到，这个很麻烦的，蚊子腿就不要了
+
