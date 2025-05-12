@@ -1060,3 +1060,19 @@ T4: 辉夜 金发大波浪看v的时候已经看够了
 
 当然20年后的人看现在的作品可能也是这种感觉
 
+
+*****
+
+####  HANDAIYV  
+##### 139#       发表于 2025-5-12 23:37
+
+这立德的最开始的宣传图里的是一个人吗，中专丈育都成忧郁文艺少女了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  osore  
+##### 140#       发表于 2025-5-12 23:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">智障没有人权，连被学历骑士霸凌以后抑郁都是不被允许的
+
