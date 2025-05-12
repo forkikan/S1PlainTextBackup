@@ -13867,3 +13867,13 @@ GGETSURVEY
 
 2025-5-12 12:56 上传
 
+
+*****
+
+####  一个陆仁贾  
+##### 1300#       发表于 2025-5-12 13:15
+
+在限定池里单抽是可以累计那个兑换点数的，所以不让你拿票抽是怕玩家容易兑换限定ur是吧<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
