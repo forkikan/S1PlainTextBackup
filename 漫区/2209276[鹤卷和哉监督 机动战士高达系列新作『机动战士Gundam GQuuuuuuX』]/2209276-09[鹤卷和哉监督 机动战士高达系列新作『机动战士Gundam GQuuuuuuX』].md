@@ -5553,3 +5553,29 @@ X 上的 #鹿[Shika]™：“マチュとニャアン [https://t.co/IdFF4kZ200�
 
 2025-5-12 22:25 上传
 
+
+*****
+
+####  岸浪白野  
+##### 12255#       发表于 2025-5-12 23:02
+
+[X 上的 機動戦士Gundam GQuuuuuuX（ジークアクス）：“◤Anime Expo 2025◢ アメリカ・ロサンゼルスにて開催される北米最大のアニメイベント《Anime Expo 2025》への参加が決定！ 現地時間の7月3日(木)に開催されるトークショー&amp;ライブ音楽パフォーマンスは、 #ガンチャン ほかにてライブ配信を予定。 #鶴巻和哉 さん(監督)、#榎戸洋司](https://x.com/G_GQuuuuuuX/status/1921943449009553917)[https://t.co/xyddnv75In](https://t.co/xyddnv75In)” / X
+
+<img src="https://img.stage1st.com/forum/202505/12/230240lkw7b9nunuxnmt79.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.24 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 23:02 上传
+
+[X 上的 機動戦士Gundam GQuuuuuuX（ジークアクス）：“◤Japan Expo 2025◢ さらに、同時にフランス・パリで開催されるフランス最大の日本カルチャー発信イベント《Japan Expo 2025》への参加も決定しました！ 7月6日(日)には、#鶴巻和哉 さん(監督)、#榎戸洋司 さん(シリーズ構成・脚本)に加え、#前田真宏](https://x.com/G_GQuuuuuuX/status/1921943700055200068)[https://t.co/XMGLRbunKl](https://t.co/XMGLRbunKl)” / X
+
+<img src="https://img.stage1st.com/forum/202505/12/230256kddsqk43sooo2d10.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.23 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 23:02 上传
+
