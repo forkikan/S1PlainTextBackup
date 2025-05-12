@@ -14091,3 +14091,13 @@ IOS端应该没这么麻烦
 还好不厉害可以不抽了，西洛克比卡缪厉害感觉，卡缪的回血技能要干啥</blockquote>
 配合西瓜冰，西瓜冰要求血越多伤害越高
 
+
+*****
+
+####  一个陆仁贾  
+##### 1321#       发表于 2025-5-12 21:35
+
+EX1和EX2太憋屈了，研究半天站位最后都是差一只打不掉<img src="https://static.stage1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">还是等以后能碾压了再打吧
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

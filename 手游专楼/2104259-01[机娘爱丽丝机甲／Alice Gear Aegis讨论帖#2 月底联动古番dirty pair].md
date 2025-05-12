@@ -84,3 +84,15 @@ bingo里几个要打的怪都该上哪打（</blockquote>
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  冰风血羽  
+##### 1454#       发表于 2025-5-12 21:36
+
+<img src="https://p.sda1.dev/24/1849312c75bf5b20aa725cba62efa2df/image.jpg" referrerpolicy="no-referrer">
+
+感谢宫藤大魔王救我狗命，没有奶京姐跟艾玛酱根本撑不住<img src="https://static.stage1st.com/image/smiley/face2017/177.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
