@@ -850,3 +850,15 @@ L高摆明了元ネタ就是角川旗下的N高，N这个名字来自niconico，
 倒不如说，本职就是唱歌跳舞的人，接受太多理科教育反而是一种浪费，在财政教育预算的意义上 ...</blockquote>
 至少得接受义务教育吧，连8+7都不会算的人应该在小学留级然后转到特殊教育学校接受关爱，还有你觉得连乘法表这么有规律的文字都背不过来的人怎么背歌词？
 
+
+*****
+
+####  csolfans  
+##### 120#       发表于 2025-5-12 18:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67806406&amp;ptid=2244986" target="_blank">蜜梨柑 发表于 2025-5-12 15:41</a>
+这野鸡拉拉大赛在被莲之空玩坏之后终于是办不下去了吗</blockquote>
+啊？莲之空干了啥
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
