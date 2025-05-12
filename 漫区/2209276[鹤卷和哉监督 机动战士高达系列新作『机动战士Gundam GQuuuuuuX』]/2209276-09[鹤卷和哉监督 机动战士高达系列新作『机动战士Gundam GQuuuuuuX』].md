@@ -5736,3 +5736,87 @@ X 上的 #鹿[Shika]™：“マチュとニャアン [https://t.co/IdFF4kZ200�
 
 番茄妈死
 
+
+*****
+
+####  王留美  
+##### 12266#       发表于 2025-5-12 23:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67807790&amp;ptid=2209276" target="_blank">中野梓 发表于 2025-5-12 23:10</a>
+
+哈哈，老登们还是懂得多</blockquote>
+唉，老登
+
+<img src="https://img.stage1st.com/forum/202505/12/233830qe0g2tczxxlej2st.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_7303.jpeg</strong> (223.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 23:38 上传
+
+<img src="https://img.stage1st.com/forum/202505/12/233831hr3tmz6x17mqm27j.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_7310.jpeg</strong> (152.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 23:38 上传
+
+*****
+
+####  我聞如是  
+##### 12267#       发表于 2025-5-13 00:00
+
+也可能是鶴卷榎戶沒播完12話之前不敢出來
+
+我在重溫EVA新劇
+
+看到律子叫加持リョウちゃん，美里叫真嗣シンちゃん之後
+
+覺得喵安叫修醬可能只是Khara的(壞)習慣而已
+
+*****
+
+####  57042711  
+##### 12268#       发表于 2025-5-13 00:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67807781&amp;ptid=2209276" target="_blank">王留美 发表于 2025-5-12 23:06</a>
+“突击攻击型机动步兵”</blockquote>
+这也太乐了，动力甲原来不是都市传说吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  jojonathan  
+##### 12269#       发表于 2025-5-13 01:11
+
+该开盘今天晚上1.麻丘喵安能否和解2.基西莉亚死不死3.番茄妈死不死了<img src="https://static.stage1st.com/image/smiley/carton2017/088.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ftyaid  
+##### 12270#       发表于 2025-5-13 01:47
+
+<blockquote>jojonathan 发表于 2025-5-13 01:11
+该开盘今天晚上1.麻丘喵安能否和解2.基西莉亚死不死3.番茄妈死不死了</blockquote>
+我赌一手
+
+能和解
+
+紫色老太婆不死
+
+番茄妈死
+
+*****
+
+####  0aleph37  
+##### 12271#       发表于 2025-5-13 07:46
+
+和解
+
+不死
+
+不死
+
