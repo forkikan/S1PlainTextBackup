@@ -762,3 +762,34 @@ nina和momoka好歹是高中学霸辍学
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  osore  
+##### 111#       发表于 2025-5-12 17:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67806880&amp;ptid=2244986" target="_blank">zakufa782 发表于 2025-5-12 17:33</a>
+
+像披风一样的领子、荷叶边、靴子都不是和服元素吧</blockquote>
+这些元素感觉大正时期就有了，当然肯定也是受西方影响
+
+*****
+
+####  osore  
+##### 112#       发表于 2025-5-12 17:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67806874&amp;ptid=2244986" target="_blank">Victorino 发表于 2025-5-12 17:30</a>
+
+倒不如说，本职就是唱歌跳舞的人，接受太多理科教育反而是一种浪费，在财政教育预算的意义上 ...</blockquote>
+高中知识好好学有利于少交智商税
+
+*****
+
+####  仟音一心  
+##### 113#       发表于 2025-5-12 17:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67806874&amp;ptid=2244986" target="_blank">Victorino 发表于 2025-5-12 17:30</a>
+
+倒不如说，本职就是唱歌跳舞的人，接受太多理科教育反而是一种浪费，在财政教育预算的意义上 ...</blockquote>
+如果是L学院是艺校，我赞同你的话。
+

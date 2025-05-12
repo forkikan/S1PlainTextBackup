@@ -1109,3 +1109,14 @@ cover上市后的操作更像是要去偶像化
 
 好羨慕黛灰畢業後才發覺yamien是賤人的人，他還是黛灰時我就已經發現了
 
+
+*****
+
+####  karastar  
+##### 1128#       发表于 2025-5-12 17:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67806855&amp;ptid=2171972" target="_blank">aritaatsu222 发表于 2025-5-12 17:24</a>
+
+好羨慕黛灰畢業後才發覺yamien是賤人的人，他還是黛灰時我就已經發現了</blockquote>
+好奇，**的说法是怎么回事，黛灰评价不错吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
