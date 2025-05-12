@@ -13712,3 +13712,40 @@ UR朱德也是解包信息里出的，已经是预定出的
 
 只抽SEED、W、G、OO系列的高达
 
+
+*****
+
+####  alialex  
+##### 1285#       发表于 2025-5-12 10:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67804974&amp;ptid=2071758" target="_blank">胖达君 发表于 2025-5-12 09:52</a>
+
+呀，接下来都是UC系列高达？太好了，可以存钻了~~
+
+只抽SEED、W、G、OO系列的高达 ...</blockquote>
+想多了，解包无误的话下一个卡池就是无正+命运
+
+
+*****
+
+####  劳动改造归来  
+##### 1286#       发表于 2025-5-12 10:14
+
+ 本帖最后由 劳动改造归来 于 2025-5-12 10:15 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67803801&amp;ptid=2071758" target="_blank">captoon 发表于 2025-5-11 21:04</a>
+
+精神力Z 是单时代的，不跨ZZ剧本</blockquote>
+那万代为什么还能堂而皇之的出个HGUC ZATE GUNDAM 0088 生物感知器Ver.
+
+虽然按照以往的高达游戏经验来看，ZATE HYPER模式确实是Z时代还要搭配格里普斯战役时的卡缪才是最完美适配的，放到ZZ的剧本里是没有数值加成的。
+
+*****
+
+####  胖达君  
+##### 1287#       发表于 2025-5-12 10:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67805039&amp;ptid=2071758" target="_blank">alialex 发表于 2025-5-12 10:05</a>
+
+想多了，解包无误的话下一个卡池就是无正+命运</blockquote>
+更不用抽了，SEEDD里面最讨厌的角色就是傻鸟和渣狼
+
