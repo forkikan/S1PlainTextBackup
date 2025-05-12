@@ -13923,3 +13923,15 @@ GGETSURVEY
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">是这么复杂的吗，10多年前就绑好的bnid摁进去就行了..
 
+
+*****
+
+####  zExs  
+##### 1305#       发表于 2025-5-12 14:13
+
+IOS端应该没这么麻烦
+
+只要保持目前游戏登录ID和网页领取ID一致就行
+
+尝试了下登录大号去领小号居然报错,非要你登录小号才能领
+

@@ -257,3 +257,45 @@ WOC这蓝鸟怎么这么坏啊？居然囚禁水团前辈。（大雾）
 
 这连中专都不如吧，直接网课了
 
+
+*****
+
+####  仟音一心  
+##### 68#       发表于 2025-5-12 14:08
+
+<img src="https://img.stage1st.com/forum/202505/12/140753s18a8u4z999dp448.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (51.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 14:07 上传
+
+<img src="https://img.stage1st.com/forum/202505/12/140810bjcfl3wl3n16dx5p.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (58.19 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 14:08 上传
+
+
+*****
+
+####  仟音一心  
+##### 69#       发表于 2025-5-12 14:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67805959&amp;ptid=2244986" target="_blank">cleverfox 发表于 2025-5-12 13:34</a>
+
+还不是普通中专，而是函授中专</blockquote>
+
+也没那么差
+
+<img src="https://img.stage1st.com/forum/202505/12/141224cpbpwppfoulbfwox.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (47.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 14:12 上传
+

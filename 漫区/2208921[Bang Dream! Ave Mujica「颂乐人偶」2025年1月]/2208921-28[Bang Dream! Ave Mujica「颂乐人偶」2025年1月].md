@@ -1761,3 +1761,63 @@ b站收藏集动态表情已出
 
 能吃到最後的當然是覺得這屎不算太臭
 
+
+*****
+
+####  厄神之息  
+##### 40866#       发表于 2025-5-12 14:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">怎么可能不烂，隔一周一追的都有一大堆觉得人物设定人物动机迷之转向很突兀，部分人物塑造公式化严重，每集重复感巨高，连着看这些问题只会更明显。一口气连看12集说还好就三种可能：
+
+1.啥片都看对片也没要求，所以烂片耐受力超绝，平常看的玩意比鸡还烂，人物塑造比鸡更扁平更伪人，自然鸡就一般般。
+
+2.没看过狗，单纯被鸡的烂名吸引，带着绝世烂番的猎奇心理来看，结果没有达到他心理预期的那么烂。
+
+3.超绝对抗性人格，酷爱唱反调显不同，你越喷他越唱反调，你说鸡烂的不行他就说鸡还行你们尬黑，享受的不是看番，享受的是驳斥他人让自己成为宇宙第一理智人的快感。
+
+*****
+
+####  堀内爱里衣  
+##### 40867#       发表于 2025-5-12 14:12
+
+<img src="https://img.stage1st.com/forum/202505/12/141004ckk69isz9sk10v8o.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-05-12_14-08-28.jpg</strong> (328.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 14:10 上传
+
+[https://x.com/HaibuchiYotsuji/status/1921773103870247422](https://x.com/HaibuchiYotsuji/status/1921773103870247422)
+
+<img src="https://img.stage1st.com/forum/202505/12/141046b7pptksbb7pctsak.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-05-12_14-10-29.jpg</strong> (118.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 14:10 上传
+
+[https://x.com/HaibuchiYotsuji/status/1921789338200760695](https://x.com/HaibuchiYotsuji/status/1921789338200760695)
+
+<img src="https://img.stage1st.com/forum/202505/12/141121f96ruwwa59a36rr6.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-05-12_14-10-54.jpg</strong> (137.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 14:11 上传
+
+[https://x.com/HaibuchiYotsuji/status/1921789499354271946](https://x.com/HaibuchiYotsuji/status/1921789499354271946)
+[https://t.co/TmKTb7nbKl](https://t.co/TmKTb7nbKl)
+
+<img src="https://img.stage1st.com/forum/202505/12/141157snmz6fl0flju8fnn.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-05-12_14-11-39.jpg</strong> (119.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 14:11 上传
+
+[https://x.com/HaibuchiYotsuji/status/1921789409495515164](https://x.com/HaibuchiYotsuji/status/1921789409495515164)
+
