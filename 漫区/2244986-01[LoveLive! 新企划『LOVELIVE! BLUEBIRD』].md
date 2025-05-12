@@ -299,3 +299,22 @@ WOC这蓝鸟怎么这么坏啊？居然囚禁水团前辈。（大雾）
 
 2025-5-12 14:12 上传
 
+
+*****
+
+####  漫漫来  
+##### 70#       发表于 2025-5-12 14:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67806076&amp;ptid=2244986" target="_blank">仟音一心 发表于 2025-5-12 14:12</a>
+
+也没那么差</blockquote>
+
+这代c介绍里已经明确写了因为数学太差中考失利了，这学校确实是不如中专<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ykyin09  
+##### 71#       发表于 2025-5-12 14:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最学历骑士的一集
+
