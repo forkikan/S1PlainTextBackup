@@ -412,3 +412,38 @@ nina和momoka好歹是高中学霸辍学
 
 这野鸡拉拉大赛在被莲之空玩坏之后终于是办不下去了吗
 
+
+*****
+
+####  仟音一心  
+##### 82#       发表于 2025-5-12 15:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67806123&amp;ptid=2244986" target="_blank">漫漫来 发表于 2025-5-12 14:25</a>
+
+这代c介绍里已经明确写了因为数学太差中考失利了，这学校确实是不如中专 ...</blockquote>
+
+目前只有立德一人是设定确认的学渣吊车尾，其他几个基本上都是有职业规划（编程、演员、环保少女，继承家业）所以混个学历就行。
+
+<img src="https://img.stage1st.com/forum/202505/12/154754eek91m96nk6pme46.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (321.27 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 15:47 上传
+
+
+*****
+
+####  cleverfox  
+##### 83#       发表于 2025-5-12 15:54
+
+ 本帖最后由 cleverfox 于 2025-5-12 15:55 编辑 
+<blockquote>Victorino 发表于 2025-5-12 15:36
+说到函授制，pjsk的宵崎奏不也是函授制吗？还有东云绘名上夜校
+
+怎么大家这么大惊小怪 ...</blockquote>
+因为这位的数学还不如小学生
+
+你觉得这个连这种人都收的学校能好到哪里去？
+
