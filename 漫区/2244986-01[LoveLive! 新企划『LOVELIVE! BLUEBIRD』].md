@@ -870,3 +870,16 @@ L高摆明了元ネタ就是角川旗下的N高，N这个名字来自niconico，
 
 竟然有真文盲
 
+
+*****
+
+####  蜜梨柑  
+##### 122#       发表于 2025-5-12 19:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67807007&amp;ptid=2244986" target="_blank">csolfans 发表于 2025-5-12 18:20</a>
+
+啊？莲之空干了啥
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+23年的时候，以3小组名义各自参加初赛然后北陆大赛一转合体然后还出线全国大会了；24年的决赛搞出来平局要加赛，然后加赛的时候全国募集签名发动舆论让主办方同意让一名初三学生参加。也就干了这些扰乱规则的事罢了（
+
