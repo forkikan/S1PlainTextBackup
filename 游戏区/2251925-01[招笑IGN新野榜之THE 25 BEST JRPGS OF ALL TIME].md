@@ -356,3 +356,15 @@ ign是多么喜欢捧atlus的臭脚
 下次再排把33远征队排第一吧
 这种榜一天我能给你排一百个
 
+
+*****
+
+####  kimmmmmm  
+##### 46#       发表于 2025-5-13 06:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67807189&amp;ptid=2251925" target="_blank">alucardcz 发表于 2025-5-12 19:19</a>
+so2也配？ 你说so3dc我还能吹一吹</blockquote>
+其实so2重制版的素质很可以，除了原生的2D小人分辨率过低没啥缺点
+
+—— 来自 Xiaomi 23116PN5BC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
