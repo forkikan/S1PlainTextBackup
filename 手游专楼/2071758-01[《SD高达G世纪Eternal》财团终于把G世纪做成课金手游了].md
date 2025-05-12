@@ -13891,3 +13891,16 @@ GGETSURVEY
 
 比如你注册的是谷歌邮箱，注册的时候要选香港，用谷歌邮箱注册万代万代帐号的时候，也要选地区是香港，登录网站的时候，IP也要是香港
 
+
+*****
+
+####  行政裁定书  
+##### 1302#       发表于 2025-5-12 13:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67805960&amp;ptid=2071758" target="_blank">劳动改造归来 发表于 2025-5-12 13:34</a>
+
+要注册邮箱，万代帐号，网站登录这三个IP都是同一个地理位置才可以
+
+比如你注册的是谷歌邮箱，注册的时候要 ...</blockquote>
+竟然搞那么复杂，看来是不行了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
