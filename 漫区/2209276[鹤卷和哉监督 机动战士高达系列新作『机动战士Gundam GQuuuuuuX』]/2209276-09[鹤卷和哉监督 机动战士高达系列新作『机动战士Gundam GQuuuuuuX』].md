@@ -5700,3 +5700,15 @@ X 上的 #鹿[Shika]™：“マチュとニャアン [https://t.co/IdFF4kZ200�
 
 覺得喵安叫修醬可能只是Khara的(壞)習慣而已
 
+
+*****
+
+####  57042711  
+##### 12263#       发表于 2025-5-13 00:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67807781&amp;ptid=2209276" target="_blank">王留美 发表于 2025-5-12 23:06</a>
+“突击攻击型机动步兵”</blockquote>
+这也太乐了，动力甲原来不是都市传说吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
