@@ -595,3 +595,68 @@ nina和momoka好歹是高中学霸辍学
 
 和服女这身和洋搭配是最近的新时尚吗
 
+
+*****
+
+####  闭挂锁人  
+##### 99#       发表于 2025-5-12 16:55
+
+花田老师为了玩摇滚/偶像不要学历而包出来的第二个饺子？<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 100#       发表于 2025-5-12 17:01
+
+槽点最多的其实是这个环保少女
+
+<img src="https://img.stage1st.com/forum/202505/12/163427smpyy1h581x7z8mn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (36.51 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 16:34 上传
+
+<img src="https://img.stage1st.com/forum/202505/12/165953lrzssfcmturxruxw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (103.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 16:59 上传
+
+<img src="https://img.stage1st.com/forum/202505/12/170037yculowi7nc007wcc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (103.17 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 17:00 上传
+
+<img src="https://img.stage1st.com/forum/202505/12/170046fspqn5hjttcz888x.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (103.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 17:00 上传
+
+*****
+
+####  Anatoly  
+##### 101#       发表于 2025-5-12 17:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67806763&amp;ptid=2244986" target="_blank">仟音一心 发表于 2025-5-12 17:01</a>
+
+槽点最多的其实是这个环保少女</blockquote>
+这个真的有点硬蹭蚝爹油了（
+
+
+*****
+
+####  p1fzvizq3g  
+##### 102#       发表于 2025-5-12 17:04
+
+泥潭应该没有学历歧视吧，如果我没记错姜萍那会儿谭友都是力挺中专妹的立场，回想起来也是令人暖心<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
