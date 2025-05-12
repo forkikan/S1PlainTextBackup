@@ -506,3 +506,27 @@ nina和momoka好歹是高中学霸辍学
 
 大家玩学历笑话只是图个乐呵，不是真的学历歧视，楼u不要太较真，，，
 
+
+*****
+
+####  Anatoly  
+##### 90#       发表于 2025-5-12 16:22
+
+看了看群友发的背景
+
+这次不会是网校都能把自己干倒闭然后函授生们为了拯救学校去办公室用上课直播的器材套皮当管人吧
+
+*****
+
+####  仟音一心  
+##### 91#       发表于 2025-5-12 16:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67806497&amp;ptid=2244986" target="_blank">Victorino 发表于 2025-5-12 16:07</a>
+
+所以宵崎奏和东云绘名数学很好吗
+
+同作品的东云彰人（东云绘名的亲弟弟）和白石杏也是成绩不好
+
+感觉只有内 ...</blockquote>
+我懂，“好的专科并不比一本差。”<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
