@@ -423,3 +423,11 @@ c呆耐久耗尽了，惨！
 
 青子玩起来真的久违的感受到什么叫紧张刺激的指令卡战斗，XJBD三面至少4回合至多6回合，什么3T过本不存在的<img src="https://static.stage1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  flyzzhj  
+##### 47145#       发表于 2025-5-12 09:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">花光了身上所有的石头，终于把这期两个UP都抽到了
+
