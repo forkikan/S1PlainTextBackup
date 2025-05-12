@@ -14016,3 +14016,27 @@ IOS端应该没这么麻烦
 调查问卷里怎么还有卖原作乐曲的选项的，放几首原声上来能掉块肉？</blockquote>
 问题就是不止几块肉，你日歌曲版权就是这么**，隔壁寺P都解释过很多次了
 
+
+*****
+
+####  洛克萨斯  
+##### 1315#       发表于 2025-5-12 17:58
+
+<img src="https://img.stage1st.com/forum/202505/12/175806zmlclmckcwtlg272.png" referrerpolicy="no-referrer">
+
+<strong>N@G_V[ALA817KP3UWY@}$I5.png</strong> (181.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 17:58 上传
+
+<img src="https://img.stage1st.com/forum/202505/12/175806yhibfmioo6oti96f.png" referrerpolicy="no-referrer">
+
+<strong>YZ3(`AVYA@$H4)CWNJT@3YQ.png</strong> (135.53 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 17:58 上传
+
+西洛克这技能组和解包的数值居然是普池..............
+

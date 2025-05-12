@@ -822,3 +822,21 @@ L高摆明了元ネタ就是角川旗下的N高，N这个名字来自niconico，
 
 第一波传播这种中专函授直接就把印象定死了还行<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  osore  
+##### 117#       发表于 2025-5-12 17:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67806940&amp;ptid=2244986" target="_blank">stygian 发表于 2025-5-12 17:55</a>
+L高摆明了元ネタ就是角川旗下的N高，N这个名字来自niconico，学生有艺能人有电竞选手有职业棋士有音乐家</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">思想舆论阵地，你不占领，敌人就会占领
+
+
+*****
+
+####  blackfyre2heads  
+##### 118#       发表于 2025-5-12 18:04
+
+函授制高中和环保编程和服这种梦想也太割裂了，观众没当过偶像也上过高中啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，还是不会九九乘法表最符合预期
+
