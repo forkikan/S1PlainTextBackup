@@ -30,3 +30,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">最后这集有点莫名了
 
+
+*****
+
+####  terminator1990  
+##### 116#       发表于 2025-5-13 01:21
+
+KEY社（或者说GAL业界）还真喜欢玩这种女鬼桥段啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
