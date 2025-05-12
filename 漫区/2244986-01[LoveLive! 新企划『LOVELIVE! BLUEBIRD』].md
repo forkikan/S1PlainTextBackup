@@ -917,3 +917,53 @@ L高摆明了元ネタ就是角川旗下的N高，N这个名字来自niconico，
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  もも的洞洞鞋  
+##### 126#       发表于 2025-5-12 20:18
+
+ 本帖最后由 もも的洞洞鞋 于 2025-5-12 20:20 编辑 
+
+哎，学历骑士
+
+哎，学历厨
+
+不是，真丈育啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  osore  
+##### 127#       发表于 2025-5-12 20:20
+
+所谓大学者，非谓有大楼之谓也，有大师之谓也
+
+同学们都知道哪家既有大师又有大楼吧
+
+*****
+
+####  仟音一心  
+##### 128#       发表于 2025-5-12 20:21
+
+ 本帖最后由 仟音一心 于 2025-5-12 20:23 编辑 
+
+【【歌词MV】What is my LIFE？- 生活好难部！-哔哩哔哩】 [https://b23.tv/ZYcTl6O](https://b23.tv/ZYcTl6O)
+
+What is my LIFE?
+
+作詞：畑 亜貴 
+
+作曲・編曲：光増ハジメ(FirstCall)
+<img src="https://p.sda1.dev/24/56d12bb8f0fbabd707ae793171c3a3c5/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/1c6b3b2efbe34ea0940b467736707496/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/2caa5d7c51a35aba409408a8a8c6205c/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 129#       发表于 2025-5-12 20:22
+
+声优定妆照
+<img src="https://p.sda1.dev/24/a7f992c96de625970faf0aea9d010943/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/f6144ab925a3a4cec85319b670f72fc3/image.jpg" referrerpolicy="no-referrer">
+

@@ -1806,3 +1806,16 @@ X一个响指其他人都掉下去了</blockquote>
 
 奶茶店老板和老魂电公司boss是一个人？
 
+
+*****
+
+####  新HGCG  
+##### 175#       发表于 2025-5-12 20:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67806800&amp;ptid=2125794" target="_blank">补丁 发表于 2025-5-12 17:10</a>
+
+奶茶店老板和老魂电公司boss是一个人？</blockquote>
+中文版也是一个声音吗？
+
+我看日语版是一个声音
+
