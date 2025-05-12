@@ -38,3 +38,13 @@
 
 KEY社（或者说GAL业界）还真喜欢玩这种女鬼桥段啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  电棍  
+##### 117#       发表于 2025-5-13 01:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67808032&amp;ptid=2044761" target="_blank">terminator1990 发表于 2025-5-13 01:21</a>
+KEY社（或者说GAL业界）还真喜欢玩这种女鬼桥段啊</blockquote>
+打着回归原点的旗号名正言顺地抄老一套公式呗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
