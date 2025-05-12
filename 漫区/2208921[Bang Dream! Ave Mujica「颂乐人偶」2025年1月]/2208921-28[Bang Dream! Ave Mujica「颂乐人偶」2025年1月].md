@@ -1821,3 +1821,24 @@ b站收藏集动态表情已出
 
 [https://x.com/HaibuchiYotsuji/status/1921789409495515164](https://x.com/HaibuchiYotsuji/status/1921789409495515164)
 
+
+*****
+
+####  仟音一心  
+##### 40868#       发表于 2025-5-12 14:55
+
+<img src="https://img.stage1st.com/forum/202505/12/145511xxr2a4ccntpryttm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (67.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 14:55 上传
+
+*****
+
+####  UNISONIA  
+##### 40869#       发表于 2025-5-12 14:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">Mujica补番最大的问题还是跟MyGO补番体验有着巨大的落差感，尤其是对两部连起来同时补的
+
