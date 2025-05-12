@@ -1050,3 +1050,13 @@ T4: 辉夜 金发大波浪看v的时候已经看够了
 圣质如初
 拉拉的八王之乱不远了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  加油牛油果  
+##### 138#       发表于 2025-5-12 23:24
+
+没人觉得这人格搭配过时感很重吗，跟20年前在动漫社和朋友设计属于自己的角色一样，各种夸张的个性与爱好标签往死里加，结果出来的人物特别假<img src="https://static.stage1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+当然20年后的人看现在的作品可能也是这种感觉
+
