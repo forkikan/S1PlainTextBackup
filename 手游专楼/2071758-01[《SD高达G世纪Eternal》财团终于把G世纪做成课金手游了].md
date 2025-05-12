@@ -13841,3 +13841,13 @@ GGETSURVEY
 
 —— 来自 samsung SM-F9460, Android 14, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  lighttt  
+##### 1298#       发表于 2025-5-12 12:18
+
+问卷不用做，直接输cdk就有了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
