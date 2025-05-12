@@ -14040,3 +14040,24 @@ IOS端应该没这么麻烦
 
 西洛克这技能组和解包的数值居然是普池..............
 
+
+*****
+
+####  captoon  
+##### 1316#       发表于 2025-5-12 18:25
+
+贝嫂船词缀是【塞可谬】而且不是限定，不抽也没事。
+
+总体来说这池子不是特别有抽的价值，最有价值的可能就一个希洛克了
+
+*****
+
+####  一个陆仁贾  
+##### 1317#       发表于 2025-5-12 18:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67806862&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-5-12 17:26</a>
+调查问卷里怎么还有卖原作乐曲的选项的，放几首原声上来能掉块肉？</blockquote>
+反正我填的不会购买，这么抠门的游戏卖机体就算了还想让我掏钱买歌曲<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
