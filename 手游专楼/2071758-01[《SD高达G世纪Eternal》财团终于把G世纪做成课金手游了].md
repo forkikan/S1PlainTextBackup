@@ -13757,3 +13757,11 @@ UR朱德也是解包信息里出的，已经是预定出的
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这么快就出命运了吗？我还挺想要的，但是实在抽不起了，也不知道多久才能攒出一个井
 
+
+*****
+
+####  dio999  
+##### 1289#       发表于 2025-5-12 10:28
+
+活动只打困难还没搬完池子<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
