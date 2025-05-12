@@ -14061,3 +14061,14 @@ IOS端应该没这么麻烦
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  rockroxas  
+##### 1318#       发表于 2025-5-12 18:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67806948&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2025-5-12 17:58</a>
+
+西洛克这技能组和解包的数值居然是普池..............</blockquote>
+感觉theO射程应该不行，换其他机体又少阵营加成了，到头来只能靠本机打输出吧
+
