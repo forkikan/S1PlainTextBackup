@@ -967,3 +967,27 @@ What is my LIFE?
 <img src="https://p.sda1.dev/24/a7f992c96de625970faf0aea9d010943/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/24/f6144ab925a3a4cec85319b670f72fc3/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  圈量子  
+##### 130#       发表于 2025-5-12 20:27
+
+乃木坂一期生搞学力测试的时候，白石麻衣、西野七濑和斋藤飞鸟都是学渣组。我看这个设定不是不行<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  有钱多买小人  
+##### 131#       发表于 2025-5-12 20:28
+
+怎么可能青春伤痛，看pv这网课设定大概为了搞视频会议或者群聊之类创新演出的醋包的饺子。本质当然是krkr。
+
+然后日本网课高中入学大多就是面试，只有少数有笔试，比重也不大。并不是说成绩差就只能上差校。
+
+*****
+
+####  Lawliet.L  
+##### 132#       发表于 2025-5-12 20:32
+
+竟然是丈育偶像<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

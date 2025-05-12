@@ -14080,3 +14080,14 @@ IOS端应该没这么麻烦
 
 还好不厉害可以不抽了，西洛克比卡缪厉害感觉，卡缪的回血技能要干啥<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 1320#       发表于 2025-5-12 20:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67807305&amp;ptid=2071758" target="_blank">lighttt 发表于 2025-5-12 20:05</a>
+
+还好不厉害可以不抽了，西洛克比卡缪厉害感觉，卡缪的回血技能要干啥</blockquote>
+配合西瓜冰，西瓜冰要求血越多伤害越高
+
