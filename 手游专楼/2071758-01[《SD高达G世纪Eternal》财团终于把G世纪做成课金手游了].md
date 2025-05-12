@@ -13808,3 +13808,11 @@ UR朱德也是解包信息里出的，已经是预定出的
 
 卡碧尼连ssr都分了z和zz版的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 1294#       发表于 2025-5-12 11:14
+
+我没刷初始到现在才6w钻，这游戏存石头不是一般的难
+
