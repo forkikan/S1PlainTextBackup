@@ -47,3 +47,15 @@ bingo里几个要打的怪都该上哪打（</blockquote>
 谁能告诉我打通这个给啥吗？</blockquote>
 这是现在每次高难VH难度都有的最终关啊，通了后还可以加等级一直加到250。奖励就是给钱，和解锁一键清NOMAL和HARD功能。
 
+
+*****
+
+####  冰风血羽  
+##### 1451#       发表于 2025-5-12 20:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67807387&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2025-5-12 20:47</a>
+这是现在每次高难VH难度都有的最终关啊，通了后还可以加等级一直加到250。奖励就是给钱，和解锁一键清NOM ...</blockquote>
+是只要打过110级这一关就可以解锁一键吗？我以前都是只打NOMAL和HARD<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
