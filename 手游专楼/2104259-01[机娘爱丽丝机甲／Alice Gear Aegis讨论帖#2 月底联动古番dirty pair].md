@@ -72,3 +72,15 @@ bingo里几个要打的怪都该上哪打（</blockquote>
 —— 来自 realme RMX3706, Androi ...</blockquote>
 对，VH打完所有的点才会出现这关，打完这关VH就是全通可以解锁一键N和H难度。后面的加等级和变属性完全是给大佬们的自我挑战
 
+
+*****
+
+####  冰风血羽  
+##### 1453#       发表于 2025-5-12 21:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67807446&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2025-5-12 21:07</a>
+对，VH打完所有的点才会出现这关，打完这关VH就是全通可以解锁一键N和H难度。后面的加等级和变属性完全是 ...</blockquote>
+谢了，这下为了一键清图死也要打过去了
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
