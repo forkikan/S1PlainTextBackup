@@ -5620,3 +5620,42 @@ X 上的 #鹿[Shika]™：“マチュとニャアン [https://t.co/IdFF4kZ200�
 “突击攻击型机动步兵”</blockquote>
 哈哈，老登们还是懂得多
 
+
+*****
+
+####  Humpy  
+##### 12259#       发表于 2025-5-12 23:27
+
+试着画了GQUUUUUUX版高扎古机设(附西玛)
+
+高扎古是我在看Z高达时外形很对胃口但是设定感觉非常怪的一台机体，技术陈旧毛病一堆甚至不能同时使用光束枪和光剑，实在不像是0087年隔几集就出来个新的强力机械兽的财大气粗提坦斯搞出来的玩意。
+
+但是如果在GQUUUUUUX这个联邦“战败”的世界线，如果作为流入民间到处都是的扎古2的现代化改造而来的机型，失去了宇宙的税收经费不充裕的联邦在其之上验证各种技术可能性的话，感觉好像还像那么一回事……？
+
+于是便试着画了GQUUUUUUX版的高扎古。
+
+配色选了类似AOZ高扎古的配色，单纯是个人喜好<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+西玛是我的另一个想法，不过不一定符合这个世界观就是了(毕竟很多内容还没有展开来说)<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我的设想是，吉恩虽然在这条世界线胜利了，但却是相对“弱势”的胜利，虽然看似拿到了宇宙的支配权，但实际上经济捉襟见肘，在一年战争中受害严重的SIDE的反吉恩浪潮亦在民间暗涌。同时，基连派和基莉西亚派在战后的利益冲突愈渐激烈，势力之间人物的排挤内斗层出不穷，逐渐有演化成内战的趋势。在这一背景下，参与了SIDE2G3毒气屠杀事件的下层人物，有可能并不能得到胜利者的庇护，反而会变成烫手山芋，被拿来作为替罪羊，换取这些SIDE民众反对浪潮的缓和。
+
+因此我感觉西玛在一年战争之后可能仍然不会有什么好的下场……于是便画了走投无路选择加入联邦寻求庇护的西玛造型。
+
+人物风格试着模仿了GQUUUUUUX动画的人设，军服的话也单纯是个人喜好，倒不是说我觉得这个世界线会有提坦斯成立<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202505/12/232656vthhteo2i8i5zio8.png" referrerpolicy="no-referrer">
+
+<strong>高扎古.png</strong> (762.4 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 23:26 上传
+
+*****
+
+####  lickey  
+##### 12260#       发表于 2025-5-12 23:28
+
+直接把展会时间定在完结后吗...是否算一种半场的香槟<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
