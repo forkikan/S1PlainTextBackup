@@ -1090,3 +1090,14 @@ cover上市后的操作更像是要去偶像化
 
 没事，还记得你黑历史的已经没几个了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  usodakedo  
+##### 1126#       发表于 2025-5-12 16:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67804527&amp;ptid=2171972" target="_blank">渡鸦骑士 发表于 2025-5-12 01:44</a>
+
+没事，还记得你黑历史的已经没几个了</blockquote>
+你误会我的意思了，我不在乎有没有人讨厌我，我又不会因为有人讨厌我就不写了，我只是误以为写点正经内容加点真情实感在现在管人圈是一种落伍的行为<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
