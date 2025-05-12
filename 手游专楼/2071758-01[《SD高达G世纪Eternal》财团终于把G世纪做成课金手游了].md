@@ -13877,3 +13877,17 @@ GGETSURVEY
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  劳动改造归来  
+##### 1301#       发表于 2025-5-12 13:34
+
+ 本帖最后由 劳动改造归来 于 2025-5-12 13:35 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67805818&amp;ptid=2071758" target="_blank">行政裁定书 发表于 2025-5-12 12:57</a>
+
+想输入优惠码，但一直让我重新登陆，这是什么情况？</blockquote>
+要注册邮箱，万代帐号，网站登录这三个IP都是同一个地理位置才可以
+
+比如你注册的是谷歌邮箱，注册的时候要选香港，用谷歌邮箱注册万代万代帐号的时候，也要选地区是香港，登录网站的时候，IP也要是香港
+
