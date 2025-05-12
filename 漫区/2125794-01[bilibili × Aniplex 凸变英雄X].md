@@ -1827,3 +1827,11 @@ X一个响指其他人都掉下去了</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">我以为是黄毛下大棋，结果怎么是真的铁血好兄弟啊
 
+
+*****
+
+####  新HGCG  
+##### 177#       发表于 2025-5-13 07:22
+
+等等，看介绍黄毛是尚总的儿子啊
+
