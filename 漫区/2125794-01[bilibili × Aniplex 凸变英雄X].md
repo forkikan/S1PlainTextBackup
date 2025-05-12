@@ -1819,3 +1819,11 @@ X一个响指其他人都掉下去了</blockquote>
 
 我看日语版是一个声音
 
+
+*****
+
+####  Sacross  
+##### 176#       发表于 2025-5-12 22:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">我以为是黄毛下大棋，结果怎么是真的铁血好兄弟啊
+
