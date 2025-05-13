@@ -166,3 +166,12 @@ KEY社（或者说GAL业界）还真喜欢玩这种女鬼桥段啊</blockquote>
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811338&amp;ptid=2044761" target="_blank">evangelina 发表于 2025-5-13 22:46</a></blockquote>
 感觉最后一张图动画比起游戏削了
 
+
+*****
+
+####  医生狼多  
+##### 128#       发表于 2025-5-14 01:39
+
+这集真的太快了……情绪刚起来一点就直接感到下个情绪
+只能说还是篇幅所限，要是多一集能更好点
+

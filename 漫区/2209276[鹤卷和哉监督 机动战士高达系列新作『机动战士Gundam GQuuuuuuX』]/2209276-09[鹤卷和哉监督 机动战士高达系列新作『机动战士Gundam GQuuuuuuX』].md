@@ -8560,3 +8560,130 @@ Pshycho Gundam不就是最大的死旗吗？<img src="https://static.stage1st.co
 
 感觉下集至少要死玛秋妈，货车大叔，博美犬的几位，说不定再加上玛秋的几个同学<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ftyaid  
+##### 12536#       发表于 2025-5-14 01:36
+
+side6爆破，然后难民上木马，味道还挺对
+
+*****
+
+####  xyion  
+##### 12537#       发表于 2025-5-14 01:36
+
+麻球这精神小妹脑回路着实强大，上周还在猜这话会不会写对杀人的反应，结果是一点没有，关注的只有kirakira和三人关系。
+
+主角团三人的青春感和大人们的博弈之间的撕裂越来越动摇我对鹤卷哥哥的信任。
+
+但除此之外，这话作为高信息密度过度回，叙事方式又实在合胃口。
+
+话说小森知道首席哥监视绿叔叔的任务么？
+
+*****
+
+####  ku2154513  
+##### 12538#       发表于 2025-5-14 01:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811955&amp;ptid=2209276" target="_blank">根正苗红 发表于 2025-5-14 01:34</a>
+Pshycho Gundam不就是最大的死旗吗？</blockquote>
+好歹演两集多杀几个
+
+*****
+
+####  污陨血红  
+##### 12539#       发表于 2025-5-14 01:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811956&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-14 01:34</a>
+
+回旋镖</blockquote>
+side6的小朋友们，你们好呀，我是周锦华，我带着精神力高达来看你们了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ashero  
+##### 12540#       发表于 2025-5-14 01:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811953&amp;ptid=2209276" target="_blank">zycilcy 发表于 2025-5-14 01:33</a>
+
+差一个献祭老妈，铺垫了这么多次的母女矛盾怎么着也得用上吧。
+
+个人猜测，最好的结果就是鹤卷心善番茄千 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">老妈死旗确实太重了
+
+*****
+
+####  冷静先找时光机  
+##### 12541#       发表于 2025-5-14 01:38
+
+周锦华为了暗杀基西莉亚准备这么充分，结果夏利亚提前好几天就察觉，基克罗格反而比神经病高达先送到，联邦这是被渗透成筛子了啊<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+被渗透成这样，还能搞出比吉翁先进好几年的机体，不科学啊，是不是吉翁这边也藏了不少牌，弄不好gquuuuuux只是幌子
+
+*****
+
+####  ku2154513  
+##### 12542#       发表于 2025-5-14 01:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811958&amp;ptid=2209276" target="_blank">普通哈尼 发表于 2025-5-14 01:35</a>
+感觉下集至少要死玛秋妈，货车大叔，博美犬的几位，说不定再加上玛秋的几个同学 ...</blockquote>
+同学也得死吗？nt身边的人也太危险了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  普通哈尼  
+##### 12543#       发表于 2025-5-14 01:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811968&amp;ptid=2209276" target="_blank">ku2154513 发表于 2025-5-14 01:38</a>
+
+同学也得死吗？nt身边的人也太危险了吧</blockquote>
+对应0080里的阿尔，这帮人真有可能干出来<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ティグル  
+##### 12544#       发表于 2025-5-14 01:40
+
+精神病都在殖民卫星里**方方耍起来了，到底死多少同学纯属staff给不给你画出来而已
+
+*****
+
+####  猫兔同笼  
+##### 12545#       发表于 2025-5-14 01:41
+
+奶奶头在朱庇特丽丝上油门都要踩冒烟了，这种神人聚会共襄盛举的场面，鹤卷把奶奶头ban了可太可惜
+
+
+*****
+
+####  koodooliz  
+##### 12546#       发表于 2025-5-14 01:42
+
+推上有人注意到了，精神力高达运单上的始发地是种子岛。
+
+*****
+
+####  ku2154513  
+##### 12547#       发表于 2025-5-14 01:43
+
+那说不定同学家人也要被波及，沾了nt全家遭殃，祸星啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  草台培训班  
+##### 12548#       发表于 2025-5-14 01:44
+
+这片的看点一直是uc的if线。
+
+不过这样还要避开希罗克实在说不过去了。
+
+出第二季的时候写希罗克的线吧
+
+*****
+
+####  wasssf  
+##### 12549#       发表于 2025-5-14 01:47
+
+骡子蜀黍充当本作奶奶头吧，没捡到高达是去开发ms搞nt后宫了
+
