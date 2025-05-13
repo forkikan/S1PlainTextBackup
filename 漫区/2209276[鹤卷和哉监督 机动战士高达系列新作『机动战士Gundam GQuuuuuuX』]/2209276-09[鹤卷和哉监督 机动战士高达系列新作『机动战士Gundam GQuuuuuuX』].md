@@ -7368,3 +7368,206 @@ magnet:?xt=urn:btih:48008fe44a0a4480f8cdfece3e5baf4b34b97264&amp;dn=%5BNew-raws%
 
 说起来下集搞这么大真的能算冷战氛围么<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hosilly  
+##### 12421#       发表于 2025-5-14 00:17
+
+怒涛展开！
+
+*****
+
+####  大十字紅朔  
+##### 12422#       发表于 2025-5-14 00:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811691&amp;ptid=2209276" target="_blank">ftyaid 发表于 2025-5-14 00:14</a>
+
+但是这暗杀计划对吗
+
+拿精神力高达暗杀联邦怎么脱身呢？还是说目标不是内战？ ...</blockquote>
+这个世界线高达是吉恩的印象更强吧
+
+*****
+
+####  sliver1997  
+##### 12423#       发表于 2025-5-14 00:17
+
+ 本帖最后由 sliver1997 于 2025-5-14 00:18 编辑 
+
+大长腿精神病好奇怪
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  白色池塘  
+##### 12424#       发表于 2025-5-14 00:17
+
+其实在这集以前我一直猜测接下来会出场的原剧角色应该是米海尔之类的，毕竟要下地球嘛，结果直接把巴斯克欧姆给掏了出来<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xwr  
+##### 12425#       发表于 2025-5-14 00:17
+
+下集会怎样都不敢想，三方混战，基西莉亚连同side6炸上天？<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chondroitin  
+##### 12426#       发表于 2025-5-14 00:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811699&amp;ptid=2209276" target="_blank">Humpy 发表于 2025-5-14 00:15</a>
+
+说起来下集搞这么大真的能算冷战氛围么</blockquote>
+Z里面精神力高达轰炸香港也很超规格，但是除了塑造了一下凤好像也没有后文了，反而是轰炸达喀尔这边塑造了引起民愤。都取决于编剧需求（
+
+*****
+
+####  ftyaid  
+##### 12427#       发表于 2025-5-14 00:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811705&amp;ptid=2209276" target="_blank">大十字紅朔 发表于 2025-5-14 00:17</a>
+
+这个世界线高达是吉恩的印象更强吧</blockquote>
+就连绿叔叔船上的人都能大概查到背后的公司在地球的强化人机构隔壁，我看这联邦也没想藏啊
+
+*****
+
+####  Mr1z  
+##### 12428#       发表于 2025-5-14 00:18
+
+感觉希罗克就是因为太麻烦了才不去用的吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  猪突猛进R  
+##### 12429#       发表于 2025-5-14 00:18
+
+下一集SIDE6不会像SEED第一集那个殖民地一样吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  污陨血红  
+##### 12430#       发表于 2025-5-14 00:18
+
+等等，怎么还有汉谟拉比<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+奶奶头要肘赢鹤卷了？
+
+*****
+
+####  暗黑能乐  
+##### 12431#       发表于 2025-5-14 00:19
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我感觉这集夏利亚有点奶奶头的味了，狠狠俘获NT（首席哥）的芳心让他为自己所用
+
+*****
+
+####  ティグル  
+##### 12432#       发表于 2025-5-14 00:19
+
+村雨研直接发力了，奥古斯塔就贡献了一个驾驶员？
+
+*****
+
+####  YU_JI  
+##### 12433#       发表于 2025-5-14 00:20
+
+<blockquote>伊露伊道格拉斯 发表于 2025-5-14 00:03
+没有磁力覆膜，没有联邦高达和吉姆，但有精神病mk2，你这科技树有点……
+
+不过之前说只能二创0079内容的说法 ...</blockquote>
+其实也好圆，一年战争红高达搞的大爆炸太显眼了，出乎双方意料，联邦重新重视起高达和新人类方向的研究才是正常的，吉翁那边的成果就是GQX，联邦这边就拿出来精神病高达，虽然是直接一口气跳到这了（）
+
+
+*****
+
+####  Toby_dak  
+##### 12434#       发表于 2025-5-14 00:21
+
+<img src="https://img.stage1st.com/forum/202505/14/012138ztzjimlt2ozlmwpm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (39.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 00:21 上传
+
+这啥？汉布拉比又来电疗？
+
+*****
+
+####  葛林TOP  
+##### 12435#       发表于 2025-5-14 00:22
+
+说起来主角两台机武装加起来就一把扎古斧子不知道怎么打精神病高达<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  hulaoda007  
+##### 12436#       发表于 2025-5-14 00:23
+
+这只是6年的停战。（）
+
+*****
+
+####  57042711  
+##### 12437#       发表于 2025-5-14 00:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811696&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-14 00:15</a></blockquote>
+真帅啊，看来联邦还是有钱各种新锐机<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  kenqqex  
+##### 12438#       发表于 2025-5-14 00:24
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+竹画风的亚赞真的会有吗?
+
+*****
+
+####  lunaticfool  
+##### 12439#       发表于 2025-5-14 00:25
+
+该暴走了。感觉最后会有核心战机脱出啊
+
+*****
+
+####  猪突猛进R  
+##### 12440#       发表于 2025-5-14 00:25
+
+这只汉谟拉比好像是盖茨开的，亚赞不知后面会不会出现。
+
+
+*****
+
+####  Humpy  
+##### 12441#       发表于 2025-5-14 00:25
+
+我想的联邦收不上来宇宙税收的穷逼化没实现<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看看后面能出来多少机械兽，我还挺喜欢猎犬和拜亚兰的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  污陨血红  
+##### 12442#       发表于 2025-5-14 00:26
+
+<img src="https://img.stage1st.com/forum/202505/14/002554smdrzm4iidzm3ikz.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQbm76-9wocK1iT1kSgm-b6.jpg</strong> (56.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 00:25 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
