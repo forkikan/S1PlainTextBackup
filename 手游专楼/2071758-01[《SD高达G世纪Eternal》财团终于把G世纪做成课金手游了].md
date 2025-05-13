@@ -14262,3 +14262,18 @@ Z有ZZ标签
 这次不去活动池抽了，就退了几十个稀有币</blockquote>
 果然没这么好给你续PT
 
+
+*****
+
+####  HEERO.W  
+##### 1338#       发表于 2025-5-13 12:16
+
+不管是正义进新的限定池不进常驻，还是井票到期变币，这些不都是之前公告里说的事情吗？
+
+*****
+
+####  xinfengj  
+##### 1339#       发表于 2025-5-13 12:18
+
+40抽一个UR没有<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
