@@ -8687,3 +8687,109 @@ side6的小朋友们，你们好呀，我是周锦华，我带着精神力高达
 
 骡子蜀黍充当本作奶奶头吧，没捡到高达是去开发ms搞nt后宫了
 
+
+*****
+
+####  オルガピピック  
+##### 12550#       发表于 2025-5-14 01:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811968&amp;ptid=2209276" target="_blank">ku2154513 发表于 2025-5-14 01:38</a>
+
+同学也得死吗？nt身边的人也太危险了吧</blockquote>
+建议回看一角驴的ep1 巴垃圾身边从老师到同学 一大票工业7号的普通市民全给盒子殉葬了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zzf111  
+##### 12551#       发表于 2025-5-14 01:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811920&amp;ptid=2209276" target="_blank">koodooliz 发表于 2025-5-14 01:22</a>
+
+怎么，无人关心紫婆了吗？</blockquote>
+周锦华那是想的不得了，暗杀计划说的就是他和他的强化人还有神经病高达<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不知道绿叔叔在这集风云暗涌的局势下枪毙side6警察冒着木马被盘查的风险救紫婆间谍的首席是什么居心，从台词上看他和tts不是同伙，目前还不知道他憋的什么屁要整
+
+*****
+
+####  g救世主高达  
+##### 12552#       发表于 2025-5-14 01:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811878&amp;ptid=2209276" target="_blank">ku2154513 发表于 2025-5-14 01:07</a>
+
+这精神力高达不会一集就垫了吧</blockquote>
+本来原作就是个巨型靶子<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DANAmya  
+##### 12553#       发表于 2025-5-14 01:49
+
+打精神力高达会不会有绿叔叔开ma来帮忙，这次的白毛驾驶员能一改传统不死吗<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 12554#       发表于 2025-5-14 01:50
+
+玛秋的年轻人心态和历史的浪潮发生碰撞，这才有意思啊
+
+
+*****
+
+####  岸浪白野  
+##### 12555#       发表于 2025-5-14 01:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811942&amp;ptid=2209276" target="_blank">我聞如是 发表于 2025-5-14 01:29</a>
+
+媽媽摔桌上的是6月補習班出席表
+
+所以劇中時間已經7月了</blockquote>
+
+日历还是6月，就当还在6月就行...........
+
+<img src="https://img.stage1st.com/forum/202505/14/014632ep33ax4p7q3popcg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (416.82 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 01:46 上传
+
+*****
+
+####  岸浪白野  
+##### 12556#       发表于 2025-5-14 01:53
+
+星期用的法语，数字用的泰文
+
+*****
+
+####  Steel.Haze  
+##### 12557#       发表于 2025-5-14 01:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811825&amp;ptid=2209276" target="_blank">污陨血红 发表于 2025-5-14 00:48</a>
+
+联邦科技树只能说是打了超级强化
+
+q一串的背景下，85年整出精神病mk2和汉布拉比
+
+要是后面膜zz，掏出那些第四 ...</blockquote>
+实际上精神病、南瓜饼、加普兰这几台都是联邦基于79积累的技术而后不断叠叠叠的产物，它们应用的新技术只有磁气镀膜。估计夸克斯的精神病要比Z里面的迟钝。而汉莫拉比，估计实际上加普兰技术框架的宇宙版本，变形和设计更汉莫拉比一些，也是更迟钝，但火力可能更好的机体。提坦斯在得到新技术后搞得高端机体实际上是猎犬（和夸克斯一样，精神力直接传导操作，半身可动骨骼，独特变形设计，87年机动力最高的机体）。
+
+*****
+
+####  大泽瑠璃乃  
+##### 12558#       发表于 2025-5-14 01:57
+
+观众嫌弃年轻人主角，不是很符合这集的Z味吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  爱撕衣魔刃  
+##### 12559#       发表于 2025-5-14 01:57
+
+钞票头像是富野喜幸<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">，
+
+笑死了。
+
