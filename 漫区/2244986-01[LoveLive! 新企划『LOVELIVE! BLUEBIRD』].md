@@ -1498,3 +1498,22 @@ mai那张立绘，后面还有polka的没擦干净的图层<img src="https://sta
 都IT小天才了还要倍速刷网课的吗，不是直接后台挂机就成</blockquote>
 IT小天才应该攻破网校的系统，直击完成课业获得学分才对。
 
+
+*****
+
+####  cleverfox  
+##### 180#       发表于 2025-5-13 17:56
+
+<blockquote>zhwpjy 发表于 2025-5-13 16:09
+新的it小天才</blockquote>
+学编程不学数学只能一辈子当码农，架构师和算法工程师这种高级职业都需要很深的数学知识，至少大学数学课才教
+
+*****
+
+####  osore  
+##### 181#       发表于 2025-5-13 17:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67810374&amp;ptid=2244986" target="_blank">cleverfox 发表于 2025-5-13 17:56</a>
+学编程不学数学只能一辈子当码农，架构师和算法工程师这种高级职业都需要很深的数学知识，至少大学数学课 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个it小天才也很喜欢数学的
+
