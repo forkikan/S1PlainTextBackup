@@ -14409,3 +14409,13 @@ Z有ZZ标签
 
 阿姆罗也分普通版和眉心一闪版的。眉心一闪一般UR就稳了。当然最希望看到的还是雪拉<img src="https://static.stage1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无念  
+##### 1354#       发表于 2025-5-13 15:00
+
+能天使飞上去看了看，这欧贝龙伤害好低...难不成这次可以auto？
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
