@@ -125,3 +125,13 @@
 
 什么时候能在on sea上市哦
 
+
+*****
+
+####  xinfengj  
+##### 5933#       发表于 2025-5-13 19:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67810366&amp;ptid=2170852" target="_blank">qwased 发表于 2025-5-13 17:55</a>
+还有这霰弹枪的加长弹夹怎么是砍容量加弹夹数量的，写反了吧</blockquote>
+原本是弹鼓的换成加长弹匣了吧
+
