@@ -14131,3 +14131,16 @@ B站很多EX关低配打法的，虽然作业不能硬抄，而且走位和谁�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">上个月不就说了要更新一键开发，都过去半个月了怎么一点动静都没
 
+
+*****
+
+####  kenqqex  
+##### 1325#       发表于 2025-5-13 08:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67808194&amp;ptid=2071758" target="_blank">劳动改造归来 发表于 2025-5-13 08:27</a>
+
+B站很多EX关低配打法的，虽然作业不能硬抄，而且走位和谁先手谁先挡枪谁先死都定的比较死，但是只要熟悉 ...</blockquote>
+现在修复了骗防御,那些攻略如果数值差很多那是不行的了...昨天我就抄了群友的攻略,群友还建议我换了啥啥啥
+
+结果打不死亏曼莎
+
