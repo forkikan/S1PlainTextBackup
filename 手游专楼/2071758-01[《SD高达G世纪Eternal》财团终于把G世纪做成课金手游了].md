@@ -14327,3 +14327,13 @@ Z有ZZ标签
 —— 来自 Sony XQ-AT72, Android 12, 鹅球 v3.5.99</blockquote>
 标签里还有可变机<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  里村紅葉  
+##### 1345#       发表于 2025-5-13 13:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67809176&amp;ptid=2071758" target="_blank">棍机凹升龙 发表于 2025-5-13 12:47</a>
+这6次略过居然是两关公用，真有你的</blockquote>
+因为只有一关的话就只给3次了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

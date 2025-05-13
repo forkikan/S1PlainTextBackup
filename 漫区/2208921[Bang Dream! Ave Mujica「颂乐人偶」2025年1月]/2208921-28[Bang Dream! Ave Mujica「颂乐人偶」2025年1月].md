@@ -1953,3 +1953,292 @@ b站收藏集动态表情已出
 [https://x.com/bang_dream_info/status/1921837750220624307](https://x.com/bang_dream_info/status/1921837750220624307)
 [https://t.co/oWFF3pYfOP](https://t.co/oWFF3pYfOP)
 
+
+*****
+
+####  cherryjia12  
+##### 40877#       发表于 2025-5-11 23:50
+
+怎么感觉无论是网上还是身边统计学，补番党的评价都还不错？
+
+有空再把鸡看一遍吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">说不定会有不同的感受
+
+*****
+
+####  路人庚  
+##### 40878#       发表于 2025-5-12 00:12
+
+补番的情绪是不断开的，不会因为前面很多集最后几分钟来个爆点发酵一周，然后发现下集开头2分钟轻轻带过
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 40879#       发表于 2025-5-12 00:22
+
+米泽茜和反田又怎么了，怎么肥肥突然造反了。
+
+*****
+
+####  影伴光生  
+##### 40880#       发表于 2025-5-12 01:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在还来补番的一般都在事前听到了评价很烂，但是一口气看完还真没有每周一追那么烂
+
+—— 来自 vivo V2302A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  仟音一心  
+##### 40881#       发表于 2025-5-12 06:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67804398&amp;ptid=2208921" target="_blank">綺々羅々ヴィヴ 发表于 2025-5-12 00:22</a>
+米泽茜和反田又怎么了，怎么肥肥突然造反了。</blockquote>
+米泽茜楼上我转了，反田叶月有情况吗？我没看到。
+
+*****
+
+####  仟音一心  
+##### 40882#       发表于 2025-5-12 06:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67802898&amp;ptid=2208921" target="_blank">aptx8285144 发表于 2025-5-11 14:49</a>
+竟然3月就有一次了，真是草台班子或者说一群没有爱心的组织者</blockquote>
+草台班子是一个方面，当事人事实上也是不太会偶像营业的，所以出这种问题也是迟早的，只能说二偶这碗饭确实不是人人都能吃。
+
+*****
+
+####  堀内爱里衣  
+##### 40883#       发表于 2025-5-12 07:53
+
+ 本帖最后由 堀内爱里衣 于 2025-5-12 08:15 编辑 
+
+<strong>[完整中字]爱美的'話しTARINAI！キズナラジオ!'嘉宾：小日向美香&amp;高尾奏音</strong> <blockquote><hr class="l"/)
+
+<img src="https://img.stage1st.com/forum/202505/12/075303fs4lorkx7wkwbri0.jpg" referrerpolicy="no-referrer">
+
+<strong>e05c328b8943baefd9bcfd260a9f7b35008e1030.jpg</strong> (196.04 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 07:53 上传
+
+部分时间轴：
+[7:41](https://www.bilibili.com/video/BV1FiVdzVEBK/?t=461) 柑弄对母鸡卡动画的感想
+[10:38](https://www.bilibili.com/video/BV1FiVdzVEBK/?t=638) 蜜柑开始学乐器的经历
+[11:59](https://www.bilibili.com/video/BV1FiVdzVEBK/?t=719) 为了邦多利企划而诞生在这世上的弄弄！
+[12:24](https://www.bilibili.com/video/BV1FiVdzVEBK/?t=744) 出现了，弄弄的冷笑话time
+[12:40](https://www.bilibili.com/video/BV1FiVdzVEBK/?t=760) 小时候练琴每天都练到凌晨2点的弄弄
+[16:35](https://www.bilibili.com/video/BV1FiVdzVEBK/?t=995) 鸡狗对邦的幕后故事
+[18:55](https://www.bilibili.com/video/BV1FiVdzVEBK/?t=1135) 两个乐队私下练习时是怎样的？
+[22:48](https://www.bilibili.com/video/BV1FiVdzVEBK/?t=1368) 一切的源头都是我们邦高祖 ksm 的功劳跌丝袜！
+[27:27](https://www.bilibili.com/video/BV1FiVdzVEBK/?t=1647) 附赠环节：超绝展开！弄弄的毕业论文！（建议全看）
+
+弄弄：两位想和我一起写2万字的毕业论文吗～？
+[30:35](https://www.bilibili.com/video/BV1FiVdzVEBK/?t=1835) 原来大伙儿全是熬夜主义
+[30:50](https://www.bilibili.com/video/BV1FiVdzVEBK/?t=1850) 会在半夜2点给蜜柑发消息的弄弄</blockquote>
+[https://www.bilibili.com/video/BV1FiVdzVEBK](https://www.bilibili.com/video/BV1FiVdzVEBK)
+
+*****
+
+####  南宮凝香  
+##### 40884#       发表于 2025-5-12 08:26
+
+補番就沒那麼爛純粹是幸存者偏差
+
+現在才補番的， 要是吃不下去的中途就放棄了
+
+能吃到最後的當然是覺得這屎不算太臭
+
+*****
+
+####  厄神之息  
+##### 40885#       发表于 2025-5-12 14:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">怎么可能不烂，隔一周一追的都有一大堆觉得人物设定人物动机迷之转向很突兀，部分人物塑造公式化严重，每集重复感巨高，连着看这些问题只会更明显。一口气连看12集说还好就三种可能：
+
+1.啥片都看对片也没要求，所以烂片耐受力超绝，平常看的玩意比鸡还烂，人物塑造比鸡更扁平更伪人，自然鸡就一般般。
+
+2.没看过狗，单纯被鸡的烂名吸引，带着绝世烂番的猎奇心理来看，结果没有达到他心理预期的那么烂。
+
+3.超绝对抗性人格，酷爱唱反调显不同，你越喷他越唱反调，你说鸡烂的不行他就说鸡还行你们尬黑，享受的不是看番，享受的是驳斥他人让自己成为宇宙第一理智人的快感。
+
+*****
+
+####  堀内爱里衣  
+##### 40886#       发表于 2025-5-12 14:12
+
+<img src="https://img.stage1st.com/forum/202505/12/141004ckk69isz9sk10v8o.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-05-12_14-08-28.jpg</strong> (328.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 14:10 上传
+
+[https://x.com/HaibuchiYotsuji/status/1921773103870247422](https://x.com/HaibuchiYotsuji/status/1921773103870247422)
+
+<img src="https://img.stage1st.com/forum/202505/12/141046b7pptksbb7pctsak.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-05-12_14-10-29.jpg</strong> (118.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 14:10 上传
+
+[https://x.com/HaibuchiYotsuji/status/1921789338200760695](https://x.com/HaibuchiYotsuji/status/1921789338200760695)
+
+<img src="https://img.stage1st.com/forum/202505/12/141121f96ruwwa59a36rr6.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-05-12_14-10-54.jpg</strong> (137.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 14:11 上传
+
+[https://x.com/HaibuchiYotsuji/status/1921789499354271946](https://x.com/HaibuchiYotsuji/status/1921789499354271946)
+[https://t.co/TmKTb7nbKl](https://t.co/TmKTb7nbKl)
+
+<img src="https://img.stage1st.com/forum/202505/12/141157snmz6fl0flju8fnn.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-05-12_14-11-39.jpg</strong> (119.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 14:11 上传
+
+[https://x.com/HaibuchiYotsuji/status/1921789409495515164](https://x.com/HaibuchiYotsuji/status/1921789409495515164)
+
+*****
+
+####  仟音一心  
+##### 40887#       发表于 2025-5-12 14:55
+
+<img src="https://img.stage1st.com/forum/202505/12/145511xxr2a4ccntpryttm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (67.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 14:55 上传
+
+*****
+
+####  UNISONIA  
+##### 40888#       发表于 2025-5-12 14:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">Mujica补番最大的问题还是跟MyGO补番体验有着巨大的落差感，尤其是对两部连起来同时补的
+
+*****
+
+####  syndrome2032  
+##### 40889#       发表于 2025-5-12 15:07
+
+我还是挺想看鸡狗第三季怎么继续抽鸡团和爆破的。
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 40890#       发表于 2025-5-12 15:08
+
+现充摇滚妹妹玩不来オタサーの姫那一套被宅宅嫌弃咯。
+
+*****
+
+####  南宮凝香  
+##### 40891#       发表于 2025-5-12 15:24
+
+你雞每集都是結束前上爆點
+
+下一集開頭當沒事發生
+
+連吃十二集的我想不到能怎麼反應
+
+*****
+
+####  堀内爱里衣  
+##### 40892#       发表于 2025-5-12 21:10
+
+       <strong>【中字/羊宫妃那】对邦感想＆三次春日影有什么不同＆有注意到站台吗？</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202505/12/211011cmebpp9rmophlp44.jpg" referrerpolicy="no-referrer">
+
+<strong>216091520e12b6e925653b8d9802eea77b4c3237.jpg</strong> (145.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 21:10 上传
+
+<img src="https://img.stage1st.com/forum/202505/12/211010osm4j341iolizl4o.jpg" referrerpolicy="no-referrer">
+
+<strong>MyGO羊宫春日影.jpg</strong> (807.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 21:10 上传
+
+<img src="https://img.stage1st.com/forum/202505/12/211009yj72ss7gikbggdeg.jpg" referrerpolicy="no-referrer">
+
+<strong>CRYCHIC羊宫春日影.jpg</strong> (373.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 21:10 上传
+
+</blockquote>
+       [https://www.bilibili.com/video/BV1VXE3zHEwJ](https://www.bilibili.com/video/BV1VXE3zHEwJ)
+
+*****
+
+####  堀内爱里衣  
+##### 40893#       发表于 2025-5-12 22:19
+
+<img src="https://img.stage1st.com/forum/202505/12/221918h08vdq86udr077wu.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-05-12_22-18-21.jpg</strong> (288.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 22:19 上传
+
+[https://x.com/honhikidashi/status/1920675095342673938](https://x.com/honhikidashi/status/1920675095342673938)
+[https://t.co/KyLgkodUno](https://t.co/KyLgkodUno)
+
+*****
+
+####  堀内爱里衣  
+##### 40894#       发表于 2025-5-12 22:20
+
+<img src="https://img.stage1st.com/forum/202505/12/222028ij8tg2y8qfhcd5fj.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-05-12_22-20-11.jpg</strong> (133.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 22:20 上传
+
+[https://x.com/sasakirico/status/1921819571477979408](https://x.com/sasakirico/status/1921819571477979408)
+[https://www.bilibili.com/video/BV1a4E7zYEMi](https://www.bilibili.com/video/BV1a4E7zYEMi)   &lt;——搬运视频
+
+*****
+
+####  堀内爱里衣  
+##### 40895#       发表于 2025-5-12 22:21
+
+<img src="https://img.stage1st.com/forum/202505/12/222142zyf6l99qkzxwjij9.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-05-12_22-20-51.jpg</strong> (207.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-12 22:21 上传
+
+[https://x.com/bang_dream_info/status/1921837750220624307](https://x.com/bang_dream_info/status/1921837750220624307)
+[https://t.co/oWFF3pYfOP](https://t.co/oWFF3pYfOP)
+
+*****
+
+####  复焙  
+##### 40896#       发表于 2025-5-13 13:45
+
+站在二偶角度补番的观感也好不起来，单纯卖歌上虽然live做得不错，然而live传达的情绪难以共感，谁能告诉我母鸡卡的世界观到底是啥，祥子为什么执着于演人偶舞台剧
+
