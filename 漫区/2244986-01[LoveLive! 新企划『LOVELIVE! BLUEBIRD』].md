@@ -1250,3 +1250,14 @@ mai那张立绘，后面还有polka的没擦干净的图层<img src="https://sta
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">函授制中专没有什么不好的，不要学历骑士
 
+
+*****
+
+####  Nanachi  
+##### 156#       发表于 2025-5-13 10:08
+
+<blockquote>丁真珍珠（汉语名：丁真），2001年5月7日出生于中国四川省甘孜藏族自治州理塘县，中国内地藏族男歌手，四川文化旅游宣传推广大使</blockquote>
+<blockquote>山田真绿 诞生日 5月7日</blockquote>
+
+手里还抱着芝士雪豹，丁真与耗戴油强强联合啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
