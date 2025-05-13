@@ -151,3 +151,18 @@
 
 这魔鬼鱼飞得太快了，没带追踪或者直线激光的话不太好打中
 
+
+*****
+
+####  FLZB  
+##### 5936#       发表于 2025-5-13 21:08
+
+爆裂铳把阿尔法一枪轰飞，无敌，手感比之前强太多了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  九十九忍  
+##### 5937#       发表于 2025-5-13 21:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">一局N7升三级，每把枪单独计算
+
