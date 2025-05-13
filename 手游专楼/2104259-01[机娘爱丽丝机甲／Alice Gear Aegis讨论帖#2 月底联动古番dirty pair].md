@@ -96,3 +96,15 @@ bingo里几个要打的怪都该上哪打（</blockquote>
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  madcow  
+##### 1455#       发表于 2025-5-13 08:12
+
+<blockquote>冰风血羽 发表于 2025-5-12 02:04
+从贴吧拿的，之前打打活动高难调查v2差不多就凑齐了
+
+—— 来自 realme RMX3706, Android 13, 鹅球 v3. ...</blockquote>
+水母十只还有别的地方打吗，战女高任务过了诶（
+

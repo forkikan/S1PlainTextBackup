@@ -412,3 +412,22 @@ ign一年出800个排行榜<img src="https://static.stage1st.com/image/smiley/fa
 
 什么时候能出个最佳排行榜之排行榜
 
+
+*****
+
+####  gane1010  
+##### 51#       发表于 2025-5-13 08:08
+
+估计编辑就玩过这几个吧<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  电磁炮233  
+##### 52#         楼主| 发表于 2025-5-13 08:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67808055&amp;ptid=2251925" target="_blank">zwqcm 发表于 2025-5-13 01:48</a>
+暗喻不比八方2招笑？</blockquote>
+暗喻至少ign给了9分，八方2可是只得了7分还不如一代
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
