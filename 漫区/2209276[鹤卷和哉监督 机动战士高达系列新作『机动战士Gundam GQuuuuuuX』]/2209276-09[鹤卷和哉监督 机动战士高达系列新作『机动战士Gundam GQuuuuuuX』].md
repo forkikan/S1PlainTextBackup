@@ -5959,3 +5959,14 @@ X 上的 #鹿[Shika]™：“マチュとニャアン [https://t.co/IdFF4kZ200�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不是精神小妹为了证明自己能杀人，一个发病把穿梭机砍了结果上面坐着基西莉亚吗
 
+
+*****
+
+####  marlun  
+##### 12287#       发表于 2025-5-13 15:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67809248&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-13 13:17</a>
+
+红高达是单座机，但GQX不是有两套操纵杆吗</blockquote>
+说实话这个坐久肩膀不得酸死
+

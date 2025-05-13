@@ -1391,3 +1391,16 @@ mai那张立绘，后面还有polka的没擦干净的图层<img src="https://sta
 
 所以进路很重要的233
 
+
+*****
+
+####  ads147147  
+##### 171#       发表于 2025-5-13 15:39
+
+ 本帖最后由 ads147147 于 2025-5-13 15:41 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67808734&amp;ptid=2244986" target="_blank">starring 发表于 2025-5-13 10:56</a>
+看了一下山田真绿的设定还有发推，这角色就是个定时炸弹随时有可能说错话炸死企划 ...</blockquote>
+仔细研读了下人设真的是到处都是上个版本环保议题的设计，浑身上下都是地雷，不知道代便怎么想的，不会真觉得纸片人不怕被开盒被曝光吃去边面包吧。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
