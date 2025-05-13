@@ -7571,3 +7571,221 @@ Z里面精神力高达轰炸香港也很超规格，但是除了塑造了一下�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zzf111  
+##### 12443#       发表于 2025-5-14 00:26
+
+钱番那帮和麻球妈死兆星在闪了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+绿叔叔开杀，安琪看着也难度真是原创人物？
+
+结果这集麻球原地踏步连吵架都没有，总不能下集神经病高达和喵安友情问题一集内都解决了
+
+这还剩几集啊这么兜着
+
+*****
+
+####  巴尔干炮  
+##### 12444#       发表于 2025-5-14 00:26
+
+亚赞也要来了吧，目前看这片的老高达要素和新的人物结合的不协调。
+
+*****
+
+####  ティグル  
+##### 12445#       发表于 2025-5-14 00:26
+
+有精神病的话南瓜饼也有了，意思是加米豆腐直接上位把EF夺舍了疯狂扩军吗
+
+*****
+
+####  Humpy  
+##### 12446#       发表于 2025-5-14 00:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811740&amp;ptid=2209276" target="_blank">kenqqex 发表于 2025-5-14 00:24</a>
+竹画风的亚赞真的会有吗?</blockquote>
+你看黑三连这种大叔人设基本按0079的那样来，估计就算有亚赞也不会让竹改太幼吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  伊露伊道格拉斯  
+##### 12447#       发表于 2025-5-14 00:27
+
+<blockquote>YU_JI 发表于 2025-5-14 00:20
+其实也好圆，一年战争红高达搞的大爆炸太显眼了，出乎双方意料，联邦重新重视起高达和新人类方向的研究才 ...</blockquote>
+
+联邦0079都没有赛克缪基础，打赢后有接收吉翁科技才研发的吧。
+
+你这没高达连ms开发都比原版起步晚，也没有吉翁科技，结果反而比原版更早的时间开发出强化人和精神病。
+
+除非真有什么高人送挂，不然我只能理解为为了复刻z情节强制加速了
+
+*****
+
+####  PascalLefèvre  
+##### 12448#       发表于 2025-5-14 00:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811747&amp;ptid=2209276" target="_blank">污陨血红 发表于 2025-5-14 00:26</a></blockquote>
+草这帮人真的搞
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ftyaid  
+##### 12449#       发表于 2025-5-14 00:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811754&amp;ptid=2209276" target="_blank">伊露伊道格拉斯 发表于 2025-5-14 00:27</a>
+
+联邦0079都没有赛克缪基础，打赢后有接收吉翁科技才研发的吧。
+
+你这没高达连ms开发都比原版起步晚，也没 ...</blockquote>
+沙仑的玫瑰在地球，也许是研究这个研究出来的？
+
+*****
+
+####  YU_JI  
+##### 12450#       发表于 2025-5-14 00:29
+
+看样子是想把麻球喵安当双女主方向写，这集从喵安泡澡那个镜头就看出点这意思，现在能理解为什么喵安是二番位了
+
+*****
+
+####  Gaybird  
+##### 12451#       发表于 2025-5-14 00:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811747&amp;ptid=2209276" target="_blank">污陨血红 发表于 2025-5-13 11:26</a></blockquote>
+制作组这帮人真耍疯了
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  zzf111  
+##### 12452#       发表于 2025-5-14 00:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811752&amp;ptid=2209276" target="_blank">Humpy 发表于 2025-5-14 00:27</a>
+
+你看黑三连这种大叔人设基本按0079的那样来，估计就算有亚赞也不会让竹改太幼吧 ...</blockquote>
+我相当不满西姆斯的现代化改造<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+看着敷衍还没独角兽手游的npc立绘用心
+
+*****
+
+####  ティグル  
+##### 12453#       发表于 2025-5-14 00:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811754&amp;ptid=2209276" target="_blank">伊露伊道格拉斯 发表于 2025-5-14 00:27</a>
+
+联邦0079都没有赛克缪基础，打赢后有接收吉翁科技才研发的吧。
+
+你这没高达连ms开发都比原版起步晚，也没 ...</blockquote>
+虽然是灰设，但是ML里奥古斯塔在79年就搞出强化人了
+
+*****
+
+####  希望之异热同心  
+##### 12454#       发表于 2025-5-14 00:30
+
+小番茄好惨啊，说好的欢乐剧情持续到第六集，但第四集开始番茄就一直在精神上被虐，这集直接从头吃瘪到底，看到修斯和喵安包饺子，在学校被老妈骂，想逃离现实去军团战发现被人卖了，学业生活爱情全部受挫，第七集殖民地还遭遇重大变故自己又刚好是第一线亲历参与者。鹤卷哥哥手下留情啊
+
+
+*****
+
+####  污陨血红  
+##### 12455#       发表于 2025-5-14 00:30
+
+<img src="https://img.stage1st.com/forum/202505/14/002956nd3yepgm7tt59emd.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQtuna-az2rK1wT3cSsg-lt.jpg</strong> (70.59 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 00:29 上传
+
+<img src="https://img.stage1st.com/forum/202505/14/002956klfufw3kndcdkf3w.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQtunb-299tZaT3cSqo-eh.jpg</strong> (37.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 00:29 上传
+
+看起来照顾白毛强化人的黄毛是Z里罗莎米亚的队友现代化版本？<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a85982313  
+##### 12456#       发表于 2025-5-14 00:31
+
+下集麻球会大意失亲妈吗
+
+*****
+
+####  Sliurus  
+##### 12457#       发表于 2025-5-14 00:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811691&amp;ptid=2209276" target="_blank">ftyaid 发表于 2025-5-14 00:14</a>
+
+但是这暗杀计划对吗
+
+拿精神力高达暗杀联邦怎么脱身呢？还是说目标不是内战？ ...</blockquote>
+这片里高达是吉翁的象征，说不定是故意做成高达的样子，看起来像吉翁内斗
+
+*****
+
+####  YU_JI  
+##### 12458#       发表于 2025-5-14 00:32
+
+希望下集机战能端上来点好的
+
+*****
+
+####  岸浪白野  
+##### 12459#       发表于 2025-5-14 00:33
+
+ 本帖最后由 岸浪白野 于 2025-5-14 00:34 编辑 
+
+<img src="https://img.stage1st.com/forum/202505/14/003322ycekmbeo37my5x22.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.54 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 00:33 上传
+
+<img src="https://img.stage1st.com/forum/202505/14/003452z2lnygcl70zmzppy.png" referrerpolicy="no-referrer">
+
+<strong>8JVEAK]2TVA7SATP81Z2W~8.png</strong> (3 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 00:34 上传
+
+*****
+
+####  oi99o  
+##### 12460#       发表于 2025-5-14 00:34
+
+玛秋应该是先把和喵安的问题放下，优先安排修司和红高逃亡了，这样不磨叽也挺好的
+
+*****
+
+####  105gun  
+##### 12461#       发表于 2025-5-14 00:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811775&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-14 00:32</a>
+
+希望下集机战能端上来点好的</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我兴奋了半天，看到你这句话我瞬间冷静了
+
+*****
+
+####  oi99o  
+##### 12462#       发表于 2025-5-14 00:36
+
+感觉除了夏利亚，其他旧人物都没有找竹来做人设
+
