@@ -8194,3 +8194,110 @@ hhhh同意 虽然是过渡回还是看爽了（下集能相信你吗鹤卷GG
 
 才知道ｓ１都复活那么久了…主页和app打不开让我无处发病
 
+
+*****
+
+####  普通哈尼  
+##### 12499#       发表于 2025-5-14 01:06
+
+没想到牢巴也来掺一脚了，这白毛萝莉强化人真可爱啊，还有雀斑
+
+*****
+
+####  希望之异热同心  
+##### 12500#       发表于 2025-5-14 01:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811816&amp;ptid=2209276" target="_blank">蕾洁之风 发表于 2025-5-14 00:43</a>
+通辽还行</blockquote>
+奇葩小国“吉翁公国”，神奇组织“提坦斯”，硬核狠人“夏亚”正式接入通辽宇宙<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  猪突猛进R  
+##### 12501#       发表于 2025-5-14 01:07
+
+可爱吧？下集弄死，然后在手游里发给你们<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ku2154513  
+##### 12502#       发表于 2025-5-14 01:07
+
+这精神力高达不会一集就垫了吧
+
+*****
+
+####  伊露伊道格拉斯  
+##### 12503#       发表于 2025-5-14 01:08
+
+<blockquote>花達香奈 发表于 2025-5-14 01:04
+这剧情果然不能细想，联邦居然放天然nt的super ace退役结婚生子，另一边却不当人搞强化人，什么舍近求远 ...</blockquote>
+我懂了，巴斯克是z的，联邦魔女是79的，不同系角色不互通不能一起上场。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zycilcy  
+##### 12504#       发表于 2025-5-14 01:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811868&amp;ptid=2209276" target="_blank">花達香奈 发表于 2025-5-14 01:04</a>
+
+这剧情果然不能细想，联邦居然放天然nt的super ace退役结婚生子，另一边却不当人搞强化人，什么舍近求远 ...</blockquote>
+可以理解为大型组织常有的内部冲突。做强化人的一派估计天天想着把nt踢出去给他们让路呢<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猪突猛进R  
+##### 12505#       发表于 2025-5-14 01:09
+
+硬要解释就是魔女已退役结婚生子，打黑拳只是报私仇。
+
+她虽然是NT但自己不承认，联邦彼时对NT研究还不够深入，所以没盯上她。
+
+*****
+
+####  污陨血红  
+##### 12506#       发表于 2025-5-14 01:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811843&amp;ptid=2209276" target="_blank">伊露伊道格拉斯 发表于 2025-5-14 00:55</a>
+
+联邦连魔鬼鱼都搞出来了，还有类似于提坦斯的特殊部队在活动。
+
+所以联邦魔女是为啥要开着吉翁的牢旧ms，私 ...</blockquote>
+魔女：what can I say?周锦华，你演我啊？有好东西不带我<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猪突猛进R  
+##### 12507#       发表于 2025-5-14 01:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811883&amp;ptid=2209276" target="_blank">zycilcy 发表于 2025-5-14 01:09</a>
+
+可以理解为大型组织常有的内部冲突。做强化人的一派估计天天想着把nt踢出去给他们让路呢 ...</blockquote>
+踢出去？哪有那么好的事。
+
+做强化人那一派直接把NT丽塔做成了凤凰零件呢<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakufa782  
+##### 12508#       发表于 2025-5-14 01:13
+
+精神力mk1是万代当年强行要求富野加入的村上克司的设计，光头很不喜欢，gqx直接跳到mk2的设计完全可以理解
+
+*****
+
+####  YU_JI  
+##### 12509#       发表于 2025-5-14 01:15
+
+军团战第一名的id是twelve olympians，奥林匹亚十二主神，现在被顶包成了titans，泰坦巨人，军团战这ID名字真不是乱取的，早几集的时候怎么就没想到这一层呢？
+
+*****
+
+####  猎人D  
+##### 12510#       发表于 2025-5-14 01:15
+
+虽然看着是汉漠拉比，但可能是GQX的梅塔斯，不过这集看着地球和side6来往蛮正常的，周大佐就敢派精神病过来开片，确实是太狠了
+
