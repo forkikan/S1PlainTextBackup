@@ -176,3 +176,18 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  qwased  
+##### 5939#       发表于 2025-5-14 00:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67810820&amp;ptid=2170852" target="_blank">Dementia 发表于 2025-5-13 19:58</a>
+
+这魔鬼鱼飞得太快了，没带追踪或者直线激光的话不太好打中</blockquote>
+用机枪扫几下就炸了
+
+感觉南线现在带机枪挺无敌的，除了需要蹲下装填以外可以处理一切东西，而且可以开局不带在城里摸一个
+
+估计60发的扩容穿甲解放也能平替，就是要24级太麻烦了
+

@@ -7789,3 +7789,171 @@ Z里面精神力高达轰炸香港也很超规格，但是除了塑造了一下�
 
 感觉除了夏利亚，其他旧人物都没有找竹来做人设
 
+
+*****
+
+####  洛克萨斯  
+##### 12463#       发表于 2025-5-14 00:36
+
+搞不好gq卡缪会比gq骡子早出场啊
+
+*****
+
+####  麻仓月轩  
+##### 12464#       发表于 2025-5-14 00:36
+
+下集机战连武装都没，只剩下贴脸放大招了，引发那啥现象直接赶出side6
+
+*****
+
+####  猪突猛进R  
+##### 12465#       发表于 2025-5-14 00:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811786&amp;ptid=2209276" target="_blank">105gun 发表于 2025-5-14 00:35</a>
+
+我兴奋了半天，看到你这句话我瞬间冷静了</blockquote>
+大型机，别抱太大期望。估计只能看看躲光束了。
+
+GQX和红高的武器现在只剩下光剑和斧头<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sliurus  
+##### 12466#       发表于 2025-5-14 00:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811747&amp;ptid=2209276" target="_blank">污陨血红 发表于 2025-5-14 00:26</a></blockquote>
+富野痴汉屋檐了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Adrenaline!!!  
+##### 12467#       发表于 2025-5-14 00:39
+
+zata全副武装打精神力也挺难看的，何况这两台
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  真爱与热情  
+##### 12468#       发表于 2025-5-14 00:39
+
+一副大的要来的样子，这次能相信鹤卷gg了吗
+
+*****
+
+####  cayon  
+##### 12469#       发表于 2025-5-14 00:39
+
+神棍一号绿叔叔，神棍二号修司，精神力高达难逃一死啊我看是
+
+
+*****
+
+####  麻仓月轩  
+##### 12470#       发表于 2025-5-14 00:40
+
+但是这集是真好看 这个信息密度轰炸 可爽了
+
+各有各的算盘
+
+安琪的门甚至都感觉是故意给麻球留着的
+
+*****
+
+####  ftyaid  
+##### 12471#       发表于 2025-5-14 00:41
+
+感觉是绿叔叔助阵
+
+不然这一把斧头两把光剑也太难打了
+
+*****
+
+####  kenqqex  
+##### 12472#       发表于 2025-5-14 00:41
+
+等村雨2 挂了之后可以立马转生到g世纪里面发给我了(
+
+*****
+
+####  暗黑能乐  
+##### 12473#       发表于 2025-5-14 00:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811802&amp;ptid=2209276" target="_blank">麻仓月轩 发表于 2025-5-14 00:40</a>
+但是这集是真好看 这个信息密度轰炸 可爽了
+
+各有各的算盘
+
+安琪的门甚至都感觉是故意给麻球留着的</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">有啥意义吗，夏利亚的任务让她拷打一下夸克斯驾驶员是吧
+
+—— 来自 HONOR BVL-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  希望之异热同心  
+##### 12474#       发表于 2025-5-14 00:42
+
+ 本帖最后由 希望之异热同心 于 2025-5-14 00:43 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">一个想法，番茄登上高达的初衷其实是反抗压迫，保护弱者，打黑拳其实是迷失了自己的初心，而所以一路打精神上一路吃瘪，第七集剧情在殖民地内和精神感应高达的对战能不能唤醒番茄的初心会是这个人物精神成长的关键
+
+*****
+
+####  蕾洁之风  
+##### 12475#       发表于 2025-5-14 00:43
+
+ 本帖最后由 蕾洁之风 于 2025-5-14 00:44 编辑 
+
+通辽还行<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202505/14/004238wk9svve6zs0s0byi.png" referrerpolicy="no-referrer">
+
+<strong>QQ20250514-003705.png</strong> (15.64 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 00:42 上传
+
+<img src="https://img.stage1st.com/forum/202505/14/004235lxsz97569x7t6l07.png" referrerpolicy="no-referrer">
+
+<strong>Mobile.Suit.Gundam.GQuuuuuuX.S01E06.The.Plot.to.Assassinate.Kycilia.1080p.AMZN.W.png</strong> (3.47 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 00:42 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 民工业| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  ryanghj  
+##### 12476#       发表于 2025-5-14 00:45
+
+玛秋决定和喵安合作对外，打完外战再打内战<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  winda  
+##### 12477#       发表于 2025-5-14 00:45
+
+有种预感，two酱下一话还不会死，她应该是留着等麻球经历过side6集体升天后，最终从玉玉状态走出来复仇祭天的角色吧
+
+*****
+
+####  猪突猛进R  
+##### 12478#       发表于 2025-5-14 00:46
+
+不论神棍力的话，红高不就是78-2，GQX大概GP01水平？绿叔叔的MA也是79年的，纯数值怎么打精神病+汉谟拉比。（联邦这科技树开挂了？）
+
