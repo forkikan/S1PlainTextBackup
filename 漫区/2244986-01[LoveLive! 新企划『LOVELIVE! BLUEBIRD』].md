@@ -1370,3 +1370,11 @@ mai那张立绘，后面还有polka的没擦干净的图层<img src="https://sta
 
 艺人倒是有不少读通信制高中的，普通人读这个基本这辈子就这样了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  diectt  
+##### 169#       发表于 2025-5-13 13:24
+
+学历骑士大可不必，不过拗人设用力过猛拗成弱智又另当别论了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

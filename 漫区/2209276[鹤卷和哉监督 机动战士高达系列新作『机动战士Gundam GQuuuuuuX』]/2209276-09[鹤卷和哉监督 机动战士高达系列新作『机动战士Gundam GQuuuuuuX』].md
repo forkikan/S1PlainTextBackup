@@ -5881,3 +5881,27 @@ X 上的 #鹿[Shika]™：“マチュとニャアン [https://t.co/IdFF4kZ200�
 
 三人两高达很简单，其中一架学国家队就可以了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猪突猛进R  
+##### 12279#       发表于 2025-5-13 13:17
+
+红高达是单座机，但GQX不是有两套操纵杆吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202505/13/131742ab02bbzwzzbny03q.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2025-05-13 131715.png</strong> (36.56 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-13 13:17 上传
+
+
+*****
+
+####  jojonathan  
+##### 12280#       发表于 2025-5-13 13:25
+
+感觉夏利亚没啥动机暗杀基西莉亚<img src="https://static.stage1st.com/image/smiley/carton2017/088.png" referrerpolicy="no-referrer">难道是身在基西莉亚营假装心在夏亚实则心在基连吗x
+

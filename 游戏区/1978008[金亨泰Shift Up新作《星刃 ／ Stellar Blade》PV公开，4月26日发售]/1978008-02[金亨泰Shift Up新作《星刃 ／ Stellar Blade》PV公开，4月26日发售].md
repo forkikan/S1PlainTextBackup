@@ -193,3 +193,17 @@ ps5日版游戏有中配吗
 
 如果是这样的话之前好评如潮的免费服装pc版要多花200块才能拿到<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  11116等  
+##### 1945#       发表于 2025-5-13 13:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67809204&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-5-13 12:57</a>
+索尼发行不可能低价的，我看有人说之前推特泄露过普通版398完全版598
+
+现在的问题是主机版免费送的那些服装 ...</blockquote>
+那就是两个dlc一个一百块这样计算吧，完全版奖励也没说是有新加的25套衣服
+
+—— 来自 OPPO PKB110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
