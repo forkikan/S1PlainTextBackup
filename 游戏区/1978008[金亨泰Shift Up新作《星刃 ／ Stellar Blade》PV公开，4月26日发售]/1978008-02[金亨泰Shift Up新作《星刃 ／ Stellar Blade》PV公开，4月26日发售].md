@@ -250,3 +250,16 @@ ps5日版游戏有中配吗
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">598不是纯割傻逼
 
+
+*****
+
+####  nagitoY  
+##### 1950#       发表于 2025-5-13 14:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67809249&amp;ptid=1978008" target="_blank">11116等 发表于 2025-5-13 13:17</a>
+
+那就是两个dlc一个一百块这样计算吧，完全版奖励也没说是有新加的25套衣服
+
+—— 来自 OPPO PKB110, Andr ...</blockquote>
+ps上尼尔dlc定价1100日元
+
