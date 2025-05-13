@@ -232,3 +232,13 @@ ps5日版游戏有中配吗
 —— 来自 OPPO PKB110, Andr ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这么看的话dlc可够贵的，一个要100块...
 
+
+*****
+
+####  11116等  
+##### 1948#       发表于 2025-5-13 13:54
+
+感觉完全版应该没那么贵吧<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">不过本体售价肯定贵就是了，不然不会一直压缩预售公布时间
+
+—— 来自 OPPO PKB110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
