@@ -9348,3 +9348,75 @@ jzgg再来？<img src="https://static.stage1st.com/image/smiley/face2017/068.png
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  盐盐盐盐盐  
+##### 12609#       发表于 2025-5-14 04:24
+
+看完了，这集文戏信息量真大，下集预告又在立flag了，感觉麻球会因为无法和喵安修司汇合导致暂时两边分头行动，不过修司带着红高能跑哪呢……麻球精神状态越来越堪忧了，又和喵安修司分开的话可以预见接下来几集继续会给她加压，或许最后几集麻球会成为传奇抗压王
+
+*****
+
+####  盐盐盐盐盐  
+##### 12610#       发表于 2025-5-14 04:39
+
+话说有没有说那个强化人小朋友是男的女的（）我怎么感觉像男孩子
+
+*****
+
+####  cih  
+##### 12611#       发表于 2025-5-14 04:58
+
+真就直接上TTS接管联邦啊，联邦果然得是更LOW的反派😂老嗨果然还是真心要让鸡瘟赢麻了。这下可着是宇宙革新纳粹大战地球传统纳粹了🤣，结尾不如还来个第N次冲击让两边都橙汁了吧，这么狗屎的世界线没有未来了（悲）
+
+*****
+
+####  岸浪白野  
+##### 12612#       发表于 2025-5-14 05:01
+
+ 本帖最后由 岸浪白野 于 2025-5-14 05:11 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67812092&amp;ptid=2209276" target="_blank">盐盐盐盐盐 发表于 2025-5-14 04:39</a>
+
+话说有没有说那个强化人小朋友是男的女的（）我怎么感觉像男孩子</blockquote>
+找金元寿子配小男孩也不会这声线啊........更别提胸了
+
+女声优配小男孩和小女孩的区别还是很容易区分的
+
+<img src="https://img.stage1st.com/forum/202505/14/051110bvvbscstco7tk4b3.png" referrerpolicy="no-referrer">
+
+<strong>8X]GIFW)F(G55D0)61.png</strong> (384.32 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 05:11 上传
+
+*****
+
+####  冰风血羽  
+##### 12613#       发表于 2025-5-14 05:19
+
+我看这避难所不用继续造了，整个side6的死兆星都已经kirakira了口牙<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  albertfu  
+##### 12614#       发表于 2025-5-14 05:25
+
+终于大的要来了的感觉，等不及了
+
+*****
+
+####  岸浪白野  
+##### 12615#       发表于 2025-5-14 05:25
+
+ 本帖最后由 岸浪白野 于 2025-5-14 05:27 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67812099&amp;ptid=2209276" target="_blank">冰风血羽 发表于 2025-5-14 05:19</a>
+
+我看这避难所不用继续造了，整个side6的死兆星都已经kirakira了口牙
+
+—— 来自 realme RMX3706, Android 1 ...</blockquote>
+其实是伊泽玛这殖民地遭殃还差不多.......side 6是拥有着两位数殖民卫星的殖民卫星群统称不是什么整个side 6
+
