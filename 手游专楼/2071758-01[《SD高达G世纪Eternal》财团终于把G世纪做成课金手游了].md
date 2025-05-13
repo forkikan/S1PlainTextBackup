@@ -14419,3 +14419,23 @@ Z有ZZ标签
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  clauderayvane  
+##### 1355#       发表于 2025-5-13 15:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67809544&amp;ptid=2071758" target="_blank">马桶3 发表于 2025-5-13 14:36</a>
+
+忘了任务次数是xx难度以上次数而不是xx 难度次数，浪费体力扫了普通难度
+
+—— 来自 vivo V2408A, Android  ...</blockquote>
+感谢感谢 差点也是从普通开始扫了
+
+*****
+
+####  dfdddfdd  
+##### 1356#       发表于 2025-5-13 15:17
+
+这次无脑auto过吧，除非一直在转生<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
