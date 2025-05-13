@@ -5943,3 +5943,19 @@ X 上的 #鹿[Shika]™：“マチュとニャアン [https://t.co/IdFF4kZ200�
 
 实际是原作的死人再死一遍最好编<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zzy516232108  
+##### 12285#       发表于 2025-5-13 15:05
+
+能逃离被火箭筒爆头的命运吗
+
+
+*****
+
+####  暗黑能乐  
+##### 12286#       发表于 2025-5-13 15:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不是精神小妹为了证明自己能杀人，一个发病把穿梭机砍了结果上面坐着基西莉亚吗
+
