@@ -143,3 +143,11 @@
 
 已经解包出来打到上海了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Dementia  
+##### 5935#       发表于 2025-5-13 19:58
+
+这魔鬼鱼飞得太快了，没带追踪或者直线激光的话不太好打中
+

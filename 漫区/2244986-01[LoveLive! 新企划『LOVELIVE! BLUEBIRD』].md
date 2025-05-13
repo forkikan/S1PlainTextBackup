@@ -1560,3 +1560,14 @@ IT小天才应该攻破网校的系统，直击完成课业获得学分才对。
 比如我所知道的这个，最后羊宫都绷 ...</blockquote>
 7那行对日本人有魔力吗 我看都和7这行过不去
 
+
+*****
+
+####  钦念以忱  
+##### 185#       发表于 2025-5-13 20:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67810786&amp;ptid=2244986" target="_blank">zhwpjy 发表于 2025-5-13 19:44</a>
+
+7那行对日本人有魔力吗 我看都和7这行过不去</blockquote>
+7是九九表里最大的质数，可能难度比较高吧
+
