@@ -14594,3 +14594,15 @@ Z（EX）：
 
 魔女最适配的机体可能是BD1，NT否认对上了
 
+
+*****
+
+####  无念  
+##### 1370#       发表于 2025-5-13 23:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811470&amp;ptid=2071758" target="_blank">二阶堂真琉 发表于 2025-5-13 23:27</a>
+魔女最适配的机体可能是BD1，NT否认对上了</blockquote>
+BD1的适应性太惨了，赶紧出个有宇宙的BD3吧，苍白骑士也成
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
