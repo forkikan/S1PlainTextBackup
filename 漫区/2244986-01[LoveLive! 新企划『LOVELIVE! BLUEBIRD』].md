@@ -1261,3 +1261,11 @@ mai那张立绘，后面还有polka的没擦干净的图层<img src="https://sta
 
 手里还抱着芝士雪豹，丁真与耗戴油强强联合啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  osore  
+##### 157#       发表于 2025-5-13 10:15
+
+芝士雪豹不是野生动物不许饲养吗
+
