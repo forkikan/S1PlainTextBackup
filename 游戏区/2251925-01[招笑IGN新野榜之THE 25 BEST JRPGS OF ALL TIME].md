@@ -472,3 +472,16 @@ ign就ignjp的东西还能看看吧<img src="https://static.stage1st.com/image/s
 
 ign的八方1代9.3分，八方2代7分。这是怎么会是呢<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kelveen  
+##### 58#       发表于 2025-5-13 09:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67808118&amp;ptid=2251925" target="_blank">alucardcz 发表于 2025-5-13 06:21</a>
+
+怎么没有缺点 原版有的问题新版都有 例如剧情 后面都是啥
+
+还有战斗系统 初见还行 后期数值崩坏 做出那些个 ...</blockquote>
+SO系列一定要选一个的话必定是SO3 DC，2R那个体量和战斗深度就不要碰瓷了。
+

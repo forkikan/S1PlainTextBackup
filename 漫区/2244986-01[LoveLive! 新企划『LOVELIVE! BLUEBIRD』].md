@@ -1195,3 +1195,43 @@ What is my LIFE?
 作詞 ...</blockquote>
 mai那张立绘，后面还有polka的没擦干净的图层<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仟音一心  
+##### 151#       发表于 2025-5-13 09:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67808358&amp;ptid=2244986" target="_blank">Jobtownb 发表于 2025-5-13 09:27</a>
+
+不是，你高中都不是立德怎么也姓高
+
+—— 来自 S1Fun</blockquote>
+星莲都没人姓高。
+
+*****
+
+####  AraTurambar  
+##### 152#       发表于 2025-5-13 09:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67808334&amp;ptid=2244986" target="_blank">无动于衷 发表于 2025-5-13 09:18</a>
+
+学园偶像甚至可以不用有真的学校是吧</blockquote>
+怎么，青猪剧场版不就告诉我们了通信制也是学校么？
+
+又没有不登校，学校LINE群联络当然也可以当学园偶像。
+
+*****
+
+####  仟音一心  
+##### 153#       发表于 2025-5-13 09:40
+
+我也很想说通信制高中其实也没什么不好的，可问题是：
+
+<img src="https://img.stage1st.com/forum/202505/13/093916rdtx5cagii4kcc69.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (18.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-13 09:39 上传
+
