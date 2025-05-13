@@ -1487,3 +1487,14 @@ mai那张立绘，后面还有polka的没擦干净的图层<img src="https://sta
 
 至于这个10年前的刻板环保少女人设充满了爆雷点，很有VTB营销的风格
 
+
+*****
+
+####  钦念以忱  
+##### 179#       发表于 2025-5-13 17:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67809957&amp;ptid=2244986" target="_blank">osore 发表于 2025-5-13 16:16</a>
+
+都IT小天才了还要倍速刷网课的吗，不是直接后台挂机就成</blockquote>
+IT小天才应该攻破网校的系统，直击完成课业获得学分才对。
+
