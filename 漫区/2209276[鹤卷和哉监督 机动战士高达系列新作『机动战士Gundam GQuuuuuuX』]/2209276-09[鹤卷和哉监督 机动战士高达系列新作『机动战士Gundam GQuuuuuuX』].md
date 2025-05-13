@@ -7050,3 +7050,321 @@ A part 各种暗示有点明显了，wakuwaku
 由手机上传
 2025-5-14 00:06 上传
 
+
+*****
+
+####  伊露伊道格拉斯  
+##### 12387#       发表于 2025-5-14 00:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811633&amp;ptid=2209276" target="_blank">Devola 发表于 2025-5-14 00:03</a>
+
+发现了，主角三人团出场越少，观感就越好
+
+前六集里最有意思的一集</blockquote>
+这两三集一点要有弧光的起色都没啊，只觉得越闹越麻<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（不会真要献祭个牢妈换成长吧）
+
+*****
+
+####  赵姬  
+##### 12388#       发表于 2025-5-14 00:06
+
+要不快进到鸭子扔石头吧<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mr1z  
+##### 12389#       发表于 2025-5-14 00:06
+
+这个信息量太大了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  岸浪白野  
+##### 12390#       发表于 2025-5-14 00:06
+
+[X 上的 機動戦士Gundam GQuuuuuuX（ジークアクス）：“◤挿入歌◢ 本日初公開された第6話の挿入歌、#NOMELONNOLEMON さんの「#きえない」は、本作のために書き下ろされた楽曲となっています！ こちらは5/14(水)24:00（＝5/15(木)0:00）より、各種音楽配信サービスにて配信開始！ ▼配信サービス一覧 [url]https://t.co/S4VxYGmpV0](https://x.com/G_GQuuuuuuX/status/1922321478516658590) #GQuuuuuuX #ジークアクス [https://t.co/xqdc0ge3fF](https://t.co/xqdc0ge3fF)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/14/000645m4vcdc2ng7rnm2ur.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (967.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 00:06 上传
+
+*****
+
+####  猪突猛进R  
+##### 12391#       发表于 2025-5-14 00:06
+
+不仅是队友，还是露莎美的假哥哥。
+
+*****
+
+####  ftyaid  
+##### 12392#       发表于 2025-5-14 00:07
+
+我要盲猜精神力高达杀番茄妈然后番茄暴走了！
+
+*****
+
+####  PascalLefèvre  
+##### 12393#       发表于 2025-5-14 00:07
+
+叛逆小孩也还好吧，这才哪到哪，感觉甚至没有赶上现实中前30%最叛逆的那批的叛逆程度
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  huanzhi  
+##### 12394#       发表于 2025-5-14 00:07
+
+气质还蛮像，一代人有一代人的村雨凤嘛……
+
+*****
+
+####  大十字紅朔  
+##### 12395#       发表于 2025-5-14 00:07
+
+UC里我唯一喜欢的就是精神力高达来着
+
+但是不喜欢MK2……EMMM
+
+*****
+
+####  猪突猛进R  
+##### 12396#       发表于 2025-5-14 00:08
+
+不是MK2，只不过是紫色。
+
+*****
+
+####  Devola  
+##### 12397#       发表于 2025-5-14 00:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811647&amp;ptid=2209276" target="_blank">renkan119 发表于 2025-5-14 00:06</a>
+
+这集这小哥原来是当年罗沙米亚的队友 Z里实在太酱油了 完全没注意到</blockquote>
+盖茨先生，这次你作为哥哥的位置还会被抢走第二次吗
+
+*****
+
+####  Toby_dak  
+##### 12398#       发表于 2025-5-14 00:09
+
+所以麻球妈什么时候装罐<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大十字紅朔  
+##### 12399#       发表于 2025-5-14 00:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811576&amp;ptid=2209276" target="_blank">白色池塘 发表于 2025-5-13 23:56</a>
+
+踏玛的，我讨厌过渡集
+
+话说这集巴斯克欧姆手下的金毛男就是Z里给罗莎米当哥哥的那个强化人吧，Z里好像还不 ...</blockquote>
+白毛
+
+这人在机战里比在动画里有存在感
+
+虽然出场次数并不多
+
+
+*****
+
+####  newise  
+##### 12400#       发表于 2025-5-14 00:10
+
+等了二十几年才出精神病mk2的胶，来这么一下要降价很难了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  猪突猛进R  
+##### 12401#       发表于 2025-5-14 00:10
+
+TTS都有了，正版哈曼也不远了吧？
+
+*****
+
+####  whzfjd  
+##### 12402#       发表于 2025-5-14 00:10
+
+对小孩那么苛刻吗，这集那种害怕因为地理变动而关系疏远的感觉可太青少年了，至少现在没做啥利己损人的事，还好吧
+
+*****
+
+####  suzakushi  
+##### 12403#       发表于 2025-5-14 00:10
+
+不讲神人主角团后观感提升了好多。番茄这个角色真是越看越烦，一开始外形带来的好感已经全都败光了。
+
+*****
+
+####  chondroitin  
+##### 12404#       发表于 2025-5-14 00:10
+
+精神力高达(GQ ver.) 哈压库哈压库
+
+*****
+
+####  岸浪白野  
+##### 12405#       发表于 2025-5-14 00:11
+
+<img src="https://img.stage1st.com/forum/202505/14/001119u6dpux9cezl00lvu.jpg" referrerpolicy="no-referrer">
+
+<strong>@FKSJGU$}%QE(Z~H213DJ}R_tmb.jpg</strong> (93.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 00:11 上传
+
+*****
+
+####  Toby_dak  
+##### 12406#       发表于 2025-5-14 00:11
+
+magnet:?xt=urn:btih:48008fe44a0a4480f8cdfece3e5baf4b34b97264&amp;dn=%5BNew-raws%5D%20Kidou%20Senshi%20Gundam%20GQuuuuuuX%20-%2006%20%5B1080p%5D%20%5BAMZN%5D.mkv&amp;tr=http%3A%2F%2Fnyaa.tracker.wf%3A7777%2Fannounce&amp;tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&amp;tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&amp;tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&amp;tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce
+
+扔个磁链。
+
+*****
+
+####  Humpy  
+##### 12407#       发表于 2025-5-14 00:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811669&amp;ptid=2209276" target="_blank">chondroitin 发表于 2025-5-14 00:10</a>
+精神力高达(GQ ver.) 哈压库哈压库</blockquote>
+大型机会快速模型化吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白色池塘  
+##### 12408#       发表于 2025-5-14 00:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811661&amp;ptid=2209276" target="_blank">大十字紅朔 发表于 2025-5-14 00:09</a>
+
+白毛
+
+这人在机战里比在动画里有存在感
+
+虽然出场次数并不多</blockquote>
+坦白说这现代化改造以后感觉画得不如以前帅，要改就应该像夏利亚那样大改一番<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Humpy  
+##### 12409#       发表于 2025-5-14 00:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811671&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-14 00:11</a></blockquote>
+还有汉谟拉比？
+
+*****
+
+####  ティグル  
+##### 12410#       发表于 2025-5-14 00:12
+
+我懂了，前半膜79后半致敬Z
+
+但是这个长得跟精神病mk2一样的精神病是怎么出现在宇宙的？
+
+*****
+
+####  猪突猛进R  
+##### 12411#       发表于 2025-5-14 00:12
+
+亚赞必须有啊。
+
+*****
+
+####  57042711  
+##### 12412#       发表于 2025-5-14 00:13
+
+这么大只的机体说运就运进来了，联邦真的好可怕<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  七七見奈波  
+##### 12413#       发表于 2025-5-14 00:13
+
+下集这么一闹side6能活几个人都难说，别是最后side6整个完蛋了，只有三个小孩带着俩高达一哈罗一钢奇和索顿下地球了。说来提坦斯往side1灌毒气正好就是85年，只不过是7月31号，时间上有一个多月的距离
+
+*****
+
+####  azbhg1  
+##### 12414#       发表于 2025-5-14 00:14
+
+怕不是除了奶奶头，Z的角色都想用<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ftyaid  
+##### 12415#       发表于 2025-5-14 00:14
+
+但是这暗杀计划对吗
+
+拿精神力高达暗杀联邦怎么脱身呢？还是说目标不是内战？
+
+*****
+
+####  windlikeman  
+##### 12416#       发表于 2025-5-14 00:14
+
+这集交友关系和家庭关系给玛秋压力上满 博美犬小哥还堵了后路 精神状态也和外部局势一样只差临门一脚了 
+
+*****
+
+####  a85982313  
+##### 12417#       发表于 2025-5-14 00:14
+
+实时收视率约2.64
+
+<img src="https://img.stage1st.com/forum/202505/14/001432k2vwr6tw6pjxqvx6.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20250514001350.png</strong> (179.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 00:14 上传
+
+*****
+
+####  污陨血红  
+##### 12418#       发表于 2025-5-14 00:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+85年就是为了避开希洛克，然后只避开了希洛克是吧
+
+奶奶头：你们甚至不给我一个人op叫喊的镜头()
+
+哦，还有哈曼sama()
+
+*****
+
+####  岸浪白野  
+##### 12419#       发表于 2025-5-14 00:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811671&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-14 00:11</a></blockquote>
+
+<img src="https://img.stage1st.com/forum/202505/14/001503gezbtpkwgw24wwww.jpg" referrerpolicy="no-referrer">
+
+<strong>~V5SU~EKU6TD((R2ID23M`Y.jpg</strong> (140.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 00:15 上传
+
+*****
+
+####  Humpy  
+##### 12420#       发表于 2025-5-14 00:15
+
+说起来下集搞这么大真的能算冷战氛围么<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
