@@ -14369,3 +14369,25 @@ Z有ZZ标签
 
 —— 来自 OPPO PKH110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  arthes  
+##### 1350#       发表于 2025-5-13 14:11
+
+出击的时候大气层燃烧，以及阿姆罗所过嘎，都不是必定ur演出<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，我也遇到过
+字体蓝紫渐变才是必定ur，关电视和雪拉是必然限定
+
+
+*****
+
+####  远野乙姬  
+##### 1351#       发表于 2025-5-13 14:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67809434&amp;ptid=2071758" target="_blank">arthes 发表于 2025-5-13 14:11</a>
+出击的时候大气层燃烧，以及阿姆罗所过嘎，都不是必定ur演出，我也遇到过
+字体蓝紫渐变才是必定ur，关电视 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">谢谢解惑，破游戏好浪费感情
+
+—— 来自 OPPO PKH110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+

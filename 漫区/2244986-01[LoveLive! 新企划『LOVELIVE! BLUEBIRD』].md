@@ -1378,3 +1378,16 @@ mai那张立绘，后面还有polka的没擦干净的图层<img src="https://sta
 
 学历骑士大可不必，不过拗人设用力过猛拗成弱智又另当别论了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cxj649  
+##### 170#       发表于 2025-5-13 14:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67809183&amp;ptid=2244986" target="_blank">北条早苗 发表于 2025-5-13 12:51</a>
+
+艺人倒是有不少读通信制高中的，普通人读这个基本这辈子就这样了</blockquote>
+然后LL前几代就是高中读完就退役的设定<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+所以进路很重要的233
+
