@@ -5905,3 +5905,19 @@ X 上的 #鹿[Shika]™：“マチュとニャアン [https://t.co/IdFF4kZ200�
 
 感觉夏利亚没啥动机暗杀基西莉亚<img src="https://static.stage1st.com/image/smiley/carton2017/088.png" referrerpolicy="no-referrer">难道是身在基西莉亚营假装心在夏亚实则心在基连吗x
 
+
+*****
+
+####  ykyin09  
+##### 12281#       发表于 2025-5-13 13:28
+
+指不定夏利亚觉得是夏亚为了保护紫婆牺牲了，现在借红色高达把紫婆吸引过来干掉复仇<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  AvenueIII  
+##### 12282#       发表于 2025-5-13 13:32
+
+卡斯巴尔为了保护格拉纳达死了！
+

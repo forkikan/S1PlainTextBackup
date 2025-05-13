@@ -207,3 +207,28 @@ ps5日版游戏有中配吗
 
 —— 来自 OPPO PKB110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  龘䶛䨻䎱㸞蚮䡶  
+##### 1946#       发表于 2025-5-13 13:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67808872&amp;ptid=1978008" target="_blank">lpzhg 发表于 2025-5-13 11:28</a>
+没有
+
+—— 来自 OnePlus PJZ110, Android 15, 鹅球 v3.5.99-alpha</blockquote>
+日版是不是和港版存档互通的？我想用中配玩个二周目买个港版盘应该可以直接进二周目吧？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Andariel  
+##### 1947#       发表于 2025-5-13 13:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67809249&amp;ptid=1978008" target="_blank">11116等 发表于 2025-5-13 13:17</a>
+那就是两个dlc一个一百块这样计算吧，完全版奖励也没说是有新加的25套衣服
+
+—— 来自 OPPO PKB110, Andr ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这么看的话dlc可够贵的，一个要100块...
+
