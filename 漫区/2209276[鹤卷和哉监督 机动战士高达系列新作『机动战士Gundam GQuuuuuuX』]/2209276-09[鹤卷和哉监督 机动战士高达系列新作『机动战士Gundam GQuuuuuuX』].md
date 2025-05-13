@@ -5855,3 +5855,11 @@ X 上的 #鹿[Shika]™：“マチュとニャアン [https://t.co/IdFF4kZ200�
 
 不过就算不和解，只要不沦为对鬼火少年一见钟情后纯恋爱脑就还有救，看鹤卷榎户发挥
 
+
+*****
+
+####  バーチャルS1er  
+##### 12276#       发表于 2025-5-13 12:32
+
+现在最大的问题是三个人两台高达，要怎么分高达呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -14287,3 +14287,11 @@ Z有ZZ标签
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  rockroxas  
+##### 1341#       发表于 2025-5-13 12:26
+
+骰子高达居然是Z高达时代，还以为是G世纪
+
