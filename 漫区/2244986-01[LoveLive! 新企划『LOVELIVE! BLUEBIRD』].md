@@ -1306,3 +1306,18 @@ mai那张立绘，后面还有polka的没擦干净的图层<img src="https://sta
 手里还抱着芝士雪豹，丁真与耗戴油强强联合啊</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">别真是丁真影响的吧
 
+
+*****
+
+####  starring  
+##### 162#       发表于 2025-5-13 10:56
+
+看了一下山田真绿的设定还有发推，这角色就是个定时炸弹随时有可能说错话炸死企划
+
+*****
+
+####  LeonsCat  
+##### 163#       发表于 2025-5-13 10:57
+
+有点过于刻意拗人设了。。。
+

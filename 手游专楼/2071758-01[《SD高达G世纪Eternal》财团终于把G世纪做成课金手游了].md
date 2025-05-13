@@ -14175,3 +14175,11 @@ B站很多EX关低配打法的，虽然作业不能硬抄，而且走位和谁�
 我参考的是这个攻略，只要撑过第一回合，后面的就可以随机应变了
 [https://www.bilibili.com/video/B ... arch-card.all.click](https://www.bilibili.com/video/BV1mtVNz1EBp/?spm_id_from=333.337.search-card.all.click)
 
+
+*****
+
+####  12481632  
+##### 1329#       发表于 2025-5-13 11:05
+
+先抽个铁奥，Z再观察下要不要砸石头进去
+
