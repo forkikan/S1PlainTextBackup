@@ -9338,3 +9338,13 @@ jzgg再来？<img src="https://static.stage1st.com/image/smiley/face2017/068.png
 找金元寿子配小男孩也不会这声线啊........
 女声优配小男孩和小女孩的区别还是很容易区分的
 
+
+*****
+
+####  冰风血羽  
+##### 12608#       发表于 2025-5-14 05:19
+
+我看这避难所不用继续造了，整个side6的死兆星都已经kirakira了口牙<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
