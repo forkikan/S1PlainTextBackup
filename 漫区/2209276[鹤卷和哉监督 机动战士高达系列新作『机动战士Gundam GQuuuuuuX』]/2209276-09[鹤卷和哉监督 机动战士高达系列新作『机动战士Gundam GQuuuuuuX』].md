@@ -9221,3 +9221,13 @@ jzgg再来？<img src="https://static.stage1st.com/image/smiley/face2017/068.png
 
 亚赞出场的话还会说大冢芳忠配吗
 
+
+*****
+
+####  ryanghj  
+##### 12601#       发表于 2025-5-14 03:50
+
+这种谍战+冷战热斗的桥段就是冷战风<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+索顿完全是狼人杀现状
+
