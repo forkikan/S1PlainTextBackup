@@ -8917,3 +8917,100 @@ q一串的背景下，85年整出精神病mk2和汉布拉比
 —— 来自 鹅球 v3.3.96 ...</blockquote>
 番茄身上的是朴素的正义感、追求自身的独特性和千禧年后年轻一代精神上普遍的迷茫，我认为这个塑造非常立体。
 
+
+*****
+
+####  爱撕衣魔刃  
+##### 12572#       发表于 2025-5-14 02:19
+
+ 本帖最后由 爱撕衣魔刃 于 2025-5-14 02:20 编辑 
+
+<img src="https://img.nga.178.com/attachments/mon_202505/14/-9lddQtysl-hwxmZbT3cSke-py.jpg" referrerpolicy="no-referrer">应该是MK2，
+
+五炮佬怕不怕？<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202505/14/021944zx1faaji296q01ln.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQtysl-hwxmZbT3cSke-py.jpg</strong> (118.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 02:19 上传
+
+*****
+
+####  岸浪白野  
+##### 12573#       发表于 2025-5-14 02:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67812027&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-14 02:12</a>
+
+我刚想来说这个来着，第一遍看没注意到，刚刚二刷发现这不就是钢坦克吗？
+
+ ...</blockquote>
+没有在楼里说这个，对GQ钢坦克的形象记得清楚还是很容易认的
+
+而且山下自己也说了
+
+<img src="https://img.stage1st.com/forum/202505/14/021956irumpwz2pn3mriai.png" referrerpolicy="no-referrer">
+
+<strong>OPG{%UNE8X7PXWU46TX2EF0.png</strong> (57 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 02:19 上传
+
+*****
+
+####  岸浪白野  
+##### 12574#       发表于 2025-5-14 02:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67812033&amp;ptid=2209276" target="_blank">爱撕衣魔刃 发表于 2025-5-14 02:19</a>
+
+应该是MK2，
+
+五炮佬怕不怕？</blockquote>
+早发过了
+
+*****
+
+####  呼和浩特  
+##### 12575#       发表于 2025-5-14 02:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811954&amp;ptid=2209276" target="_blank">东京打工妹 发表于 2025-5-14 01:33</a>
+
+嚯嚯嚯，这都有通辽看的哦</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">岂可休
+
+*****
+
+####  西洛克  
+##### 12576#       发表于 2025-5-14 02:22
+
+<blockquote>windtrack 发表于 2025-5-14 00:02
+这就进入Z的时段了嘛 这小2看着怎么还没4大</blockquote>
+4在0087年也就16，85年只有14啊
+
+
+*****
+
+####  夜雨秋水  
+##### 12577#       发表于 2025-5-14 02:24
+
+ 本帖最后由 夜雨秋水 于 2025-5-14 02:25 编辑 
+
+这个staff画的兔的常服造型应该就是竹的原设吧，这个大围巾太有感觉了，期待下周或者下下周竹小姐的亲笔。
+
+还有之前某个staff提到过的可爱的角色应该说得就是兔。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  ryanghj  
+##### 12578#       发表于 2025-5-14 02:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67812028&amp;ptid=2209276" target="_blank">zakuace 发表于 2025-5-14 02:12</a>
+
+之前只是感觉修斯比较电波，这集有精神力的驾驶员做对照感觉状态也不妙啊，一个老把高达说的挂嘴边，一个觉 ...</blockquote>
+这集看完我认为高达说的就是借口而已，都是修司自己的想法
+
