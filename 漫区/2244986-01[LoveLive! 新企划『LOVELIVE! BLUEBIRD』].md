@@ -1412,3 +1412,17 @@ mai那张立绘，后面还有polka的没擦干净的图层<img src="https://sta
 
 这个团什么定位？我看那个一单MV好像资源不是很充足啊。
 
+
+*****
+
+####  ads147147  
+##### 173#       发表于 2025-5-13 15:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67809861&amp;ptid=2244986" target="_blank">hijack997 发表于 2025-5-13 15:48</a>
+这个团什么定位？我看那个一单MV好像资源不是很充足啊。</blockquote>
+不好说，形式上像是虹莲的实验性团，但是从推出节奏看像是接续星动画完结，莲不出动画后的有动画的团。。
+
+资源这事怎么说呢，其实日升一直是扣扣搜搜的。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
