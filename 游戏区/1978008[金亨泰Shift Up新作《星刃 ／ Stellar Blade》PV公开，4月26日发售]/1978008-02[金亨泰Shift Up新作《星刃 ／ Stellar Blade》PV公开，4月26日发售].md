@@ -242,3 +242,11 @@ ps5日版游戏有中配吗
 
 —— 来自 OPPO PKB110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  lighttt  
+##### 1949#       发表于 2025-5-13 14:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">598不是纯割傻逼
+
