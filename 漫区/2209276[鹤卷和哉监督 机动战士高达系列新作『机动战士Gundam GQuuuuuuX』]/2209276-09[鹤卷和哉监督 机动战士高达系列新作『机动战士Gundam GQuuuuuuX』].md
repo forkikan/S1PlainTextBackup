@@ -6316,3 +6316,24 @@ AE原本是在月面都市的，这是被自护收编了？
 
 话说哪里有直播看啊？
 
+
+*****
+
+####  岸浪白野  
+##### 12311#       发表于 2025-5-13 22:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811336&amp;ptid=2209276" target="_blank">大十字紅朔 发表于 2025-5-13 22:45</a>
+
+话说哪里有直播看啊？</blockquote>
+[https://web.lovelivegundam.top/#/LoveLive](https://web.lovelivegundam.top/#/LoveLive)
+
+*****
+
+####  大十字紅朔  
+##### 12312#       发表于 2025-5-13 22:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811348&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-13 22:48</a>
+
+https://web.lovelivegundam.top/#/LoveLive</blockquote>
+感谢<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+

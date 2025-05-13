@@ -120,3 +120,49 @@ KEY社（或者说GAL业界）还真喜欢玩这种女鬼桥段啊</blockquote>
 
 说起来lb是没有思念体的，或者说全员都是，所以jc在串线的时候不需要考虑这种中途退场的处理，当然大姐头线还是有类似的味道的。其实无所谓了，26集想啥呢
 
+
+*****
+
+####  evangelina  
+##### 126#       发表于 2025-5-13 22:46
+
+<img src="https://img.stage1st.com/forum/202505/13/224622x5lxi1iiik8ri8rm.jpg" referrerpolicy="no-referrer">
+
+<strong>vfddvi.jpg</strong> (843.34 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-13 22:46 上传
+
+<img src="https://img.stage1st.com/forum/202505/13/224621lmylcrzyn50kmh3k.jpg" referrerpolicy="no-referrer">
+
+<strong>qbjva8vfddvi.jpg</strong> (229.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-13 22:46 上传
+
+<img src="https://img.stage1st.com/forum/202505/13/224616uvp56zmvfepebdkb.jpg" referrerpolicy="no-referrer">
+
+<strong>a8vfddvi.jpg</strong> (656.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-13 22:46 上传
+
+<img src="https://img.stage1st.com/forum/202505/13/224612qpya8xcut650rrca.jpg" referrerpolicy="no-referrer">
+
+<strong>8vfddvi.jpg</strong> (394.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-13 22:46 上传
+
+*****
+
+####  月亮上的珊瑚  
+##### 127#       发表于 2025-5-13 22:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811338&amp;ptid=2044761" target="_blank">evangelina 发表于 2025-5-13 22:46</a></blockquote>
+感觉最后一张图动画比起游戏削了
+

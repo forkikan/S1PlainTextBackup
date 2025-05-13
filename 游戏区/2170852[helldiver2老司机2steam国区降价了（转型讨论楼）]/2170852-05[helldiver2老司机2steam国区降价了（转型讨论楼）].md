@@ -166,3 +166,13 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">一局N7升三级，每把枪单独计算
 
+
+*****
+
+####  风萧飒  
+##### 5938#       发表于 2025-5-13 22:53
+
+听说激光大炮现在是南线轮椅，来把试试
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
