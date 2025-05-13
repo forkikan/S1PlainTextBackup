@@ -5830,3 +5830,18 @@ X 上的 #鹿[Shika]™：“マチュとニャアン [https://t.co/IdFF4kZ200�
 
 总不能让基连就这么躺赢了吧？
 
+
+*****
+
+####  OrianaThomson  
+##### 12273#       发表于 2025-5-13 11:08
+
+紫色老太婆<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秋月孝三  
+##### 12274#       发表于 2025-5-13 11:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卡缪死浮木是为了断绝他避过了风头回去继续做联邦上等公民的路，从而使他有留在布雷克斯&amp;夏亚团体的动机。钉宫太太进玻璃罩的原因目前来看只能是妨碍了麻球在厕妹之路上狂奔，这理由实在过于生草了，所以在编出更合理的理由之前还是谨慎看好钉宫不死
+
