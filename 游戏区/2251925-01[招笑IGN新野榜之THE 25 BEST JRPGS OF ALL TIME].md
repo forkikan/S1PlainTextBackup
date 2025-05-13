@@ -518,3 +518,21 @@ SO系列一定要选一个的话必定是SO3 DC，2R那个体量和战斗深度�
 
 按照国内的斗嘴，这里就有一个不是JRPG的存在，你说是吧，第9名
 
+
+*****
+
+####  TheOccuria  
+##### 63#       发表于 2025-5-13 16:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67807188&amp;ptid=2251925" target="_blank">医生狼多 发表于 2025-5-12 19:19</a>
+
+标题可改成:xb3略强于xg，不如暗喻幻想</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再来一个空之轨迹秒杀异度装甲
+
+*****
+
+####  Vladimeow  
+##### 64#       发表于 2025-5-13 16:33
+
+虽然八方2挺好玩的，但是真不至于放上来
+

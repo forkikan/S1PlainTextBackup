@@ -6002,3 +6002,21 @@ X 上的 #鹿[Shika]™：“マチュとニャアン [https://t.co/IdFF4kZ200�
 
 2025-5-13 16:23 上传
 
+
+*****
+
+####  Gysumitka  
+##### 12289#       发表于 2025-5-13 16:30
+
+AE社怎么在这出现了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mintslime  
+##### 12290#       发表于 2025-5-13 16:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67810001&amp;ptid=2209276" target="_blank">Gysumitka 发表于 2025-5-13 16:30</a>
+
+AE社怎么在这出现了</blockquote>
+好眼力，不仅出现了还换了新logo，看来在地球上也混得还行
+
