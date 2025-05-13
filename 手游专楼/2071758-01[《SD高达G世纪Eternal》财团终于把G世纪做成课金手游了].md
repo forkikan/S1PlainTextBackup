@@ -14566,3 +14566,15 @@ Z（EX）：
 一井要60000，也就是说只要养服大佬硬养5个月，我就能再次凑 ...</blockquote>
 每天50钻，每周角色要求350钻，折合一天100钻，5个月还多出15000，双赢
 
+
+*****
+
+####  无念  
+##### 1367#       发表于 2025-5-13 21:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67810781&amp;ptid=2071758" target="_blank">winder0707 发表于 2025-5-13 19:42</a>
+每天50钻，每周角色要求350钻，折合一天100钻，5个月还多出15000，双赢</blockquote>
+正好半周年，到时候上半非凡强自加飞天魔蟹，下半海牛加夜莺，务必要把你们榨干口牙
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
