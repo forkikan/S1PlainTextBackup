@@ -536,3 +536,11 @@ SO系列一定要选一个的话必定是SO3 DC，2R那个体量和战斗深度�
 
 虽然八方2挺好玩的，但是真不至于放上来
 
+
+*****
+
+####  L.L  
+##### 65#       发表于 2025-5-13 16:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这里面重量级那么多 八方2都算是正常了。
+

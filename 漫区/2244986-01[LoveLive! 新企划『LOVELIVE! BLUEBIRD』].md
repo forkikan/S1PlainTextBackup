@@ -1457,3 +1457,33 @@ mai那张立绘，后面还有polka的没擦干净的图层<img src="https://sta
 
 已经快进了老钟学历歧视了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">行，老钟背负一切
 
+
+*****
+
+####  ParadiseMartyr  
+##### 177#       发表于 2025-5-13 16:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67809959&amp;ptid=2244986" target="_blank">RYURYUTA 发表于 2025-5-13 16:16</a>
+已经快进了老钟学历歧视了行，老钟背负一切
+
+笨蛋人设可以是萌属性，但是rz不是（）
+
+ ...</blockquote>
+阿库娅这种算笨蛋人设还是rz人设？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  三谷歩夢  
+##### 178#       发表于 2025-5-13 16:40
+
+ 本帖最后由 三谷歩夢 于 2025-5-13 16:42 编辑 
+
+如果这个企划是和素晴一样的无厘头搞笑风格那营销一下弱智人设也没问题
+
+那他是吗
+
+至于这个10年前的刻板环保少女人设充满了爆雷点，很有VTB营销的风格
+
