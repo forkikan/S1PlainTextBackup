@@ -6622,3 +6622,431 @@ A part 各种暗示有点明显了，wakuwaku
 
 剩下两个位置原来是新强化人，这集确实有种第二季要开播的感觉
 
+
+*****
+
+####  huanzhi  
+##### 12343#       发表于 2025-5-13 23:56
+
+过渡回啊，下周大的
+
+*****
+
+####  -SLSL-  
+##### 12344#       发表于 2025-5-13 23:57
+
+要爆了！要爆了！要爆了！要爆了！要爆了！要爆了！要爆了！要爆了！要爆了！要爆了！
+
+*****
+
+####  YU_JI  
+##### 12345#       发表于 2025-5-13 23:57
+
+下集这是？麻球黑化？
+
+*****
+
+####  oi99o  
+##### 12346#       发表于 2025-5-13 23:57
+
+叛逆的玛秋<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  七七見奈波  
+##### 12347#       发表于 2025-5-13 23:57
+
+等会儿下集预告是怎么回事<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  暗黑能乐  
+##### 12348#       发表于 2025-5-13 23:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811499&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-13 23:34</a>
+
+首席哥是紫婆的人啊</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这不上周就知道的吗
+
+*****
+
+####  a85982313  
+##### 12349#       发表于 2025-5-13 23:58
+
+风雨欲来了
+
+*****
+
+####  青空独  
+##### 12350#       发表于 2025-5-13 23:58
+
+卧槽，殖民卫星开炮，大的真来了
+
+*****
+
+####  acg_gyanc  
+##### 12351#       发表于 2025-5-13 23:58
+
+预告里燃烧的side6<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  萨尤克  
+##### 12352#       发表于 2025-5-13 23:58
+
+突然加速的展开！
+我现在就想看到第七集，看不到精神力高达要死了要死了要死了<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25019PNF3C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  黒鈴ミヲ  
+##### 12353#       发表于 2025-5-13 23:58
+
+这集还行啊，各种草蛇灰线开始铺了，人也没那么n言t语，下集来点大的<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  暗黑能乐  
+##### 12354#       发表于 2025-5-13 23:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 垃圾屋老板谈这种事连个门都不锁，究极草台
+
+*****
+
+####  弹匣与花窗  
+##### 12355#       发表于 2025-5-13 23:58
+
+下周不熬夜看了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">期待麻球有角色魅力是我的问题，这三个人的关系真就用心去感受啊什么玩意
+
+*****
+
+####  kenqqex  
+##### 12356#       发表于 2025-5-13 23:59
+
+周锦华！tts！
+
+村雨研究所！精神病！
+
+和暴走！！！
+
+*****
+
+####  砂糖续香香  
+##### 12357#       发表于 2025-5-13 23:59
+
+啊？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  岸浪白野  
+##### 12358#       发表于 2025-5-13 23:59
+
+半身
+
+<img src="https://img.stage1st.com/forum/202505/13/235946qnr1ivn1x07iz3r0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.13 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-13 23:59 上传
+
+*****
+
+####  whzfjd  
+##### 12359#       发表于 2025-5-13 23:59
+
+鹤卷哥哥是真的懂，下集直接殖民地内开火，玛秋开眼，精神力高达驾驶员色气，提坦斯也来刷脸。
+
+抓紧这一周时间，在白毛烧成碳之前多吃点色图吧<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  七七見奈波  
+##### 12360#       发表于 2025-5-14 00:00
+
+精神病（误）高达的声优是金元寿子，这是来代替凤的角色？那凤去哪儿了……
+
+
+*****
+
+####  hulaoda007  
+##### 12361#       发表于 2025-5-14 00:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">半小时丰满的信息量。
+
+*****
+
+####  岸浪白野  
+##### 12362#       发表于 2025-5-14 00:00
+
+[X 上的 YY：“第6話ご視聴いただき、ありがとうございました！ 動画で参加しております！ 配信等でもお楽しみください！ #GQuuuuuuX #ジークアクス [url]https://t.co/vnJ4iuMQwu](https://x.com/YY_shibata/status/1922319458875351085)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/14/000030pkcg8wngnndj9ngn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.18 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 00:00 上传
+
+[X 上的 YY：“推しが来た。 #GQuuuuuuX #ジークアクス [url]https://t.co/eQ2nbA6IPK](https://x.com/YY_shibata/status/1922319497316233293)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/14/000051eaaezzra89ophafm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.72 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 00:00 上传
+
+*****
+
+####  暗黑能乐  
+##### 12363#       发表于 2025-5-14 00:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只要不是麻球喵安修斯的部分我觉得就都推进的挺好的，看叛逆期精神小妹开始作是真让我难受，偏偏还是主角
+
+*****
+
+####  秋月孝三  
+##### 12364#       发表于 2025-5-14 00:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下周要上抱憾终身全家桶叻
+
+*****
+
+####  ftyaid  
+##### 12365#       发表于 2025-5-14 00:01
+
+好看的强化人，但是是强化人，还是开精神力高达的强化人
+
+死兆星在闪烁！
+
+*****
+
+####  轮太  
+##### 12366#       发表于 2025-5-14 00:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811610&amp;ptid=2209276" target="_blank">七七見奈波 发表于 2025-5-14 00:00</a>
+
+精神病（误）高达的声优是金元寿子，这是来代替凤的角色？那凤去哪儿了…… ...</blockquote>
+她名字是Two
+
+凤是Four，前后辈
+
+*****
+
+####  二阶堂真琉  
+##### 12367#       发表于 2025-5-14 00:01
+
+挖，精神病MK2
+
+*****
+
+####  acg_gyanc  
+##### 12368#       发表于 2025-5-14 00:02
+
+来的精神病是mk2？
+
+*****
+
+####  windtrack  
+##### 12369#       发表于 2025-5-14 00:02
+
+这就进入Z的时段了嘛<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 这小2看着怎么还没4大
+
+*****
+
+####  岸浪白野  
+##### 12370#       发表于 2025-5-14 00:02
+
+[X 上的 コウダ：“マチュとシュウちゃん、3人で #GQuuuuuuX #ジークアクス [url]https://t.co/wa3AuC1F9V](https://x.com/kouda_nyo/status/1922321043357679816)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/14/000225ogvom2rprkrrnf6k.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.45 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 00:02 上传
+
+*****
+
+####  a85982313  
+##### 12371#       发表于 2025-5-14 00:02
+
+下集终于大的来了
+
+*****
+
+####  奇幻梦境  
+##### 12372#       发表于 2025-5-14 00:02
+
+<img src="https://img.stage1st.com/forum/202505/14/000253h1jc7co1ooh1cm1f.png" referrerpolicy="no-referrer">
+
+<strong>bc0740f9d7fd070eeb002fcece419c66.png</strong> (48.04 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 00:02 上传
+
+<img src="https://img.stage1st.com/forum/202505/14/000303c56bx565utw36tp6.png" referrerpolicy="no-referrer">
+
+<strong>7becd87c6a50047f3d169684edd4dc97.png</strong> (87.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 00:03 上传
+
+*****
+
+####  伊露伊道格拉斯  
+##### 12373#       发表于 2025-5-14 00:03
+
+ 本帖最后由 伊露伊道格拉斯 于 2025-5-14 00:04 编辑 
+
+没有磁力覆膜，没有联邦高达和吉姆，但有精神病mk2，你这科技树有点……<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+不过之前说只能二创0079内容的说法已经不成立了吧，都明牌用Z的内容了。
+
+所谓不想让希洛克登场，应该也只是不想而不是不能。<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猪突猛进R  
+##### 12374#       发表于 2025-5-14 00:03
+
+谁来算算这集有多少人插了死旗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cayon  
+##### 12375#       发表于 2025-5-14 00:03
+
+ 本帖最后由 cayon 于 2025-5-14 00:05 编辑 
+
+下集像是马球让喵安代打，自己去做别的事了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">，马球妈、喵安上司还有博美犬全员铺垫差不多估计下集要死了
+
+*****
+
+####  Devola  
+##### 12376#       发表于 2025-5-14 00:03
+
+发现了，主角三人团出场越少，观感就越好
+
+前六集里最有意思的一集
+
+*****
+
+####  galgamesh11  
+##### 12377#       发表于 2025-5-14 00:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811629&amp;ptid=2209276" target="_blank">伊露伊道格拉斯 发表于 2025-5-14 00:03</a>
+没有磁力覆膜，没有联邦高达，但有精神病mk2，你这科技树有点……
+
+不过之前说只能二创0079内容的说法已经不 ...</blockquote>
+希洛克太超模了（）
+
+*****
+
+####  PascalLefèvre  
+##### 12378#       发表于 2025-5-14 00:04
+
+木星船团......你在哪
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  七七見奈波  
+##### 12379#       发表于 2025-5-14 00:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811618&amp;ptid=2209276" target="_blank">轮太 发表于 2025-5-14 00:01</a>
+
+她名字是Two
+
+凤是Four，前后辈</blockquote>
+啊原来那个名字是Two，我蠢了没意识到<img src="https://static.stage1st.com/image/smiley/face2017/183.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kenqqex  
+##### 12380#       发表于 2025-5-14 00:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看来有机会看到奶奶头了！
+
+*****
+
+####  Gaybird  
+##### 12381#       发表于 2025-5-14 00:05
+
+信息量好大……我的脑子……
+嘻嘻嘻，不如来下注下一集谁有可能便当吧！
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  YU_JI  
+##### 12382#       发表于 2025-5-14 00:05
+
+还真是，三小孩含量越少越好看（）
+
+*****
+
+####  wzm96816  
+##### 12383#       发表于 2025-5-14 00:05
+
+这帮老害肯定是玩嗨了，不过z我得重新补下了，很多细节记不清了。
+
+这集一堆人flag啊。
+
+*****
+
+####  galgamesh11  
+##### 12384#       发表于 2025-5-14 00:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811641&amp;ptid=2209276" target="_blank">kenqqex 发表于 2025-5-14 00:04</a>
+看来有机会看到奶奶头了！</blockquote>
+那还是没有的（）明确说为了避开才选85，除非有第二季
+
+*****
+
+####  新HGCG  
+##### 12385#       发表于 2025-5-14 00:05
+
+白毛的名字是deux，法语的2
+
+*****
+
+####  renkan119  
+##### 12386#       发表于 2025-5-14 00:06
+
+这集这小哥原来是当年罗沙米亚的队友 Z里实在太酱油了 完全没注意到
+
+<img src="https://img.stage1st.com/forum/202505/14/000613ytqmq2ymdos87jsj.png" referrerpolicy="no-referrer">
+
+<strong>EB9AB827A82E412658ECF3741FFACCF7.png</strong> (156.88 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-5-14 00:06 上传
+
+<img src="https://img.stage1st.com/forum/202505/14/000613qmum4q0q4qump0qu.png" referrerpolicy="no-referrer">
+
+<strong>27C37EA13102C49C136CE257E9E48A98.png</strong> (170.37 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-5-14 00:06 上传
+
