@@ -1352,3 +1352,13 @@ mai那张立绘，后面还有polka的没擦干净的图层<img src="https://sta
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  一个陆仁贾  
+##### 167#       发表于 2025-5-13 12:44
+
+实际上日本人对这个学历是什么反应呢？
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

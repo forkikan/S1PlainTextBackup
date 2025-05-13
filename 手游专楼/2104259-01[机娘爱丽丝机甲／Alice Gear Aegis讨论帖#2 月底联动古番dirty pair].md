@@ -108,3 +108,15 @@ bingo里几个要打的怪都该上哪打（</blockquote>
 —— 来自 realme RMX3706, Android 13, 鹅球 v3. ...</blockquote>
 水母十只还有别的地方打吗，战女高任务过了诶（
 
+
+*****
+
+####  冰风血羽  
+##### 1456#       发表于 2025-5-13 12:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67808172&amp;ptid=2104259" target="_blank">madcow 发表于 2025-5-13 08:12</a>
+水母十只还有别的地方打吗，战女高任务过了诶（</blockquote>
+高难第一个图就是
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
