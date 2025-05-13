@@ -2292,3 +2292,20 @@ PS：井上和彦又配了一个渣男，真不能怪我戴有色眼镜瞎想<im
 梳理一下时间线</blockquote>
 第一集外星人的时候说了已经100年没有人类了吧……
 
+
+*****
+
+####  NBXX  
+##### 219#       发表于 2025-5-14 03:31
+
+<img src="https://p.sda1.dev/24/96e8876b24fe92b2cc2a05c70b4f7f61/6.jpg" referrerpolicy="no-referrer">
+
+官推单页小漫画 第6话
+
+*****
+
+####  我是大鲨鱼1453  
+##### 220#       发表于 2025-5-14 03:31
+
+你们都说有一部特别牛逼的星际题材动画要在本季出精神续作，虽然我没看过什么星际牛仔，想必续作一定就是这个银河楼酒店了吧？<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
