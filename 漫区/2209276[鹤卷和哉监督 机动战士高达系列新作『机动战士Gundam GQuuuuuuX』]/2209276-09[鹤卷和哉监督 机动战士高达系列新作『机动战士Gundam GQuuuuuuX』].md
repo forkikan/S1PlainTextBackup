@@ -9079,3 +9079,59 @@ q一串的背景下，85年整出精神病mk2和汉布拉比
 
 拉普拉斯都来了，离谱，那玩意只有ft自己在意呀
 
+
+*****
+
+####  岸浪白野  
+##### 12586#       发表于 2025-5-14 02:45
+
+<img src="https://img.stage1st.com/forum/202505/14/024548h9p7chu7uuhuk9mr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.7 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 02:45 上传
+
+*****
+
+####  ryanghj  
+##### 12587#       发表于 2025-5-14 02:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67812059&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-14 02:45</a></blockquote>
+jzgg再来？<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 12588#       发表于 2025-5-14 02:47
+
+博美到底会是个什么发展方向，如果安琪这集没有在演的话，比起之前天花乱坠的猜测， 现在这个人设意外的……简单，重利又现实的大人，如果随着中期展开就此退场的话，那这个在op占了一段画面的团体也就起到了一个引子的作用，感觉有点过于不重要了（）
+
+*****
+
+####  ミオリネ  
+##### 12589#       发表于 2025-5-14 02:48
+
+《吉翁理工大学应试对策》《永久居留资格申请指南》（中间还夹着一本以鹤卷过去作品为题的《I can Friday by day!』》）
+
+与对未来毫无打算、一味追求非日常的麻球不同，喵安在默默地规划自己的将来
+
+麻球想要喧嚣与梦幻，而喵安向往平淡的日常，而这些恰恰是麻球一直所拥有的
+
+<img src="https://img.stage1st.com/forum/202505/14/021629cnv2t2apejb727vn.jpg" referrerpolicy="no-referrer">
+
+<strong>i.jpeg.jpg</strong> (167.18 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 02:16 上传
+
+
+*****
+
+####  岸浪白野  
+##### 12590#       发表于 2025-5-14 02:50
+
+还有心理书，日历那里有买东西打折，总之说喵安向往玛秋那样的平凡生活就是这样
+
