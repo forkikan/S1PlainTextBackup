@@ -6282,3 +6282,29 @@ AE原本是在月面都市的，这是被自护收编了？
 
 2025-5-13 21:21 上传
 
+
+*****
+
+####  Piano-Forest  
+##### 12308#         楼主| 发表于 2025-5-13 22:02
+
+[https://x.com/_take_oekaki/status/1922290747832692810](https://x.com/_take_oekaki/status/1922290747832692810)
+
+✨✨
+<img src="https://p.sda1.dev/24/659c85bfe3e8dd49676c0c2c30d43fe2/20250513_220127.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 12309#       发表于 2025-5-13 22:03
+
+[X 上的 竹：“✨✨ #GQuuuuuuX #ジークアクス [url]https://t.co/wsps9mNHgp](https://x.com/_take_oekaki/status/1922290747832692810)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/13/220304xsxvuxmcx0tqiejx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (792.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-13 22:03 上传
+
