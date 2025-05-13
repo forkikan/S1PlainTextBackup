@@ -64,3 +64,11 @@ KEY社（或者说GAL业界）还真喜欢玩这种女鬼桥段啊</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">肉眼可见的赶，除了吻戏那段拍的还比较完整，其他剧情都是讲了如讲，有种到剧情点打卡的感觉了，反正是feel，就这么个能力是吧
 
+
+*****
+
+####  大丈夫萌大乃  
+##### 120#       发表于 2025-5-13 08:32
+
+都怪二刺螈天天玩曹操哏,鸥妈出场的时候我不自觉的冒出来女儿没了太太也可以的想法<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

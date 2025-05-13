@@ -14111,3 +14111,23 @@ EX1和EX2太憋屈了，研究半天站位最后都是差一只打不掉<img src
 
 现在到处抄作业打ex才发现那数值太有用了，一台UR战舰伤害和血量拉了2W以上就很舒服……
 
+
+*****
+
+####  劳动改造归来  
+##### 1323#       发表于 2025-5-13 08:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67807530&amp;ptid=2071758" target="_blank">一个陆仁贾 发表于 2025-5-12 21:35</a>
+
+EX1和EX2太憋屈了，研究半天站位最后都是差一只打不掉还是等以后能碾压了再打吧
+
+—— 来自 vivo V2419A, A ...</blockquote>
+B站很多EX关低配打法的，虽然作业不能硬抄，而且走位和谁先手谁先挡枪谁先死都定的比较死，但是只要熟悉了套路，再自己研究一下自己的配置就行，无非就是开头第一回合确保输出不死和让谁先死避免BOSS放地图炮
+
+*****
+
+####  螺旋的小夜曲  
+##### 1324#       发表于 2025-5-13 08:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">上个月不就说了要更新一键开发，都过去半个月了怎么一点动静都没
+
