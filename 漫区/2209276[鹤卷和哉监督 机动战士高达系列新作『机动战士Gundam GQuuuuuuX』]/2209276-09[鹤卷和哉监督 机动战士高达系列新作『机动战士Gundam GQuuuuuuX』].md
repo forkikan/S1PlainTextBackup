@@ -6108,3 +6108,13 @@ ae的新logo也是在强调这里是平行世界吗？
 
 AE在的话 拉普拉斯之盒也会有？
 
+
+*****
+
+####  王留美  
+##### 12299#       发表于 2025-5-13 17:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67809984&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-13 16:23</a>
+ X 上的 REISSUE RECORDS：“━━━━━━━━━━━━━ Plazma / BOW AND ARROW パッケージ写真 ━━━━ ...</blockquote>
+AE？！！！
+
