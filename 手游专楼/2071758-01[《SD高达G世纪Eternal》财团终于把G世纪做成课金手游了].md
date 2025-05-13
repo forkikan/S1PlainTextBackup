@@ -14224,3 +14224,41 @@ ex条件还是放的很宽了
 
 一排UR满级以后打强敌才发现原来是这么简单的auto活动
 
+
+*****
+
+####  captoon  
+##### 1335#       发表于 2025-5-13 11:40
+
+<img src="https://img.stage1st.com/forum/202505/13/113937zub6f1bqbv6fu146.jpg" referrerpolicy="no-referrer">
+
+<strong>DDEE6A629F96534E3833595ED25CAB98.jpg</strong> (279.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-13 11:39 上传
+
+抽了一井
+
+4台Z 1台铁奥 2台贝嫂
+
+Z有ZZ标签
+
+*****
+
+####  zksandy  
+##### 1336#       发表于 2025-5-13 11:40
+
+正义高达确实进了限定池，但是没进可以用票的池啊……
+
+
+*****
+
+####  zksandy  
+##### 1337#       发表于 2025-5-13 11:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67808815&amp;ptid=2071758" target="_blank">ドロロ 发表于 2025-5-13 11:14</a>
+
+这次不去活动池抽了，就退了几十个稀有币</blockquote>
+果然没这么好给你续PT
+
