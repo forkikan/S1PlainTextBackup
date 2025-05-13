@@ -9061,3 +9061,21 @@ q一串的背景下，85年整出精神病mk2和汉布拉比
 
 アマラ.カマラ商会加几笔就是アマンダラ.カマンダラ了,马萨卡....<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ryanghj  
+##### 12584#       发表于 2025-5-14 02:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67812053&amp;ptid=2209276" target="_blank">量产失败型 发表于 2025-5-14 02:37</a>
+
+アマラ.カマラ商会加几笔就是アマンダラ.カマンダラ了,马萨卡....</blockquote>
+单纯的neta重了吧，阿玛拉和卡马拉是20世纪很有名的印度狼孩
+
+*****
+
+####  久保由利香  
+##### 12585#       发表于 2025-5-14 02:41
+
+拉普拉斯都来了，离谱，那玩意只有ft自己在意呀
+
