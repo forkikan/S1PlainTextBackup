@@ -397,3 +397,18 @@ ign一年出800个排行榜<img src="https://static.stage1st.com/image/smiley/fa
 
 而且拿同系列对比的话我觉得肯定不如so3dc so6也不一定打的过 选个so2r 真的很谜<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  祈愿之风  
+##### 49#       发表于 2025-5-13 07:52
+
+轨迹晚了20年上榜，这要20年前进了，当初的轨迹侠不得当圣旨拳打ff脚踢dq，可惜现在轨迹侠都成濒危物种了。
+
+*****
+
+####  科本学士  
+##### 50#       发表于 2025-5-13 07:52
+
+什么时候能出个最佳排行榜之排行榜
+
