@@ -1295,3 +1295,14 @@ mai那张立绘，后面还有polka的没擦干净的图层<img src="https://sta
 
 也不是说学历骑士，别的企划学历不高的也确实不少，但是低到这种程度还要拿这个出来专门营销的多少有点<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lactone  
+##### 161#       发表于 2025-5-13 10:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67808507&amp;ptid=2244986" target="_blank">Nanachi 发表于 2025-5-13 10:08</a>
+
+手里还抱着芝士雪豹，丁真与耗戴油强强联合啊</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">别真是丁真影响的吧
+
