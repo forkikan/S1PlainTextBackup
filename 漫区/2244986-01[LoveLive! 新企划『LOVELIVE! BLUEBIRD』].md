@@ -1517,3 +1517,19 @@ IT小天才应该攻破网校的系统，直击完成课业获得学分才对。
 学编程不学数学只能一辈子当码农，架构师和算法工程师这种高级职业都需要很深的数学知识，至少大学数学课 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个it小天才也很喜欢数学的
 
+
+*****
+
+####  ミオリネ  
+##### 182#       发表于 2025-5-13 18:15
+
+其实现实中也有不少拗乘法表人设的人，我只能说可能日本真有人好这口吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+比如我所知道的这个，最后羊宫都绷不住了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+【【全熟/石见舞菜香/羊宫妃那】石见舞菜香的散步广播3.2线下活动 散步碰！昼场】 【精准空降到 50:32】
+[https://www.bilibili.com/video/B ... d75b6f75f966&amp;t=3032](https://www.bilibili.com/video/BV17b421a782/?share_source=copy_web&amp;vd_source=dbbf603ff0e99629dda5d75b6f75f966&amp;t=3032)
+
+单独的切片
+[https://youtu.be/aSQ5IfszMl0](https://youtu.be/aSQ5IfszMl0)
+
