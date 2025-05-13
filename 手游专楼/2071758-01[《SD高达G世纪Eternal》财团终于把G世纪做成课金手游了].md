@@ -14277,3 +14277,13 @@ Z有ZZ标签
 
 40抽一个UR没有<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jackyhuang  
+##### 1340#       发表于 2025-5-13 12:22
+
+虽然是可变机，但是不能变形<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
