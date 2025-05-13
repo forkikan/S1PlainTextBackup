@@ -6048,3 +6048,24 @@ X 上的 REISSUE RECORDS：“━━━━━━━━━━━━━ Plazma / B
 
 2025-5-13 16:47 上传
 
+
+*****
+
+####  岸浪白野  
+##### 12293#       发表于 2025-5-13 16:55
+
+【【NOMELON NOLEMON】高达GQuuuuuuX 第6话插曲『きえない（不会消逝）』先行试听】 [https://www.bilibili.com/video/BV1njEczKEYk/](https://www.bilibili.com/video/BV1njEczKEYk/)
+
+
+*****
+
+####  kcalb  
+##### 12294#       发表于 2025-5-13 17:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67809273&amp;ptid=2209276" target="_blank">jojonathan 发表于 2025-5-13 13:25</a>
+
+感觉夏利亚没啥动机暗杀基西莉亚难道是身在基西莉亚营假装心在夏亚实则心在基连吗x ...</blockquote>
+夏利亚成为鸭子代役，也是IF剧情常见收束思路，比如种子结局里即便没那个杂兵，也会换成阿斯兰开枪
+
+或者干脆打算把夏利亚写成“全控”，所以才特意提及奶奶头问题 ，必竟基连和德金等人目前为止既没脸也没人设流出过，12集关底BOSS大概率就在目前已登场的角色中产生。
+
