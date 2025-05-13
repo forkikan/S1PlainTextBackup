@@ -5935,3 +5935,11 @@ X 上的 #鹿[Shika]™：“マチュとニャアン [https://t.co/IdFF4kZ200�
 
 除非他能順手幹掉基連，不然NT的處境會更難過
 
+
+*****
+
+####  ardente  
+##### 12284#       发表于 2025-5-13 14:38
+
+实际是原作的死人再死一遍最好编<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
