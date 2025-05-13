@@ -441,3 +441,26 @@ ign一年出800个排行榜<img src="https://static.stage1st.com/image/smiley/fa
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  cxasuka  
+##### 54#       发表于 2025-5-13 08:58
+
+ign就ignjp的东西还能看看吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  horacio  
+##### 55#       发表于 2025-5-13 09:03
+
+编辑应该大学毕业刚工作几年吧，这么一看合理多了
+
+*****
+
+####  Viteeee  
+##### 56#       发表于 2025-5-13 09:03
+
+如龙8和Xenogear一前一后，你问问龙组他们自己敢不敢这么吹<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
