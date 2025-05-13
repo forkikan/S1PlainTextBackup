@@ -6248,3 +6248,37 @@ AE原本是在月面都市的，这是被自护收编了？
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.46)
 
+
+*****
+
+####  岸浪白野  
+##### 12307#       发表于 2025-5-13 21:23
+
+ 本帖最后由 岸浪白野 于 2025-5-13 21:25 编辑 
+
+其实说到平行世界的对应，吉翁尼克的N也是差异的，所以AE这两个字母的差异就是平行世界的对应
+
+<img src="https://img.stage1st.com/forum/202505/13/212049mht22225d252h20m.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (32.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-13 21:20 上传
+
+<img src="https://img.stage1st.com/forum/202505/13/212105pv5bf5kggbgs281k.png" referrerpolicy="no-referrer">
+
+<strong>U)9Y)9A@`[JM)DV]`@EXN3O.png</strong> (246.04 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-13 21:21 上传
+
+<img src="https://img.stage1st.com/forum/202505/13/212136d2kkg7cibi7gqdvv.png" referrerpolicy="no-referrer">
+
+<strong>N9E_$JENXNJ62}_5%__WOAX.png</strong> (123.56 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-13 21:21 上传
+
