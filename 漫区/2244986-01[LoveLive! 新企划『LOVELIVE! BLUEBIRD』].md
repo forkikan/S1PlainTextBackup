@@ -1321,3 +1321,13 @@ mai那张立绘，后面还有polka的没擦干净的图层<img src="https://sta
 
 有点过于刻意拗人设了。。。
 
+
+*****
+
+####  Jobtownb  
+##### 164#       发表于 2025-5-13 11:47
+
+这个函授学校一开始应该只是为了契合线上活动的背景设定，然后再往人设上加符合这个设定的属性。
+
+不过估计企划方没想到大家对函授学历的反应这么大<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
