@@ -544,3 +544,11 @@ SO系列一定要选一个的话必定是SO3 DC，2R那个体量和战斗深度�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这里面重量级那么多 八方2都算是正常了。
 
+
+*****
+
+####  亚瑟摩根  
+##### 66#       发表于 2025-5-13 18:34
+
+还不如rpgcodex排那个合理
+

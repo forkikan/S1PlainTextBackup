@@ -14485,3 +14485,63 @@ Z有ZZ标签
 一井好贵.. 上一个SF用送的钻差70抽保底靠氪金解决了, 这次的铁奥也好想要. 但是抽到了也是收菜游戏.. ...</blockquote>
 一天三次收菜结束战斗，是在没太多好玩的，还是出个爬塔吧，每天重置楼层，关卡根据强度让ai自动布置，打不过可以花钻或道具让电脑重新自动布置
 
+
+*****
+
+####  里村紅葉  
+##### 1361#       发表于 2025-5-13 18:27
+
+又登顶力<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">养服大佬真多
+
+*****
+
+####  lighttt  
+##### 1362#       发表于 2025-5-13 18:29
+
+又登顶了，姨姥凯子真多啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  二阶堂真琉  
+##### 1363#       发表于 2025-5-13 18:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">多登点，我们无课就靠大佬们养了
+
+*****
+
+####  captoon  
+##### 1364#       发表于 2025-5-13 18:34
+
+5月13日 新卡池简评！
+
+<img src="https://img.stage1st.com/forum/202505/13/182758ddtifoo79d72zf1z.png" referrerpolicy="no-referrer">
+
+<strong>IMG_0364.PNG</strong> (5.26 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-13 18:27 上传
+
+Z（EX）：
+
+++：机体算是EZ8的完全体版，宇+空，移动5
+
++：EX武装虽然威力没有到目前版本MAX，但相差并不大。
+
++：有ZZ剧本标签，对于ZZ HARD剧本苦手的，这台机体包解愁
+
+- ：机体本身不带暴击率。
+
+后期应用上可以考虑选择有加攻精神的驾驶员。卡缪虽然自带+暴击率的技能，但是没有+爆伤技能，实际收益并不是太高
+
+驾驶员
+
+++：觉醒值目前版本最高
+
++ ：有加暴击率 50% 技能
+
+- ：加血技能存在成迷，可能会更加适合在PVP模式里发挥，需要等模式解锁后再有明确定论
+
+暂无法客观评价
+

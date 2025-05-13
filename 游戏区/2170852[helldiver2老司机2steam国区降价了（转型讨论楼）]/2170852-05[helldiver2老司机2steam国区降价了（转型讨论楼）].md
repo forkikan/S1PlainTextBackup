@@ -95,3 +95,13 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真打进超级地球了箭头能不能做一个类似行星边际2的超级大战场，所有潜兵同屏作战
 
+
+*****
+
+####  雨昼斯基  
+##### 5930#       发表于 2025-5-13 18:37
+
+简单算了一下，所有可更换弹匣种类的枪械的弹匣种类，其弹匣数×弹匣容量保持不变，也就是同样的弹药总量放进不同形状的弹匣里。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

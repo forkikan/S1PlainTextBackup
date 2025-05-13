@@ -6132,3 +6132,14 @@ AE？！！！
 
 哈囉盤就只是個膠殼哦？好吧
 
+
+*****
+
+####  梦诗歌雪  
+##### 12301#       发表于 2025-5-13 18:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67797340&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-5-9 16:05</a>
+
+0083的袭击基地的大魔，被电热斧砍入肩部殉爆，不过大魔这个机体机设上是这样的，它其实依然是浑身动力管 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">那大魔这机子有严重设计缺陷啊，经常近身战斗的机子浑身都是致命弱点
+
