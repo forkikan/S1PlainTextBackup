@@ -112,3 +112,11 @@ KEY社（或者说GAL业界）还真喜欢玩这种女鬼桥段啊</blockquote>
 只能说是京阿尼成就了key<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 没了京阿尼key都断气了
 
+
+*****
+
+####  天王寺凯伊姆  
+##### 125#       发表于 2025-5-13 11:32
+
+说起来lb是没有思念体的，或者说全员都是，所以jc在串线的时候不需要考虑这种中途退场的处理，当然大姐头线还是有类似的味道的。其实无所谓了，26集想啥呢
+

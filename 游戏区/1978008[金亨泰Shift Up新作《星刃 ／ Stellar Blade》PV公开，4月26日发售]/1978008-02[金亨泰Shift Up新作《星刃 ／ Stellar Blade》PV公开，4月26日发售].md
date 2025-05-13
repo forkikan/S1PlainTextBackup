@@ -136,3 +136,25 @@ ps5日版游戏有中配吗
 
 nikke dlc看来没啥体量了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lpzhg  
+##### 1940#       发表于 2025-5-13 11:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67808653&amp;ptid=1978008" target="_blank">龘䶛䨻䎱㸞蚮䡶 发表于 2025-5-13 10:40</a>
+ps5日版游戏有中配吗
+
+—— 来自 S1Fun</blockquote>
+没有
+
+—— 来自 OnePlus PJZ110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  herryk159  
+##### 1941#       发表于 2025-5-13 11:35
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">价格怎么还没出
+
