@@ -14152,3 +14152,11 @@ B站很多EX关低配打法的，虽然作业不能硬抄，而且走位和谁�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">修复了白嫖能玩的BUG
 
+
+*****
+
+####  棍机凹升龙  
+##### 1327#       发表于 2025-5-13 09:25
+
+我参考了几个EX1和EX3的   总是差几万，还SP了夸克斯和升了卡斯巴尔 老实等以后放松条件了
+

@@ -1171,3 +1171,27 @@ ena上的也是全日制学校的附属夜间部，而且是艺术生，相对�
 
 单论人设有种10年15年前偶像大师的感觉<img src="https://static.stage1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jobtownb  
+##### 149#       发表于 2025-5-13 09:27
+
+不是，你高中都不是立德怎么也姓高<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Ferrari  
+##### 150#       发表于 2025-5-13 09:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67807337&amp;ptid=2244986" target="_blank">仟音一心 发表于 2025-5-12 20:21</a>
+【【歌词MV】What is my LIFE？- 生活好难部！-哔哩哔哩】 https://b23.tv/ZYcTl6O
+
+What is my LIFE?
+
+作詞 ...</blockquote>
+mai那张立绘，后面还有polka的没擦干净的图层<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

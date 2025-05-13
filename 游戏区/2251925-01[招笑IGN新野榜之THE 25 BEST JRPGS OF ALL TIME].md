@@ -464,3 +464,11 @@ ign就ignjp的东西还能看看吧<img src="https://static.stage1st.com/image/s
 
 如龙8和Xenogear一前一后，你问问龙组他们自己敢不敢这么吹<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  soraspy  
+##### 57#       发表于 2025-5-13 09:26
+
+ign的八方1代9.3分，八方2代7分。这是怎么会是呢<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

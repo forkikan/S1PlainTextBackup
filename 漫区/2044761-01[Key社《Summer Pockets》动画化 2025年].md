@@ -82,3 +82,16 @@ KEY社（或者说GAL业界）还真喜欢玩这种女鬼桥段啊</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  乙津夢  
+##### 122#       发表于 2025-5-13 09:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67808273&amp;ptid=2044761" target="_blank">swessia 发表于 2025-5-13 08:57</a>
+
+虽然知道gal改要换线，但一想到下一集还是很难崩
+
+—— 来自 鹅球 v3.3.96</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">制作组也知道观众会觉得难绷，所以都提前派umi出来打预防针啦
+
