@@ -176,3 +176,20 @@ ps5日版游戏有中配吗
 
 —— 来自 Sony XQ-EC72, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Andariel  
+##### 1944#       发表于 2025-5-13 12:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67808634&amp;ptid=1978008" target="_blank">张叔夜 发表于 2025-5-13 10:36</a>
+
+如果剑星的价格不是特别贵的话，那简直就是完美契合steam国区评论区的喜好。
+
+大作，有涩涩，移植pc后还加 ...</blockquote>
+索尼发行不可能低价的，我看有人说之前推特泄露过普通版398完全版598
+
+现在的问题是主机版免费送的那些服装是不是pc版要购买完全版才能拿到了
+
+如果是这样的话之前好评如潮的免费服装pc版要多花200块才能拿到<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
