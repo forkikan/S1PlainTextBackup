@@ -191,3 +191,11 @@
 
 估计60发的扩容穿甲解放也能平替，就是要24级太麻烦了
 
+
+*****
+
+####  Fake_news  
+##### 5940#       发表于 2025-5-14 01:00
+
+新bug太变态了，搓出球后按住ctrl同时点左键丢出去，就会享受到不拉屎将军级别的战备了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

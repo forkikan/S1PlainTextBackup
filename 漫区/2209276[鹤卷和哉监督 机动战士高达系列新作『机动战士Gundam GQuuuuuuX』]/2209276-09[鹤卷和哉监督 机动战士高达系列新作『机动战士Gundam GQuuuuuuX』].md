@@ -8058,3 +8058,139 @@ hhhh同意 虽然是过渡回还是看爽了（下集能相信你吗鹤卷GG
 
 这联邦第一ace的消息也太不灵通了吧，而且巴斯克不会去挖角吗，对吉翁有仇的士兵不就是最合适加入tts的吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刺客ares  
+##### 12487#       发表于 2025-5-14 00:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811830&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-14 00:50</a>
+
+继续I can Friday by day的彩蛋</blockquote>
+这个曹长在短片里是女主脑中三松鼠里唯一死掉的那个
+
+白毛妹危<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sliurus  
+##### 12488#       发表于 2025-5-14 00:58
+
+话说绿叔叔真有种79鸭的感觉，性格阴险，行为滑稽
+
+*****
+
+####  岸浪白野  
+##### 12489#       发表于 2025-5-14 01:01
+
+<img src="https://img.stage1st.com/forum/202505/14/010125sjtm62khzmm99ztl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (257.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 01:01 上传
+
+<img src="https://img.stage1st.com/forum/202505/14/010120nqwvwq6wiohnnkzj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (65.98 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 01:01 上传
+
+*****
+
+####  sauron.j  
+##### 12490#       发表于 2025-5-14 01:02
+
+总算搞出点属于自己的内容了，后半要是打戏能支棱起来可以完全和解<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  岸浪白野  
+##### 12491#       发表于 2025-5-14 01:02
+
+ 本帖最后由 岸浪白野 于 2025-5-14 01:04 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811847&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-5-14 00:57</a>
+
+这个曹长在短片里是女主脑中三松鼠里唯一死掉的那个
+
+白毛妹危</blockquote>
+对的，就它是死了的
+
+<img src="https://img.stage1st.com/forum/202505/14/010439wxvqrjvrpr3tlarv.png" referrerpolicy="no-referrer">
+
+<strong>U1(H7`@EO{0GGB3[N_[N{BW.png</strong> (713.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 01:04 上传
+
+*****
+
+####  猪突猛进R  
+##### 12492#       发表于 2025-5-14 01:04
+
+这集回收了喵安的这个表情，不过已经无人在意了。
+
+<img src="https://img.stage1st.com/forum/202505/14/010402kxcxw7wdk00770xw.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQtsox-gpvfK1dT3cSsg-g0.jpg.medium.jpg</strong> (27.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 01:04 上传
+
+*****
+
+####  zycilcy  
+##### 12493#       发表于 2025-5-14 01:04
+
+鹤卷太狠了，本来以为打击番茄就是简单的用“失去独特性+ntr”，结果还要加上献祭side6吗？
+
+这集的母女矛盾，就是给死老妈做铺垫吧？博美犬估计也要死掉一半？
+
+*****
+
+####  披头破落户  
+##### 12494#       发表于 2025-5-14 01:04
+
+这精神力高达还能变形吗
+
+—— 来自 vivo V2329A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  mintslime  
+##### 12495#       发表于 2025-5-14 01:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811850&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-5-14 00:58</a>
+
+话说绿叔叔真有种79鸭的感觉，性格阴险，行为滑稽</blockquote>
+想到绿叔叔到目前为止运筹帷幄，把首席玩弄于股掌之间，自己准备开MA辛辛苦苦下了一盘大旗，最后可能只是为了见夏亚一面，就觉得这一切行为都抽象了起来，发配和麻球坐恋爱脑那桌
+
+*****
+
+####  花達香奈  
+##### 12496#       发表于 2025-5-14 01:04
+
+这剧情果然不能细想，联邦居然放天然nt的super ace退役结婚生子，另一边却不当人搞强化人，什么舍近求远<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我聞如是  
+##### 12497#       发表于 2025-5-14 01:05
+
+曹長啊
+
+會擋槍擋到死掉嗎？
+
+*****
+
+####  dafangwoo  
+##### 12498#       发表于 2025-5-14 01:05
+
+才知道ｓ１都复活那么久了…主页和app打不开让我无处发病
+
