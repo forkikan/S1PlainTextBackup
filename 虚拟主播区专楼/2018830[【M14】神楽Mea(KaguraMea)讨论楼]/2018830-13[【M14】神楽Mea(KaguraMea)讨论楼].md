@@ -7061,3 +7061,16 @@ dot伤害。等一下抱歉。原来是这么回事？一直以为是...  
 火神蛾:</blockquote>
 滝沢ガレソ，相当于主阵地是推特的コレコレ，最大的特点是玩过lol
 
+
+*****
+
+####  术士q  
+##### 18468#       发表于 2025-5-13 19:33
+
+ 本帖最后由 术士q 于 2025-5-13 19:36 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67810692&amp;ptid=2018830" target="_blank">TiHaru 发表于 2025-5-13 19:21</a>
+滝沢ガレソ，相当于主阵地是推特的コレコレ，最大的特点是玩过lol</blockquote>
+tnnd，和コレコレ还有鸣神裁那些玩意一个货色是吗
+
+阴湿味拉满了啊这黑不拉几的人，也是刷新了世界观了，承认主播打上大师很厉害有那么难吗，还是说伤到了这些人可怜的自尊心了?难怪主播会说“自尊心不要太强”，原来都是有出处的，就像这种人<img src="https://static.stage1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
