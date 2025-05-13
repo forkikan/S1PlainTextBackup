@@ -135,3 +135,11 @@
 还有这霰弹枪的加长弹夹怎么是砍容量加弹夹数量的，写反了吧</blockquote>
 原本是弹鼓的换成加长弹匣了吧
 
+
+*****
+
+####  山风短  
+##### 5934#       发表于 2025-5-13 19:16
+
+已经解包出来打到上海了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1533,3 +1533,18 @@ IT小天才应该攻破网校的系统，直击完成课业获得学分才对。
 单独的切片
 [https://youtu.be/aSQ5IfszMl0](https://youtu.be/aSQ5IfszMl0)
 
+
+*****
+
+####  吴怀在  
+##### 183#       发表于 2025-5-13 19:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67810446&amp;ptid=2244986" target="_blank">ミオリネ 发表于 2025-5-13 18:15</a>
+
+其实现实中也有不少拗乘法表人设的人，我只能说可能日本真有人好这口吧
+
+比如我所知道的这个，最后羊宫都绷 ...</blockquote>
+好蠢啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+幸好我基本不关心角色声优<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
