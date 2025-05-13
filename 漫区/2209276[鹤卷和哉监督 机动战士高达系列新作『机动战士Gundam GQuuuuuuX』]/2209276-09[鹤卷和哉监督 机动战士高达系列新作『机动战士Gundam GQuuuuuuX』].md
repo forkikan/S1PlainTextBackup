@@ -9014,3 +9014,50 @@ q一串的背景下，85年整出精神病mk2和汉布拉比
 之前只是感觉修斯比较电波，这集有精神力的驾驶员做对照感觉状态也不妙啊，一个老把高达说的挂嘴边，一个觉 ...</blockquote>
 这集看完我认为高达说的就是借口而已，都是修司自己的想法
 
+
+*****
+
+####  我聞如是  
+##### 12579#       发表于 2025-5-14 02:29
+
+<blockquote>岸浪白野 发表于 2025-5-14 01:52
+日历还是6月，就当还在6月准备快过了就行...........</blockquote>
+我覺得是七月了還沒翻頁，不準時翻月曆才是正常的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  久保由利香  
+##### 12580#       发表于 2025-5-14 02:31
+
+吵黑拳的本来就是看不明白的，这么大的绿叔叔线可能都没看懂
+
+*****
+
+####  武川日玄  
+##### 12581#       发表于 2025-5-14 02:31
+
+这个片会出现拉普拉斯相关线索嘛？
+
+
+*****
+
+####  岸浪白野  
+##### 12582#       发表于 2025-5-14 02:36
+
+[X 上的 STAR影法師：“fan [url]https://t.co/lPOHaAIy81](https://x.com/starshadowmagic/status/1922358501700964512)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/14/023607o7mv30125xakt7k3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.15 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 02:36 上传
+
+*****
+
+####  量产失败型  
+##### 12583#       发表于 2025-5-14 02:37
+
+アマラ.カマラ商会加几笔就是アマンダラ.カマンダラ了,马萨卡....<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
