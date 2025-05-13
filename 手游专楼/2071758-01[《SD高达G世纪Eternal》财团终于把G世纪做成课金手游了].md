@@ -14314,3 +14314,16 @@ Z有ZZ标签
 这6次略过居然是两关公用，真有你的</blockquote>
 纠正，是三关
 
+
+*****
+
+####  lighttt  
+##### 1344#       发表于 2025-5-13 13:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67809082&amp;ptid=2071758" target="_blank">jackyhuang 发表于 2025-5-13 12:22</a>
+
+虽然是可变机，但是不能变形
+
+—— 来自 Sony XQ-AT72, Android 12, 鹅球 v3.5.99</blockquote>
+标签里还有可变机<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
