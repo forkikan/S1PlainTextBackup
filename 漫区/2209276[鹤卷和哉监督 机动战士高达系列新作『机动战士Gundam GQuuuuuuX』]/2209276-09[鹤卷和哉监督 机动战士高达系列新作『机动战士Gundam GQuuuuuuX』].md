@@ -9420,3 +9420,69 @@ jzgg再来？<img src="https://static.stage1st.com/image/smiley/face2017/068.png
 —— 来自 realme RMX3706, Android 1 ...</blockquote>
 其实是伊泽玛这殖民地遭殃还差不多.......side 6是拥有着两位数殖民卫星的殖民卫星群统称不是什么整个side 6
 
+
+*****
+
+####  冰风血羽  
+##### 12616#       发表于 2025-5-14 05:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67812102&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-14 05:25</a>
+其实是伊泽玛这殖民地遭殃还差不多.......side 6是拥有着两位数殖民卫星的殖民卫星群统称不是什么整个side ...</blockquote>
+确实，只是其中一个筒子而已，改了
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  biye  
+##### 12617#       发表于 2025-5-14 05:35
+
+小番茄什么都懂 只是无法和自己和解 相视一笑留个白都能交代过去 但这殖民地一炸<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+看着这么多伏线是0079IF有太多可能 单看本篇是不是意外的简单 以老害们的叙事功力 为了泽克诺瓦不太突兀 没准还能塞半集0079进去<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  盐盐盐盐盐  
+##### 12618#       发表于 2025-5-14 05:47
+
+没人买股麻球和白毛cp吗，目前剧中只有这两个人说krkr吧（）
+
+*****
+
+####  岸浪白野  
+##### 12619#       发表于 2025-5-14 05:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67812108&amp;ptid=2209276" target="_blank">盐盐盐盐盐 发表于 2025-5-14 05:47</a>
+
+没人买股麻球和白毛cp吗，目前剧中只有这两个人说krkr吧（）</blockquote>
+
+就她和玛秋有塞I can Friday by day 玩偶的彩蛋就已经是一种对应了，把见到的美好主动用kirakira形容确实就这两个
+
+<img src="https://img.stage1st.com/forum/202505/14/055449txdesdxz28ydeqp2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (742.21 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 05:54 上传
+
+*****
+
+####  xwz  
+##### 12620#       发表于 2025-5-14 06:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67812113&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-14 05:58</a>
+
+就她和玛秋有塞I can Friday by day 玩偶的彩蛋就已经是一种对应了，把见到的美好主动用kirakira形容确 ...</blockquote>
+真飞鸟遇到史黛拉<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  花達香奈  
+##### 12621#       发表于 2025-5-14 06:20
+
+<blockquote>盐盐盐盐盐 发表于 2025-5-14 04:39
+话说有没有说那个强化人小朋友是男的女的（）我怎么感觉像男孩子</blockquote>
+绪山真寻式强化是吧？村雨研究所这招太狠了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
