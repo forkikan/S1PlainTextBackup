@@ -1280,3 +1280,18 @@ mai那张立绘，后面还有polka的没擦干净的图层<img src="https://sta
 芝士雪豹不是野生动物不许饲养吗</blockquote>
 就摆拍合个影没啥吧。
 
+
+*****
+
+####  漫漫来  
+##### 159#       发表于 2025-5-13 10:34
+
+“通信制学校有什么不好的”让我想起了一句经典的话“好的大专不比985差”<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kuglv  
+##### 160#       发表于 2025-5-13 10:37
+
+也不是说学历骑士，别的企划学历不高的也确实不少，但是低到这种程度还要拿这个出来专门营销的多少有点<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
