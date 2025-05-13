@@ -1362,3 +1362,11 @@ mai那张立绘，后面还有polka的没擦干净的图层<img src="https://sta
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  北条早苗  
+##### 168#       发表于 2025-5-13 12:51
+
+艺人倒是有不少读通信制高中的，普通人读这个基本这辈子就这样了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
