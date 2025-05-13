@@ -6214,3 +6214,27 @@ installer device不就是解锁军用火控系统的那玩意，不知道律师�
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  岸浪白野  
+##### 12305#       发表于 2025-5-13 20:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67810597&amp;ptid=2209276" target="_blank">oi99o 发表于 2025-5-13 18:58</a>
+
+installer device不就是解锁军用火控系统的那玩意，不知道律师为什么要在这个版本里加AE，还是说其实所有版 ...</blockquote>
+
+就只有启动装置版有送小册子而且还印上AE标志，而且新闻稿介绍的时候也没有介绍这标志
+
+反正理解是律师找GQ官方知道了AE是什么标志加了上去就行了
+
+「インストーラーデバイス盤」は、モビルスーツの戦闘起動用インストーラーデバイスをモチーフにしたパッケージで、こちらも米津さんが自らイメージを行い、黒のスモーキーなボディに、黄緑のポイントカラーが映えるデザインとなっている。CDにはマチュとニャアン、DVDにはGQuuuuuuXがそれぞれ描かれている。
+
+<img src="https://img.stage1st.com/forum/202505/13/202247kz7ezp3duztetazu.png" referrerpolicy="no-referrer">
+
+<strong>1PY0CPIU7X$VFX9UQ}[8OA0.png</strong> (590.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-13 20:22 上传
+

@@ -7074,3 +7074,20 @@ tnnd，和コレコレ还有鸣神裁那些玩意一个货色是吗
 
 阴湿味拉满了啊这黑不拉几的人，也是刷新了世界观了，承认主播打上大师很厉害有那么难吗，还是说伤到了这些人可怜的自尊心了?难怪主播会说“自尊心不要太强”，原来都是有出处的，就像这种人<img src="https://static.stage1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TiHaru  
+##### 18469#       发表于 2025-5-13 20:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那钻一到钻四还有一个前职业一起双排的，昨天还和主播打了两把维护
+
+*****
+
+####  术士q  
+##### 18470#       发表于 2025-5-13 20:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67810937&amp;ptid=2018830" target="_blank">TiHaru 发表于 2025-5-13 20:32</a>
+那钻一到钻四还有一个前职业一起双排的，昨天还和主播打了两把维护</blockquote>
+诶这样吗，那我翻下opgg确认一下先，主要我记得主播从钻二下面打到钻一主要都是自己单排的，然后也大多数为单排为准，统计一下数据好了
+
