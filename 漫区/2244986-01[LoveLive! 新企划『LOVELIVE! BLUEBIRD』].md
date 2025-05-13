@@ -1571,3 +1571,13 @@ IT小天才应该攻破网校的系统，直击完成课业获得学分才对。
 7那行对日本人有魔力吗 我看都和7这行过不去</blockquote>
 7是九九表里最大的质数，可能难度比较高吧
 
+
+*****
+
+####  仟音一心  
+##### 186#       发表于 2025-5-13 21:33
+
+赛马娘：金泽奇迹
+<img src="https://p.sda1.dev/24/01520cf8f0789668e8986282b7ec1fdb/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/5b569198c06c24a3f815ee1ae753e76b/image.jpg" referrerpolicy="no-referrer">
+
