@@ -9135,3 +9135,32 @@ jzgg再来？<img src="https://static.stage1st.com/image/smiley/face2017/068.png
 
 还有心理书，日历那里有买东西打折，总之说喵安向往玛秋那样的平凡生活就是这样
 
+
+*****
+
+####  mintslime  
+##### 12591#       发表于 2025-5-14 02:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67812001&amp;ptid=2209276" target="_blank">日野下花帆 发表于 2025-5-14 01:58</a>
+
+卡缪身上有一种朴素的正义感，现在小番茄身上这种属性只在对喵安出头的时候展现过
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+一开始她上扎古就是因为看到军警毁坏难民区忍不下去啊，后来也有骗狗救人妻，她身上正义感是不缺的，也不是对喵安特有
+
+*****
+
+####  YU_JI  
+##### 12592#       发表于 2025-5-14 02:58
+
+这集之后所有的预告画面都彻底回收了吧，接下来突入完全未知的鹤卷六集世界（）
+
+*****
+
+####  otaku21126  
+##### 12593#       发表于 2025-5-14 02:59
+
+逐秒看了一下下集预告，GQX真的没有补给任何新武器，最后左臂关节还损坏了，这种条件下玛秋就算爆种也没武器击破精神感应钢弹MK2吧
+
+难不成真要张嘴呲牙了吗<img src="https://static.stage1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
