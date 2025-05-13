@@ -8383,3 +8383,180 @@ hhhh同意 虽然是过渡回还是看爽了（下集能相信你吗鹤卷GG
 
 说起来之前新人入坑只要补0079剧场版+TV绿叔叔那一集，现在还得补Z，说不定结尾还得补ZZ<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ティグル  
+##### 12520#       发表于 2025-5-14 01:26
+
+汉布拉比的机设就是夜壶画的梅塔斯啊，按GQX命名法说不定真改名了
+
+
+*****
+
+####  猪突猛进R  
+##### 12521#       发表于 2025-5-14 01:26
+
+<img src="https://img.stage1st.com/forum/202505/14/012631isfnwh7wgzpe4egj.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQtw8w-kyecKmT1kSei-7y.jpg</strong> (22.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 01:26 上传
+
+*****
+
+####  marlun  
+##### 12522#       发表于 2025-5-14 01:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811927&amp;ptid=2209276" target="_blank">洛亚替身 发表于 2025-5-14 01:24</a>
+
+冷战风应该不会打起来吧？真打起来也不好收尾</blockquote>
+下集就要在殖民卫星上大打特打了，怎么说，效仿冷战后的代理人战争吗
+
+*****
+
+####  人形灾害  
+##### 12523#       发表于 2025-5-14 01:27
+
+这么搞法能塞的老梗对12集来讲已经密度超标，反而感觉异世界骡喵很难出来了，顶多结尾塞点彩蛋镜头
+
+*****
+
+####  ashero  
+##### 12524#       发表于 2025-5-14 01:27
+
+大概估计下一集的剧情是麻球为了让修司能跑制定了一个跑路计划 需要喵安先上机应付军团战 自己去收拾东西 结果对面直接上精神力高达喵安用手挡精神力高达一炮直接被打飞 
+
+修司拖着gquxx躲避 麻球赶到上机自己拖住精神力高达要求修司和喵安先跑去约定的地点 在对战精神力高达的时候觉醒  预告大概就是这些内容
+
+*****
+
+####  YU_JI  
+##### 12525#       发表于 2025-5-14 01:27
+
+其实修司这集倒也有信息的，不过还在电波谜语，没啥解读空间，倒是喵安这集能很明显看出来和西红柿的对偶倾向，大概是双女主结构了
+
+*****
+
+####  Devola  
+##### 12526#       发表于 2025-5-14 01:28
+
+你看，就说了没差几年<img src="https://p.sda1.dev/24/7d4ff35702624580cb6f7d5cbd490bbb/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  我聞如是  
+##### 12527#       发表于 2025-5-14 01:29
+
+媽媽摔桌上的是6月補習班出席表
+
+所以劇中時間已經7月了
+
+<img src="https://img.stage1st.com/forum/202505/14/012427jyczeyd1y021dyu9.jpg" referrerpolicy="no-referrer">
+
+<strong>1000028434.jpg</strong> (190.31 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 01:24 上传
+
+*****
+
+####  岸浪白野  
+##### 12528#       发表于 2025-5-14 01:30
+
+世界要重新画了
+
+<img src="https://img.stage1st.com/forum/202505/14/013010f8oj2b6qt26oj2kq.png" referrerpolicy="no-referrer">
+
+<strong>~DLRU~O$_)]V4798GJ`%U81.png</strong> (610.69 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 01:30 上传
+
+
+*****
+
+####  ku2154513  
+##### 12529#       发表于 2025-5-14 01:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811928&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-14 01:25</a>
+说起来之前新人入坑只要补0079剧场版+TV绿叔叔那一集，现在还得补Z，说不定结尾还得补ZZ ...</blockquote>
+老害为了传承uc用心良苦属于是
+
+*****
+
+####  u2deack  
+##### 12530#       发表于 2025-5-14 01:33
+
+还不如直接做成纯uc if，是真的不想看这几个主角团的戏份
+
+*****
+
+####  zycilcy  
+##### 12531#       发表于 2025-5-14 01:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811938&amp;ptid=2209276" target="_blank">ashero 发表于 2025-5-14 01:27</a>
+
+大概估计下一集的剧情是麻球为了让修司能跑制定了一个跑路计划 需要喵安先上机应付军团战 自己去收拾东西  ...</blockquote>
+差一个献祭老妈，铺垫了这么多次的母女矛盾怎么着也得用上吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">。
+
+个人猜测，最好的结果就是鹤卷心善番茄千钧一发之际把老妈救下。
+
+*****
+
+####  东京打工妹  
+##### 12532#       发表于 2025-5-14 01:33
+
+嚯嚯嚯，这都有通辽看的哦
+
+<img src="https://img.stage1st.com/forum/202505/14/013311n333wz7wny709n96.jpg" referrerpolicy="no-referrer">
+
+<strong>1000135549.jpg</strong> (2.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 01:33 上传
+
+<img src="https://img.stage1st.com/forum/202505/14/013311e6o2k4kz00kkdzhs.jpg" referrerpolicy="no-referrer">
+
+<strong>1000135548.jpg</strong> (238.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 01:33 上传
+
+*****
+
+####  根正苗红  
+##### 12533#       发表于 2025-5-14 01:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811878&amp;ptid=2209276" target="_blank">ku2154513 发表于 2025-5-14 01:07</a>
+这精神力高达不会一集就垫了吧</blockquote>
+Pshycho Gundam不就是最大的死旗吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猪突猛进R  
+##### 12534#       发表于 2025-5-14 01:34
+
+回旋镖<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202505/14/013442uos50fzoqju2px0q.png" referrerpolicy="no-referrer">
+
+<strong>无标题.png</strong> (151.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 01:34 上传
+
+*****
+
+####  普通哈尼  
+##### 12535#       发表于 2025-5-14 01:35
+
+感觉下集至少要死玛秋妈，货车大叔，博美犬的几位，说不定再加上玛秋的几个同学<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
