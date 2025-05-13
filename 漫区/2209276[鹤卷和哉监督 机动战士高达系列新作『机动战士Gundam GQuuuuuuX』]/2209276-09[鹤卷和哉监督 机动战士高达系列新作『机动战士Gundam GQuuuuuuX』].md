@@ -7957,3 +7957,104 @@ zata全副武装打精神力也挺难看的，何况这两台
 
 不论神棍力的话，红高不就是78-2，GQX大概GP01水平？绿叔叔的MA也是79年的，纯数值怎么打精神病+汉谟拉比。（联邦这科技树开挂了？）
 
+
+*****
+
+####  污陨血红  
+##### 12479#       发表于 2025-5-14 00:48
+
+联邦科技树只能说是打了超级强化<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+q一串的背景下，85年整出精神病mk2和汉布拉比
+
+要是后面膜zz，掏出那些第四代恐龙机，我都不觉得奇怪
+
+
+*****
+
+####  猪突猛进R  
+##### 12480#       发表于 2025-5-14 00:50
+
+精神病目前不一定是MK2，没看到标志性的反射浮游炮，只是涂装是紫色的。
+
+不过也是提前进入Z时代了。
+
+
+*****
+
+####  岸浪白野  
+##### 12481#       发表于 2025-5-14 00:50
+
+继续I can Friday by day的彩蛋
+
+<img src="https://img.stage1st.com/forum/202505/14/005003fwwdypykkpi7de1o.png" referrerpolicy="no-referrer">
+
+<strong>@YHTOR[RDS_80YYL@X1{%S9.png</strong> (616.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 00:50 上传
+
+<img src="https://img.stage1st.com/forum/202505/14/005020tkcr3srjq26yrz2q.png" referrerpolicy="no-referrer">
+
+<strong>{4S8ALVG1OX{Q8K6F84$T[N.png</strong> (105.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 00:50 上传
+
+<img src="https://img.stage1st.com/forum/202505/14/005030g2cc84rcoz1hajlf.jpg" referrerpolicy="no-referrer">
+
+<strong>49OY6~ZGOCW~X5IC~Y{OUU6.jpg</strong> (111.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 00:50 上传
+
+*****
+
+####  psycho_Gadfly  
+##### 12482#       发表于 2025-5-14 00:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811643&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-14 00:05</a>
+
+还真是，三小孩含量越少越好看（）</blockquote>
+hhhh同意 虽然是过渡回还是看爽了（下集能相信你吗鹤卷GG
+
+*****
+
+####  Humpy  
+##### 12483#       发表于 2025-5-14 00:52
+
+突然想起来这个世界线联邦还可以去开发mk82<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ティグル  
+##### 12484#       发表于 2025-5-14 00:52
+
+说mk2就是因为外形和配色啊，只能说村雨研发力了
+
+*****
+
+####  Asukalangley33  
+##### 12485#       发表于 2025-5-14 00:52
+
+目测下集各方势力在side6大开杀戒
+
+玛秋老妈在她面前被蒸发，精神崩溃下在GQX上引发了zecknova（三冲）<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+之后玉玉状态沉淀几集王者归来
+
+—— 来自 Xiaomi 24031PN0DC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  伊露伊道格拉斯  
+##### 12486#       发表于 2025-5-14 00:55
+
+联邦连魔鬼鱼都搞出来了，还有类似于提坦斯的特殊部队在活动。
+
+所以联邦魔女是为啥要开着吉翁的牢ms，私自去寻仇的呢。
+
+这联邦第一ace的消息也太不灵通了吧，而且巴斯克不会去挖角吗，对吉翁有仇的士兵不就是最合适加入tts的吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
