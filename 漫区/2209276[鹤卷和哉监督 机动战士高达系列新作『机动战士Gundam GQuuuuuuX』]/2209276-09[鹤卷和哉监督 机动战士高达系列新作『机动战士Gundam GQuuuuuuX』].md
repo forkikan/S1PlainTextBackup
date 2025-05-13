@@ -6371,3 +6371,56 @@ G永恒送了魔女
 
 2025-5-13 23:07 上传
 
+
+*****
+
+####  xwr  
+##### 12314#       发表于 2025-5-13 23:20
+
+直播间放白色相簿<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  型月神话伊阿宋  
+##### 12315#       发表于 2025-5-13 23:20
+
+喵安你怎么把麻球的帽子和哈罗都毛了？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  huanzhi  
+##### 12316#       发表于 2025-5-13 23:21
+
+还是名场面<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  猪突猛进R  
+##### 12317#       发表于 2025-5-13 23:23
+
+牛type<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  EFSF  
+##### 12318#       发表于 2025-5-13 23:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811046&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-5-13 21:13</a>
+
+AE原本是在月面都市的，这是被自护收编了？
+
+----发送自 Sony XQ-CT44,Android 14</blockquote>
+新一话还没看，但是这个世界里吉恩还保有月面的格拉纳达，收编个电器公司不还是小事一桩。
+
+*****
+
+####  白色池塘  
+##### 12319#       发表于 2025-5-13 23:26
+
+喵安这借来的帽子借来的哈罗借来的高达……仔细想想，她这身校服好像也是“借”的吧
+
+那我猜这个怪怪的名字本身也不太可能是本名了
+
