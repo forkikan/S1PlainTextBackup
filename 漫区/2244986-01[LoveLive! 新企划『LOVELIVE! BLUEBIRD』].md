@@ -1151,3 +1151,23 @@ ena上的也是全日制学校的附属夜间部，而且是艺术生，相对�
 
 2025-5-13 09:09 上传
 
+
+*****
+
+####  无动于衷  
+##### 147#       发表于 2025-5-13 09:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67808115&amp;ptid=2244986" target="_blank">AraTurambar 发表于 2025-5-13 06:11</a>
+
+学历论差不多得了。ayase高一辍学，ado通信制，八爷也就商业中专，难道非得人均wowaka才能搞音乐？
+
+拿来女 ...</blockquote>
+学园偶像甚至可以不用有真的学校是吧 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 148#       发表于 2025-5-13 09:18
+
+单论人设有种10年15年前偶像大师的感觉<img src="https://static.stage1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+

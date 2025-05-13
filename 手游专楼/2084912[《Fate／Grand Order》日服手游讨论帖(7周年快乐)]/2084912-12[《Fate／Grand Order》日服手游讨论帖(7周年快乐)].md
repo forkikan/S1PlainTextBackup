@@ -1599,3 +1599,41 @@
 提前欧羡慕</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">根本没石头拿头欧
 
+
+*****
+
+####  alucardcz  
+##### 16699#       发表于 2025-5-12 18:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67806959&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-5-12 18:01</a>
+
+没石头了 只能看坛友豹跳</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">提前欧羡慕
+
+*****
+
+####  blue321  
+##### 16700#       发表于 2025-5-12 18:25
+
+听楼友的没去抽水bb，然后去补更想要的神贞图鉴
+90抽双黄其中一个出货了，今天运气是真好<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  qixinno2  
+##### 16701#       发表于 2025-5-12 18:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67806972&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-5-12 18:05</a>
+
+提前欧羡慕</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">根本没石头拿头欧
+
+*****
+
+####  rooarr  
+##### 16702#       发表于 2025-5-13 09:14
+
+连续歪了3个之后，终于出学姐了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
