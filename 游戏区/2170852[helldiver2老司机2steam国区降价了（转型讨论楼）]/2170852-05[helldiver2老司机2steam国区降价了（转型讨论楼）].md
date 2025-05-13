@@ -105,3 +105,15 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  风萧飒  
+##### 5931#       发表于 2025-5-13 18:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67810461&amp;ptid=2170852" target="_blank">LrGsite 发表于 2025-5-13 18:20</a>
+真打进超级地球了箭头能不能做一个类似行星边际2的超级大战场，所有潜兵同屏作战 ...</blockquote>
+十个人一起丢500kg你电脑就要炸了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

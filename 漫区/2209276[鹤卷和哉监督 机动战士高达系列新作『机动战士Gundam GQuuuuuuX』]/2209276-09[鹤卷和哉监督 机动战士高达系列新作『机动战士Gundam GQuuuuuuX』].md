@@ -6143,3 +6143,64 @@ AE？！！！
 0083的袭击基地的大魔，被电热斧砍入肩部殉爆，不过大魔这个机体机设上是这样的，它其实依然是浑身动力管 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">那大魔这机子有严重设计缺陷啊，经常近身战斗的机子浑身都是致命弱点
 
+
+*****
+
+####  YU_JI  
+##### 12302#       发表于 2025-5-13 18:38
+
+<blockquote>我聞如是 发表于 2025-5-13 18:15
+商品名是installer device
+
+所以劇中會出現V440的正版後繼版本？
+
+問一下，RX78本來也是AE社製造的嗎？
+</blockquote>
+rx78不是ae造的，ae崛起是一年战争之后的事情，一年战争期间ae还在卖家电，rx78是联邦自己主导开发的
+
+
+*****
+
+####  岸浪白野  
+##### 12303#       发表于 2025-5-13 18:41
+
+[X 上的 えんぎよし：“ジークアクス [url]https://t.co/CYvNJI67Nm](https://x.com/ENGIYOSI/status/1921846558363930823)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/13/183837w11a1re8a2qq27r7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (446.54 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-13 18:38 上传
+
+[X 上的 えんぎよし：“ジークアクスのキシリア様を見たシャア [url]https://t.co/hR8TnLH5C9](https://x.com/ENGIYOSI/status/1922218760758280563)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/13/183900l9zfxz05yu4x9fbh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (593.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-13 18:39 上传
+
+[X 上的 れん田2：“今日これになったどうしよう [url]https://t.co/c3xRukTgNJ](https://x.com/renda_GN/status/1922062811988934747)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/13/183618ku0wfis0wlga1idl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.49 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-13 18:36 上传
+
+[X 上的 당근버스터：“"쏴"라고 건담이 말하고있어 [url]https://t.co/yk5FaiQyYY](https://x.com/ccabuster/status/1922210940252012928)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/13/184103miabb8iaaa868bmm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (921.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-13 18:41 上传
+
