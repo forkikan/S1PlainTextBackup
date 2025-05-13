@@ -39,3 +39,51 @@
 
 南线打了两把，压力大不少，死人军团有点肉，打腿都打了一整个机枪弹链<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">爆弹弩要打两个弹夹
 
+
+*****
+
+####  qwased  
+##### 5925#       发表于 2025-5-13 18:08
+
+另外抗锯齿导致画面模糊的bug是不是还没修复，不知道箭头承诺的优化性能和画面啥时候落地
+
+*****
+
+####  风萧飒  
+##### 5926#       发表于 2025-5-13 18:08
+
+以后债券估计会加配件
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  九十九忍  
+##### 5927#       发表于 2025-5-13 18:09
+
+这改枪我只看出他们又多了一个混工作量的窗口
+
+
+*****
+
+####  LrGsite  
+##### 5928#       发表于 2025-5-13 18:17
+
+<img src="https://img.stage1st.com/forum/202505/13/181635kn42yyc464el2427.png" referrerpolicy="no-referrer">
+
+<strong>VC6TGCQQLQNH3QIB{`]E}_6.png</strong> (184.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-13 18:16 上传
+
+<img src="https://img.stage1st.com/forum/202505/13/181657k3b9bb93eziheh99.png" referrerpolicy="no-referrer">
+
+<strong>[BIPKS)7Y6NPTH{WN`X_6.png</strong> (340.48 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-13 18:16 上传
+
+我操 神使级都来了，上线保卫超级地球了
+
