@@ -1442,3 +1442,18 @@ mai那张立绘，后面还有polka的没擦干净的图层<img src="https://sta
 
 新的it小天才
 
+
+*****
+
+####  osore  
+##### 175#       发表于 2025-5-13 16:16
+
+都IT小天才了还要倍速刷网课的吗，不是直接后台挂机就成
+
+*****
+
+####  RYURYUTA  
+##### 176#       发表于 2025-5-13 16:16
+
+已经快进了老钟学历歧视了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">行，老钟背负一切
+

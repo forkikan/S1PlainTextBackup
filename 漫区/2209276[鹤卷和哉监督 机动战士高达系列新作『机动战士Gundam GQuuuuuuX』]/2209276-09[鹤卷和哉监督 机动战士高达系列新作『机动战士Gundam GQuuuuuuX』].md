@@ -5970,3 +5970,35 @@ X 上的 #鹿[Shika]™：“マチュとニャアン [https://t.co/IdFF4kZ200�
 红高达是单座机，但GQX不是有两套操纵杆吗</blockquote>
 说实话这个坐久肩膀不得酸死
 
+
+*****
+
+####  岸浪白野  
+##### 12288#       发表于 2025-5-13 16:23
+
+[X 上的 REISSUE RECORDS：“━━━━━━━━━━━━━ Plazma / BOW AND ARROW パッケージ写真 ━━━━━━━━━━━━━ 『機動戦士Gundam GQuuuuuuX』主題歌 『メダリスト』オープニング主題歌 New Single 6/11 Release パッケージ写真の公開です ハロ盤（CD + ハロ） インストーラーデバイス盤（CD + DVD）](https://x.com/reissuerecords/status/1922200205757448439)[https://t.co/lVLogTPLGO](https://t.co/lVLogTPLGO)” / X
+
+<img src="https://img.stage1st.com/forum/202505/13/162315z381lyvb8l2vc01z.jpg" referrerpolicy="no-referrer">
+
+<strong></strong> (43.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-13 16:23 上传
+
+<img src="https://img.stage1st.com/forum/202505/13/162323psuzyj3yn3bzn57a.jpg" referrerpolicy="no-referrer">
+
+<strong>{XI}}@8O7FV~@BBHSGNRE.jpg</strong> (418.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-13 16:23 上传
+
+<img src="https://img.stage1st.com/forum/202505/13/162333e82z8a6hpkukyskv.jpg" referrerpolicy="no-referrer">
+
+<strong>I2(M(SVX`Q[V~D@)$LQ(P@S.jpg</strong> (462.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-13 16:23 上传
+

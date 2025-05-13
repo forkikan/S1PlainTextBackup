@@ -14439,3 +14439,17 @@ Z有ZZ标签
 
 这次无脑auto过吧，除非一直在转生<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一个陆仁贾  
+##### 1357#       发表于 2025-5-13 16:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67809663&amp;ptid=2071758" target="_blank">无念 发表于 2025-5-13 15:00</a>
+能天使飞上去看了看，这欧贝龙伤害好低...难不成这次可以auto？
+
+—— 来自 HONOR SDY-AN00, Android 14,  ...</blockquote>
+直接自动完事，如果自动没法三星在手动补一次就行
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
