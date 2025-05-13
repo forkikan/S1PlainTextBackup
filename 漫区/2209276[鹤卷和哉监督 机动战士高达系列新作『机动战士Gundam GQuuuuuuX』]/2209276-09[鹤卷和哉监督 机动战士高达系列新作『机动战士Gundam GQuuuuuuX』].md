@@ -6028,3 +6028,23 @@ AE社怎么在这出现了</blockquote>
 
 这AE社的标志不是够明显吗，下面英文字还是保持不变呢
 
+
+*****
+
+####  岸浪白野  
+##### 12292#       发表于 2025-5-13 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67809984&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-13 16:23</a>
+
+X 上的 REISSUE RECORDS：“━━━━━━━━━━━━━ Plazma / BOW AND ARROW パッケージ写真 ━━━━ ...</blockquote>
+
+[Plazma | 米津玄師 official site「REISSUE RECORDS」](https://reissuerecords.net/Plazma/)
+
+<img src="https://img.stage1st.com/forum/202505/13/164719vl1izi9bjxjtrew4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.83 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-13 16:47 上传
+

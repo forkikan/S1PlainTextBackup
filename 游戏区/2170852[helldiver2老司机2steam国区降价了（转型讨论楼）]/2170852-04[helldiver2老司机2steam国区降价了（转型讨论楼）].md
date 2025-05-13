@@ -102,3 +102,28 @@ https://www.youtube.com/live/QChlgNJvbZk?si=DPOncaR2oBv8ww89
 <img src="https://p.sda1.dev/24/043087f18cf33dd40bbd0be75e49b828/CMP_20250512132951487.jpg" referrerpolicy="no-referrer">
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风萧飒  
+##### 5914#       发表于 2025-5-13 16:48
+
+出武器改装了？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  kalavinka  
+##### 5915#         楼主| 发表于 2025-5-13 16:52
+
+赶紧去贴吧看了眼，真开了<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202505/13/165150ayn0tfk07gk0ydvx.jpg" referrerpolicy="no-referrer">
+
+<strong>0ddfcf22720e0cf3c35b88d44c46f21fbf09aafb.jpg</strong> (93.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-13 16:51 上传
+
