@@ -9164,3 +9164,29 @@ jzgg再来？<img src="https://static.stage1st.com/image/smiley/face2017/068.png
 
 难不成真要张嘴呲牙了吗<img src="https://static.stage1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  璇瑢子R  
+##### 12594#       发表于 2025-5-14 03:06
+
+喵安这是要申请吉翁绿卡还是side6绿卡
+
+*****
+
+####  ryanghj  
+##### 12595#       发表于 2025-5-14 03:09
+
+是日语所以是side6吧
+
+*****
+
+####  日野下花帆  
+##### 12596#       发表于 2025-5-14 03:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67812064&amp;ptid=2209276" target="_blank">mintslime 发表于 2025-5-14 02:57</a>
+一开始她上扎古就是因为看到军警毁坏难民区忍不下去啊，后来也有骗狗救人妻，她身上正义感是不缺的，也不 ...</blockquote>
+问题在于这份正义感要导向何方？玛秋现在追寻的东西还是很虚幻的，而且不觉得身上这份特质越来越淡泊了吗。目前对杀人认知，对这个世界的认知，还有人际关系就看下面的回数了，抛出问题不是关键而是鹤卷要怎么解答他们，反正我不太希望要通过失去重要的亲人这种惯用的伎俩来达成。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
