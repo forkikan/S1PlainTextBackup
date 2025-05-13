@@ -1331,3 +1331,24 @@ mai那张立绘，后面还有polka的没擦干净的图层<img src="https://sta
 
 不过估计企划方没想到大家对函授学历的反应这么大<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  有钱多买小人  
+##### 165#       发表于 2025-5-13 11:57
+
+看了下学习障碍里果然也有数学障碍一说，所以搞不好是真智障。
+
+<img src="https://p.sda1.dev/24/92e1f7081ad7bb16b8ceb3638121380a/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Unlight  
+##### 166#       发表于 2025-5-13 12:03
+
+歪个楼，隔壁某友商事务所里学历最低的其实不是某位，那为什么学历骑士总拿她开涮呢？
+因为这位的学历是剧情里专门提到的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
