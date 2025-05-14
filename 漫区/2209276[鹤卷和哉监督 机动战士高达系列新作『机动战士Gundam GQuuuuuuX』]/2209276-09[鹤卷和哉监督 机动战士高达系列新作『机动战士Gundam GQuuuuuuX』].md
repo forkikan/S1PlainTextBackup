@@ -12667,3 +12667,34 @@ SIDE6的海关敢拦，不怕空调机当场变形哦<img src="https://static.st
 
 说起来，麻球在吼那声无路赛的时候我就在想，果然是妈妈是钉宫<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yanghuangu  
+##### 12921#       发表于 2025-5-14 16:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813624&amp;ptid=2209276" target="_blank">wpcc 发表于 2025-5-14 14:32</a>
+
+富野不死你真敢翻拍吗</blockquote>
+UC不是本世纪初就翻拍过了吗？<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  adretyu67.  
+##### 12922#       发表于 2025-5-14 16:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813624&amp;ptid=2209276" target="_blank">wpcc 发表于 2025-5-14 14:32</a>
+
+富野不死你真敢翻拍吗</blockquote>
+gto和多安的岛不是试过水了吗
+
+*****
+
+####  变老的大二  
+##### 12923#       发表于 2025-5-14 16:46
+
+夏利亚应该算是下一集最大赢家吧。
+
+这哥们现在联邦钦定最强nt。给联邦泄露紫色老太婆消息的估计也是他。折腾那么久就是要戴肯派上位吧。
+
