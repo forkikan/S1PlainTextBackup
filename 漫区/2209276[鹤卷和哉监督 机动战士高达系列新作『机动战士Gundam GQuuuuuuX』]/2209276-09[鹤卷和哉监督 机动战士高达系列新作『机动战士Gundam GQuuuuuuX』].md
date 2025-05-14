@@ -10014,3 +10014,63 @@ tts掌了权那奥古是不是被杀光了</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  ヒトニナル  
+##### 12670#       发表于 2025-5-14 10:09
+
+说到玛秋的正义感，其实下一话玛秋很可能就会面临终极选择：帮修司逃还是保护平民<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kkl12355  
+##### 12671#       发表于 2025-5-14 10:11
+
+<blockquote>gamedreamer 发表于 2025-5-14 08:47
+巴斯克从0083到z这种事情干的少了吗，他不一直是这种运筹帷幄实际上蠢的和猪一样的角色
+
+—— 来自 鹅球  ...</blockquote>
+所以说纯碎为了致敬，暗杀行动能让这种喜欢往大里搞的人来？还不如基连和紫婆两老阴比互相算计呢
+
+
+*****
+
+####  YU_JI  
+##### 12672#       发表于 2025-5-14 10:12
+
+跟现在的麻球比，常态喵安的性格简直好到爆炸，主视觉图那个站位现在看来更像是喵安来狠狠修正麻球的（）
+
+*****
+
+####  zzy516232108  
+##### 12673#       发表于 2025-5-14 10:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811928&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-14 01:25</a>
+
+说起来之前新人入坑只要补0079剧场版+TV绿叔叔那一集，现在还得补Z，说不定结尾还得补ZZ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我就看了剧场版三部曲+绿叔叔那一集，然后老害们强化人卡缪精神力高达什么的我已经完全看不懂了
+
+可恶啊
+
+*****
+
+####  Steel.Haze  
+##### 12674#       发表于 2025-5-14 10:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67812181&amp;ptid=2209276" target="_blank">Wiksy 发表于 2025-5-14 07:48</a>
+
+我记得剧场版里至少提了一下殖民地镭射发射过，有可能跟正史一样雷比尔跟德金都被一炮轰了。不过这事没说 ...</blockquote>
+提了造了殖民卫星炮（没准作为TV结尾要打的BOSS单位之一），但是没用上。德金可以是这几年老死了，或者就被架空了。这个好处理。
+
+然后哈曼如果和麻球没有关系的话，估计也不在精神力研究所了，而是回去当大小姐了，继续过边境伯郡主的日子，阿克西斯也还是边境开拓卫星。
+
+*****
+
+####  ryanghj  
+##### 12675#       发表于 2025-5-14 10:15
+
+key visual感觉管不到后半，估计后半有独立的宣发材料
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
