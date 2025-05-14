@@ -13348,3 +13348,41 @@ op越看越有感觉了<img src="https://static.stage1st.com/image/smiley/face20
 喵安，一个被军警查到就要润的干非 ...</blockquote>
 这不就是ed歌手本人写照 笑死 彗星就是
 
+
+*****
+
+####  岸浪白野  
+##### 12982#       发表于 2025-5-14 21:28
+
+才看到这里还真写着吹奏乐部的顾问是庵野先生啊
+
+<img src="https://img.stage1st.com/forum/202505/14/212748hvyvr9rycac9vcry.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (481.59 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 21:27 上传
+
+*****
+
+####  创始’’’天翔  
+##### 12983#       发表于 2025-5-14 21:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67815234&amp;ptid=2209276" target="_blank">mintslime 发表于 2025-5-14 21:01</a>
+
+其实这集我有一点不喜欢，就是制作组那种发达国家中产阶级的贫乏想象力
+
+喵安，一个被军警查到就要润的干非 ...</blockquote>
+集美都市剧.jpg
+
+*****
+
+####  好悬逃避涨价池  
+##### 12984#       发表于 2025-5-14 21:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813624&amp;ptid=2209276" target="_blank">wpcc 发表于 2025-5-14 14:32</a>
+
+富野不死你真敢翻拍吗</blockquote>
+02年不是已经翻拍过了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
