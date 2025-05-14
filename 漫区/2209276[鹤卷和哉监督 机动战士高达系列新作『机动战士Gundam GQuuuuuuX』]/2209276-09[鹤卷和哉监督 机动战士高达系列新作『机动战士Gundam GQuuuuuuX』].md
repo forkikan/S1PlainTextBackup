@@ -12880,3 +12880,21 @@ quuuuuux懂了，那么Q的意思是什么呢
 
 紫老太婆那搞情报的真被暗杀死也太没面子了吧
 
+
+*****
+
+####  az一串字母  
+##### 12939#       发表于 2025-5-14 18:34
+
+第7集后能不能把律师的op换了
+
+*****
+
+####  Toby_dak  
+##### 12940#       发表于 2025-5-14 18:35
+
+不得不说，自护vs泰坦斯绝对是野望系列玩家们喜闻乐见的情节<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+我就不信写剧本的没玩过<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.46)
+
