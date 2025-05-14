@@ -13803,3 +13803,52 @@ plazma爱听好听，力挺律师<img src="https://static.stage1st.com/image/smi
 
 只能说制作组真是把留子的生活细节都给描写透了。
 
+
+*****
+
+####  silvia  
+##### 13021#       发表于 2025-5-14 23:29
+
+阿鲁家是不是位于side6超富人别墅区
+
+*****
+
+####  冷静先找时光机  
+##### 13022#       发表于 2025-5-14 23:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67815563&amp;ptid=2209276" target="_blank">刺客ares 发表于 2025-5-14 22:45</a>
+
+喵安书架的ican Friday by day彩蛋书上画着短片女二脑袋里的兔子。
+
+在短片里，脑子里有兔子的黑长直女二和 ...</blockquote>
+纯按这个对位的话，岂不是要村云兔掩护麻球牺牲，麻球把开MA的喵安打爆，最后把牢修爆头，释放出无数的闪亮闪亮，这集干脆就叫“再见了所有的kirakira”好了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hahah  
+##### 13023#       发表于 2025-5-14 23:33
+
+<blockquote>otaku21126 发表于 2025-5-14 21:49
+只能说，描绘的底层生活感觉不如独角兽里帕劳那一段
+
+不过话又说回来，好像设定上也没说尼亚安过的是底层生 ...</blockquote>
+喵安缺少生活常识以及有点慢一拍的感觉不像是平民和贫民，更像是强化人。尼亚安在法语里面1是un，读作安，gqx里面用法语数字作为村雨系列代号，尼亚安→村雨一也有可能。
+
+
+*****
+
+####  Sliurus  
+##### 13024#       发表于 2025-5-14 23:36
+
+怎么说呢，光有独立厨卫这点就可以说条件不差了，更别说家电这些，只能说走私就算是跑腿也赚得不少
+
+*****
+
+####  冰风血羽  
+##### 13025#       发表于 2025-5-14 23:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67814232&amp;ptid=2209276" target="_blank">EFSF 发表于 2025-5-14 16:54</a>
+
+这一集GQX亚马逊官中字幕的毛病让我坚信亚马逊的官中字幕是特么日翻英英翻中整出来的烂活，怪不得一大堆神 ...</blockquote>
+最搞的是这集刚开场没多久索顿上三人碰头，绿叔叔嘴上说着大尉简体字幕打着中尉<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
