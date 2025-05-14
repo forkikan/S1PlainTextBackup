@@ -12822,3 +12822,30 @@ b站搬运从第三集开始就都是繁中字幕了 ...</blockquote>
 精神力还能用赛克缪系统吉翁那边流出来搞，汉谟拉比是怎么跳过可变框架，一台二代机都没有的情况下变出来的 ...</blockquote>
 这就只能说高达的事情不需要搞的那么清楚了
 
+
+*****
+
+####  岸浪白野  
+##### 12934#       发表于 2025-5-14 17:38
+
+ 本帖最后由 岸浪白野 于 2025-5-14 17:40 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67814349&amp;ptid=2209276" target="_blank">秋月孝三 发表于 2025-5-14 17:22</a>
+
+鸡夸世界的磁气附魔出的慢难道不是因为没有阿姆罗这种两个月摸到机体限界的挂逼吗(不讨论act扎古)
+
+—— 来 ...</blockquote>
+说的不就是没人用机体用到限界会轮到磁气覆膜博士在联邦都没测试到磁气覆膜烂手里了以至于不在了混安保公司还要找人测试
+
+
+*****
+
+####  oi99o  
+##### 12935#       发表于 2025-5-14 17:43
+
+ 本帖最后由 oi99o 于 2025-5-14 17:44 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67814377&amp;ptid=2209276" target="_blank">EFSF 发表于 2025-5-14 17:27</a>
+艹，更无语了，哪找的二愣子简中翻译。</blockquote>
+网飞亚马逊这些全球流媒体的简中字幕大多数都是英译中转，觉得别扭第一时间怀疑总没错。不过这次繁中虽然是日文直译，但水平也不是很好，而且还是用的钢弹译名。
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+

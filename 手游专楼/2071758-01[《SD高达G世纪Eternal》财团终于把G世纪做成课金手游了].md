@@ -14712,3 +14712,18 @@ BD系是分原作游戏和改编漫画俩版本的，到时候全装BD1和BD3估
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下一个接档的卡池是0083？还是解包里面的zz，人气王储备还够么
 
+
+*****
+
+####  arthes  
+##### 1382#       发表于 2025-5-14 17:44
+
+高达这块感觉还真不缺存货<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，突然想想不知道圣诞卡池会是掉毛还是0080呢
+
+*****
+
+####  12481632  
+##### 1383#       发表于 2025-5-14 17:47
+
+高达好就好在各路人气王早就被摸得一清二楚，按顺序出就完事了，不怕你们不掏钱<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
