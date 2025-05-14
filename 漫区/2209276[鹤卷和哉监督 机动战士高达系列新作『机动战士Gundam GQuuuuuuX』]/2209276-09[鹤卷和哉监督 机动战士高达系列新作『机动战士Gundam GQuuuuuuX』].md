@@ -11041,3 +11041,116 @@ NT聊天室又来接收死人了吗<img src="https://static.stage1st.com/image/s
 
 5.24访谈的话，村雨兔大概能活两集？要是自己配的角色寄了再被邀请去……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  上坂莲华  
+##### 12772#       发表于 2025-5-14 12:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813092&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-5-14 12:22</a>
+
+都上精神力高达了，联邦情报局就没想藏吧，之所以参与比赛，其实就是估计只是为了趁着比赛散布米粒。精神 ...</blockquote>
+预告精神病是直接在市区升起来的，下集可能黑拳都不打了直接突击紫色老太婆
+
+*****
+
+####  YU_JI  
+##### 12773#       发表于 2025-5-14 12:38
+
+茨菇和奥泽美咲在KiraKira里开着高达大打出手，我这是到哪个片场来了（）<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lingfeng1236  
+##### 12774#       发表于 2025-5-14 12:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813104&amp;ptid=2209276" target="_blank">棍机凹升龙 发表于 2025-5-14 12:25</a>
+
+修斯应该要下线了，然后四方小萝卜和红高交给喵安（参考ED）</blockquote>
+一进来就看到你这玩意，你们河豚是真没活了是吧，只能天天咒男主，被骂了还不改，还在天天画圈圈诅咒。
+
+*****
+
+####  EFSF  
+##### 12775#       发表于 2025-5-14 12:40
+
+ 本帖最后由 EFSF 于 2025-5-14 12:42 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813025&amp;ptid=2209276" target="_blank">冷静先找时光机 发表于 2025-5-14 12:09</a>
+
+联邦失去制宇权，宇宙战机体的开发是不是要相当程度上受限啊
+
+不过目前也没体现出吉翁对地球有什么封锁，难 ...</blockquote>
+GQX这世界观吉恩就是打了个寂寞。
+
+抢夺高达之前的时间线如果和老世界观没有产生较大偏移，那会吉恩有名义上的主要制宙权也无法切断地球和月神二号以及各个殖民地的联系，高达1、2号机都是在地球开发好的搬去宇宙测试的，依据此，那GQX的世界线联邦宇宙战机体开发就不会有啥问题。
+
+GQX里吉恩本来就远离地球，剧里明显也能看出来他又没有统一全部的宇宙殖民地，自己还缺钱，内斗，总的来说拿了一个地球保留了余力的惨胜你真不知道还有啥。战斗功勋老兵连在军队里保有一个体面的职位都做不到。联邦有强化人研究所这是随便一个士兵都能讨论，还能知道在地球哪个区域，结果吉恩也没啥办法，人都能开发强化人。造精神力高达，还发展间谍机构，你要说这世界里吉恩一仗白打了搞不好是真白打了。联邦是没有制宙权了，但是吉恩也没了所罗门，就一个格拉纳达牵制地球，另一个阿·包瓦·库守国门。
+
+*****
+
+####  zao  
+##### 12776#       发表于 2025-5-14 12:40
+
+冷战+暗杀阵营首脑+非本时代武器+市区开片
+
+懂了，是kgb干员奥斯瓦尔德用短号导弹打爆肯尼迪敞篷车的if线<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ftyaid  
+##### 12777#       发表于 2025-5-14 12:41
+
+OYW的胜利者是个负面buff，不得不品<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  棍机凹升龙  
+##### 12778#       发表于 2025-5-14 12:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813177&amp;ptid=2209276" target="_blank">lingfeng1236 发表于 2025-5-14 12:39</a>
+
+一进来就看到你这玩意，你们河豚是真没活了是吧，只能天天咒男主，被骂了还不改，还在天天画圈圈诅咒。 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">啊，这就能套河豚了，好可怕
+
+*****
+
+####  lingfeng1236  
+##### 12779#       发表于 2025-5-14 12:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67812915&amp;ptid=2209276" target="_blank">lunaticfool 发表于 2025-5-14 11:44</a>
+
+宇宙男鬼的结局已经确定了吧</blockquote>
+还有你这玩意，你们河豚是真没活了是吧，只能天天咒男主，被骂了还不改，还在天天诅咒，属于一天不骂就犯病<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  桜庭ななみ  
+##### 12780#       发表于 2025-5-14 12:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813003&amp;ptid=2209276" target="_blank">EFSF 发表于 2025-5-14 12:05</a>
+
+明显不是啊，地球还在手里，只是没有宇宙中的据点，同时没有透露过停战和约内容，不知道有没有限制联邦军 ...</blockquote>
+只要地球还在家底就还在这是毋庸置疑的，毕竟停战的时候吉翁也没打回地球。
+
+其实不好说，也许巴斯克拿的是0083卡多的剧本，刺杀基西莉亚属于恐怖袭击，然后被主角干了就结束了呢和黑三联一样。这样故事格局会小一点符合现在看到的动画体量。
+
+
+*****
+
+####  Toby_dak  
+##### 12781#       发表于 2025-5-14 12:46
+
+话说这就给精神病的MA形态提供了点合理的理由，一般人那知道那坨东西能变成MS啊。毕竟可动骨架和变形MS还没出现。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.46)
+
+*****
+
+####  lingfeng1236  
+##### 12782#       发表于 2025-5-14 12:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813210&amp;ptid=2209276" target="_blank">棍机凹升龙 发表于 2025-5-14 12:43</a>
+
+啊，这就能套河豚了，好可怕</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
