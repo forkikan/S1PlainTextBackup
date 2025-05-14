@@ -14663,3 +14663,15 @@ BD系是分原作游戏和改编漫画俩版本的，到时候全装BD1和BD3估
 
 把魔女扔尊者上了，想想战斗服魔女还有点涩
 
+
+*****
+
+####  无念  
+##### 1377#       发表于 2025-5-14 14:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67812271&amp;ptid=2071758" target="_blank">xiongxingyu 发表于 2025-5-14 08:33</a>
+伊藤剑怎么你们了，一个个都想着把他从妖刀上踹下去，连ssr都来参一脚，明明理论上妖刀系统只有伊藤剑才 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">长的不帅原作还不火被妹子取代不是很正常的么
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
