@@ -9856,3 +9856,63 @@ hg白高达12月
 
 2025-5-14 09:24 上传
 
+
+*****
+
+####  洛克萨斯  
+##### 12655#       发表于 2025-5-14 09:26
+
+番茄这表现，编剧家里肯定有孩子，太栩栩如生了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  朋友费小号  
+##### 12656#       发表于 2025-5-14 09:26
+
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">昨晚睡前想看看吉夸克更新没有，结果被切片在标题剧透了
+
+今天早上偷摸看完了第六集<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，哎呀，太期待下一集了，要开片了
+
+*****
+
+####  ykyin09  
+##### 12657#       发表于 2025-5-14 09:29
+
+tts掌了权那奥古是不是被杀光了
+
+*****
+
+####  希望之异热同心  
+##### 12658#       发表于 2025-5-14 09:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67812451&amp;ptid=2209276" target="_blank">ykyin09 发表于 2025-5-14 09:29</a>
+
+tts掌了权那奥古是不是被杀光了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">联邦战败的时间线哪来奥古生存的土壤
+
+
+*****
+
+####  DARK_HGCG  
+##### 12659#       发表于 2025-5-14 09:32
+
+换光头的话下集番茄该死妈了
+
+可以是精神病流弹打死番茄妈
+
+番茄发神经开大流弹打死紫色老太婆
+
+绿色大叔背黑锅
+
+番茄一不做二不休抢船润地球
+
+*****
+
+####  冷静先找时光机  
+##### 12660#       发表于 2025-5-14 09:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67812451&amp;ptid=2209276" target="_blank">ykyin09 发表于 2025-5-14 09:29</a>
+
+tts掌了权那奥古是不是被杀光了</blockquote>
+奥古背后是月面财阀，你猜现在月球是谁的大本营？<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
