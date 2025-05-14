@@ -12600,3 +12600,70 @@ SIDE6的海关敢拦，不怕空调机当场变形哦<img src="https://static.st
 经典东亚家庭之“你想让我跟你说我到 ...</blockquote>
 还蛮真实的，对填出路这种东西没有认知也没人讲解过，突然就出现人生选项了，问想干啥人真把自己内心症状掏出来讲又没能耐分析心理只能空要回答，最后成功给点爆了
 
+
+*****
+
+####  猪突猛进R  
+##### 12917#       发表于 2025-5-14 16:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67814038&amp;ptid=2209276" target="_blank">希望之异热同心 发表于 2025-5-14 16:07</a>
+
+那和番茄还是不一样，阿尔本质上是见证战争的人他自己不用赌上人生去参与，可以回归日常珍惜身边的一切， ...</blockquote>
+阿尔除了没上机，已经深度参与了。
+
+和吉翁军搅在一块，自愿提供情报，自愿给吉翁军人打掩护。（虽然是被利用）
+
+得知SIDE6可能被核攻击后，和巴尼一起维修扎古。
+
+因此虽然是“小孩子不懂事闹着玩的”，但假如SIDE6的政府真要上纲上线，也够他父母喝一壶的。
+
+0080的亮点是
+
+1.主角邻家的大姐姐和主角憧憬的大哥哥在互相不知道的情况下相爱相杀；
+
+2.从事后来看，巴尼的个人英雄主义行为实际上没有意义；
+
+3.在终战后的学校讲话上，其他人都把战争当过家家，只有见证战争残酷的阿尔放声大哭。
+
+反战主义拉满，其他作品很难有这种高度。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 希望之异热同心| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  ryanghj  
+##### 12918#       发表于 2025-5-14 16:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67814076&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-14 16:16</a>
+
+前面就说过就她和玛秋有塞I can Friday by day 玩偶的彩蛋就已经是一种对应了，就这两个把见到的空间主动用 ...</blockquote>
+要共振了吗<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wpcc  
+##### 12919#       发表于 2025-5-14 16:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67814126&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-14 16:25</a>
+
+要共振了吗</blockquote>
+什么 side6被泽可诺娃了吗
+
+*****
+
+####  xwz  
+##### 12920#       发表于 2025-5-14 16:33
+
+说起来，麻球在吼那声无路赛的时候我就在想，果然是妈妈是钉宫<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
