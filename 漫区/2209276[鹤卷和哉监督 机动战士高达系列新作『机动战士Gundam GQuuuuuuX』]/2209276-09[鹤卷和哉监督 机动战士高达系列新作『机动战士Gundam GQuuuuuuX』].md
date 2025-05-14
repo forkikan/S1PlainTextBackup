@@ -12252,3 +12252,64 @@ gqx在日本的拉新效果非常好，在中文圈也有一定作用，我看�
 然後自己拿著行李去集合地點 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那么问题来了，为什么不能一开始就两人一起上机，挤一挤得了，反正军团战又不要求你露驾驶室画面检测你有几个人在里头
 
+
+*****
+
+####  aptx8285144  
+##### 12883#       发表于 2025-5-14 15:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813791&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-5-14 15:14</a>
+
+我去，这一定就是真正的自由吧</blockquote>
+比起去补习班确实是自由了<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 12884#       发表于 2025-5-14 15:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813804&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-5-14 15:17</a>
+
+那么问题来了，为什么不能一开始就两人一起上机，挤一挤得了，反正军团战又不要求你露驾驶室画面检测你有 ...</blockquote>
+这个东西是纯脑控的 脑控机器双人开好像就eva干过吧 很难开
+
+*****
+
+####  Evomenon  
+##### 12885#       发表于 2025-5-14 15:29
+
+下集至少四方混战？主角一组、绿叔叔一组、周锦华一组、紫婆卫队（总该有来吧）一组
+
+很难想象会怎么演
+
+
+*****
+
+####  ftyaid  
+##### 12886#       发表于 2025-5-14 15:30
+
+<blockquote>Evomenon 发表于 2025-5-14 15:29
+下集至少四方混战？主角一组、绿叔叔一组、周锦华一组、紫婆卫队（总该有来吧）一组
+
+很难想象会怎么演 ...</blockquote>
+紫婆卫队可能给精神力垫了直接秒了，就不用描写了
+
+*****
+
+####  wpcc  
+##### 12887#       发表于 2025-5-14 15:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813840&amp;ptid=2209276" target="_blank">Evomenon 发表于 2025-5-14 15:29</a>
+
+下集至少四方混战？主角一组、绿叔叔一组、周锦华一组、紫婆卫队（总该有来吧）一组
+
+很难想象会怎么演 ...</blockquote>
+紫婆卫队就是绿叔叔 他都做民航来了 他要叫奇美拉就得通知基连 白干了
+
+*****
+
+####  wpcc  
+##### 12888#       发表于 2025-5-14 15:33
+
+side6这群搞黑拳的完全不审查参赛人的机子 连精神力都默许开 是真的没想过会被玩死哇
+
