@@ -10142,3 +10142,60 @@ khara：我们没有骗人追z高达←new
 钉宫对玛秋其实也不算管的很严吧，这话转身就走也没立刻追上去，玛秋现在也没啥“理想"，就是满脑子修司以 ...</blockquote>
 说了啊，找玫瑰不是吗？
 
+
+*****
+
+####  ryanghj  
+##### 12684#       发表于 2025-5-14 10:28
+
+玛秋要去地球是混杂了自己的欲望和梦想
+
+她本身就向往地球，而她喜欢的人也想去地球，所以就要跟着去地球咯
+
+确实像水母
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  Lawliet.L  
+##### 12685#       发表于 2025-5-14 10:29
+
+就让锦华当BOSS吧<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Gysumitka  
+##### 12686#       发表于 2025-5-14 10:31
+
+<img src="https://p.sda1.dev/24/713020df44b2141285a9671a2bf85554/image.jpg" referrerpolicy="no-referrer">
+背后的枪和被遮住的“人脉”
+
+
+*****
+
+####  xwr  
+##### 12687#       发表于 2025-5-14 10:34
+
+之前还说就12集拍不了太多东西，结果现在后半会怎么演我都完全猜不出来了。
+
+按之前来看地球联邦和吉翁战后的关系还行，宇宙和地球也有定期通航，提坦斯当然是十分不爽，可能是想独走挑起战争。
+
+我原以为军团战就是提供个幌子让提坦斯连人带机渗透进side6，只要基西莉亚就位就开始行动，军团战打不打都行，但看预告下集还是打起来了....难道打算把暗杀伪装成军团战意外么，这难度未免有些太大了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sliurus  
+##### 12688#       发表于 2025-5-14 10:35
+
+大姐头留个门应该是劝退马秋的意思，GQX已经当不了交涉的底牌，装腔作势打算让马秋知难而退；顺便让她通知修司带红高达离开，因为博美犬帮没有直接和修司接触过
+
+至于为什么时机掐得这么准，这是动画<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  伊露伊道格拉斯  
+##### 12689#       发表于 2025-5-14 10:36
+
+话说这集出现了一身白的强化人二号，喵安泄露的那张驾驶服也是从黑皮变了白皮，白化不会是gqux世界观里前几号强化人的特征吧，后遗症什么的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
