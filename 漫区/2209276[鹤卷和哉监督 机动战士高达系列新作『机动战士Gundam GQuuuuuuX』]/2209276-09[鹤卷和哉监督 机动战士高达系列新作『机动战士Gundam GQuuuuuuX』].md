@@ -13002,3 +13002,29 @@ quuuuuux懂了，那么Q的意思是什么呢
 富野不死你真敢翻拍吗</blockquote>
 之前不就有gto和雷霆宙域了动画化了，不过效果都不咋地
 
+
+*****
+
+####  希望之异热同心  
+##### 12950#       发表于 2025-5-14 19:16
+
+至少我觉得番茄妈不会那么快就寄，倒是博美犬除了安琪之外的几个危险多了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  g救世主高达  
+##### 12951#       发表于 2025-5-14 19:17
+
+肯定是先拿女主同学开刀子的，参考独角兽第一集带袖军袭击机械中专<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oi99o  
+##### 12952#       发表于 2025-5-14 19:19
+
+op歌还行，但是画面真的没啥气势，既然要开图了能不能多换点新画面<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
