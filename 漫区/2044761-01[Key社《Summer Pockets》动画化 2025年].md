@@ -199,3 +199,11 @@ KEY社（或者说GAL业界）还真喜欢玩这种女鬼桥段啊</blockquote>
 
 这改编至少有头有尾，该讲的都讲了，动画观众应该能get到想说的意思，算是完成任务了，至少是灰色系列级别的改编。
 
+
+*****
+
+####  mhss  
+##### 132#       发表于 2025-5-14 19:14
+
+万万没想到又是key的老套路<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">，但是场景切换和情节转折太生硬了，感动不起来啊
+
