@@ -12313,3 +12313,109 @@ gqx在日本的拉新效果非常好，在中文圈也有一定作用，我看�
 
 side6这群搞黑拳的完全不审查参赛人的机子 连精神力都默许开 是真的没想过会被玩死哇
 
+
+*****
+
+####  洛克萨斯  
+##### 12889#       发表于 2025-5-14 15:35
+
+所以这个gq宇宙联邦战败鹰派上位爆兵爆科技已经搞出三代机了，吉翁还在一代机，连磁气覆膜都还没大规模实装？还在测试中<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+两边再打一次这吉翁有啥胜算，全靠赛克缪科技树么
+
+*****
+
+####  Evomenon  
+##### 12890#       发表于 2025-5-14 15:37
+
+ 本帖最后由 Evomenon 于 2025-5-14 15:40 编辑 
+<blockquote>wpcc 发表于 2025-5-14 15:32
+紫婆卫队就是绿叔叔 他都做民航来了 他要叫奇美拉就得通知基连 白干了</blockquote>
+
+主要绿叔叔自己有二心啊，虽然卧底（？）首席哥已经被叔叔控住了
+
+而且我还漏了一方，side6自己的安保也不会坐视不管吧
+
+
+*****
+
+####  希望之异热同心  
+##### 12891#       发表于 2025-5-14 15:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813866&amp;ptid=2209276" target="_blank">wpcc 发表于 2025-5-14 15:33</a>
+
+side6这群搞黑拳的完全不审查参赛人的机子 连精神力都默许开 是真的没想过会被玩死哇 ...</blockquote>
+这锅得给side6的神人海关背哈哈哈，又放京宝梵又放大空调，side6居民遇上这样的海关这辈子也是有了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 12892#       发表于 2025-5-14 15:41
+
+ 本帖最后由 岸浪白野 于 2025-5-14 15:45 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813886&amp;ptid=2209276" target="_blank">洛克萨斯 发表于 2025-5-14 15:35</a>
+
+所以这个gq宇宙联邦战败鹰派上位爆兵爆科技已经搞出三代机了，吉翁还在一代机，连磁气覆膜都还没大规模实装 ...</blockquote>
+是磁气覆膜博士没有留在联邦选择留在宇宙混安保公司才会变成到第4集才测试磁气覆膜啊，三代机这个道理已经有人从联邦留在地球不管那些事有什么好处开始论证过就不说了
+
+*****
+
+####  盐盐盐盐盐  
+##### 12893#       发表于 2025-5-14 15:41
+
+<blockquote>暗黑能乐 发表于 2025-5-14 15:17
+那么问题来了，为什么不能一开始就两人一起上机，挤一挤得了，反正军团战又不要求你露驾驶室画面检测你有 ...</blockquote>
+因为每次出击都是从博美队机库登机吧，麻球等会还要去偷安琪拍的红高照片和钱，不能打草惊蛇，只能先麻球在博美队见证下登机，再在没人的通道里换人，这样她有不在场证明了偷博美队东西不容易被怀疑
+
+虽然我也不明白她这个计划最终是想把修司藏哪去……目前来看她也不认识索顿，订的飞船也还没交付
+
+*****
+
+####  wpcc  
+##### 12894#       发表于 2025-5-14 15:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813900&amp;ptid=2209276" target="_blank">Evomenon 发表于 2025-5-14 15:37</a>
+
+主要绿叔叔自己有二心啊，虽然卧底（？）首席哥已经被叔叔控住了
+
+而且我还漏了一方，side6自己的安保也不 ...</blockquote>
+side6没有光束武器 一下就全灭了 
+
+*****
+
+####  wpcc  
+##### 12895#       发表于 2025-5-14 15:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813904&amp;ptid=2209276" target="_blank">希望之异热同心 发表于 2025-5-14 15:40</a>
+
+这锅得给side6的神人海关背哈哈哈，又放京宝梵又放大空调，side6居民遇上这样的海关这辈子也是有了 ...</blockquote>
+搞黑拳的很明显就是军警高层 他自己开盘口赌啊
+
+*****
+
+####  ftyaid  
+##### 12896#       发表于 2025-5-14 15:42
+
+直播看打架和海关是废物就是side6特色，不得不品尝
+
+*****
+
+####  swessia  
+##### 12897#       发表于 2025-5-14 15:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">咋扯这么现实的话题，这集演番茄母女不是为了下集看番茄后悔哭嘛<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wpcc  
+##### 12898#       发表于 2025-5-14 15:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813915&amp;ptid=2209276" target="_blank">swessia 发表于 2025-5-14 15:42</a>
+
+咋扯这么现实的话题，这集演番茄母女不是为了下集看番茄后悔哭嘛
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+创作者和观众同一个环境的话能省了很多不必要的解释 外面一堆人理解不了为什么要把小番茄拍的那么讨厌
+

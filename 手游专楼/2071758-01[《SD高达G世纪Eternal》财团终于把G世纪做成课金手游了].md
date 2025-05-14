@@ -14675,3 +14675,14 @@ BD系是分原作游戏和改编漫画俩版本的，到时候全装BD1和BD3估
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  captoon  
+##### 1378#       发表于 2025-5-14 15:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813298&amp;ptid=2071758" target="_blank">xinfengj 发表于 2025-5-14 13:06</a>
+
+魔女塞给S高达了，能吃到词条补正</blockquote>
+那魔女格斗不就浪费了吗
+
