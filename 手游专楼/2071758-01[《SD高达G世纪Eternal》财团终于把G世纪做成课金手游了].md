@@ -14838,3 +14838,15 @@ BD系是分原作游戏和改编漫画俩版本的，到时候全装BD1和BD3估
 
 多谢指导！
 
+
+*****
+
+####  lighttt  
+##### 1395#       发表于 2025-5-15 01:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67815849&amp;ptid=2071758" target="_blank">demon6666 发表于 2025-5-15 00:38</a>
+多谢指导！</blockquote>
+刚刷到一个z，1突铁奥，能天使，风灵，nt高达，带贝姐船的，你要的话私信我一个国际服南梦宫id<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">自选ur还在
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
