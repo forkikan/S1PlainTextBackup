@@ -10521,3 +10521,84 @@ clanba胜利条件是斩首，正史精神病驾驶舱就在头部
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她最好后面的成长弧线能让观众觉得确实OK，不然可不是共不共情能解决的了
 
+
+*****
+
+####  OrianaThomson  
+##### 12721#       发表于 2025-5-14 11:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67812657&amp;ptid=2209276" target="_blank">xwr 发表于 2025-5-14 10:34</a>
+
+之前还说就12集拍不了太多东西，结果现在后半会怎么演我都完全猜不出来了。
+
+按之前来看地球联邦和吉翁战后 ...</blockquote>
+大的真的要来了<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  伊迪潘宫森  
+##### 12722#       发表于 2025-5-14 11:38
+
+字幕质量真的有点难以恭维
+
+*****
+
+####  孤舟垂钓  
+##### 12723#       发表于 2025-5-14 11:38
+
+这么可爱的白毛小loli强化人，宅社这群老害忍得住下集不一枪点爆发个便当以便彰显UC文化吗
+
+*****
+
+####  xwr  
+##### 12724#       发表于 2025-5-14 11:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67812881&amp;ptid=2209276" target="_blank">萨尤克 发表于 2025-5-14 11:35</a>
+
+特殊部队创设准备中，就是还没成立呗
+
+—— 来自 Xiaomi 25019PNF3C, Android 15, 鹅球 v3.5.99 ...</blockquote>
+我看是人和机都到位了，只差契机官宣<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  创始’’’天翔  
+##### 12725#       发表于 2025-5-14 11:40
+
+<blockquote>Geyorkias 发表于 2025-5-14 09:47
+冷战不等于一枪不放，不管是美军打了那么多年最后狼狈撤离的越战还是拖死苏联的阿富汗战争，都是冷战的一 ...</blockquote>
+gqx这换过来难道不是苏联美国正式下场打擂台？
+
+*****
+
+####  秋月孝三  
+##### 12726#       发表于 2025-5-14 11:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正ED已经贷款好happy ending叻
+
+
+*****
+
+####  lunaticfool  
+##### 12727#       发表于 2025-5-14 11:44
+
+宇宙男鬼的结局已经确定了吧
+
+*****
+
+####  Loner  
+##### 12728#       发表于 2025-5-14 11:45
+
+这剧情给人感觉像是按过去50集那种节奏拍的。
+
+但集数只剩一半了，还使劲引入晦涩的UC政治戏码，这真能讲好吗？我有点怀疑<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+当然要是说还有下一季，那我没话说了
+
+*****
+
+####  西洛克  
+##### 12729#       发表于 2025-5-14 11:46
+
+马秋的妈其实还不错吧，没太干涉孩子未来，也挺关心的。uc父母比钉宫好一点的大概也就胡索（战争前）和西布克？
+
