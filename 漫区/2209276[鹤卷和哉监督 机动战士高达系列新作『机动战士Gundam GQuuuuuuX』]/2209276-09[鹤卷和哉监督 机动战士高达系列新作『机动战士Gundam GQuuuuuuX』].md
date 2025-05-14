@@ -13578,3 +13578,69 @@ plazma爱听好听，力挺律师<img src="https://static.stage1st.com/image/smi
 
 真正的违法建筑贫民窟动画第一集就出现过了，喵安住的楼的从外表就能看出条件比贫民窟是好的，我觉得这是看片不仔细
 
+
+*****
+
+####  我聞如是  
+##### 13002#       发表于 2025-5-14 22:25
+
+為什麼你包得那麼熟練啊！
+
+<img src="https://img.stage1st.com/forum/202505/14/222219yv79wrrf7uf6efhn.jpg" referrerpolicy="no-referrer">
+
+<strong>1000028525.jpg</strong> (162.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 22:22 上传
+
+*****
+
+####  ykyin09  
+##### 13003#       发表于 2025-5-14 22:27
+
+喵安住的楼看着像是香港那种公屋
+
+*****
+
+####  伊露伊道格拉斯  
+##### 13004#       发表于 2025-5-14 22:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813410&amp;ptid=2209276" target="_blank">woui003woui 发表于 2025-5-14 13:33</a>
+
+喵安观感确实好，除了老中特有加分的“难民努力考学改变命运”感之外，平时踏实工作赚钱，上机了又爆种开大 ...</blockquote>
+这里已经是刻意得不能再刻意的负面塑造了，为了和不失去和修司的联系，连修司自身的安全都忽略不顾<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
+
+*****
+
+####  ryanghj  
+##### 13005#       发表于 2025-5-14 22:32
+
+顺带修司喵安这对cp明明马上连着三集大卖却没几个人敢磕，主要是百合就磕玛秋喵安，bg就磕修司玛秋，两边都有点把修司喵安这对当邪教，我感觉这是不是鹤卷要营造的效果
+
+喵安不仅在戏里要忍耐自己的感情，戏外也没人关注她的感情，再考虑到一开始的短信疑似让喵安和玛秋调换了地位，不得不说如果是的话真的是一出精彩的meta叙事<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  mintslime  
+##### 13006#       发表于 2025-5-14 22:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67815383&amp;ptid=2209276" target="_blank">otaku21126 发表于 2025-5-14 21:49</a>
+
+只能说，描绘的底层生活感觉不如独角兽里帕劳那一段
+
+不过话又说回来，好像设定上也没说尼亚安过的是底层生 ...</blockquote>
+为了让生活走上正轨去运非法军火设备被军警抓还是太超前了<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+而且红高达贴贴那段，原来我以为是塑造喵安“我也没有读过书”的形象，在没社会化的情况下做出的没有异性意识的举措。但是她都能申居留考大学了，还说是个没社会化的野孩子实在是有点说不过去<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">好吧，知道老登们只是想发福利了
+
+*****
+
+####  木板春香  
+##### 13007#       发表于 2025-5-14 22:35
+
+喵安的自我认知是性格暴躁冲动，但平时要压抑本性装一个很平静的人
+

@@ -126,3 +126,11 @@ tkn：找一辈子房子，好借宿一辈子
 —— 来自 鹅球 v3.5.99</blockquote>
 没做完不影响配音吧？不很多只有分镜或者一集只做了一点点声优就开始配音了<img src="https://static.stage1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">这集真配得没蒜味儿，咋说呢，有些棒读了？
 
+
+*****
+
+####  oi99o  
+##### 2302#       发表于 2025-5-14 22:26
+
+草，作监合田浩章，有败犬第三集内味了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

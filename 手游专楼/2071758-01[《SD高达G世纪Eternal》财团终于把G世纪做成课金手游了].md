@@ -14786,3 +14786,11 @@ BD系是分原作游戏和改编漫画俩版本的，到时候全装BD1和BD3估
 
 所以有支援角控攻击机补输出，防御角控支援机在安全位置上db然后援防的玩法
 
+
+*****
+
+####  demon6666  
+##### 1390#       发表于 2025-5-14 22:28
+
+看推才发现万代出了这游戏，想问下现在刷初始的话，哪些机体比较值得<img src="https://static.stage1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
