@@ -12213,3 +12213,42 @@ gqx在日本的拉新效果非常好，在中文圈也有一定作用，我看�
 答:下午和修司，喵安泡在高达上面，而上午在博美家外面晒太阳(</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我去，这一定就是真正的自由吧
 
+
+*****
+
+####  galgamesh11  
+##### 12880#       发表于 2025-5-14 15:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813790&amp;ptid=2209276" target="_blank">我聞如是 发表于 2025-5-14 15:13</a>
+看預告感覺麻球的計劃是軍團戰自己先上GQ
+
+在地下通道換成喵安開，喵安帶紅高跑
+
+然後自己拿著行李去集合地點 ...</blockquote>
+本来就冲着城市战去的，精神力高达又不是真的来打黑拳的，预告里出击的镜头都在市区
+
+
+*****
+
+####  洛克萨斯  
+##### 12881#       发表于 2025-5-14 15:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813783&amp;ptid=2209276" target="_blank">jojonathan 发表于 2025-5-14 15:12</a>
+
+克制一点少用远程的话顶得住（参考f91）但感觉精神感应高达并不会克制</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">我估计会有精神力满功率一炮直射打在gq的盾上面反射到殖民卫星内部然后一片火海大爆炸
+
+*****
+
+####  暗黑能乐  
+##### 12882#       发表于 2025-5-14 15:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813790&amp;ptid=2209276" target="_blank">我聞如是 发表于 2025-5-14 15:13</a>
+
+看預告感覺麻球的計劃是軍團戰自己先上GQ
+
+在地下通道換成喵安開，喵安帶紅高跑
+
+然後自己拿著行李去集合地點 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那么问题来了，为什么不能一开始就两人一起上机，挤一挤得了，反正军团战又不要求你露驾驶室画面检测你有几个人在里头
+
