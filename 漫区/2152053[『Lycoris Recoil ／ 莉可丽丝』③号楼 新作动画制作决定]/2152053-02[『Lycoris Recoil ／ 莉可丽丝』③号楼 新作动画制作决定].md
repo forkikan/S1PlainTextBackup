@@ -38,3 +38,11 @@
 
 [https://x.com/aleos696/status/1922411654886633832/photo/1](https://x.com/aleos696/status/1922411654886633832/photo/1)
 
+
+*****
+
+####  osore  
+##### 2294#       发表于 2025-5-14 20:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还以为是讲风希和米卡的，没想到发那么多糖
+

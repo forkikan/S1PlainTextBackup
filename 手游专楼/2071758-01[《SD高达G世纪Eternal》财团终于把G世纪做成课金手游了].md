@@ -14744,3 +14744,15 @@ BD系是分原作游戏和改编漫画俩版本的，到时候全装BD1和BD3估
 <img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">又发了3000
 <img src="https://static.stage1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">你们别氪了我害怕
 
+
+*****
+
+####  dio999  
+##### 1386#       发表于 2025-5-14 20:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67814970&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-5-14 19:51</a>
+又发了3000
+
+你们别氪了我害怕</blockquote>
+这不昨天预告的3000嘛，我以为刚又发了正兴冲冲上游戏<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
