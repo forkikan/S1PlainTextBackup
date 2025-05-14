@@ -134,3 +134,12 @@ tkn：找一辈子房子，好借宿一辈子
 
 草，作监合田浩章，有败犬第三集内味了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  osore  
+##### 2303#       发表于 2025-5-14 22:43
+
+我觉得诗音配得挺好的
+阻止樱穿千束制服时啊啊啊啊的撒娇很赞
+

@@ -13644,3 +13644,56 @@ plazma爱听好听，力挺律师<img src="https://static.stage1st.com/image/smi
 
 喵安的自我认知是性格暴躁冲动，但平时要压抑本性装一个很平静的人
 
+
+*****
+
+####  wpcc  
+##### 13008#       发表于 2025-5-14 22:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67815512&amp;ptid=2209276" target="_blank">ykyin09 发表于 2025-5-14 22:27</a>
+
+喵安住的楼看着像是香港那种公屋</blockquote>
+这种就是最入门的日本小单间 hk那个比这个还烂
+
+
+*****
+
+####  ftyaid  
+##### 13009#       发表于 2025-5-14 22:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67815531&amp;ptid=2209276" target="_blank">wpcc 发表于 2025-5-14 22:38</a>
+
+这种就是最入门的日本小单间 hk那个比这个还烂</blockquote>
+公屋，政府提供的屋子，不是鸽子笼
+
+香港公屋还可以的（所以申请的人多）
+
+*****
+
+####  刺客ares  
+##### 13010#       发表于 2025-5-14 22:45
+
+<blockquote>ryanghj 发表于 2025-5-14 22:32
+顺带修司喵安这对cp明明马上连着三集大卖却没几个人敢磕，主要是百合就磕玛秋喵安，bg就磕修司玛秋，两边都 ...</blockquote>
+
+喵安书架的ican Friday by day彩蛋书上画着短片女二脑袋里的兔子。
+
+<img src="https://img.stage1st.com/forum/202505/14/224418xppyxc4b1hw1gvhv.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1178.jpeg</strong> (43.43 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 22:44 上传
+
+在短片里，脑子里有兔子的黑长直女二和脑子里有闪亮矿石的男主是正牌情侣，和玛秋关联的松鼠少尉那位反而是被闺蜜女二偷跑的败犬女一号。
+
+这彩蛋设置的也挺恶毒的（
+
+*****
+
+####  NaughtyFish  
+##### 13011#       发表于 2025-5-14 22:45
+
+这段给我的感觉是  虽然住的地方比较简陋，但是房间打理的很干净  ，真要画成脏兮兮的房间感觉也不符合人物
+
