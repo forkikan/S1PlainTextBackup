@@ -310,3 +310,11 @@
 
 不用感觉，在草台这方面，箭头永远不会让玩家失望
 
+
+*****
+
+####  FLZB  
+##### 5952#       发表于 2025-5-14 11:26
+
+现在这光能野队阵亡率极高，强度没上来就纯逛街，一旦强度上来了压都压不住，还全是各种恶心透顶的秒杀<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

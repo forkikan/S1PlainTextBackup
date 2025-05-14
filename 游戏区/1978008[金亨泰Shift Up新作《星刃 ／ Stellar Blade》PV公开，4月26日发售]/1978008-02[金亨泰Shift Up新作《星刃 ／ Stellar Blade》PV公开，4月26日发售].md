@@ -290,3 +290,38 @@ ps上尼尔dlc定价1100日元
 
 600认真的吗 你们不要骗我<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhouaa  
+##### 1954#       发表于 2025-5-14 11:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">轨迹带季票600的版本也不是没买过   当然那个更贵的版本真下不去手
+
+*****
+
+####  刑部姬真可爱  
+##### 1955#       发表于 2025-5-14 11:21
+
+昨天我刷nga好像有偷跑图说普通版398，豪华版598来着，不知真假
+
+
+*****
+
+####  はちたや  
+##### 1956#       发表于 2025-5-14 11:23
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是索尼大手发力了？
+
+*****
+
+####  黑暗之眼  
+##### 1957#       发表于 2025-5-14 11:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67809204&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-5-13 12:57</a>
+
+索尼发行不可能低价的，我看有人说之前推特泄露过普通版398完全版598
+
+现在的问题是主机版免费送的那些服装 ...</blockquote>
+PC难道还能区分一个原版吗？
+

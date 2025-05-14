@@ -10404,3 +10404,55 @@ clanba胜利条件是斩首，正史精神病驾驶舱就在头部
 现在：不仅要补0079还 ...</blockquote>
 虽然但是，剧场版上映来了个神秘发功的泽克诺瓦时就应该直接推荐补到CCA了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wpcc  
+##### 12711#       发表于 2025-5-14 11:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67812808&amp;ptid=2209276" target="_blank">pokemon最爱 发表于 2025-5-14 11:13</a>
+
+虽然但是，剧场版上映来了个神秘发功的泽克诺瓦时就应该直接推荐补到CCA了吧 ...</blockquote>
+从内部登陆爆破一比一复刻的
+
+*****
+
+####  YU_JI  
+##### 12712#       发表于 2025-5-14 11:19
+
+tts正在组建就敢放毒气了吗？都没正式建立呢
+
+*****
+
+####  污陨血红  
+##### 12713#       发表于 2025-5-14 11:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67812819&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-14 11:19</a>
+
+tts正在组建就敢放毒气了吗？都没正式建立呢</blockquote>
+精神力高达都搞出来了，可能是实力更强，更魔怔的tts<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  变老的大二  
+##### 12714#       发表于 2025-5-14 11:24
+
+喵安还想着申请永居，和读鸡瘟工科大学。
+
+番茄还在和亲妈纠结人生未来的方向。
+
+下一话之后周锦华应该可以让三人组全跑去干他了。
+
+*****
+
+####  希望之异热同心  
+##### 12715#       发表于 2025-5-14 11:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67812740&amp;ptid=2209276" target="_blank">只吃干拌面 发表于 2025-5-14 10:58</a>
+
+同样是前期恋爱脑，为什么巴垃圾比番茄的观感好这么多</blockquote>
+巴上帝本质上是沿着前人铺好的路前进的，他自己不需要做太多选择大人们全给他指引好了，更多是承载前人的意志最后也达成了前人给他的期待，这也是我很讨厌独角兽的一点。
+
+番茄则是在日常生活中接触到世界的另一面，自己还没纠结好究竟要回去当个顺从大人指引的乖乖女还是顺从自己本心找寻自己属于自己的独特生活时就被时代的精神病高达创了。原本日常的道路已经破碎接下来番茄只能基于自己意志去在动荡中成长起来，这样的角色观众不好共情因为角色还在成长中并没有坚定的信念
+
