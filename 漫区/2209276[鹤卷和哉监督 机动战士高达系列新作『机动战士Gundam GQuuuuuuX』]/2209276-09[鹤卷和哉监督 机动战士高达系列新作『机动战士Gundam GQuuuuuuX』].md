@@ -12938,3 +12938,44 @@ quuuuuux懂了，那么Q的意思是什么呢
 
 而这集的首席哥，有一刻我真以为他小命不保了，谁知绿叔叔从天而降。
 
+
+*****
+
+####  猪突猛进R  
+##### 12944#       发表于 2025-5-14 18:55
+
+比较符合GQX现状的，是吉翁系谱里联邦判定败北结局：
+[https://www.bilibili.com/video/B ... 234f500dab&amp;p=33](https://www.bilibili.com/video/BV1gK4y1j7FJ?vd_source=536aedbb68ee78d848fb8b234f500dab&amp;p=33)
+
+*****
+
+####  otaku21126  
+##### 12945#       发表于 2025-5-14 18:55
+
+ 本帖最后由 otaku21126 于 2025-5-14 18:57 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67814504&amp;ptid=2209276" target="_blank">Liren 发表于 2025-5-14 17:52</a>
+不知道有没有人发过，刚在X上看到的，解释gquuuux的</blockquote>
+单纯从占位符的角度讲，那quuuuuux作为9的占位符，最简单的含义当然是 lies heavy 这个9字代号
+关于quuuuuux的数字含义印象里一开始就有人提过了
+
+如果quuuuuux对应0079后的第九年，那么也就是说Gquuuuuux是Z高达吗<img src="https://static.stage1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 12946#       发表于 2025-5-14 18:56
+
+ 本帖最后由 岸浪白野 于 2025-5-14 18:57 编辑 
+
+魔女会是单元剧形式要想1集结束那就1集死之前就能有预感也不是谁能猜到那种吧
+说到底她的纹章就已经暗示结局了
+
+
+*****
+
+####  岸浪白野  
+##### 12947#       发表于 2025-5-14 19:03
+
+虽然知道有楼友真的不想再听律师的OP
+但有些梦还是要醒的
+
