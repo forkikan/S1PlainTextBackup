@@ -14686,3 +14686,11 @@ BD系是分原作游戏和改编漫画俩版本的，到时候全装BD1和BD3估
 魔女塞给S高达了，能吃到词条补正</blockquote>
 那魔女格斗不就浪费了吗
 
+
+*****
+
+####  ドロロ  
+##### 1379#       发表于 2025-5-14 16:10
+
+夭寿了，最近快100抽UR的毛都没有<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

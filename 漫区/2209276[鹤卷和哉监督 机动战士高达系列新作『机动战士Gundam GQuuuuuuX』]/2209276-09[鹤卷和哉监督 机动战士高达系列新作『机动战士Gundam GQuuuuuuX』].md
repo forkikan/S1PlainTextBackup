@@ -12525,3 +12525,55 @@ SIDE6的海关敢拦，不怕空调机当场变形哦<img src="https://static.st
 前半应该能留点时间给主角接触精神病驾驶员吧，不然没有纠葛的强化人一点意思都没有 ...</blockquote>
 大概是没有这个时间了 已经在计划打一半跑路了。但是不一定一集就杀 后面还有机会
 
+
+*****
+
+####  希望之异热同心  
+##### 12910#       发表于 2025-5-14 16:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813991&amp;ptid=2209276" target="_blank">88ace88 发表于 2025-5-14 15:57</a>
+
+虽然但是，阿尔就是0080的主角</blockquote>
+那和番茄还是不一样，阿尔本质上是见证战争的人他自己不用赌上人生去参与，可以回归日常珍惜身边的一切，停战后并没有失去原本拥有的东西。但番茄现在是彻底卷进战争之中出不来了
+
+*****
+
+####  88ace88  
+##### 12911#       发表于 2025-5-14 16:09
+
+<blockquote>希望之异热同心 发表于 2025-5-14 16:07
+那和番茄还是不一样，阿尔本质上是见证战争的人他自己不用赌上人生去参与，可以回归日常珍惜身边的一切， ...</blockquote>
+细节当然有不同，但按照你一开始的说法，有阿尔在，番茄就谈不上开先河
+
+
+*****
+
+####  岸浪白野  
+##### 12912#       发表于 2025-5-14 16:11
+
+[X 上的 大川ぶくぶ/bkub：“[url]https://t.co/xl9HO6mD5G](https://x.com/bkub_comic/status/1922555725584236954)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/14/161132knbpnzw4vmp44gva.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (747.98 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 16:11 上传
+
+*****
+
+####  ryanghj  
+##### 12913#       发表于 2025-5-14 16:14
+
+下一集应该能看到打一整集了吧，这集没有全堆下集了，大场面也要来了，不是打黑拳纯近战了
+
+*****
+
+####  盐盐盐盐盐  
+##### 12914#       发表于 2025-5-14 16:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67814023&amp;ptid=2209276" target="_blank">Devola 发表于 2025-5-14 16:02</a>
+ 前半应该能留点时间给主角接触精神病驾驶员吧，不然没有纠葛的强化人一点意思都没有 ...</blockquote>
+直接开聊天室聊就行了，日常碰不上了应该
+
