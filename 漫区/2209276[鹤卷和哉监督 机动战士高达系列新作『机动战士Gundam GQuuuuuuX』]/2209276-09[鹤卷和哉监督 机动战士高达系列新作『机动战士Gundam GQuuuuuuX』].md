@@ -10456,3 +10456,68 @@ tts正在组建就敢放毒气了吗？都没正式建立呢</blockquote>
 
 番茄则是在日常生活中接触到世界的另一面，自己还没纠结好究竟要回去当个顺从大人指引的乖乖女还是顺从自己本心找寻自己属于自己的独特生活时就被时代的精神病高达创了。原本日常的道路已经破碎接下来番茄只能基于自己意志去在动荡中成长起来，这样的角色观众不好共情因为角色还在成长中并没有坚定的信念
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 12716#       发表于 2025-5-14 11:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67812837&amp;ptid=2209276" target="_blank">变老的大二 发表于 2025-5-14 11:24</a>
+
+喵安还想着申请永居，和读鸡瘟工科大学。
+
+番茄还在和亲妈纠结人生未来的方向。
+
+下一话之后周锦华应该可以让 ...</blockquote>
+“他是不能活在世上的存在”高达是这么说的
+
+*****
+
+####  猪突猛进R  
+##### 12717#       发表于 2025-5-14 11:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67812724&amp;ptid=2209276" target="_blank">花達香奈 发表于 2025-5-14 10:51</a>
+
+clanba胜利条件是斩首，正史精神病驾驶舱就在头部
+
+但是小白毛说自己是心脏，这次会不会改到胸部了？ ...</blockquote>
+胸口那么多炮不太可能。
+
+精神力高达本身就是死旗，驾驶舱在头部而军团战规则是破坏头部死上加死<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而且军团战只要求2对2，谁能说精神力高达+汉谟拉比这两机不符合规则呢<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+只能祈祷村雨兔能活得久一点了，别太早进卡池<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  YU_JI  
+##### 12718#       发表于 2025-5-14 11:32
+
+这次的精神病高达不是山下的手笔？是前田真宏吗？
+
+<img src="https://img.stage1st.com/forum/202505/14/113116i1ki1homqhmlko0j.png" referrerpolicy="no-referrer">
+
+<strong>IMG_4857.png</strong> (83.34 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 11:31 上传
+
+*****
+
+####  萨尤克  
+##### 12719#       发表于 2025-5-14 11:35
+
+特殊部队创设准备中，就是还没成立呗
+
+—— 来自 Xiaomi 25019PNF3C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  暗黑能乐  
+##### 12720#       发表于 2025-5-14 11:35
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她最好后面的成长弧线能让观众觉得确实OK，不然可不是共不共情能解决的了
+
