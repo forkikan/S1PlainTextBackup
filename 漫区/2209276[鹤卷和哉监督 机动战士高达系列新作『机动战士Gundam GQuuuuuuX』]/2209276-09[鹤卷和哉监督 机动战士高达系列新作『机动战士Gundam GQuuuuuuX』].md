@@ -13266,3 +13266,85 @@ OP画面肯定是要变的
 
 小番茄家显然是upper class也就中文语境中产完全被扭曲了
 
+
+*****
+
+####  wpcc  
+##### 12974#       发表于 2025-5-14 21:16
+
+GTO和雷霆也能算翻拍 夸张哦 0079重置全集本身就没意义 很多桥段现代观众得上来就骂
+
+*****
+
+####  阿卵真是牛逼  
+##### 12975#       发表于 2025-5-14 21:18
+
+才发现ED是麻球对位尼亚安，哈罗对位机器人，所以机器人是修斯给尼亚安的遗物吗<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ティグル  
+##### 12976#       发表于 2025-5-14 21:18
+
+零哥才不屑于跟初中小朋友过家家
+
+说起来真要算的话他也算是比较稳定的强化人了，只要别跟鸡瘟沾边
+
+*****
+
+####  wpcc  
+##### 12977#       发表于 2025-5-14 21:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67815234&amp;ptid=2209276" target="_blank">mintslime 发表于 2025-5-14 21:01</a>
+
+其实这集我有一点不喜欢，就是制作组那种发达国家中产阶级的贫乏想象力
+
+喵安，一个被军警查到就要润的干非 ...</blockquote>
+香港鸽子笼是酷刑 我们日本殖民地再穷也得有浴缸。宇宙世纪大家生产力都上去了怎么会比2025年还烂
+
+*****
+
+####  ArthurDent  
+##### 12978#       发表于 2025-5-14 21:19
+
+op越看越有感觉了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  leleq  
+##### 12979#       发表于 2025-5-14 21:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67815252&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-14 21:05</a>
+
+所以剧场版这个特典其实就是这段剧情的暗示？第六集出现苹果了，背景里的钱，第七集玛秋的计划不会是喵安替 ...</blockquote>
+看起来应该是计划似乎是喵安去打麻球去领飞机，这边一打完麻球立即开飞机来去接直接飞地球。
+
+那么下一集就是到了时间神经病高达直接开炸，喵安修司阻止不利，麻球看到情况直接抢了飞机就往回飞（？）
+
+
+*****
+
+####  wpcc  
+##### 12980#       发表于 2025-5-14 21:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67815028&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-14 20:05</a>
+
+听きえない时候想到，其实喵安也喜欢修司，只是她知道玛秋喜欢修司所以一直在抑制自己的感情而已
+
+另一方面 ...</blockquote>
+说出三人一起这种话的上一个叫雪菜 不言而喻
+
+*****
+
+####  wpcc  
+##### 12981#       发表于 2025-5-14 21:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67815234&amp;ptid=2209276" target="_blank">mintslime 发表于 2025-5-14 21:01</a>
+
+其实这集我有一点不喜欢，就是制作组那种发达国家中产阶级的贫乏想象力
+
+喵安，一个被军警查到就要润的干非 ...</blockquote>
+这不就是ed歌手本人写照 笑死 彗星就是
+
