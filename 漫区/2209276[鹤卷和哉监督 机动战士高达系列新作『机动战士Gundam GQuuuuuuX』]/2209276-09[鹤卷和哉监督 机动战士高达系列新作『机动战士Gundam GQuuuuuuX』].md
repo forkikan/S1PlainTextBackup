@@ -12915,3 +12915,26 @@ quuuuuux懂了，那么Q的意思是什么呢
 
 林有德和阿姆罗搞不好最后一集会出场，哪怕是彩蛋形式
 
+
+*****
+
+####  猪突猛进R  
+##### 12943#       发表于 2025-5-14 18:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67814696&amp;ptid=2209276" target="_blank">ftyaid 发表于 2025-5-14 18:40</a>
+
+该开盘已出场的角色里，下集有直接的死亡镜头的角色有几个了
+
+我猜四个</blockquote>
+竖死旗也不见得一定会死，还得看编剧是不是心善。
+
+比如铁血第一季结尾大家都在猜会挂几个，结果怎么着？全员安然无恙<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+格雷兹艾因立马从“史上最凶恶BOSS”变成“史上最凶恶BOSS（笑）”<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+而且一个角色死不死真的看编剧心情，铁血太烂不说了。
+
+就拿GQX本身来说，第4集魔女一集死，谁能想到？
+
+而这集的首席哥，有一刻我真以为他小命不保了，谁知绿叔叔从天而降。
+

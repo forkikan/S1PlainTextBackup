@@ -14727,3 +14727,11 @@ BD系是分原作游戏和改编漫画俩版本的，到时候全装BD1和BD3估
 
 高达好就好在各路人气王早就被摸得一清二楚，按顺序出就完事了，不怕你们不掏钱<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  里村紅葉  
+##### 1384#       发表于 2025-5-14 18:45
+
+感觉我这种本命V高+AGE的可以攒到二周年甚至三周年<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
