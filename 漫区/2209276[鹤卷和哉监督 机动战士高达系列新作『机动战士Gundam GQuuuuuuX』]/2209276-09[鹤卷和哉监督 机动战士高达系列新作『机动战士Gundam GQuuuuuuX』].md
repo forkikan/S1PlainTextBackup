@@ -12746,3 +12746,26 @@ Lieutenant在陆军里是中尉，海军是上尉
 这哥们现在联邦钦定最强nt。给联邦泄露紫色老太婆消息的估计也是他。折 ...</blockquote>
 戴肯派以前还有个亡国的王子，现在王子都下落不明了（绿叔叔很清楚这点），还能把谁拱上去？总不能是鸭妹吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猪突猛进R  
+##### 12927#       发表于 2025-5-14 17:06
+
+看到个说法，因为骡爹没事，所以现在联邦的MS是由他继续开发的？
+
+尤其是这条世界线里，高达被吉翁夺取了大杀特杀，后继机没必要再取“高达”的名号，除非是设计师的个人趣味。
+
+
+*****
+
+####  ryanghj  
+##### 12928#       发表于 2025-5-14 17:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67814232&amp;ptid=2209276" target="_blank">EFSF 发表于 2025-5-14 16:54</a>
+
+这一集GQX亚马逊官中字幕的毛病让我坚信亚马逊的官中字幕是特么日翻英英翻中整出来的烂活，怪不得一大堆神 ...</blockquote>
+简中字幕是英翻中，繁中字幕才是日翻中
+
+b站搬运从第三集开始就都是繁中字幕了
+
