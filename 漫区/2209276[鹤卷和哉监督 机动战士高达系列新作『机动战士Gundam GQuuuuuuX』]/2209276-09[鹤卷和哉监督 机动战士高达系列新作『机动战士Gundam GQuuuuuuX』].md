@@ -12110,3 +12110,106 @@ gqx在日本的拉新效果非常好，在中文圈也有一定作用，我看�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/215.gif" referrerpolicy="no-referrer">唉，女声优痴
 
+
+*****
+
+####  猪突猛进R  
+##### 12870#       发表于 2025-5-14 15:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813728&amp;ptid=2209276" target="_blank">aptx8285144 发表于 2025-5-14 14:56</a>
+
+夏利亚回答赌博组奖金肯定归你那表情，怎么看都有一种SIDE6没有未来了，钱再多你们有命花吗？(
+
+能润的就润 ...</blockquote>
+有可能，上一集要调MA过来可能得到什么风声了。
+
+*****
+
+####  赤黑的假面  
+##### 12871#       发表于 2025-5-14 15:09
+
+<blockquote>wpcc 发表于 2025-5-14 14:59
+高达的观众就是这样的人罢 唉gainax</blockquote>
+不是做题家也不会发癫对着玩具广告发情上价值吧
+
+*****
+
+####  ryanghj  
+##### 12872#       发表于 2025-5-14 15:09
+
+顺带一提西姆斯突然提到加州的红酒还说单独送到夏利亚房间，实际上在呼应第二集夏亚见夏利亚，是要交代一些机密信息
+
+我估计就是索顿内鬼的信息
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  洛克萨斯  
+##### 12873#       发表于 2025-5-14 15:10
+
+下一集暂定两台高达打精神力+汉谟拉比，然后绿叔叔的ma可能也参战？五台ms在殖民卫星打起来足够拆掉了吧<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 12874#       发表于 2025-5-14 15:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813739&amp;ptid=2209276" target="_blank">朋友费小号 发表于 2025-5-14 15:00</a>
+
+你这什么都归功到“做题”感觉不如归功于“动了资本的蛋糕”</blockquote>
+我确实做了15年的题罢 
+
+*****
+
+####  wpcc  
+##### 12875#       发表于 2025-5-14 15:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813774&amp;ptid=2209276" target="_blank">赤黑的假面 发表于 2025-5-14 15:09</a>
+
+不是做题家也不会发癫对着玩具广告发情上价值吧</blockquote>
+能别骂了吗 我还想买新汉谟拉比呢
+
+*****
+
+####  jojonathan  
+##### 12876#       发表于 2025-5-14 15:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813778&amp;ptid=2209276" target="_blank">洛克萨斯 发表于 2025-5-14 15:10</a>
+下一集暂定两台高达打精神力+汉谟拉比，然后绿叔叔的ma可能也参战？五台ms在殖民卫星打起来足够拆掉了吧 ...</blockquote>
+克制一点少用远程的话顶得住（参考f91）但感觉精神感应高达并不会克制
+
+*****
+
+####  天邪鬼  
+##### 12877#       发表于 2025-5-14 15:12
+
+这次没安排主角和强化人接触，应该不会有主角共情杀人机器的戏码了吧
+就是不知道精神病高达炸殖民地的时候会不会想起来以前学校的朋友
+
+*****
+
+####  我聞如是  
+##### 12878#       发表于 2025-5-14 15:13
+
+看預告感覺麻球的計劃是軍團戰自己先上GQ
+
+在地下通道換成喵安開，喵安帶紅高跑
+
+然後自己拿著行李去集合地點？
+
+為什麼會變成市街戰還是一個謎
+
+應該不會是因為GQ紅高跑路，精神病高達順便追到地面來吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  暗黑能乐  
+##### 12879#       发表于 2025-5-14 15:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813742&amp;ptid=2209276" target="_blank">aptx8285144 发表于 2025-5-14 15:01</a>
+
+答:下午和修司，喵安泡在高达上面，而上午在博美家外面晒太阳(</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我去，这一定就是真正的自由吧
+

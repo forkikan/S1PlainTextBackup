@@ -1676,3 +1676,34 @@
 
 后来想起有一张saber是当初搞活动跟纪念礼装一起送的，没盘子也能理解...螺旋社还挺严谨...
 
+
+*****
+
+####  壳壳牛  
+##### 16707#       发表于 2025-5-14 12:08
+
+怎么12点唐突更新
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  alucardcz  
+##### 16708#       发表于 2025-5-14 14:36
+
+今天会有大的？
+
+*****
+
+####  qixinno2  
+##### 16709#       发表于 2025-5-14 15:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">除非发我几百石头 不然爱出啥出啥
+
+*****
+
+####  cckuku  
+##### 16710#       发表于 2025-5-14 15:15
+
+要空降新卡池吗<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
