@@ -10199,3 +10199,51 @@ khara：我们没有骗人追z高达←new
 
 话说这集出现了一身白的强化人二号，喵安泄露的那张驾驶服也是从黑皮变了白皮，白化不会是gqux世界观里前几号强化人的特征吧，后遗症什么的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暗黑能乐  
+##### 12690#       发表于 2025-5-14 10:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67812657&amp;ptid=2209276" target="_blank">xwr 发表于 2025-5-14 10:34</a>
+
+之前还说就12集拍不了太多东西，结果现在后半会怎么演我都完全猜不出来了。
+
+按之前来看地球联邦和吉翁战后 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有难度吗，好像也不高
+
+*****
+
+####  galgamesh11  
+##### 12691#       发表于 2025-5-14 10:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67812657&amp;ptid=2209276" target="_blank">xwr 发表于 2025-5-14 10:34</a>
+之前还说就12集拍不了太多东西，结果现在后半会怎么演我都完全猜不出来了。
+
+按之前来看地球联邦和吉翁战后 ...</blockquote>
+下集明显是精神力高达在市区里直接开火了啊，完全不是军团战，只是刚好碰上三人组跑路的计划罢了（）
+
+
+*****
+
+####  希望之异热同心  
+##### 12692#       发表于 2025-5-14 10:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">会谈那段多看几次真的非常典型的东亚中产家庭啊，无法对家长说出自己精神渴求之物的年轻人，希望孩子按部就班成长别整幺蛾子的家长，番茄和番茄妈并没多大紧张又不可调和的矛盾但双方基于自己立场又没办法相互坦诚交流
+
+*****
+
+####  妄想系同盟  
+##### 12693#       发表于 2025-5-14 10:44
+
+开播前：if线没有门槛，补0079（可选）
+播放中：涉及0079人物，推荐补下剧场版+39里
+现在：不仅要补0079还要补z ← 我们在这里<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 12694#       发表于 2025-5-14 10:44
+
+“我要怎么和你爸爸交代”这句实在是典中典了
+
