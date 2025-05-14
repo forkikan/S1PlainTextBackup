@@ -215,3 +215,11 @@ KEY社（或者说GAL业界）还真喜欢玩这种女鬼桥段啊</blockquote>
 
 女鬼设定也太便利了 解释都不想解释就一用到底 这也太不讲究了吧
 
+
+*****
+
+####  没取名啊  
+##### 134#       发表于 2025-5-15 00:25
+
+看key就要默认存在超自然现象，祖宗之法了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

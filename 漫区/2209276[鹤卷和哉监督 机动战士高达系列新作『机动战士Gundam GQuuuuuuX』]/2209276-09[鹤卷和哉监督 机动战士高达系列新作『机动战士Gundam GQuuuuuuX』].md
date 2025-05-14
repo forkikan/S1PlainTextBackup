@@ -13906,3 +13906,27 @@ kirakira就是毒，沾上后除了喵安目前日常中还能维持自我，其
 
 就看最後HG未公開的機體是否ZETA/ THE O的魔改版，更作為BOSS機出場
 
+
+*****
+
+####  eilot  
+##### 13032#       发表于 2025-5-15 00:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67815531&amp;ptid=2209276" target="_blank">wpcc 发表于 2025-5-14 22:38</a>
+
+这种就是最入门的日本小单间 hk那个比这个还烂</blockquote>
+香港的公屋設計上大多都是正常單位來，特別是愈舊的公屋，其當時設計就更符合正常一家3~4人佈局
+
+是那些私樓設計明顯出現各種問題，為了建築及配合某些特大單位，其他單位經常出現三角、只是得個超長但放不到一張單人床的房間設計，還有窗框佔了房屋空間更是水份嚴重設計
+
+而且愈大單位尺寸水份就愈大，
+
+唯一優勢就是新樓驗樓時質素比較高
+
+*****
+
+####  你妈的为什么  
+##### 13033#       发表于 2025-5-15 00:24
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">麻球要不要来个这是我的妈妈梗？
+
