@@ -13871,3 +13871,14 @@ plazma爱听好听，力挺律师<img src="https://static.stage1st.com/image/smi
 喵安观感确实好，除了老中特有加分的“难民努力考学改变命运”感之外，平时踏实工作赚钱，上机了又爆种开大 ...</blockquote>
 说实话麻球已经比我想的善良太多了，当看到她得知修司和红高达被发现后，我还以为她会想起那天看到的修司和喵安你侬我侬的场景然后醋意大发最后选择不告诉修司即将到来的危机，结果她选择的却是找自己的“情敌”喵安合作拯救修司和红高达，她真的，我哭死<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  希望之异热同心  
+##### 13028#       发表于 2025-5-15 00:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67815741&amp;ptid=2209276" target="_blank">汇聚群光 发表于 2025-5-14 23:51</a>
+
+说实话麻球已经比我想的善良太多了，当看到她得知修司和红高达被发现后，我还以为她会想起那天看到的修司 ...</blockquote>
+麻球只是闹别扭大是大非还是很分得清的，吼完喵安之后也一直在沉思自己是不是太过分了，就算吃醋也只是默默离开没有胡闹。不如说一天之内和老妈闹完发现被博美犬卖了还能冷静下来思考怎么救修斯这心理素质挺硬的了
+
