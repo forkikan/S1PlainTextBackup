@@ -366,3 +366,14 @@
 
 城区图竟然做的还蛮细致
 
+
+*****
+
+####  FLZB  
+##### 5958#       发表于 2025-5-14 23:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813055&amp;ptid=2170852" target="_blank">qwased 发表于 2025-5-14 12:15</a>
+
+感觉主要还是光能的飞鹰很容易在混战的时候造成减员，其他单位都没什么威胁（除非配装很抽象） ...</blockquote>
+光能这边很多东西都能秒杀或者屈死玩家，比如苍蝇神经枪、三足光束、魔鬼鱼扫射、电塔、逆天爆炸桶，以及棍哥的无限连和肉瘤王八拳<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

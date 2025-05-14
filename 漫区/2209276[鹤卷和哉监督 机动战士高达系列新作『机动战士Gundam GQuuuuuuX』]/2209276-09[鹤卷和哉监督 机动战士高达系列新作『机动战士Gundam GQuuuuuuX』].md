@@ -13723,3 +13723,16 @@ plazma爱听好听，力挺律师<img src="https://static.stage1st.com/image/smi
 而且红高达贴贴那段，原来我以为是塑造喵安“ ...</blockquote>
 你可以可以认为那些书前面摆满了小摆件说明就是摆着而不是看的
 
+
+*****
+
+####  Devola  
+##### 13014#       发表于 2025-5-14 23:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67815224&amp;ptid=2209276" target="_blank">希望之异热同心 发表于 2025-5-14 20:57</a>
+
+鉴于已经加入通辽宇宙了，转些B站评论区看到的通辽体
+
+硬核狠人《谁能让吉翁最新款高达失踪120天》</blockquote>
+光看文字，通辽耗子的缺德语音已经在脑子里嗡嗡作响了
+
