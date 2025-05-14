@@ -235,3 +235,13 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 5944#       发表于 2025-5-14 08:30
+
+核弹手枪废了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJZ110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+

@@ -1637,3 +1637,42 @@
 
 连续歪了3个之后，终于出学姐了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 16703#       发表于 2025-5-13 10:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67808326&amp;ptid=2084912" target="_blank">rooarr 发表于 2025-5-13 09:14</a>
+
+连续歪了3个之后，终于出学姐了抽学姐加起来至少用了400抽了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">才400
+
+*****
+
+####  qixinno2  
+##### 16704#       发表于 2025-5-13 10:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">只有3石 什么都干不了
+
+*****
+
+####  alucardcz  
+##### 16705#       发表于 2025-5-13 10:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67808691&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-5-13 10:47</a>
+
+只有3石 什么都干不了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">懂了 欧羡慕起来
+
+*****
+
+####  Jamaisvu  
+##### 16706#       发表于 2025-5-14 08:29
+
+每日单抽，金圈一闪，剑阶卡背，看板娘哒！
+
+剑呆早五宝了，本以为能盘子+1，结果邮箱里并没有，还以为是bug。
+
+后来想起有一张saber是当初搞活动跟纪念礼装一起送的，没盘子也能理解...螺旋社还挺严谨...
+

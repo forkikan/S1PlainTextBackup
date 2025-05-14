@@ -14634,3 +14634,16 @@ BD系是分原作游戏和改编漫画俩版本的，到时候全装BD1和BD3估
 魔女最适配的机体可能是BD1，NT否认对上了</blockquote>
 我看了也觉得是bd1
 
+
+*****
+
+####  xiongxingyu  
+##### 1374#       发表于 2025-5-14 08:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811743&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-5-14 00:25</a>
+
+我感觉配给妖刀会更好，就是白字和原配机师低了。
+
+下一个联邦砍王就只有上宇宙的苍白骑士，但是有克洛伊了 ...</blockquote>
+伊藤剑怎么你们了，一个个都想着把他从妖刀上踹下去，连ssr都来参一脚，明明理论上妖刀系统只有伊藤剑才能开启<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
