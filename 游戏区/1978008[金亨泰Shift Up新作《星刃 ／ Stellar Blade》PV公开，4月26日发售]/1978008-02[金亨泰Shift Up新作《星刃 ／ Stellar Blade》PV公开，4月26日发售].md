@@ -273,3 +273,20 @@ ps上尼尔dlc定价1100日元
 
 —— 来自 vivo V2199A, Android 14, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  ネロ  
+##### 1952#       发表于 2025-5-14 11:11
+
+598不是搞笑，当光盘卖？
+等官方宣布看看是不是这么疯
+
+
+*****
+
+####  alucardcz  
+##### 1953#       发表于 2025-5-14 11:13
+
+600认真的吗 你们不要骗我<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+

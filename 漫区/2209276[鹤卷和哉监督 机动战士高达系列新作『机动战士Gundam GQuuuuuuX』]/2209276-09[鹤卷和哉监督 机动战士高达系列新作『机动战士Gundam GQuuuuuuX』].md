@@ -10349,3 +10349,58 @@ clanba胜利条件是斩首，正史精神病驾驶舱就在头部
 话说喵安的公寓麻雀虽小五脏俱全，有浴缸马桶，有灶台、冰箱还有微波炉，甚至有空调，居住环境不要太好，只 ...</blockquote>
 毕竟打了一个月的军团战，而且在那之前也一直在打工赚钱，不太可能基本的家电都配置不上吧
 
+
+*****
+
+####  洛克萨斯  
+##### 12707#       发表于 2025-5-14 11:08
+
+红高达和gq高达都没装备，估计要番茄受刺激发功了，然后精神力高达和gq高达共鸣把side6直接拆了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿卡拉兰斯  
+##### 12708#       发表于 2025-5-14 11:11
+
+看来tts真的来了<img src="https://p.sda1.dev/24/67faf7d1c78f556d8b9bea0247f04459/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  污陨血红  
+##### 12709#       发表于 2025-5-14 11:12
+
+看来tts真的来了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+肘锦华：嗨嗨嗨
+
+<img src="https://img.stage1st.com/forum/202505/14/111229bhc6kbrnkciz41nq.jpg" referrerpolicy="no-referrer">
+
+<strong>D7266D99E48331C679BABD4A4F279A9D.jpg</strong> (150.31 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 11:12 上传
+
+<img src="https://img.stage1st.com/forum/202505/14/111232az0hfyi7jwskvs0j.jpg" referrerpolicy="no-referrer">
+
+<strong>C166112DA6EAB0C02E11D69AB04F705F.jpg</strong> (50.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 11:12 上传
+
+*****
+
+####  pokemon最爱  
+##### 12710#       发表于 2025-5-14 11:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67812692&amp;ptid=2209276" target="_blank">妄想系同盟 发表于 2025-5-14 10:44</a>
+
+开播前：if线没有门槛，补0079（可选）
+
+播放中：涉及0079人物，推荐补下剧场版+39里
+
+现在：不仅要补0079还 ...</blockquote>
+虽然但是，剧场版上映来了个神秘发功的泽克诺瓦时就应该直接推荐补到CCA了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

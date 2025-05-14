@@ -302,3 +302,11 @@
 
 感觉超级地球保卫战箭头要拉大胯<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赤井稻妻  
+##### 5951#       发表于 2025-5-14 11:09
+
+不用感觉，在草台这方面，箭头永远不会让玩家失望
+
