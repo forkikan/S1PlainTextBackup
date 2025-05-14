@@ -12466,3 +12466,62 @@ SIDE6的海关敢拦，不怕空调机当场变形哦<img src="https://static.st
 鹤卷这次确实给高达主角开创了个先河，以前的高达作品，主角第一集就彻底崩坏回不去日常，以往高达都不需 ...</blockquote>
 请看《机动战士高达：天空的学校》
 
+
+*****
+
+####  88ace88  
+##### 12904#       发表于 2025-5-14 15:57
+
+<blockquote>希望之异热同心 发表于 2025-5-14 15:51
+鹤卷这次确实给高达主角开创了个先河，以前的高达作品，主角第一集就彻底崩坏回不去日常，以往高达都不需 ...</blockquote>
+虽然但是，阿尔就是0080的主角
+
+*****
+
+####  朋友费小号  
+##### 12905#       发表于 2025-5-14 15:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813925&amp;ptid=2209276" target="_blank">wpcc 发表于 2025-5-14 15:44</a>
+
+创作者和观众同一个环境的话能省了很多不必要的解释 外面一堆人理解不了为什么要把小番茄拍的那么讨厌 ...</blockquote>
+啊啊啊，是理解不了，还是理解了但是不想去理解
+
+两码事哦<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wpcc  
+##### 12906#       发表于 2025-5-14 16:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813964&amp;ptid=2209276" target="_blank">花達香奈 发表于 2025-5-14 15:53</a>
+
+精神病mk2看图应该没变形机构
+
+再说magnet coating都85才试验，更别说movable frame了 ...</blockquote>
+能变个方盒子 不清楚模型是怎么玩法
+
+*****
+
+####  创始’’’天翔  
+##### 12907#       发表于 2025-5-14 16:02
+
+下集能拍出灾难片的感觉吗
+
+*****
+
+####  Devola  
+##### 12908#       发表于 2025-5-14 16:02
+
+前半应该能留点时间给主角接触精神病驾驶员吧，不然没有纠葛的强化人一点意思都没有
+
+*****
+
+####  wpcc  
+##### 12909#       发表于 2025-5-14 16:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67814023&amp;ptid=2209276" target="_blank">Devola 发表于 2025-5-14 16:02</a>
+
+前半应该能留点时间给主角接触精神病驾驶员吧，不然没有纠葛的强化人一点意思都没有 ...</blockquote>
+大概是没有这个时间了 已经在计划打一半跑路了。但是不一定一集就杀 后面还有机会
+
