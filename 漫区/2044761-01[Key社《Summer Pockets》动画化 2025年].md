@@ -207,3 +207,11 @@ KEY社（或者说GAL业界）还真喜欢玩这种女鬼桥段啊</blockquote>
 
 万万没想到又是key的老套路<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">，但是场景切换和情节转折太生硬了，感动不起来啊
 
+
+*****
+
+####  Graduation  
+##### 133#       发表于 2025-5-14 20:04
+
+女鬼设定也太便利了 解释都不想解释就一用到底 这也太不讲究了吧
+
