@@ -13046,3 +13046,26 @@ OP不太行，除了那个跑步的画面比较切合节奏，其他画面都比
 
 初始OP有点烟雾弹的味道
 
+
+*****
+
+####  洛克萨斯  
+##### 12955#       发表于 2025-5-14 19:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">gq高达和红高达只剩一人一把光束军刀了吧，难不成下集番茄发功让gq张开嘴咬精神力么
+
+*****
+
+####  灵魂收割机  
+##### 12956#       发表于 2025-5-14 19:54
+
+<img src="https://img.stage1st.com/forum/202505/14/195330hv22vv022vnvrx6r.jpg" referrerpolicy="no-referrer">
+
+<strong>img_kv_03_ja.jpg</strong> (1.21 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 19:53 上传
+
+这个视觉图该换了吧，信息量太低了。还有下集真别放ED了。
+

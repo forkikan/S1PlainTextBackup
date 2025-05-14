@@ -138,3 +138,13 @@ bingo里几个要打的怪都该上哪打（</blockquote>
 
 什么一键解锁？<img src="https://static.stage1st.com/image/smiley/face2017/193.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江戸前ルナ  
+##### 1459#         楼主| 发表于 2025-5-14 19:52
+
+狗到an最强了。试了下，感觉很微妙。1，长枪减伤的天赋技能我始终不知道用处在哪；2，ansp是着装型，伤害比一般的着装型要高很多（1.5倍~2倍？），但没有移动位移还要蓄力烧血才有高伤BUFF。整体还是非常高手向，几乎没有一点逃课类的性能<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+另外试伤害时自残后飘的数字是比一般着装射击SP猛很多，但对比了下感觉，不会比黑猫的ansp伤害高多少的，因为黑猫的射击速度和射击频率实在领先太多了，还有位移<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
