@@ -10913,3 +10913,131 @@ GQX双方没这么剑拔弩张，锦华还能在提坦斯成立前就捞出精�
 
 戴肯派是这样的，不藏不行
 
+
+*****
+
+####  EFSF  
+##### 12763#       发表于 2025-5-14 12:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813016&amp;ptid=2209276" target="_blank">王留美 发表于 2025-5-14 12:07</a>
+
+停战条约有一条是禁止塞可缪武器化吧</blockquote>
+就算是有，这村雨研究所，强化人，精神力高达都已经摆在明面上了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猪突猛进R  
+##### 12764#       发表于 2025-5-14 12:29
+
+特林顿综合症<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202505/14/122914hv49n35h8ii8fr45.png" referrerpolicy="no-referrer">
+
+<strong>-9lddQv95l-9qi7K1hT3cSsg-g0.png</strong> (54.79 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 12:29 上传
+
+*****
+
+####  syndrome2032  
+##### 12765#       发表于 2025-5-14 12:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813016&amp;ptid=2209276" target="_blank">王留美 发表于 2025-5-14 12:07</a>
+停战条约有一条是禁止塞可缪武器化吧</blockquote>
+鸡瘟自己也偷偷摸摸研发了omega赛克缪，大哥不笑二哥了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 12766#       发表于 2025-5-14 12:30
+
+<img src="https://img.stage1st.com/forum/202505/14/122956r9eirf93onjffa5i.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (825.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 12:29 上传
+
+<img src="https://img.stage1st.com/forum/202505/14/123009wh4aei0411kml6h4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (706.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 12:30 上传
+
+<img src="https://img.stage1st.com/forum/202505/14/123015pu3pzzee1mv3uztp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (949.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 12:30 上传
+
+<img src="https://img.stage1st.com/forum/202505/14/123022p5yjxnn3knkprx22.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (828.05 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 12:30 上传
+
+*****
+
+####  岸浪白野  
+##### 12767#       发表于 2025-5-14 12:32
+
+6月4号的特番
+
+<img src="https://img.stage1st.com/forum/202505/14/123154lwihcccw8d8wwc8z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (148.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 12:31 上传
+
+*****
+
+####  岸浪白野  
+##### 12768#       发表于 2025-5-14 12:32
+
+[X 上的 機動戦士Gundam GQuuuuuuX（ジークアクス）：“◤キャストトーク#3◢ 5月24日(土)22時からプレミア公開！ #黒沢ともよ さん(アマテ・ユズリハ) #土屋神葉 さん(シュウジ・イトウ) #金元寿子 さん(ドゥー・ムラサメ) の3名によるオーディオコメンタリーやトークをお届け！ ▼お便り募集中[url]https://t.co/OoeyYygr7u](https://x.com/G_GQuuuuuuX/status/1922490155258053008) #GQuuuuuuX #ジークアクス [https://t.co/c0dGCGmilf](https://t.co/c0dGCGmilf)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/14/123236gqoqosqwoxks49w1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.05 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 12:32 上传
+
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 12769#       发表于 2025-5-14 12:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67812667&amp;ptid=2209276" target="_blank">伊露伊道格拉斯 发表于 2025-5-14 10:36</a>
+话说这集出现了一身白的强化人二号，喵安泄露的那张驾驶服也是从黑皮变了白皮，白化不会是gqux世界观里前几 ...</blockquote>
+喵安的驾驶服到底长什么样 都在说但是根本没找到呀（恼
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  ftyaid  
+##### 12770#       发表于 2025-5-14 12:37
+
+NT聊天室又来接收死人了吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猪突猛进R  
+##### 12771#       发表于 2025-5-14 12:38
+
+5.24访谈的话，村雨兔大概能活两集？要是自己配的角色寄了再被邀请去……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
