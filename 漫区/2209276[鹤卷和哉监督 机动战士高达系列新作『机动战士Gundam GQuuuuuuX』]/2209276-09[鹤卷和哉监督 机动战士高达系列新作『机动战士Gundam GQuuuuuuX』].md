@@ -13930,3 +13930,23 @@ kirakira就是毒，沾上后除了喵安目前日常中还能维持自我，其
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">麻球要不要来个这是我的妈妈梗？
 
+
+*****
+
+####  Devola  
+##### 13034#       发表于 2025-5-15 01:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67815807&amp;ptid=2209276" target="_blank">mhss 发表于 2025-5-15 00:13</a>
+kirakira就是毒，沾上后除了喵安目前日常中还能维持自我，其余人就和吸大了一样满脑子都只想着再吸。 ...</blockquote>
+懂了，kirakira的本体就是丰川祥子
+
+*****
+
+####  穿越护城河  
+##### 13035#       发表于 2025-5-15 01:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67815700&amp;ptid=2209276" target="_blank">冷静先找时光机 发表于 2025-5-14 23:31</a>
+
+纯按这个对位的话，岂不是要村云兔掩护麻球牺牲，麻球把开MA的喵安打爆，最后把牢修爆头，释放出无数的闪 ...</blockquote>
+那片无非是夸张表现，就是吵完一架之后再也不喜欢他了
+
