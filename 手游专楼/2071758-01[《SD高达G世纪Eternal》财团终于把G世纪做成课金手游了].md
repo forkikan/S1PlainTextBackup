@@ -14647,3 +14647,11 @@ BD系是分原作游戏和改编漫画俩版本的，到时候全装BD1和BD3估
 下一个联邦砍王就只有上宇宙的苍白骑士，但是有克洛伊了 ...</blockquote>
 伊藤剑怎么你们了，一个个都想着把他从妖刀上踹下去，连ssr都来参一脚，明明理论上妖刀系统只有伊藤剑才能开启<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xinfengj  
+##### 1375#       发表于 2025-5-14 13:06
+
+魔女塞给S高达了，能吃到词条补正
+

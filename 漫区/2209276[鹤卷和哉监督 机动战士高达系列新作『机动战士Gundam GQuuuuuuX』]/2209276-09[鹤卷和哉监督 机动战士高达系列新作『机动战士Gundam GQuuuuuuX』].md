@@ -11164,3 +11164,76 @@ OYW的胜利者是个负面buff，不得不品<img src="https://static.stage1st.
 
 能不能来个三人nt聊天室，三个离krkr最近的人
 
+
+*****
+
+####  岸浪白野  
+##### 12784#       发表于 2025-5-14 12:58
+
+ 本帖最后由 岸浪白野 于 2025-5-14 12:59 编辑 
+
+不想浪费钢坦克的设计，所以拜托了鹤卷
+
+<img src="https://img.stage1st.com/forum/202505/14/125807pskzeeosb90kqske.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (104.49 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 12:58 上传
+
+*****
+
+####  iuiuk2  
+##### 12785#       发表于 2025-5-14 12:59
+
+认真讲这暗杀计划真的有一点暗杀的成分吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  棍机凹升龙  
+##### 12786#       发表于 2025-5-14 13:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813272&amp;ptid=2209276" target="_blank">盐盐盐盐盐 发表于 2025-5-14 12:57</a>
+
+第七集副音轨还有土屋弟啊，是否说明第七集修司还是有点剧情戏份的（
+
+能不能来个三人nt聊天室，三个离krkr ...</blockquote>
+肯定有啊，起码预告里桥下有一段
+
+*****
+
+####  Devola  
+##### 12787#       发表于 2025-5-14 13:01
+
+等钢坦克出胶，工程机好玩
+
+*****
+
+####  cyanwow  
+##### 12788#       发表于 2025-5-14 13:01
+
+暗杀，指开着精神病把side6炸了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  盐盐盐盐盐  
+##### 12789#       发表于 2025-5-14 13:03
+
+<blockquote>棍机凹升龙 发表于 2025-5-14 13:00
+肯定有啊，起码预告里桥下有一段</blockquote>
+我是说有剧情重要意义的戏份（
+
+很好奇桥下那段后面修司干嘛去了，感觉最后的画面是麻球一个人在挨打
+
+
+*****
+
+####  棍机凹升龙  
+##### 12790#       发表于 2025-5-14 13:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813052&amp;ptid=2209276" target="_blank">依然荏苒 发表于 2025-5-14 12:15</a>
+
+好拧巴，这集又弄这么多z的角色，还带进联邦搞个大阴谋。新人不是一脸懵逼，到底想干什么。 ...</blockquote>
+新人估计还真没啥感觉反正前面每集都来新面孔当对手，这次只要看了预告知道塞的几个新面孔是预示大的要来了就可以了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
