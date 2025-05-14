@@ -11631,3 +11631,20 @@ gqx在日本的拉新效果非常好，在中文圈也有一定作用，我看�
 我之前也见过你的画，是一直在坚持接单吗，感觉越画越好了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">家里蹲要生活，不会其他的技能
 
+
+*****
+
+####  ftyaid  
+##### 12828#       发表于 2025-5-14 13:58
+
+高清化79我觉得可以梦一个（虽然剧场版已经不错了）
+
+重置就算了
+
+*****
+
+####  aptx8285144  
+##### 12829#       发表于 2025-5-14 13:58
+
+突然才意识到喵安的接头人大叔也有点死旗了，毕竟不但戏份多起来(两个“不要回答冠冕堂皇的废话笑死<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，还谈论自己女儿下周有才艺发布会云云，可问题是SIDE6还有下周吗(
+
