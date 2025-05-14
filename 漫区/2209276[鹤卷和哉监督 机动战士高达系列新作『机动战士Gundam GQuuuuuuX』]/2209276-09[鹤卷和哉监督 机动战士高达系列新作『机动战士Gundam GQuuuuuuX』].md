@@ -11750,3 +11750,83 @@ gqx在日本的拉新效果非常好，在中文圈也有一定作用，我看�
 只上精神病mk2发癫没上毒气通 ...</blockquote>
 这一集开头运进来的空气“净化”器jpg
 
+
+*****
+
+####  woui003woui  
+##### 12837#       发表于 2025-5-14 14:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813548&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-14 14:08</a>
+
+第二点反倒是鹤卷已经点出来的地方，魔女问过麻球“你的搭档是个什么样的人”，麻球当时也意识过自己从来 ...</blockquote>
+我感觉这个问题提出来之后，因为没有得到解答，应该也变成了麻球精神压力的一环
+
+虽然自己认为这个人（或者这种生活方式）对自己很重要，但却不知道为什么重要，只是因为它和日常生活不一样，被人指出这点后，还来不及找到答案，就要失去找到答案的机会；
+
+虽然自己觉得日常生活很无聊，但被日常侧否定、得不到理解的时候，又会感到恼怒和沮丧；
+
+虽然自己认为自己非常特别，介入到不是过家家的军团战里还连战连胜赚到了同学无法想象的金额，但能够驾驶高达感受这份特别的远不止自己一人，甚至自己做的还不如对方好；
+
+哎说到底我不讨厌以自己感受为最优先的自信满点角色，但第一集之后麻球几乎完全丧失了同理心表现，这个还蛮要命的。
+
+另外说到立派的成年人安琪女士，废品商进门最开始有扫脸，这集卖红高达的对话真的不好说是不是故意让麻球听到的，第六集的文戏解读方向太多了
+
+*****
+
+####  ryanghj  
+##### 12838#       发表于 2025-5-14 14:27
+
+怎么说呢，玛秋妈虽然确实关心玛秋，但是训斥玛秋第一句话是“你让我怎么跟你爸交代”，说明她是对上（玛秋爸）负责而不是对下（玛秋）负责的……
+
+*****
+
+####  ryanghj  
+##### 12839#       发表于 2025-5-14 14:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813598&amp;ptid=2209276" target="_blank">woui003woui 发表于 2025-5-14 14:25</a>
+
+我感觉这个问题提出来之后，因为没有得到解答，应该也变成了麻球精神压力的一环
+
+虽然自己认为这个人（或 ...</blockquote>
+我感觉是故意的，尤其是让哈啰在场就是为了透露给玛秋，这集正好展示了哈啰的记忆里，就是玛秋倒立那里哈啰回放了喵安的话
+
+*****
+
+####  seedees3  
+##### 12840#       发表于 2025-5-14 14:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811935&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-14 01:26</a></blockquote>
+番茄原生发色和她老妈一样是深蓝色的，该不会最后揭晓番茄真名不叫天手而是叫卡缪吧，按制作组的尿性来看也不是不可能（这次真的是女孩子的名字了呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">）
+
+
+*****
+
+####  galgamesh11  
+##### 12841#       发表于 2025-5-14 14:30
+
+ 本帖最后由 galgamesh11 于 2025-5-14 14:31 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813579&amp;ptid=2209276" target="_blank">ドロロ 发表于 2025-5-14 14:18</a>
+
+尼亚安会不会也是村雨研究所出品？</blockquote>
+
+不会，从two的精神状态可以看出来，现在的强化人技术也就那样，妮娅安完全不是强化人，情绪过于稳定了
+
+*****
+
+####  秋月孝三  
+##### 12842#       发表于 2025-5-14 14:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得麻球=卡缪的可能性比秀二=御大将的可能性要低一点
+
+*****
+
+####  wpcc  
+##### 12843#       发表于 2025-5-14 14:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813398&amp;ptid=2209276" target="_blank">行政裁定书 发表于 2025-5-14 13:29</a>
+
+4ch一群weeb参考性不足，大部分欧美观众都不认识uc那些人，
+
+重制0079甚至z才能拉更多新人，而东亚观众也 ...</blockquote>
+富野不死你真敢翻拍吗
+
