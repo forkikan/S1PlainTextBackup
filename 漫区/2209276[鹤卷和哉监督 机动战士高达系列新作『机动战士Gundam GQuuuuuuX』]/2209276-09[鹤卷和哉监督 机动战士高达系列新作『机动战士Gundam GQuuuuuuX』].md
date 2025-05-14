@@ -13231,3 +13231,38 @@ OP画面肯定是要变的
 
 2025-5-14 21:04 上传
 
+
+*****
+
+####  syndrome2032  
+##### 12971#       发表于 2025-5-14 21:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67815116&amp;ptid=2209276" target="_blank">无念 发表于 2025-5-14 20:24</a>
+说起来之前不是有魔女其实是强化人她结婚生子都是虚假记忆的假药么，怎么真出村雨二了没人奶她是村雨零(
+
+ ...</blockquote>
+因为正史有村雨零啊。
+
+*****
+
+####  我聞如是  
+##### 12972#       发表于 2025-5-14 21:11
+
+<blockquote>mintslime 发表于 2025-5-14 21:01
+其实这集我有一点不喜欢，就是制作组那种发达国家中产阶级的贫乏想象力
+
+喵安，一个被军警查到就要润的干非 ...</blockquote>
+製作組上層都是業界成功人士，脫離基層太久<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+喵安住得那麼好還不用整天忙著送貨
+
+看來是偷了夏亞給雪拉的金條
+
+
+*****
+
+####  璇瑢子R  
+##### 12973#       发表于 2025-5-14 21:14
+
+小番茄家显然是upper class也就中文语境中产完全被扭曲了
+
