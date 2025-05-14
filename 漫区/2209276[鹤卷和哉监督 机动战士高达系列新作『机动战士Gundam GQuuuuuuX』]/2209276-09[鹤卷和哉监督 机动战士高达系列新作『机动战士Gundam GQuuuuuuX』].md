@@ -11830,3 +11830,75 @@ gqx在日本的拉新效果非常好，在中文圈也有一定作用，我看�
 重制0079甚至z才能拉更多新人，而东亚观众也 ...</blockquote>
 富野不死你真敢翻拍吗
 
+
+*****
+
+####  猪突猛进R  
+##### 12844#       发表于 2025-5-14 14:36
+
+说起来番茄她爸在设定里有没有透露什么信息？不会是哪个大人物吧？
+
+*****
+
+####  wpcc  
+##### 12845#       发表于 2025-5-14 14:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813570&amp;ptid=2209276" target="_blank">朋友费小号 发表于 2025-5-14 14:15</a>
+
+别说了，楼里老保和即将成为老保的小保都认为番茄闹麻了，太讨人嫌
+
+经典东亚家庭之“你想让我跟你说我到 ...</blockquote>
+谁高中考砸了不被家里这样骂呢 我能完全复刻这种对话好几次
+
+*****
+
+####  暗黑能乐  
+##### 12846#       发表于 2025-5-14 14:39
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">何止是考砸了，都快成该溜子了
+
+—— 来自 HONOR BVL-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  朋友费小号  
+##### 12847#       发表于 2025-5-14 14:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813645&amp;ptid=2209276" target="_blank">wpcc 发表于 2025-5-14 14:38</a>
+
+谁高中考砸了不被家里这样骂呢 我能完全复刻这种对话好几次</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">所以说是经典啊
+
+
+*****
+
+####  wpcc  
+##### 12848#       发表于 2025-5-14 14:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813649&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-5-14 14:39</a>
+
+何止是考砸了，都快成该溜子了
+
+—— 来自 HONOR BVL-AN00, Android 15, 鹅球 v3.4.98</blockquote>
+我要是真敢离家出走，现在已经被打成残废了。
+
+我只能说做题家的人生真就是麻球这回事  完全一样的。
+
+但是我高达呢？
+
+*****
+
+####  az一串字母  
+##### 12849#       发表于 2025-5-14 14:41
+
+麻球爸是外交官啊，所以麻球是真的大小姐
+
+*****
+
+####  YU_JI  
+##### 12850#       发表于 2025-5-14 14:41
+
+<blockquote>猪突猛进R 发表于 2025-5-14 14:36
+说起来番茄她爸在设定里有没有透露什么信息？不会是哪个大人物吧？</blockquote>
+外交官，在别的side出差
+
