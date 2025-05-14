@@ -11902,3 +11902,96 @@ gqx在日本的拉新效果非常好，在中文圈也有一定作用，我看�
 说起来番茄她爸在设定里有没有透露什么信息？不会是哪个大人物吧？</blockquote>
 外交官，在别的side出差
 
+
+*****
+
+####  wpcc  
+##### 12851#       发表于 2025-5-14 14:44
+
+东亚做题家父子剧情 这不是eva吗 
+
+*****
+
+####  朋友费小号  
+##### 12852#       发表于 2025-5-14 14:45
+
+<img src="https://img.stage1st.com/forum/202505/14/144050xt0uuut6tpxrrkxk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (138.74 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 14:40 上传
+
+顺带一提，隔壁nga老哥提了一嘴：
+
+“这每周4天补习班每天补两科加起来6科也是挺癫的，快赶上国内寄宿制强度了她觉得浪费钱真不是乱说的，我当初也就不顺手的科目周末随便上上，分高的从来不去花钱补课”
+
+然后这又会陷入一个死循环：“陷入迷茫/心理问题的学生，越补越差，越补课越不想补”<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+家长在无法以适当的方式撬开孩子心防的情况下，就会“补习班这么贵，你为什么一点都不珍惜呢”
+
+得，两边又杠上了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+“话分两头，番茄/番茄妈这边可就惨咯”
+
+*****
+
+####  暗黑能乐  
+##### 12853#       发表于 2025-5-14 14:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813654&amp;ptid=2209276" target="_blank">wpcc 发表于 2025-5-14 14:40</a>
+
+我要是真敢离家出走，现在已经被打成残废了。
+
+我只能说做题家的人生真就是麻球这回事  完全一样的。
+
+但是 ...</blockquote>
+问题军团战也并非天天搞，也从来没见过麻球在空余时间进行练习之类的，每个人都可以有自己的小秘密，每天花大半天以上时间泡在那里其实啥事没做才是问题（而且鹤卷也没给太多描写镜头，谁知道都在干嘛）
+
+*****
+
+####  洛克萨斯  
+##### 12854#       发表于 2025-5-14 14:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">扎比家的吉翁加提坦斯当道的联邦，这qg时空的宇宙居民享大福了
+
+
+*****
+
+####  wolf1997  
+##### 12855#       发表于 2025-5-14 14:51
+
+这么多人喊周锦华，又有多少人是当年真的在吧里被喂过饭的？
+
+*****
+
+####  久保由利香  
+##### 12856#       发表于 2025-5-14 14:52
+
+对着二次元纸片人的出勤表讨论也太可悲了，能不能聊点别的
+
+*****
+
+####  wpcc  
+##### 12857#       发表于 2025-5-14 14:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813684&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-5-14 14:45</a>
+
+问题军团战也并非天天搞，也从来没见过麻球在空余时间进行练习之类的，每个人都可以有自己的小秘密，每天 ...</blockquote>
+体验过kirakira肯定是全部补习班敲掉找男人 怎么还会去念书
+
+*****
+
+####  Mr姜  
+##### 12858#       发表于 2025-5-14 14:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813654&amp;ptid=2209276" target="_blank">wpcc 发表于 2025-5-14 14:40</a>
+
+我要是真敢离家出走，现在已经被打成残废了。
+
+我只能说做题家的人生真就是麻球这回事  完全一样的。
+
+但是 ...</blockquote>
+麻球在学校还有一堆迷妹呢jpg
+
