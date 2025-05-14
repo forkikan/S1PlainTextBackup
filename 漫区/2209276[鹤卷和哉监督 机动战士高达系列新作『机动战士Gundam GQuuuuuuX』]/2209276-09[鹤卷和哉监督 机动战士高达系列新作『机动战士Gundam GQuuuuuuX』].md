@@ -13103,3 +13103,45 @@ OP画面肯定是要变的
 
 说起来op有gqx和红高跟人在side6内打起来，当初以为是不存在的画面，现在确实要在殖民地内打起来了
 
+
+*****
+
+####  岸浪白野  
+##### 12961#       发表于 2025-5-14 20:17
+
+ 本帖最后由 岸浪白野 于 2025-5-14 20:18 编辑 
+
+换op画面倒是很正常的设想没什么
+说回来这OP的画面分配也算是鹤卷这么久做op没变过的典了，所以也被人找出来和以前做的OP对比过
+
+*****
+
+####  别急来过两招  
+##### 12962#       发表于 2025-5-14 20:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">下集真的会有oped吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  无念  
+##### 12963#       发表于 2025-5-14 20:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67814353&amp;ptid=2209276" target="_blank">洛克萨斯 发表于 2025-5-14 17:22</a>
+精神力还能用赛克缪系统吉翁那边流出来搞，汉谟拉比是怎么跳过可变框架，一台二代机都没有的情况下变出来的 ...</blockquote>
+硬要圆那只能从gtfour那个思路圆了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+联邦空军主导的可变机之类的，后来开发成了这个宇宙的汉谟拉比
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  无念  
+##### 12964#       发表于 2025-5-14 20:24
+
+说起来之前不是有魔女其实是强化人她结婚生子都是虚假记忆的假药么，怎么真出村雨二了没人奶她是村雨零(
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
