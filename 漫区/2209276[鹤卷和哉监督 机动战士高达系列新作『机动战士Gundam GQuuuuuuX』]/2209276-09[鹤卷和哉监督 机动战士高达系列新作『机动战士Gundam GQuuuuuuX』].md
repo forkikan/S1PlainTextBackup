@@ -13516,3 +13516,57 @@ ED新解
 
 牢修要成三流机师了？那么谁负责高达震？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 12996#       发表于 2025-5-14 22:05
+
+ 本帖最后由 岸浪白野 于 2025-5-14 22:07 编辑 
+
+这个ED刚出的时候就有这样相同的猜测了，又重新提了
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 12997#       发表于 2025-5-14 22:08
+
+plazma爱听好听，力挺律师<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  璇瑢子R  
+##### 12998#       发表于 2025-5-14 22:09
+
+紫婆来找side6谈判争取支持
+
+那紫婆开出的条件大概就是给side6出口更高端的MS。
+
+毕竟side6有钱但是没兵。
+
+*****
+
+####  LOLITA  
+##### 12999#       发表于 2025-5-14 22:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67812740&amp;ptid=2209276" target="_blank">只吃干拌面 发表于 2025-5-14 10:58</a>
+
+同样是前期恋爱脑，为什么巴垃圾比番茄的观感好这么多</blockquote>
+他看上的可是那个汤小美啊！！
+
+
+*****
+
+####  狸狸狐  
+##### 13000#       发表于 2025-5-14 22:12
+
+<img src="https://img.stage1st.com/forum/202505/14/221159p94emem0ep71d4za.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1747227695891.jpg</strong> (57.31 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 22:11 上传
+
+大家想看的
+
