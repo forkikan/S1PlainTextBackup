@@ -10247,3 +10247,51 @@ khara：我们没有骗人追z高达←new
 
 “我要怎么和你爸爸交代”这句实在是典中典了
 
+
+*****
+
+####  Sliurus  
+##### 12695#       发表于 2025-5-14 10:48
+
+其实马秋上不上机也不影响暗杀计划的进行吧，紫婆来side6是来拉拢基连势力，绿色木马只是找个由头在side6提前驻军，就算GQX没失窃也会以红高达作理由。紫婆要出要塞，那周锦华就会准备袭击，无论如何side6都会变成一片火海
+
+*****
+
+####  暗黑能乐  
+##### 12696#       发表于 2025-5-14 10:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正这点屁事肯定小孩的错比较多，还是说你要怪父母太忙没教好孩子背锅？问题就在于剧里对三小孩之间的关系以及各自的深入描写都太少了，麻球母女关系明明值得更深入的笔墨，实际给的太少了，全靠观众脑补
+
+*****
+
+####  秋月孝三  
+##### 12697#       发表于 2025-5-14 10:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">麻球爹不会也有个粉毛情人⑧
+
+*****
+
+####  希望之异热同心  
+##### 12698#       发表于 2025-5-14 10:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67812697&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-14 10:44</a>
+“我要怎么和你爸爸交代”这句实在是典中典了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">化解家庭矛盾还是得靠时代洪流，打起来矛盾一瞬间就不存在啦
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  赤黑的假面  
+##### 12699#       发表于 2025-5-14 10:51
+
+联邦军诞生类盖世太保组织是不可逆的进程吗，现在看来
+
+*****
+
+####  花達香奈  
+##### 12700#       发表于 2025-5-14 10:51
+
+clanba胜利条件是斩首，正史精神病驾驶舱就在头部
+但是小白毛说自己是心脏，这次会不会改到胸部了？
+
