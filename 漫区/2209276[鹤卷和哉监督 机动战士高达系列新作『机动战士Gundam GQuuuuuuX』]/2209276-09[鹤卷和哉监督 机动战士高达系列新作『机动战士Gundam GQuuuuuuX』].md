@@ -13161,3 +13161,73 @@ OP画面肯定是要变的
 
 背心尊者人狠话不多，而村雨零则是比较自大臭屁，比如把他和骡子放一块，他会挑衅说看看谁才是真正的牛太仆。
 
+
+*****
+
+####  希望之异热同心  
+##### 12966#       发表于 2025-5-14 20:57
+
+鉴于已经加入通辽宇宙了，转些B站评论区看到的通辽体<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+硬核狠人《谁能让吉翁最新款高达失踪120天》
+
+宇宙世纪70年，码秋出生在side6一个普通公务员家庭，她的母亲是当地外交三部的一个简简单单的部长，从小在这样的家庭长大码秋的生活不能说一帆风顺吧也能算是响当当的响当当
+
+码秋就这样一直直到高中考入的当地的贵族学校，此时的她可谓是：一头红发班中俏，同龄迷妹身边绕，倒立尽显身材好，志愿却把水母报。是的，小码秋升到高中之后，出现了一个令家里头痛的问题：想当水母
+
+<img src="https://img.stage1st.com/forum/202505/14/205720lnyzss9h33hspl9y.jpg" referrerpolicy="no-referrer">
+
+<strong>7dadb1adb9e953dac6ffe1418443583f1892953.jpg</strong> (301.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 20:57 上传
+
+*****
+
+####  Nanachi  
+##### 12967#       发表于 2025-5-14 21:00
+
+大的要来了！大的要来了！<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mintslime  
+##### 12968#       发表于 2025-5-14 21:01
+
+其实这集我有一点不喜欢，就是制作组那种发达国家中产阶级的贫乏想象力
+
+喵安，一个被军警查到就要润的干非法勾当的穷逼流民，住在贫民窟赛博朋克破烂涂鸦楼里，结果门一打开是干净整洁没有霉斑渗水独卫带浴缸灶台的studio<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+这太城里人了，好歹搞个没法泡澡的卫生间呢，我是看出来整个制作组都没有见过真穷逼了
+
+估计接下来塑造喵安只能往“超努力的越南留子”的感觉来塑造
+
+
+*****
+
+####  变老的大二  
+##### 12969#       发表于 2025-5-14 21:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67815234&amp;ptid=2209276" target="_blank">mintslime 发表于 2025-5-14 21:01</a>
+
+其实这集我有一点不喜欢，就是制作组那种发达国家中产阶级的贫乏想象力
+
+喵安，一个被军警查到就要润的干非 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确实是按穷逼留子来刻画的。
+
+*****
+
+####  ryanghj  
+##### 12970#       发表于 2025-5-14 21:05
+
+所以剧场版这个特典其实就是这段剧情的暗示？第六集出现苹果了，背景里的钱，第七集玛秋的计划不会是喵安替她打军团战，她去偷钱然后搞定滑翔机吧
+
+<img src="https://img.stage1st.com/forum/202505/14/210447v5slvfal5szdssvo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (61.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 21:04 上传
+
