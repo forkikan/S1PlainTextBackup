@@ -11995,3 +11995,118 @@ gqx在日本的拉新效果非常好，在中文圈也有一定作用，我看�
 但是 ...</blockquote>
 麻球在学校还有一堆迷妹呢jpg
 
+
+*****
+
+####  别急来过两招  
+##### 12859#       发表于 2025-5-14 14:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对铁血第二季历代高达最高分的受众区域怎么拉新没有一丁点的兴趣
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wpcc  
+##### 12860#       发表于 2025-5-14 14:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813679&amp;ptid=2209276" target="_blank">朋友费小号 发表于 2025-5-14 14:45</a>
+
+顺带一提，隔壁nga老哥提了一嘴：
+
+“这每周4天补习班每天补两科加起来6科也是挺癫的，快赶上国内寄宿制强 ...</blockquote>
+东亚家庭的小孩没考好 就全是悲剧。除了那些无师自通的天才 其他人都是卷出来的悲剧。番茄也是被父母期望上东大当**的。鹤卷用几个侧面直接把做题家二代的人生给勾勒完了。毕竟真正牛的二代用不着吃苦 学历都有人送的
+
+*****
+
+####  希望之异热同心  
+##### 12861#       发表于 2025-5-14 14:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813654&amp;ptid=2209276" target="_blank">wpcc 发表于 2025-5-14 14:40</a>
+
+我要是真敢离家出走，现在已经被打成残废了。
+
+我只能说做题家的人生真就是麻球这回事  完全一样的。
+
+但是 ...</blockquote>
+鹤卷对于麻球的背景描写真的是太典了，中产的孩子比上当不了叱咤风云的人物实现自己的人生抱负，比下又过于安稳不用担心生活，人就不上不下卡在这了。。。于现实中和平年代的人们不也只能说找个班上吧，找个班上组个家庭就又一辈子了<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 12862#       发表于 2025-5-14 14:56
+
+夏利亚回答赌博组奖金肯定归你那表情，怎么看都有一种SIDE6没有未来了，钱再多你们有命花吗？(
+
+能润的就润吧(
+
+*****
+
+####  sauron.j  
+##### 12863#       发表于 2025-5-14 14:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813398&amp;ptid=2209276" target="_blank">行政裁定书 发表于 2025-5-14 13:29</a>
+
+4ch一群weeb参考性不足，大部分欧美观众都不认识uc那些人，
+
+重制0079甚至z才能拉更多新人，而东亚观众也 ...</blockquote>
+现在也找不到能hold住0079和Z那种故事的监督，叙事节奏把控和人物互动调度难度极高
+
+*****
+
+####  ftyaid  
+##### 12864#       发表于 2025-5-14 14:58
+
+感觉麻球发展路线错了
+
+不过麻球这种体育生（第一集的大跳，倒立打字）在宇宙世纪好像也没什么活能干了
+
+加上想要女承家业才导致有家庭压力吧
+
+*****
+
+####  57042711  
+##### 12865#       发表于 2025-5-14 14:59
+
+期待绿叔叔激战精神力高达<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+麻球真开挂有点没劲…
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wpcc  
+##### 12866#       发表于 2025-5-14 14:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813727&amp;ptid=2209276" target="_blank">希望之异热同心 发表于 2025-5-14 14:56</a>
+
+鹤卷对于麻球的背景描写真的是太典了，中产的孩子比上当不了叱咤风云的人物实现自己的人生抱负，比下又过 ...</blockquote>
+高达的观众就是这样的人罢 唉gainax
+
+
+*****
+
+####  朋友费小号  
+##### 12867#       发表于 2025-5-14 15:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813725&amp;ptid=2209276" target="_blank">wpcc 发表于 2025-5-14 14:56</a>
+
+东亚家庭的小孩没考好 就全是悲剧。除了那些无师自通的天才 其他人都是卷出来的悲剧。番茄也是被父母期望 ...</blockquote>
+你这什么都归功到“做题”感觉不如归功于“动了资本的蛋糕”<img src="https://static.stage1st.com/image/smiley/face2017/215.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 12868#       发表于 2025-5-14 15:01
+
+<blockquote>暗黑能乐 发表于 2025-5-14 14:45
+问题军团战也并非天天搞，也从来没见过麻球在空余时间进行练习之类的，每个人都可以有自己的小秘密，每天 ...</blockquote>
+答:下午和修司，喵安泡在高达上面，而上午在博美家外面晒太阳(
+
+*****
+
+####  朋友费小号  
+##### 12869#       发表于 2025-5-14 15:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/215.gif" referrerpolicy="no-referrer">唉，女声优痴
+
