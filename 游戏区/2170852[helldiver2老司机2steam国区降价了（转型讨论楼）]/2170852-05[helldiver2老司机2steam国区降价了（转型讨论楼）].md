@@ -223,3 +223,15 @@
 
 好多bug啊，一上来就连着闪退两次
 
+
+*****
+
+####  jy000129  
+##### 5943#       发表于 2025-5-14 08:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67810366&amp;ptid=2170852" target="_blank">qwased 发表于 2025-5-13 17:55</a>
+还有这霰弹枪的加长弹夹怎么是砍容量加弹夹数量的，写反了吧</blockquote>
+有的霰弹枪本身是圆盘弹夹
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
