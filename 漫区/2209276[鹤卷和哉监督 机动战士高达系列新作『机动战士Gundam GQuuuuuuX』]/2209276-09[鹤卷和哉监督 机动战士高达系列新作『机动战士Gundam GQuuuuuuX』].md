@@ -10824,3 +10824,92 @@ GQX双方没这么剑拔弩张，锦华还能在提坦斯成立前就捞出精�
 
 2025-5-14 12:17 上传
 
+
+*****
+
+####  scorbian  
+##### 12754#       发表于 2025-5-14 12:20
+
+“夏亚是可以成为我父亲的男人”<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  秋月孝三  
+##### 12755#       发表于 2025-5-14 12:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">条约里α赛可谬肯定是禁用的，而这ω赛可谬合不合法嘛......我看也不怎么合法
+
+*****
+
+####  Steel.Haze  
+##### 12756#       发表于 2025-5-14 12:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67812657&amp;ptid=2209276" target="_blank">xwr 发表于 2025-5-14 10:34</a>
+
+之前还说就12集拍不了太多东西，结果现在后半会怎么演我都完全猜不出来了。
+
+按之前来看地球联邦和吉翁战后 ...</blockquote>
+都上精神力高达了，联邦情报局就没想藏吧，之所以参与比赛，其实就是估计只是为了趁着比赛散布米粒。精神力估计是可以自己散布米粒的。不然无论是卫星的哪里展开精神力，紫婆听到消息马上找个飞船跑了就没意义了。
+
+
+*****
+
+####  猫耳犹格索托斯  
+##### 12757#       发表于 2025-5-14 12:22
+
+<blockquote>突发性哮喘病患 发表于 2025-5-14 12:17
+画个🍅</blockquote>
+上p站收番茄正好收到（）
+
+*****
+
+####  花達香奈  
+##### 12758#       发表于 2025-5-14 12:24
+
+<blockquote>scorbian 发表于 2025-5-14 12:20
+“夏亚是可以成为我父亲的男人”
+
+—— 来自 vivo V2405A, Android 15, 鹅球 v3.5.99</blockquote>
+基连派→基西莉亚派→夏亚派
+
+什么三姓家奴？
+
+*****
+
+####  ryanghj  
+##### 12759#       发表于 2025-5-14 12:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813052&amp;ptid=2209276" target="_blank">依然荏苒 发表于 2025-5-14 12:15</a>
+
+好拧巴，这集又弄这么多z的角色，还带进联邦搞个大阴谋。新人不是一脸懵逼，到底想干什么。 ...</blockquote>
+目前来看，新人其实不知道人物也能知道这帮人要干什么
+
+*****
+
+####  棍机凹升龙  
+##### 12760#       发表于 2025-5-14 12:25
+
+修斯应该要下线了，然后四方小萝卜和红高交给喵安（参考ED）
+
+
+*****
+
+####  Steel.Haze  
+##### 12761#       发表于 2025-5-14 12:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813033&amp;ptid=2209276" target="_blank">syndrome2032 发表于 2025-5-14 12:11</a>
+
+我记得说是gyux世界里联邦在oyw丢了月神2。换句话说正片时点联邦在宇宙间没有常用据点要组织对鸡瘟的第二次 ...</blockquote>
+主要是战舰打上没有保障了，大量MS和大扎姆封锁轨道环境下，军队级别舰队打上就是找死了。
+
+所以联邦其实搞游击战，机体也更倾向于送出去一台可以一机当千的超级系机体完成战略目标。
+
+*****
+
+####  ftyaid  
+##### 12762#       发表于 2025-5-14 12:27
+
+戴肯派是这样的，不藏不行
+

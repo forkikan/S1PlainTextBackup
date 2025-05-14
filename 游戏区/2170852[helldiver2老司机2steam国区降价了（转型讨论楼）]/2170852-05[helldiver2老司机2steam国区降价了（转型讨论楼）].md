@@ -318,3 +318,14 @@
 
 现在这光能野队阵亡率极高，强度没上来就纯逛街，一旦强度上来了压都压不住，还全是各种恶心透顶的秒杀<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 5953#       发表于 2025-5-14 12:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67812850&amp;ptid=2170852" target="_blank">FLZB 发表于 2025-5-14 11:26</a>
+
+现在这光能野队阵亡率极高，强度没上来就纯逛街，一旦强度上来了压都压不住，还全是各种恶心透顶的秒杀 ...</blockquote>
+感觉主要还是光能的飞鹰很容易在混战的时候造成减员，其他单位都没什么威胁（除非配装很抽象）
+
