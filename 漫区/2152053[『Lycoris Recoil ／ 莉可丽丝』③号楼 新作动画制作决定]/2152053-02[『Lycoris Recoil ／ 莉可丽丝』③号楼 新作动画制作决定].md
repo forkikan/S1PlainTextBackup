@@ -114,3 +114,15 @@ tkn：找一辈子房子，好借宿一辈子
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Saber琪  
+##### 2301#       发表于 2025-5-14 22:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67815399&amp;ptid=2152053" target="_blank">qz66618 发表于 2025-5-14 21:53</a>
+不是说配音的时候都没做完吗
+
+—— 来自 鹅球 v3.5.99</blockquote>
+没做完不影响配音吧？不很多只有分镜或者一集只做了一点点声优就开始配音了<img src="https://static.stage1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">这集真配得没蒜味儿，咋说呢，有些棒读了？
+

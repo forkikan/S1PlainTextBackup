@@ -13471,3 +13471,48 @@ op越看越有感觉了<img src="https://static.stage1st.com/image/smiley/face20
 
 逃难也没说要是穷鬼啊，别自说自话的加设定搞的自己才是监督一样
 
+
+*****
+
+####  秋月孝三  
+##### 12993#       发表于 2025-5-14 21:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说起来因为官推发的图上巴斯克军衔是大佐，而这集盖茨称巴斯克为少佐，不少人都觉得巴斯克靠这波行动升官了。
+
+不过我觉得这是不是战死升两级的意思啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 12994#       发表于 2025-5-14 21:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67815311&amp;ptid=2209276" target="_blank">wpcc 发表于 2025-5-14 21:22</a>
+
+说出三人一起这种话的上一个叫雪菜 不言而喻</blockquote>
+ED新解
+
+<img src="https://img.stage1st.com/forum/202505/14/215547cu2cy2lhpppycu2y.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.97 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 21:55 上传
+
+原来还有这种含义
+
+<img src="https://img.stage1st.com/forum/202505/14/215716eu22224qfnf2nu3i.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (341.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 21:57 上传
+
+*****
+
+####  newise  
+##### 12995#       发表于 2025-5-14 22:01
+
+牢修要成三流机师了？那么谁负责高达震？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
