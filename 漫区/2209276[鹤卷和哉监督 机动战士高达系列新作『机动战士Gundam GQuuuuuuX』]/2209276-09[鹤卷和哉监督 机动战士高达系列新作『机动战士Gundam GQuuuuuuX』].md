@@ -9754,3 +9754,34 @@ GQ红扎12月，这也要拿来骗一次钱<img src="https://static.stage1st.com
 
 挺好，着重ucif线才是正确写法
 
+
+*****
+
+####  西洛克  
+##### 12647#       发表于 2025-5-14 09:08
+
+巴斯克在原作似乎没有用过图图以外的计策
+
+
+*****
+
+####  CCMkIII  
+##### 12648#       发表于 2025-5-14 09:11
+
+有没有可能因为各种原因精神力最后是让麻球抢来开的，麻球才是换机王
+
+*****
+
+####  Toby_dak  
+##### 12649#       发表于 2025-5-14 09:14
+
+<blockquote>引用第12633楼aptx8285144于2025-05-14 08:46发表的  :
+
+夏利亚这是载人无人机还是啥装备?一开始还以为他是开着机体救首席呢233，新强化人是金元寿子吗，脸仔细......</blockquote>
+<img src="https://p.sda1.dev/24/30c88fd69e082867e5157ddc46bc2107/1000110970.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/1e9d90084b9c6e9ec2270435e1280e9c/13DL.ME-11_159.jpg" referrerpolicy="no-referrer">
+
+但凡看过0079或者GTO的，都应该知道吧<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.46)
+
