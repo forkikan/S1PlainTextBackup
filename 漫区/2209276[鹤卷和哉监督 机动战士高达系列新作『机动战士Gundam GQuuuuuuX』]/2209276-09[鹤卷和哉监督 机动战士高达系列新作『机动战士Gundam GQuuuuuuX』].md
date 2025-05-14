@@ -11154,3 +11154,13 @@ OYW的胜利者是个负面buff，不得不品<img src="https://static.stage1st.
 啊，这就能套河豚了，好可怕</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  盐盐盐盐盐  
+##### 12783#       发表于 2025-5-14 12:57
+
+第七集副音轨还有土屋弟啊，是否说明第七集修司还是有点剧情戏份的（
+
+能不能来个三人nt聊天室，三个离krkr最近的人
+
