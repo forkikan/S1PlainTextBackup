@@ -215,3 +215,11 @@
 
 有点哈人<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  全装甲夏亚  
+##### 5942#       发表于 2025-5-14 08:08
+
+好多bug啊，一上来就连着闪退两次
+
