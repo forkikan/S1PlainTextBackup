@@ -11588,3 +11588,46 @@ gqx在日本的拉新效果非常好，在中文圈也有一定作用，我看�
 喵安观感确实好，除了老中特有加分的“难民努力考学改变命运”感之外，平时踏实工作赚钱，上机了又爆种开大 ...</blockquote>
 三人的日常互动相处被留白过头了，番茄这边情绪开始接不上了
 
+
+*****
+
+####  mintslime  
+##### 12824#       发表于 2025-5-14 13:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813067&amp;ptid=2209276" target="_blank">突发性哮喘病患 发表于 2025-5-14 12:17</a>
+
+画个🍅</blockquote>
+我之前也见过你的画，是一直在坚持接单吗，感觉越画越好了
+
+*****
+
+####  woui003woui  
+##### 12825#       发表于 2025-5-14 13:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813465&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-14 13:45</a>
+
+三人的日常互动相处被留白过头了，番茄这边情绪开始接不上了</blockquote>
+留白导致麻球的情绪衔接不上是其一，其二是，她的情绪完全不是人和人之间的那种互相着想的感情，但凡她稍微为修司考虑一点，在听到红高达要被卖了悬赏的时候，第一个脱口而出的也不应该是“如果告诉修司，他会跑掉的，这样就再也见不到了”……<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我看到这段整个人就这表情
+
+这么自我中心的主人公真是久违了，什么塑料三人行
+
+
+*****
+
+####  盐盐盐盐盐  
+##### 12826#       发表于 2025-5-14 13:54
+
+看似三角恋其实大概只有麻球一个人在恋（悲）
+
+而且还看到一个是说因为麻球不信高达会说话所以觉得是修司说喜欢喵安，但是喵安和修司真的信高达能说话所以他俩随便讲都不当回事
+
+*****
+
+####  突发性哮喘病患  
+##### 12827#       发表于 2025-5-14 13:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813481&amp;ptid=2209276" target="_blank">mintslime 发表于 2025-5-14 13:50</a>
+
+我之前也见过你的画，是一直在坚持接单吗，感觉越画越好了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">家里蹲要生活，不会其他的技能
+
