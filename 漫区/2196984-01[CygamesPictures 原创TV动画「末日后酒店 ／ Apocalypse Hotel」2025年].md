@@ -2339,3 +2339,26 @@ PS：井上和彦又配了一个渣男，真不能怪我戴有色眼镜瞎想<im
 
 —— 来自 vivo V2454A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  刑部姬真可爱  
+##### 224#       发表于 2025-5-14 09:18
+
+ 本帖最后由 刑部姬真可爱 于 2025-5-14 09:19 编辑 
+
+话说来找哈基米报仇的几个角色也太复仇者了吧，美队浩克雷神钢铁侠奇异博士，以至于这哈基米我都有点幻视到紫薯头了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kwin_  
+##### 225#       发表于 2025-5-14 09:19
+
+本来想着会不会驯化沙虫来挖温泉，结果这集全被干死了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+然而到最后，温泉它还是出来了<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+可惜没有解锁什么新的成就。
+
+依旧是非常有意思的一集，新的七年又要开始等待了
+
