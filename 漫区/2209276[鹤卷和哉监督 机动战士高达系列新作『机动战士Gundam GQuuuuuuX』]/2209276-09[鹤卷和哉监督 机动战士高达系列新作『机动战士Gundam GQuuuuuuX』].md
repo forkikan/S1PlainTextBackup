@@ -9916,3 +9916,39 @@ tts掌了权那奥古是不是被杀光了</blockquote>
 tts掌了权那奥古是不是被杀光了</blockquote>
 奥古背后是月面财阀，你猜现在月球是谁的大本营？<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jojonathan  
+##### 12661#       发表于 2025-5-14 09:45
+
+该开盘白毛能活几集了 怎么感觉巴斯克把精神感应高达当一次性炸弹用
+
+*****
+
+####  Geyorkias  
+##### 12662#       发表于 2025-5-14 09:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811699&amp;ptid=2209276" target="_blank">Humpy 发表于 2025-5-14 00:15</a>
+
+说起来下集搞这么大真的能算冷战氛围么</blockquote>
+冷战不等于一枪不放，不管是美军打了那么多年最后狼狈撤离的越战还是拖死苏联的阿富汗战争，都是冷战的一部分。
+
+*****
+
+####  cauchua3  
+##### 12663#       发表于 2025-5-14 09:47
+
+这个世界线上还有阿纳海姆的存在吗？
+
+*****
+
+####  暗黑能乐  
+##### 12664#       发表于 2025-5-14 09:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67812512&amp;ptid=2209276" target="_blank">cauchua3 发表于 2025-5-14 09:47</a>
+这个世界线上还有阿纳海姆的存在吗？</blockquote>
+这话刚提到。。。
+
+—— 来自 HONOR BVL-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
