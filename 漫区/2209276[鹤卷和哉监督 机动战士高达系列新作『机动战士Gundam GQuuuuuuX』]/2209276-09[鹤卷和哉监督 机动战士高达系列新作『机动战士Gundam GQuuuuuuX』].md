@@ -9952,3 +9952,65 @@ tts掌了权那奥古是不是被杀光了</blockquote>
 
 —— 来自 HONOR BVL-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  9β  
+##### 12665#       发表于 2025-5-14 09:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67812440&amp;ptid=2209276" target="_blank">洛克萨斯 发表于 2025-5-14 09:26</a>
+番茄这表现，编剧家里肯定有孩子，太栩栩如生了</blockquote>
+中产小孩特有的百无聊赖空虚作妖想去xx看看
+
+—— 来自 HONOR PGT-AN10, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  朋友费小号  
+##### 12666#       发表于 2025-5-14 10:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67811868&amp;ptid=2209276" target="_blank">花達香奈 发表于 2025-5-14 01:04</a>
+
+这剧情果然不能细想，联邦居然放天然nt的super ace退役结婚生子，另一边却不当人搞强化人，什么舍近求远 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">联邦政府又不是一个指哪打哪的活物，他是一个个的个体来构成的行政机构。一个国家里的陆军海军空军三个军种都能互相看不对付，你这想法就很想当然。
+
+而且强化人研究所和吉夸克tts明显是编外隐秘部队，又不是阿姆罗这种ace，有什么要捏在手里的必要吗？
+
+
+*****
+
+####  9β  
+##### 12667#       发表于 2025-5-14 10:02
+
+感觉这作最后会变成修斯跟麻球去地球gap，喵安跟夏利亚去鸡瘟读大学当技术员（茜恩？）这样的分道扬镳
+
+—— 来自 HONOR PGT-AN10, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  七七見奈波  
+##### 12668#       发表于 2025-5-14 10:04
+
+ 本帖最后由 七七見奈波 于 2025-5-14 10:05 编辑 
+
+<img src="https://img.stage1st.com/forum/202505/14/100305kwdyh75bwyyoy33h.png" referrerpolicy="no-referrer">
+
+<strong>截屏2025-05-14 10.02.48.png</strong> (436.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 10:03 上传
+
+种子岛，小林丸，要素过多。正宗空调有限公司哈哈哈哈哈哈
+
+*****
+
+####  ryanghj  
+##### 12669#       发表于 2025-5-14 10:04
+
+喵安看起来要被抓走了
+
+现在看泄露的喵安人设很可能成真，喵安向往普通人的日常，结果被抓去强化，最后成了提坦斯的驾驶员
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
