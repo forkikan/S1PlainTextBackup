@@ -11237,3 +11237,82 @@ OYW的胜利者是个负面buff，不得不品<img src="https://static.stage1st.
 好拧巴，这集又弄这么多z的角色，还带进联邦搞个大阴谋。新人不是一脸懵逼，到底想干什么。 ...</blockquote>
 新人估计还真没啥感觉反正前面每集都来新面孔当对手，这次只要看了预告知道塞的几个新面孔是预示大的要来了就可以了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猪突猛进R  
+##### 12791#       发表于 2025-5-14 13:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813276&amp;ptid=2209276" target="_blank">iuiuk2 发表于 2025-5-14 12:59</a>
+
+认真讲这暗杀计划真的有一点暗杀的成分吗</blockquote>
+现实中以色列用空袭炸死了真主党首脑纳斯鲁拉，酒店都炸没了，也算暗杀。
+
+*****
+
+####  ryanghj  
+##### 12792#       发表于 2025-5-14 13:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813157&amp;ptid=2209276" target="_blank">IIIIIlllllIIIII 发表于 2025-5-14 12:37</a>
+
+喵安的驾驶服到底长什么样 都在说但是根本没找到呀（恼
+
+— from S1 Next Goose v3.5.99 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202505/14/131033m6knz0ke4z4e0x6t.png" referrerpolicy="no-referrer">
+
+<strong>1745304677182.png</strong> (711.18 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 13:10 上传
+
+现在看明显就是被强化了，肤色都变了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 12793#       发表于 2025-5-14 13:11
+
+这个暗杀计划的标题本来就是玩梗性质偏多，实际表现就是弄死基西莉亚就完了，手段不论（）
+
+*****
+
+####  aptx8285144  
+##### 12794#       发表于 2025-5-14 13:12
+
+玛秋的妈妈的传统FLAG还没，但是关心还是足够的，虽然不清楚鹤卷是不是那种说死就死的类型，最麻烦的还是那句玛秋觉得“妈妈太普通”吧
+
+
+*****
+
+####  bgmilk  
+##### 12795#       发表于 2025-5-14 13:14
+
+现在联邦是个什么情况？雷比尔为首的那些主战派都还在吗？
+
+*****
+
+####  ヒトニナル  
+##### 12796#       发表于 2025-5-14 13:15
+
+该说中文博大精深吗，其实这个语境里的“暗杀”应该对应的是“刺杀”
+
+*****
+
+####  猪突猛进R  
+##### 12797#       发表于 2025-5-14 13:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813319&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-14 13:10</a>
+
+现在看明显就是被强化了，肤色都变了</blockquote>
+和联邦的强化服款式不同，可能是被吉翁强化的。
+
+<img src="https://img.stage1st.com/forum/202505/14/131637k16ru7798ggfg71s.png" referrerpolicy="no-referrer">
+
+<strong>-9lddQ0-35apK1iT3cSsg-g0.png</strong> (53.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 13:16 上传
+
