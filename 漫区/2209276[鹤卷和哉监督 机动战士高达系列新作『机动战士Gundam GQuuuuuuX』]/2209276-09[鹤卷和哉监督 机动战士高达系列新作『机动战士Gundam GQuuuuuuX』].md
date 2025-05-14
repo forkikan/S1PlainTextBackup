@@ -12769,3 +12769,34 @@ Lieutenant在陆军里是中尉，海军是上尉
 
 b站搬运从第三集开始就都是繁中字幕了
 
+
+*****
+
+####  秋月孝三  
+##### 12929#       发表于 2025-5-14 17:22
+
+ 本帖最后由 秋月孝三 于 2025-5-14 17:23 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  洛克萨斯  
+##### 12930#       发表于 2025-5-14 17:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">精神力还能用赛克缪系统吉翁那边流出来搞，汉谟拉比是怎么跳过可变框架，一台二代机都没有的情况下变出来的，沙伦的玫瑰是赫尔墨斯玫瑰么
+
+*****
+
+####  暗黑能乐  
+##### 12931#       发表于 2025-5-14 17:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67814197&amp;ptid=2209276" target="_blank">变老的大二 发表于 2025-5-14 16:46</a>
+
+夏利亚应该算是下一集最大赢家吧。
+
+这哥们现在联邦钦定最强nt。给联邦泄露紫色老太婆消息的估计也是他。折 ...</blockquote>
+泄露消息的是基连可能性更高吧，夏利亚只是被怀疑是基连安插过来的，但既然这么怀疑了，那就必然不可能的夏利亚做的
+

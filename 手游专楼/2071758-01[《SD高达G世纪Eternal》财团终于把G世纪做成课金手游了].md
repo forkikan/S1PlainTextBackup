@@ -14694,3 +14694,21 @@ BD系是分原作游戏和改编漫画俩版本的，到时候全装BD1和BD3估
 
 夭寿了，最近快100抽UR的毛都没有<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  体制  
+##### 1380#       发表于 2025-5-14 17:19
+
+又登顶了，高达真是摇钱树啊，毫无剧情、强度存疑的空降放其他手游能被骂死，但是这是z高达，他就能登顶。
+
+—— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  洛克萨斯  
+##### 1381#       发表于 2025-5-14 17:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下一个接档的卡池是0083？还是解包里面的zz，人气王储备还够么
+
