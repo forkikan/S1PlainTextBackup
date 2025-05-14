@@ -13386,3 +13386,43 @@ op越看越有感觉了<img src="https://static.stage1st.com/image/smiley/face20
 富野不死你真敢翻拍吗</blockquote>
 02年不是已经翻拍过了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  我聞如是  
+##### 12985#       发表于 2025-5-14 21:37
+
+<blockquote>岸浪白野 发表于 2025-5-14 21:28
+才看到这里还真写着吹奏乐部的顾问是庵野先生啊</blockquote>
+旁邊還有鶴卷呢
+
+<img src="https://img.stage1st.com/forum/202505/14/213723iksqb9abpqi1giov.jpg" referrerpolicy="no-referrer">
+
+<strong>1000028523.jpg</strong> (193.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-14 21:37 上传
+
+*****
+
+####  LOLITA  
+##### 12986#       发表于 2025-5-14 21:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67815234&amp;ptid=2209276" target="_blank">mintslime 发表于 2025-5-14 21:01</a>
+
+其实这集我有一点不喜欢，就是制作组那种发达国家中产阶级的贫乏想象力
+
+喵安，一个被军警查到就要润的干非 ...</blockquote>
+不是菲律宾非移么？
+
+要不怎么请菲律宾人唱ed<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  岸浪白野  
+##### 12987#       发表于 2025-5-14 21:44
+
+哦对，还有鹤卷，这个差点看不清
+
