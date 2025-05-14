@@ -14805,3 +14805,14 @@ BD系是分原作游戏和改编漫画俩版本的，到时候全装BD1和BD3估
 看推才发现万代出了这游戏，想问下现在刷初始的话，哪些机体比较值得</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">攻击有个独角兽、EXIA、沙扎比，支援有93骡，我觉得就可以开了
 
+
+*****
+
+####  demon6666  
+##### 1392#       发表于 2025-5-14 22:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67815540&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-5-14 22:40</a>
+
+攻击有个独角兽、EXIA、沙扎比，支援有93骡，我觉得就可以开了</blockquote>
+多谢，我看看<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
