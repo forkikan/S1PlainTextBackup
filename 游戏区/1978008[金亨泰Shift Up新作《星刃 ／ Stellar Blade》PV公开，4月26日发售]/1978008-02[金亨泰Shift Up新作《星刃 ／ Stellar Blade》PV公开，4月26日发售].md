@@ -567,3 +567,22 @@ Steam国区售价268/358，6月12日发售</blockquote>
 
 2025-5-16 00:03 上传
 
+
+*****
+
+####  naclken.  
+##### 1982#       发表于 2025-5-16 00:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67819549&amp;ptid=1978008" target="_blank">BK10 发表于 2025-5-15 23:57</a>
+
+哪里没有D加密这不是有吗</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">之前一直都没标的也
+
+
+*****
+
+####  Andariel  
+##### 1983#       发表于 2025-5-16 00:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">买了，这两年最期待的游戏
+
