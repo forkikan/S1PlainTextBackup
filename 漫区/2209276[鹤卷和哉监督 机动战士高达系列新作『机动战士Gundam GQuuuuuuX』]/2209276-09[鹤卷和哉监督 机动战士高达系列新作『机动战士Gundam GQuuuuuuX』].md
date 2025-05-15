@@ -14055,3 +14055,15 @@ gquuuuuux主创一伙人有不少都是没读完大学或者读个带专就找�
 在麻球撞见安琪跑路缩在GQX里面自闭那一段，最后念叨给牢修找个藏身之处的时候下一卡直接 ...</blockquote>
 抢高达已经满足不了精神小妹要进展到抢战舰了吗？你当一船的囧军人都是首席哥那样的菜鸡吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  闭挂锁人  
+##### 13044#       发表于 2025-5-15 09:19
+
+ 本帖最后由 闭挂锁人 于 2025-5-15 09:22 编辑 
+
+猜想一下麻球下一集是不是去博美犬偷钱交掉最后一笔贷款拿机接应喵安修司，但结果应该是喵安被抓进村雨，麻球被抓进木马，只有修司成功坐着穿航机带红高达去了地球，三个人分道扬镳最后在地球汇聚。
+
+至于side6？我祝各位身体健康<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
