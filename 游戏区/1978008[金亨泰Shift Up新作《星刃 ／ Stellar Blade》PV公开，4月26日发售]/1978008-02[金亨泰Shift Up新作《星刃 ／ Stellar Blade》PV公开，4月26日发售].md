@@ -472,3 +472,39 @@ Steam国区售价268/358，6月12日发售
 
 索尼发行商特地改了个名？变成PlayStation Publishing LLC (excluding China)了
 
+
+*****
+
+####  11116等  
+##### 1975#       发表于 2025-5-15 23:47
+
+金圣👍!杀😭！金圣👍!杀😭！金圣👍!杀😭！金圣👍!杀😭！金圣👍!杀😭！金圣👍!杀😭！金圣👍!杀😭！金圣👍!杀😭！金圣👍!杀😭！
+
+*****
+
+####  Piano-Forest  
+##### 1976#         楼主| 发表于 2025-5-15 23:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67819377&amp;ptid=1978008" target="_blank">Piano-Forest 发表于 2025-5-15 23:11</a>
+
+Steam国区售价268/358，6月12日发售</blockquote>
+【发晚了差点被扣工资，老板的诚意大家肯定感受到了】 
+[https://b23.tv/FGCa1C8](https://b23.tv/FGCa1C8)
+
+*****
+
+####  naclken.  
+##### 1977#       发表于 2025-5-15 23:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">这价格我可以，虽然是冷饭，但是金亨泰的**实在是太到位了，又没有该死的D加密。
+
+买买买
+
+
+*****
+
+####  医生狼多  
+##### 1978#       发表于 2025-5-15 23:51
+
+明年影之刃估计也这价了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
