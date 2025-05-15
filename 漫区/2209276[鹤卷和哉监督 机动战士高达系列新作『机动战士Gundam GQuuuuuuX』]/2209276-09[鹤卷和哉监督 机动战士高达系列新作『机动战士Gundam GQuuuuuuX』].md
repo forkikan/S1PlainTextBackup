@@ -17044,3 +17044,27 @@ UC元年是2045年吧
 
 不知道夏利亚对安琪说了什么，让她决定出卖情报跑路
 
+
+*****
+
+####  ryanghj  
+##### 13281#       发表于 2025-5-16 02:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67819166&amp;ptid=2209276" target="_blank">我聞如是 发表于 2025-5-15 22:01</a>
+
+補充一點點
+
+原型的店是中餐館，但看來沒有喵安嗦的粉
+
+現在這條街因為重建已經全拆了</blockquote>
+
+<img src="https://img.stage1st.com/forum/202505/16/021348g44azawyo4jvk3w4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (299.34 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-16 02:13 上传
+
+好像是原型店铺就有
+
