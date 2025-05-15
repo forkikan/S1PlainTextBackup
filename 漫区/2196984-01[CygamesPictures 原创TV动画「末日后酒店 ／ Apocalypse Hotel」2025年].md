@@ -2596,3 +2596,14 @@ CP厨嘭子嗑这一对→给改造了双人座椅
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">第7话要发广告卫星还是上宇宙了?
 
+
+*****
+
+####  Yinacona  
+##### 248#       发表于 2025-5-15 17:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67816530&amp;ptid=2196984" target="_blank">AraTurambar 发表于 2025-5-15 10:18</a>
+
+口吐热水的真正作用要到第九集吧。</blockquote>
+这动画不是原创吗？是在官网有每集大纲之类的还是说衍生漫画有提到这些哇？怎么知道第x集会有什么
+

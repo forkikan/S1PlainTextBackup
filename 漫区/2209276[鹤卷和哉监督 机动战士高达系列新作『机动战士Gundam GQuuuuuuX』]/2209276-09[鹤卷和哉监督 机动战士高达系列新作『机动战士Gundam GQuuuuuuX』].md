@@ -15160,3 +15160,104 @@ GQ暴走就會把面罩拔下來開始唱歌
 
 用初號機的嗓子唱
 
+
+*****
+
+####  YU_JI  
+##### 13118#       发表于 2025-5-15 17:37
+
+<blockquote>Tungsten 发表于 2025-5-15 17:23
+这集里居然说毒气是联邦用的，那看来澳洲也没事了
+
+这个世界线里吉翁真成了戴肯理念中为了宇宙人的新族群认 ...</blockquote>
+毒气说的是0085年提坦斯针对side1的那次吧，正史提坦斯本来就干了，奥古就是这个事之后开始活跃的
+
+*****
+
+####  Tungsten  
+##### 13119#       发表于 2025-5-15 17:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67818114&amp;ptid=2209276" target="_blank">我聞如是 发表于 2025-5-15 17:35</a>
+
+懂了
+
+GQ暴走就會把面罩拔下來開始唱歌
+
+用初號機的嗓子唱</blockquote>
+密会时的巨大工地和工程机械，以及那一卡的BGM还真有点eva那味儿
+
+*****
+
+####  Tungsten  
+##### 13120#       发表于 2025-5-15 17:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67818129&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-15 17:37</a>
+
+毒气说的是0085年提坦斯针对side1的那次吧，正史提坦斯本来就干了，奥古就是这个事之后开始活跃的 ...</blockquote>
+当时写的时候我还没看到巴斯克少校那一段
+
+现在发现了。。。
+
+熟人真是一个接一个啊
+
+金元配的白毛强化人真可爱啊
+
+但也是满脸便当相……
+
+
+*****
+
+####  我聞如是  
+##### 13121#       发表于 2025-5-15 17:45
+
+<blockquote>Tungsten 发表于 2025-5-15 17:23
+这集里居然说毒气是联邦用的，那看来澳洲也没事了
+
+这个世界线里吉翁真成了戴肯理念中为了宇宙人的新族群认 ...</blockquote>
+悉尼的話劇場版開場就炸了，ED的地球儀上也有悉尼灣
+
+吉翁一般士兵對一年戰爭開始時的毒氣屠殺不知情
+
+*****
+
+####  中野梓  
+##### 13122#       发表于 2025-5-15 17:46
+
+喜欢2号，但感觉马上就要死
+
+*****
+
+####  Tungsten  
+##### 13123#       发表于 2025-5-15 17:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67816602&amp;ptid=2209276" target="_blank">adretyu67. 发表于 2025-5-15 10:29</a>
+
+喵安那个住所是那种salaryman租的单间吧。
+
+只能说走私这行当确实赚的不少。</blockquote>
+标准ワンルーム鸽子笼啊
+
+这种局促房间已经算你日留子标准开局了
+
+而且房间里好多东西都很新，怕不是打黑拳赚了钱新买的。。。
+
+*****
+
+####  seedees3  
+##### 13124#       发表于 2025-5-15 17:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67816823&amp;ptid=2209276" target="_blank">没取名啊 发表于 2025-5-15 11:09</a>
+
+不就是喜欢小偶像吗，这有啥好炎上的</blockquote>
+因为觉得被偶像痴监督给耍了
+
+原本阿宅食物链顶层的UC厨，很没面子的被处在食物链底层的低脑偶像厨给下克上秀了一脸，考究了半天的线索被证明只是毫无意义的偶像梗，是偶像痴监督在赛博打飞机，智商被侮辱绷不住了
+
+考究党A：这一卡一定是这个意思...
+
+考究党B：这块背景一定暗示着什么...
+
+考究党C：从世界观来看这里一定埋藏着什么伏笔
+
+偶像厨：这是西野七濑上传到ins的地方www<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
