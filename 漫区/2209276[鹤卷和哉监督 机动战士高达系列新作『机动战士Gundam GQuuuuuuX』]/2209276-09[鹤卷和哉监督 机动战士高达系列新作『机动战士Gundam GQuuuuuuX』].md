@@ -14660,3 +14660,122 @@ two把自己比作心脏，那会不会这次精神力高达的驾驶舱不在�
 
 都坐上精神病高达了，来下注看白毛萝莉能活几集吧
 
+
+*****
+
+####  岸浪白野  
+##### 13099#       发表于 2025-5-15 16:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67812089&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-14 04:02</a>
+
+X 上的 geist：“[https://t.co/ggHTvqCgaG” / X](https://t.co/ggHTvqCgaG” / X)</blockquote>
+[X 上的 srsh：“ドゥーちゃん #ジークアクス #GQuuuuuuX](https://x.com/Mid_sorase/status/1922360027009945977)[https://t.co/mUZGhr4vXv](https://t.co/mUZGhr4vXv)” / X
+
+<img src="https://img.stage1st.com/forum/202505/15/161833wjvxbqpzsrr6v4xs.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.5 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 16:18 上传
+
+[X 上的 伊達爾郎/Yielder：“本当の体 #GQuuuuuuX #ジークアクス](https://x.com/yielderego/status/1922373472740655213)[https://t.co/g0U9hGXABQ](https://t.co/g0U9hGXABQ)” / X
+
+<img src="https://img.stage1st.com/forum/202505/15/160136b545zt8pau7s83ry.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.33 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 16:01 上传
+
+[X 上的 蒔島梓@バ美肉お絵描きVTuber：“フォウ、お姉ちゃんだよ お姉ちゃん、フォウだよ](https://x.com/azusa_maxima/status/1922366561660158204)[https://t.co/26hjOkrsZn](https://t.co/26hjOkrsZn)” / X
+
+<img src="https://img.stage1st.com/forum/202505/15/160311aqsewe7z6zpqc8ck.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (481.37 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 16:03 上传
+
+[X 上的 すのーらいと❄️：“ドゥーちゃん❄️ #GQuuuuuuuX #ジークアクス #ドゥー](https://x.com/Snow_Light__/status/1922415633213301246)[https://t.co/7IxgWJWVqB](https://t.co/7IxgWJWVqB)” / X
+
+<img src="https://img.stage1st.com/forum/202505/15/160331d8jkeaj8aaaa4suj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.12 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 16:03 上传
+
+[X 上的 井上純一（希有馬屋）『逆資本論』発売中：“第６話　ぼ、僕は鶴巻監督とカラーを信じてます（棒） #GQuuuuuuX #ジークアクス](https://x.com/KEUMAYA/status/1922477069713473922)[https://t.co/ukAuka1Xkm](https://t.co/ukAuka1Xkm)” / X
+
+<img src="https://img.stage1st.com/forum/202505/15/160344jztuiplw9qi8f8wp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.65 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 16:03 上传
+
+[X 上的 哭糖(こくとー)：“思わず衝動描きしたドゥー・ムラサメ 可愛いけど強化人間なのと上司がアレなのでろくな展開にならない匂いがプンプンする](https://x.com/kanmiyakokuto/status/1922378160219283650)[https://t.co/NvOr0GX0cY](https://t.co/NvOr0GX0cY)” / X
+
+<img src="https://img.stage1st.com/forum/202505/15/160406uu6kv06m3o5o632m.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.54 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 16:04 上传
+
+[X 上的 85猫：“存在するはずの無い記憶 #GQuuuuuuX　#ジークアクス](https://x.com/85boxcat/status/1922504271695679540)[https://t.co/Zpo42a62HY](https://t.co/Zpo42a62HY)” / X
+
+<img src="https://img.stage1st.com/forum/202505/15/161122poz74h1l47xogzl0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.59 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 16:11 上传
+
+[X 上的 85猫：“風評被害再び #GQuuuuuuX　#ジークアクス](https://x.com/85boxcat/status/1922636083449176426)[https://t.co/CoPbKnUdOC](https://t.co/CoPbKnUdOC)” / X
+
+<img src="https://img.stage1st.com/forum/202505/15/161252a1j4cydprrr1qpep.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.97 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 16:12 上传
+
+[X 上的 ちえりん☆🍎：“ドゥーちゃん⚁](https://x.com/ZBKNsuki/status/1922504080330469784)[https://t.co/enprQMzfBX](https://t.co/enprQMzfBX)” / X
+
+<img src="https://img.stage1st.com/forum/202505/15/161316e0a4v9e6hm6cf6mk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (818.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 16:13 上传
+
+[X 上的 𝘽𝘼𝙉𝙈𝙀𝘾：“ドゥー・ムラサメ&amp;サイコガンダム(？) 「早くキラキラで遊びたい...」 #GQuuuuuuX #ジークアクス [url]https://t.co/uBgarn8gwp](https://x.com/Ban_Mec_/status/1922500548755878127)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/15/162333ew82xmh2hhbgzc82.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250515162236.jpg</strong> (961.12 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 16:23 上传
+
+[X 上的 赤崎でんじろー🐞イラストレーター・3Dモデラー：“かんたんドゥーちゃん #GQuuuuuuX [url]https://t.co/GPRjAGGsqJ](https://x.com/denjiro99/status/1922529249228931238)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/15/162409ijsat2sanpytdras.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (413.27 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 16:24 上传
+
