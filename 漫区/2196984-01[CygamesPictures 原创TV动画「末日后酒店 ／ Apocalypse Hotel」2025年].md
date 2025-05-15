@@ -2530,3 +2530,24 @@ CP厨嘭子嗑这一对→给改造了双人座椅
 
 这番规格怎么这么高啊<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">无敌了
 
+
+*****
+
+####  AraTurambar  
+##### 241#       发表于 2025-5-15 10:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67815323&amp;ptid=2196984" target="_blank">有钱多买小人 发表于 2025-5-14 21:28</a>
+
+没想到口吐热水这梗竟然还能回收。是个好剧本。</blockquote>
+口吐热水的真正作用要到第九集吧。
+
+*****
+
+####  AraTurambar  
+##### 242#       发表于 2025-5-15 10:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67812051&amp;ptid=2196984" target="_blank">Yinacona 发表于 2025-5-14 02:34</a>
+
+嘭子超绝恋爱脑不愧是和样貌年龄符合的年级（但实际上已经150+岁了）。A part留下的地球上几百年前就有这样 ...</blockquote>
+我也觉得之前人类灭了一条船是叙事诡计，很有可能最后真的就呼应八千代说的一千年。
+

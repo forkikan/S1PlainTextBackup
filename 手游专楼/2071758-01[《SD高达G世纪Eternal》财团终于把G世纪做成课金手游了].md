@@ -14872,3 +14872,13 @@ BD系是分原作游戏和改编漫画俩版本的，到时候全装BD1和BD3估
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  fxc731  
+##### 1398#       发表于 2025-5-15 10:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67815181&amp;ptid=2071758" target="_blank">夜之光 发表于 2025-5-14 20:42</a>
+被动1和3是两层加成，上面是无条件的+1次+2次，下面是有机体类型限制的减EN增伤 ...</blockquote>
+哦，明白了。谢谢解答
+
