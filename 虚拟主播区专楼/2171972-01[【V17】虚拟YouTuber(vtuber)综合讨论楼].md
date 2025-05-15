@@ -1310,3 +1310,13 @@ cover上市后的操作更像是要去偶像化
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">虹的比赛有绘森这种玩闹的也有马车那种搞得很卷的其实也挺好，两种我都爱看
 
+
+*****
+
+####  Harunoharu  
+##### 1146#       发表于 2025-5-15 18:40
+
+你虹还是人多，什么都能开的起来
+
+明年宝可梦新作发售还挺希望摇手指大会能复活的，虽然可能性不大
+

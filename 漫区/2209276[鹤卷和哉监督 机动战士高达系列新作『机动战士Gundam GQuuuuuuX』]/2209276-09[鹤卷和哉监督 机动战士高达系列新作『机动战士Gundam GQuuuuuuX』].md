@@ -15534,3 +15534,133 @@ Comoli看夏利亚还有后面西姆斯的时候的态度是因为这些人藏�
 </blockquote><blockquote>鹤卷出道短片</blockquote>
 草，太生草了
 
+
+*****
+
+####  Gysumitka  
+##### 13148#       发表于 2025-5-15 18:39
+
+这么大量就不可能是原画私货了啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  koodooliz  
+##### 13149#       发表于 2025-5-15 18:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67818340&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-15 18:34</a>
+说真的就没可能是原画的私货吗？和这集的通辽一样，感觉没法直接把偶像痴的身份套给监督啊，与其相信鹤卷这 ...</blockquote>
+主要是不只乃木坂的彩蛋，还有他见本市自己短片的，加上动画里i can Friday by day的彩蛋也不少，要说原画或外包那塞的有太多了。
+
+*****
+
+####  盐盐盐盐盐  
+##### 13150#       发表于 2025-5-15 18:41
+
+老头是偶像痴有什么奇怪的（
+
+
+*****
+
+####  Tungsten  
+##### 13151#       发表于 2025-5-15 18:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813654&amp;ptid=2209276" target="_blank">wpcc 发表于 2025-5-14 14:40</a>
+
+我要是真敢离家出走，现在已经被打成残废了。
+
+我只能说做题家的人生真就是麻球这回事  完全一样的。
+
+但是 ...</blockquote>
+爽哥金句还在输出
+
+“也许坐上巨大机器人，说不定就能改变什么”
+
+*****
+
+####  concert  
+##### 13152#       发表于 2025-5-15 18:44
+
+ 本帖最后由 concert 于 2025-5-15 18:46 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67818340&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-15 18:34</a>
+
+说真的就没可能是原画的私货吗？和这集的通辽一样，感觉没法直接把偶像痴的身份套给监督啊，与其相信鹤卷这 ...</blockquote>
+
+我觉得既然给特写了那书的设定肯定是要鹤卷操刀的，况且里面替换的两本，一本鹤卷的短片同名，一本children grow up by wolf，都是有意义的暗示
+
+img_8023.jpg
+(158.76 KB, 下载次数: )
+
+下载附件
+
+2025-5-15 18:24 上传
+
+<img src="https://img.stage1st.com/forum/202505/15/182413ej6qj2hyshyod2o2.jpg" referrerpolicy="no-referrer">
+
+img_8024.jpg
+(171.55 KB, 下载次数: )
+
+下载附件
+
+2025-5-15 18:24 上传
+
+<img src="https://img.stage1st.com/forum/202505/15/182453b232j5ga2l3bxjbs.jpg" referrerpolicy="no-referrer">
+
+img_8018.jpg
+(115.43 KB, 下载次数: )
+
+下载附件
+
+2025-5-15 18:24 上传
+
+<img src="https://img.stage1st.com/forum/202505/15/182458unhyfzrr606r69fm.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 13153#       发表于 2025-5-15 18:45
+
+好吧，好像确实有点多了，不帮鹤卷gg开脱了（）<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+*****
+
+####  王留美  
+##### 13154#       发表于 2025-5-15 18:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67817991&amp;ptid=2209276" target="_blank">ミオリネ 发表于 2025-5-15 16:57</a>
+ 塞太多太满了，上面潭友发的只是一部分，实际上翻出来的私货还有更多 会有一些人觉得，自己认真考究了一 ...</blockquote>
+艹，居然在这里看到0048
+
+*****
+
+####  concert  
+##### 13155#       发表于 2025-5-15 18:47
+
+<img src="https://img.stage1st.com/forum/202505/15/184729b9n9de9k9b232y36.jpg" referrerpolicy="no-referrer">
+
+<strong>img_8020.jpg</strong> (422.56 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 18:47 上传
+
+https://x.com/obuchi314/status/1922933796078317814?s=46
+目前最好看的一张
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  桜庭ななみ  
+##### 13156#       发表于 2025-5-15 18:47
+
+我想问一句，这书架是鹤卷亲手画的分镜吗？怕不是khara里已经被鸽骑渗透完了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+另外，鹤卷以后就和富坚义博坐一桌吧。
+
+*****
+
+####  岸浪白野  
+##### 13157#       发表于 2025-5-15 18:48
+
+这些都有说过，而且前面也有列过乃木坂厨觉得是对应什么彩蛋，这都不是一人原画的问题
+
