@@ -17068,3 +17068,36 @@ UC元年是2045年吧
 
 好像是原型店铺就有
 
+
+*****
+
+####  mintslime  
+##### 13282#       发表于 2025-5-16 02:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67819789&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-16 01:56</a>
+
+其实从图片来看六月中旬安琪就已经知道红高的所在地了（看角度可能是哈啰拍的照片），所以安琪很早就知道红 ...</blockquote>
+照片不是哈罗拍的
+
+<img src="https://img.stage1st.com/forum/202505/16/024921ffem5dsac5earsax.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250516024819.png</strong> (312.53 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-16 02:49 上传
+
+这张是在殖民地外部，红高达机库的出口拍的，哈罗不可能去那里。日期是6月17日，比红高达全身照（日期是6月15）晚两天，所以应该是跟踪麻球后再从外部拍摄了出口。
+
+还有一点我想问一下楼友，麻球是高三生这个说法是哪里来的，感觉NGA默认麻球高三。
+
+<img src="https://img.stage1st.com/forum/202505/16/025529e4tfl0np0spfbifa.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250516024908.png</strong> (512.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-16 02:55 上传
+
+这里写着是二年级，如果是高二生的话，想不出来未来要做啥，虽然没好到哪里去，也算是情有可原吧。
+
