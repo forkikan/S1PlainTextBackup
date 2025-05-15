@@ -238,3 +238,28 @@ tkn：找一辈子房子，好借宿一辈子
 
 果然闻了，谢谢作监
 
+
+*****
+
+####  Piano-Forest  
+##### 2313#         楼主| 发表于 2025-5-15 15:01
+
+[https://x.com/warder2013/status/1922758780560802239](https://x.com/warder2013/status/1922758780560802239)
+
+ご視聴ありがとうございました
+<img src="https://p.sda1.dev/24/02efa75ca45de8e7a2a17d435e2abb20/20250515_145828.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/kuz_artwork/status/1922633901907878025](https://x.com/kuz_artwork/status/1922633901907878025)
+
+リコリコ5話LOから動画まで参加させて頂きました。 もうまじで大変な中お疲れ様でした、、、頼むからみんな見て
+<img src="https://p.sda1.dev/24/1ee74736e2948f5fce78125982338ba0/20250515_145840.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/KuroeRei/status/1922682006262972797](https://x.com/KuroeRei/status/1922682006262972797)
+
+リコリコ5話の一部のLOに参加させていただきました。
+
+制作の三浦さん、演出さんとスタッフの皆様お疲れ様です。
+
+今後ともよろしくお願いいたします
+<img src="https://p.sda1.dev/24/b4aeca7e8150eeba05da388578638f19/20250515_145833.jpg" referrerpolicy="no-referrer">
+

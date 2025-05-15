@@ -14882,3 +14882,19 @@ BD系是分原作游戏和改编漫画俩版本的，到时候全装BD1和BD3估
 被动1和3是两层加成，上面是无条件的+1次+2次，下面是有机体类型限制的减EN增伤 ...</blockquote>
 哦，明白了。谢谢解答
 
+
+*****
+
+####  胖达君  
+##### 1399#       发表于 2025-5-15 15:03
+
+ 本帖最后由 胖达君 于 2025-5-15 15:05 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67815648&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-5-14 23:11</a>
+
+UR母舰最好有一个，词条对上相当于集体多一突，泛用性是贝姐（塞可缪）＞蒂法（一击必杀）＞芙劳（坚固）
+
+ ...</blockquote>
+塞可缪几乎都是UC系列的机体，泛用性哪里比得上一击必杀<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+目前UR支援母舰最强毫无疑问是拉克丝永恒号，但那个是限定，现在暂时抽不到了，其次就是提法，SEED,W,G,魔女都有一些强机带一击必杀词条（自由、正义、零式飞翼、地狱死神、艾比安、双头龙、闪光、尊者、风灵改修等），UC系列也有不少，比如ZZ，沙扎比，妖刀等
+
