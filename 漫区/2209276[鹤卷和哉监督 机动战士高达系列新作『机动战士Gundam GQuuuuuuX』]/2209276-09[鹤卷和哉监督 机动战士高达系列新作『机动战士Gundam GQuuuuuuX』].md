@@ -14779,3 +14779,124 @@ X 上的 geist：“[https://t.co/ggHTvqCgaG” / X](https://t.co/ggHTvqCgaG” 
 
 2025-5-15 16:24 上传
 
+
+*****
+
+####  岸浪白野  
+##### 13100#       发表于 2025-5-15 16:42
+
+[X 上的 鯨：“ドゥーちゃん可愛い… [url]https://t.co/Bur7YYNN2u](https://x.com/matuyoi1412/status/1922557820068614278)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/15/162959hgg5a4i9k4yvg9yn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.19 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 16:29 上传
+
+[X 上的 水上悟志　コミティア152 の24a：“２ [url]https://t.co/RsEvm9b3qY](https://x.com/nekogaeru/status/1922563754681626686)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/15/163013tsbesemsaq1jtsc7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (323.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 16:30 上传
+
+[X 上的 mel：“ドゥーちゃん [url]https://t.co/JV0xTZdj63](https://x.com/melty_pot/status/1922579157680025755)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/15/163229a5omj2m0amyn5ayo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (660.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 16:32 上传
+
+[X 上的 DHANAE：“強化人間の時点で悪い予感しかしないんですケード [url]https://t.co/r3jpWTf7Fj](https://x.com/usavivi777/status/1922569019850133525)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/15/163257hhvc17dcpz24ke2i.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.33 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 16:32 上传
+
+[X 上的 蒔島梓@バ美肉お絵描きVTuber：“空調機です通してください [url]https://t.co/SrBADPEBJs](https://x.com/azusa_maxima/status/1922545186678231266)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/15/163314leqxwvvbejjo3yqm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (52.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 16:33 上传
+
+[X 上的 世世良木：“ドゥーちゃん [url]https://t.co/ifnC0dCIyR](https://x.com/star4rats/status/1922591153750258016)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/15/163330eobvdpzsim9hv3b4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (904.91 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 16:33 上传
+
+[X 上的 約およそ：“ドゥーちゃん生き延びて…… できればコロニーを壊さずマチュとニャアンの仲直りのきっかけになりつつなんならパーティメンバーに加わって地球に一緒に行ってくれ…… まぁそれはそれとして、お着替え姿がえっちでしたね（現実逃避） [url]https://t.co/S1Cn9iFt9X](https://x.com/yakuoyoso/status/1922607826155024832)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/15/163359tm1laj11dbdvjabm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.21 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 16:33 上传
+
+[X 上的 ななてる🤖アニメ化決定『アルマちゃんは家族になりたい』：“ドゥーちゃん [url]https://t.co/sjEfSfybmL](https://x.com/renkonan/status/1922622149862297641)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/15/163434ic81n2g8z219090x.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (638.9 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 16:34 上传
+
+[X 上的 九石三羽：“ドゥーちゃんとホラゲで子供が描く絵のファンアートです。 #GQuuuuuuX #ジークアクス [url]https://t.co/XfE1rENJrC](https://x.com/sasakamakue/status/1922660883316031950)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/15/164146nwwghhbawudwaw5a.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.63 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 16:41 上传
+
+<img src="https://img.stage1st.com/forum/202505/15/164155xi7j6msk7ws86se6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.88 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 16:41 上传
+
+[X 上的 蜻蛉𓂙(かげろう)：“ドゥー・ムラサメさん かわいすぎ [url]https://t.co/0ddnEs4F5p](https://x.com/Kagerou12219/status/1922625897787457801)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/15/163455qccfm9mckf4qfs9d.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.5 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 16:34 上传
+
+*****
+
+####  木板春香  
+##### 13101#       发表于 2025-5-15 16:45
+
+ 总觉得白毛村雨有一股子忍者杀手味 
+
