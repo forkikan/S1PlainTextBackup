@@ -2861,3 +2861,16 @@ CP厨嘭子嗑这一对→给改造了双人座椅
 队长和锤哥基本就保留武器和半个名字，奇异是披风</blockquote>
 只会说一个词且不穿衣服，锤子大概是雷神+浩克的合体
 
+
+*****
+
+####  AraTurambar  
+##### 262#       发表于 2025-5-16 07:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67819303&amp;ptid=2196984" target="_blank">NBXX 发表于 2025-5-15 22:46</a>
+
+アポカリプスホテルぷすぷす 05話 漫画汉化。
+
+拖延症发作才弄完。 ...</blockquote>
+灵长类全灭了吧，当然也就没有猴子了。
+
