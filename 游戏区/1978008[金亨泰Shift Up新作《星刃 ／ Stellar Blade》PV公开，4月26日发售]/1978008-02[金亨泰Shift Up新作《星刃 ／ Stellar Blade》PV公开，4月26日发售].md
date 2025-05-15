@@ -586,3 +586,23 @@ Steam国区售价268/358，6月12日发售</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">买了，这两年最期待的游戏
 
+
+*****
+
+####  沧兰殇  
+##### 1984#       发表于 2025-5-16 00:15
+
+看多了吃性能垃圾优化的游戏，感觉这个是真不吃性能了，1060就能玩，2060s就能2k<img src="https://p.sda1.dev/24/e9e44d780e787bda01e61afce0e9c4c0/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  龘䶛䨻䎱㸞蚮䡶  
+##### 1985#       发表于 2025-5-16 00:20
+
+金大师这两天咋不去拜访同样是索尼发行同样是定价268的神作失落之魂啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

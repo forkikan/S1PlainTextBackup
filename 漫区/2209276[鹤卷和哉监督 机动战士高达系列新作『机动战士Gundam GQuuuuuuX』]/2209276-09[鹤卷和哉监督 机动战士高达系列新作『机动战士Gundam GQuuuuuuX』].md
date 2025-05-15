@@ -16847,3 +16847,54 @@ z高达其实出现过公元纪年，不过后面官方模糊化了
 
 <img src="https://p.sda1.dev/24/5662c538769eee7278e81aaa903a21e1/jHDJSsssas.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刺客ares  
+##### 13265#       发表于 2025-5-16 00:19
+
+开播前预估的都是0085部分只出来几个彩蛋老角色且不会影响主线剧情来着
+
+现在来看，不仅老角色数量比预想的多出几倍，对主线和环境的影响也比想象中更大，开播前说中期boss是盖茨带着凤的二姐来了谁会信啊
+
+*****
+
+####  岸浪白野  
+##### 13266#       发表于 2025-5-16 00:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67819614&amp;ptid=2209276" target="_blank">colodes 发表于 2025-5-16 00:17</a>
+
+文字识别了下，不保证正确</blockquote>
+这是第3集的英配台词，不用太担心跟12集的内容有关
+
+
+*****
+
+####  remediosOlOOOO  
+##### 13267#       发表于 2025-5-16 00:24
+
+ 本帖最后由 remediosOlOOOO 于 2025-5-16 00:26 编辑 
+
+没开播的时候都在骂痞子鹤卷搞什么叼毛高达打黑拳，水魔2.0，side6决斗过家家，播到现在发现原来黑拳环节是饺子<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 13268#       发表于 2025-5-16 00:25
+
+<img src="https://img.stage1st.com/forum/202505/16/002448y4lmdedlkn4qq4dk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (280.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-16 00:24 上传
+
+<img src="https://img.stage1st.com/forum/202505/16/002526qit1f6tiey6x9etd.png" referrerpolicy="no-referrer">
+
+<strong>chara_37_01.png</strong> (487.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-16 00:25 上传
+

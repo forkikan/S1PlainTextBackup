@@ -2841,3 +2841,11 @@ CP厨嘭子嗑这一对→给改造了双人座椅
 
 第三集的狸猫一家看的我恶心。今天连续把456集看完，真是酣畅淋漓的剧情<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">热血又感动是怎么回事！
 
+
+*****
+
+####  玻璃洋葱  
+##### 260#       发表于 2025-5-16 00:26
+
+想了下第六集的cp糖很大程度是小狸猫点出来的。如果没有她充当cp粉（突然来了句“八千代莫非是恋爱了”有点强行<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">），灭霸对八千代或者说对银河楼酒店的情感就显得有点牵强。
+
