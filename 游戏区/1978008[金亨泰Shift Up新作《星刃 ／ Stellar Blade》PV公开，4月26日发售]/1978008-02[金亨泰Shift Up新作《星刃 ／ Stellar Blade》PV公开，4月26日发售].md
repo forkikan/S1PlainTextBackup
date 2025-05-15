@@ -690,3 +690,233 @@ ps端会更新吗？
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  h122h  
+##### 1995#       发表于 2025-5-15 23:33
+
+<img src="https://img.stage1st.com/forum/202505/15/233254nf1cgcucigj2ggj1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (8.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 23:32 上传
+
+索尼发行商特地改了个名？变成PlayStation Publishing LLC (excluding China)了
+
+*****
+
+####  11116等  
+##### 1996#       发表于 2025-5-15 23:47
+
+金圣👍!杀😭！金圣👍!杀😭！金圣👍!杀😭！金圣👍!杀😭！金圣👍!杀😭！金圣👍!杀😭！金圣👍!杀😭！金圣👍!杀😭！金圣👍!杀😭！
+
+*****
+
+####  Piano-Forest  
+##### 1997#         楼主| 发表于 2025-5-15 23:48
+
+ 本帖最后由 Piano-Forest 于 2025-5-16 00:58 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67819377&amp;ptid=1978008" target="_blank">Piano-Forest 发表于 2025-5-15 23:11</a>
+
+Steam国区售价268/358，6月12日发售</blockquote>
+【发晚了差点被扣工资，老板的诚意大家肯定感受到了】 
+[https://b23.tv/FGCa1C8](https://b23.tv/FGCa1C8)
+
+【《剑星》PC版预购正式开启，北京时间6月12日发售】 
+[https://b23.tv/9LgecRH](https://b23.tv/9LgecRH)
+
+*****
+
+####  naclken.  
+##### 1998#       发表于 2025-5-15 23:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">这价格我可以，虽然是冷饭，但是金亨泰的**实在是太到位了，又没有该死的D加密。
+
+买买买
+
+*****
+
+####  医生狼多  
+##### 1999#       发表于 2025-5-15 23:51
+
+明年影之刃估计也这价了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BK10  
+##### 2000#       发表于 2025-5-15 23:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67819518&amp;ptid=1978008" target="_blank">naclken. 发表于 2025-5-15 23:49</a>
+
+这价格我可以，虽然是冷饭，但是金亨泰的**实在是太到位了，又没有该死的D加密。
+
+买买买 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202505/15/235723tnsnnzl4v6ykxifo.png" referrerpolicy="no-referrer">
+
+<strong>WP[I2LFXQEC]@CPJ2_A]_UA.png</strong> (697.48 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 23:57 上传
+
+哪里没有D加密这不是有吗
+
+
+*****
+
+####  h122h  
+##### 2001#       发表于 2025-5-15 23:59
+
+<img src="https://img.stage1st.com/forum/202505/15/235841xrf6faofri600zao.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (731.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 23:58 上传
+
+<img src="https://img.stage1st.com/forum/202505/15/235851j05p04yb001lnnln.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (31.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 23:58 上传
+
+还加了中文配音
+
+*****
+
+####  诗怀雅  
+##### 2002#       发表于 2025-5-16 00:03
+
+<img src="https://img.stage1st.com/forum/202505/16/000304l1lbhtheeh34b7dh.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250516000119.png</strong> (42.55 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-16 00:03 上传
+
+*****
+
+####  naclken.  
+##### 2003#       发表于 2025-5-16 00:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67819549&amp;ptid=1978008" target="_blank">BK10 发表于 2025-5-15 23:57</a>
+
+哪里没有D加密这不是有吗</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">之前一直都没标的也
+
+*****
+
+####  Andariel  
+##### 2004#       发表于 2025-5-16 00:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">买了，这两年最期待的游戏
+
+*****
+
+####  沧兰殇  
+##### 2005#       发表于 2025-5-16 00:15
+
+看多了吃性能垃圾优化的游戏，感觉这个是真不吃性能了，1060就能玩，2060s就能2k<img src="https://p.sda1.dev/24/e9e44d780e787bda01e61afce0e9c4c0/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  龘䶛䨻䎱㸞蚮䡶  
+##### 2006#       发表于 2025-5-16 00:20
+
+金大师这两天咋不去拜访同样是索尼发行同样是定价268的神作失落之魂啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ArthurDent  
+##### 2007#       发表于 2025-5-16 00:33
+
+ps端会更新吗？
+
+—— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  eulereld  
+##### 2008#       发表于 2025-5-16 00:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67819411&amp;ptid=1978008" target="_blank">卡拉德利姆 发表于 2025-5-15 23:21</a>
+
+感觉598的消息是官方放的
+
+一个想法不一定对</blockquote>
+沒毛病，港區HKD468，完全版HKD638，CNY598四捨五入是完全版的正價<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">吹的是我們正價區的風
+
+*****
+
+####  eulereld  
+##### 2009#       发表于 2025-5-16 00:44
+
+ 本帖最后由 eulereld 于 2025-5-16 01:08 编辑 
+
+重複編輯
+
+*****
+
+####  ネロ  
+##### 2010#       发表于 2025-5-16 00:47
+
+我就说不应该那么疯才对，豪华版预购<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Vladimeow  
+##### 2011#       发表于 2025-5-16 00:47
+
+买爆了 必须支持
+
+*****
+
+####  杨松  
+##### 2012#       发表于 2025-5-16 01:02
+
+买了两份支持反政治正确的好游戏，我做到了
+
+*****
+
+####  11116等  
+##### 2013#       发表于 2025-5-16 01:03
+
+豪华版预购了，金桑带我们再冲一把吧<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PKB110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  eva02eva02  
+##### 2014#       发表于 2025-5-16 01:20
+
+金桑要取你们的精了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fbman  
+##### 2015#       发表于 2025-5-16 01:35
+
+变态王这波太牛了<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Nosgoth  
+##### 2016#       发表于 2025-5-16 06:15
+
+那个完全版送的那个手游码能出吗，我完全没用。
+
