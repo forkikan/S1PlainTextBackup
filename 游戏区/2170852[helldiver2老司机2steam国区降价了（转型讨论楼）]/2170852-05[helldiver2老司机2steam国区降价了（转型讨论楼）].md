@@ -393,3 +393,13 @@
 
 进了把掠食残局，任务没做已经0增援了，一拖三速通眼看要到撤离点了傻逼鬼佬扔个bug红直接给我游戏卡崩<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jy000129  
+##### 5961#       发表于 2025-5-15 09:08
+
+本来的超级货币高亮MOD这次更新后又失效了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
