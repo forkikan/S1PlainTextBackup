@@ -16544,3 +16544,67 @@ gq宇宙还有艾尔美斯吗，塞克谬塞给红高达了，这项目是不是
 
 再脑洞一下，牢修是拉拉的儿子，唯一的愿望就是去地球找妈，他天天跟高达说话，其实是拉拉通过塞可谬在远程聊天，然后便宜老爹鸭子化身小螃蟹，天天在头上趴着（
 
+
+*****
+
+####  南朝Sonicbbs  
+##### 13239#       发表于 2025-5-15 23:09
+
+突然有个想法，能不能通过本集登场的6月日历来判定宇宙世纪元年是哪一年？
+
+<img src="https://img.stage1st.com/forum/202505/15/230331b0zllxm5lmmx95nm.jpg" referrerpolicy="no-referrer">
+
+<strong>宇宙世纪0085年6月.jpg</strong> (49.79 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 23:03 上传
+
+上图的日历，0085年6月3日是星期三，因此6月1日是星期一。所以只用找出所有“6月1日”是星期一的年份，然后减去85就可以获得了！
+
+但是……我用Deepseek和ChatGPT，结果发现给的答案完全不一样……
+
+Deepseek结果是这样的：2105, 2111, 2116, 2122, 2133, 2139, 2144, 2150, 2161, 2167, 2172, 2178, 2189, 2195；
+
+ChatGPT的结果是这样的：2104，2110，2121，2127，2132，2138，2149，2155，2160，2166，2177，2183，2188，2194。
+
+我给Deepseek的问题是“请列出2100年以后，截止公元2200年为止，所有“6月1日是星期一”的年份。”给ChatGPT的问题是“Please list all the years in which June 1st is a Monday starting from 2100 and ending in 2200.（请列出从 2100 年开始到 2200 年间所有 6 月 1 日为星期一的年份。）”
+
+有人能知道这是什么问题吗？
+
+*****
+
+####  南朝Sonicbbs  
+##### 13240#       发表于 2025-5-15 23:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67812808&amp;ptid=2209276" target="_blank">pokemon最爱 发表于 2025-5-14 11:13</a>
+
+虽然但是，剧场版上映来了个神秘发功的泽克诺瓦时就应该直接推荐补到CCA了吧 ...</blockquote>
+白毛强化人穿的精神感应服还是高达NT的呢。
+
+
+*****
+
+####  我聞如是  
+##### 13241#       发表于 2025-5-15 23:14
+
+<blockquote>南朝Sonicbbs 发表于 2025-5-15 23:09
+突然有个想法，能不能通过本集登场的6月日历来判定宇宙世纪元年是哪一年？
+
+</blockquote>
+我有算過，用土法翻網上年曆<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+Deepseek 2105那串是對的
+
+不過推算出來的元年和現有的元年年份都對不上
+
+*****
+
+####  民工业  
+##### 13242#       发表于 2025-5-15 23:16
+
+怎么真的有因为塞了一些偶像的梗就破防的人啊<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+塞了这些梗也没有影响到剧情的进展，没什么吧？<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
