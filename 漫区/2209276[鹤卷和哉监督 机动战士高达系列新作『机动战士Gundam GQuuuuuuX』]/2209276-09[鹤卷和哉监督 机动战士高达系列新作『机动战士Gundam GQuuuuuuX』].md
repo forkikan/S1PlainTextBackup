@@ -16426,3 +16426,21 @@ gq宇宙还有艾尔美斯吗，塞克谬塞给红高达了，这项目是不是
 
 这回是真·平行宇宙了吗
 
+
+*****
+
+####  Sliurus  
+##### 13226#       发表于 2025-5-15 22:15
+
+那玫瑰为什么会出现在地球，爆炸后再次穿越了？
+
+*****
+
+####  ryanghj  
+##### 13227#       发表于 2025-5-15 22:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67819201&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-5-15 22:15</a>
+
+那玫瑰为什么会出现在地球，爆炸后再次穿越了？</blockquote>
+就和红高重新出现在0085一样，泽克诺瓦后再次穿越了
+
