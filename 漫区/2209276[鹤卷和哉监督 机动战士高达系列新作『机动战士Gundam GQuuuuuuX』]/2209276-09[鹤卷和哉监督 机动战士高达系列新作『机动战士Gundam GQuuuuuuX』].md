@@ -15111,3 +15111,52 @@ jzgg那种程度的私货还算好，但是hjgg塞得太多了<img src="https://
 
 越来越喜欢喵安了
 
+
+*****
+
+####  ryanghj  
+##### 13114#       发表于 2025-5-15 17:28
+
+ 本帖最后由 ryanghj 于 2025-5-15 17:30 编辑 
+
+AKB0048是河森正治搞得
+
+GQuX neta 0048，所以GQuX≈河森正治搞得≈macross
+
+又因为GQuX=高达
+
+所以高达≈macross
+
+QED
+
+*****
+
+####  collincollin  
+##### 13115#       发表于 2025-5-15 17:29
+
+乃木坂0046 你也一并拍了吧
+
+*****
+
+####  xwz  
+##### 13116#       发表于 2025-5-15 17:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67817484&amp;ptid=2209276" target="_blank">无动于衷 发表于 2025-5-15 14:21</a>
+
+钉宫不适合配母亲这样的角色，气场出不来，一着急少女音就蹦出来了
+
+换皆口裕子奶奶可能更好一点</blockquote>
+但是有钉宫这样的妈妈还有什么不满意的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  我聞如是  
+##### 13117#       发表于 2025-5-15 17:35
+
+懂了
+
+GQ暴走就會把面罩拔下來開始唱歌
+
+用初號機的嗓子唱
+
