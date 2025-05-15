@@ -15756,3 +15756,31 @@ https://x.com/obuchi314/status/1922933796078317814?s=46
 目前最好看的一张</blockquote>
 白毛萝莉好平评
 
+
+*****
+
+####  岸浪白野  
+##### 13167#       发表于 2025-5-15 19:00
+
+前面就有列过，18年2号机就发过的东西，没什么意外<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但乃木坂考据饺子和筷子用法我是真绷不住
+
+<img src="https://img.stage1st.com/forum/202505/15/190053biloy3pzzi8963vt.png" referrerpolicy="no-referrer">
+
+<strong>20250515190001.png</strong> (820.51 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 19:00 上传
+
+
+*****
+
+####  jojonathan  
+##### 13168#       发表于 2025-5-15 19:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67818304&amp;ptid=2209276" target="_blank">zakufa782 发表于 2025-5-15 18:23</a>
+Comoli看夏利亚还有后面西姆斯的时候的态度是因为这些人藏的秘密太多了，漏油还是好好认真看片别发散思维了 ...</blockquote>
+不是因为红酒和到房间发言很下头吗<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
