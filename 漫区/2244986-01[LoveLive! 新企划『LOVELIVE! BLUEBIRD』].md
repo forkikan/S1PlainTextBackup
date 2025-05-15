@@ -1590,3 +1590,11 @@ IT小天才应该攻破网校的系统，直击完成课业获得学分才对。
 <img src="https://p.sda1.dev/24/5ce4b8a8072a2414b1047e1ac428edbf/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/24/d0d419a14f08c5c06118950fe87b9f8d/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仟音一心  
+##### 188#       发表于 2025-5-15 09:41
+
+【唐可可：现在不努力的话，生活就会变得好难-哔哩哔哩】 [https://b23.tv/j2I9jZi](https://b23.tv/j2I9jZi)
+
