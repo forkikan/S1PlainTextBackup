@@ -14861,3 +14861,14 @@ BD系是分原作游戏和改编漫画俩版本的，到时候全装BD1和BD3估
 那魔女格斗不就浪费了吗</blockquote>
 爱丽丝格斗补正
 
+
+*****
+
+####  jackyhuang  
+##### 1397#       发表于 2025-5-15 09:31
+
+咬咬牙把几台不太想喂的机器拉满了，把剩下永恒之路全通了
+这游戏80级和90级表现都会差好多<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
