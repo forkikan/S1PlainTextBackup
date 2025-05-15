@@ -680,3 +680,13 @@ ps端会更新吗？
 
 金桑要取你们的精了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fbman  
+##### 1994#       发表于 2025-5-16 01:35
+
+变态王这波太牛了<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
