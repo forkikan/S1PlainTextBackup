@@ -14391,3 +14391,20 @@ two把自己比作心脏，那会不会这次精神力高达的驾驶舱不在�
 
 这电波男下场怕不是宇宙男鬼
 
+
+*****
+
+####  theFinalNagisa  
+##### 13080#       发表于 2025-5-15 13:01
+
+说不定麻球去了蓝色木马，喵安去了绿色木马，牢修和红高达坐着两个女人买给他的穿梭机脱出去了地球（？
+
+
+*****
+
+####  woui003woui  
+##### 13081#       发表于 2025-5-15 13:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67816583&amp;ptid=2209276" target="_blank">colodes 发表于 2025-5-15 10:27</a></blockquote>
+作为0.5个鸽骑，很想吐槽，但不知道吐槽什么……
+
