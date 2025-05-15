@@ -15664,3 +15664,95 @@ https://x.com/obuchi314/status/1922933796078317814?s=46
 
 这些都有说过，而且前面也有列过乃木坂厨觉得是对应什么彩蛋，这都不是一人原画的问题
 
+
+*****
+
+####  夜雨秋水  
+##### 13158#       发表于 2025-5-15 18:48
+
+说真的，我都觉得这两话夏利亚的形象凹得有点过头了，就是那种怎么说呢，眼睛在黑暗中会发光，换个片场演霸总甚至会被吐槽油腻的地步。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  我聞如是  
+##### 13159#       发表于 2025-5-15 18:50
+
+目前還只是彩蛋程度
+
+等揭曉沙侖的玫瑰是48個拉拉再說吧
+
+*****
+
+####  Tungsten  
+##### 13160#       发表于 2025-5-15 18:50
+
+二号是不是不戴上口罩吸入里面的药物就会有问题啊
+
+戴口罩那段居然给了那么明显的inhaler声
+
+难不成这也能伏笔
+
+
+*****
+
+####  岸浪白野  
+##### 13161#       发表于 2025-5-15 18:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67818383&amp;ptid=2209276" target="_blank">concert 发表于 2025-5-15 18:44</a>
+
+我觉得既然给特写了那书的设定肯定是要鹤卷操刀的，况且里面替换的两本，一本鹤卷的短片同名，一本childr ...</blockquote>
+一层楼发就行，有张用的截图还是我截的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  猪突猛进R  
+##### 13162#       发表于 2025-5-15 18:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67818325&amp;ptid=2209276" target="_blank">花達香奈 发表于 2025-5-15 18:30</a>
+
+人家小森喜欢首席哥的是明明是“精英”却一直只有吃瘪的份这种反差萌。没错，就是79遇到之后的那种 ...</blockquote>
+首席哥对标夏亚是抬举他了，更像Z的挽尊哥。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a85982313  
+##### 13163#       发表于 2025-5-15 18:53
+
+怎么又是大龄偶像痴
+
+*****
+
+####  王留美  
+##### 13164#       发表于 2025-5-15 18:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67818407&amp;ptid=2209276" target="_blank">Tungsten 发表于 2025-5-15 18:50</a>
+ 二号是不是不戴上口罩吸入里面的药物就会有问题啊 戴口罩那段居然给了那么明显的inhaler声 难不成这也能伏 ...</blockquote>
+应该是有药物投入吧
+
+至少是治哮喘那种程度的吧
+至于你说会不会有兴奋剂或者其他更那个的就不好说了
+
+*****
+
+####  王留美  
+##### 13165#       发表于 2025-5-15 18:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67818422&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-15 18:53</a>
+ 首席哥对标夏亚是抬举他了，更像Z的挽尊哥。</blockquote>
+难道不是2000次？
+
+*****
+
+####  xwz  
+##### 13166#       发表于 2025-5-15 18:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67818395&amp;ptid=2209276" target="_blank">concert 发表于 2025-5-15 18:47</a>
+
+https://x.com/obuchi314/status/1922933796078317814?s=46
+
+目前最好看的一张</blockquote>
+白毛萝莉好平评
+
