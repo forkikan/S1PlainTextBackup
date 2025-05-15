@@ -159,3 +159,16 @@ tkn：找一辈子房子，好借宿一辈子
 
 美式大记忆遗忘术 笑死我了
 
+
+*****
+
+####  osore  
+##### 2306#       发表于 2025-5-15 08:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67815795&amp;ptid=2152053" target="_blank">oyss 发表于 2025-5-15 00:10</a>
+
+同居那么久了现在才想起来偷衣服穿</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泷奈是体面人，之前是要脸的
+
+被偷家了没拦住才半夜偷偷标记主权
+
