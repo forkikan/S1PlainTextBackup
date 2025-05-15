@@ -14935,3 +14935,56 @@ X 上的 geist：“[https://t.co/ggHTvqCgaG” / X](https://t.co/ggHTvqCgaG” 
 白毛能多活几集吗</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就12话没时间给你像Z一样安排一集在香港逛街了，估计一话就得变女鬼嘞。
 
+
+*****
+
+####  ミオリネ  
+##### 13105#       发表于 2025-5-15 16:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67816846&amp;ptid=2209276" target="_blank">古怪山庄士大夫 发表于 2025-5-15 11:15</a>
+
+插入彩蛋也能被炎上？</blockquote>
+塞太多太满了，上面潭友发的只是一部分，实际上翻出来的私货还有更多
+
+会有一些人觉得，自己认真考究了一堆，结果最后发现其实是个小偶像彩蛋，生气也不是不能理解
+
+用两张来表现那边的炎上点就是：
+
+<img src="https://img.stage1st.com/forum/202505/15/164547gt0untunjyyehmnp.jpg" referrerpolicy="no-referrer">
+
+<strong>01.jpg</strong> (163.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 16:45 上传
+
+<img src="https://img.stage1st.com/forum/202505/15/164548vj7j917ozxsjg1vx.gif" referrerpolicy="no-referrer">
+
+<strong>02.gif</strong> (2.42 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 16:45 上传
+
+【悲報】乃木坂ガンダム46、鶴巻和哉監督(59)が乃木坂46にんほる為の作品だと判明して炎上wwwwww★24
+[http://bbs.eddibb.cc/test/read.cgi/liveedge/1747293430/](http://bbs.eddibb.cc/test/read.cgi/liveedge/1747293430/)
+
+一天不到就跑了24串算是比较大的炎上了
+
+有人捕风捉影会不会核心设定也掺了私货了
+ <blockquote>キララ(AKB0048より)
+
+発光生物。異次元航法の開発に伴い、亜空間から現れた未知の生物であり、生態はよくわかっていない。
+
+形状さえも不安定であり、様々な形態をとっている。ただひとつわかっているのは、人の魂の輝きに吸い寄せられる習性があり、その高まりによって光輝く。
+
+ゆえにキララが集まり光輝くこと＝アイドルの力（オーラ）をもつものとされている。
+
+ライブのときは、より一層光輝き、アイドル達を照らす照明代わりにもなっている。
+
+この光は最高潮になると、時空さえも超える力を持つ。その力は、キララドライブと呼ばれる、星間航法にも応用されている。
+
+センターノヴァ現象(AKB0048より)
+
+AKB0048の襲名メンバーが突然消える現象。詳細は不明だったが、後に襲名メンバーのアイドル力と観客のボルテージを感じ取り、キララがより強く光り輝き、その限界を超えて、メンバーが消失してしまった事が明かされた。また、当時5代目峯岸みなみだった美果子もセンターノヴァ現象に巻き込まれたが、消失を免れた模様。</blockquote>
+
