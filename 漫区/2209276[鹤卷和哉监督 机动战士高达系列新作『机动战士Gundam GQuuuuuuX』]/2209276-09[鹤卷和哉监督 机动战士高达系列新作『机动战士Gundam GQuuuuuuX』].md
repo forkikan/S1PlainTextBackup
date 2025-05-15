@@ -15426,3 +15426,61 @@ GQX这世界观吉恩就是打了个寂寞。
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.46)
 
+
+*****
+
+####  zing223  
+##### 13139#       发表于 2025-5-15 18:18
+
+“考据厨也得有个限度”高达是这么说的
+
+
+*****
+
+####  zakufa782  
+##### 13140#       发表于 2025-5-15 18:23
+
+Comoli看夏利亚还有后面西姆斯的时候的态度是因为这些人藏的秘密太多了，漏油还是好好认真看片别发散思维了
+
+*****
+
+####  concert  
+##### 13141#       发表于 2025-5-15 18:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67818072&amp;ptid=2209276" target="_blank">Tungsten 发表于 2025-5-15 17:23</a>
+这集里居然说毒气是联邦用的，那看来澳洲也没事了
+
+这个世界线里吉翁真成了戴肯理念中为了宇宙人的新族群认 ...</blockquote>
+书柜是最细节的
+
+<img src="https://img.stage1st.com/forum/202505/15/182413ej6qj2hyshyod2o2.jpg" referrerpolicy="no-referrer">
+
+<strong>img_8023.jpg</strong> (158.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 18:24 上传
+
+左侧漫画有冬野さほ的twinkle，堀道広的掏耳朵的人萨缪尔，去年刚由漫编室引进的高野文子黄色い本 ，ロビン 西的心灵游戏，山下和美未踏之地，田岛列岛子供はわかってあげない，萩尾望都的荒芜之地，还有佐藤二朗的推特金句汇总《佐藤二朗なう》
+但是可以看出除了插了一本鹤卷出道短片为标题的书，动画里田岛列岛的孩子长不大也被替换成了《children grow up by wolf》
+
+<img src="https://img.stage1st.com/forum/202505/15/182453b232j5ga2l3bxjbs.jpg" referrerpolicy="no-referrer">
+
+<strong>img_8024.jpg</strong> (171.55 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 18:24 上传
+
+<img src="https://img.stage1st.com/forum/202505/15/182458unhyfzrr606r69fm.jpg" referrerpolicy="no-referrer">
+
+<strong>img_8018.jpg</strong> (115.43 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 18:24 上传
+
+除了能看出继jzgg是猴厨后鹤卷也是鸽厨偶像吃，还暗示了什么呢
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+

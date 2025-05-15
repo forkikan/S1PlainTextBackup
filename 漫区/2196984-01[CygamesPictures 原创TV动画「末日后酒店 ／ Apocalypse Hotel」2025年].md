@@ -2618,3 +2618,15 @@ CP厨嘭子嗑这一对→给改造了双人座椅
 这动画不是原创吗？是在官网有每集大纲之类的还是说衍生漫画有提到这些哇？怎么知道第x集会有什么 ...</blockquote>
 这动画早就制作完毕了吧
 
+
+*****
+
+####  kyumo  
+##### 250#       发表于 2025-5-15 18:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67818147&amp;ptid=2196984" target="_blank">Yinacona 发表于 2025-5-15 17:41</a>
+这动画不是原创吗？是在官网有每集大纲之类的还是说衍生漫画有提到这些哇？怎么知道第x集会有什么 ...</blockquote>
+楼里58楼写的
+
+—— 来自 Xiaomi 2211133C, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
