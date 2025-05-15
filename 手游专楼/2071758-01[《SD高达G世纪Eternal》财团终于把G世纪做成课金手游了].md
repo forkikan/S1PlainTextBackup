@@ -14921,3 +14921,11 @@ UR母舰最好有一个，词条对上相当于集体多一突，泛用性是贝
 
 最后蒂法真的很难刷
 
+
+*****
+
+####  blue321  
+##### 1401#       发表于 2025-5-15 19:05
+
+这次的掉落概率是不是高了？一天的体力掉了3台骰子高达，爽赚了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
