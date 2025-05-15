@@ -18,3 +18,17 @@
 
 最搞的不是黛玉而是锁妈的小椅子，贾里翁说越来越有力了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kurihayn  
+##### 1120#       发表于 2025-5-15 13:54
+
+ 本帖最后由 kurihayn 于 2025-5-15 13:55 编辑 
+
+俊俏款林黛玉，粗眉毛薛宝钗……
+
+得花好一段时间接受这人设
+
+这么看还是惜春最惊喜
+
