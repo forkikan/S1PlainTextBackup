@@ -16484,3 +16484,40 @@ gq宇宙还有艾尔美斯吗，塞克谬塞给红高达了，这项目是不是
 
 之前就有人说爱尔梅斯形状像玫瑰花苞或者花萼。修司说玫瑰在地球，看到爱尔梅斯出现那至少说明三人组或者三人组其中一个真到了地球？
 
+
+*****
+
+####  灵魂收割机  
+##### 13233#       发表于 2025-5-15 22:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67818021&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-15 17:10</a>
+
+草</blockquote>
+名字对得上：
+
+センターノヴァ
+
+ゼ　ク　ノヴァ
+
+我也感觉不舒服了。
+
+*****
+
+####  xwz  
+##### 13234#       发表于 2025-5-15 22:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67818701&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-15 20:17</a>
+
+喵安吃的是粉丝不是吃面
+
+アニメーター、仕事をする。: バニシングポイント・ブログ</blockquote>
+螺丝粉？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qqqwwwyyy  
+##### 13235#       发表于 2025-5-15 22:53
+
+跟拉拉有关系倒是能猜到，kirakira尽头的人影就能猜到是拉拉了，现在原机设艾尔美斯都出来了，基本实锤是穿越了
+
