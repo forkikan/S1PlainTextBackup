@@ -390,3 +390,36 @@ Steam国区售价268/358，6月12日发售
 
 马上预购<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，坛友之前吹风598吓到我了
 
+
+*****
+
+####  请问有猪扒饭吗  
+##### 1966#       发表于 2025-5-15 23:18
+
+268白菜价啊<img src="https://static.stage1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  卡拉德利姆  
+##### 1967#       发表于 2025-5-15 23:21
+
+感觉598的消息是官方放的
+一个想法不一定对<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Akmenter  
+##### 1968#       发表于 2025-5-15 23:22
+
+金亨泰背后必有汉人指点。
+
+*****
+
+####  棍机凹升龙  
+##### 1969#       发表于 2025-5-15 23:25
+
+268有想法了，就是不知道1060跑会不会很拉<img src="https://static.stage1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-F9460, Android 14, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

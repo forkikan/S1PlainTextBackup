@@ -2769,3 +2769,25 @@ CP厨嘭子嗑这一对→给改造了双人座椅
 
 这集确实不错，之前狸猫含量过高的那几集不是很对我口味
 
+
+*****
+
+####  TOYSTORY  
+##### 257#       发表于 2025-5-15 23:24
+
+好狂气和舒服的一话，虽然有恋爱氛围但当事人几乎没那个意思，只是小狸猫在嗑CP。
+
+如果真的有那个意思感觉会怪怪的，现在这样留白就比较好
+
+还有像楼上说的，这话很多展开（女主学会外星语+树人的手势、会毁灭星球的沙虫、温泉、女主的漏水机制）都是前几话提过的东西，这样就不会给人突兀的感觉<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202505/15/232451jnfvfvdx1gdx8cxb.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (45.64 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 23:24 上传
+
+话说喵星人的造型怎么有点像丹迪里那只猫<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

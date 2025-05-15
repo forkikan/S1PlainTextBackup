@@ -16608,3 +16608,57 @@ Deepseek 2105那串是對的
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  玻璃洋葱  
+##### 13243#       发表于 2025-5-15 23:18
+
+重看了一遍第六集，为啥都在说番茄妈下一集要死了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">感觉连续死两个母亲角色很无聊啊
+
+*****
+
+####  Piano-Forest  
+##### 13244#         楼主| 发表于 2025-5-15 23:19
+
+高村和宏
+[http://vanishingpoint.air-nifty.com/blog/2025/05/post-265604.html](http://vanishingpoint.air-nifty.com/blog/2025/05/post-265604.html)
+
+『機動戦士Gundam GQuuuuuuX』の6話にコンテで参加させていただきました。
+
+鶴巻さんとまた一緒にお仕事が出来てとっても嬉しかったです。お疲れ様でした。
+<img src="https://p.sda1.dev/24/c7d96e21919033598a1038da243e26e4/s20250514.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  南朝Sonicbbs  
+##### 13245#       发表于 2025-5-15 23:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67819387&amp;ptid=2209276" target="_blank">我聞如是 发表于 2025-5-15 23:14</a>
+
+我有算過，用土法翻網上年曆
+
+Deepseek 2105那串是對的
+
+不過推算出來的元年和現有的元年年份都對不上 ...</blockquote>
+我又在ChatGpt上试了下，发现DeepSeek是先给你列出程序算法然后计算的；然后ChatGPT基本上错了，我查了万年历以后问2105是不是6月1日星期一，它回答不是，是星期二；我立即纠正说我看了日历了，就是星期一，它立即承认错误了，但还是把错误的2109年给算进去了……
+
+
+*****
+
+####  renkan119  
+##### 13246#       发表于 2025-5-15 23:24
+
+<blockquote>玻璃洋葱 发表于 2025-5-15 23:18
+重看了一遍第六集，为啥都在说番茄妈下一集要死了感觉连续死两个母亲角色很无聊啊 ...</blockquote>
+一个是番茄需要一个成长的契机
+
+一个是这集开始大规模膜Z 番茄妈和卡妙妈也微妙长得挺像的
+
+*****
+
+####  wpcc  
+##### 13247#       发表于 2025-5-15 23:26
+
+基本可以确定是拉拉用修斯干涉每一个时间线 直到找到NT能够拯救地球的未来 NT不是杀人兵器 拉拉这样说
+
