@@ -655,3 +655,20 @@ ps端会更新吗？
 
 买爆了 必须支持
 
+
+*****
+
+####  杨松  
+##### 1991#       发表于 2025-5-16 01:02
+
+买了两份支持反政治正确的好游戏，我做到了
+
+*****
+
+####  11116等  
+##### 1992#       发表于 2025-5-16 01:03
+
+豪华版预购了，金桑带我们再冲一把吧<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PKB110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
