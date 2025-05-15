@@ -15934,3 +15934,50 @@ Comoli看夏利亚还有后面西姆斯的时候的态度是因为这些人藏�
 
 2025-5-15 20:07 上传
 
+
+*****
+
+####  岸浪白野  
+##### 13180#       发表于 2025-5-15 20:17
+
+喵安吃的是粉丝不是吃面
+[アニメーター、仕事をする。: バニシングポイント・ブログ](http://vanishingpoint.air-nifty.com/blog/2025/05/post-265604.html)
+
+<img src="https://img.stage1st.com/forum/202505/15/201636g1ecyok0dkooyy5n.png" referrerpolicy="no-referrer">
+
+<strong>OED%3NFURD`FJ[YMN({$V7D.png</strong> (222.94 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 20:16 上传
+
+<img src="https://img.stage1st.com/forum/202505/15/201643fjjpcbfx7y543z53.png" referrerpolicy="no-referrer">
+
+<strong>ER5XX8$K1]1HRGP`XVZ`O.png</strong> (1.4 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 20:16 上传
+
+
+*****
+
+####  yone0000  
+##### 13181#       发表于 2025-5-15 20:23
+
+首席哥到现在第六集了还没有新机体开，光坐地铁了，放过他把<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  az一串字母  
+##### 13182#       发表于 2025-5-15 20:24
+
+鹤卷翻车的角度好新奇，虽然对我来说塞自己以前作品的彩蛋、塞自己和庵野名字和塞偶像宅彩蛋没有任何区别
+
+*****
+
+####  yvev  
+##### 13183#       发表于 2025-5-15 20:28
+
+这个破防角度我是想不到的，不愧是日本人
+
