@@ -2564,3 +2564,11 @@ CP厨嘭子嗑这一对→给改造了双人座椅
 半夜做的有点困，有错误欢迎指出。 ...</blockquote>
 大佬，我可以把您汉化的有关末日后酒店的漫画搬运到贴吧吗
 
+
+*****
+
+####  Ashice  
+##### 244#       发表于 2025-5-15 12:33
+
+这集就我完全get不到是吧<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
