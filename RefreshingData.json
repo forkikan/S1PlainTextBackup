@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 14384,
+    "totalreply": 14385,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》4.29 赞不绝口]",
-    "lastedit": 1747287846,
+    "lastedit": 1747296135,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -8415,10 +8415,10 @@
     "update": false
   },
   "2145840": {
-    "totalreply": 2925,
+    "totalreply": 2926,
     "title": "[学园偶像大师]",
     "newtitle": "[学园偶像大师]",
-    "lastedit": 1747280773,
+    "lastedit": 1747296486,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -9396,10 +9396,10 @@
     "update": false
   },
   "2194776": {
-    "totalreply": 17060,
+    "totalreply": 17061,
     "title": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
     "newtitle": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
-    "lastedit": 1747294327,
+    "lastedit": 1747296135,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 132941,
+    "totalreply": 132945,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1747295892,
+    "lastedit": 1747296367,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12155,7 +12155,7 @@
     "newtitle": "[格斗区acgn格斗专用楼 欢迎一切anti]",
     "lastedit": 1747036930,
     "category": "手游战斗",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2160915": {
@@ -13217,6 +13217,15 @@
     "newtitle": "[前暴雪制作人Grummz是个大骗子]",
     "lastedit": 1747293011,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "1999568": {
+    "totalreply": 424,
+    "title": "[爱、死亡&amp;机器人 第四季 5月15日 Netflix配信]",
+    "newtitle": "[爱、死亡&amp;机器人 第四季 5月15日 Netflix配信]",
+    "lastedit": 1747296154,
+    "category": "漫区",
     "active": true,
     "update": false
   }
