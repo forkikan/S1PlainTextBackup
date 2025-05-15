@@ -14426,3 +14426,54 @@ two把自己比作心脏，那会不会这次精神力高达的驾驶舱不在�
 
 打完精神力高达gqux和红高彻底没装备了吧
 
+
+*****
+
+####  asdhai  
+##### 13084#       发表于 2025-5-15 14:07
+
+从物理层面上来说必须投绿叔叔获取补给了
+
+*****
+
+####  ryanghj  
+##### 13085#       发表于 2025-5-15 14:10
+
+修司对玛秋的建议是更自由一些，对喵安的建议是保持本色
+
+玛秋很轻松的就接受了，但是喵安很抗拒另一个自己
+
+<img src="https://img.stage1st.com/forum/202505/15/140740r6dzqq3pphwdmwpd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (214.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 14:07 上传
+
+<img src="https://img.stage1st.com/forum/202505/15/140800h63ylrjltc6w83ja.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (147.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 14:08 上传
+
+考虑到修司的NT能力，搞不好那个喵安才是真正的喵安
+
+<img src="https://img.stage1st.com/forum/202505/15/141001o5ii5rmtgit67zqf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (233.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 14:10 上传
+
+<img src="https://img.stage1st.com/forum/202505/15/141019uses03mm0u0e53z0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (225 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 14:10 上传
+

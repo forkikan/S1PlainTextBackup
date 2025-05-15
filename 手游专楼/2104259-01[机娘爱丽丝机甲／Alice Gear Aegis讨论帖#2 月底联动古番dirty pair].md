@@ -148,3 +148,13 @@ bingo里几个要打的怪都该上哪打（</blockquote>
 
 另外试伤害时自残后飘的数字是比一般着装射击SP猛很多，但对比了下感觉，不会比黑猫的ansp伤害高多少的，因为黑猫的射击速度和射击频率实在领先太多了，还有位移<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  外骨骼  
+##### 1460#       发表于 2025-5-15 14:08
+
+an不是很好出么，随便一抽就出来了。
+
+哎红水又不够了
+
