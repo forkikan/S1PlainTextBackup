@@ -16923,3 +16923,37 @@ z高达其实出现过公元纪年，不过后面官方模糊化了
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.46)
 
+
+*****
+
+####  OrianaThomson  
+##### 13271#       发表于 2025-5-16 01:07
+
+下集side6嗜血观众集合了
+
+*****
+
+####  57042711  
+##### 13272#       发表于 2025-5-16 01:09
+
+估计是NT发功的时候看到了奇怪的东西吧，直接出艾尔梅斯也太怪了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  璇瑢子R  
+##### 13273#       发表于 2025-5-16 01:10
+
+下一集最有弹幕的打法是不是男主把番茄妈给误杀了
+
+*****
+
+####  ryanghj  
+##### 13274#       发表于 2025-5-16 01:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67819370&amp;ptid=2209276" target="_blank">南朝Sonicbbs 发表于 2025-5-15 23:09</a>
+
+突然有个想法，能不能通过本集登场的6月日历来判定宇宙世纪元年是哪一年？</blockquote>
+UC元年是2045年吧
+
