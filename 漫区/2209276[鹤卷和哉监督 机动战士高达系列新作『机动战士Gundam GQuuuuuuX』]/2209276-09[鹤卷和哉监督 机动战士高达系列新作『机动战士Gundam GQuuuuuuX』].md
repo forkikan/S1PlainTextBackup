@@ -16898,3 +16898,28 @@ z高达其实出现过公元纪年，不过后面官方模糊化了
 
 2025-5-16 00:25 上传
 
+
+*****
+
+####  大十字紅朔  
+##### 13269#       发表于 2025-5-16 00:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67819123&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-15 21:51</a>
+
+正史艾尔梅斯被骡子插爆了，即使穿越也是残骸。
+
+假如真是穿越，那拉拉是无了，机体是逆向工程解析后的仿制 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">拉拉在印度吧
+
+*****
+
+####  Toby_dak  
+##### 13270#       发表于 2025-5-16 00:49
+
+<blockquote>引用第13242楼玻璃洋葱于2025-05-15 23:18发表的  :
+
+重看了一遍第六集，为啥都在说番茄妈下一集要死了感觉连续死两个母亲角色很无聊啊</blockquote>
+倒不如说UC系NT主角们有几个是双亲健在的<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.46)
+
