@@ -1598,3 +1598,12 @@ IT小天才应该攻破网校的系统，直击完成课业获得学分才对。
 
 【唐可可：现在不努力的话，生活就会变得好难-哔哩哔哩】 [https://b23.tv/j2I9jZi](https://b23.tv/j2I9jZi)
 
+
+*****
+
+####  仟音一心  
+##### 189#       发表于 2025-5-15 12:15
+
+这种破学校废也就废了吧。
+<img src="https://p.sda1.dev/24/aae515a35cb4d1be4cc4e8deb115fa92/image.jpg" referrerpolicy="no-referrer">
+
