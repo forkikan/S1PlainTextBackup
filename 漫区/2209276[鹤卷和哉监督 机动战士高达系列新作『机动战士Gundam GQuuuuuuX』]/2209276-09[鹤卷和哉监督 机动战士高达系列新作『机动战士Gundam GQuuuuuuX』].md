@@ -14067,3 +14067,19 @@ gquuuuuux主创一伙人有不少都是没读完大学或者读个带专就找�
 
 至于side6？我祝各位身体健康<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ヒトニナル  
+##### 13045#       发表于 2025-5-15 09:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得玛秋和修司倒一倒，至少红高达必定上木马
+
+
+*****
+
+####  断翼  
+##### 13046#       发表于 2025-5-15 10:02
+
+不能用香港来对比的，因为香港社会福利并不和英国靠拢，不论建公房还是60岁长者乘车优惠这样的利民措施至今也有近一半香港市民持负面态度。而香港老保更认为应该彻底交给市场调节，同舟共济的狮子山精神也被曲解为多劳多得。
+
