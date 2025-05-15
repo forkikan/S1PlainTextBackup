@@ -15484,3 +15484,53 @@ Comoli看夏利亚还有后面西姆斯的时候的态度是因为这些人藏�
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  花達香奈  
+##### 13142#       发表于 2025-5-15 18:30
+
+人家小森喜欢首席哥的是明明是“精英”却一直只有吃瘪的份这种反差萌。没错，就是79遇到<img src="https://static.stage1st.com/image/smiley/carton2017/022.png" referrerpolicy="no-referrer">那种
+
+*****
+
+####  岸浪白野  
+##### 13143#       发表于 2025-5-15 18:30
+
+沦为战场的殖民卫星就是刺激喵安的回忆和玛秋也来体验一遍
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 13144#       发表于 2025-5-15 18:30
+
+想起了某领域流行的皮套论，如果喵安是三次元偶像的皮套，楼友怎么想？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mhss  
+##### 13145#       发表于 2025-5-15 18:31
+
+看大姐头之后会不会挂，如果挂了，我总觉得ED那一圆一方搞不好是换了主人的遗物，哈啰是跟了番茄不少时间，但是方盒子一直和喵安同框太怪了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  YU_JI  
+##### 13146#       发表于 2025-5-15 18:34
+
+ 本帖最后由 YU_JI 于 2025-5-15 18:35 编辑 
+
+说真的就没可能是原画的私货吗？和这集的通辽一样，感觉没法直接把偶像痴的身份套给监督啊，与其相信鹤卷这么个老头是偶像痴，感觉是原画的私货，监督没发现的可能性更大啊<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我聞如是  
+##### 13147#       发表于 2025-5-15 18:37
+
+<blockquote>concert 发表于 2025-5-15 18:25
+书柜是最细节的
+
+</blockquote><blockquote>鹤卷出道短片</blockquote>
+草，太生草了
+
