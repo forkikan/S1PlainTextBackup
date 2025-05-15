@@ -616,3 +616,42 @@ ps端会更新吗？
 
 —— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  eulereld  
+##### 1987#       发表于 2025-5-16 00:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67819411&amp;ptid=1978008" target="_blank">卡拉德利姆 发表于 2025-5-15 23:21</a>
+
+感觉598的消息是官方放的
+
+一个想法不一定对</blockquote>
+沒毛病，港區HKD468，完全版HKD638，CNY598四捨五入是完全版的正價<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">吹的是我們正價區的風
+
+*****
+
+####  eulereld  
+##### 1988#       发表于 2025-5-16 00:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67819411&amp;ptid=1978008" target="_blank">卡拉德利姆 发表于 2025-5-15 23:21</a>
+
+感觉598的消息是官方放的
+
+一个想法不一定对</blockquote>
+沒毛病，港區HKD468，完全版HKD638，CNY598四捨五入是完全版的正價<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">吹的是我們正價區的風
+
+*****
+
+####  ネロ  
+##### 1989#       发表于 2025-5-16 00:47
+
+我就说不应该那么疯才对，豪华版预购<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Vladimeow  
+##### 1990#       发表于 2025-5-16 00:47
+
+买爆了 必须支持
+
