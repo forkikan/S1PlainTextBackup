@@ -14240,3 +14240,62 @@ newtype 2020年2月的专题就是鹤卷等人和锦织对谈坂道系
 
 这两个房间不是痞子从EVA用到现在了吗，差不多喵安就是那种刚毕业打工人单间，马球这种是小资中产公寓，也不太好拿国内来类比<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  我聞如是  
+##### 13064#       发表于 2025-5-15 11:27
+
+瑪秋那個有可能，但又如何？
+
+涅安這個東南亞名字在飛躍嶺峰2就出現過了
+
+<img src="https://img.stage1st.com/forum/202505/15/112602sle3kh132ehny2yi.jpg" referrerpolicy="no-referrer">
+
+<strong>1000028531.jpg</strong> (87.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 11:26 上传
+
+*****
+
+####  ryanghj  
+##### 13065#       发表于 2025-5-15 11:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67816846&amp;ptid=2209276" target="_blank">古怪山庄士大夫 发表于 2025-5-15 11:15</a>
+
+插入彩蛋也能被炎上？</blockquote>
+类比国内应该是管人痴在○神里塞私货<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你就看暴露了会不会被喷吧
+
+*****
+
+####  poiqwe  
+##### 13066#       发表于 2025-5-15 11:29
+
+看了下5厕，主要是嫌儲版，从昨天到现在好几个串了，x上倒是没动静
+
+*****
+
+####  gammatau  
+##### 13067#       发表于 2025-5-15 11:29
+
+他都找八爷和管人唱歌了还在乎46这种事吗
+
+说不定这也和找管人一样是吸引新世代的炒作一环！
+
+
+*****
+
+####  久保由利香  
+##### 13068#       发表于 2025-5-15 11:32
+
+喵安的私服也很像奥黛，再加上飞跃巅峰这越南人
+
+*****
+
+####  桜庭ななみ  
+##### 13069#       发表于 2025-5-15 11:33
+
+就前几个月nhk搞了个吹庵野秀明的广播节目请乃木坂的人来当嘉宾，鹤卷也有出来聊顺便给新高达打广告，当时就感觉他挺低调的。
+
