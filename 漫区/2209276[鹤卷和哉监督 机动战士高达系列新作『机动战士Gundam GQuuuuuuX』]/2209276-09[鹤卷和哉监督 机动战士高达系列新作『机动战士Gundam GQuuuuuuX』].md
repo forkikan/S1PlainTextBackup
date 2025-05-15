@@ -14540,3 +14540,49 @@ two把自己比作心脏，那会不会这次精神力高达的驾驶舱不在�
 
 唔虽然这么理解的话就多少有点“吸引力法则”和近些年流行的所谓“显化”的味道了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 13093#         楼主| 发表于 2025-5-15 15:33
+
+<img src="https://p.sda1.dev/24/4c2e3868c725968aa8725cca86b2bdd6/20250515_151353.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/d70d99e582ab4bc00841171a46a3015b/20250515_151357.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/8bf62cf097335a3d68bf38019b4eafb3/20250515_151401.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/77c0fa345673c8ca6d693cf171ee1c94/20250515_151404.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/24/1c0aa2deccc325ab31c06c7f11bce4d6/20250515_151736.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/8d7e765b5d257ead151922437c152967/20250515_151739.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/eed333bfa6ad2ce837b149593f8bfd71/20250515_151750.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/9581b354fe97fd1d4e76e836fb0de52e/20250515_151804.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/0b57a0955ec70d82ed9ff4f032d9966b/20250515_151650.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/24/ad4e62ff118ba1d41a1c0de9aee3aea2/IMG_20250515_150719.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/8eca8348ce57118d4f2bc98839b361d3/20250515_151023.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/7ef67da56304feaa4281e31a5bdb7662/IMG_20250515_150821.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/110c58e265243da594aea5b87231819e/IMG_20250515_151244.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/1e36a929270afa006e8091806a874524/20250515_151137.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/b2ac131e1026e6f6bb3827af14fd74b9/IMG_20250515_150749.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/ac5a68d58e504a88ad82e83f4de3e79b/20250515_151708.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/fe8bb0cda08356a4d8b7d8197a826a8b/IMG_20250515_150732.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/YY_shibata/status/1922319458875351085](https://x.com/YY_shibata/status/1922319458875351085)
+
+第6話ご視聴いただき、ありがとうございました！
+
+動画で参加しております！
+
+配信等でもお楽しみください！
+<img src="https://p.sda1.dev/24/e09cde3872be00e06a3d13f7e41118e3/20250515_151512.jpg" referrerpolicy="no-referrer">
+
+推しが来た。
+<img src="https://p.sda1.dev/24/8e1c386334c9bcc63bec548a980e559b/20250515_151516.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/kouda_nyo/status/1922321043357679816](https://x.com/kouda_nyo/status/1922321043357679816)
+
+マチュとシュウちゃん、3人で
+<img src="https://p.sda1.dev/24/8f7ec56119de154cbf23b9219f83069f/20250515_151519.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/YoshimasaTerui/status/1922237178865697229](https://x.com/YoshimasaTerui/status/1922237178865697229)
+<img src="https://p.sda1.dev/24/fb859827f99f1254f52b77878eaddc27/IMG_20250515_153233.jpg" referrerpolicy="no-referrer">
+
