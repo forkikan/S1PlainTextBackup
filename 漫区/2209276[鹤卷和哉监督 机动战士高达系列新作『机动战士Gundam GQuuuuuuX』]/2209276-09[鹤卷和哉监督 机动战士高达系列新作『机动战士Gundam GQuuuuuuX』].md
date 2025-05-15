@@ -14988,3 +14988,42 @@ X 上的 geist：“[https://t.co/ggHTvqCgaG” / X](https://t.co/ggHTvqCgaG” 
 
 AKB0048の襲名メンバーが突然消える現象。詳細は不明だったが、後に襲名メンバーのアイドル力と観客のボルテージを感じ取り、キララがより強く光り輝き、その限界を超えて、メンバーが消失してしまった事が明かされた。また、当時5代目峯岸みなみだった美果子もセンターノヴァ現象に巻き込まれたが、消失を免れた模様。</blockquote>
 
+
+*****
+
+####  ryanghj  
+##### 13106#       发表于 2025-5-15 17:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67817991&amp;ptid=2209276" target="_blank">ミオリネ 发表于 2025-5-15 16:57</a>
+
+塞太多太满了，上面潭友发的只是一部分，实际上翻出来的私货还有更多
+
+会有一些人觉得，自己认真考究了一 ...</blockquote>
+草
+
+<img src="https://img.stage1st.com/forum/202505/15/170956eqhokaq3bn92a2u7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (150.37 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 17:09 上传
+
+<img src="https://img.stage1st.com/forum/202505/15/171008ec0wdbplwd5llbo3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (267.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 17:10 上传
+
+泽克诺瓦真的是参考center nova搞的吧
+
+
+*****
+
+####  ryanghj  
+##### 13107#       发表于 2025-5-15 17:12
+
+jzgg那种程度的私货还算好，但是hjgg塞得太多了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">如果连玛秋和喵安的名字都是neta的话也太过分了
+
