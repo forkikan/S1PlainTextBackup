@@ -14169,3 +14169,22 @@ gquuuuuux主创一伙人有不少都是没读完大学或者读个带专就找�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  七七見奈波  
+##### 13055#       发表于 2025-5-15 11:01
+
+你以为是明日香，其实是乃木坂46<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  发呆的龙虾  
+##### 13056#       发表于 2025-5-15 11:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67816650&amp;ptid=2209276" target="_blank">adretyu67. 发表于 2025-5-15 10:37</a>
+村雨0124，就差个3是了吧</blockquote>
+差1吧？之前看了个图，023456都有。
+
+—— 来自 HUAWEI TET-AN00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
