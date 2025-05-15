@@ -508,3 +508,62 @@ Steam国区售价268/358，6月12日发售</blockquote>
 
 明年影之刃估计也这价了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  BK10  
+##### 1979#       发表于 2025-5-15 23:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67819518&amp;ptid=1978008" target="_blank">naclken. 发表于 2025-5-15 23:49</a>
+
+这价格我可以，虽然是冷饭，但是金亨泰的**实在是太到位了，又没有该死的D加密。
+
+买买买 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202505/15/235723tnsnnzl4v6ykxifo.png" referrerpolicy="no-referrer">
+
+<strong>WP[I2LFXQEC]@CPJ2_A]_UA.png</strong> (697.48 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 23:57 上传
+
+哪里没有D加密这不是有吗
+
+*****
+
+####  h122h  
+##### 1980#       发表于 2025-5-15 23:59
+
+<img src="https://img.stage1st.com/forum/202505/15/235841xrf6faofri600zao.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (731.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 23:58 上传
+
+<img src="https://img.stage1st.com/forum/202505/15/235851j05p04yb001lnnln.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (31.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 23:58 上传
+
+还加了中文配音
+
+
+*****
+
+####  诗怀雅  
+##### 1981#       发表于 2025-5-16 00:03
+
+<img src="https://img.stage1st.com/forum/202505/16/000304l1lbhtheeh34b7dh.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250516000119.png</strong> (42.55 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-16 00:03 上传
+

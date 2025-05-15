@@ -16742,3 +16742,46 @@ Deepseek 2105那串是對的
 <img src="https://p.sda1.dev/24/63c90b0593f94f34d1ea3e9d4fe07e0d/image.jpg" referrerpolicy="no-referrer">
 时间是3分18秒
 
+
+*****
+
+####  YU_JI  
+##### 13257#       发表于 2025-5-16 00:01
+
+看到有意思的联想分享一下，空调吉祥物卡缪，一想到卡缪疯掉时候说好热，有点地狱）
+
+<img src="https://img.stage1st.com/forum/202505/16/000011bl2dfj1rmedg5mll.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4884.jpeg</strong> (14.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-16 00:00 上传
+
+<img src="https://img.stage1st.com/forum/202505/16/000011vbc7mvazl6caik8a.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4885.jpeg</strong> (91.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-16 00:00 上传
+
+
+*****
+
+####  王留美  
+##### 13258#       发表于 2025-5-16 00:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67819524&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-15 23:50</a>
+ 不过有没有可能是想太多了，老登们只是和大扎姆一样，艾尔美斯的机设没做多少修改就端出来了，这台艾尔美斯 ...</blockquote>
+我觉得是这样的
+
+*****
+
+####  a85982313  
+##### 13259#       发表于 2025-5-16 00:04
+
+意思12集的时候还要空降对路人（有路人吗）不认识的核心角色吗
+
+这企划真的只有12集吗，这么搞下去
+

@@ -7288,3 +7288,13 @@ opgg上近50场数据（含大师段以及大师段和broooock玩的数据）来
 
 扣1主播打职业，打职业能算入单排成绩吗<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TiHaru  
+##### 18483#       发表于 2025-5-15 23:57
+
+才发现razer还和主播一起玩了一把新模式，这下很难说是偶遇了
+
+感觉很难是路人，新模式之前的三把这人战绩都很一般
+
