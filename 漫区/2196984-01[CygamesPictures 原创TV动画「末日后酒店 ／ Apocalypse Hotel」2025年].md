@@ -2607,3 +2607,14 @@ CP厨嘭子嗑这一对→给改造了双人座椅
 口吐热水的真正作用要到第九集吧。</blockquote>
 这动画不是原创吗？是在官网有每集大纲之类的还是说衍生漫画有提到这些哇？怎么知道第x集会有什么
 
+
+*****
+
+####  吉吉国王  
+##### 249#       发表于 2025-5-15 18:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67818147&amp;ptid=2196984" target="_blank">Yinacona 发表于 2025-5-15 17:41</a>
+
+这动画不是原创吗？是在官网有每集大纲之类的还是说衍生漫画有提到这些哇？怎么知道第x集会有什么 ...</blockquote>
+这动画早就制作完毕了吧
+
