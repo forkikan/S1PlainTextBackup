@@ -14347,3 +14347,39 @@ tts整这一出现在应该是联邦要大肆进军宇宙吧，木马不防守�
 我明白就是讲一群吸闪亮亮成瘾的NT
 是戒du片<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ryanghj  
+##### 13075#       发表于 2025-5-15 12:07
+
+其实最搞笑的还是因为一堆人第六集刚出的时候在考察到底喵安书架上摆的什么书，到最后发现是偶像相关<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 13076#       发表于 2025-5-15 12:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813319&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-14 13:10</a>
+现在看明显就是被强化了，肤色都变了</blockquote>
+看起来就包死的<img src="https://static.stage1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  serj005  
+##### 13077#       发表于 2025-5-15 12:12
+
+two把自己比作心脏，那会不会这次精神力高达的驾驶舱不在头部？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  王留美  
+##### 13078#       发表于 2025-5-15 12:15
+
+不要想喵被联邦抓走了吧，她那身驾驶服一看就不是联邦系/泰坦斯系的
+
