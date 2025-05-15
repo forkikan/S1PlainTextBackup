@@ -16459,3 +16459,28 @@ gq宇宙还有艾尔美斯吗，塞克谬塞给红高达了，这项目是不是
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真是小夏亚找妈妈啊
 
+
+*****
+
+####  cayon  
+##### 13230#       发表于 2025-5-15 22:37
+
+为了找妈把别人妈捅了吗，那很地狱了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，该找点龙图了，结局肯定用得上
+
+*****
+
+####  Alicest  
+##### 13231#       发表于 2025-5-15 22:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67819236&amp;ptid=2209276" target="_blank">newise 发表于 2025-5-15 22:29</a>
+
+穿越只能向后单向？不然85穿了个牛高达过来</blockquote>
+看这pgu6w6的架势，也不是没可能<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  七七見奈波  
+##### 13232#       发表于 2025-5-15 22:39
+
+之前就有人说爱尔梅斯形状像玫瑰花苞或者花萼。修司说玫瑰在地球，看到爱尔梅斯出现那至少说明三人组或者三人组其中一个真到了地球？
+
