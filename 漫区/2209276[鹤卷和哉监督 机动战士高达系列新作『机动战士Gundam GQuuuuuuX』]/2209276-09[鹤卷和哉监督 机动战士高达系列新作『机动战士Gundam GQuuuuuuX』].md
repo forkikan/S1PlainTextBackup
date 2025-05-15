@@ -14586,3 +14586,40 @@ two把自己比作心脏，那会不会这次精神力高达的驾驶舱不在�
 [https://x.com/YoshimasaTerui/status/1922237178865697229](https://x.com/YoshimasaTerui/status/1922237178865697229)
 <img src="https://p.sda1.dev/24/fb859827f99f1254f52b77878eaddc27/IMG_20250515_153233.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 13094#         楼主| 发表于 2025-5-15 15:37
+
+[https://x.com/nekogaeru/status/1922563754681626686](https://x.com/nekogaeru/status/1922563754681626686)
+<img src="https://p.sda1.dev/24/ca999b9f4ede133d480635e86e97335f/20250515_152858.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/naritate_zombie/status/1921384371891683475](https://x.com/naritate_zombie/status/1921384371891683475)
+
+母の日なのでママ魔女シイコさんを描きました　どうして推しはいつもすぐ…っ
+<img src="https://p.sda1.dev/24/de470dc515f3fc84ad2fa4d9bcbda49c/20250515_153003.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/KSUWABE/status/1922634302644232657](https://x.com/KSUWABE/status/1922634302644232657)
+<img src="https://p.sda1.dev/24/1e24a78feea4cc9ec01c78dc34312b32/20250515_152832.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/syureal_/status/1922300013511626945](https://x.com/syureal_/status/1922300013511626945)
+<img src="https://p.sda1.dev/24/b07108a29fed08cc4b66da3381aa72b9/20250515_152931.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/olys011/status/1922261798071218407](https://x.com/olys011/status/1922261798071218407)
+<img src="https://p.sda1.dev/24/b4513286501579fb060604bc4cd05df8/20250515_152907.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/nanay0n_74/status/1922120352894726220](https://x.com/nanay0n_74/status/1922120352894726220)
+<img src="https://p.sda1.dev/24/6a1c37bb324daa2258e4cf97818986b6/20250515_152948.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  silvia  
+##### 13095#       发表于 2025-5-15 15:37
+
+<blockquote>serj005 发表于 2025-5-15 12:12
+two把自己比作心脏，那会不会这次精神力高达的驾驶舱不在头部？
+
+—— 来自 鹅球 v3.5.99 ...</blockquote>
+会不会核心是高达mkii
+
