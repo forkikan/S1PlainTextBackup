@@ -14188,3 +14188,25 @@ gquuuuuux主创一伙人有不少都是没读完大学或者读个带专就找�
 
 —— 来自 HUAWEI TET-AN00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  ryanghj  
+##### 13057#       发表于 2025-5-15 11:06
+
+鹤卷这私货塞得比jzgg还狠<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">5ch炎上中
+
+*****
+
+####  断翼  
+##### 13058#       发表于 2025-5-15 11:06
+
+newtype 2020年2月的专题就是鹤卷等人和锦织对谈坂道系
+
+*****
+
+####  没取名啊  
+##### 13059#       发表于 2025-5-15 11:09
+
+不就是喜欢小偶像吗，这有啥好炎上的
+
