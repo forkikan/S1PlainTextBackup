@@ -349,3 +349,20 @@ PC难道还能区分一个原版吗？
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">598总得带点王之力吧
 
+
+*****
+
+####  eulereld  
+##### 1961#       发表于 2025-5-15 18:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">看你們在這一個勁地水一個勁地貸款，以為價格終於出了，上steam一看結果還沒出
+
+—— 來自 [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  樽——見  
+##### 1962#       发表于 2025-5-15 18:12
+
+小金这段时间又去黑猴又去影刃，很会联谊哦
+

@@ -15366,3 +15366,63 @@ GQX这世界观吉恩就是打了个寂寞。
 
 这关系性属实是拉满了
 
+
+*****
+
+####  Toby_dak  
+##### 13134#       发表于 2025-5-15 18:07
+
+<blockquote>引用第13112楼Tungsten于2025-05-15 17:23发表的  :
+
+这集里居然说毒气是联邦用的，那看来澳洲也没事了这个世界线里吉翁真成了戴肯理念中为了宇宙人的新族群认同......</blockquote>
+澳洲没事？
+那剧场版开头的高清不列颠作战是什么？ED地球仪里澳洲缺一块是什么？
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.46)
+
+*****
+
+####  mengsu  
+##### 13135#       发表于 2025-5-15 18:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67818072&amp;ptid=2209276" target="_blank">Tungsten 发表于 2025-5-15 17:23</a>
+
+这集里居然说毒气是联邦用的，那看来澳洲也没事了
+
+这个世界线里吉翁真成了戴肯理念中为了宇宙人的新族群认 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">吉翁打赢了仗所以给side2灌毒气的烂事儿没被翻出来搞得人尽皆知而已，大概率是反咬一口说联邦用NBC武器把side居民全噶了，吉翁含泪发起正义的不列颠作战把side砸到悉尼为宇宙居民报仇雪恨、
+
+*****
+
+####  Gysumitka  
+##### 13136#       发表于 2025-5-15 18:11
+
+下集应该算复刻尼娅安幼时逃离战场的经历，中途抗压不行ptsd，再插入些回忆
+<img src="https://p.sda1.dev/24/12c7209db42603a3683e99ad4212af4e/image.jpg" referrerpolicy="no-referrer">
+后面玛秋上机，某种程度上也是体验一遍尼娅安的经历
+
+
+*****
+
+####  ryanghj  
+##### 13137#       发表于 2025-5-15 18:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67818230&amp;ptid=2209276" target="_blank">Tungsten 发表于 2025-5-15 18:01</a>
+
+漏油们说的还是有道理
+
+蓝色大叔的副官小妹这一集体现出的观感……咋感觉有点像是那种经典的缺爱恋父小妹人 ...</blockquote>
+这集特意给了几个小森盯着西姆斯看的镜头，要么小森是间谍，要么就是她对夏利亚有意思
+
+所以对首席哥的感情果然只是看脸欣赏而已吗
+
+*****
+
+####  Toby_dak  
+##### 13138#       发表于 2025-5-15 18:17
+
+绿色木马上究竟有多少兵力。
+要护卫基西利亚，只带一台GQuuuuuuX也太少了吧。你说キマイラ隊太明显不好调动，现在可是连一台MS都没有，还只叫来不适合殖民卫星内部的MA做救兵。怎么看都是有问题。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.46)
+
