@@ -14929,3 +14929,20 @@ UR母舰最好有一个，词条对上相当于集体多一突，泛用性是贝
 
 这次的掉落概率是不是高了？一天的体力掉了3台骰子高达，爽赚了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rockroxas  
+##### 1402#       发表于 2025-5-15 19:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67818457&amp;ptid=2071758" target="_blank">blue321 发表于 2025-5-15 19:05</a>
+
+这次的掉落概率是不是高了？一天的体力掉了3台骰子高达，爽赚了</blockquote>
+大概是提高了一点（
+
+我重生从0开始刷红高
+
+开的那天我把12号凌晨开始存着的母舰体力加上存的体力药都拿出来，还怕活动期间刷不满，结果第一天刷到自回体力就满了，略过骰子还掉了两个
+
+不过到得现在住在活动本也就多掉了一个假O，一时时的
+
