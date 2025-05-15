@@ -16371,3 +16371,58 @@ gq宇宙还有艾尔美斯吗，塞克谬塞给红高达了，这项目是不是
 
 有没有可能上面没坐人，就一个机体
 
+
+*****
+
+####  猪突猛进R  
+##### 13221#       发表于 2025-5-15 21:59
+
+解决了喵安没有机体开的问题<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 13222#       发表于 2025-5-15 21:59
+
+之前看日本那边有人分析说可能α赛可缪里有拉拉的意志，所以和夏亚产生共振
+
+现在看可能拉拉的意志在艾尔美斯里，那gqux世界的拉拉如果上了这台艾尔美斯的话……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我聞如是  
+##### 13223#       发表于 2025-5-15 22:01
+
+<blockquote>ryanghj 发表于 2025-5-15 20:33
+吃粉的地方是曼谷唐人街一家真实存在的店</blockquote>
+補充一點點
+
+原型的店是中餐館，但看來沒有喵安嗦的粉
+
+現在這條街因為重建已經全拆了
+
+然後右邊店面寫的泰文是……
+
+<img src="https://img.stage1st.com/forum/202505/15/220048f1o80b5my15uzmll.jpg" referrerpolicy="no-referrer">
+
+<strong>1000028536.jpg</strong> (75.12 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 22:00 上传
+
+
+*****
+
+####  ryanghj  
+##### 13224#       发表于 2025-5-15 22:06
+
+说起来精神力骨架这东西是连研究人员都不知道什么原理的神奇物质来着<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Devola  
+##### 13225#       发表于 2025-5-15 22:07
+
+这回是真·平行宇宙了吗
+
