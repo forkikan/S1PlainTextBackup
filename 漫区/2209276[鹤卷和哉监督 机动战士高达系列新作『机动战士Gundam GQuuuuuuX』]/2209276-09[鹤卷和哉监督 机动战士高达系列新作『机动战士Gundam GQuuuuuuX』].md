@@ -16174,3 +16174,81 @@ Comoli看夏利亚还有后面西姆斯的时候的态度是因为这些人藏�
 
 艾尔美斯确定最后一集出场
 
+
+*****
+
+####  然后成为树洞  
+##### 13203#       发表于 2025-5-15 21:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67818837&amp;ptid=2209276" target="_blank">七七見奈波 发表于 2025-5-15 20:47</a>
+
+查了下乃木坂出道日是8月21，生日花好几个版本但是没有沙伦的玫瑰流传的各种花卉（比如木槿），榉坂一期生 ...</blockquote>
+上面说的出道日是唱片出道日
+
+<img src="https://img.stage1st.com/forum/202505/15/212003hzkt1fuzrqqh3ggi.jpg" referrerpolicy="no-referrer">
+
+<strong>02.jpg</strong> (137.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 21:20 上传
+
+魔女（シイコ·スガイ/菅井詩子）那边嘛，原来说法是榉坂46的初代队长菅井友香，初代队长⇔过去王牌，シイコ=シ（4）イ（1）+コ（5）
+
+现在他们更倾向于这一边
+
+<img src="https://img.stage1st.com/forum/202505/15/212002nzmxjzfufpp8hzff.png" referrerpolicy="no-referrer">
+
+<strong>01.png</strong> (914.54 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 21:20 上传
+
+*****
+
+####  岸浪白野  
+##### 13204#       发表于 2025-5-15 21:29
+
+ 本帖最后由 岸浪白野 于 2025-5-15 21:31 编辑 
+
+<img src="https://img.stage1st.com/forum/202505/15/212940uuukzpbtrczkiss7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (418.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 21:29 上传
+
+<img src="https://img.stage1st.com/forum/202505/15/213116bgwkgrjhwrrnwaz1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (469.94 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 21:31 上传
+
+*****
+
+####  Gysumitka  
+##### 13205#       发表于 2025-5-15 21:31
+
+艾尔美斯正史穿越论锤了<img src="https://static.stage1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  molemole  
+##### 13206#       发表于 2025-5-15 21:32
+
+所以玫瑰就是艾尔梅斯咯，还真是小鸭子找妈妈（笑）
+
+*****
+
+####  猪突猛进R  
+##### 13207#       发表于 2025-5-15 21:36
+
+精神力高达都出来了，艾尔梅斯已经算老式机了。
+
+关键在于驾驶员，是不是拉拉。
+
