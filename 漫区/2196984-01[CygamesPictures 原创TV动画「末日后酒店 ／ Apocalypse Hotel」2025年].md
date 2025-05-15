@@ -2849,3 +2849,15 @@ CP厨嘭子嗑这一对→给改造了双人座椅
 
 想了下第六集的cp糖很大程度是小狸猫点出来的。如果没有她充当cp粉（突然来了句“八千代莫非是恋爱了”有点强行<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">），灭霸对八千代或者说对银河楼酒店的情感就显得有点牵强。
 
+
+*****
+
+####  有钱多买小人  
+##### 261#       发表于 2025-5-16 02:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67819458&amp;ptid=2196984" target="_blank">TOYSTORY 发表于 2025-5-15 23:36</a>
+不过这几个山寨版和原型造型也差挺多的
+
+队长和锤哥基本就保留武器和半个名字，奇异是披风</blockquote>
+只会说一个词且不穿衣服，锤子大概是雷神+浩克的合体
+
