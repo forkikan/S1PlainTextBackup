@@ -14900,3 +14900,38 @@ X 上的 geist：“[https://t.co/ggHTvqCgaG” / X](https://t.co/ggHTvqCgaG” 
 
  总觉得白毛村雨有一股子忍者杀手味 
 
+
+*****
+
+####  岸浪白野  
+##### 13102#       发表于 2025-5-15 16:47
+
+ 本帖最后由 岸浪白野 于 2025-5-15 16:51 编辑 
+
+<img src="https://img.stage1st.com/forum/202505/15/165127yuvoncykccy2c2kc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (728.82 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 16:51 上传
+
+*****
+
+####  mengsu  
+##### 13103#       发表于 2025-5-15 16:48
+
+大姐那个背对偷听的麻球，闭着眼睛走出去的画面，镜头语言应该是明示知道她在，故意说给她听的吧？前面那一堆话总结起来就是“下次军团战开始前都是安全的，快和你的朋友还有红高达跑路吧，再也别和这里扯上关系”。
+
+只是麻球的对策怕是不会和大姐的思路一样，多少要付出点代价的。
+
+*****
+
+####  mengsu  
+##### 13104#       发表于 2025-5-15 16:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67817386&amp;ptid=2209276" target="_blank">profr 发表于 2025-5-15 13:51</a>
+
+白毛能多活几集吗</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就12话没时间给你像Z一样安排一集在香港逛街了，估计一话就得变女鬼嘞。
+

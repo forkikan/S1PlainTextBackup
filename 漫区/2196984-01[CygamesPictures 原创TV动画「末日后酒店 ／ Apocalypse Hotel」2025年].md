@@ -2580,3 +2580,11 @@ CP厨嘭子嗑这一对→给改造了双人座椅
 
 感觉设定里的宇宙大概挺热闹，文明之间的交流也挺频繁的，这地球到底有多乡下啊，这么多年就几个人来<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Renes  
+##### 246#       发表于 2025-5-15 16:53
+
+一股暖流（物理）
+
