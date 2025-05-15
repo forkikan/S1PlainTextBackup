@@ -1607,7 +1607,7 @@
     "newtitle": "[游戏王MASTER DUEL，1.19已上架]",
     "lastedit": 1747084329,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1998011": {
@@ -5814,10 +5814,10 @@
     "update": false
   },
   "1989188": {
-    "totalreply": 20696,
+    "totalreply": 20698,
     "title": "[新机病栋，谁是大的？]",
     "newtitle": "[新机病栋，谁是大的？]",
-    "lastedit": 1747325416,
+    "lastedit": 1747343768,
     "category": "游戏区",
     "active": true,
     "update": false
