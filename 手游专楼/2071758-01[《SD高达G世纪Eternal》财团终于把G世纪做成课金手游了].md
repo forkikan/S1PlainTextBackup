@@ -14850,3 +14850,14 @@ BD系是分原作游戏和改编漫画俩版本的，到时候全装BD1和BD3估
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  xinfengj  
+##### 1396#       发表于 2025-5-15 07:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67813917&amp;ptid=2071758" target="_blank">captoon 发表于 2025-5-14 15:42</a>
+
+那魔女格斗不就浪费了吗</blockquote>
+爱丽丝格斗补正
+
