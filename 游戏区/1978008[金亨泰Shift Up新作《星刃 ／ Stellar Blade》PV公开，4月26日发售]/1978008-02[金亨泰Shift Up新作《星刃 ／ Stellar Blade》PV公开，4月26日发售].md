@@ -423,3 +423,52 @@ Steam国区售价268/358，6月12日发售
 
 —— 来自 samsung SM-F9460, Android 14, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  monolithsoft  
+##### 1970#       发表于 2025-5-15 23:26
+
+这一前一后不就对上了
+
+加购<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  纱布光环  
+##### 1971#       发表于 2025-5-15 23:28
+
+怎么有衣服要绑psn才解锁啊？何意啊老金？<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lighttt  
+##### 1972#       发表于 2025-5-15 23:30
+
+268也太狠了，取经了<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PHY110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  卡拉德利姆  
+##### 1973#       发表于 2025-5-15 23:30
+
+真是不肯放弃啊索尼
+
+*****
+
+####  h122h  
+##### 1974#       发表于 2025-5-15 23:33
+
+<img src="https://img.stage1st.com/forum/202505/15/233254nf1cgcucigj2ggj1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (8.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 23:32 上传
+
+索尼发行商特地改了个名？变成PlayStation Publishing LLC (excluding China)了
+

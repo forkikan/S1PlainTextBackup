@@ -2791,3 +2791,45 @@ CP厨嘭子嗑这一对→给改造了双人座椅
 
 话说喵星人的造型怎么有点像丹迪里那只猫<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TOYSTORY  
+##### 258#       发表于 2025-5-15 23:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67815320&amp;ptid=2196984" target="_blank">有钱多买小人 发表于 2025-5-14 21:27</a>
+
+这集明牌致敬复仇者啊。主题曲的变奏，四人的形象和能力，还有那句集结口号。
+
+袋鼠这边倒算不上致敬灭霸 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202505/15/233631yyt8fvfubqmuj8e1.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (194.12 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 23:36 上传
+
+<img src="https://img.stage1st.com/forum/202505/15/233635lyyujskdkihhyiau.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (67.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 23:36 上传
+
+<img src="https://img.stage1st.com/forum/202505/15/233638w82y22ly82ry872m.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>3.jpeg</strong> (171.64 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 23:36 上传
+
+不过这几个山寨版和原型造型也差挺多的
+
+队长和锤哥基本就保留武器和半个名字，奇异是披风
+
+剩下那个更像是山寨铁人的电影Metal Man和金属古拉混合的感觉<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
