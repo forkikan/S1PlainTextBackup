@@ -14954,3 +14954,13 @@ UR母舰最好有一个，词条对上相当于集体多一突，泛用性是贝
 
 <img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">对应的，我感觉特殊SSR技能升级材料爆率降低好多，红高的浮游炮现在还是4级
 
+
+*****
+
+####  lighttt  
+##### 1404#       发表于 2025-5-16 01:36
+
+是的，我这两天就刷了10次左右。结果也掉了两台红高达<img src="https://static.stage1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PHY110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
