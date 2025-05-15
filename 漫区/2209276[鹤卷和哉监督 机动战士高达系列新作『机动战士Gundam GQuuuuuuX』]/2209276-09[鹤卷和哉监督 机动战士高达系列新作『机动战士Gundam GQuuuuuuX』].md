@@ -16113,3 +16113,13 @@ Comoli看夏利亚还有后面西姆斯的时候的态度是因为这些人藏�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  windlikeman  
+##### 13197#       发表于 2025-5-15 21:04
+
+绿叔叔那个眼镜和p5 joker一样平光镜吧 纯粹凹造型的
+
+—— 来自 Sony XQ-CT72, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
