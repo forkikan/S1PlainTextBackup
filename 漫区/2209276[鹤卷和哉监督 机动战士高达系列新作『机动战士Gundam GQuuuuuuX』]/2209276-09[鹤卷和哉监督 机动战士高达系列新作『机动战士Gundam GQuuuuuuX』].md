@@ -15852,3 +15852,51 @@ Comoli看夏利亚还有后面西姆斯的时候的态度是因为这些人藏�
 
 笑死，这波操作不就和挂着格鲁古古名头实际上是吉姆一样<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  poiqwe  
+##### 13175#       发表于 2025-5-15 19:59
+
+能引起5ch这么大反应，其实也和动画宅与偶像宅互相看不上有些关系，如果neta的不是偶像其实啥事没有<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Gysumitka  
+##### 13176#       发表于 2025-5-15 20:00
+
+不影响正片，玩玩也没什么<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  seedees3  
+##### 13177#       发表于 2025-5-15 20:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67818523&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-15 19:33</a>
+
+就像富坚义博会在作品里玩乃木坂46的梗一样，我觉得鹤卷导演也只是在拿乃木坂的梗开玩笑罢了。
+
+但这和正片 ...</blockquote>
+到这个程度我觉得是整个制作组里的坂道厨同时发力了，监督狂热紫厨，给原画等一线员工大开方便之门
+
+制作组里的46系偶像厨以及UC和EVA厨，全员疯狂玩梗捏他共振，大家厨力全开一起玩嗨了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+否则哪有空塞这么多细节
+
+再配合这次量产型胶佬的续集也是乃团现役双主演，让我甚至怀疑这是不是索尼和万代暗中苟且，以八爷唱OP优惠价为条件，让乃木坂搭个便车挽救下下滑趋势
+
+*****
+
+####  然后成为树洞  
+##### 13178#       发表于 2025-5-15 20:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67818611&amp;ptid=2209276" target="_blank">poiqwe 发表于 2025-5-15 19:59</a>
+
+能引起5ch这么大反应，其实也和动画宅与偶像宅互相看不上有些关系，如果neta的不是偶像其实啥事没有
+
+ ...</blockquote>
+这倒不是，你看业界里这么多人喜欢偶像就知道，动画宅和偶像宅重合度其实不低的
+
+本质上的问题是把作品私有化了，塞到这个程度的量的话，无论塞的是什么都会出事的
+
