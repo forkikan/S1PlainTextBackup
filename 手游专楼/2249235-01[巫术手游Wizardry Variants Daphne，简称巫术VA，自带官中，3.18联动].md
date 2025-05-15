@@ -703,3 +703,11 @@ roll到13%攻和18攻就可以用+4-6攻击改掉防御，然后只强化第一�
 
 巨人倒是还好，主角转火属性并且拉高点防御一般没那么容易出事
 
+
+*****
+
+####  UnknownRei  
+##### 327#       发表于 2025-5-15 20:52
+
+冥钢装备大放送，该不会2.0要开新章了吧<img src="https://static.stage1st.com/image/smiley/face2017/101.png" referrerpolicy="no-referrer">我水路要赛还没全清嗄
+
