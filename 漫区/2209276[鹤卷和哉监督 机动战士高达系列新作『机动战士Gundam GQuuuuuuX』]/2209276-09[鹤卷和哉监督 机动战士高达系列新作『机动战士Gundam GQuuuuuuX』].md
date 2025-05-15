@@ -15981,3 +15981,65 @@ Comoli看夏利亚还有后面西姆斯的时候的态度是因为这些人藏�
 
 这个破防角度我是想不到的，不愧是日本人
 
+
+*****
+
+####  ryanghj  
+##### 13184#       发表于 2025-5-15 20:31
+
+我之前就说了，这就像○神制作组往游戏里藏自己喜欢的管人彩蛋，被发现肯定是要炎上的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+和你塞自己以前的游戏、其他作品的彩蛋是不一样的
+
+*****
+
+####  Gysumitka  
+##### 13185#       发表于 2025-5-15 20:32
+
+所以喵安是在吃越南粉吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 13186#       发表于 2025-5-15 20:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67818744&amp;ptid=2209276" target="_blank">Gysumitka 发表于 2025-5-15 20:32</a>
+
+所以喵安是在吃越南粉吗</blockquote>
+
+吃粉的地方是曼谷唐人街一家真实存在的店
+
+<img src="https://img.stage1st.com/forum/202505/15/203323dh55szz2hcnnnonn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.42 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-15 20:33 上传
+
+*****
+
+####  桜庭ななみ  
+##### 13187#       发表于 2025-5-15 20:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67818523&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-15 19:33</a>
+
+就像富坚义博会在作品里玩乃木坂46的梗一样，我觉得鹤卷导演也只是在拿乃木坂的梗开玩笑罢了。
+
+但这和正片 ...</blockquote>
+这总结里面大多数都是牵强附会硬凑上去的。另外富坚义博是不看乃木坂的这个人本来就搞错了
+
+*****
+
+####  YU_JI  
+##### 13188#       发表于 2025-5-15 20:34
+
+地铁仙人艾克萨贝<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赤黑的假面  
+##### 13189#       发表于 2025-5-15 20:36
+
+感觉这片的青春部分跟高层人物下大棋部分好割裂
+
