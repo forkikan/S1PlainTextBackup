@@ -17255,3 +17255,14 @@ wiki，官方本身现在也是模糊处理。
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  nukecole  
+##### 13298#       发表于 2025-5-16 09:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67820086&amp;ptid=2209276" target="_blank">影山银 发表于 2025-5-16 09:02</a>
+
+高达在这部里已经是吉翁的象征了吧，怎么地球那边造的精神力还是高达？不应该学之前吉姆脸勇士一样改个原本 ...</blockquote>
+就是为了栽赃吧，不然想不出联邦杀掉紫色老太婆对他们有什么好处。
+
