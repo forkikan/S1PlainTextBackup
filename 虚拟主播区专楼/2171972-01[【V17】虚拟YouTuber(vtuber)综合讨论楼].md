@@ -1336,3 +1336,14 @@ cover上市后的操作更像是要去偶像化
 
 2025-5-16 16:24 上传
 
+
+*****
+
+####  karastar  
+##### 1148#       发表于 2025-5-16 16:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67821691&amp;ptid=2171972" target="_blank">Devi_Lito 发表于 2025-5-16 16:27</a>
+
+两个人终于要联动了</blockquote>
+别家看的少右边是哪位<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
