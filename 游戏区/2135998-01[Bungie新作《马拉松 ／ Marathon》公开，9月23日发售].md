@@ -888,3 +888,23 @@ joseph-cross-jc-shatterstar-s.jpg
 现在涉嫌抄袭美术素材了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">图形拿来主义
 
+
+*****
+
+####  zid99825  
+##### 81#       发表于 2025-5-16 13:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67820667&amp;ptid=2135998" target="_blank">ff2077 发表于 2025-5-16 11:20</a>
+
+现在涉嫌抄袭美术素材了</blockquote>
+
+<img src="https://img.stage1st.com/forum/202505/16/132826kf3m8w9a4g0u8bkv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (46.54 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-16 13:28 上传
+
+问就是“前”艺术家干的
+
