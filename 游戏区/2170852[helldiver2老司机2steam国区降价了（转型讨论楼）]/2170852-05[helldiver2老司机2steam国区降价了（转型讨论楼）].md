@@ -403,3 +403,15 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  IWS2000  
+##### 5962#       发表于 2025-5-16 11:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67816210&amp;ptid=2170852" target="_blank">jy000129 发表于 2025-5-15 09:08</a>
+本来的超级货币高亮MOD这次更新后又失效了
+
+—— 来自 鹅球 v3.3.96</blockquote>
+贴吧又有人发了
+

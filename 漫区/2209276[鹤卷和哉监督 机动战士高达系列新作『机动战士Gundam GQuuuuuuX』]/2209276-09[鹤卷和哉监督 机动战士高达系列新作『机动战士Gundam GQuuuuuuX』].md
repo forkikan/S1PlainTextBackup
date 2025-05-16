@@ -17295,3 +17295,24 @@ wiki，官方本身现在也是模糊处理。
 
 按照以往uc系的设定的话，ms的备件是非常充足的。足够拼出第二架ms。绿色木马上照理来说还有不少货色的啊。
 
+
+*****
+
+####  猪突猛进R  
+##### 13302#       发表于 2025-5-16 11:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67820203&amp;ptid=2209276" target="_blank">无念 发表于 2025-5-16 09:39</a>
+
+不会真的能在决战看到大扎姆和精神病排队对炮吧
+
+—— 来自 HONOR SDY-AN00, Android 14, 鹅球 v3.5.99 ...</blockquote>
+此事在基连野望亦有记载<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202505/16/110233uyxnu9ronxaran9n.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2025-05-16 110053.png</strong> (649.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-16 11:02 上传
+
