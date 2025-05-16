@@ -822,3 +822,24 @@ hjgg是什么时候成为偶像痴的，以前的作品没有这样私货塞爆�
 
 零崎舞织也是红色针织帽+少女+棕发呢，西尾维新难道也是在致敬吗？
 
+
+*****
+
+####  gamedreamer  
+##### 13379#       发表于 2025-5-16 22:55
+
+充分证明了滑坡到终点就是抽象，最后变得无人在意(指乃木坂炎上)<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  renkan119  
+##### 13380#       发表于 2025-5-16 22:56
+
+<blockquote>gamedreamer 发表于 2025-5-16 22:55
+充分证明了滑坡到终点就是抽象，最后变得无人在意(指乃木坂炎上)
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+乃木坂炎上是啥？
+
