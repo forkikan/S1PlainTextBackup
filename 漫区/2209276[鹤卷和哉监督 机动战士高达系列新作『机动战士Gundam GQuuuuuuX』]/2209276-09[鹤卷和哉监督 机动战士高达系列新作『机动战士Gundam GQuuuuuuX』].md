@@ -17316,3 +17316,13 @@ wiki，官方本身现在也是模糊处理。
 
 2025-5-16 11:02 上传
 
+
+*****
+
+####  Z-Saber  
+##### 13303#       发表于 2025-5-16 11:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67819370&amp;ptid=2209276" target="_blank">南朝Sonicbbs 发表于 2025-5-15 23:09</a>
+突然有个想法，能不能通过本集登场的6月日历来判定宇宙世纪元年是哪一年？</blockquote>
+这张日历是7月和8月吧，不然不会连上一个1号周四的
+
