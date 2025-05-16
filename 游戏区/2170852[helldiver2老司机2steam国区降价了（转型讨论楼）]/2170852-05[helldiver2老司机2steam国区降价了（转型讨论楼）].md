@@ -486,3 +486,11 @@ DSS被鱿鱼打烂了，暂时脱离战场。
 
 现在打光能别用旧思路配装，直接上不需要精确瞄准的爆炸武器，高压下没条件去慢慢瞄弱点，再带个轨道火一键清屏，这是目前对光能最有效（大概也是唯一）的清场红战备。总之别小看光能了，什么最狠就用什么<img src="https://static.stage1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 5971#       发表于 2025-5-17 04:44
+
+我是换弹轻 爆裂铳 左轮 毒雷，轨道火 小机枪塔 蛋盾 激光大炮，应该算全套轮椅了，难度也就那样吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">换wasp就再加个加特林塔
+
