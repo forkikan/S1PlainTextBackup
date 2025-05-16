@@ -51,3 +51,14 @@
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67820931&amp;ptid=2209276" target="_blank">璇瑢子R 发表于 2025-5-16 12:31</a></blockquote>
 笑死，总帅这一招太狠了呀。
 
+
+*****
+
+####  Steel.Haze  
+##### 13325#       发表于 2025-5-16 14:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67820390&amp;ptid=2209276" target="_blank">变老的大二 发表于 2025-5-16 10:21</a>
+
+要是认大文豪后面的设定的话，精神力骨架就是高维文明丢下来给人类的玩意。后面就被回收了。 ...</blockquote>
+星神（吉姆王）的碎片
+
