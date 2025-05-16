@@ -70,3 +70,28 @@
 
 日历这事前面楼不早说过了.......
 
+
+*****
+
+####  王留美  
+##### 13327#       发表于 2025-5-16 14:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67821344&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-16 14:36</a>
+ 日历这事前面楼不早说过了.......</blockquote>
+不是刚好又有人翻起来提嘛
+
+但是前面真说过6月有31天这种事情吗？我没印象了
+
+
+*****
+
+####  岸浪白野  
+##### 13328#       发表于 2025-5-16 14:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67821353&amp;ptid=2209276" target="_blank">王留美 发表于 2025-5-16 14:41</a>
+不是刚好又有人翻起来提嘛
+
+但是前面真说过6月有31天这种事情吗？我没印象了 ...</blockquote>
+因为这个早对过了根本对不上现实的日历没什么好提，意义只有和后面玛秋补习出勤表6月30号都在缺席来推导现在是6月31号-7月初
+而且有楼友也说过了，刚过去也可以忘记撕日历<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
