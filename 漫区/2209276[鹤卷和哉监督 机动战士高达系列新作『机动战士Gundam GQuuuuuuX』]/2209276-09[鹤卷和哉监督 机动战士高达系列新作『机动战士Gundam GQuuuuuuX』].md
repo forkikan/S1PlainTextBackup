@@ -17136,3 +17136,35 @@ UC元年是2045年吧
 
   马秋就是高二啊，很多人听到对未来规划本能以为是高三了，从中国人角度揣测的，以讹传讹
 
+
+*****
+
+####  azbhg1  
+##### 13287#       发表于 2025-5-16 07:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67819826&amp;ptid=2209276" target="_blank">mintslime 发表于 2025-5-16 02:56</a>
+照片不是哈罗拍的
+
+这张是在殖民地外部，红高达机库的出口拍的，哈罗不可能去那里。日期是6月17日，比红 ...</blockquote>
+尼姑庵的弱智就别提了吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+日本进路相谈一直都是高二
+去哪来高三才进路相谈，当然是高二定好目标，高三了就按目标准备该干嘛干嘛了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Toby_dak  
+##### 13288#       发表于 2025-5-16 07:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67819370&amp;ptid=2209276" target="_blank">南朝Sonicbbs 发表于 2025-5-16 00:09</a>
+
+突然有个想法，能不能通过本集登场的6月日历来判定宇宙世纪元年是哪一年？</blockquote>
+wiki，官方本身现在也是模糊处理。
+
+<img src="https://img.stage1st.com/forum/202505/16/085114uu9dau15509wahll.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (105 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-16 07:51 上传
+
