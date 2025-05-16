@@ -627,3 +627,22 @@ Aieeee！！！NewType？NewType为啥！？
 
 精神力高达=魔女之夜？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AvenueIII  
+##### 13360#       发表于 2025-5-16 20:22
+
+话聊或者psycho攻击吧
+
+
+*****
+
+####  xwz  
+##### 13361#       发表于 2025-5-16 20:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67822436&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-5-16 19:51</a>
+
+两台残弹0的高达怎么打赢重高达。还不如说夏利尔用MA一发入魂更现实。</blockquote>
+如果穿越过来的不是拉拉而是东方不败的话，就有可能了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
