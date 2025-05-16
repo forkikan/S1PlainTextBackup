@@ -15022,3 +15022,15 @@ UR母舰最好有一个，词条对上相当于集体多一突，泛用性是贝
 
 —— 来自 vivo V2408A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  光辉传递者  
+##### 1411#       发表于 2025-5-16 15:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67806862&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-5-12 17:26</a>
+调查问卷里怎么还有卖原作乐曲的选项的，放几首原声上来能掉块肉？</blockquote>
+把机战的卖原声曲包学过来了。问题是机战哪怕不买也是有作品纯乐版本当bgm的。这游戏现在有个啥？
+
+—— 来自 LENOVO TB321FU, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
