@@ -17414,3 +17414,23 @@ wiki，官方本身现在也是模糊处理。
 
 野望的系统这俩互殴的话，应该只有精神病的格斗能造成伤害吧
 
+
+*****
+
+####  秋月孝三  
+##### 13309#       发表于 2025-5-16 11:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不得不说和夏亚结婚确实是解决任一spacenoid主导政权合法性的通解。哈曼要是成功把夏亚绑回阿克西斯一间任何探测器都发现不了的地下室里，也不至于被一个私生子搅局
+
+
+*****
+
+####  没取名啊  
+##### 13310#       发表于 2025-5-16 12:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67819967&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-5-16 08:06</a>
+https://www.youtube.com/watch?v=S9gQFXb3480
+
+光头梶田第6话的reaction，电子眼出来那下都吓到了 ...</blockquote>
+我看梶田光头这声音就挺适合配巴斯克的
+
