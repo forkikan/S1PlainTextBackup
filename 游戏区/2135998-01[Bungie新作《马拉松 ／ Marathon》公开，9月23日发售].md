@@ -877,3 +877,14 @@ joseph-cross-jc-shatterstar-s.jpg
 
 <img src="https://img.stage1st.com/forum/202505/16/112019awmwiq3n3tqio99w.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  simonroam  
+##### 80#       发表于 2025-5-16 11:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67820667&amp;ptid=2135998" target="_blank">ff2077 发表于 2025-5-16 11:20</a>
+
+现在涉嫌抄袭美术素材了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">图形拿来主义
+
