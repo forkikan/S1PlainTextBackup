@@ -719,3 +719,13 @@ nga在投票夏亚的cp
 
 所以村雨兔的死旗比其他（有脸的）角色还要高。
 
+
+*****
+
+####  王留美  
+##### 13369#       发表于 2025-5-16 21:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67822646&amp;ptid=2209276" target="_blank">我聞如是 发表于 2025-5-16 20:58</a>
+ 我想期待一下GQ的alphacide能不能對其他賽可謬也有用</blockquote>
+先得看他是怎么实现的再说对其他有没有效
+
