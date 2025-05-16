@@ -561,3 +561,22 @@ X 上的 Jona：“ドゥーちゃ 可愛いね♡ #GQuuuuuuX #ジークアク�
 高达在这部里已经是吉翁的象征了吧，怎么地球那边造的精神力还是高达？不应该学之前吉姆脸勇士一样改个原本 ...</blockquote>
 确实如果叫精神力钢加农可能会更乐一些
 
+
+*****
+
+####  电波系腑海林  
+##### 13354#       发表于 2025-5-16 18:41
+
+<img src="https://img.stage1st.com/forum/202505/16/184037ui9idpcjqidq1lic.jpg" referrerpolicy="no-referrer">
+
+<strong>2934349b033b5bb533f603ee70d3d539b600bcf9.jpg</strong> (155.93 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-16 18:40 上传
+
+把你这家伙带到新人类之国去
+宇宙世纪出现吉翁天狗，不觉得很奇怪吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
