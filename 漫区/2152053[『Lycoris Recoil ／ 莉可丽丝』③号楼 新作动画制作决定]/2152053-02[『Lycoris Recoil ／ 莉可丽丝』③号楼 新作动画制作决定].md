@@ -332,3 +332,14 @@ tkn：找一辈子房子，好借宿一辈子
 泷经理已经连续两集对lycoreco的墙壁造成损坏，是否渎职，进行罚款<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 一直找不到房子的跟千束同居的原因找到了，隔两三天就破坏一次lycoreco，工资除去跟千束一起胡吃海喝外剩下的全交维护费了（）
 
+
+*****
+
+####  osore  
+##### 2320#       发表于 2025-5-16 22:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67822746&amp;ptid=2152053" target="_blank">Saber琪 发表于 2025-5-16 21:39</a>
+泷经理已经连续两集对lycoreco的墙壁造成损坏，是否渎职，进行罚款
+一直找不到房子的跟千束同居的原因找到 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要乱讲，这集明明是强盗破坏的，小樱拼尽全力无法战胜
+
