@@ -305,3 +305,11 @@ tkn：找一辈子房子，好借宿一辈子
 
 第六话看先行图蛮纯良的，爱信等完美收官<img src="https://static.stage1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蒜人  
+##### 2317#       发表于 2025-5-16 15:51
+
+最后一集有其他人对泷奈的箭头
+
