@@ -8415,10 +8415,10 @@
     "update": false
   },
   "2145840": {
-    "totalreply": 2932,
+    "totalreply": 2933,
     "title": "[学园偶像大师]",
     "newtitle": "[学园偶像大师]",
-    "lastedit": 1747365371,
+    "lastedit": 1747369689,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 164535,
+    "totalreply": 164536,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1747368970,
+    "lastedit": 1747369329,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -9396,10 +9396,10 @@
     "update": false
   },
   "2194776": {
-    "totalreply": 17092,
+    "totalreply": 17093,
     "title": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
     "newtitle": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
-    "lastedit": 1747368135,
+    "lastedit": 1747369452,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 133619,
+    "totalreply": 133633,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1747368969,
+    "lastedit": 1747369570,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10827,10 +10827,10 @@
     "update": false
   },
   "2238336": {
-    "totalreply": 1985,
+    "totalreply": 1986,
     "title": "[任天堂病 栋12楼，山雨欲来风满楼，新年新机新病 栋！／剑指1.16！]",
     "newtitle": "[任天堂病 栋12楼，山雨欲来风满楼，新年新机新病 栋！5.8审判日]",
-    "lastedit": 1747368492,
+    "lastedit": 1747369569,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11223,10 +11223,10 @@
     "update": false
   },
   "2071758": {
-    "totalreply": 1407,
+    "totalreply": 1409,
     "title": "[《SD高达G世纪Eternal》财团终于把G世纪做成课金手游了]",
     "newtitle": "[《SD高达G世纪永恒》【5.13 新卡池：Z高达｜卡缪+铁奥｜希洛克】 S1群：9314964]",
-    "lastedit": 1747369088,
+    "lastedit": 1747369689,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -11870,15 +11870,6 @@
     "active": true,
     "update": false
   },
-  "2204128": {
-    "totalreply": 101,
-    "title": "[网易单机PC历史战争策略游戏《万民长歌：三国》公布，《率土之滨》团队开发]",
-    "newtitle": "[网易单机PC历史战争策略游戏《万民长歌：三国》公布，《率土之滨》团队开发]",
-    "lastedit": 1746159970,
-    "category": "游戏区",
-    "active": false,
-    "update": false
-  },
   "2163361": {
     "totalreply": 402,
     "title": "[奥日Ori开发商新作 ARPG《恶意不息》4月18日Steam抢先体验]",
@@ -12335,7 +12326,7 @@
     "newtitle": "[你心中最佳的switch世代任天堂发行非复刻作品]",
     "lastedit": 1747110138,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2160774": {
@@ -12902,7 +12893,7 @@
     "newtitle": "[这几天cs2饰品跟疯了一样是啥情况？求资深倒勾讲解]",
     "lastedit": 1747109900,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2130823": {
@@ -13266,10 +13257,10 @@
     "update": false
   },
   "2252070": {
-    "totalreply": 47,
+    "totalreply": 49,
     "title": "[《剑星》PC版正式公布，6月12日发售，国区标准版268元！]",
     "newtitle": "[《剑星》PC版正式公布，6月12日发售，国区标准版268元！]",
-    "lastedit": 1747368248,
+    "lastedit": 1747369450,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13298,6 +13289,15 @@
     "newtitle": "[转 GQuuuuuuX 第六集的政治局势]",
     "lastedit": 1747367779,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2179402": {
+    "totalreply": 114,
+    "title": "[《杀戮尖塔2》公开，2025年Steam EA发售]",
+    "newtitle": "[《杀戮尖塔2》公开，2025年Steam EA发售]",
+    "lastedit": 1747369456,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
