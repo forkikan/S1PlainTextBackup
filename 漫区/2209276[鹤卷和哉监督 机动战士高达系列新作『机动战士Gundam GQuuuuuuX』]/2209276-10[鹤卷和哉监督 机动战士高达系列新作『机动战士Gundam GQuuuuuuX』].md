@@ -1338,3 +1338,23 @@ hjgg是什么时候成为偶像痴的，以前的作品没有这样私货塞爆�
 
 2025-5-17 01:13 上传
 
+
+*****
+
+####  seedees3  
+##### 13406#       发表于 2025-5-17 01:31
+
+其实还好啦，毕竟阿宅饭偶像的也多，从讨论的情况来看也没什么人在认真炎上，乡民主要还是在看大龄偶像痴制作组共振发癫的乐子<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但鹤卷都公开求爱了，乃木坂运营难道不趁这波热度搞个联动吗
+
+*****
+
+####  seedees3  
+##### 13407#       发表于 2025-5-17 01:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67823257&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-17 01:09</a>
+
+X 上的 かにビーム：“コモリ少尉なんだか癖に刺さるで候 #ジークアクス [url]https://t.co/KogcG5uEC1” ...</blockquote>
+麻球有几张幻视女乱马了
+
