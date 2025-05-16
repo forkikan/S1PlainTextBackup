@@ -755,3 +755,18 @@ roll到13%攻和18攻就可以用+4-6攻击改掉防御，然后只强化第一�
 
 明明我要塞都救出公爵了啊，这动态难度怎么判定的，说好的冥钢大放送呢<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Flechette  
+##### 333#       发表于 2025-5-16 17:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67821515&amp;ptid=2249235" target="_blank">macshi 发表于 2025-5-16 15:36</a>
+
+活动地图刷了半天发现只有冥刻杂物才有冥钢，还只给1~3星的，妖异给的都是钢装备。
+
+明明我要塞都救出公爵了 ...</blockquote>
+运气不好，箱子出的杂物有四鳞有五鳞，前者就是钢装备
+
+今天多刷了几轮发现地图上刷出的箱子也能开出妖异五鳞，而且不仅金箱子能出，木箱子也有概率出。无脑刷就行了
+

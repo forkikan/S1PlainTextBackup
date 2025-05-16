@@ -381,3 +381,114 @@ X 上的 水上悟志　コミテ ...</blockquote>
 
 所以娜娜伊不过是哈曼代餐罢了，鸭子喜欢娜娜伊是在追寻过去的萝莉哈曼<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冷静先找时光机  
+##### 13344#       发表于 2025-5-16 17:26
+
+话说逆鸭结尾娜娜伊把残存的部队带走了，可之后这么就查无此人了？
+
+*****
+
+####  ardente  
+##### 13345#       发表于 2025-5-16 17:28
+
+对扎比家而言肯定是搞死夏亚让基连或者卡尔玛跟鸭妹结，让夏亚跟基西莉亚结婚跟直接投了有什么区别，他为了吉翁死了就是最好的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  岸浪白野  
+##### 13346#       发表于 2025-5-16 17:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67821878&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-16 17:13</a>
+
+X 上的 Jona：“ドゥーちゃ 可愛いね♡ #GQuuuuuuX #ジークアクス [https://t.co/P0lFVkSAb1” / X[/ ...](https://t.co/P0lFVkSAb1” / X)</blockquote>
+
+[url=https://x.com/85boxcat/status/1923048788345618575]X 上的 85猫：“わくわくドゥーちゃん #GQuuuuuuX #ジークアクス [url]https://t.co/B1LgxxBGVu” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/16/173136o4aaeklep4ppc68e.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (468.64 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-16 17:31 上传
+
+[X 上的 x：“第7話、ドゥーなっちゃうの！？ #GQuuuuuuX #ジークアクス [url]https://t.co/GD6JgajNJZ](https://x.com/x2525/status/1923147202983039407)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/16/173155c66cvuvuc2hz2zc8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.23 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-16 17:31 上传
+
+[X 上的 fu-ta(ふーた）新刊12/13発売です(Ｏﾟ**ﾟＯ)：“ドゥーちゃん [url]https://t.co/bCyD8c1XPw](https://x.com/fu_futa/status/1923142236021121025)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/16/171540c0ozw9wn0772kli7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.85 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-16 17:15 上传
+
+[X 上的 VXDRQ：“ドゥー・ムラサメにちっさいビキニを着てもらおう。 #GQuuuuuuuX #ジークアクス [url]https://t.co/iSPAFPhr8O](https://x.com/vxdrq/status/1923236353761849401)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/16/171601b5m4vj9fv43566dz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.6 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-16 17:16 上传
+
+[X 上的 くろ＠死んだ魚の目（絵仕事募集中）：“ドゥーちゃん #GQuuuuuuX [url]https://t.co/oIGQdmeDK1](https://x.com/kuro_work/status/1923288057362452907)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/16/171717ixg7wxw2nhk887nm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (617.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-16 17:17 上传
+
+[X 上的 井上純一（希有馬屋）『逆資本論』発売中：“やめてええ、そういう「血も涙もないサイコ野郎に見えますが、実は子供らしい一面があるんですよ」ってのやめてえええ #GQuuuuuuX #ジークアクス [url]https://t.co/y2mVgybgG4](https://x.com/KEUMAYA/status/1923202505661419965)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/16/171644rgsujughhmwssz4j.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.56 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-16 17:16 上传
+
+[キサラギ職員/メイン垢 (@kisaragi9a) / X](https://x.com/kisaragi9a)
+
+<img src="https://img.stage1st.com/forum/202505/16/172305x75g3ls3u7t1uw6n.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (828.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-16 17:23 上传
+
+<img src="https://img.stage1st.com/forum/202505/16/172327m90j80jj6620ze65.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.02 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-16 17:23 上传
+
+<img src="https://img.stage1st.com/forum/202505/16/172341my71pi66pz6kvjw1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (399.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-16 17:23 上传
+
