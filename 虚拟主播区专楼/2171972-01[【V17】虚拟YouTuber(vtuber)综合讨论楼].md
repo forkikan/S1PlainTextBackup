@@ -1347,3 +1347,14 @@ cover上市后的操作更像是要去偶像化
 两个人终于要联动了</blockquote>
 别家看的少右边是哪位<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Devi_Lito  
+##### 1149#       发表于 2025-5-16 16:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67821730&amp;ptid=2171972" target="_blank">karastar 发表于 2025-5-16 16:37</a>
+
+别家看的少右边是哪位</blockquote>
+虹的栞葉るり
+
