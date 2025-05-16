@@ -580,3 +580,26 @@ X 上的 Jona：“ドゥーちゃ 可愛いね♡ #GQuuuuuuX #ジークアク�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ティグル  
+##### 13355#       发表于 2025-5-16 18:57
+
+主世界村雨研的强化人没一个善终的，奥古斯塔那边倒是活下来不少
+
+
+*****
+
+####  冷静先找时光机  
+##### 13356#       发表于 2025-5-16 19:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67822215&amp;ptid=2209276" target="_blank">电波系腑海林 发表于 2025-5-16 18:41</a>
+
+把你这家伙带到新人类之国去
+
+宇宙世纪出现吉翁天狗，不觉得很奇怪吗？</blockquote>
+Aieeee！！！NewType？NewType为啥！？
+
+杀死NewType的吉翁天狗，亦是NewType，实际因果·报应
+
