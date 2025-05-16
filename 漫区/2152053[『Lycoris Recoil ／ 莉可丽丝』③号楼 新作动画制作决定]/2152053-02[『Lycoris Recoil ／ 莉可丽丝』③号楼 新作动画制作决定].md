@@ -323,3 +323,12 @@ tkn：找一辈子房子，好借宿一辈子
 最后一集有其他人对泷奈的箭头</blockquote>
 惠女士届到了嘛<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Saber琪  
+##### 2319#       发表于 2025-5-16 21:39
+
+泷经理已经连续两集对lycoreco的墙壁造成损坏，是否渎职，进行罚款<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+一直找不到房子的跟千束同居的原因找到了，隔两三天就破坏一次lycoreco，工资除去跟千束一起胡吃海喝外剩下的全交维护费了（）
+
