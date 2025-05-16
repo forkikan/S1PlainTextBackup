@@ -17522,3 +17522,28 @@ SIDE6的老乡们 正宗空调（骰克谬高达）来送温暖啦<img src="http
 不得不说和夏亚结婚确实是解决任一spacenoid主导政权合法性的通解。哈曼要是成功把夏亚绑回阿克西斯一间任 ...</blockquote>
 要这么说的话，合法性最高最能得到广大殖民地居民认可的是让汤小美和鸭子结婚生下的孩子？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  型月神话伊阿宋  
+##### 13318#       发表于 2025-5-16 12:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67821028&amp;ptid=2209276" target="_blank">pokemon最爱 发表于 2025-5-16 12:55</a>
+
+要这么说的话，合法性最高最能得到广大殖民地居民认可的是让汤小美和鸭子结婚生下的孩子？ ...</blockquote>
+辈分不对，有些人会怀疑鸭子动机的
+
+还得是鸭子×只比他大四岁的紫婆吧
+
+
+*****
+
+####  天邪鬼  
+##### 13319#       发表于 2025-5-16 13:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67818021&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-15 17:10</a>
+草</blockquote>
+不是，center nova是跑到秋叶原做永世偶像，泽科诺娃是啥，到高达基地当导购员吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不会之前那个迷之拉拉跳舞短片实际上是和这个接的吧，逆鸭的阿姆罗传过去后拉拉想着把还不丢人的夏亚也拉过去就改了下世界线
+

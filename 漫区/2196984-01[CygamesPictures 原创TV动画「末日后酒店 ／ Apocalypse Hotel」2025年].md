@@ -2874,3 +2874,22 @@ CP厨嘭子嗑这一对→给改造了双人座椅
 拖延症发作才弄完。 ...</blockquote>
 灵长类全灭了吧，当然也就没有猴子了。
 
+
+*****
+
+####  pzk  
+##### 263#       发表于 2025-5-16 13:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67812051&amp;ptid=2196984" target="_blank">Yinacona 发表于 2025-5-14 02:34</a>
+嘭子超绝恋爱脑不愧是和样貌年龄符合的年级（但实际上已经150+岁了）。A part留下的地球上几百年前就有这样 ...</blockquote>
+哈米吉多顿是圣经中预言的末世战场呀，剧里说几百年前就有应该只是指这个
+
+*****
+
+####  pzk  
+##### 264#       发表于 2025-5-16 13:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67817194&amp;ptid=2196984" target="_blank">Ashice 发表于 2025-5-15 12:33</a>
+这集就我完全get不到是吧</blockquote>
+我一开始也没怎么get到，还觉得小狸猫很莫名其妙，到昭和风的ed播的时候才意识到是在neta以前的铁汉柔情片。
+
