@@ -863,3 +863,45 @@ hjgg是什么时候成为偶像痴的，以前的作品没有这样私货塞爆�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  downnote  
+##### 13383#       发表于 2025-5-16 23:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这，这对吗？用周锦华这样的角色，而不是美少女来致敬idol的穿着，正常来说不会吧？不过我不是偶像粉不清楚心思啦
+
+但反过来说我也不算高达粉，所以如果是真相的还……蛮有趣
+
+
+*****
+
+####  gamedreamer  
+##### 13384#       发表于 2025-5-16 23:21
+
+把自家偶像的装扮放了一个男人还是一个比较抽象的男人身上？
+这种论证真的能成立吗(💢)<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  hosilly  
+##### 13385#       发表于 2025-5-16 23:23
+
+感觉有点魔怔了，无论是偶像痴还是鉴偶像痴
+
+*****
+
+####  猪突猛进R  
+##### 13386#       发表于 2025-5-16 23:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67822980&amp;ptid=2209276" target="_blank">renkan119 发表于 2025-5-16 22:56</a>
+
+乃木坂炎上是啥？</blockquote>
+327页，13049楼开始有讨论。
+
+简言之老害们赛了私货进去，然后有的人接受不了破防了。
+
+不能说每一个梗都是私货，但经过各位列文虎克观察，肯定塞了不少。
+
