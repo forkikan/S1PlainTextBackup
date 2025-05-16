@@ -30,3 +30,14 @@
 
 2025-5-16 13:45 上传
 
+
+*****
+
+####  王留美  
+##### 13323#       发表于 2025-5-16 13:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67821008&amp;ptid=2209276" target="_blank">我聞如是 发表于 2025-5-16 12:50</a>
+ 房間月曆的24號下面有31號 但是！但是！ 上面寫的泰文是๖=6和๗=7</blockquote>
+艹了
+属于故意给你模糊了
+
