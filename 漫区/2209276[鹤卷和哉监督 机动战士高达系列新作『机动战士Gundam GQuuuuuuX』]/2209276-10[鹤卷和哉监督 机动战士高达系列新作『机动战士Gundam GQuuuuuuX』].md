@@ -646,3 +646,31 @@ Aieeee！！！NewType？NewType为啥！？
 两台残弹0的高达怎么打赢重高达。还不如说夏利尔用MA一发入魂更现实。</blockquote>
 如果穿越过来的不是拉拉而是东方不败的话，就有可能了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  穿越护城河  
+##### 13362#       发表于 2025-5-16 20:39
+
+ 本帖最后由 穿越护城河 于 2025-5-16 20:41 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67822290&amp;ptid=2209276" target="_blank">冷静先找时光机 发表于 2025-5-16 19:06</a>
+
+Aieeee！！！NewType？NewType为啥！？
+
+杀死NewType的吉翁天狗，亦是NewType，实际因果·报应 ...</blockquote>
+这下每周都为大家带来Newtype的黑暗真实了
+
+等到下周，side6的一般民众，恐怕就要悄悄失禁了
+
+*****
+
+####  gammatau  
+##### 13363#       发表于 2025-5-16 20:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67821069&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-5-16 13:15</a>
+
+我是搞不懂为什么有人觉得电子眼没理由刺杀紫色老太婆。
+
+欧洲盟军会分别对待国防军和党卫军吗？说句不好听 ...</blockquote>
+联邦要重回宇宙的话先进攻月球一侧还挺合理的，斩首基西莉亚甚至可以说是个好主意
+
