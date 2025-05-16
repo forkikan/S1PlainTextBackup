@@ -239,3 +239,114 @@
 
 深入了解一点的人会知道总帅纯纯的阿姆罗痴汉+恋母控，但戏内能知道这点的人也只有和总帅一起神秘消失了的阿姆罗了
 
+
+*****
+
+####  岸浪白野  
+##### 13341#       发表于 2025-5-16 17:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67817946&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-15 16:42</a>
+
+X 上的 鯨：“ドゥーちゃん可愛い… [https://t.co/Bur7YYNN2u” / X](https://t.co/Bur7YYNN2u” / X)
+
+X 上的 水上悟志　コミテ ...</blockquote>
+[X 上的 Jona：“ドゥーちゃ 可愛いね♡ #GQuuuuuuX #ジークアクス [url]https://t.co/P0lFVkSAb1](https://x.com/Yonagi_White/status/1922849423651905750)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/16/170137b8u879y6miu466zu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.25 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-16 17:01 上传
+
+[X 上的 未決囚：“ドゥーちゃん、なんやかんやあってマチュ家に転がり込んで学校通ったりしながらマチュの妹分になったりしないかな……って絵 [url]https://t.co/l6A797GMV5](https://x.com/Mk2S_Re/status/1922780210283545052)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/16/170215ra0st0nsm234is2w.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.82 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-16 17:02 上传
+
+[X 上的 雨宮アキラ☔️@skeb募集中：“ドゥーちゃんかわいい #GQuuuuuuX   #ジークアクス [url]https://t.co/p3zQnE0CSg](https://x.com/ame_akira00/status/1922768800253870161)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/16/170244tpzn2n6izpt67w83.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.52 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-16 17:02 上传
+
+[X 上的 양갈래：“[url]https://t.co/LAU8kFnQZS](https://x.com/2wintail__/status/1922902430594867271)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/16/170347jjymz6zpy5tk0ohw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.72 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-16 17:03 上传
+
+[X 上的 青木：“[url]https://t.co/Q8DeRr1Ior](https://x.com/bluearcadegames/status/1922925640501666152)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/16/170656u8bx47r92byqyhcx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (442.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-16 17:06 上传
+
+[X 上的 みかみ：“ジークアクス6話 ドゥーかわいいね… [url]https://t.co/5KhjGZj6pY](https://x.com/nemu_mohu/status/1922940647553511747)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/16/170730zz2zt4ohigdnd2nz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.14 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-16 17:07 上传
+
+[X 上的 錆々【さびさび】：“メイドゥー [url]https://t.co/EBjrQif46t](https://x.com/Sabi_Sabi1234/status/1922986923414388836)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/16/170833e9h78jz0wh0wqix9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (457.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-16 17:08 上传
+
+[X 上的 ちえりん☆🍎：“ドゥーちゃん…すき… [url]https://t.co/GsIzk0DiHh](https://x.com/ZBKNsuki/status/1923006552425865664)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/16/171120y0011k308vdkq1n9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (972.32 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-16 17:11 上传
+
+[X 上的 ｼ ﾌﾞﾘ ﾝ ｶﾞ ﾙ：“[url]https://t.co/HySWGad5yZ](https://x.com/shiburingaru321/status/1923014181990592868)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/16/171144xy9zo2p999p2n3h9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.09 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-16 17:11 上传
+
+[X 上的 🐓和最中🌻にわとり：“寝る前のドゥーらくがき [url]https://t.co/CSeO3sLpUW](https://x.com/Wa_Monakar/status/1923038805365231933)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/16/171321sqbq8y68c2xch4hv.png" referrerpolicy="no-referrer">
+
+<strong>B~@`R)V5~B~CWNB}E`HEO.png</strong> (3.05 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-16 17:13 上传
+
