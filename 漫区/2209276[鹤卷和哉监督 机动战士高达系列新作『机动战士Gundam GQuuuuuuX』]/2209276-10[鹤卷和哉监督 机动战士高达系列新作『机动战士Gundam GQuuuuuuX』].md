@@ -350,3 +350,34 @@ X 上的 水上悟志　コミテ ...</blockquote>
 
 2025-5-16 17:13 上传
 
+
+*****
+
+####  雨昼斯基  
+##### 13342#       发表于 2025-5-16 17:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67821543&amp;ptid=2209276" target="_blank">ads147147 发表于 2025-5-16 15:42</a>
+
+公历才是真屎山代码，更别说月份还有人把自己名字塞进去的。
+
+我们的农历一直运行的很好。 ...</blockquote>
+农历由于置润需要参考节气，是要求地球上某个特定的点（现实里是北京）提供节气的。我看太空时代不妨启用法国共和历，顺便把时分秒给统一了。
+
+*****
+
+####  冷静先找时光机  
+##### 13343#       发表于 2025-5-16 17:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67821797&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-16 16:52</a>
+
+鸭子能和娜娜依好上就说明不是萝莉控了</blockquote>
+已知：
+
+哈曼未成年时与鸭子谈过
+
+哈曼长大后两人闹掰了
+
+哈曼=娜娜伊（考哥.jpg）
+
+所以娜娜伊不过是哈曼代餐罢了，鸭子喜欢娜娜伊是在追寻过去的萝莉哈曼<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
