@@ -17178,3 +17178,13 @@ wiki，官方本身现在也是模糊处理。
 
 光头梶田第6话的reaction，电子眼出来那下都吓到了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  downnote  
+##### 13290#       发表于 2025-5-16 08:35
+
+艾尔美斯有没有可能其他人开，比如作为绿叔叔的升级机体
+
+这么说起来虽然是12话的图也不一定就是12话才出场
+
