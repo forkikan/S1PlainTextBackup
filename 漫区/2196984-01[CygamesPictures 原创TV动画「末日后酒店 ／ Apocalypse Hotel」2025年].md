@@ -3031,3 +3031,77 @@ Q：像八千代能从嘴里喷热水、头顶冒烟花等增加了很多实用�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  aptx8285144  
+##### 271#       发表于 2025-5-16 23:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67823032&amp;ptid=2196984" target="_blank">民工业 发表于 2025-5-16 23:19</a>
+
+环境检测机器人不是酒店的员工
+
+—— 来自 鹅球 v3.5.99</blockquote>
+但是他经常在发生事态或紧要关头闪现，合理怀疑他是不是暗恋八千代<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TOYSTORY  
+##### 272#       发表于 2025-5-16 23:31
+
+ 本帖最后由 TOYSTORY 于 2025-5-16 23:32 编辑 
+
+<img src="https://img.stage1st.com/forum/202505/16/233219wgn73n4gsn87ne7v.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (114.34 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-16 23:32 上传
+
+<img src="https://img.stage1st.com/forum/202505/16/233220n8k9glg3plp1xk3x.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (174.53 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-16 23:32 上传
+
+<img src="https://img.stage1st.com/forum/202505/16/233226p85ec0p4t4vgo4cc.jpg" referrerpolicy="no-referrer">
+
+<strong>3.jpg</strong> (49.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-16 23:32 上传
+
+<img src="https://img.stage1st.com/forum/202505/16/233226s3t4olx2vextgxxx.jpg" referrerpolicy="no-referrer">
+
+<strong>4.jpg</strong> (102.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-16 23:32 上传
+
+<img src="https://img.stage1st.com/forum/202505/16/233227lpfcudfd09k4727d.jpg" referrerpolicy="no-referrer">
+
+<strong>5.jpg</strong> (93.82 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-16 23:32 上传
+
+[https://www.bilibili.com/video/BV1wGEyzZE4X](https://www.bilibili.com/video/BV1wGEyzZE4X)
+
+下话看着要造火箭了
+
+*****
+
+####  我是大鲨鱼1453  
+##### 273#       发表于 2025-5-16 23:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67823068&amp;ptid=2196984" target="_blank">aptx8285144 发表于 2025-5-16 23:31</a>
+
+但是他经常在发生事态或紧要关头闪现，合理怀疑他是不是暗恋八千代</blockquote>
+环境检测机器人与八千代的关系，大概可以类比为白展堂与佟湘玉的关系<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
