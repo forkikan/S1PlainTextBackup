@@ -542,3 +542,22 @@ X 上的 Jona：“ドゥーちゃ 可愛いね♡ #GQuuuuuuX #ジークアク�
 
 至少能活两集吧
 
+
+*****
+
+####  ヒトニナル  
+##### 13352#       发表于 2025-5-16 18:19
+
+正常来说肯定死的没那么快，毕竟鸡夸和红高现在的状态相当于裸机
+但这是GQ六个uX片场，谁知道到底能活多久呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Wiksy  
+##### 13353#       发表于 2025-5-16 18:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67820086&amp;ptid=2209276" target="_blank">影山银 发表于 2025-5-16 09:02</a>
+
+高达在这部里已经是吉翁的象征了吧，怎么地球那边造的精神力还是高达？不应该学之前吉姆脸勇士一样改个原本 ...</blockquote>
+确实如果叫精神力钢加农可能会更乐一些
+
