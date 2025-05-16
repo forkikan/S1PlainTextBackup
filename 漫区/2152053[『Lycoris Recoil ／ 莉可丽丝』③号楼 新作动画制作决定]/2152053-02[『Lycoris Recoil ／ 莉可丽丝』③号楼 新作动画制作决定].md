@@ -313,3 +313,13 @@ tkn：找一辈子房子，好借宿一辈子
 
 最后一集有其他人对泷奈的箭头
 
+
+*****
+
+####  Saber琪  
+##### 2318#       发表于 2025-5-16 21:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67821570&amp;ptid=2152053" target="_blank">蒜人 发表于 2025-5-16 15:51</a>
+最后一集有其他人对泷奈的箭头</blockquote>
+惠女士届到了嘛<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
