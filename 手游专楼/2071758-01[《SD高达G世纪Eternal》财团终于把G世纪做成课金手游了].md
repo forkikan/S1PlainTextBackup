@@ -15081,3 +15081,15 @@ UR母舰最好有一个，词条对上相当于集体多一突，泛用性是贝
 
 —— 来自 LENOVO TB321FU, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  马桶3  
+##### 1416#       发表于 2025-5-17 01:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67821840&amp;ptid=2071758" target="_blank">光辉传递者 发表于 2025-5-16 17:02</a>
+较真按那个规则来手游调查问卷就连卖曲包选项都不该存在，就是按游玩次数收费漫天要价。他敢这么写调查问 ...</blockquote>
+用户自己买曲子就是游戏帮音协代销，实际上是单个用户和音协之间的买断型契约，与游戏方无差别在每一个客户端都放歌是两种类型的合同，前者是一次买断，后者是按次收费，而且交钱的主体都不一样，前者是买断的用户交钱，后者是游戏运营掏钱。
+
+—— 来自 vivo V2408A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
