@@ -829,3 +829,25 @@ roll到13%攻和18攻就可以用+4-6攻击改掉防御，然后只强化第一�
 这样，是主要用高星高品质的轻甲来加回避吗？我之前都选的重甲</blockquote>
 主要还是靠词条，重甲减得也不是很多可以不用太在意，也就轻甲的鞋子基础会加比较多的回避。
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 340#         楼主| 发表于 2025-5-16 19:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67822273&amp;ptid=2249235" target="_blank">sodah 发表于 2025-5-16 19:01</a>
+
+小更新之后重置任务了3波拦路的戈尔贡不刷了？</blockquote>
+修的是进出洞穴就会刷固定怪，重接任务应该会刷啊
+
+
+*****
+
+####  sodah  
+##### 341#       发表于 2025-5-16 19:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67822354&amp;ptid=2249235" target="_blank">风浦可符香(P.N) 发表于 2025-5-16 19:24</a>
+
+修的是进出洞穴就会刷固定怪，重接任务应该会刷啊</blockquote>
+这次重置还是刷了
+
