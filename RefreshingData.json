@@ -1503,12 +1503,12 @@
     "update": false
   },
   "1849302": {
-    "totalreply": 1660,
+    "totalreply": 1661,
     "title": "[EPIC每周白嫖指南：无人机竞速联盟模拟器]",
     "newtitle": "[EPIC每周白嫖指南：侏罗纪世界2]",
-    "lastedit": 1742712855,
+    "lastedit": 1747358537,
     "category": "游戏区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "1861134": {
@@ -2376,10 +2376,10 @@
     "update": false
   },
   "1501717": {
-    "totalreply": 949,
+    "totalreply": 950,
     "title": "[NSSLG东方幻想少女大战讨论贴 梦周回(多周目)模式更新!]",
     "newtitle": "[NSSLG东方幻想少女大战讨论贴 2楼更新汉化 deepseekV3机翻版补丁！]",
-    "lastedit": 1747324816,
+    "lastedit": 1747358770,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 164473,
+    "totalreply": 164475,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1747357930,
+    "lastedit": 1747358537,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 133472,
+    "totalreply": 133473,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1747358049,
+    "lastedit": 1747358408,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11223,10 +11223,10 @@
     "update": false
   },
   "2071758": {
-    "totalreply": 1404,
+    "totalreply": 1405,
     "title": "[《SD高达G世纪Eternal》财团终于把G世纪做成课金手游了]",
     "newtitle": "[《SD高达G世纪永恒》【5.13 新卡池：Z高达｜卡缪+铁奥｜希洛克】 S1群：9314964]",
-    "lastedit": 1747330935,
+    "lastedit": 1747358537,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -11421,10 +11421,10 @@
     "update": false
   },
   "2181098": {
-    "totalreply": 326,
+    "totalreply": 328,
     "title": "[忍者×杀手二人组的日常生活 动画化]",
     "newtitle": "[忍者×杀手二人组的日常生活 动画化]",
-    "lastedit": 1747357210,
+    "lastedit": 1747358649,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11619,10 +11619,10 @@
     "update": false
   },
   "2175566": {
-    "totalreply": 295,
+    "totalreply": 296,
     "title": "[尝试建一个TCG专楼]",
     "newtitle": "[小马TCG（卡游）已发售！——尝试建一个TCG专楼]",
-    "lastedit": 1747197258,
+    "lastedit": 1747358537,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11790,10 +11790,10 @@
     "update": false
   },
   "2251429": {
-    "totalreply": 400,
+    "totalreply": 401,
     "title": "[【剧透警告】光与影：33号远征队结局／剧情讨论楼 本楼无反白]",
     "newtitle": "[【剧透警告】光与影：33号远征队结局／剧情讨论楼 本楼无反白 …]",
-    "lastedit": 1747348209,
+    "lastedit": 1747358534,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12974,7 +12974,7 @@
     "newtitle": "[Nintendo Music专楼（5月13日更新NS《宝可梦 剑／盾》）]",
     "lastedit": 1747098988,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2251915": {
@@ -13005,10 +13005,10 @@
     "update": false
   },
   "2251949": {
-    "totalreply": 155,
+    "totalreply": 156,
     "title": "[现在想想机战的黄金十年就是2000年2010年吧]",
     "newtitle": "[现在想想机战的黄金十年就是2000年2010年吧]",
-    "lastedit": 1747358051,
+    "lastedit": 1747358772,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13262,6 +13262,15 @@
     "newtitle": "[对马岛之鬼系列续作《羊蹄山之鬼 ／ Ghost of Yōtei》新PV公开，2025年10月2日发售]",
     "lastedit": 1747356863,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2252039": {
+    "totalreply": 41,
+    "title": "[现在国内除了cp没有相同体量的同人漫展吗？]",
+    "newtitle": "[现在国内除了cp没有相同体量的同人漫展吗？]",
+    "lastedit": 1747358651,
+    "category": "漫区",
     "active": true,
     "update": false
   }
