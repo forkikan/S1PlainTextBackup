@@ -619,3 +619,11 @@ Aieeee！！！NewType？NewType为啥！？
 
 两台残弹0的高达怎么打赢重高达。还不如说夏利尔用MA一发入魂更现实。
 
+
+*****
+
+####  ryanghj  
+##### 13359#       发表于 2025-5-16 20:16
+
+精神力高达=魔女之夜？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
