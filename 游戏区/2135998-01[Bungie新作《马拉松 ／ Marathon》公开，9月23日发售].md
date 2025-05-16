@@ -926,3 +926,20 @@ joseph-cross-jc-shatterstar-s.jpg
 打（打官司）
 撤（撤除盗用素材）<img src="https://static.stage1st.com/image/smiley/carton2017/246.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Midnight.Coup  
+##### 84#       发表于 2025-5-16 16:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67821540&amp;ptid=2135998" target="_blank">Sorastlos 发表于 2025-5-16 15:41</a>
+
+搜（搜索网络素材）
+
+打（打官司）
+
+撤（撤除盗用素材）</blockquote>
+Bunige 脸都不要了，已经不是第一次了
+
+这比土命里的抄袭更严重，marathon 说白了现在就一个颜值(美术风格)卖点
+

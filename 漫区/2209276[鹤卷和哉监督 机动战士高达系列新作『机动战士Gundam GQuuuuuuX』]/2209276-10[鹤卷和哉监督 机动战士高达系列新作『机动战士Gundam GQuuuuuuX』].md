@@ -184,3 +184,46 @@
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.46)
 
+
+*****
+
+####  Piano-Forest  
+##### 13337#         楼主| 发表于 2025-5-16 16:50
+
+[https://x.com/og1DEpQLAcvpcIv/status/1923010362636444013](https://x.com/og1DEpQLAcvpcIv/status/1923010362636444013)
+
+ギョーザ仕込みニャアン
+<img src="https://p.sda1.dev/24/cff2742902a0ce1255525fcafed4b90d/20250516_163839.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/tibimaru_0404/status/1922698598426325297](https://x.com/tibimaru_0404/status/1922698598426325297)
+
+メカを描きたくなったらガンダムを描けとガンダムが言っていたのでガンダムを描きました
+<img src="https://p.sda1.dev/24/d94153066a2d56bf181c24983e8a67fb/20250516_163633.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/teruya13/status/1923138562901393731](https://x.com/teruya13/status/1923138562901393731)
+<img src="https://p.sda1.dev/24/cb231fa09eda60b59d9174abbbc687c0/20250516_163829.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/kisaragi9a/status/1922692035934314526](https://x.com/kisaragi9a/status/1922692035934314526)
+<img src="https://p.sda1.dev/24/635c50ec95ad430159a6c3d60f1ee3d0/20250516_163742.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/cd11148b010115091a9875f0d362e953/20250516_163748.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/kamome_shibuki/status/1923052744396374180](https://x.com/kamome_shibuki/status/1923052744396374180)
+<img src="https://p.sda1.dev/24/d7fd0366bce05df1f681dfdc83b13a1e/20250516_163833.jpg" referrerpolicy="no-referrer">
+
+[https://weibo.com/5314874067/5166342635258140](https://weibo.com/5314874067/5166342635258140)
+<img src="https://p.sda1.dev/24/f17dc6cfa78a134986ae4f58521c14ba/005NGFxhly1i1ffd9d403j30ru0v0tbq.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 13338#       发表于 2025-5-16 16:50
+
+鸭子真不是萝莉控吧，单纯是母控，萝莉控是邱尼造的谣啊<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 13339#       发表于 2025-5-16 16:52
+
+鸭子能和娜娜依好上就说明不是萝莉控了
+
