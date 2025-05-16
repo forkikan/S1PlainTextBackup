@@ -494,3 +494,11 @@ DSS被鱿鱼打烂了，暂时脱离战场。
 
 我是换弹轻 爆裂铳 左轮 毒雷，轨道火 小机枪塔 蛋盾 激光大炮，应该算全套轮椅了，难度也就那样吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">换wasp就再加个加特林塔
 
+
+*****
+
+####  qwased  
+##### 5972#       发表于 2025-5-17 07:03
+
+试了一下bug 带了4个机枪塔打光能，有点好笑，交叉火力下拼好人也上不来<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且感觉最多可以刷3轮炮塔在场上，火力太逆天了
+
