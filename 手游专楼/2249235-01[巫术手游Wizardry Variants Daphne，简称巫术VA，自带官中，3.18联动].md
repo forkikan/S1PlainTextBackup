@@ -859,3 +859,14 @@ roll到13%攻和18攻就可以用+4-6攻击改掉防御，然后只强化第一�
 
 这洞能出五华以上吗
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 343#         楼主| 发表于 2025-5-16 23:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67822496&amp;ptid=2249235" target="_blank">toblkr 发表于 2025-5-16 20:10</a>
+
+这洞能出五华以上吗</blockquote>
+最高应该是到妖异五华咆哮杂物
+
