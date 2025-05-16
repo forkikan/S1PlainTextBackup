@@ -161,3 +161,16 @@
 我个人一直很好奇，都进入宇宙纪元了还用365天+闰月系统也就算了，这个狗屎一样的每个月天数不一样，有28， ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你要和全人类为敌吗？！屎称月历战争
 
+
+*****
+
+####  xwz  
+##### 13335#       发表于 2025-5-16 16:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67821036&amp;ptid=2209276" target="_blank">型月神话伊阿宋 发表于 2025-5-16 12:58</a>
+
+辈分不对，有些人会怀疑鸭子动机的
+
+还得是鸭子×只比他大四岁的紫婆吧</blockquote>
+放心，如果是鸭子的话，没有人会怀疑他的动机的，100%不含任何政治目的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

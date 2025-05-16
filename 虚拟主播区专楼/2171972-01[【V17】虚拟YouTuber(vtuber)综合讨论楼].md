@@ -1320,3 +1320,19 @@ cover上市后的操作更像是要去偶像化
 
 明年宝可梦新作发售还挺希望摇手指大会能复活的，虽然可能性不大
 
+
+*****
+
+####  Devi_Lito  
+##### 1147#       发表于 2025-5-16 16:27
+
+两个人终于要联动了<img src="https://static.stage1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202505/16/162459j9p6r11ai5fhnzhi.jpg" referrerpolicy="no-referrer">
+
+<strong>GrDfKNkaAAIKJ2R.jpg</strong> (168.9 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-16 16:24 上传
+
