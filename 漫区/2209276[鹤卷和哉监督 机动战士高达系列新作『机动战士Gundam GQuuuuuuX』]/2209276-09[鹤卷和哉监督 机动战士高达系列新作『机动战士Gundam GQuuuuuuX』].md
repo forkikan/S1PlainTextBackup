@@ -17456,3 +17456,69 @@ https://www.youtube.com/watch?v=S9gQFXb3480
 
 <img src="https://static.stage1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ftyaid  
+##### 13313#       发表于 2025-5-16 12:46
+
+紫色老太婆这算计大师遇到了她的卡斯巴尔boy也会自动降智的（夏亚对她摊牌那段她心里想的东西是真的搞笑）
+
+我看这两人就得是一对
+
+*****
+
+####  我聞如是  
+##### 13314#       发表于 2025-5-16 12:50
+
+<blockquote>Z-Saber 发表于 2025-5-16 11:10
+这张日历是7月和8月吧，不然不会连上一个1号周四的</blockquote>
+房間月曆的24號下面有31號
+
+但是！但是！
+
+上面寫的泰文是๖=6和๗=7 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  猪突猛进R  
+##### 13315#       发表于 2025-5-16 12:53
+
+忽然发现下一集的播放时间是520，果然是一封跨越时间的情书<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  karlmax  
+##### 13316#       发表于 2025-5-16 12:54
+
+<img src="https://img.stage1st.com/forum/202505/16/125143ggr77l37lhgcz77h.png" referrerpolicy="no-referrer">
+
+<strong>D949CD9582A096A98B0E7FF5B5D32362.png</strong> (215.56 KB, 下载次数: 0)
+
+下载附件
+
+正宗空调
+2025-5-16 12:51 上传
+
+<img src="https://img.stage1st.com/forum/202505/16/125150z6d8mpmpf0f72fv2.png" referrerpolicy="no-referrer">
+
+<strong>C04F19F467D4E79E35519EDEAC815AE0.png</strong> (142.66 KB, 下载次数: 0)
+
+下载附件
+
+骰克谬
+2025-5-16 12:51 上传
+
+SIDE6的老乡们 正宗空调（骰克谬高达）来送温暖啦<img src="https://static.stage1st.com/image/smiley/bundam2017/010.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pokemon最爱  
+##### 13317#       发表于 2025-5-16 12:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67820806&amp;ptid=2209276" target="_blank">秋月孝三 发表于 2025-5-16 11:55</a>
+
+不得不说和夏亚结婚确实是解决任一spacenoid主导政权合法性的通解。哈曼要是成功把夏亚绑回阿克西斯一间任 ...</blockquote>
+要这么说的话，合法性最高最能得到广大殖民地居民认可的是让汤小美和鸭子结婚生下的孩子？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
