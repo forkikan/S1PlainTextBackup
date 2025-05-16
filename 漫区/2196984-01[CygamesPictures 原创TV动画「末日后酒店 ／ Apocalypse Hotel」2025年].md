@@ -3105,3 +3105,14 @@ Q：像八千代能从嘴里喷热水、头顶冒烟花等增加了很多实用�
 但是他经常在发生事态或紧要关头闪现，合理怀疑他是不是暗恋八千代</blockquote>
 环境检测机器人与八千代的关系，大概可以类比为白展堂与佟湘玉的关系<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Yinacona  
+##### 274#       发表于 2025-5-16 23:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67822945&amp;ptid=2196984" target="_blank">ayanamilin 发表于 2025-5-16 22:42</a>
+
+喷泉这两幕，嬉水的狸猫一家和一动不动的环境机器人，超级有感觉</blockquote>
+狸猫一家这样随时切人切动画的设定真是舒服方便，很多小表情用动物神态来做比人形态好很多
+
