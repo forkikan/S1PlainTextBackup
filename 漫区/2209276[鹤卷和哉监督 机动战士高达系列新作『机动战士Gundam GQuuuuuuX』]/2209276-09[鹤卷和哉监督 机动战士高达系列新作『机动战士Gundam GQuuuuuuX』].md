@@ -17223,3 +17223,35 @@ wiki，官方本身现在也是模糊处理。
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.46)
 
+
+*****
+
+####  无念  
+##### 13295#       发表于 2025-5-16 09:35
+
+吉姆脸勇士不是吉翁开发的么，这集之前联邦最新的机体是剧场版里的轻加农吧
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  57042711  
+##### 13296#       发表于 2025-5-16 09:36
+
+被吉翁的高达+新人类搞怕了决定自己也整一个厉害的然后越做越大就有了现在的精神病高达…
+反攻月神二的决战兵器<img src="https://static.stage1st.com/image/smiley/face2017/179.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  无念  
+##### 13297#       发表于 2025-5-16 09:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67820196&amp;ptid=2209276" target="_blank">57042711 发表于 2025-5-16 09:36</a>
+被吉翁的高达+新人类搞怕了决定自己也整一个厉害的然后越做越大就有了现在的精神病高达…
+反攻月神二的决战 ...</blockquote>
+不会真的能在决战看到大扎姆和精神病排队对炮吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
