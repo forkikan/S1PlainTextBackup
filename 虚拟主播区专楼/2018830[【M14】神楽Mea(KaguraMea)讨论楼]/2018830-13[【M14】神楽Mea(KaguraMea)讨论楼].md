@@ -7318,3 +7318,30 @@ opgg上近50场数据（含大师段以及大师段和broooock玩的数据）来
 
 以及锻炼好耶
 
+
+*****
+
+####  秋游刃  
+##### 18486#       发表于 2025-5-16 18:14
+
+健身房去了吗<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  术士q  
+##### 18487#       发表于 2025-5-16 18:14
+
+我要施展不准看魔法.jpg
+
+这次b限互动感好足啊2333
+以及咩可爱捏
+
+*****
+
+####  术士q  
+##### 18488#       发表于 2025-5-16 18:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67822112&amp;ptid=2018830" target="_blank">秋游刃 发表于 2025-5-16 18:14</a>
+健身房去了吗</blockquote>
+去了的，之前t台下播前有说去了健身房很累，差点都忘了有预定了
+

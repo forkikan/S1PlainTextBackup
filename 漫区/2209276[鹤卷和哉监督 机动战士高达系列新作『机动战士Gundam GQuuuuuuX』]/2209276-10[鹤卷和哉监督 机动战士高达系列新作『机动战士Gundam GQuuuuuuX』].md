@@ -513,3 +513,32 @@ X 上的 Jona：“ドゥーちゃ 可愛いね♡ #GQuuuuuuX #ジークアク�
 
 白毛裸莉果然大受好评
 
+
+*****
+
+####  猪突猛进R  
+##### 13349#       发表于 2025-5-16 18:10
+
+再好评还不是要一集没<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过反馈回主世界线，说不定能出个外传啥的，给个好结局。
+
+*****
+
+####  xwz  
+##### 13350#       发表于 2025-5-16 18:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67822098&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-16 18:10</a>
+
+再好评还不是要一集没
+
+不过反馈回主世界线，说不定能出个外传啥的，给个好结局。 ...</blockquote>
+被紫婆捡走的可能性微存<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  盐盐盐盐盐  
+##### 13351#       发表于 2025-5-16 18:13
+
+至少能活两集吧
+
