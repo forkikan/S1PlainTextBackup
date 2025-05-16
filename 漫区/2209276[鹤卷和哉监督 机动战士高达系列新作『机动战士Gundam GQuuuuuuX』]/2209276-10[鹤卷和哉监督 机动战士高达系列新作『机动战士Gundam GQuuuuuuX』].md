@@ -972,3 +972,64 @@ hjgg是什么时候成为偶像痴的，以前的作品没有这样私货塞爆�
 
 再次重申，鹤卷和哉有往剧中人物投射对三次元偶像的爱的嫌疑，确定能接受吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Gaybird  
+##### 13394#       发表于 2025-5-16 23:56
+
+同样都是涉及到现实人物的私货，把富野印在钱上和把偶像的书架原样复刻，这两种行为难道有什么性质上的区别吗？
+只要没有妨碍到作品表达都不重要吧
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  lickey  
+##### 13395#       发表于 2025-5-16 23:58
+
+不过我倒是好奇庵野在往eva里塞大量neta奥的情节的时候怎么没被炎上，终究是因为特摄厨和萝卜厨人群比较重合吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ryanghj  
+##### 13396#       发表于 2025-5-17 00:01
+
+你把日本偶像厨类比成国内的管人痴就明白了
+
+*****
+
+####  downnote  
+##### 13397#       发表于 2025-5-17 00:03
+
+稍作尝试<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.stage1st.com/forum/202505/17/000233o2gi25z7ril4dll2.png" referrerpolicy="no-referrer">
+
+<strong>20250516233547.png</strong> (368.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-17 00:02 上传
+
+<img src="https://img.stage1st.com/forum/202505/17/000242yuiirx3ekb33nueb.png" referrerpolicy="no-referrer">
+
+<strong>20250516235450.png</strong> (429.56 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-17 00:02 上传
+
+*****
+
+####  ryanghj  
+##### 13398#       发表于 2025-5-17 00:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67823139&amp;ptid=2209276" target="_blank">lickey 发表于 2025-5-16 23:58</a>
+
+不过我倒是好奇庵野在往eva里塞大量neta奥的情节的时候怎么没被炎上，neta虚拟题材和现实三次元人物之间在 ...</blockquote>
+哪怕是一直捏他鹤卷自己以前的作品都没事，比如鹤卷和榎户可以直白的说喵安就是班长的定位
+
+但是你看他们从来没说过玛秋是松村沙友理，喵安是西野七濑吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
