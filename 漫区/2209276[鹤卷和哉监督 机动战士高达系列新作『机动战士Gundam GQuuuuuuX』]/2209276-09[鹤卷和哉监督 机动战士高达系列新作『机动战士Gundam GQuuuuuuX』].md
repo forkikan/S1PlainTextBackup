@@ -17266,3 +17266,14 @@ wiki，官方本身现在也是模糊处理。
 高达在这部里已经是吉翁的象征了吧，怎么地球那边造的精神力还是高达？不应该学之前吉姆脸勇士一样改个原本 ...</blockquote>
 就是为了栽赃吧，不然想不出联邦杀掉紫色老太婆对他们有什么好处。
 
+
+*****
+
+####  yichengyu  
+##### 13299#       发表于 2025-5-16 10:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67819398&amp;ptid=2209276" target="_blank">玻璃洋葱 发表于 2025-5-15 23:18</a>
+
+重看了一遍第六集，为啥都在说番茄妈下一集要死了感觉连续死两个母亲角色很无聊啊 ...</blockquote>
+经典的悔恨buff，生气，回忆，悔恨，永别，然后就是觉醒nt开aoe了
+
