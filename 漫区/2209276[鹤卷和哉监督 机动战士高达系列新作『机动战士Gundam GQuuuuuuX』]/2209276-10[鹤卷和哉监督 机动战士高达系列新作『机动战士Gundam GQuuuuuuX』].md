@@ -127,3 +127,37 @@
 
 我个人一直很好奇，都进入宇宙纪元了还用365天+闰月系统也就算了，这个狗屎一样的每个月天数不一样，有28，29，30,31，规律还会变的问题真不能处理一下么，真的是一坨。。
 
+
+*****
+
+####  秋月孝三  
+##### 13332#       发表于 2025-5-16 15:36
+
+屎山只要能运作就不要去动它<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  ads147147  
+##### 13333#       发表于 2025-5-16 15:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67821514&amp;ptid=2209276" target="_blank">秋月孝三 发表于 2025-5-16 15:36</a>
+
+屎山只要能运作就不要去动它
+
+—— 来自 鹅球 v3.3.96</blockquote>
+公历才是真屎山代码，更别说月份还有人把自己名字塞进去的。
+
+我们的农历一直运行的很好。
+
+*****
+
+####  cxasuka  
+##### 13334#       发表于 2025-5-16 15:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67821450&amp;ptid=2209276" target="_blank">ads147147 发表于 2025-5-16 15:15</a>
+我个人一直很好奇，都进入宇宙纪元了还用365天+闰月系统也就算了，这个狗屎一样的每个月天数不一样，有28， ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你要和全人类为敌吗？！屎称月历战争
+
