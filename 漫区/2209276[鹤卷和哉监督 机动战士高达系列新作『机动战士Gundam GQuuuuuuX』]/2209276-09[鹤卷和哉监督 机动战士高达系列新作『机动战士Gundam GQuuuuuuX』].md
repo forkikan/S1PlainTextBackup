@@ -17168,3 +17168,13 @@ wiki，官方本身现在也是模糊处理。
 
 2025-5-16 07:51 上传
 
+
+*****
+
+####  Toby_dak  
+##### 13289#       发表于 2025-5-16 08:06
+
+[https://www.youtube.com/watch?v=S9gQFXb3480](https://www.youtube.com/watch?v=S9gQFXb3480)
+
+光头梶田第6话的reaction，电子眼出来那下都吓到了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
