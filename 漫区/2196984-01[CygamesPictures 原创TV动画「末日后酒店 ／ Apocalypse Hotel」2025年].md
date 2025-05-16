@@ -2989,3 +2989,27 @@ Q：像八千代能从嘴里喷热水、头顶冒烟花等增加了很多实用�
 
 特别是酿酒回，真不错
 
+
+*****
+
+####  ayanamilin  
+##### 268#       发表于 2025-5-16 22:42
+
+喷泉这两幕，嬉水的狸猫一家和一动不动的环境机器人，超级有感觉<img src="https://static.stage1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202505/16/224102ztemteele9leeok5.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2025-05-16_22-38-26.png</strong> (349.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-16 22:41 上传
+
+<img src="https://img.stage1st.com/forum/202505/16/224102ujoccjjzxzczxeoy.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2025-05-16_22-38-53.png</strong> (230.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-16 22:41 上传
+
