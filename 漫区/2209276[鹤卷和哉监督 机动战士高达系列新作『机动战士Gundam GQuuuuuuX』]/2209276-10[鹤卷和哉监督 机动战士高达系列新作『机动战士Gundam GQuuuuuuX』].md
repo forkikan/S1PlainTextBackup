@@ -1770,3 +1770,27 @@ Gq2AhxBWUAAk9iX.jpeg
 要不还是说鹤卷是左翼非国民吧</blockquote>
 没收国籍了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ryanghj  
+##### 13443#       发表于 2025-5-17 15:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67824154&amp;ptid=2209276" target="_blank">Gysumitka 发表于 2025-5-17 13:56</a>
+
+GQX环状物出现的频次也挺高
+
+玛秋妈名字 Tamaki
+
+安琪送的甜甜圈店名是土星（Saturn Doughnuts）</blockquote>
+
+玛秋的耳环也是
+
+<img src="https://img.stage1st.com/forum/202505/17/155813p1veyzdyvlwx1qws.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.82 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-17 15:58 上传
+
