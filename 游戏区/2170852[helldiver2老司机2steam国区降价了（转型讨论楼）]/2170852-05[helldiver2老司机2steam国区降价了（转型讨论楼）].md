@@ -510,3 +510,11 @@ DSS被鱿鱼打烂了，暂时脱离战场。
 
 这代不准带重复战备是正确的，太变态了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Adrenaline!!!  
+##### 5974#       发表于 2025-5-17 19:19
+
+693入侵等级打个毛线哦，还是去打支线更多经验更多的机器人虫子了
+
