@@ -1628,3 +1628,60 @@ BL the time的副标题是メビウスの宇宙を越えて，也是环，不会
 
 西野书架neta这里我觉得还是有点强行的，我反复对比了一下完全没觉得像。不熟的完全不影响。更何况吉翁大学入学测试书和难民申请身份的书重点都有。还有更强行的，只能说日本阿宅还是太闲了
 
+
+*****
+
+####  七七見奈波  
+##### 13434#       发表于 2025-5-17 15:21
+
+ツインクル——Twinkle
+
+黄色い本——The Yellow Book
+
+マインド·ゲーム——Mind G(ame)
+
+三本Land同样的颜色同样的英文花体同样的231排序
+
+两本子供はわかってあげない上卷蓝下卷绿——两本Children grow up by ***一蓝一绿
+
+佐藤二郎 なう——SATO なう
+
+Maginal——Maginal
+
+橄榄色封皮的蟹に誘われて——橄榄色封皮的An Invitation by a Crab
+
+紫灰色外壳的シソンヌライブ (sissonnelive) une——紫灰色外壳的sissonnelive
+
+这还不像？就差一模一样了
+
+CtxbR_EUsAIb-9p.jpeg
+(457.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-17 15:21 上传
+
+<img src="https://img.stage1st.com/forum/202505/17/152127xnifiibzzppyprpn.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+Gq2AhxBWUAAk9iX.jpeg
+(211.57 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-17 15:21 上传
+
+<img src="https://img.stage1st.com/forum/202505/17/152128kd3mdssnbn2d333j.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  我聞如是  
+##### 13435#       发表于 2025-5-17 15:25
+
+<blockquote>雨翼free 发表于 2025-5-17 14:16
+西野书架neta这里我觉得还是有点强行的，我反复对比了一下完全没觉得像。不熟的完全不影响。更何况吉翁大学 ...</blockquote>
+西野書架才是最證據確鑿的
+
+大半書都是西野書架上的，只是書名換成了英文
+
+但是你要說是鶴卷gg只不過是找一個「自己熟悉的年輕女生」的書架作為參考資料，也說得過去
+
