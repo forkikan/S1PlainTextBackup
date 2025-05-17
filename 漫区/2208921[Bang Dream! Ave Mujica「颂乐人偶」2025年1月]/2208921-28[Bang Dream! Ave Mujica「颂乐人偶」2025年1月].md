@@ -118,3 +118,68 @@
 
 真搞東西也是搞能爆米的
 
+
+*****
+
+####  堀内爱里衣  
+##### 40905#       发表于 2025-5-17 11:47
+
+       <strong>Ave Mujica「KiLLKiSS」 (Official Anime × Live Video)</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202505/17/114708swu385v78vl30kzu.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>hqdefault.jpeg</strong> (39.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-17 11:47 上传
+
+…ようこそ。Ave Mujicaの世界へ
+
+...欢迎来到Ave Mujica的世界
+
+「KiLLKiSS」
+
+作词：Diggy-MO’
+
+作曲：長谷川大介 (SUPA LOVE)、Diggy-MO’
+
+编曲：長谷川大介 (SUPA LOVE)
+
+▼Streaming/Download
+[https://bmu.lnk.to/AveMujica_KiLLKiSSid](https://bmu.lnk.to/AveMujica_KiLLKiSSid)
+
+ーーーーー
+
+TV动画「BanG Dream! Ave Mujica」Blu-ray 上卷/下卷
+
+2025年5月28日(周三)发售
+
+可以充分体验「Ave Mujica的世界」的Blu-ray。
+
+附赠的CD将收录动画中的BGM。
+
+详情：
+[https://bang-dream.com/avemujica_bluray_all](https://bang-dream.com/avemujica_bluray_all)
+
+ーーーーー
+
+◇バンドリ！
+
+公式サイト：[https://bang-dream.com/](https://bang-dream.com/)
+
+公式X：[https://twitter.com/bang_dream_info](https://twitter.com/bang_dream_info)
+
+◇Ave Mujica
+
+公式YouTubeチャンネル：[https://www.youtube.com/@bang_dream_AveMujica](https://www.youtube.com/@bang_dream_AveMujica) 
+
+公式X：[https://twitter.com/BDP_AveMujica](https://twitter.com/BDP_AveMujica)
+
+ーーーーー
+
+#BanGDream# #AveMujica#</blockquote>
+       [https://www.youtube.com/watch?v=l3iJTA7lmH8](https://www.youtube.com/watch?v=l3iJTA7lmH8)
+
+       [https://www.bilibili.com/video/BV1g4E4zsEQr/](https://www.bilibili.com/video/BV1g4E4zsEQr/)
+
