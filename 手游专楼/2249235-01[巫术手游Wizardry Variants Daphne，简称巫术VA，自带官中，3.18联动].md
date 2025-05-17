@@ -870,3 +870,14 @@ roll到13%攻和18攻就可以用+4-6攻击改掉防御，然后只强化第一�
 这洞能出五华以上吗</blockquote>
 最高应该是到妖异五华咆哮杂物
 
+
+*****
+
+####  toblkr  
+##### 344#       发表于 2025-5-17 09:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67823013&amp;ptid=2249235" target="_blank">风浦可符香(P.N) 发表于 2025-5-16 23:08</a>
+
+最高应该是到妖异五华咆哮杂物</blockquote>
+不是动态掉落那我不用推主线了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
