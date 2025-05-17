@@ -1723,3 +1723,50 @@ Gq2AhxBWUAAk9iX.jpeg
 
 2025-5-17 15:33 上传
 
+
+*****
+
+####  Yugao  
+##### 13438#       发表于 2025-5-17 15:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">那么周启华会在家里乱扔袜子然后打怪猎吗
+
+*****
+
+####  Yugao  
+##### 13439#       发表于 2025-5-17 15:48
+
+如果让剧情往最折磨的方向去，那么就让修斯和精神感应对战的过程中把side6的一个筒子打烂，然后被精神感应击落，这样子我们让叶天手小姐举目四望全是仇人，并且再也没有阻碍她自由的亲人了<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  concert  
+##### 13440#       发表于 2025-5-17 15:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67818408&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-15 18:50</a>
+一层楼发就行，有张用的截图还是我截的</blockquote>
+好像是论坛助手问题把之前的图片卡进来了 不知道原理
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  变老的大二  
+##### 13441#       发表于 2025-5-17 15:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67824271&amp;ptid=2209276" target="_blank">型月神话伊阿宋 发表于 2025-5-17 15:26</a>
+
+要不还是说鹤卷是左翼非国民吧</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">幽默小倭搞得好像高达以前是右翼作品一样
+
+*****
+
+####  Gysumitka  
+##### 13442#       发表于 2025-5-17 15:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67824271&amp;ptid=2209276" target="_blank">型月神话伊阿宋 发表于 2025-5-17 15:26</a>
+要不还是说鹤卷是左翼非国民吧</blockquote>
+没收国籍了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
