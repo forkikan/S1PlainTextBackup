@@ -1988,3 +1988,151 @@ NT也会被偷袭吗？</blockquote>
 
 下一话是520，会有给西野七濑庆生的细节彩蛋吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 13462#       发表于 2025-5-18 01:04
+
+ 本帖最后由 岸浪白野 于 2025-5-18 01:05 编辑 
+
+[X 上的 未幡/わたゆり13巻！：“ドゥーちゃんがどんなキャラか今のうちに予想しておこう。 多分こうだと思います #GQuuuuuuX #ジークアクス](https://x.com/n28miman/status/1923589794900344942)[https://t.co/4aLAoO4x6F](https://t.co/4aLAoO4x6F)” / X
+
+<img src="https://img.stage1st.com/forum/202505/18/003149gwmwppololbap3wg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.36 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-18 00:31 上传
+
+[X 上的 キサラギ職員/メイン垢：“#GQuuuuuuX #ジークアクス　 拾ってきたガキがロクなもの食べたことがなさそうなので、気まぐれで、あり合わせでメシ作ってみた。お子様ランチと呼ぶらしいがよくは知らない。何があげないよだ作ったのは俺だぞ という絵 ドゥーちゃん絶対ロクなもん食ってないと思った](https://x.com/kisaragi9a/status/1923485513568354520)[https://t.co/TwBFwSgkhg](https://t.co/TwBFwSgkhg)” / X
+
+<img src="https://img.stage1st.com/forum/202505/18/003211rug5qqcwlogtc0ot.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.6 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-18 00:32 上传
+
+[X 上的 玉越博幸：“ドゥームラサメさん。 #ジークアクス #ドゥームラサメ #ガンダム](https://x.com/H_tamakoshi/status/1923593386805821558)[https://t.co/8n37RzvraU](https://t.co/8n37RzvraU)” / X
+
+<img src="https://img.stage1st.com/forum/202505/18/005324pq8xooyt1ey4tz3o.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.65 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-18 00:53 上传
+
+[X 上的 あまべ：“ドゥのヘアー](https://x.com/M18FA/status/1923321005549703405)[https://t.co/zQAukkkrNk](https://t.co/zQAukkkrNk)” / X
+
+<img src="https://img.stage1st.com/forum/202505/18/003625p6m7l5onpl6xooj7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (429.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-18 00:36 上传
+
+[X 上的 でんでん：“「もうドゥーなってもいいや」 …次回どうなっちゃうんでしょうねえホント… #ジークアクス　#GQuuuuuuX　#ドゥー・ムラサメ #サイコガンダム　#エアコン #もうどうなってもいいや](https://x.com/dendenhouse/status/1923684409556992034)[https://t.co/j3wBAmyxbM](https://t.co/j3wBAmyxbM)” / X
+
+<img src="https://img.stage1st.com/forum/202505/18/003827q3lmiie3m7meiqmi.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (235.11 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-18 00:38 上传
+
+[X 上的 表面：“ドゥー #ジークアクス](https://x.com/mutyo_ko/status/1923575617351762273)[https://t.co/JhTUPumFEe](https://t.co/JhTUPumFEe)” / X
+
+<img src="https://img.stage1st.com/forum/202505/18/003639hq2uh7qdui77dwhq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.46 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-18 00:36 上传
+
+[X 上的 河真秀助（かまぼこ味）：“ドゥー落書き](https://x.com/shusuke002/status/1923651696863085028)[https://t.co/uUdX69lnhU](https://t.co/uUdX69lnhU)” / X
+
+<img src="https://img.stage1st.com/forum/202505/18/005708s8p65pclp5ppbzlv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (189.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-18 00:57 上传
+
+[X 上的 ゆうしゃめんま / Y. Menma：“ドゥー・ムラサメ@あばら #ジークアクス #GQuuuuuuX](https://x.com/obuchi314/status/1923634583175823715)[https://t.co/GoTQT7QPQZ](https://t.co/GoTQT7QPQZ)” / X
+
+<img src="https://img.stage1st.com/forum/202505/18/005503qzux89aanpdvizci.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.26 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-18 00:55 上传
+
+[X 上的 Hong：“ドゥー・ムラサメ~🏳 #GQuuuuuuX](https://x.com/HongBsWs/status/1923699761426858161)[https://t.co/zCXB2tHdEQ](https://t.co/zCXB2tHdEQ)” / X
+
+<img src="https://img.stage1st.com/forum/202505/18/003905xysbngkbbujttgz8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (573.57 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-18 00:39 上传
+
+[X 上的 錆々【さびさび】：“ドゥーとマチュ](https://x.com/Sabi_Sabi1234/status/1923355748400071138)[https://t.co/syHA3jLwsS](https://t.co/syHA3jLwsS)” / X
+
+<img src="https://img.stage1st.com/forum/202505/18/004003ezxemxz0oe7ohwj7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (634.94 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-18 00:40 上传
+
+[X 上的 錆々【さびさび】：“ゲーツくん今回も兄になれるのか⁉︎](https://x.com/Sabi_Sabi1234/status/1923712831754838452)[https://t.co/MCtL2a1qMN](https://t.co/MCtL2a1qMN)” / X
+
+<img src="https://img.stage1st.com/forum/202505/18/004042q9osqoqsq1fmzh1g.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (893.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-18 00:40 上传
+
+[X 上的 poto@にじそうさく10 東6 か-10：“ドゥーちゃんがなんやかんやで仲間になってくれないかなという妄想漫画 #ジークアクス](https://x.com/RelaxPoto/status/1923744765910319124)[https://t.co/mwp5JNdciq](https://t.co/mwp5JNdciq)” / X
+
+<img src="https://img.stage1st.com/forum/202505/18/004327f3jtam6elji3ijw3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (380.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-18 00:43 上传
+
+[X 上的 なまず　書籍バアド第二巻発売中！！！！！！：“マチュVSムラサメ犬（研）](https://x.com/namazu4545/status/1923650078348320896)[https://t.co/DRkUIMOs61](https://t.co/DRkUIMOs61)” / X
+
+<img src="https://img.stage1st.com/forum/202505/18/003804lg3gx6zfgfmfmg85.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.75 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-18 00:38 上传
+
+[X 上的 mel：“rkgkドゥーちゃん](https://x.com/melty_pot/status/1923767492520050791)[https://t.co/yTKIYIAdxR](https://t.co/yTKIYIAdxR)” / X
+
+<img src="https://img.stage1st.com/forum/202505/18/004437dtmkky5twjwj2eg2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.02 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-18 00:44 上传
+
