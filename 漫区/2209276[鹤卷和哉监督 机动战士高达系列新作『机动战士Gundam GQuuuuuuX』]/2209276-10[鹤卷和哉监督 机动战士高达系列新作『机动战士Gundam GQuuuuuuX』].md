@@ -1945,3 +1945,16 @@ NT也会被偷袭吗？</blockquote>
 —— 来自 鹅 ...</blockquote>
 坐上精神力开杀了，就算交心了还是该死吧。难不成还理解下。日常也没接触
 
+
+*****
+
+####  ryanghj  
+##### 13458#       发表于 2025-5-17 22:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67824754&amp;ptid=2209276" target="_blank">厄斯沃穆 发表于 2025-5-17 19:27</a>
+
+最戏剧冲突的展开难道不是，2与麻球战场聊天室交心（毕竟唯二krkr人），然后被修司击毙吗）
+
+—— 来自 鹅 ...</blockquote>
+什么巴纳吉和罗妮
+
