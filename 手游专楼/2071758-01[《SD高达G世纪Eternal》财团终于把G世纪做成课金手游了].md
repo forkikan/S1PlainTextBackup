@@ -15181,3 +15181,17 @@ NMD，SSR狗粮要三万GP，万代疯了吧</blockquote>
 
 朱德数据，看着不像假的，不过和卡缪相比差的有点多
 
+
+*****
+
+####  无念  
+##### 1424#       发表于 2025-5-17 22:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67824974&amp;ptid=2071758" target="_blank">一个陆仁贾 发表于 2025-5-17 20:33</a>
+怎么都是射击值比觉醒值高，浮游炮这么没面子吗？
+
+—— 来自 vivo V2419A, Android 15, 鹅球 v3.5.99 ...</blockquote>
+白板没加技能吧
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
