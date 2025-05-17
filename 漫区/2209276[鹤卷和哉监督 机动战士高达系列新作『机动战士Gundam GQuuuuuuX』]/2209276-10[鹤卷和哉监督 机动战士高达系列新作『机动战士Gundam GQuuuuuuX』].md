@@ -2290,3 +2290,20 @@ image.png
 死的这位不是NT</blockquote>
 哦，记错人了
 
+
+*****
+
+####  jojonathan  
+##### 13466#       发表于 2025-5-18 04:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67825828&amp;ptid=2209276" target="_blank">白色池塘 发表于 2025-5-18 02:14</a>
+忍不住好奇去推上看了下热闹，本来觉得部分场景、小细节捏他一下喜欢的偶像团体也没啥，后来看到连本作标题 ...</blockquote>
+这不是偶像宅滑坡的吗<img src="https://static.stage1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">感觉都蛮牵强的
+
+*****
+
+####  jojonathan  
+##### 13467#       发表于 2025-5-18 04:56
+
+实际上不已经有114514种来源猜测了<img src="https://static.stage1st.com/image/smiley/carton2017/088.png" referrerpolicy="no-referrer">
+
