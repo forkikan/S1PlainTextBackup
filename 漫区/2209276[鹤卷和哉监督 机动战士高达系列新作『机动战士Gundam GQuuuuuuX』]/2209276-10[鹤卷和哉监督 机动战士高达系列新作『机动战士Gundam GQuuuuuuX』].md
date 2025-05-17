@@ -1590,3 +1590,25 @@ nga在投票夏亚的cp
 
 机器人动画？音乐动画！
 
+
+*****
+
+####  王留美  
+##### 13430#       发表于 2025-5-17 13:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67823739&amp;ptid=2209276" target="_blank">蕾洁之风 发表于 2025-5-17 10:49</a>
+ 怎么78新加了F，哪来的消息</blockquote>
+现在又没了
+消息源也没找到，不知道哪来的消息
+
+*****
+
+####  Gysumitka  
+##### 13431#       发表于 2025-5-17 13:56
+
+GQX环状物出现的频次也挺高
+玛秋妈名字 Tamaki
+安琪送的甜甜圈店名是土星（Saturn Doughnuts）
+6号环线
+α、Ω起始结束也能构成
+

@@ -15113,3 +15113,29 @@ UR母舰最好有一个，词条对上相当于集体多一突，泛用性是贝
 
 <img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">NMD，SSR狗粮要三万GP，万代疯了吧
 
+
+*****
+
+####  一个陆仁贾  
+##### 1419#       发表于 2025-5-17 14:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67824034&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-5-17 12:55</a>
+NMD，SSR狗粮要三万GP，万代疯了吧</blockquote>
+没必要花金币买那个吧，最多遇到缺的武装升级材料可以买
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  rockroxas  
+##### 1420#       发表于 2025-5-17 14:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67824160&amp;ptid=2071758" target="_blank">一个陆仁贾 发表于 2025-5-17 14:01</a>
+
+没必要花金币买那个吧，最多遇到缺的武装升级材料可以买
+
+—— 来自 vivo V2419A, Android 15, 鹅球 v3.5 ...</blockquote>
+他说的SSR突破材料，gp商店那个
+
+题外话，武装材料感觉最需要买的是缺位的R（
+
