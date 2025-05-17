@@ -15205,3 +15205,11 @@ URZZ卖点应该是第一个攻击地图炮，地图炮逻辑上不太是觉醒�
 
 就是不知道朱总有没有三动，没有那最佳驾驶还得换人
 
+
+*****
+
+####  帕蕾莉亚  
+##### 1426#       发表于 2025-5-17 22:52
+
+解包的东西看看就得了，想想过千觉醒奶奶头<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

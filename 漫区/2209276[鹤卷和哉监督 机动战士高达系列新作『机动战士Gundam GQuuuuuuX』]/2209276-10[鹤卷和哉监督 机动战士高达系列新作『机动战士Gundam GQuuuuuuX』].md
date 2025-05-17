@@ -1972,3 +1972,19 @@ NT也会被偷袭吗？</blockquote>
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  downnote  
+##### 13460#       发表于 2025-5-17 22:48
+
+喵安就像开天窗，所以02就像掀屋顶。遇到掀屋顶的对手就觉得好姐妹开天窗没毛病，愤而做掉02么
+
+
+*****
+
+####  otaku21126  
+##### 13461#       发表于 2025-5-17 22:53
+
+下一话是520，会有给西野七濑庆生的细节彩蛋吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
