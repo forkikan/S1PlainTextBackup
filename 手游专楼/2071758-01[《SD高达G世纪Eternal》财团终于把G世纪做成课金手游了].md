@@ -15165,3 +15165,19 @@ NMD，SSR狗粮要三万GP，万代疯了吧</blockquote>
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  captoon  
+##### 1423#       发表于 2025-5-17 22:09
+
+<img src="https://img.stage1st.com/forum/202505/17/220856zoaohk6l6a2z3lft.png" referrerpolicy="no-referrer">
+
+<strong>6893E0F496B6E9CCAB70EF6F0521E7E8.png</strong> (95.21 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-17 22:08 上传
+
+朱德数据，看着不像假的，不过和卡缪相比差的有点多
+
