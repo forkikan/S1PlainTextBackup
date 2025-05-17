@@ -1471,3 +1471,11 @@ nga在投票夏亚的cp
 怎么78新加了F，哪来的消息
 <img src="https://p.sda1.dev/24/3bced5e0e4bfeae588b45ea6f9d5d718/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oi99o  
+##### 13418#       发表于 2025-5-17 11:02
+
+12650日元，100%是大空调了吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
