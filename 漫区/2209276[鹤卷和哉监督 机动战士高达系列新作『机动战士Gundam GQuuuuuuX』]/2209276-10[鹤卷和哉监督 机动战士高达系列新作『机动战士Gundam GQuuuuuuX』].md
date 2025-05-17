@@ -2279,3 +2279,14 @@ image.png
 
 片子已经播了一半，鹤卷要是能把这些未解明关键词用符合剧情的新含义圆上那算他厉害，但接下来要是翻车了就等着吃回旋镖吧
 
+
+*****
+
+####  xwz  
+##### 13465#       发表于 2025-5-18 04:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67824731&amp;ptid=2209276" target="_blank">Concrete 发表于 2025-5-17 19:18</a>
+
+死的这位不是NT</blockquote>
+哦，记错人了
+
