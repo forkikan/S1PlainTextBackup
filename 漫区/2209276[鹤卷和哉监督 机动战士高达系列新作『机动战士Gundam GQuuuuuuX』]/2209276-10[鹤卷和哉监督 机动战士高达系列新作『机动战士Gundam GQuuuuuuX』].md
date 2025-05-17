@@ -2269,3 +2269,13 @@ image.png
 
 <img src="https://img.stage1st.com/forum/202505/18/013230rp6fav6z4ectfvgt.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  白色池塘  
+##### 13464#       发表于 2025-5-18 02:14
+
+忍不住好奇去推上看了下热闹，本来觉得部分场景、小细节捏他一下喜欢的偶像团体也没啥，后来看到连本作标题、三主角名字、沙伦玫瑰都在致敬乃木坂的时候确实麻了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+片子已经播了一半，鹤卷要是能把这些未解明关键词用符合剧情的新含义圆上那算他厉害，但接下来要是翻车了就等着吃回旋镖吧
+
