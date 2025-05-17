@@ -1513,3 +1513,26 @@ nga在投票夏亚的cp
 <blockquote>告别场特典情报公开！5月20日-6月3日，至指定活动影院购票观影，有机会获得人物作画总监池田由美、小堀史绘与机械作画总监金世俊绘制的插画卡特典！驾驶员集结，驾驶GQuuuuuuX（吉夸克斯）奔向宇宙，共赴最后的大银幕之约！电影全国热映中！ 转关晒出告别场期间的纸质票根，送出一份GQuuuuuuX（吉夸克斯）模型！</blockquote>
 <img src="https://p.sda1.dev/24/15c7be785785ccfd936c4b7bb40eefcf/008IsitMly1i1icah1bwgj31jk4u21l0.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  三友非三清  
+##### 13423#       发表于 2025-5-17 12:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67823322&amp;ptid=2209276" target="_blank">王留美 发表于 2025-5-17 02:33</a>
+
+不是哦
+
+当年马克螺丝UC0048播放的时候可没被哪个偶像厨开闭厨拿正眼瞧过的，人均一个为什么不拍49？
+
+怎么现 ...</blockquote>
+你这岁月史书也太拙劣了吧
+
+0048这片不管在A站和B站上都有
+
+而且弹幕也没被清空
+
+随便打开一看就知道发弹幕的大部分都是当年的粉丝
+
+而且我看他们看的挺开心的
+
