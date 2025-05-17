@@ -1504,3 +1504,12 @@ nga在投票夏亚的cp
 
 感觉大空调可玩性更高<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  千恋万花  
+##### 13422#       发表于 2025-5-17 11:57
+
+<blockquote>告别场特典情报公开！5月20日-6月3日，至指定活动影院购票观影，有机会获得人物作画总监池田由美、小堀史绘与机械作画总监金世俊绘制的插画卡特典！驾驶员集结，驾驶GQuuuuuuX（吉夸克斯）奔向宇宙，共赴最后的大银幕之约！电影全国热映中！ 转关晒出告别场期间的纸质票根，送出一份GQuuuuuuX（吉夸克斯）模型！</blockquote>
+<img src="https://p.sda1.dev/24/15c7be785785ccfd936c4b7bb40eefcf/008IsitMly1i1icah1bwgj31jk4u21l0.jpg" referrerpolicy="no-referrer">
+
