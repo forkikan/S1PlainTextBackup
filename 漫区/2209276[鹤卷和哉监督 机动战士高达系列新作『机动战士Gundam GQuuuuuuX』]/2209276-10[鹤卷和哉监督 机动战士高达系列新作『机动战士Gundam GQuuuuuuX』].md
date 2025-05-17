@@ -1496,3 +1496,11 @@ nga在投票夏亚的cp
  12650日元，100%是大空调了吧</blockquote>
 也有可能是基克罗格……
 
+
+*****
+
+####  猪突猛进R  
+##### 13421#       发表于 2025-5-17 11:36
+
+感觉大空调可玩性更高<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
