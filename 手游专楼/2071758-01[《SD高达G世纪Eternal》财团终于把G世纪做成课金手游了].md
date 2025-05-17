@@ -15213,3 +15213,14 @@ URZZ卖点应该是第一个攻击地图炮，地图炮逻辑上不太是觉醒�
 
 解包的东西看看就得了，想想过千觉醒奶奶头<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 1427#       发表于 2025-5-17 23:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67824834&amp;ptid=2071758" target="_blank">captoon 发表于 2025-5-17 19:57</a>
+
+不保真</blockquote>
+克劳泽这白值有点太低了吧
+
