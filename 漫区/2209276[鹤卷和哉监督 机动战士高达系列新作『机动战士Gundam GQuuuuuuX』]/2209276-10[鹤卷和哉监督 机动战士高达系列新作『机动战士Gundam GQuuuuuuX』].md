@@ -1446,3 +1446,19 @@ nga在投票夏亚的cp
 
 2025-5-17 10:26 上传
 
+
+*****
+
+####  变老的大二  
+##### 13416#       发表于 2025-5-17 10:42
+
+不过这个核心设定致敬0048确实有点难绷<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，太强大了，偶像厨。
+
+<img src="https://img.stage1st.com/forum/202505/17/104224l5smdg5gse5rg5vv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (222.56 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-17 10:42 上传
+
