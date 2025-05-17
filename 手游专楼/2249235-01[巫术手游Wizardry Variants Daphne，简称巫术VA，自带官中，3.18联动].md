@@ -881,3 +881,13 @@ roll到13%攻和18攻就可以用+4-6攻击改掉防御，然后只强化第一�
 最高应该是到妖异五华咆哮杂物</blockquote>
 不是动态掉落那我不用推主线了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Flechette  
+##### 345#       发表于 2025-5-17 17:46
+
+试了一下D难度的门番，新技能都是杀招<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。随机用的乱打单体版只有170闪的贼能吃下，群体版大概率捶死一个后排，无前摇的吼叫虽然只打一排，但是调队形回血又要空过一回合。狂暴阶段的回合顺序不好，骑士没开出骑士守护，直接把前排全吼死了，非常暴力的数值
+
+不过这次神罚卷轴没带满，多带了一些回复药，实际打起来根本没有喝药的时间，感觉再凹几次应该就能过
+
