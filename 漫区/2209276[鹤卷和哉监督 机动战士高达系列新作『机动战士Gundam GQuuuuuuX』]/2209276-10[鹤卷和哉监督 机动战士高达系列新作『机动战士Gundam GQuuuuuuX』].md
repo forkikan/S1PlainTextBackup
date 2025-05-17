@@ -1958,3 +1958,17 @@ NT也会被偷袭吗？</blockquote>
 —— 来自 鹅 ...</blockquote>
 什么巴纳吉和罗妮
 
+
+*****
+
+####  无念  
+##### 13459#       发表于 2025-5-17 22:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67824754&amp;ptid=2209276" target="_blank">厄斯沃穆 发表于 2025-5-17 19:27</a>
+最戏剧冲突的展开难道不是，2与麻球战场聊天室交心（毕竟唯二krkr人），然后被修司击毙吗）
+
+—— 来自 鹅 ...</blockquote>
+就小番茄那个脑回路，怕不是开了krkr发现里面有个2，立马毙了她然后找修斯去了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">krkr明明是我和修斯两个人的东西！
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
