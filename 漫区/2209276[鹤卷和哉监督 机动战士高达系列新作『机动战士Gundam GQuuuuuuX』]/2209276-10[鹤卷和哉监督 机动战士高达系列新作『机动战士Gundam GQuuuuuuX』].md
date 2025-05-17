@@ -1846,3 +1846,13 @@ GQX环状物出现的频次也挺高
 
 哈曼算倒贴，葵司也是，葵司还有一层利用的关系。
 
+
+*****
+
+####  Gysumitka  
+##### 13449#       发表于 2025-5-17 17:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67824333&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-17 15:58</a>
+玛秋的耳环也是</blockquote>
+玛秋妈的耳环刚好是一横，正好封上<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
