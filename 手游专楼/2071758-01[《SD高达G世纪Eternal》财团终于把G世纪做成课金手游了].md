@@ -15093,3 +15093,15 @@ UR母舰最好有一个，词条对上相当于集体多一突，泛用性是贝
 
 —— 来自 vivo V2408A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  光辉传递者  
+##### 1417#       发表于 2025-5-17 09:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67823284&amp;ptid=2071758" target="_blank">马桶3 发表于 2025-5-17 01:42</a>
+用户自己买曲子就是游戏帮音协代销，实际上是单个用户和音协之间的买断型契约，与游戏方无差别在每一个客 ...</blockquote>
+原来如此，受教了。
+
+—— 来自 LENOVO TB321FU, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
