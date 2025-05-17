@@ -1832,3 +1832,17 @@ GQX环状物出现的频次也挺高
 
 —— 来自 samsung SM-S9110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  猪突猛进R  
+##### 13448#       发表于 2025-5-17 16:54
+
+说夏亚是萝莉控是邱尼造的谣吧，然后戏里戏外大家都信了。<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+夏亚是母控没得说，而拉拉除了年纪小点外并没有一点萝莉的样子。
+
+之后谈的几个都是成熟女性。
+
+哈曼算倒贴，葵司也是，葵司还有一层利用的关系。
+
