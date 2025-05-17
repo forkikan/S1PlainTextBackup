@@ -560,3 +560,22 @@ SO系列一定要选一个的话必定是SO3 DC，2R那个体量和战斗深度�
 
 Ignjp的话痨玩家还录节目来吐槽这个榜单了笑死
 
+
+*****
+
+####  kimmmmmm  
+##### 68#       发表于 2025-5-17 11:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67808407&amp;ptid=2251925" target="_blank">kelveen 发表于 2025-5-13 09:41</a>
+SO系列一定要选一个的话必定是SO3 DC，2R那个体量和战斗深度就不要碰瓷了。 ...</blockquote>
+现在只能希望3A能重制下3dc了
+
+—— 来自 Xiaomi 23116PN5BC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  Schwftyyyyy  
+##### 69#       发表于 2025-5-17 11:09
+
+我tm那么大一个xb2去哪了
+

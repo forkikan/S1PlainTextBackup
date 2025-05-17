@@ -59,3 +59,16 @@
 话说母鸡卡都播完了也没啥好藏的了吧，怎么不来点狗团的小动画或者迷子集会之类的玩意 ...</blockquote>
 往坏了想，wsd内部对现在动画鸡团几个人的塑造分歧很大<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Hchan  
+##### 40901#       发表于 2025-5-17 11:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67823684&amp;ptid=2208921" target="_blank">刑部姬真可爱 发表于 2025-5-17 10:18</a>
+
+往坏了想，wsd内部对现在动画鸡团几个人的塑造分歧很大</blockquote>
+母鸡卡这次动画事故简直就是突击莉莉的超级升级版。不过当年佐伯可不惯着武士道，直接说了武士道干涉过多，突击莉莉制作现场很混乱，开头之后的剧本也全改了。相必将来也不打算接武士道的活了
+
+这次场外因素肉眼可见的更多，柿本这种这么多年来只能拍广告片的二流监督肯定是兜不住的，又不能损失与武士道的关系。
+
