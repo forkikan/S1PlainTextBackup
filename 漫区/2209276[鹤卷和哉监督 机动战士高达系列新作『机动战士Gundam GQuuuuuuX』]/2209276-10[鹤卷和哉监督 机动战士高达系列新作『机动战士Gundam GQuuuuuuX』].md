@@ -1536,3 +1536,22 @@ nga在投票夏亚的cp
 
 而且我看他们看的挺开心的
 
+
+*****
+
+####  千恋万花  
+##### 13424#       发表于 2025-5-17 12:31
+
+<blockquote> 【音乐情报】第7话新插曲『HALO/光环』演唱：无瓜无柠</blockquote>
+<img src="https://files.catbox.moe/ihz655.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 13425#       发表于 2025-5-17 12:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67823988&amp;ptid=2209276" target="_blank">千恋万花 发表于 2025-5-17 12:31</a></blockquote>
+这插曲封面怎么是第五话的，还是说第七话又有一次相同镜头
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
