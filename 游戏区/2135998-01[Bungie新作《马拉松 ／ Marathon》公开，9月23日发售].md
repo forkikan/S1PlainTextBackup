@@ -951,3 +951,13 @@ Bunige 脸都不要了，已经不是第一次了
 
 现在被挖出来整个概念美术都是照搬素材苦主的，官方看来要土下座了
 
+
+*****
+
+####  结发受长生  
+##### 86#       发表于 2025-5-17 12:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">不会都碰不到三角洲就死了吧
+
+—— 来自 OnePlus PKR110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
