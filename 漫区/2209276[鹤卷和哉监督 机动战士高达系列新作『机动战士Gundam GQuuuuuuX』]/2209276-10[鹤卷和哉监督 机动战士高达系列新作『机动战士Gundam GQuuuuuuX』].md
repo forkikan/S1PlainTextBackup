@@ -1428,3 +1428,21 @@ nga在投票夏亚的cp
 
 五话的川字日光浴场景红高表面是否带有宇宙污染对人体有害…二次元美少年少女的事情不用想那么明白…什么啊原来只是想画三次元激推偶像的下着写真场景，那就是没有问题了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  千千千千鸟  
+##### 13415#       发表于 2025-5-17 10:24
+
+ 本帖最后由 千千千千鸟 于 2025-5-17 10:26 编辑 
+
+竹的人设是越看越顺眼，特别是科莫利标志性的平行斜线分色瞳孔，我觉得这角色的性格是一瞬间就出来了，非常厉害，很多同人图根本就忽略了这个设计<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202505/17/102634hc3colxfj397i9xo.jpg" referrerpolicy="no-referrer">
+
+<strong>Gq1ujDMWAAAlo5x.jpg</strong> (138.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-17 10:26 上传
+

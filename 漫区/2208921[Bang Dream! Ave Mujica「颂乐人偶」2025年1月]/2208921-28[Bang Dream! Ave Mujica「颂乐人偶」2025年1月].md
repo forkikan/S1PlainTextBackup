@@ -48,3 +48,14 @@
 
 话说母鸡卡都播完了也没啥好藏的了吧，怎么不来点狗团的小动画或者迷子集会之类的玩意
 
+
+*****
+
+####  刑部姬真可爱  
+##### 40900#       发表于 2025-5-17 10:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67823654&amp;ptid=2208921" target="_blank">Hchan 发表于 2025-5-17 10:01</a>
+
+话说母鸡卡都播完了也没啥好藏的了吧，怎么不来点狗团的小动画或者迷子集会之类的玩意 ...</blockquote>
+往坏了想，wsd内部对现在动画鸡团几个人的塑造分歧很大<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
