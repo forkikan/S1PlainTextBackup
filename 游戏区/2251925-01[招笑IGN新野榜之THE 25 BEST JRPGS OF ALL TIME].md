@@ -595,3 +595,15 @@ SO系列一定要选一个的话必定是SO3 DC，2R那个体量和战斗深度�
 
 只能说除了ct之外全都不知道怎么排的，或许是专门拿出来给人吵架的，也有可能是拿出来给人骂的
 
+
+*****
+
+####  ppa11  
+##### 72#       发表于 2025-5-17 20:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67823780&amp;ptid=2251925" target="_blank">Schwftyyyyy 发表于 2025-5-17 11:09</a>
+我tm那么大一个xb2去哪了</blockquote>
+xb1都没有呢
+
+—— 來自 realme RMX3700, Android 14, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

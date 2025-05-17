@@ -183,3 +183,61 @@ TV动画「BanG Dream! Ave Mujica」Blu-ray 上卷/下卷
 
        [https://www.bilibili.com/video/BV1g4E4zsEQr/](https://www.bilibili.com/video/BV1g4E4zsEQr/)
 
+
+*****
+
+####  堀内爱里衣  
+##### 40906#       发表于 2025-5-17 20:21
+
+       
+
+<img src="https://img.stage1st.com/forum/202505/17/202116axl8n6hdn00q707q.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2025-05-17_20-20-20.jpg</strong> (334.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-17 20:21 上传
+
+       [https://x.com/akiba_gema/status/1923544245312552996](https://x.com/akiba_gema/status/1923544245312552996)
+
+*****
+
+####  堀内爱里衣  
+##### 40907#       发表于 2025-5-17 20:23
+
+       
+
+<img src="https://img.stage1st.com/forum/202505/17/202321aoszml8s8lx2001t.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-05-17_20-21-55.jpg</strong> (375.05 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-17 20:23 上传
+
+       [https://x.com/shibauraniken/status/1923379145611870696](https://x.com/shibauraniken/status/1923379145611870696)
+
+       [https://t.co/YM7qLBDIFX](https://t.co/YM7qLBDIFX)
+
+       [https://t.co/Xa2zzblFIG](https://t.co/Xa2zzblFIG)
+
+*****
+
+####  堀内爱里衣  
+##### 40908#       发表于 2025-5-17 20:25
+
+       
+
+<img src="https://img.stage1st.com/forum/202505/17/202451vas58vq8zk5j8881.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-05-17_20-24-20.jpg</strong> (281.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-17 20:24 上传
+
+       [https://x.com/esp_t_talent/status/1923287308901490980](https://x.com/esp_t_talent/status/1923287308901490980)
+
+       [https://t.co/AkekuZHVjY](https://t.co/AkekuZHVjY)
+
