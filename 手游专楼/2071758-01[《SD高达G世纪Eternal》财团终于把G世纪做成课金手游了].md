@@ -15139,3 +15139,19 @@ NMD，SSR狗粮要三万GP，万代疯了吧</blockquote>
 
 题外话，武装材料感觉最需要买的是缺位的R（
 
+
+*****
+
+####  captoon  
+##### 1421#       发表于 2025-5-17 19:57
+
+<img src="https://img.stage1st.com/forum/202505/17/195735btczizw9i40f0ucd.jpg" referrerpolicy="no-referrer">
+
+<strong>C76AE68D2B2B091D0EC805842DA70298.jpg</strong> (128.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-17 19:57 上传
+
+不保真
+
