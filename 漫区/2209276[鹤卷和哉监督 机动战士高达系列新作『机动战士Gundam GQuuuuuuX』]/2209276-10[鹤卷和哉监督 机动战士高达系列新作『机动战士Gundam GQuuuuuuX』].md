@@ -1479,3 +1479,20 @@ nga在投票夏亚的cp
 
 12650日元，100%是大空调了吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  花達香奈  
+##### 13419#       发表于 2025-5-17 11:27
+
+也可能是爱马仕<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  王留美  
+##### 13420#       发表于 2025-5-17 11:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67823770&amp;ptid=2209276" target="_blank">oi99o 发表于 2025-5-17 11:02</a>
+ 12650日元，100%是大空调了吧</blockquote>
+也有可能是基克罗格……
+
