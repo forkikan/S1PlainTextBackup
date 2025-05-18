@@ -15320,3 +15320,15 @@ URZZ卖点应该是第一个攻击地图炮，地图炮逻辑上不太是觉醒�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不氪金只靠刷初始的UR和开发SSR基本游戏内容100%都能过，每天上线三次做下任务外加挂机把体力消耗干就无事可做了
 
+
+*****
+
+####  HEERO.W  
+##### 1436#       发表于 2025-5-18 15:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67826847&amp;ptid=2071758" target="_blank">windtrack 发表于 2025-5-18 15:45</a>
+不氪金只靠刷初始的UR和开发SSR基本游戏内容100%都能过，每天上线三次做下任务外加挂机把体力消耗干就无事 ...</blockquote>
+一个持续更新的手游就别谈基础游戏内容了，这卡池角色膨胀速度和活动本难度，只有氪佬和欧洲人才能玩的舒服
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
