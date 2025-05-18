@@ -54,3 +54,11 @@
 
 想象了一下噗哩伦变身，这种弱智系的q娃不是作为主角而是追加的话不觉得很奇怪吗？
 
+
+*****
+
+####  pokemon最爱  
+##### 869#       发表于 2025-5-18 09:35
+
+话说这集应该是系列里非常难得的Q娃先变身再赶路到怪物旁边？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
