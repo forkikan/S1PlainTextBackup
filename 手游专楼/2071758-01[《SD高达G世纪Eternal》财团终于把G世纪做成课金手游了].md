@@ -15399,3 +15399,15 @@ URZZ卖点应该是第一个攻击地图炮，地图炮逻辑上不太是觉醒�
 刷初始怎么刷，有什么强力机子吗</blockquote>
 新手上路现在最好有exia，山楂饼，Z，支援有风灵或者凤凰，目前内容不多，打完之后就是每日准点收菜，强力boss我这边全程自动也能随便乱杀，看后面加什么了
 
+
+*****
+
+####  无念  
+##### 1443#       发表于 2025-5-18 21:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67827320&amp;ptid=2071758" target="_blank">HEERO.W 发表于 2025-5-18 19:25</a>
+上期金异端和蓝异端都80多万，你猜下个0083有多少血</blockquote>
+难说，毕竟红高达和现在两个boss只能说不是一个思路
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
