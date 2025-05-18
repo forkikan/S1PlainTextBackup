@@ -988,3 +988,14 @@ Bunige 脸都不要了，已经不是第一次了
 
 忘了原来有专楼啊，可以转型乐子楼了，看这游戏怎么在耻笑中暴死<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ak123  
+##### 89#       发表于 2025-5-18 13:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67748005&amp;ptid=2135998" target="_blank">东方定助 发表于 2025-4-23 09:35</a>
+
+艺术总监的代表作</blockquote>
+难怪当初看这个图怎么看怎么觉得比马拉松的还土的多，现在破案了美术就不是他搞的，纯粹偷别人的东西<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
