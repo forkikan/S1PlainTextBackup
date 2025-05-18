@@ -15234,3 +15234,21 @@ URZZ卖点应该是第一个攻击地图炮，地图炮逻辑上不太是觉醒�
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  ChrisSnake  
+##### 1429#       发表于 2025-5-18 09:21
+
+<img src="https://img.stage1st.com/forum/202505/18/092044vvqbva1nqyu1qyqm.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6104.jpeg</strong> (662.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-18 09:20 上传
+
+终于把所有可开发5射程搞完了
+
+下一步搞攻击机？
+
