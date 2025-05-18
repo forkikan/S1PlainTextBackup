@@ -2537,3 +2537,29 @@ image.png
 
 至于“高达是这么说的”的口癖，可参考村雨兔说自己是精神力高达的心脏，修司何尝不是红高达的心脏呢。
 
+
+*****
+
+####  ryanghj  
+##### 13489#       发表于 2025-5-18 22:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67827764&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-18 21:52</a>
+
+修司就是高达本达啊。
+
+因为发生泽克诺瓦，导致夏亚和高达这两个魂魄交换，夏亚变成了机魂，而原来高达的机 ...</blockquote>
+正史里有肉体消失精神永存的桥段，还没有从精神化为肉体的桥段，这可比独角兽还神棍，不可能是这样的
+
+
+*****
+
+####  psycho_Gadfly  
+##### 13490#       发表于 2025-5-18 22:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67827764&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-18 21:52</a>
+
+修司就是高达本达啊。
+
+因为发生泽克诺瓦，导致夏亚和高达这两个魂魄交换，夏亚变成了机魂，而原来高达的机 ...</blockquote>
+傻子那的盆友又多了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
