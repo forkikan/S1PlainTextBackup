@@ -2368,3 +2368,11 @@ image.png
 
 麻球不信红高达会说话觉得都是修基表达自己想法的借口，所以进入狗血三角恋模式，这主角现在是gq片里第一小丑<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ryanghj  
+##### 13474#       发表于 2025-5-18 16:51
+
+我倒觉得真不一定有鸭子的机魂之类的东西，这片好多误导
+
