@@ -15332,3 +15332,24 @@ URZZ卖点应该是第一个攻击地图炮，地图炮逻辑上不太是觉醒�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  闲度朝夕  
+##### 1437#       发表于 2025-5-18 16:09
+
+<blockquote>HEERO.W 发表于 2025-5-18 15:51
+一个持续更新的手游就别谈基础游戏内容了，这卡池角色膨胀速度和活动本难度，只有氪佬和欧洲人才能玩的舒 ...</blockquote>
+你说卡池膨胀就算了，活动本什么时候上过难度
+
+*****
+
+####  HEERO.W  
+##### 1438#       发表于 2025-5-18 16:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67826907&amp;ptid=2071758" target="_blank">闲度朝夕 发表于 2025-5-18 16:09</a>
+你说卡池膨胀就算了，活动本什么时候上过难度</blockquote>
+活动难度当然是随着卡池膨胀程度逐步提升，万代会好心到只膨胀池子不膨胀敌人？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
