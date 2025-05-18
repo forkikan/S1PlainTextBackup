@@ -2376,3 +2376,16 @@ image.png
 
 我倒觉得真不一定有鸭子的机魂之类的东西，这片好多误导
 
+
+*****
+
+####  seedees3  
+##### 13475#       发表于 2025-5-18 17:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67826264&amp;ptid=2209276" target="_blank">盐盐盐盐盐 发表于 2025-5-18 10:51</a>
+
+マチュ是取自46我信（这个小名和麻球本名很难联想到一起），喵安我不太信，魔女名字取自46我也觉得有点可信 ...</blockquote>
+因为松村沙友理除了まっちゅん这个昵称外，还有个更官方的昵称叫苹果
+
+松村沙友理🍎さゆりんご (@matsumura_sayuri_official)
+
