@@ -2563,3 +2563,13 @@ image.png
 因为发生泽克诺瓦，导致夏亚和高达这两个魂魄交换，夏亚变成了机魂，而原来高达的机 ...</blockquote>
 傻子那的盆友又多了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无念  
+##### 13491#       发表于 2025-5-18 22:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">与其说是机魂我情愿相信鸭子这是拉了个异世界疯了的卡喵过来重新养成，毕竟这可是鸭子在奥古最大的遗憾了
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
