@@ -2348,3 +2348,11 @@ image.png
 但是什么苹果意向来自46我就一点不信了，咋地苹果被46注册商标了吗（
 还有zeknova来自0048就更假了，这俩大概都是取的nova（新星）的词义，这话说的就像麻球叫天手→天照大神→抄袭火影一样乱扯，而且46厨我觉得是不屑于使用0048梗的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jojonathan  
+##### 13472#       发表于 2025-5-18 16:29
+
+等后天晚上更新了感觉可以开搞gqx战力学了<img src="https://static.stage1st.com/image/smiley/carton2017/088.png" referrerpolicy="no-referrer">
+

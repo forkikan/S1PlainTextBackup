@@ -527,3 +527,19 @@ DSS被鱿鱼打烂了，暂时脱离战场。
 <img src="https://p.sda1.dev/24/39902ac930ec7ef68528bee73c2ac799/CMP_20250518115358739.jpg" referrerpolicy="no-referrer">
 隔壁剑星上pc也锁区了，证明锁区确实是索尼要求的
 
+
+*****
+
+####  LrGsite  
+##### 5976#       发表于 2025-5-18 16:37
+
+@LionelSchramm
+
+<img src="https://img.stage1st.com/forum/202505/18/163731bzrdijiqirrig9gg.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_ONE_RAMM(@LionelSchramm)_20250410-121936_1910306671055806567_photo.jpg</strong> (564.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-18 16:37 上传
+
