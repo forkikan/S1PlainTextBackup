@@ -2356,3 +2356,15 @@ image.png
 
 等后天晚上更新了感觉可以开搞gqx战力学了<img src="https://static.stage1st.com/image/smiley/carton2017/088.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  llysander  
+##### 13473#       发表于 2025-5-18 16:43
+
+脑补了下87鸭和gq片场角色互动的话
+
+“本心就好”“两种喵安都喜欢”还真可能是鸭的心声，战场上为胜利冷静杀伐，战场下又充满人味的感性不就是鸭喜欢卡喵味儿<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+麻球不信红高达会说话觉得都是修基表达自己想法的借口，所以进入狗血三角恋模式，这主角现在是gq片里第一小丑<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

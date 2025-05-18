@@ -543,3 +543,19 @@ DSS被鱿鱼打烂了，暂时脱离战场。
 
 2025-5-18 16:37 上传
 
+
+*****
+
+####  LrGsite  
+##### 5977#       发表于 2025-5-18 16:45
+
+这光能者舰队大军势不可挡啊，直接给了个敌人的舰队条，应该是必败的了，马上可以进入最终防卫地球线了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202505/18/164502z1piapei2i2t2eh4.png" referrerpolicy="no-referrer">
+
+<strong>[AK35[VNJ]`D`PQS~(6031X.png</strong> (460.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-18 16:45 上传
+
