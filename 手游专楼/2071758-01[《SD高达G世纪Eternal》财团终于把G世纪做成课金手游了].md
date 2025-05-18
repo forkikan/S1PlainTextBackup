@@ -15312,3 +15312,11 @@ URZZ卖点应该是第一个攻击地图炮，地图炮逻辑上不太是觉醒�
 支援机没必要sp吧，上debuff不那么靠等级，给攻击机sp打伤害不好嘛，现在sp获取还没啥渠道 ...</blockquote>
 开服的时候没注意 以为很容易获取 上都上了 随便吧
 
+
+*****
+
+####  windtrack  
+##### 1435#       发表于 2025-5-18 15:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不氪金只靠刷初始的UR和开发SSR基本游戏内容100%都能过，每天上线三次做下任务外加挂机把体力消耗干就无事可做了
+
