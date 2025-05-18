@@ -15423,3 +15423,13 @@ ex也能自动吗？
 
 —— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  希望之花  
+##### 1445#       发表于 2025-5-19 06:50
+
+urz和铁奥的战场图标和普通版竟然是一样的，z还不能变形
+
+这次出的只是开服期间的普通限定ur，等哪次周年再出身上缠绕紫光的觉醒版吧<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
