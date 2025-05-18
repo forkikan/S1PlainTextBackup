@@ -15274,3 +15274,30 @@ URZZ卖点应该是第一个攻击地图炮，地图炮逻辑上不太是觉醒�
 
 —— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  rockroxas  
+##### 1432#       发表于 2025-5-18 13:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67826562&amp;ptid=2071758" target="_blank">体制 发表于 2025-5-18 13:10</a>
+
+地图炮杀人不能再动啊
+
+—— 来自 Xiaomi 2211133C, Android 15, 鹅球 v3.5.99-alpha</blockquote>
+三动更方便鼓气走位
+
+不过想想之前自由异端流星的地图炮要走位是因为扇形想到最佳位置难度更高，ZZ大概不那么需求
+
+*****
+
+####  光辉传递者  
+##### 1433#       发表于 2025-5-18 13:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67820880&amp;ptid=2071758" target="_blank">zzy516232108 发表于 2025-5-16 12:14</a>
+
+只看过0079和水魔，GQUX跟着看到现在，手游不充钱当个服务器蛀虫能玩舒服吗 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">放心，包不舒服的。氪金和不氪金一样的人人有罪受呀。
+
+但是反过来讲氪不氪金都一样玩就是了。
+
