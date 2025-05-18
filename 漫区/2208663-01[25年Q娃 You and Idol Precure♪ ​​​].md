@@ -104,3 +104,12 @@
 
 最后梅洛这已经有强化道具了结合女王的台词有什么身世呢？
 
+
+*****
+
+####  粉儿alice  
+##### 874#       发表于 2025-5-18 22:15
+
+锁和钥匙角色两追加变身器了吧
+不过隔壁PO变身也有明显的锁要素<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 东映和万代该好好查一下是不是有Takara Tomy的间谍了吧
+
