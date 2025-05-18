@@ -3221,3 +3221,22 @@ Q：像八千代能从嘴里喷热水、头顶冒烟花等增加了很多实用�
 
 什么都嗑只会让人嗑嗨
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 280#       发表于 2025-5-18 19:18
+
+明明有宇宙通用语，却没有宇宙通用货币吗？到这集还得捡钱。
+
+
+*****
+
+####  センコウ  
+##### 281#       发表于 2025-5-18 19:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67827303&amp;ptid=2196984" target="_blank">Dai-Dai-Dai-Dai 发表于 2025-5-18 19:18</a>
+
+明明有宇宙通用语，却没有宇宙通用货币吗？到这集还得捡钱。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">地球不能用呗，说白了收钱都没任何意义了，但收钱是他们机器人的程序，必须执行而已
+

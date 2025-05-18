@@ -15367,3 +15367,16 @@ URZZ卖点应该是第一个攻击地图炮，地图炮逻辑上不太是觉醒�
 
 —— 来自 vivo V2408A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  HEERO.W  
+##### 1440#       发表于 2025-5-18 19:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67827293&amp;ptid=2071758" target="_blank">马桶3 发表于 2025-5-18 19:11</a>
+
+贷款吃屎
+
+—— 来自 vivo V2408A, Android 15, 鹅球 v3.5.99</blockquote>
+上期金异端和蓝异端都80多万，你猜下个0083有多少血
+
