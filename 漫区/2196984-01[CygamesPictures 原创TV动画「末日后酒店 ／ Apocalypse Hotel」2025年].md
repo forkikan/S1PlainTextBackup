@@ -3240,3 +3240,14 @@ Q：像八千代能从嘴里喷热水、头顶冒烟花等增加了很多实用�
 明明有宇宙通用语，却没有宇宙通用货币吗？到这集还得捡钱。</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">地球不能用呗，说白了收钱都没任何意义了，但收钱是他们机器人的程序，必须执行而已
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 282#       发表于 2025-5-18 19:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67827311&amp;ptid=2196984" target="_blank">センコウ 发表于 2025-5-18 19:21</a>
+
+地球不能用呗，说白了收钱都没任何意义了，但收钱是他们机器人的程序，必须执行而已 ...</blockquote>
+请外星技工把停工的萝卜拉起来时就能用了，不过可以预想到那种哀伤的氛围会大打折扣<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
