@@ -15301,3 +15301,14 @@ URZZ卖点应该是第一个攻击地图炮，地图炮逻辑上不太是觉醒�
 
 但是反过来讲氪不氪金都一样玩就是了。
 
+
+*****
+
+####  ChrisSnake  
+##### 1434#       发表于 2025-5-18 15:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67826462&amp;ptid=2071758" target="_blank">okey3m 发表于 2025-5-18 12:15</a>
+
+支援机没必要sp吧，上debuff不那么靠等级，给攻击机sp打伤害不好嘛，现在sp获取还没啥渠道 ...</blockquote>
+开服的时候没注意 以为很容易获取 上都上了 随便吧
+
