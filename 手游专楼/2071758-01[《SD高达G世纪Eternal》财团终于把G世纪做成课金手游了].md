@@ -15411,3 +15411,15 @@ URZZ卖点应该是第一个攻击地图炮，地图炮逻辑上不太是觉醒�
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  体制  
+##### 1444#       发表于 2025-5-18 21:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67827543&amp;ptid=2071758" target="_blank">电脑死机 发表于 2025-5-18 20:55</a>
+新手上路现在最好有exia，山楂饼，Z，支援有风灵或者凤凰，目前内容不多，打完之后就是每日准点收菜，强 ...</blockquote>
+ex也能自动吗？
+
+—— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
