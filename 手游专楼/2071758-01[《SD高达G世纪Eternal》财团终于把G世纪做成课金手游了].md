@@ -15388,3 +15388,14 @@ URZZ卖点应该是第一个攻击地图炮，地图炮逻辑上不太是觉醒�
 
 刷初始怎么刷，有什么强力机子吗
 
+
+*****
+
+####  电脑死机  
+##### 1442#       发表于 2025-5-18 20:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67827495&amp;ptid=2071758" target="_blank">格雷殿下 发表于 2025-5-18 20:37</a>
+
+刷初始怎么刷，有什么强力机子吗</blockquote>
+新手上路现在最好有exia，山楂饼，Z，支援有风灵或者凤凰，目前内容不多，打完之后就是每日准点收菜，强力boss我这边全程自动也能随便乱杀，看后面加什么了
+
