@@ -2307,3 +2307,26 @@ image.png
 
 实际上不已经有114514种来源猜测了<img src="https://static.stage1st.com/image/smiley/carton2017/088.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 13468#       发表于 2025-5-18 10:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67825828&amp;ptid=2209276" target="_blank">白色池塘 发表于 2025-5-18 02:14</a>
+
+忍不住好奇去推上看了下热闹，本来觉得部分场景、小细节捏他一下喜欢的偶像团体也没啥，后来看到连本作标题 ...</blockquote>
+想起那帮子用圣经典故往eva上套的考据党了。。。严重怀疑鹤卷都不知道居然有这么多致敬啊。。
+
+
+*****
+
+####  白色池塘  
+##### 13469#       发表于 2025-5-18 10:36
+
+<blockquote>jojonathan 发表于 2025-5-18 04:55
+这不是偶像宅滑坡的吗感觉都蛮牵强的</blockquote>
+西野七濑=巴斯克锦华这种大抵是真正的滑坡吧，不过被扒出来的地方太多了，由点及面，GQX制作组有意加入大量乃木坂neta这件事本身是确凿的
+
+如果本作能一飞冲天或者平稳落地，偶像厨私货也就是桩趣谈而已，反之就成弹药了
+
