@@ -15260,3 +15260,17 @@ URZZ卖点应该是第一个攻击地图炮，地图炮逻辑上不太是觉醒�
 
 支援机没必要sp吧，上debuff不那么靠等级，给攻击机sp打伤害不好嘛，现在sp获取还没啥渠道
 
+
+*****
+
+####  体制  
+##### 1431#       发表于 2025-5-18 13:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67825374&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-5-17 22:31</a>
+URZZ卖点应该是第一个攻击地图炮，地图炮逻辑上不太是觉醒武器，需求的射击属性
+
+就是不知道朱总有没有三动 ...</blockquote>
+地图炮杀人不能再动啊
+
+—— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
