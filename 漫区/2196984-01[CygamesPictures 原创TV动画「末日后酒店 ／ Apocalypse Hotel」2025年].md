@@ -3259,3 +3259,29 @@ Q：像八千代能从嘴里喷热水、头顶冒烟花等增加了很多实用�
 
 其实有个很搞笑的细节，小狸妹说哈基米总有一天毁灭文明时，老爹说那是在地球几百年前流行的传言，众所周知他们对地球的所有了解都来自于那艘飞船的杂志和电影，也就这几个狸猫在飞船上看了复联电影然后歪打正着了
 
+
+*****
+
+####  失忆的香槟  
+##### 284#       发表于 2025-5-18 22:31
+
+这袋鼠猫听名字感觉像能对所有敌人造成万能属性的超绝伤害的样子<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+嘭子改造的袋鼠猫飞船的双人座好像用的是lovehotel的经典爱心床背，一定也是在酒店就地取材的吧。
+
+<img src="https://img.stage1st.com/forum/202505/18/223109fbkwo2bkkfrbf2rb.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>screenshot-《末日后酒店》.第6话_服务要诚心诚意.29709764048.2025-05-18_22_30_23.jpeg</strong> (175.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-18 22:31 上传
+
+<img src="https://img.stage1st.com/forum/202505/18/223118g2230n2r8tc27668.jpg" referrerpolicy="no-referrer">
+
+<strong>w700d1q75cms.jpg</strong> (40 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-18 22:31 上传
+
