@@ -77,3 +77,15 @@ PV4（䌷文德斯线）：[https://youtu.be/C-mMijBVMEs](https://youtu.be/C-mMi
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这集赶的我都觉得记忆要混乱了，跑去找了个游戏流程拉了下还真是做到紬线差不多四分之一到三分之一的地方，不知道该吐槽动画这神奇的衔接还是饭山满把这条线写的太水
 
+
+*****
+
+####  镜hinata  
+##### 143#       发表于 2025-5-20 01:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这姆Q又是幽灵?这什么夏日重现啊
+
+开头的声音是香菜?不会是ED在吹逼的那个吧
+
+还有OP开头这也能发现不同都是神人
+
