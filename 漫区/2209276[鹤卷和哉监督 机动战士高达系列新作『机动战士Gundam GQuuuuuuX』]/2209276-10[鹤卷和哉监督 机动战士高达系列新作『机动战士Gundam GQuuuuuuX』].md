@@ -3093,3 +3093,17 @@ gq世界线吉翁已经把精神力装置小型化了（gqux），精神力高�
 
 —— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  zakufa782  
+##### 13543#       发表于 2025-5-19 17:29
+
+ 本帖最后由 zakufa782 于 2025-5-19 17:32 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67830295&amp;ptid=2209276" target="_blank">KDConan 发表于 2025-5-19 17:13</a>
+
+原来设定这么自洽的吗还考虑了自身重量导致的压强问题
+
+—— 来自 Xiaomi 23013RK75C, Android 15, 鹅球  ...</blockquote>
+米粒子浮空技术是0079里为了解释木马下地球时就搞出来的设定
+
