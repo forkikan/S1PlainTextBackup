@@ -15433,3 +15433,16 @@ urz和铁奥的战场图标和普通版竟然是一样的，z还不能变形
 
 这次出的只是开服期间的普通限定ur，等哪次周年再出身上缠绕紫光的觉醒版吧<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  电脑死机  
+##### 1446#       发表于 2025-5-19 08:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67827757&amp;ptid=2071758" target="_blank">体制 发表于 2025-5-18 21:52</a>
+
+ex也能自动吗？
+
+—— 来自 Xiaomi 2211133C, Android 15, 鹅球 v3.5.99-alpha</blockquote>
+EX那没得说，不过现在的限时boss关都能全自动了
+
