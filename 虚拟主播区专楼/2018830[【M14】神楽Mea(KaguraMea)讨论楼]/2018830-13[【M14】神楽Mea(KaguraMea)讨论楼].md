@@ -8796,3 +8796,11 @@ Tie！Forty？是这个吗？啊，不对不对，不是那个。有点不一样
 
 "我带着地雷，可能会在大家那里引爆"
 
+
+*****
+
+####  TiHaru  
+##### 18523#       发表于 2025-5-20 00:09
+
+<img src="https://static.stage1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">这是说的刚才玩的游戏最后那个人型地雷
+
