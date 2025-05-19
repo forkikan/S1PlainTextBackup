@@ -15454,3 +15454,37 @@ EX那没得说，不过现在的限时boss关都能全自动了
 
 这游戏怎么卡碧尼都有盾牌的<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">拿肩膀扛伤吗
 
+
+*****
+
+####  HEERO.W  
+##### 1448#       发表于 2025-5-19 09:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67827577&amp;ptid=2071758" target="_blank">无念 发表于 2025-5-18 21:08</a>
+
+难说，毕竟红高达和现在两个boss只能说不是一个思路
+
+—— 来自 HONOR SDY-AN00, Android 14, 鹅球 v3.5. ...</blockquote>
+我觉得强敌来袭还有些地图设计带点策略，活动BOSS是纯粹的伤害检测了，所以可以直接看BOSS来判断数值膨胀的幅度
+
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 1449#       发表于 2025-5-19 09:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67827543&amp;ptid=2071758" target="_blank">电脑死机 发表于 2025-5-18 20:55</a>
+
+新手上路现在最好有exia，山楂饼，Z，支援有风灵或者凤凰，目前内容不多，打完之后就是每日准点收菜，强 ...</blockquote>
+现在都流行看母舰和刷S高达了
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 1450#       发表于 2025-5-19 09:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67828788&amp;ptid=2071758" target="_blank">HEERO.W 发表于 2025-5-19 09:46</a>
+
+我觉得强敌来袭还有些地图设计带点策略，活动BOSS是纯粹的伤害检测了，所以可以直接看BOSS来判断数值膨胀 ...</blockquote>
+更多的是考验BUFF等级
+
