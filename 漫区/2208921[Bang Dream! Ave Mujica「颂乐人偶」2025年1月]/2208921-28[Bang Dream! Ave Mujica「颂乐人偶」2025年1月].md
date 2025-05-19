@@ -272,3 +272,16 @@ TV动画「BanG Dream! Ave Mujica」Blu-ray 上卷/下卷
 <img src="https://p.sda1.dev/24/7460fd6c2f28efd5d1e38a09cba2e49f/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/24/b19ec2ba16fb3a041a75f6b84a29f86b/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大島田滿子  
+##### 40912#       发表于 2025-5-19 18:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67824939&amp;ptid=2208921" target="_blank">堀内爱里衣 发表于 2025-5-17 20:25</a>
+
+https://x.com/esp_t_talent/status/1923287308901490980
+
+       https://t.co/AkekuZHVjY ...</blockquote>
+变成高尾老师，咖位上升了
+
