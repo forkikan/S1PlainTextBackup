@@ -15520,3 +15520,15 @@ Z用不能变形换了空飞和五移动，赢麻了好吧<img src="https://stat
 
 有些机子会起飞，有什么作用吗
 
+
+*****
+
+####  一个陆仁贾  
+##### 1454#       发表于 2025-5-19 12:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67829256&amp;ptid=2071758" target="_blank">格雷殿下 发表于 2025-5-19 11:57</a>
+有些机子会起飞，有什么作用吗</blockquote>
+现在看不出有什么用，毕竟得和援护防御的机子同在地面才能享受
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

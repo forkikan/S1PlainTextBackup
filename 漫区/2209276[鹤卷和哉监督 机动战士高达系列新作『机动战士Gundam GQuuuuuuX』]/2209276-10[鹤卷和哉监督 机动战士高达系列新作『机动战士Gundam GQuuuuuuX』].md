@@ -2817,3 +2817,15 @@ GQuuuuuuX世界线的联邦开发主管应该是提姆·雷吧
 mk2连影都没有突然就tma/tms了，这边的富兰克林·比 ...</blockquote>
 联邦提坦丝系的TMA和TMS都不是可动框架技术线出来后才搞的。南瓜饼用到了磁气覆膜。本质是老框架实现的，所以都是大型机或巨型，变形架构也简单化。汉莫拉比别看引擎动力低，但是它是正经的提坦丝可动框架变形机。
 
+
+*****
+
+####  KDConan  
+##### 13518#       发表于 2025-5-19 12:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67829277&amp;ptid=2209276" target="_blank">Kaltsit 发表于 2025-5-19 12:03</a>
+我有一个疑问，首席哥后面还有MS开吗？gqx有麻球喵安2个人占了，不太可能会轮到他吧 ...</blockquote>
+就算给他个机体也就是普通量产了吧，毕竟进不了kirakira
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
