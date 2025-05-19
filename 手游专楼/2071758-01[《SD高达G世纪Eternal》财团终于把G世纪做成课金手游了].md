@@ -15553,3 +15553,17 @@ Z用不能变形换了空飞和五移动，赢麻了好吧<img src="https://stat
 
 难受了，换出来UR技能升级材料想升强自5级技能，结果没看清点成自由的了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无念  
+##### 1457#       发表于 2025-5-19 13:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67829330&amp;ptid=2071758" target="_blank">一个陆仁贾 发表于 2025-5-19 12:17</a>
+现在看不出有什么用，毕竟得和援护防御的机子同在地面才能享受
+
+—— 来自 vivo V2419A, Android 15, 鹅 ...</blockquote>
+错了，是援护机子要有对应适性才会援护，所以不是在地面才有援护，而是你的援护机它不会飞<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">我猜你在用巴巴托斯
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
