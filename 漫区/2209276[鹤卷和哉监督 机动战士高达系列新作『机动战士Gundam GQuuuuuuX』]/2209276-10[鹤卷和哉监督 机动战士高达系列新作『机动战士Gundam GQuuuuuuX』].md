@@ -3030,3 +3030,19 @@ gq世界线吉翁已经把精神力装置小型化了（gqux），精神力高�
 
 最后一集不是据说有艾尔梅斯么？说不定不是拉拉，是哈曼开的。
 
+
+*****
+
+####  玖羽  
+##### 13538#       发表于 2025-5-19 16:41
+
+ 本帖最后由 玖羽 于 2025-5-19 16:43 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67829480&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-5-19 13:15</a>
+
+实际上，吉翁也不太重视新人类，机体试验还是针对红高达的，学院就像是把这些人先凑起来管理。</blockquote>
+你们不要忘了是怎么打下月神2号的<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">，基连早就走量产大扎姆路线了
+
+按照常理来说，靠这个结束了战争之后，这条路线会被奉为正道，现在的主力应该是MA海，所以不怎么重视MS发展
+
+（只是根据常理推断，不是说后面的剧情一定会这么发展）
+
