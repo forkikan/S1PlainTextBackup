@@ -15446,3 +15446,11 @@ ex也能自动吗？
 —— 来自 Xiaomi 2211133C, Android 15, 鹅球 v3.5.99-alpha</blockquote>
 EX那没得说，不过现在的限时boss关都能全自动了
 
+
+*****
+
+####  里村紅葉  
+##### 1447#       发表于 2025-5-19 08:39
+
+这游戏怎么卡碧尼都有盾牌的<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">拿肩膀扛伤吗
+
