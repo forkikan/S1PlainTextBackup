@@ -3280,3 +3280,43 @@ gq世界线吉翁已经把精神力装置小型化了（gqux），精神力高�
 这玩意属于只要造出来了就 ...</blockquote>
 不懂，是不是意思就是 鸡瘟能给你整出个空想具现的概念机无敌 劲 霸 强😨 这就是贡给Z世代看的真REAL钢弹吗？……钢弹怎么会变成这种样子！（怒）😡😡😡
 
+
+*****
+
+####  jojonathan  
+##### 13560#       发表于 2025-5-19 21:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67830664&amp;ptid=2209276" target="_blank">cih 发表于 2025-5-19 18:52</a>
+其他也不对比算了，这高机动真的是说大扎木么？？？……😑</blockquote>
+和战舰比呀<img src="https://static.stage1st.com/image/smiley/carton2017/088.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  llysander  
+##### 13561#       发表于 2025-5-19 21:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67830789&amp;ptid=2209276" target="_blank">hsyg 发表于 2025-5-19 19:45</a>
+
+能赢的量产大扎姆和大扎姆性能上不是一个东西，类比就是高达里面的情报自来也。
+
+这玩意属于只要造出来了就 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">装上米浮，不就成了亚布萨勒斯
+
+机动要塞，但是防守/压制不能突破 听着就不对劲，像精神病系列但砍掉塞克缪，又不是模块化可大可小多功能的。
+
+得快点做成理想形态贾姆鲁芬
+
+
+*****
+
+####  玖羽  
+##### 13562#       发表于 2025-5-19 21:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67831110&amp;ptid=2209276" target="_blank">llysander 发表于 2025-5-19 21:30</a>
+
+装上米浮，不就成了亚布萨勒斯
+
+机动要塞，但是防守/压制不能突破 听着就不对劲，像精神病系列但砍掉塞克 ...</blockquote>
+阿普萨拉斯恰恰是突破用的，这玩意的设计目的是空降贾布罗，用那门炮一发干穿贾布罗的岩层
+
