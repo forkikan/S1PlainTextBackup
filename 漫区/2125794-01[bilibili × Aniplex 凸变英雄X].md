@@ -2116,3 +2116,16 @@ X一个响指其他人都掉下去了</blockquote>
 
 我的天，这是超级英雄还是古罗马角斗士
 
+
+*****
+
+####  失落之翼  
+##### 205#       发表于 2025-5-19 16:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67818740&amp;ptid=2125794" target="_blank">新HGCG 发表于 2025-5-15 20:31</a>
+
+看预告都下葬了
+
+肯定凉透了吧</blockquote>
+说实话前面制造潇月卿假死计划驾轻就熟，只能说看动画里的营销力度和超能力设定里啥都不好说
+
