@@ -15496,3 +15496,19 @@ EX那没得说，不过现在的限时boss关都能全自动了
 
 小号终于满破红高了，ZZFA直接从55升到了58
 
+
+*****
+
+####  无念  
+##### 1452#       发表于 2025-5-19 11:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67828490&amp;ptid=2071758" target="_blank">希望之花 发表于 2025-5-19 06:50</a>
+urz和铁奥的战场图标和普通版竟然是一样的，z还不能变形
+
+这次出的只是开服期间的普通限定ur，等哪次周年再 ...</blockquote>
+Z用不能变形换了空飞和五移动，赢麻了好吧<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+考虑到公告里说的变形机技能有问题，估计是因为变形后ex不同步才放弃的
+等修好后估计之后变形机就没这个福利了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
