@@ -2926,3 +2926,14 @@ mk2连影都没有突然就tma/tms了，这边的富兰克林·比 ...</blockquo
 而且估计学院和军中NT高感度都是男性，就没人试验出夸克斯要女性NT启动的条件。 ...</blockquote>
 如果按正史岁数算，哈曼现在应该在弗拉纳根学院上学
 
+
+*****
+
+####  Steel.Haze  
+##### 13528#       发表于 2025-5-19 14:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67829639&amp;ptid=2209276" target="_blank">型月神话伊阿宋 发表于 2025-5-19 14:17</a>
+
+如果按正史岁数算，哈曼现在应该在弗拉纳根学院上学</blockquote>
+实际上，考量79后的环境，哈曼必然已经脱离机构了，很有可能是跑了逃脱那个当试验品的环境，或者回到阿克西斯去当郡主了。她必经身份显贵。
+
