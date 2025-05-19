@@ -3154,3 +3154,23 @@ gq世界线吉翁已经把精神力装置小型化了（gqux），精神力高�
 
 其实就没量产几台，但大扎姆只要几台就能量变转质变，庵野的原案里我记得是从造战舰的计划里调的资源来着，具体内容记不太清了
 
+
+*****
+
+####  cih  
+##### 13549#       发表于 2025-5-19 18:43
+
+<blockquote>YU_JI 发表于 2025-5-19 18:26
+其实就没量产几台，但大扎姆只要几台就能量变转质变，庵野的原案里我记得是从造战舰的计划里调的资源来着 ...</blockquote>
+话说这大扎木就是个稍微有点行动力的驻防炮台… 要拿来进攻都是便秘不是质变😦 这都85年了你说你是量产绿螳螂 我都更信服点🤒
+
+*****
+
+####  patema  
+##### 13550#       发表于 2025-5-19 18:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67830511&amp;ptid=2209276" target="_blank">没取名啊 发表于 2025-5-19 18:09</a>
+
+这作又是布劳布罗变基克罗格又是Ambac首次出现在台词里，山下还在X上激情讲解机设，感觉像是会比较抠设定的 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">答案是这是梅塔斯
+
