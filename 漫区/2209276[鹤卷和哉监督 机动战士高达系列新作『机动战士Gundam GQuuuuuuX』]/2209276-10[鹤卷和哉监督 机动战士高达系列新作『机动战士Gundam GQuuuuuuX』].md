@@ -3363,3 +3363,17 @@ gq世界线吉翁已经把精神力装置小型化了（gqux），精神力高�
 
 本质大本营幻想，反正就是赢
 
+
+*****
+
+####  无念  
+##### 13565#       发表于 2025-5-19 23:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67831110&amp;ptid=2209276" target="_blank">llysander 发表于 2025-5-19 21:30</a>
+装上米浮，不就成了亚布萨勒斯
+
+机动要塞，但是防守/压制不能突破 听着就不对劲，像精神病系列但砍掉塞克 ...</blockquote>
+可正史的fin也是临时改成小型tma的啊，本体是大型ma，aoz3里那个火星大扎姆鲁才是本来想设计成的形态
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
