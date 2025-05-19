@@ -15545,3 +15545,11 @@ Z用不能变形换了空飞和五移动，赢麻了好吧<img src="https://stat
 
 目前刚需援防的永恒ex地图都是宇宙，地面图最多是手动飞起来再自动可能快几十秒
 
+
+*****
+
+####  xinfengj  
+##### 1456#       发表于 2025-5-19 13:36
+
+难受了，换出来UR技能升级材料想升强自5级技能，结果没看清点成自由的了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
