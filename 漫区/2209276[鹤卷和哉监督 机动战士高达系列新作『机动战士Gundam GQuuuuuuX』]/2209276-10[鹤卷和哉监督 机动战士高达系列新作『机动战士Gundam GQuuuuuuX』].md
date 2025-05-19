@@ -3422,3 +3422,13 @@ VSBR還是要建基於迷你化及動力爐進一步強化之後，不停矛盾�
 
 知道GQX里联邦为啥败吗？因为GQX里钢加农的技术过于先进，用上了BEAM炮，结果打不穿I领域鸭<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cih  
+##### 13569#       发表于 2025-5-20 01:39
+
+<blockquote>jojonathan 发表于 2025-5-19 21:29
+和战舰比呀</blockquote>
+您可能是对战舰航速推力有什么误解…摸霸这玩意要不靠守株待兔，用来进攻只能追在战舰后面吃屁～～而且怎么就只假想打战舰啊？难道是以为联邦是倒退了20年没MS了么🤔
+
