@@ -2791,3 +2791,29 @@ GQuuuuuuX世界线的联邦开发主管应该是提姆·雷吧
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我有一个疑问，首席哥后面还有MS开吗？gqx有麻球喵安2个人占了，不太可能会轮到他吧
 
+
+*****
+
+####  我聞如是  
+##### 13516#       发表于 2025-5-19 12:10
+
+<blockquote>double8G 发表于 2025-5-19 11:17
+这个猎犬顶针吗？之前汉谟拉比也有个差不多的机设图吧，好像和那个精神病一起出场只有半身的机设图有点差异 ...</blockquote>
+原案和定稿的差別
+
+全身那張和這隻獵犬只是原案
+
+有畢格薩姆那張高度比較圖是正式設定圖
+
+*****
+
+####  Steel.Haze  
+##### 13517#       发表于 2025-5-19 12:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67829044&amp;ptid=2209276" target="_blank">花達香奈 发表于 2025-5-19 10:57</a>
+
+精神病和猎犬那么瘦变形怎么藏得住？想看胶要怎么设计
+
+mk2连影都没有突然就tma/tms了，这边的富兰克林·比 ...</blockquote>
+联邦提坦丝系的TMA和TMS都不是可动框架技术线出来后才搞的。南瓜饼用到了磁气覆膜。本质是老框架实现的，所以都是大型机或巨型，变形架构也简单化。汉莫拉比别看引擎动力低，但是它是正经的提坦丝可动框架变形机。
+
