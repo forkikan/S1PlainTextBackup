@@ -3174,3 +3174,35 @@ gq世界线吉翁已经把精神力装置小型化了（gqux），精神力高�
 这作又是布劳布罗变基克罗格又是Ambac首次出现在台词里，山下还在X上激情讲解机设，感觉像是会比较抠设定的 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">答案是这是梅塔斯
 
+
+*****
+
+####  jojonathan  
+##### 13551#       发表于 2025-5-19 18:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67830624&amp;ptid=2209276" target="_blank">cih 发表于 2025-5-19 18:43</a>
+话说这大扎木就是个稍微有点行动力的驻防炮台… 要拿来进攻都是便秘不是质变😦 这都85年了你说你是量产绿 ...</blockquote>
+错误的 相对于战舰 大扎姆 高机动 高火力 高防御 <img src="https://static.stage1st.com/image/smiley/carton2017/088.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  cih  
+##### 13552#       发表于 2025-5-19 18:52
+
+<blockquote>jojonathan 发表于 2025-5-19 18:50
+错误的 相对于战舰 大扎姆 高机动 高火力 高防御</blockquote>
+其他也不对比算了，这高机动真的是说大扎木么？？？……😑
+
+*****
+
+####  Toby_dak  
+##### 13553#       发表于 2025-5-19 18:53
+
+原作里重高达有40米，比普通MS高一倍。搞这么大有三个原因（虽然都是后来找补的设定……）。
+
+一是强化人脑波信号比NT弱，所以塞克缪大型化来增幅。
+二是安装用来飞行和滚动的米粒驱动。
+三是变形机构。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.46)
+
