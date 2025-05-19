@@ -559,3 +559,17 @@ DSS被鱿鱼打烂了，暂时脱离战场。
 
 2025-5-18 16:45 上传
 
+
+*****
+
+####  xinfengj  
+##### 5978#       发表于 2025-5-20 04:31
+
+<img src="https://p.sda1.dev/24/029cdb443bf100d4aee3319e3d9f4460/CMP_20250520042945494.jpg" referrerpolicy="no-referrer">
+
+改枪解包，以后可能会有多种子弹可选。
+
+<img src="https://p.sda1.dev/24/cf4c9a30179f75046d56d6d2d7553588/2b3c4cece7c94989650687899f9badab84f9dd7368d6ea258175171c83fdc4b7.jpg" referrerpolicy="no-referrer">
+
+520，保卫ON SEA
+
