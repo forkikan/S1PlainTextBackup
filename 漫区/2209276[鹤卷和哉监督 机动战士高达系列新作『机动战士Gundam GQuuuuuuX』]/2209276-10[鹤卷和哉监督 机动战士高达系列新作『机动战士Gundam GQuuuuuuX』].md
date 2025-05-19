@@ -2781,3 +2781,13 @@ GQuuuuuuX世界线的联邦开发主管应该是提姆·雷吧
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  Kaltsit  
+##### 13515#       发表于 2025-5-19 12:03
+
+ 本帖最后由 Kaltsit 于 2025-5-19 12:04 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我有一个疑问，首席哥后面还有MS开吗？gqx有麻球喵安2个人占了，不太可能会轮到他吧
+
