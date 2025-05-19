@@ -3237,3 +3237,14 @@ gq世界线吉翁已经把精神力装置小型化了（gqux），精神力高�
 
 同理还有正常发挥的飞天馒头3，能像高超一样独自脱出大气层再突入，从地球任何一个位置都能超音速冲到贾布罗上空射爆一切。
 
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 13556#       发表于 2025-5-19 20:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67829277&amp;ptid=2209276" target="_blank">Kaltsit 发表于 2025-5-19 12:03</a>
+
+我有一个疑问，首席哥后面还有MS开吗？gqx有麻球喵安2个人占了，不太可能会轮到他吧 ...</blockquote>
+你看到隔壁那个精神力扎古了吗 它是你的了 记得砍手脚
+
