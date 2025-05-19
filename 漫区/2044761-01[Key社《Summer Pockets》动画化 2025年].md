@@ -69,3 +69,11 @@ PV4（䌷文德斯线）：[https://youtu.be/C-mMijBVMEs](https://youtu.be/C-mMi
 
 难道又是个韩剧剧情？
 
+
+*****
+
+####  乙津夢  
+##### 142#       发表于 2025-5-20 00:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这集赶的我都觉得记忆要混乱了，跑去找了个游戏流程拉了下还真是做到紬线差不多四分之一到三分之一的地方，不知道该吐槽动画这神奇的衔接还是饭山满把这条线写的太水
+

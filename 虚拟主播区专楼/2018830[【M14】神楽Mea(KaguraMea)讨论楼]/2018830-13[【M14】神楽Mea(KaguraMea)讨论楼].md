@@ -8804,3 +8804,15 @@ Tie！Forty？是这个吗？啊，不对不对，不是那个。有点不一样
 
 <img src="https://static.stage1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">这是说的刚才玩的游戏最后那个人型地雷
 
+
+*****
+
+####  术士q  
+##### 18524#       发表于 2025-5-20 00:32
+
+ 本帖最后由 术士q 于 2025-5-20 00:33 编辑 
+
+说实话晚上玩的游戏最后那段剧情，也就是结局那段有点像黑色高级车跑出来的申必暗杀兵一样，疑似有点奇异搞笑了<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+不过罗咩俩人玩得开心就好，中途二人模仿婴儿哭也很好玩
+以及今晚mea的歌声也很好，很美
+
