@@ -32,3 +32,11 @@
 
 续作搞快点
 
+
+*****
+
+####  madcow  
+##### 218#       发表于 2025-5-19 23:39
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">先把村正和呆萌笨的联动铠壳吐出来啊，该不会放图的时候刚想到要建模吧
+
