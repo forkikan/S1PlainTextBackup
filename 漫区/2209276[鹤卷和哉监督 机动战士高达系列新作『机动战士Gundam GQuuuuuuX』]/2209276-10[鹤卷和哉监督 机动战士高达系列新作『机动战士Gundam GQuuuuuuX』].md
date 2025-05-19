@@ -3206,3 +3206,16 @@ gq世界线吉翁已经把精神力装置小型化了（gqux），精神力高�
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.46)
 
+
+*****
+
+####  eilot  
+##### 13554#       发表于 2025-5-19 18:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67830369&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-5-19 17:39</a>
+
+都属于后面补的设定。不过高达历来如此，补资料来自洽。米浮本身是解释木马和其它地球圈吉翁MA可以高重力 ...</blockquote>
+全金的話，第一次打大型MA...巨獸就已經明說沒羊肉系統啟動，連行動都不可能，會被自身機種直接壓毀
+
+後期威巴的狙擊或ARX8都是直擊羊肉起動功能或秒殺駕駛員沒之後
+
