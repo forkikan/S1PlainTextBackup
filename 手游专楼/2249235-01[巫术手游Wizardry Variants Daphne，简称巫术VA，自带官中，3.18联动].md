@@ -899,3 +899,14 @@ roll到13%攻和18攻就可以用+4-6攻击改掉防御，然后只强化第一�
 
 冥钢大放送了，是不是猛的要来了
 
+
+*****
+
+####  电脑死机  
+##### 347#       发表于 2025-5-19 19:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67830412&amp;ptid=2249235" target="_blank">elven119 发表于 2025-5-19 17:48</a>
+
+冥钢大放送了，是不是猛的要来了</blockquote>
+过一会就出古城，上次最后五层不是人打的，不知道这次怎么处理
+
