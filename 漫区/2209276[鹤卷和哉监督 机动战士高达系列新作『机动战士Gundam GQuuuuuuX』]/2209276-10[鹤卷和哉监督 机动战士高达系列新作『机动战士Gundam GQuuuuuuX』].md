@@ -3107,3 +3107,23 @@ gq世界线吉翁已经把精神力装置小型化了（gqux），精神力高�
 —— 来自 Xiaomi 23013RK75C, Android 15, 鹅球  ...</blockquote>
 米粒子浮空技术是0079里为了解释木马下地球时就搞出来的设定
 
+
+*****
+
+####  Steel.Haze  
+##### 13544#       发表于 2025-5-19 17:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67830295&amp;ptid=2209276" target="_blank">KDConan 发表于 2025-5-19 17:13</a>
+
+原来设定这么自洽的吗还考虑了自身重量导致的压强问题
+
+—— 来自 Xiaomi 23013RK75C, Android 15, 鹅球  ...</blockquote>
+都属于后面补的设定。不过高达历来如此，补资料来自洽。米浮本身是解释木马和其它地球圈吉翁MA可以高重力环境下飞行用的。同样的设定还有全金的地狱骑士是用羊肉系统站立的等等。
+
+*****
+
+####  syndrome2032  
+##### 13545#       发表于 2025-5-19 17:43
+
+理论上红高达还能单机下地球呢，元祖保鲜膜还在。
+
