@@ -33,3 +33,14 @@
 
 最后的演出太生草了，没玩过原作的人只能看见两张缺乏连续性的PPT，应该不知道发生了什么事吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 139#         楼主| 发表于 2025-5-19 22:43
+
+PV4（䌷文德斯线）：[https://youtu.be/C-mMijBVMEs](https://youtu.be/C-mMijBVMEs)
+
+<img src="https://p.sda1.dev/24/199631239d893661db2fdf857eb5f5df/20250519_224039.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/081e27d0ac2f9d2b560d2603e4a2a001/20250519_224048.jpg" referrerpolicy="no-referrer">
+
