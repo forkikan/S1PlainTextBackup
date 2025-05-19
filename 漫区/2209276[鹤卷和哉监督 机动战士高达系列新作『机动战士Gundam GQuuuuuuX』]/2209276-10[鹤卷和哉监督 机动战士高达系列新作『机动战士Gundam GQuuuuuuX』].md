@@ -3256,3 +3256,27 @@ gq世界线吉翁已经把精神力装置小型化了（gqux），精神力高�
 
 说不定最后出来个zeta
 
+
+*****
+
+####  无念  
+##### 13558#       发表于 2025-5-19 21:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67831027&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-19 21:04</a>
+说不定最后出来个zeta</blockquote>
+你以为是zeta，搞不好是提坦斯版的mk3
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  cih  
+##### 13559#       发表于 2025-5-19 21:25
+
+<blockquote>hsyg 发表于 2025-5-19 19:45
+能赢的量产大扎姆和大扎姆性能上不是一个东西，类比就是高达里面的情报自来也。
+
+这玩意属于只要造出来了就 ...</blockquote>
+不懂，是不是意思就是 鸡瘟能给你整出个空想具现的概念机无敌 劲 霸 强😨 这就是贡给Z世代看的真REAL钢弹吗？……钢弹怎么会变成这种样子！（怒）😡😡😡
+
