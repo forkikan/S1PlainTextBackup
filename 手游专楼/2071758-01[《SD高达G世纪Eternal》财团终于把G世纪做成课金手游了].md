@@ -15532,3 +15532,16 @@ Z用不能变形换了空飞和五移动，赢麻了好吧<img src="https://stat
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  rockroxas  
+##### 1455#       发表于 2025-5-19 12:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67829256&amp;ptid=2071758" target="_blank">格雷殿下 发表于 2025-5-19 11:57</a>
+
+有些机子会起飞，有什么作用吗</blockquote>
+无视地形，比如很多地形的建筑要会飞才能走上去，水可以不吃减移动
+
+目前刚需援防的永恒ex地图都是宇宙，地面图最多是手动飞起来再自动可能快几十秒
+
