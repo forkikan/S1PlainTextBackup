@@ -15630,3 +15630,20 @@ Z用不能变形换了空飞和五移动，赢麻了好吧<img src="https://stat
 
 图纸有好使机子吗，我好像还看到图纸有ur机子，好使不
 
+
+*****
+
+####  体制  
+##### 1463#       发表于 2025-5-19 19:32
+
+ 本帖最后由 体制 于 2025-5-19 19:34 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67830734&amp;ptid=2071758" target="_blank">格雷殿下 发表于 2025-5-19 19:22</a>
+这期的船好像给不了加成给风灵和00呀，感觉10抽自选选错了
+
+那些活动的机子要刷吗，好使吗，我只能打低难度 ...</blockquote>
+活动机体保送3星满突的，任务会送突破材料。
+可开发ur目前不建议ur化，消耗过于巨大，而且打对应关的话ssr状态就很强了
+
+没注意你只能打低难度啊，那除了红高达，另外两个没必要刷
+—— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
