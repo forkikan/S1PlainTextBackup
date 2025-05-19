@@ -68,3 +68,22 @@
 
 有消息总比没有好了，又拖了一年。。。
 
+
+*****
+
+####  siriii  
+##### 792#       发表于 2025-5-19 23:18
+
+轻语搞本地化可以，搞发行有什么说法吗？这天角制作甚至可以说是原生中文了吧，还是说打算一举开拓海外（？）市场<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  thez  
+##### 793#       发表于 2025-5-19 23:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67831417&amp;ptid=2093296" target="_blank">siriii 发表于 2025-5-19 23:18</a>
+
+轻语搞本地化可以，搞发行有什么说法吗？这天角制作甚至可以说是原生中文了吧，还是说打算一举开拓海外（？ ...</blockquote>
+轻语就是从本地化转型发行商的，他们也有翻其它外语的业务
+
