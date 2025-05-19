@@ -15587,3 +15587,34 @@ Z用不能变形换了空飞和五移动，赢麻了好吧<img src="https://stat
 
 <img src="https://static.stage1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">存了一＃好难受啊，好想抽啊，什么时候才出神高达啊
 
+
+*****
+
+####  eilot  
+##### 1460#       发表于 2025-5-19 17:52
+
+剛看了G高達的MS能開發的機體戰鬥動畫
+
+師傅的動作就是之前G世紀的DLC 來，只是沒了12王牌和石破天驚拳
+
+明顯是留給UR卡池吧
+
+九龍高達也沒手指只得格鬥，也是為了UR卡池準備吧
+
+不過有紅心KING，有手指，算是非常有良心，5台舊洗牌的機體動作也非常華麗
+
+神高達就暫時沒有
+
+閃光高達的手指和手指劍都給了，好像都是之前DLC動作，那之後UR就只是H化和明鏡化嗎?
+
+*****
+
+####  一个陆仁贾  
+##### 1461#       发表于 2025-5-19 17:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67829579&amp;ptid=2071758" target="_blank">无念 发表于 2025-5-19 13:57</a>
+错了，是援护机子要有对应适性才会援护，所以不是在地面才有援护，而是你的援护机它不会飞我猜你在用巴巴 ...</blockquote>
+是元祖<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
