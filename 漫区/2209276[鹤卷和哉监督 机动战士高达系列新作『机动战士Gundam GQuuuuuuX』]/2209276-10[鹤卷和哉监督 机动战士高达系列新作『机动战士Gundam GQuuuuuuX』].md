@@ -3081,3 +3081,15 @@ gq世界线吉翁已经把精神力装置小型化了（gqux），精神力高�
 gq世界线吉翁已经把精神力装置小型化了（gqux），精神力高达依然那么大的原因是联邦的精神力技术不如吉翁吧 ...</blockquote>
 精神力这么大的核心首先是，精神力是一台米浮机体，它是87年就能大气层和殖民卫星内直接飞的，其部署机动性，只比TMS差，甚至高过一般MS。它浑身都是米浮，其次是局部I立场发生机，有几个部位装了中型I立场。精神力装置貌似主要集中于头部，并不大。精神力高达貌似步行状态也是开着米浮减少压强的。所以它是个靠着米浮助力走路的“合理版哥斯拉”。新版精神力五十多米，然后三角三点支撑的鸟足爪脚部，这个必然是靠类似技术才能在殖民卫星这种低重力环境站立，不过其规格和自重可能直接压穿殖民卫星摔出去。
 
+
+*****
+
+####  KDConan  
+##### 13542#       发表于 2025-5-19 17:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67830247&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-5-19 16:55</a>
+精神力这么大的核心首先是，精神力是一台米浮机体，它是87年就能大气层和殖民卫星内直接飞的，其部署机动 ...</blockquote>
+原来设定这么自洽的吗<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
