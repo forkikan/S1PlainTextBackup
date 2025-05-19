@@ -3320,3 +3320,29 @@ gq世界线吉翁已经把精神力装置小型化了（gqux），精神力高�
 机动要塞，但是防守/压制不能突破 听着就不对劲，像精神病系列但砍掉塞克 ...</blockquote>
 阿普萨拉斯恰恰是突破用的，这玩意的设计目的是空降贾布罗，用那门炮一发干穿贾布罗的岩层
 
+
+*****
+
+####  Piano-Forest  
+##### 13563#         楼主| 发表于 2025-5-19 22:30
+
+[https://x.com/NzeNeee/status/1924228863938494968](https://x.com/NzeNeee/status/1924228863938494968)
+<img src="https://p.sda1.dev/24/0e9c91889d165d4c2e843ad83a2076d8/20250519_222608.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/iai_8_8_8/status/1923565099949883410](https://x.com/iai_8_8_8/status/1923565099949883410)
+<img src="https://p.sda1.dev/24/80a741088ab1ddcaa5a251190aac289b/20250519_222240.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/olys011/status/1923657678657822936](https://x.com/olys011/status/1923657678657822936)
+<img src="https://p.sda1.dev/24/8b0b4a8a25c18e5988c342014a65a845/20250519_222517.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/0e91ad68291f9833b044f385b1947358/20250519_222521.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/sonnambulo777/status/1923943877607596242](https://x.com/sonnambulo777/status/1923943877607596242)
+
+メイドの日(完全遅刻)シュウマチュニャア
+<img src="https://p.sda1.dev/24/e247fdeab5d0dace32fd5f12c5412379/20250519_222156.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/ms_ar_ho/status/1923792383881380299](https://x.com/ms_ar_ho/status/1923792383881380299)
+
+6話。餃子パーティー回、待ってるぞ…。
+<img src="https://p.sda1.dev/24/668842b3b4d019853f7f604e01710342/20250519_222137.jpg" referrerpolicy="no-referrer">
+
