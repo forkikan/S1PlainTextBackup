@@ -2597,3 +2597,15 @@ image.png
 
 鹤卷就算把他小三小四上周吃的外卖昨天骑的共享单车都做进片里又如何，屁事多<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  syndrome2032  
+##### 13495#       发表于 2025-5-19 09:16
+
+我感觉到最后可能是top2类似的世界观。
+
+gqux这个79if是个幻想或者说虚构世界，所以这个世界的发展类似高堡奇人，没有骡子鸭子翻身了。zeknova就是打破幻想的壁垒前往外部世界。
+
+不过下一集精神病给side6老铁送制冷了，番茄一直想要的kirakira和非日常真要来了。
+
