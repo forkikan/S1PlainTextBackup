@@ -2904,3 +2904,14 @@ mk2连影都没有突然就tma/tms了，这边的富兰克林·比 ...</blockquo
 
 所以给新人类做专属机本来就很伪命题，人都找不到还做个毛线专属机，估计gqx的参数都是随便塞的，鬼知道真有人能满足（
 
+
+*****
+
+####  Steel.Haze  
+##### 13526#       发表于 2025-5-19 14:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67829589&amp;ptid=2209276" target="_blank">ads147147 发表于 2025-5-19 14:02</a>
+
+这个世代新人类还是出于稀有物种阶段吧，就算去群筛估计也找不到几个，说不定首席哥都算是能找到最好的了， ...</blockquote>
+而且估计学院和军中NT高感度都是男性，就没人试验出夸克斯要女性NT启动的条件。
+
