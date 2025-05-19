@@ -2915,3 +2915,14 @@ mk2连影都没有突然就tma/tms了，这边的富兰克林·比 ...</blockquo
 这个世代新人类还是出于稀有物种阶段吧，就算去群筛估计也找不到几个，说不定首席哥都算是能找到最好的了， ...</blockquote>
 而且估计学院和军中NT高感度都是男性，就没人试验出夸克斯要女性NT启动的条件。
 
+
+*****
+
+####  型月神话伊阿宋  
+##### 13527#       发表于 2025-5-19 14:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67829618&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-5-19 14:11</a>
+
+而且估计学院和军中NT高感度都是男性，就没人试验出夸克斯要女性NT启动的条件。 ...</blockquote>
+如果按正史岁数算，哈曼现在应该在弗拉纳根学院上学
+
