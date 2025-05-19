@@ -2753,3 +2753,13 @@ GQuuuuuuX世界线的联邦开发主管应该是提姆·雷吧
 
 这个猎犬顶针吗？之前汉谟拉比也有个差不多的机设图吧，好像和那个精神病一起出场只有半身的机设图有点差异？？
 
+
+*****
+
+####  57042711  
+##### 13512#       发表于 2025-5-19 11:20
+
+联邦靠新锐机，吉翁靠新人类一骑当千<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
