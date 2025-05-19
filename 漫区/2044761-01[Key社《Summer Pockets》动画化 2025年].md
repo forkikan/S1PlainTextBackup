@@ -44,3 +44,20 @@ PV4（䌷文德斯线）：[https://youtu.be/C-mMijBVMEs](https://youtu.be/C-mMi
 <img src="https://p.sda1.dev/24/199631239d893661db2fdf857eb5f5df/20250519_224039.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/24/081e27d0ac2f9d2b560d2603e4a2a001/20250519_224048.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 140#         楼主| 发表于 2025-5-19 23:11
+
+[https://x.com/yana_ocd/status/1921991178494304503](https://x.com/yana_ocd/status/1921991178494304503)
+
+サマポケ#6ありがとうございました！
+
+遅ればせながら、作監などで参加しておりました！！
+
+がルート終わってしまった😭
+
+次回からのお話も引き続きよろしくお願いします🙇
+<img src="https://p.sda1.dev/24/0a4a66fc9a87bc55d8cbba49a809ef5b/20250519_230959.jpg" referrerpolicy="no-referrer">
+
