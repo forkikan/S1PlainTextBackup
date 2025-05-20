@@ -7687,3 +7687,339 @@ GQ擦地面居然擦到打開駕駛倉把喵安摔出來
 
 然后到了本集，精神病高达都打过来了，小森反而一脸淡定地贴在舰桥玻璃上往外看。小森的低反应可能是演出问题，但这个镜头本身就不是很合适，不像临战状态
 
+
+*****
+
+####  穿越护城河  
+##### 14014#       发表于 2025-5-21 01:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835235&amp;ptid=2209276" target="_blank">逆袭的黑月 发表于 2025-5-21 01:24</a>
+
+日升新闻还行.</blockquote>
+第一个是朝日新闻，第二个是产经新闻
+
+*****
+
+####  Sopp  
+##### 14015#       发表于 2025-5-21 01:26
+
+把三角恋的部分跳过这一集的观感就会好上不少
+
+*****
+
+####  ryanghj  
+##### 14016#       发表于 2025-5-21 01:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835240&amp;ptid=2209276" target="_blank">白色池塘 发表于 2025-5-21 01:25</a>
+
+看到这集突然想到一个点，就是到目前为止这绿木马上的场景拍得太单调了。
+
+说是致敬0079，但0079里白色木马 ...</blockquote>
+小森纯纯鹤卷加戏，本来没那么多台词的
+
+现在看确实是边缘角色，不知道最后几集有没有高光了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ティグル  
+##### 14017#       发表于 2025-5-21 01:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835233&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-21 01:24</a>
+
+你看第二集就知道了，gq世界线里的夏亚从弗拉纳冈博士那里得知了人类的革新，然后把这个思想传达给了夏利 ...</blockquote>
+哦你说GQX世界线的鸭子，那确实是一股大文豪味
+
+*****
+
+####  久井路路  
+##### 14018#       发表于 2025-5-21 01:27
+
+不是因为只要像这样加几帧画面观众就会自动脑补来龙去脉嘛
+
+这样人物塑造就算填上了，然后可以预留出充足的时间来膜0079，何乐而不为<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 14019#       发表于 2025-5-21 01:27
+
+<blockquote>白色池塘 发表于 2025-5-21 01:25
+看到这集突然想到一个点，就是到目前为止这绿木马上的场景拍得太单调了。
+
+说是致敬0079，但0079里白色木马 ...</blockquote>
+
+真是这样的，现在看绿色木马就像是在看美式情景喜剧，同样的人在不同的时间在同样的场景说词（）
+
+*****
+
+####  猪突猛进R  
+##### 14020#       发表于 2025-5-21 01:27
+
+<img src="https://img.stage1st.com/forum/202505/21/012746bwrkf5vwusu10u5l.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ1aa-cufnZkT3cSs6-zk.jpg</strong> (218.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 01:27 上传
+
+*****
+
+####  yanghuangu  
+##### 14021#       发表于 2025-5-21 01:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835215&amp;ptid=2209276" target="_blank">tide777 发表于 2025-5-21 01:21</a>
+
+所以最终战可能是因为两个女人要抢男人？也太小儿科了吧。
+
+现在也看不到什么主角为了政治或者理想战斗的理 ...</blockquote>
+拉10几岁的小孩哥小孩姐做主角怎么为政治理想战斗，还不是青春期暴走的性欲来得真实
+
+最终战我猜要大战卑鄙的大人绿叔叔吧
+
+*****
+
+####  ftyaid  
+##### 14022#       发表于 2025-5-21 01:30
+
+如果还要去地球的话得是绿叔叔从番茄口中听到玫瑰在地球的消息然后下地球
+
+但绿叔叔这集的想法看不到他对玫瑰多深的执着，那感觉去地球没什么道理
+
+
+*****
+
+####  盐盐盐盐盐  
+##### 14023#       发表于 2025-5-21 01:30
+
+夏利亚对红高引起zeknova又一次消失完全不惊讶，应该早就算好了，这次用gqx去找红高？还挺好奇如果夏利亚没有出手gqx暴走会发生什么，眼睛都紫了，感觉也会出点奇奇怪怪现象
+这集意外的是索顿组（强人+布劳布罗）耍帅回，这夏利亚真强吧
+就是二号真这么死了吗，我总觉得爆炸只是障眼法，可能没死，下集剧场版内容只够半集的，新内容可能是二号后续+夏利亚告诉麻球怎么去找红高，二号也会看krkr会不会也暗中跑去找红高后面还会和麻球相遇
+
+*****
+
+####  ryanghj  
+##### 14024#       发表于 2025-5-21 01:30
+
+接下来看看会不会卖首席哥x喵安的cp，正好俩人都是难民<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 14025#       发表于 2025-5-21 01:31
+
+[X 上的 Dyson Max@フリーランス3Dモデラー：“✨機動戦士Gundam GQuuuuuuX　TVシリーズ放送！！ 機動戦士Gundam GQuuuuuuX　キケロガとギャンのモデリングを担当させていただきました。😊 かっこよく変形している！感動です！！ よろしくお願いいたします。 公式サイト: [url]https://t.co/58Ma5ATulk](https://x.com/minitype00/status/1924857026125169084) 公式X: @G_GQuuuuuuX #ジークアクス [https://t.co/lDuAk12wWH](https://t.co/lDuAk12wWH)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/21/013106wwlbaeq7qpu5e275.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.95 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 01:31 上传
+
+[X 上的 しばむらまい：“#GQuuuuuuuX #ジークアクス 少しだけお手伝いしてました！ [url]https://t.co/lfNoYOSai1](https://x.com/muu_excelsior/status/1924858886257049629)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/21/013011heco8w49fcgcecp8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.16 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 01:30 上传
+
+[X 上的 伊藤慎之助：“GQuuuuuuX7話の演出を担当させていだきました。怒涛の展開の連続を楽しんでもらえたら嬉しいです。ご試聴ありがとうございました～。 #GQuuuuuuX [url]https://t.co/ByECKLM6z0](https://x.com/ito_0006/status/1924858275511869896)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/21/013050zirmfm3qfk69ww14.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (773.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 01:30 上传
+
+[X 上的 長部州太：“『機動戦士Gundam GQuuuuuuX』 7話、キャラクター作画監督と原画で参加させていただきました！ ご視聴ありがとうございました！！✨ #GQuuuuuuuX #ジークアクス [url]https://t.co/nYf0O5k7Zf](https://x.com/shuta_osb/status/1924857815665172891)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/21/013147bvkq5vvtjzpdvtgt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.19 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 01:31 上传
+
+[X 上的 ルカ：“7話、動画で参加しておりました。 前回に引き続きまして、色々本当にありがとうございました……！！！！！！！！ #GQuuuuuuX #ジークアクス [url]https://t.co/OzexgqupdL](https://x.com/nkn_ruka/status/1924858037183119841)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/21/012948bqoo6hgp7d3o3hhq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.7 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 01:29 上传
+
+[X 上的 YY：“第7話ご視聴いただきありがとうございました！ 動画で参加しております！ 配信等でもお楽しみください！ #GQuuuuuuX #ジークアクス [url]https://t.co/zCEB4wbctk](https://x.com/YY_shibata/status/1924856164388667856)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/21/000323wuvevn22cffe3u2v.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.24 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 00:03 上传
+
+[X 上的 YY：“推しMSが来た。 #GQuuuuuuX #ジークアクス #ギャン [url]https://t.co/iNsgAes5IY](https://x.com/YY_shibata/status/1924856207560659284)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/21/012644mi4mik4zmgi1il14.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.42 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 01:26 上传
+
+[X 上的 YY：“ｵｧ………ｱｧ…………………………(血涙) #GQuuuuuuX #ジークアクス #ドゥー・ムラサメ [url]https://t.co/xY0onB3gQA](https://x.com/YY_shibata/status/1924856239747694629)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/21/012917io5lao9zomqcdy8d.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.91 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 01:29 上传
+
+[X 上的 コウダ：“ドゥーとゲーツ #GQuuuuuuX #ジークアクス [url]https://t.co/2LTy0KA7FJ](https://x.com/kouda_nyo/status/1924857106311872875)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/21/012707kz35fjk874dg5zjg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.53 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 01:27 上传
+
+[X 上的 ルカ：“kawaii #GQuuuuuuX #ジークアクス [url]https://t.co/knJ6CVHmBQ](https://x.com/nkn_ruka/status/1924856613527290106)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/21/012931qhe92wm925ml225h.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.62 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 01:29 上传
+
+*****
+
+####  YU_JI  
+##### 14026#       发表于 2025-5-21 01:32
+
+<blockquote>盐盐盐盐盐 发表于 2025-5-21 01:30
+夏利亚对红高引起zeknova又一次消失完全不惊讶，应该早就算好了，这次用gqx去找红高？还挺好奇如果夏利亚没 ...</blockquote>
+紫色眼睛喵安上机的时候也出现过，现在看来喵安第四集那个状态根本不是个别现象
+
+*****
+
+####  silvia  
+##### 14027#       发表于 2025-5-21 01:32
+
+原本以为尼亚安是扮演拉莱雅曼蒂，结果是扮演面具佬
+
+*****
+
+####  ヒトニナル  
+##### 14028#       发表于 2025-5-21 01:32
+
+玫瑰这事不好说，万一绿叔叔一个脑门过电感应到玫瑰跟总帅（的妈妈）有关系呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛋头电玩  
+##### 14029#       发表于 2025-5-21 01:33
+
+鸡西利亚侧近黑人アサーヴ，印度名，绿眼睛……　
+
+*****
+
+####  Toby_dak  
+##### 14030#       发表于 2025-5-21 01:33
+
+重高达变形的BGM还是Z高的MS戦<img src="https://static.stage1st.com/image/smiley/bundam2017/032.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.46)
+
+*****
+
+####  猫兔同笼  
+##### 14031#       发表于 2025-5-21 01:34
+
+我是没搞懂这个精神力MKII和这个杜·村雨有多菜。
+已知，骡子79年开元祖三分钟解决了绿叔叔，87年开里克·迪亚斯连精神病高达防都破不了，现在绿叔叔85年一分钟不到解决精神力高达MKII，求战力如何计算？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  只吃干拌面  
+##### 14032#       发表于 2025-5-21 01:35
+
+一想到最后首席哥和喵安要打绿叔叔就想笑，首席哥上一集还在脑补打绿叔叔，看到这集怕不是尿裤子了。
+
+不过感觉绿叔叔还意外的有人情味，对手下挺照顾的，这样看首席哥存活率还是很乐观的。
+
+三主角都无所谓了，我只想看绿叔叔继承鸭子遗志大闹吉翁
+
+*****
+
+####  ryanghj  
+##### 14033#       发表于 2025-5-21 01:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835261&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-21 01:32</a>
+
+紫色眼睛喵安上机的时候也出现过，现在看来喵安第四集那个状态根本不是个别现象 ...</blockquote>
+我估计是吉翁用强化NT测试过，不可控吧
+
+玛秋的特点是可控启动omega赛可缪？
+
+*****
+
+####  YU_JI  
+##### 14034#       发表于 2025-5-21 01:35
+
+绿叔叔就是现在这个时间线的“最强”役，不让希洛克回来怕是因为定位重叠
+
+*****
+
+####  sauron.j  
+##### 14035#       发表于 2025-5-21 01:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835215&amp;ptid=2209276" target="_blank">tide777 发表于 2025-5-21 01:21</a>
+
+所以最终战可能是因为两个女人要抢男人？也太小儿科了吧。
+
+现在也看不到什么主角为了政治或者理想战斗的理 ...</blockquote>
+这不就再致敬0079了嘛，就看谁是拉拉的位置了
+
+*****
+
+####  xunit  
+##### 14036#       发表于 2025-5-21 01:35
+
+夏利亚要一起干掉汤大基和紫婆，有可能是要用大手电把这俩一起送上天
+
+*****
+
+####  猪突猛进R  
+##### 14037#       发表于 2025-5-21 01:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835268&amp;ptid=2209276" target="_blank">猫兔同笼 发表于 2025-5-21 01:34</a>
+
+我是没搞懂这个精神力MKII和这个杜·村雨有多菜。
+
+已知，骡子79年开元祖三分钟解决了绿叔叔，87年开里克· ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202505/21/013605lye16bgddjznv83r.jpg" referrerpolicy="no-referrer">
+
+<strong>0975d11373f082023fcd05100dfbfbedab641b04.jpg</strong> (350.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 01:36 上传
+
