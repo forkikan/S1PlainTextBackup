@@ -4179,3 +4179,141 @@ GQuX里，从side6正常去地球旅行只要1000亥特吧
 我前两天跳着复习了下独角兽，发现伪鸭提倡的side共荣圈实际上和gqux的情况很像吧？地球被宇宙封锁的话，实 ...</blockquote>
 side共荣圈根本没有实现的可能，必须要其他side心甘情愿的做side3的小弟，而且真想封锁地球还得要完全控制月球，side3靠战争得不到的还想靠谈判，哪有那么好的事。gqux世界里side3的经济都被side6超过，完全没法比
 
+
+*****
+
+####  岸浪白野  
+##### 13646#       发表于 2025-5-20 22:09
+
+ 本帖最后由 岸浪白野 于 2025-5-20 22:11 编辑 
+
+[X 上的 RH−：“ep.6　の　幻想](https://x.com/RH110417/status/1923982863617384931)[https://t.co/o9czZj0D0r](https://t.co/o9czZj0D0r)” / X
+
+<img src="https://img.stage1st.com/forum/202505/20/215745xknwmkksmbc38moz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (285.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-20 21:57 上传
+
+[X 上的 ゆかたろ🔞冬コミ新刊配信中：“Zガンダム完走記念にロザミィとゲーツとドゥーです（？）](https://x.com/yukataro/status/1924381829194514468)[https://t.co/sPYpzSuAPL](https://t.co/sPYpzSuAPL)” / X
+
+<img src="https://img.stage1st.com/forum/202505/20/220722hx9ugyujzh8jy57n.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (983.94 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-20 22:07 上传
+
+[X 上的 ゆかたろ🔞冬コミ新刊配信中：“じくあく最新話放送前に…シュチュニャの平和な餃子パの姿を描いておきたかった…](https://x.com/yukataro/status/1924749966058418430)[https://t.co/bLwSYfQWBw](https://t.co/bLwSYfQWBw)” / X
+
+<img src="https://img.stage1st.com/forum/202505/20/220332mhevjovaehr5r5ik.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (612.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-20 22:03 上传
+
+[X 上的 れぷりろ＠夏コミお疲れ様でした：“やめて！これ以上サイコガンダムに乗り続けたらドゥ之内の精神まで燃え尽きちゃう！ お願い、死なないでドゥ之内！ あんたが今ここで倒れたらゲーツやバスクとの約束はどうなっちゃうの？ 頭部はまだ残ってる。ここを耐えればマチュに勝てるんだから！ 次回「ドゥ之内死す」クラバトスタンバイ！](https://x.com/reprilo_channel/status/1924480619087847860)[https://t.co/BX5FhByaD9](https://t.co/BX5FhByaD9)” / X
+
+<img src="https://img.stage1st.com/forum/202505/20/220902ziovaiopwwiobomx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.89 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-20 22:09 上传
+
+[X 上的 六坂@お絵描き：“マチュ/ドゥー/少尉・曹長　皆ラブリー🩷　第7話楽しみ! #GQuuuuuuX #ジークアクス](https://x.com/HaruMusaka/status/1924789087321653271)[https://t.co/Ib6x8P6FX6](https://t.co/Ib6x8P6FX6)” / X
+
+<img src="https://img.stage1st.com/forum/202505/20/220815wai87kor2daurd7k.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.23 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-20 22:08 上传
+
+[X 上的 양갈래：“](https://x.com/2wintail__/status/1924069744669520071)[https://t.co/iIc4EfqueE](https://t.co/iIc4EfqueE)” / X
+
+<img src="https://img.stage1st.com/forum/202505/20/220229wjccdftdzlvdnnrj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.65 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-20 22:02 上传
+
+[X 上的 おおね：“ﾆｬ](https://x.com/NzeNeee/status/1924228863938494968)[https://t.co/6ab7TVGIOf](https://t.co/6ab7TVGIOf)” / X
+
+<img src="https://img.stage1st.com/forum/202505/20/220253rt01k05p8w1klv41.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.39 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-20 22:02 上传
+
+[X 上的 草葉える：“負けヒロインのマチュ #ジークアクス](https://x.com/810eru/status/1923944932315996516)[https://t.co/Dj3UtlmnaJ](https://t.co/Dj3UtlmnaJ)” / X
+
+<img src="https://img.stage1st.com/forum/202505/20/215846y7sx1ey7dz18b71s.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.61 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-20 21:58 上传
+
+[X 上的 jet：“](https://x.com/natwjeq/status/1924135579383627882)[https://t.co/NncQPh9tDQ](https://t.co/NncQPh9tDQ)” / X
+
+<img src="https://img.stage1st.com/forum/202505/20/215948x2hhotqqqqonodww.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (913.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-20 21:59 上传
+
+[X 上的 HNO₂：“](https://x.com/kajoichiro/status/1924494921706398076)[https://t.co/TWoAeAjaKR](https://t.co/TWoAeAjaKR)” / X
+
+<img src="https://img.stage1st.com/forum/202505/20/220118hzxxdt3ivq5w5iqt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.53 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-20 22:01 上传
+
+[X 上的 sierra：“マチュ](https://x.com/senyanya_sierra/status/1924404669893300254)[https://t.co/SF8n50dueP](https://t.co/SF8n50dueP)” / X
+
+<img src="https://img.stage1st.com/forum/202505/20/220133yl9m9nlf19dtqhwe.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.28 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-20 22:01 上传
+
+[X 上的 ダオシタカ！：“マチュ](https://x.com/daoshitaka/status/1924760488598270414)[https://t.co/AnF2p6XEUc](https://t.co/AnF2p6XEUc)” / X
+
+<img src="https://img.stage1st.com/forum/202505/20/220441h52b8wbifnwl68g5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.21 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-20 22:04 上传
+
+[X 上的 B捌：“リベリオンは今夜！](https://x.com/bhachi88888888/status/1924783032038522923)[https://t.co/EaqJxTN2sd](https://t.co/EaqJxTN2sd)” / X
+
+<img src="https://img.stage1st.com/forum/202505/20/220501xafnzk3onddzppc1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.62 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-20 22:05 上传
+
