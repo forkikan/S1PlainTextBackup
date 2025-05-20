@@ -7058,3 +7058,262 @@ Z的BGM确实赞，但俩强化人太废物了<img src="https://static.stage1st.
 
 事实证明汉谟拉比没啥含金量，只是野兽先辈个人素质强
 
+
+*****
+
+####  faxi  
+##### 13951#       发表于 2025-5-21 01:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835137&amp;ptid=2209276" target="_blank">pokemon最爱 发表于 2025-5-21 01:02</a>
+
+当年大家对再起的评价是，“再起，我的机动战士高达”
+
+再起算是人物塑造和剧情展开都无可挑剔的优秀作品 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我是觉得除了剧情和人物以外，其他剩下来部分现在看也是再起完胜。。。。
+
+这几个冬瓜劣枣真的太难看了。。。那个蜜汁闪回和剪辑就算了，这集战斗部分竟然能拍的比水魔还难看我是没想到的，
+
+*****
+
+####  猪突猛进R  
+##### 13952#       发表于 2025-5-21 01:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835144&amp;ptid=2209276" target="_blank">FanFun 发表于 2025-5-21 01:04</a>
+
+这低攻低防没机动的MA是什么工业垃圾</blockquote>
+对面79年的吉翁MA不垃圾啊，还能变形
+
+*****
+
+####  windtrack  
+##### 13953#       发表于 2025-5-21 01:07
+
+<img src="https://img.stage1st.com/forum/202505/21/010710r7tezebt9rep1peh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (157.93 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 01:07 上传
+
+插满flag的司机大叔没死，不过也进局子了
+
+*****
+
+####  ryanghj  
+##### 13954#       发表于 2025-5-21 01:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835040&amp;ptid=2209276" target="_blank">ParadiseMartyr 发表于 2025-5-21 00:43</a>
+
+主要喵安莫名其妙说抛下马秋的桥段完全没有意义。修司跟个弱智一样都没回应，直接就泽克诺瓦了。让她说这句 ...</blockquote>
+喵安不是说了吗，一着急就会变性格，变成自私自利的里人格了
+
+*****
+
+####  北条早苗  
+##### 13955#       发表于 2025-5-21 01:07
+
+三人组的感情线看不懂，但是这俩强化人也太菜了吧，被一个79年的老古董速刷了
+
+*****
+
+####  岸浪白野  
+##### 13956#       发表于 2025-5-21 01:07
+
+这算个时长就知道只会占个半集啊，就是鹤卷又要觉得要向动画观众介绍79的泽克诺瓦<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 13957#       发表于 2025-5-21 01:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835087&amp;ptid=2209276" target="_blank">acg_gyanc 发表于 2025-5-21 00:53</a>
+
+首席应该是见过喵安一面的，就在打双联星那场的地下铁那里，虽然主要是观察麻球但是也肯定看到了当时和麻 ...</blockquote>
+那里他用了排除法，反正不是玛秋就是喵安，玛秋当时和他在一起那就是喵安了
+
+*****
+
+####  chenpony  
+##### 13958#       发表于 2025-5-21 01:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835018&amp;ptid=2209276" target="_blank">qiyu1234 发表于 2025-5-21 00:35</a>
+
+感觉现在一些动画是不是习惯性放弃塑造年轻主人公的成长过程了
+
+要么莫名其妙一步到位，要么一路走到黑然后 ...</blockquote>
+感觉高达目前的策略是快速上马多个角色让观众自己找可以投射喜欢的对象
+
+*****
+
+####  天风绯炎  
+##### 13959#       发表于 2025-5-21 01:09
+
+再起我能反复观摩，水魔完结了碰都不想碰，gq看后续吧先缓一手
+
+*****
+
+####  zzf111  
+##### 13960#       发表于 2025-5-21 01:09
+
+要是原宇宙布劳布罗有gqx.VER这种机动性和变形能力就不会被阿姆罗一剑戳爆了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ryanghj  
+##### 13961#       发表于 2025-5-21 01:09
+
+1~6是第一季，第2集插入0079if
+
+7~12是第二季，第2集插入0079if
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ryanghj  
+##### 13962#       发表于 2025-5-21 01:10
+
+我觉得不要抱太大希望，很有可能下集就是一整集的0079if
+
+当初第二集的时候也有类似的期待来着
+
+*****
+
+####  Toby_dak  
+##### 13963#       发表于 2025-5-21 01:10
+
+<img src="https://img.stage1st.com/forum/202505/21/021026ycbiacaqfw52qqvt.jpg" referrerpolicy="no-referrer">
+
+<strong>キャプチャ.JPG</strong> (64.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 01:10 上传
+
+*****
+
+####  史蒂符  
+##### 13964#       发表于 2025-5-21 01:10
+
+现在不看好了，三人组肯定要往前走的，这最多就剩下4集半了，还有主线，还要去地球，感觉没有第二季的话内容不够了。
+
+*****
+
+####  oi99o  
+##### 13965#       发表于 2025-5-21 01:10
+
+留白式人物塑造有什么用，你没留白的地方都塑造的一坨了<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ヒトニナル  
+##### 13966#       发表于 2025-5-21 01:11
+
+反正玛秋肯定不是喜欢修司这个人，她只是吸kirakira吸上瘾了
+按照绿叔叔的NT能力来说应该可以确定他想要的就是玛秋而非喵安，那么他到底要玛秋做什么事
+
+*****
+
+####  洛克萨斯  
+##### 13967#       发表于 2025-5-21 01:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">高达粉这些年看tv吃的是真爽吧，只有奶茶篇和ova能看的age，靠剧场版挽回风评的g回归，千古笑柄的铁血，一塌糊涂的水魔，只剩四集证明自己的qg
+
+胶达片场两部佳作一部庸作一部垃圾，不看胶达的话自00结束之后只能看驴和闪哈了，甚至还有网飞拍的堪比0083恶臭的不可燃废物
+
+*****
+
+####  岸浪白野  
+##### 13968#       发表于 2025-5-21 01:12
+
+ 本帖最后由 岸浪白野 于 2025-5-21 01:14 编辑 
+
+红高达出来就介绍79年白高达，泽克诺瓦出来就介绍79年泽克诺瓦，不就这样<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+那当然对应1-6话和7-12话啊
+
+*****
+
+####  YU_JI  
+##### 13969#       发表于 2025-5-21 01:13
+
+地球我觉得已经不用想了，鹤卷之前访谈说不会拿地球当主舞台真没骗人，提出要去地球的那位人都没了）
+
+*****
+
+####  ryanghj  
+##### 13970#       发表于 2025-5-21 01:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835174&amp;ptid=2209276" target="_blank">ヒトニナル 发表于 2025-5-21 01:11</a>
+
+反正玛秋肯定不是喜欢修司这个人，她只是吸kirakira吸上瘾了
+
+按照绿叔叔的NT能力来说应该可以确定他想要的 ...</blockquote>
+他要同时干掉基连和老太婆，干掉之后的吉翁肯定得有个领导吧？
+
+必然是想要召回夏亚啊，不如说夏亚回来了他才有回去做掉基连和老太婆
+
+*****
+
+####  永远的春天  
+##### 13971#       发表于 2025-5-21 01:13
+
+所以这部片子做成年番甚至43集会不会好一些？
+
+*****
+
+####  Aelester  
+##### 13972#       发表于 2025-5-21 01:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">从这一话精神力高达和gqx的样式看，这个世界的精神力骨架技术怕不是eva那套巨人套壳。那抢番茄来的唯一理由怕不是拿来当钥匙引发三冲
+
+*****
+
+####  ティグル  
+##### 13973#       发表于 2025-5-21 01:14
+
+就这点内容24集都填不满，播一年才是纯纯地折磨观众
+
+*****
+
+####  洛亚替身  
+##### 13974#       发表于 2025-5-21 01:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835105&amp;ptid=2209276" target="_blank">洛克萨斯 发表于 2025-5-21 00:57</a>
+
+再起什么时候才能摘掉最后一部优秀人物塑造的高达tv啊，水星砸了，gq看着半砸只剩四集挽回尊严，日本动画业 ...</blockquote>
+水魔和GQ的高水平人物设计，美术设计给再起，再起热度怕不是能上升一个维度
+
+再起拿着朴素甚至有点子供向的人物美术和不算优秀的场景画面靠剧情把地位维持到现在就离谱<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ヒトニナル  
+##### 13975#       发表于 2025-5-21 01:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835181&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-21 01:13</a>
+他要同时干掉基连和老太婆，干掉之后的吉翁肯定得有个领导吧？
+
+必然是想要召回夏亚啊，不如说夏亚回来了 ...</blockquote>
+用玛秋召回夏亚？玛秋咋就成触媒了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 13976#       发表于 2025-5-21 01:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">番茄修正要全靠绿叔叔了，番茄在历代主角也算极品了，叛逆还精神状态不稳定的精神小妹，怎么绿叔叔到处救火全靠他在c啊
+
+*****
+
+####  ryanghj  
+##### 13977#       发表于 2025-5-21 01:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835183&amp;ptid=2209276" target="_blank">永远的春天 发表于 2025-5-21 01:13</a>
+
+所以这部片子做成年番甚至43集会不会好一些？</blockquote>
+蝈蝈不就是jzgg只想出来了一季的内容结果扩充到两季的结果<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">量力而行
+
