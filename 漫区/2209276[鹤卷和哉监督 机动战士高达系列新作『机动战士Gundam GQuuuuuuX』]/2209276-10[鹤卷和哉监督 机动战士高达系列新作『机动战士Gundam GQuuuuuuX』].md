@@ -4026,3 +4026,29 @@ HALO
 
 2025-5-20 18:51 上传
 
+
+*****
+
+####  岸浪白野  
+##### 13632#       发表于 2025-5-20 19:11
+
+都快5月过去了怎么1月份就能知道的东西还在这不知道，翻译都早有的东西..................
+
+而且卡尔玛这事是正片是选择留白处理就不用想太多.......3月份初稿就早说了什么情况
+
+<img src="https://img.stage1st.com/forum/202505/20/190719j5sn39mhsmssmz8s.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.23 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-20 19:07 上传
+
+<img src="https://img.stage1st.com/forum/202505/20/191115b66yywvekm55mw2z.png" referrerpolicy="no-referrer">
+
+<strong>L@~D)%O0$S8(C[6O[0XISA7.png</strong> (577.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-20 19:11 上传
+
