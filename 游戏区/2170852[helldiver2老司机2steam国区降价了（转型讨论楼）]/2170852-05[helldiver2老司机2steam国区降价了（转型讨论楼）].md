@@ -603,3 +603,26 @@ DSS被鱿鱼打烂了，暂时脱离战场。
 
 这枪匠系统好折磨，之前偶然上了两趟超级结算车，把穿甲解放弄满了，发现没那么好使，现在手打训斥，太慢了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FLZB  
+##### 5982#       发表于 2025-5-20 13:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67832810&amp;ptid=2170852" target="_blank">Fake_news 发表于 2025-5-20 13:38</a>
+
+啥时候更新啊，想看超级气球陷落
+
+这枪匠系统好折磨，之前偶然上了两趟超级结算车，把穿甲解放弄满了，发现 ...</blockquote>
+训斥练练还能打西线，穿甲解放者纯陷阱<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Fake_news  
+##### 5983#       发表于 2025-5-20 13:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67832833&amp;ptid=2170852" target="_blank">FLZB 发表于 2025-5-20 13:50</a>
+
+训斥练练还能打西线，穿甲解放者纯陷阱</blockquote>
+是啊，一升满配件上好，进场发现，嘿，这没啥区别啊，遂丢进仓库，早知道拿两把连喷或者卡宾解放去蹭超级结算了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
