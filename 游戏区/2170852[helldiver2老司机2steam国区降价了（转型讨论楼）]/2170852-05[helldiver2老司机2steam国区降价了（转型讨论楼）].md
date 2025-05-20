@@ -687,3 +687,42 @@ DSS被鱿鱼打烂了，暂时脱离战场。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  yzqray  
+##### 5988#       发表于 2025-5-20 17:43
+
+超级洋泾浜，这翻译太tmd牛逼了
+
+—— 来自 HUAWEI ALN-AL80, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  kalavinka  
+##### 5989#         楼主| 发表于 2025-5-20 17:45
+
+输了直接重启是吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202505/20/174410nm8rgeppmep08ewm.jpg" referrerpolicy="no-referrer">
+
+<strong>25832cec54e736d1d233f218dd504fc2d5626908.jpg</strong> (19 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-20 17:44 上传
+
+
+*****
+
+####  Adrenaline!!!  
+##### 5990#       发表于 2025-5-20 17:46
+
+<img src="https://img.stage1st.com/forum/202505/20/174620ymcuw0s8vyeuewnu.jpg" referrerpolicy="no-referrer">
+
+<strong>51323b81800a19d8c3ec452a75fa828ba71e4644.jpg</strong> (161.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-20 17:46 上传
+
