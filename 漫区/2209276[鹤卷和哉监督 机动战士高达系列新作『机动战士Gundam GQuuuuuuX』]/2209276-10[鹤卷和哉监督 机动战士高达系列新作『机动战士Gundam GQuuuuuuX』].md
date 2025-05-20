@@ -7317,3 +7317,373 @@ Z的BGM确实赞，但俩强化人太废物了<img src="https://static.stage1st.
 所以这部片子做成年番甚至43集会不会好一些？</blockquote>
 蝈蝈不就是jzgg只想出来了一季的内容结果扩充到两季的结果<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">量力而行
 
+
+*****
+
+####  砂糖续香香  
+##### 13978#       发表于 2025-5-21 01:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">已经欺负玛秋好几集了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  ryanghj  
+##### 13979#       发表于 2025-5-21 01:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835188&amp;ptid=2209276" target="_blank">洛克萨斯 发表于 2025-5-21 01:15</a>
+
+番茄修正要全靠绿叔叔了，番茄在历代主角也算极品了，叛逆还精神状态不稳定的精神小妹，怎么绿叔叔到处救火 ...</blockquote>
+未必，夏利亚更像是碇源堂的定位，而不是林有德
+
+是利用玛秋的一方
+
+*****
+
+####  ku2154513  
+##### 13980#       发表于 2025-5-21 01:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835183&amp;ptid=2209276" target="_blank">永远的春天 发表于 2025-5-21 01:13</a>
+所以这部片子做成年番甚至43集会不会好一些？</blockquote>
+做长了还怎么每一集硬造下集就有大的的幻想
+
+*****
+
+####  m99999  
+##### 13981#       发表于 2025-5-21 01:17
+
+<blockquote>洛克萨斯 发表于 2025-5-21 01:15
+番茄修正要全靠绿叔叔了，番茄在历代主角也算极品了，叛逆还精神状态不稳定的精神小妹，怎么绿叔叔到处救火 ...</blockquote>
+有没有可能绿叔叔才是最疯的那个，想挑起战争。
+
+我觉得结局是番茄修正绿叔叔
+
+*****
+
+####  ryanghj  
+##### 13982#       发表于 2025-5-21 01:17
+
+玛秋现在地位其实类似Q的真嗣了
+
+*****
+
+####  我聞如是  
+##### 13983#       发表于 2025-5-21 01:17
+
+喵安被兩高達嫌棄了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+GQ擦地面居然擦到打開駕駛倉把喵安摔出來
+
+紅高聽完不要麻球不要高達的發言就開傳送帶走修司了
+
+*****
+
+####  Moseszi  
+##### 13984#       发表于 2025-5-21 01:18
+
+相当一部分楼U对制作组描写美少女的人性丑陋一面破防这点让我感到比较乐<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  没取名啊  
+##### 13985#       发表于 2025-5-21 01:18
+
+喵安的事好理解得很啊，她既渴望安稳的生活又渴望亲近的朋友。但是到了事态完全失控的时候就发现想要安稳就得抛下朋友，想要朋友就得铤而走险，那么该怎么办？答案是果断抛弃麻球，和修司一起跑路，这样安稳和朋友都能保住一部分
+以防你看不懂还特意在上了紫婆船后给了个call back，问你有没有亲人答一个都没了
+
+*****
+
+####  xunit  
+##### 13986#       发表于 2025-5-21 01:18
+
+这集感官最好的是精神病变形+モビルスーツ戦响起的时刻，剩下的东西割裂得不得了
+
+话说这仨小娃的剧情删了也不是不行吧，干脆写个绿叔叔立志传得了
+
+不过按照这个节奏，绿叔叔最后估计也得歇斯底里地形象崩坏一次
+
+*****
+
+####  洛克萨斯  
+##### 13987#       发表于 2025-5-21 01:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835186&amp;ptid=2209276" target="_blank">洛亚替身 发表于 2025-5-21 01:14</a>
+
+水魔和GQ的高水平人物设计，美术设计给再起，再起热度怕不是能上升一个维度
+
+再起拿着朴素甚至有点子供向 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">有的作品高达粉恨不得摘掉机动战士高达的前缀，再起是高达粉想给他加前缀的，要是有创战者一期的资源去制作就好了
+
+*****
+
+####  永远的春天  
+##### 13988#       发表于 2025-5-21 01:18
+
+<blockquote>ku2154513 发表于 2025-5-21 01:16
+做长了还怎么每一集硬造下集就有大的的幻想</blockquote>
+做成初代的公路片呗，前面8集打拳，后面脱出殖民卫星跑去地球
+
+*****
+
+####  Sliurus  
+##### 13989#       发表于 2025-5-21 01:19
+
+绿叔叔没看过后续，不知道扎比家倒了吉翁也好不起来
+
+*****
+
+####  ryanghj  
+##### 13990#       发表于 2025-5-21 01:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835198&amp;ptid=2209276" target="_blank">Moseszi 发表于 2025-5-21 01:18</a>
+
+相当一部分楼U对制作组描写美少女的人性丑陋一面破防这点让我感到比较乐</blockquote>
+还是鹤卷巨魔啊，用个美少女贴贴的ED钓了不少人<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ryanghj  
+##### 13991#       发表于 2025-5-21 01:20
+
+石川访谈里说喵安是最渴望爱的
+
+黑泽说剧情充满了欲望
+
+这下都有解释了<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猪突猛进R  
+##### 13992#       发表于 2025-5-21 01:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835200&amp;ptid=2209276" target="_blank">xunit 发表于 2025-5-21 01:18</a>
+
+这集感官最好的是精神病变形+モビルスーツ戦响起的时刻，剩下的东西割裂得不得了
+
+话说这仨小娃的剧情删了也 ...</blockquote>
+按现在这描写，我真信绿叔叔的目的就是为了召回夏亚，为此不惜一切。
+
+*****
+
+####  Buttercry  
+##### 13993#       发表于 2025-5-21 01:20
+
+我对小登三人组的印象就是全是神人，现在看来没看错嘛，像麻球和喵安这样的好姐妹不会再有了<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸波白野  
+##### 13994#       发表于 2025-5-21 01:20
+
+按那帮老登解构UC找对位的逻辑这绿叔叔不才是对位希罗克（我甚至觉得就是为了这盘醋之前才在访谈拐一嘴），就明面上看可能绿叔叔是某种夏亚意志的代行/传承者，那93总帅什么尿性大家不也是懂得都懂
+
+*****
+
+####  砂糖续香香  
+##### 13995#       发表于 2025-5-21 01:20
+
+我觉着 pvp 应该是有服务器惩罚啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">大家火力都削弱了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  tide777  
+##### 13996#       发表于 2025-5-21 01:21
+
+所以最终战可能是因为两个女人要抢男人？也太小儿科了吧。
+
+现在也看不到什么主角为了政治或者理想战斗的理由，感觉最后就是闹麻了。
+
+*****
+
+####  ryanghj  
+##### 13997#       发表于 2025-5-21 01:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835204&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-5-21 01:19</a>
+
+绿叔叔没看过后续，不知道扎比家倒了吉翁也好不起来</blockquote>
+夏利亚的想法其实和拉普拉斯的盒子想法很类似，就是新人类优先
+
+用新人类引领人类
+
+<img src="https://img.stage1st.com/forum/202505/21/012125gx5kr1v27gzgg5ne.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (17.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 01:21 上传
+
+他这个思想也是夏亚直传了
+
+*****
+
+####  windtrack  
+##### 13998#       发表于 2025-5-21 01:21
+
+就剩4集内容还真的会有地球吗....
+
+*****
+
+####  举止优雅  
+##### 13999#       发表于 2025-5-21 01:22
+
+咕啊，修酱的货太纯啦，几个未成年少女驾驶员就差跪着让再给点闪亮亮了
+
+—— 来自 OnePlus PJZ110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  ヒトニナル  
+##### 14000#       发表于 2025-5-21 01:22
+
+绿叔叔想干死那俩不就是因为夏亚想干死那俩吗，绿叔叔是夏亚信徒啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能找回夏亚那是最好，但现在红高达又跑路了，那就抓紧时机实现总帅的遗愿咯
+
+
+*****
+
+####  洛克萨斯  
+##### 14001#       发表于 2025-5-21 01:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ma没更新升级的话就是绿叔叔开着79年的玩意把85年的机体当猪宰，骡叔叔也做不到吧，想象不出开元祖能在汉谟拉比和精神力mk2面前过几招
+
+*****
+
+####  ティグル  
+##### 14002#       发表于 2025-5-21 01:23
+
+不是，盒子内容怎么就跟鸭子扯上关系了？
+
+*****
+
+####  洛亚替身  
+##### 14003#       发表于 2025-5-21 01:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835221&amp;ptid=2209276" target="_blank">ヒトニナル 发表于 2025-5-21 01:22</a>
+
+绿叔叔想干死那俩不就是因为夏亚想干死那俩吗，绿叔叔是夏亚信徒啊能找回夏亚那是最好，但现在红高达又跑路 ...</blockquote>
+少爷别躺了，搞事业拉投资抬高宇宙米线吧<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  acg_gyanc  
+##### 14004#       发表于 2025-5-21 01:23
+
+喵安这集的问题是上机前她在殖民地的生活就已经结束了，不管怎么样都必须跑路，已经被军警通缉了。当然为啥把这么重要的信息放到一闪而过的三张新闻里我就不知道了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/8cb6637358f3fdbeba8a1e3b2fb068c5/CMP_20250521012330867.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  猪突猛进R  
+##### 14005#       发表于 2025-5-21 01:24
+
+<img src="https://img.stage1st.com/forum/202505/21/012358k05k5p0e3xh7fp6z.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ1aa-37cjZcT3cSk3-sg.jpg</strong> (127.34 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 01:23 上传
+
+*****
+
+####  ryanghj  
+##### 14006#       发表于 2025-5-21 01:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835224&amp;ptid=2209276" target="_blank">ティグル 发表于 2025-5-21 01:23</a>
+
+不是，盒子内容怎么就跟鸭子扯上关系了？</blockquote>
+你看第二集就知道了，gq世界线里的夏亚从弗拉纳冈博士那里得知了人类的革新，然后把这个思想传达给了夏利亚
+
+<img src="https://img.stage1st.com/forum/202505/21/012418j272484qo1v84nv1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.3 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 01:24 上传
+
+*****
+
+####  blackfyre2heads  
+##### 14007#       发表于 2025-5-21 01:24
+
+新的变形ma，好耶<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  逆袭的黑月  
+##### 14008#       发表于 2025-5-21 01:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835229&amp;ptid=2209276" target="_blank">acg_gyanc 发表于 2025-5-21 01:23</a>
+
+喵安这集的问题是上机前她在殖民地的生活就已经结束了，不管怎么样都必须跑路，已经被军警通缉了。当然为啥 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">日升新闻还行.
+
+*****
+
+####  xunit  
+##### 14009#       发表于 2025-5-21 01:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835210&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-21 01:20</a>
+
+按现在这描写，我真信绿叔叔的目的就是为了召回夏亚，为此不惜一切。</blockquote>
+“夏亚是能成为我mav的男人”，总感觉这台词会在之后的剧情里出现
+
+如果绿叔叔真能继承夏亚的计划干掉吉翁和联邦并改造世界、而不是过于集中于“小物”目标就好了
+
+但就现在这制作组对老UC的膜度来看，难啊
+
+*****
+
+####  岸浪白野  
+##### 14010#       发表于 2025-5-21 01:25
+
+就是逃避放弃
+
+<img src="https://img.stage1st.com/forum/202505/21/012253r08ag80xd60pilxg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (33.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 01:22 上传
+
+<img src="https://img.stage1st.com/forum/202505/21/012326f5m4hkqm7g7qzxnx.png" referrerpolicy="no-referrer">
+
+<strong>6F{0ORHTBX{QVV86UK2RX90.png</strong> (599.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 01:23 上传
+
+*****
+
+####  Mika-S  
+##### 14011#       发表于 2025-5-21 01:25
+
+首席哥这新机体大长矛大盾，还挺符合基西莉亚骑士这个身份的。
+
+这下主角团三个人三个方向，结果下集又重复演剧场版看过的东西，还挺泄气的
+
+*****
+
+####  王元姬无惨  
+##### 14012#       发表于 2025-5-21 01:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">俩宇宙厕妹赶紧下线吧 紫色老太婆都比你们拟人 什么狗屁发春妹
+
+*****
+
+####  白色池塘  
+##### 14013#       发表于 2025-5-21 01:25
+
+看到这集突然想到一个点，就是到目前为止这绿木马上的场景拍得太单调了。
+
+说是致敬0079，但0079里白色木马上的生活感完全没学到，木马上的乘员会吃喝、走动、眺望外界，在食堂或者走廊或者机库里讨论事务。但绿木马上的官兵跟屁股粘在座位上一样，就舰桥一个场景（再加个绿叔叔的私室），位置也不动一动，拍了好几回。按剧情你绿木马停在伊兹马上空没事干，乘员应该闲得发慌才是，统统聚在舰桥上不挪窝是想做啥……
+
+然后到了本集，精神病高达都打过来了，小森反而一脸淡定地贴在舰桥玻璃上往外看。小森的低反应可能是演出问题，但这个镜头本身就不是很合适，不像临战状态
+
