@@ -9815,3 +9815,16 @@ X 上的 Dyson Max@フリーランス3Dモデラー：“✨機動戦士Gundam G
 
 不知道是不是错觉，总觉得这片子其实还挺“穷”的，至少相比上一部tva水魔那茫茫多的staff而言，gqx好像并没有动用那么多制作资源..
 
+
+*****
+
+####  xwz  
+##### 14206#       发表于 2025-5-21 05:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835529&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-21 04:37</a>
+
+这部立的企划真的是12集没有骗人不然不会一直都没消息，不要幻想了
+
+而且缩写的GQ已经是这部作品出机设和 ...</blockquote>
+总感觉剩下这点篇幅说不了什么完整故事，药丸
+
