@@ -3551,3 +3551,11 @@ VSBR還是要建基於迷你化及動力爐進一步強化之後，不停矛盾�
 
 还是说就大家看着爆炸，反正也不一定是本地人，殖民地爆炸最开心了。（虽然多半估计就不会有描写）
 
+
+*****
+
+####  ardente  
+##### 13584#       发表于 2025-5-20 12:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">下一步是不是要发现随机匹配也可以kirakira然后OD
+

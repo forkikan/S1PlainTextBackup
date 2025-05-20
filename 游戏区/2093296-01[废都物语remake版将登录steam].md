@@ -150,3 +150,16 @@
 
 既然有原作者参与，能和兰斯10一样做个日后谈≈2代吗（
 
+
+*****
+
+####  manyin1  
+##### 801#       发表于 2025-5-20 13:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67832602&amp;ptid=2093296" target="_blank">七千星 发表于 2025-5-20 12:23</a>
+
+看着像是地图高清化+怪物live2d化就没了，做得有点久。
+
+既然有原作者参与，能和兰斯10一样做个日后谈≈2代 ...</blockquote>
+怪物live2d做得感觉也一般
+
