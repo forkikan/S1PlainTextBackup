@@ -4359,3 +4359,69 @@ side共荣圈根本没有实现的可能，必须要其他side心甘情愿的做
 博美可爱捏
 博美也要死吗😭
 
+
+*****
+
+####  岸浪白野  
+##### 13650#       发表于 2025-5-20 23:02
+
+G永恒送二连星
+
+<img src="https://img.stage1st.com/forum/202505/20/230215lpqdv5opouuyudag.png" referrerpolicy="no-referrer">
+
+<strong>]9{P)4D0]MSN`3I`}HZNY.png</strong> (422.94 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-20 23:02 上传
+
+*****
+
+####  ryanghj  
+##### 13651#       发表于 2025-5-20 23:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67834562&amp;ptid=2209276" target="_blank">ヒトニナル 发表于 2025-5-20 22:46</a>
+
+博美可爱捏
+
+博美也要死吗😭</blockquote>
+第六集博美犬也立了flag，上来就舔了玛秋
+
+*****
+
+####  ryanghj  
+##### 13652#       发表于 2025-5-20 23:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67834327&amp;ptid=2209276" target="_blank">otaku21126 发表于 2025-5-20 21:27</a>
+
+地球联邦如果能把地表当成“重力苦行山”的话，想要积攒反攻力量应该很快。设定上OYW前后的地球并不是人 ...</blockquote>
+但是地球上几乎没有氦3啊
+
+
+*****
+
+####  岸浪白野  
+##### 13653#       发表于 2025-5-20 23:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67834590&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-20 23:02</a>
+
+G永恒送二连星</blockquote>
+
+难怪二连星输了，原来缺个攻击
+
+<img src="https://img.stage1st.com/forum/202505/20/230631dhkw58qnwkkh98q9.jpg" referrerpolicy="no-referrer">
+
+<strong>7Z(HQ%8Q~`P(K5CIGE{]GCX.jpg</strong> (174.98 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-20 23:06 上传
+
+<img src="https://img.stage1st.com/forum/202505/20/230557u22u3cisj2vakzid.jpg" referrerpolicy="no-referrer">
+
+<strong>96RXNXBTZRF$]GH3M3~Q0}A.jpg</strong> (176.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-20 23:05 上传
+

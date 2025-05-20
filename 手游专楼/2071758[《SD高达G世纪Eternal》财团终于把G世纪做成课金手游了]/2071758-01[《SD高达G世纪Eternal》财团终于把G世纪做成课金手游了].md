@@ -15843,3 +15843,13 @@ SR或者以下要SP化，一样要三星
 然后查了下原来这游戏前作都是主机系，推荐玩吗 ...</blockquote>
 机战形式的没玩过，教科书形式的除了手游就是推荐ps2的G世纪魂，当年来说UC最全，剧情全语音，除了部分机体数值问题和反人类的哈罗计系统之外都很不错；火线纵横通完也行
 
+
+*****
+
+####  jackyhuang  
+##### 1480#       发表于 2025-5-20 23:02
+
+死完等过了头七就送是吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
