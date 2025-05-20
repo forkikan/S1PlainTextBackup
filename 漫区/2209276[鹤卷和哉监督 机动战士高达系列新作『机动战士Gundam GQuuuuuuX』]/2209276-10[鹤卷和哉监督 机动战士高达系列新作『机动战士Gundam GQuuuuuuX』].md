@@ -3450,3 +3450,11 @@ VSBR還是要建基於迷你化及動力爐進一步強化之後，不停矛盾�
 
 大扎姆是杂鱼杀手啊，也不是说爆兵就一定能堆死的
 
+
+*****
+
+####  ykyin09  
+##### 13572#       发表于 2025-5-20 09:48
+
+指不定吉翁在造名为吉翁号的牛高达<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
