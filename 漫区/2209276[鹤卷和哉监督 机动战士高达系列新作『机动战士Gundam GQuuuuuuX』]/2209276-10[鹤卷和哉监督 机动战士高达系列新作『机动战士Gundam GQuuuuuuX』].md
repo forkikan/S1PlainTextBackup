@@ -3458,3 +3458,14 @@ VSBR還是要建基於迷你化及動力爐進一步強化之後，不停矛盾�
 
 指不定吉翁在造名为吉翁号的牛高达<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 13573#       发表于 2025-5-20 10:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67832008&amp;ptid=2209276" target="_blank">ykyin09 发表于 2025-5-20 09:48</a>
+
+指不定吉翁在造名为吉翁号的牛高达</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有的，拿创形者再起的吉翁牛改一下就行
+
