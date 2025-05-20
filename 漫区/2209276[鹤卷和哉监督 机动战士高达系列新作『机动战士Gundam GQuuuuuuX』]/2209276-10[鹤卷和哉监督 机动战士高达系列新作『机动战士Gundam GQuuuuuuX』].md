@@ -9787,3 +9787,31 @@ X 上的 Dyson Max@フリーランス3Dモデラー：“✨機動戦士Gundam G
 还剩5集的情况下，下一集放剧场版切片吗，真的假的</blockquote>
 12集以后突然换标题的可能性微存？
 
+
+*****
+
+####  岸浪白野  
+##### 14203#       发表于 2025-5-21 04:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835527&amp;ptid=2209276" target="_blank">xwz 发表于 2025-5-21 04:29</a>
+
+12集以后突然换标题的可能性微存？</blockquote>
+这部立的企划真的是12集没有骗人不然不会一直都没消息，不要幻想了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而且缩写的GQ已经是这部作品出机设和人物和正作如何区别的设置了，更不会换标题影响这个
+
+*****
+
+####  岸浪白野  
+##### 14204#       发表于 2025-5-21 04:40
+
+所罗门部分只有10多分钟只能是第8集的半集，剩下半集要说什么更怪好吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  percy1234  
+##### 14205#       发表于 2025-5-21 04:44
+
+不知道是不是错觉，总觉得这片子其实还挺“穷”的，至少相比上一部tva水魔那茫茫多的staff而言，gqx好像并没有动用那么多制作资源..
+
