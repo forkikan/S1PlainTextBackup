@@ -9709,3 +9709,55 @@ X 上的 Dyson Max@フリーランス3Dモデラー：“✨機動戦士Gundam G
 
 主角三人关系性也是莫名其妙的，但现在俩女主的关系也不至于上战场就反目成仇吧（除非你跟我说修司是拉拉位，俩女主是骡子鸭子位），几位主角又怎样才会参与到干掉吉翁首领的大事件呢？<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ryanghj  
+##### 14196#       发表于 2025-5-21 03:45
+
+草，原来是致敬F91吗
+
+喵安也会携机叛变吗
+
+<img src="https://img.stage1st.com/forum/202505/21/034515d3m9yi0ctfk3ocrk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (163.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 03:45 上传
+
+*****
+
+####  Licheus  
+##### 14197#       发表于 2025-5-21 03:45
+
+这强化人意外的靠谱啊，发疯了还不忘执行任务。说到底搞暗杀为什么要用上神经病把场面搞那么大？既然都走私了塞俩狙击吉姆进来不是更靠谱？而且费那么多功夫混进的军团战也基本没打起来？
+
+还是说不论人还是机其实都只是拿来撑个场面呢？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  盐盐盐盐盐  
+##### 14198#       发表于 2025-5-21 03:47
+
+或许krkr＝连接平行世界之间的中转站，或者本维度和高维度之间的过渡区
+只是被nt当聊天室用了
+
+*****
+
+####  岸浪白野  
+##### 14199#       发表于 2025-5-21 03:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835309&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-21 01:45</a></blockquote>
+
+<img src="https://img.stage1st.com/forum/202505/21/034831k5dulkipfjpgfdxd.png" referrerpolicy="no-referrer">
+
+<strong>7}0HVVLK[L[)L`NCN(CD7NP.png</strong> (2.92 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 03:48 上传
+
