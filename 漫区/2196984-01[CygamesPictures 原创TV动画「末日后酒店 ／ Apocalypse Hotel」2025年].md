@@ -3351,3 +3351,13 @@ Q：像八千代能从嘴里喷热水、头顶冒烟花等增加了很多实用�
 
 2025-5-21 02:34 上传
 
+
+*****
+
+####  NBXX  
+##### 291#       发表于 2025-5-21 03:05
+
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAIOEGgs0mXK8nENVa-D3oucnsYkSi4PAAIPGAACNhNoVZ-guq146SP5NgQ.jpg" referrerpolicy="no-referrer">
+
+「アポカリプスホテルぷすぷすぷす」#7 漫画汉化
+
