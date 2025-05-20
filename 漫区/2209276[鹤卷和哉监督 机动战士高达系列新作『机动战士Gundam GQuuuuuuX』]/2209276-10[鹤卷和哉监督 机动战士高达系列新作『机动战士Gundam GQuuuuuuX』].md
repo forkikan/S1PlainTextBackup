@@ -9769,3 +9769,21 @@ X 上的 Dyson Max@フリーランス3Dモデラー：“✨機動戦士Gundam G
 
 杜这口罩上了机反而不用戴啊<img src="https://static.stage1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  死光光  
+##### 14201#       发表于 2025-5-21 04:27
+
+还剩5集的情况下，下一集放剧场版切片吗，真的假的
+
+*****
+
+####  xwz  
+##### 14202#       发表于 2025-5-21 04:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835526&amp;ptid=2209276" target="_blank">死光光 发表于 2025-5-21 04:27</a>
+
+还剩5集的情况下，下一集放剧场版切片吗，真的假的</blockquote>
+12集以后突然换标题的可能性微存？
+
