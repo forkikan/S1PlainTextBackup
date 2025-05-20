@@ -89,3 +89,16 @@ PV4（䌷文德斯线）：[https://youtu.be/C-mMijBVMEs](https://youtu.be/C-mMi
 
 还有OP开头这也能发现不同都是神人
 
+
+*****
+
+####  07579394  
+##### 144#       发表于 2025-5-20 09:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67831592&amp;ptid=2044761" target="_blank">镜hinata 发表于 2025-5-20 01:13</a>
+
+这姆Q又是幽灵?这什么夏日重现啊
+
+开头的声音是香菜?不会是ED在吹逼的那个吧</blockquote>
+是香菜，cast表也有。
+
