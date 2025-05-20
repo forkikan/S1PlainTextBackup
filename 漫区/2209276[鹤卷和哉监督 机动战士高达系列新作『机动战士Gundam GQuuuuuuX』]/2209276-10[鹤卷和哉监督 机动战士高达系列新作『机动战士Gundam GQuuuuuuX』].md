@@ -9541,3 +9541,102 @@ khara这帮人从新eva到现在做3d动作戏还是一种偶尔亮眼巧思击�
 
 还真是<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Rinnosuke  
+##### 14181#       发表于 2025-5-21 03:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835474&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-21 03:16</a>
+
+我也是这么想的，感情不感情的根本不重要，喵安只是怕死了</blockquote>
+感觉比怕死更多的是怕被抛弃再次孤身一人吧，和修司反复念叨的也是这个，得到过再失去才是更难以忍受的，真纯怕死应该连机都不会上。
+
+*****
+
+####  岸浪白野  
+##### 14182#       发表于 2025-5-21 03:28
+
+[X 上的 オルフィー：“マチュママに近い境遇の人。＃ジークアクス [url]https://t.co/8ncELyrc52](https://x.com/the_olphy/status/1924888922972381205)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/21/032850xzb116o98t9p67ao.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.53 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 03:28 上传
+
+*****
+
+####  岸浪白野  
+##### 14183#       发表于 2025-5-21 03:30
+
+[X 上的 九石三羽：“もうこうなってもいいや、ってこと？？？ （雑トレス注意） [url]https://t.co/hfhsiZpS2i](https://x.com/sasakamakue/status/1924886113724072167)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/21/033004stojtgsahou5jzc2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (835.04 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 03:30 上传
+
+*****
+
+####  ryanghj  
+##### 14184#       发表于 2025-5-21 03:30
+
+[https://www.bilibili.com/video/BV1vgocY5EkU](https://www.bilibili.com/video/BV1vgocY5EkU)
+
+beginning部分的泽克诺瓦之后也有水声
+
+*****
+
+####  xwz  
+##### 14185#       发表于 2025-5-21 03:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835494&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-21 03:30</a>
+
+X 上的 九石三羽：“もうこうなってもいいや、ってこと？？？ （雑トレス注意） [url]https://t.co/hfhsiZp ...</blockquote>
+红红火火恍恍惚惚
+
+*****
+
+####  岸浪白野  
+##### 14186#       发表于 2025-5-21 03:32
+
+石川这话都知道不用说了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+剩下 4话内2个还要先打一遍然后再组MAV，说的话就没有骗过你的，就不要想什么大战到最后一集了
+
+
+*****
+
+####  helgarose87  
+##### 14187#       发表于 2025-5-21 03:34
+
+鸡瘟老520尽情手枪吧 能从我这拿一个子儿算你赢
+
+*****
+
+####  ryanghj  
+##### 14188#       发表于 2025-5-21 03:35
+
+我现在觉得玛秋到最后都不会杀人<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">安琪那里让我确信
+
+*****
+
+####  seedees3  
+##### 14189#       发表于 2025-5-21 03:37
+
+或许鹤卷割割拍高达只是想拍青春三角恋和膜偶像，具体技术上的事真没考虑这么多啦
+
+<img src="https://img.stage1st.com/forum/202505/21/023542z1hw1ok1vuhkh121.png" referrerpolicy="no-referrer">
+
+<strong>ggggggg.png</strong> (234.58 KB, 下载次数: )
+
+下载附件
+
+2025-5-21 02:35 上传
+
