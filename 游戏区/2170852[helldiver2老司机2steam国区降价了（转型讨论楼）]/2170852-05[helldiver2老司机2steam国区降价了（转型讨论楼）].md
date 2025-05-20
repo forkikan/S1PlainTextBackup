@@ -806,3 +806,20 @@ DSS被鱿鱼打烂了，暂时脱离战场。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">最大那种在天上游的光能战舰能打下来嘛
 
+
+*****
+
+####  ykyin09  
+##### 5999#       发表于 2025-5-20 22:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67834523&amp;ptid=2170852" target="_blank">madcow 发表于 2025-5-20 22:33</a>
+最大那种在天上游的光能战舰能打下来嘛</blockquote>
+可以，但是貌似只有无后座或者at炮能打
+
+*****
+
+####  ykyin09  
+##### 6000#       发表于 2025-5-20 22:48
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉要两天掉一个城市，端午前能打到超级上海吗
+
