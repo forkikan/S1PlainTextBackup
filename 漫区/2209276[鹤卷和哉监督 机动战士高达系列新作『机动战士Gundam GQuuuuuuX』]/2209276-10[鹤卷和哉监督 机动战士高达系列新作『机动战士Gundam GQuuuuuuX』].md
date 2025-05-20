@@ -4544,3 +4544,291 @@ G(英)永(靈)恆(殿)
 既然都已经依旧被联邦靠堆资源推回宇宙了，吉翁能打下月神2以及后面居然议和才是这个年表里最离谱的 ...</blockquote>
 实际上所罗门呆不住也是问题，要进攻后面的要塞，所罗门是必须的跳板，但是有Bits幽灵战术在当时没有探知手段，没有阿姆罗去阻止，塞拉的水平不足以感知Bits，所罗门驻留舰队恐怕每几天都有数艘被击伤或击毁。这种情况下吉翁得到了喘息之机。
 
+
+*****
+
+####  zpl123  
+##### 13665#       发表于 2025-5-20 23:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草 直播网站炸了吗
+
+*****
+
+####  逆袭的黑月  
+##### 13666#       发表于 2025-5-20 23:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">人太多直播崩了吗
+
+*****
+
+####  ryanghj  
+##### 13667#       发表于 2025-5-20 23:37
+
+直播炸了还行
+
+*****
+
+####  105gun  
+##### 13668#       发表于 2025-5-20 23:37
+
+谁散布的米诺夫斯基粒子把直播间搞崩了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| oi99o| + 1|思路广|
+
+查看全部评分
+
+*****
+
+####  风夏  
+##### 13669#       发表于 2025-5-20 23:37
+
+崩了, 有没有备用地址, 很急
+
+*****
+
+####  m99999  
+##### 13670#       发表于 2025-5-20 23:37
+
+突然卡了，还是看日tele
+
+*****
+
+####  YU_JI  
+##### 13671#       发表于 2025-5-20 23:38
+
+我还以为是我的问题，原来炸了啊（
+
+*****
+
+####  妄想系同盟  
+##### 13672#       发表于 2025-5-20 23:38
+
+网站好像崩了？
+
+*****
+
+####  Sliurus  
+##### 13673#       发表于 2025-5-20 23:38
+
+我家也被散布米诺夫斯粒子了，怎么突然看不了直播了<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  m99999  
+##### 13674#       发表于 2025-5-20 23:38
+
+日tele直播
+
+*****
+
+####  hosilly  
+##### 13675#       发表于 2025-5-20 23:38
+
+米粒拉满了是吧
+
+*****
+
+####  dafangwoo  
+##### 13676#       发表于 2025-5-20 23:39
+
+啊啊啊啊啊啊啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cayon  
+##### 13677#       发表于 2025-5-20 23:39
+
+没想到直播间比side6先炸了
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白色池塘  
+##### 13678#       发表于 2025-5-20 23:39
+
+何故、直播何故瘫痪，我必须马上看到血流成河<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+话说回来这集开头麻球妈妈换耳环了呢
+
+*****
+
+####  拉达  
+##### 13679#       发表于 2025-5-20 23:39
+
+这么关键的时候散播米粒子，代哥怎么回事
+
+*****
+
+####  猪突猛进R  
+##### 13680#       发表于 2025-5-20 23:39
+
+那种事情不要啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  seedees3  
+##### 13681#       发表于 2025-5-20 23:39
+
+2400多人同时看，直接崩了
+
+*****
+
+####  masokishin  
+##### 13682#       发表于 2025-5-20 23:39
+
+还有哪里看？
+
+
+*****
+
+####  ryanghj  
+##### 13683#       发表于 2025-5-20 23:40
+
+[https://mov3.co/ja/ntv/](https://mov3.co/ja/ntv/)
+
+*****
+
+####  kaion111  
+##### 13684#       发表于 2025-5-20 23:40
+
+几点有资源，这怎么睡得着
+
+*****
+
+####  YU_JI  
+##### 13685#       发表于 2025-5-20 23:41
+
+米粒糊到屏幕外面了说是
+
+*****
+
+####  m99999  
+##### 13686#       发表于 2025-5-20 23:41
+
+麻秋被大姐抓包了，精神力大杀四方，战舰战斗准备
+
+*****
+
+####  6030sylar  
+##### 13687#       发表于 2025-5-20 23:41
+
+[https://mov3.co/ntv/](https://mov3.co/ntv/)
+
+*****
+
+####  m99999  
+##### 13688#       发表于 2025-5-20 23:41
+
+麻球对大姐开枪了，人崩了
+
+*****
+
+####  amanohanei  
+##### 13689#       发表于 2025-5-20 23:41
+
+? 偷家了?
+
+*****
+
+####  Earendil_C  
+##### 13690#       发表于 2025-5-20 23:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">喵对修斯感情这么重的啊
+
+*****
+
+####  ryanghj  
+##### 13691#       发表于 2025-5-20 23:42
+
+真的抢男人了
+
+*****
+
+####  xmakoto  
+##### 13692#       发表于 2025-5-20 23:42
+
+不要番茄不要高达我们私奔吧<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  拉达  
+##### 13693#       发表于 2025-5-20 23:42
+
+[https://live.bilibili.com/267292 ... arch-card.all.click](https://live.bilibili.com/26729276?live_from=84001&amp;spm_id_from=333.337.search-card.all.click)
+
+Z40Q6613]}4_8}0FR2%O811_tmb.png
+(53 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-20 23:42 上传
+
+<img src="https://img.stage1st.com/forum/202505/20/234207f6czxxaxusvmmtkk.png" referrerpolicy="no-referrer">
+
+*****
+
+####  暗黑能乐  
+##### 13694#       发表于 2025-5-20 23:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还，还有逻辑吗
+
+*****
+
+####  dafangwoo  
+##### 13695#       发表于 2025-5-20 23:42
+
+日tele也卡卡的，梯子不给力啊
+
+*****
+
+####  m99999  
+##### 13696#       发表于 2025-5-20 23:42
+
+尼修股暴涨
+
+*****
+
+####  Sliurus  
+##### 13697#       发表于 2025-5-20 23:42
+
+这是少看几分钟吗，我怎么感觉少看了几集<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 13698#       发表于 2025-5-20 23:43
+
+我错过了啥？我超
+
+*****
+
+####  m99999  
+##### 13699#       发表于 2025-5-20 23:43
+
+刺激啊，太刺激了
+
+*****
+
+####  三度音  
+##### 13700#       发表于 2025-5-20 23:43
+
+基拉全责喔
+
+*****
+
+####  UnhappyTails  
+##### 13701#       发表于 2025-5-20 23:43
+
+不是，这和狗血言情剧有什么分别？？？
+
+是个女的都会无条件爱上男主吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

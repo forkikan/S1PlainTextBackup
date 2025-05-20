@@ -19,3 +19,13 @@
 
 送的两个能用吗
 
+
+*****
+
+####  lighttt  
+##### 1483#       发表于 2025-5-20 23:44
+
+吉翁的机器太少了，全在卡池了，没抽到几个<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PHY110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
