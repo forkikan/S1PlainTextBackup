@@ -9150,3 +9150,77 @@ gq片场这个精神病是真的莫名其妙，原来反射是甲，把甲甩出
 
 gqux的机魂是未来的玛秋，真的很有可能啊<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  青空独  
+##### 14146#       发表于 2025-5-21 02:38
+
+<blockquote>人形灾害 发表于 2025-5-21 02:34
+看到有个鸡夸的机魂是未来麻球的猜想，说不定就是结局穿越时空给过去的自己发信息，按现在这股癫劲来看不 ...</blockquote>
+艹，什么舞武器舞乱伎，重女都对上了。等会儿，gux这机设和舞武器的王舞好像有点像啊，那个眼睛
+
+*****
+
+####  llysander  
+##### 14147#       发表于 2025-5-21 02:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835367&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-21 02:06</a>
+
+感觉这集里面米加粒子炮想性能弱很多，不只是精神力高达，索顿的米加粒子炮威力也很小 ...</blockquote>
+他们没想过没打到或者打了精神病一个对穿，殖民地也要穿了
+
+所以真的是威力很小
+
+*****
+
+####  patema  
+##### 14148#       发表于 2025-5-21 02:40
+
+不过也有可能是gq的殖民地非常结实，毕竟要起高楼（虽然g力这点说不通就是了）
+
+*****
+
+####  青空独  
+##### 14149#       发表于 2025-5-21 02:41
+
+<blockquote>ryanghj 发表于 2025-5-21 02:38
+gqux的机魂是未来的玛秋，真的很有可能啊</blockquote>
+但是下面那张明显就是脑波操作展现玛秋想法的结果啊，正因为当时是玛秋操作所以才会做这个动作
+
+
+*****
+
+####  silvia  
+##### 14150#       发表于 2025-5-21 02:42
+
+<blockquote>ryanghj 发表于 2025-5-21 02:38
+gqux的机魂是未来的玛秋，真的很有可能啊</blockquote>
+几个月前勇气爆发刚用过应该不会用了
+
+*****
+
+####  ryanghj  
+##### 14151#       发表于 2025-5-21 02:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835441&amp;ptid=2209276" target="_blank">silvia 发表于 2025-5-21 02:42</a>
+
+几个月前勇气爆发刚用过应该不会用了</blockquote>
+bravebun是拒绝自己，gqux是只能接受自己<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+*****
+
+####  patema  
+##### 14152#       发表于 2025-5-21 02:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">突然很像奶杜最后善终怎么办
+
+*****
+
+####  Adrenaline!!!  
+##### 14153#       发表于 2025-5-21 02:47
+
+杜来个姐妹换个发型把卡碧尼开了，也不是不可能啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
