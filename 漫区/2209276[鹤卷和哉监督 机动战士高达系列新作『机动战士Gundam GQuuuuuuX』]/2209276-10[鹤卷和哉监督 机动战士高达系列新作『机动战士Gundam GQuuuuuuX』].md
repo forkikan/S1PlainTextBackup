@@ -9475,3 +9475,69 @@ khara这帮人从新eva到现在做3d动作戏还是一种偶尔亮眼巧思击�
 
 这一集包括大姐头和喵安都在有意无意的想要把麻球排除在外，因为在她们的意识里麻球还有退路，只要在此收手就还能回到和平日常（从剧中表现看麻球确实如果不被现场抓包就可以把自己择的一干二净）。<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xwz  
+##### 14175#       发表于 2025-5-21 03:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835344&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-21 01:55</a>
+
+倒是有个很令人在意但是没人提的点，这次又提到了拉拉声的选择性接收，而这次基西莉亚居然都听到了，宅月球 ...</blockquote>
+只能说原版的紫婆就算有NT潜质也根本没机会活到觉醒
+
+
+*****
+
+####  xwz  
+##### 14176#       发表于 2025-5-21 03:22
+
+说起来，不会最后是哈曼跟喵安搭档吧……<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  seedees3  
+##### 14177#       发表于 2025-5-21 03:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835422&amp;ptid=2209276" target="_blank">冰风血羽 发表于 2025-5-21 02:33</a>
+
+精神病被绿叔叔一炮贯穿手臂一炮打穿腰部爆炸头部脱出幸存可能？
+
+—— 来自 realme RMX3706, Android 13,  ...</blockquote>
+微存，反正没拍到驾驶部位爆炸
+
+*****
+
+####  patema  
+##### 14178#       发表于 2025-5-21 03:24
+
+<blockquote>xwz 发表于 2025-5-21 03:22
+说起来，不会最后是哈曼跟喵安搭档吧……</blockquote>
+别再来新角色了，gq线哈曼又要从头折腾
+
+*****
+
+####  windlikeman  
+##### 14179#       发表于 2025-5-21 03:25
+
+重看了一下夏利亚个人秀的部分  这段给了3个全景
+
+精神力被断手——&gt;盖茨爆了个夏利亚以前的绰号，被见面秒——&gt;全景，精神力刚因为断手冲击后仰开始下落
+
+杜打了一发主射，展现了一下反射装甲——&gt;和夏利亚隔空喊话——&gt;打了一发全弹——&gt;全景，感觉这里穿帮了，精神力的下落高度和后面接不上
+
+夏利亚机动躲全弹，两发线控破盾两发线控斩杀——&gt;全景，精神力大概掉落到大楼1/2的位置
+
+也就是精神力被打黑枪从大厦上摔下来摔到一半两位强化人已经被收拾完了
+
+绿叔叔这规格如果当boss想不出怎么打，想必只能用精神力定住他然后用机体直击驾驶舱罢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 14180#       发表于 2025-5-21 03:27
+
+石川：若即若离的三人关系
+
+还真是<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
