@@ -4525,3 +4525,22 @@ G(英)永(靈)恆(殿)
 
 其实我还挺喜欢那些修司喵安的“偷情”小漫画，似是而非的背德感<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刺客ares  
+##### 13663#       发表于 2025-5-20 23:26
+
+来吧鹤卷gg，看看能整的多大<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Steel.Haze  
+##### 13664#       发表于 2025-5-20 23:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67834320&amp;ptid=2209276" target="_blank">xwz 发表于 2025-5-20 21:26</a>
+
+既然都已经依旧被联邦靠堆资源推回宇宙了，吉翁能打下月神2以及后面居然议和才是这个年表里最离谱的 ...</blockquote>
+实际上所罗门呆不住也是问题，要进攻后面的要塞，所罗门是必须的跳板，但是有Bits幽灵战术在当时没有探知手段，没有阿姆罗去阻止，塞拉的水平不足以感知Bits，所罗门驻留舰队恐怕每几天都有数艘被击伤或击毁。这种情况下吉翁得到了喘息之机。
+
