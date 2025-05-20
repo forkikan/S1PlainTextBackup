@@ -4094,3 +4094,14 @@ HALO
 
 总之和正史一样，吉恩在一定在这里消耗了所有的大气圈内机动部队，无论是从宇宙投入的还是原本地球上的
 
+
+*****
+
+####  ryanghj  
+##### 13637#       发表于 2025-5-20 20:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67834013&amp;ptid=2209276" target="_blank">玖羽 发表于 2025-5-20 20:00</a>
+
+月神2号失陷之后联邦就已经输了，瓦肯扔所罗门是鱼死网破，跟战局没关系，夏亚只是想要基西莉亚死 ...</blockquote>
+确实，所罗门落下作战也可以看成是联邦狗急跳墙了
+
