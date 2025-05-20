@@ -102,3 +102,16 @@ PV4（䌷文德斯线）：[https://youtu.be/C-mMijBVMEs](https://youtu.be/C-mMi
 开头的声音是香菜?不会是ED在吹逼的那个吧</blockquote>
 是香菜，cast表也有。
 
+
+*****
+
+####  南風森愛恋  
+##### 145#       发表于 2025-5-20 19:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67831592&amp;ptid=2044761" target="_blank">镜hinata 发表于 2025-5-20 01:13</a>
+
+这姆Q又是幽灵?这什么夏日重现啊
+
+开头的声音是香菜?不会是ED在吹逼的那个吧</blockquote>
+吹逼的那个cv是埃及人，正片里能不能出来说话存疑
+
