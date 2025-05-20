@@ -626,3 +626,46 @@ DSS被鱿鱼打烂了，暂时脱离战场。
 训斥练练还能打西线，穿甲解放者纯陷阱</blockquote>
 是啊，一升满配件上好，进场发现，嘿，这没啥区别啊，遂丢进仓库，早知道拿两把连喷或者卡宾解放去蹭超级结算了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  madcow  
+##### 5984#       发表于 2025-5-20 17:08
+
+所以现在要练枪的话优先哪把，爆裂铳？
+
+
+*****
+
+####  风萧飒  
+##### 5985#       发表于 2025-5-20 17:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67833393&amp;ptid=2170852" target="_blank">madcow 发表于 2025-5-20 17:08</a>
+所以现在要练枪的话优先哪把，爆裂铳？</blockquote>
+爆裂铳蛮好的，目前应该三线都能用。另一把三线通用的焦土不怎么吃改装
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  LrGsite  
+##### 5986#       发表于 2025-5-20 17:14
+
+<img src="https://img.stage1st.com/forum/202505/20/171349qzwnthrjttyhht7t.png" referrerpolicy="no-referrer">
+
+<strong>90HRK$Z7AYXXEOS59_RG`HA.png</strong> (105.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-20 17:13 上传
+
+<img src="https://img.stage1st.com/forum/202505/20/171358uy9grgygrs19gg1r.png" referrerpolicy="no-referrer">
+
+<strong>VAQYV)FH]]9PKCWM7G5X3]D.png</strong> (46.16 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-20 17:13 上传
+
+今晚 保卫超级地球了
+

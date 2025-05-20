@@ -3797,3 +3797,35 @@ GQX现在的线太多了，虽然大家都说要相信，但是我真好奇鹤�
 因为设定有私服吧，总得出来逛一下</blockquote>
 最主要是我认为玛秋现在满脑子都是修司，要跟二号聊上是一件很难的事，要么干脆脑门过电神交一下
 
+
+*****
+
+####  仟音一心  
+##### 13610#       发表于 2025-5-20 17:08
+
+井上正大 cos 夏亚
+发布于微博和QQ空间
+<img src="https://p.sda1.dev/24/1ead543c433538804000c5a5083b9470/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  57042711  
+##### 13611#       发表于 2025-5-20 17:11
+
+太乐了，凭长相当总帅CV是吧<img src="https://static.stage1st.com/image/smiley/bundam2017/016.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  千恋万花  
+##### 13612#       发表于 2025-5-20 17:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67833394&amp;ptid=2209276" target="_blank">仟音一心 发表于 2025-5-20 17:08</a>
+
+井上正大 cos 夏亚
+
+发布于微博和QQ空间</blockquote>
+太草台了，日语部分一堆简体字（明显是中国人做的图
+
