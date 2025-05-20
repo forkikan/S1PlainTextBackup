@@ -15798,3 +15798,22 @@ SR或者以下要SP化，一样要三星
 
 绝望了，现在白嫖抽根本抽不到UR了，只能开小号看看能不能抽个好阵容
 
+
+*****
+
+####  acg_gyanc  
+##### 1476#       发表于 2025-5-20 21:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67830316&amp;ptid=2071758" target="_blank">ddlsyo 发表于 2025-5-19 17:19</a>
+存了一＃好难受啊，好想抽啊，什么时候才出神高达啊</blockquote>
+我攒到现在一井想抽完美背包gself，但是仔细想想按复国的人气搞不好一年内都抽不到<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zzy516232108  
+##### 1477#       发表于 2025-5-20 21:15
+
+第一次玩高打游戏，感觉挺好玩的
+
+然后查了下原来这游戏前作都是主机系，推荐玩吗
+
