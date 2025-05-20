@@ -399,3 +399,14 @@ EU4经过多年更新后奥斯曼强度一般，中后期更是二流国家，�
 
 1337开始的话怎么能自然地通过机制让金帐和元崩掉，同时让机制不妨碍帖木儿崛起感觉还是蛮有挑战的
 
+
+*****
+
+####  猪突猛进R  
+##### 43#       发表于 2025-5-20 14:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67832935&amp;ptid=2251573" target="_blank">Anarkia 发表于 2025-5-20 14:34</a>
+
+1337开始的话怎么能自然地通过机制让金帐和元崩掉，同时让机制不妨碍帖木儿崛起感觉还是蛮有挑战的 ...</blockquote>
+看过视频，元崩掉就是简单粗暴的跳事件，一会儿一个叛军，朱元璋刚出来就是大明（小明）。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
