@@ -2199,3 +2199,41 @@ X一个响指其他人都掉下去了</blockquote>
 
 老魂电要是挂了的话还真够倒霉的，不过以后讲zero应该还有他出场
 
+
+*****
+
+####  新HGCG  
+##### 212#       发表于 2025-5-20 20:59
+
+<img src="https://img.stage1st.com/forum/202505/20/205906vn8kd3ts8hhw8sh7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (295.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-20 20:59 上传
+
+<img src="https://img.stage1st.com/forum/202505/20/205919e77l1bw2tt226f2p.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (80.32 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-20 20:59 上传
+
+<img src="https://img.stage1st.com/forum/202505/20/205932j5zq5eyyhbz5t18t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (145.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-20 20:59 上传
+
+<img src="https://img.stage1st.com/forum/202505/20/205943h9udob58ijzi7uvx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (239.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-20 20:59 上传
+
