@@ -8023,3 +8023,228 @@ GQ擦地面居然擦到打開駕駛倉把喵安摔出來
 
 2025-5-21 01:36 上传
 
+
+*****
+
+####  ryanghj  
+##### 14038#       发表于 2025-5-21 01:36
+
+但说实话，目前为止老太婆没有任何像反派的塑造<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">反而很有人情味
+
+怕不是会认喵安当干女儿
+
+*****
+
+####  砂糖续香香  
+##### 14039#       发表于 2025-5-21 01:37
+
+不会有地球了吧，玛秋包里的钱都没了，梦想破灭了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  windtrack  
+##### 14040#       发表于 2025-5-21 01:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835268&amp;ptid=2209276" target="_blank">猫兔同笼 发表于 2025-5-21 01:34</a>
+
+我是没搞懂这个精神力MKII和这个杜·村雨有多菜。
+
+已知，骡子79年开元祖三分钟解决了绿叔叔，87年开里克· ...</blockquote>
+毕竟79年绿叔叔那MA和现在这个还不一样，那会还得和眼镜妹一起开呢也不会变形
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 14041#       发表于 2025-5-21 01:39
+
+绿叔叔和小番茄的修正戏码还是别演了吧，小番茄不是主动要入伙的，另一方面绿叔叔大概要用是救命恩人这点道德绑架，而且要当小番茄是工具人。
+
+和卡缪的情况一比，能预见修正戏码观感会非常差，直接跳到N年后吧。
+
+*****
+
+####  洛克萨斯  
+##### 14042#       发表于 2025-5-21 01:39
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是79年的机体暴打85还是离谱了，不知道会不会加设定说有更新强化
+
+*****
+
+####  YU_JI  
+##### 14043#       发表于 2025-5-21 01:39
+
+地球应该是不会有了，虚晃一枪，尤其是接下来俩人都跟着吉翁方行动，总不能紫婆闲着没事往地球跑；但是紫婆也很明确说了去下一个任务地点，感觉side6的部分应该是也暂时结束了
+
+*****
+
+####  盐盐盐盐盐  
+##### 14044#       发表于 2025-5-21 01:40
+
+玫瑰在地球，最后肯定要去地球的
+
+*****
+
+####  没取名啊  
+##### 14045#       发表于 2025-5-21 01:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835275&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-21 01:36</a>
+但说实话，目前为止老太婆没有任何像反派的塑造反而很有人情味
+
+怕不是会认喵安当干女儿</blockquote>
+都要搞solar ray了还人情味
+
+*****
+
+####  YU_JI  
+##### 14046#       发表于 2025-5-21 01:40
+
+<blockquote>洛克萨斯 发表于 2025-5-21 01:39
+但是79年的机体暴打85还是离谱了，不知道会不会加设定说有更新强化</blockquote>
+应该是强化了吧，光是那个变形就不可能是79的东西了吧
+
+*****
+
+####  xunit  
+##### 14047#       发表于 2025-5-21 01:40
+
+他这新精神病把外甲全甩出去当浮游撞击盾和反射bit了，本体全靠i立场嗯防
+真的是莫名其妙的设计思路
+
+*****
+
+####  windlikeman  
+##### 14048#       发表于 2025-5-21 01:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">对哦 不是索顿打了一发主炮说有IF打不动么 
+
+绿叔叔怎么线控炮直接打了个对穿
+
+*****
+
+####  6030sylar  
+##### 14049#       发表于 2025-5-21 01:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835210&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-21 01:20</a>
+按现在这描写，我真信绿叔叔的目的就是为了召回夏亚，为此不惜一切。</blockquote>
+绿叔叔吸过夏亚的Kirakira并且念念不忘，太gay了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PKG110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  爱护动物抓根宝  
+##### 14050#       发表于 2025-5-21 01:41
+
+这三人组最后不会还要拉绿叔叔破格吧，这种事情不要啊
+
+*****
+
+####  西洛克  
+##### 14051#       发表于 2025-5-21 01:42
+
+这集不少bgm还是z的吧
+
+
+*****
+
+####  北条早苗  
+##### 14052#       发表于 2025-5-21 01:42
+
+这个新的精神病完全是意义不明吧
+爆甲模式当浮游炮有什么用吗，没爆甲可以I力场手接木马主炮，爆了甲被绿叔叔小浮游炮点死
+散射米加粒子炮不比那堆铁块有用多了，都定位了直接给紫色老太婆的大楼扫一发就完事了
+
+*****
+
+####  盐盐盐盐盐  
+##### 14053#       发表于 2025-5-21 01:43
+
+估计后面几集在宇宙，基西莉亚搞着这个太阳光武器呢，先打基西莉亚&amp;首席哥&amp;喵安，最后去地球找玫瑰（12话有艾尔美斯）
+
+*****
+
+####  seedees3  
+##### 14054#       发表于 2025-5-21 01:43
+
+绿头男你还我白毛<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PigMourne  
+##### 14055#       发表于 2025-5-21 01:44
+
+这老太婆也太纯良了吧，为了一个发电能源项目亲自给卫星总统台阶下，出门就带一个保镖，遇到刺客只能一脸震惊等救<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  盐盐盐盐盐  
+##### 14056#       发表于 2025-5-21 01:44
+
+在大家都不关心的时候首席哥和小森这对没说过话的定制cp也分道扬镳了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  九山节度使  
+##### 14057#       发表于 2025-5-21 01:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835306&amp;ptid=2209276" target="_blank">PigMourne 发表于 2025-5-21 01:44</a>
+这老太婆也太纯良了吧，为了一个发电能源项目亲自给卫星总统台阶下，出门就带一个保镖，遇到刺客只能一脸震 ...</blockquote>
+这项目真不是为了蒸发总帅吗
+
+*****
+
+####  岸浪白野  
+##### 14058#       发表于 2025-5-21 01:45
+
+<img src="https://img.stage1st.com/forum/202505/21/014424w1cczppt88m5tnnc.png" referrerpolicy="no-referrer">
+
+<strong>WO$LN$P(BVL92[_%_R3KY3J.png</strong> (167.77 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 01:44 上传
+
+*****
+
+####  猪突猛进R  
+##### 14059#       发表于 2025-5-21 01:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835297&amp;ptid=2209276" target="_blank">西洛克 发表于 2025-5-21 01:42</a>
+
+这集不少bgm还是z的吧</blockquote>
+精神病变形打炮那段是MS战~敌机袭来，应该只有一首。
+
+*****
+
+####  ryanghj  
+##### 14060#       发表于 2025-5-21 01:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835292&amp;ptid=2209276" target="_blank">windlikeman 发表于 2025-5-21 01:40</a>
+
+对哦 不是索顿打了一发主炮说有IF打不动么 
+
+绿叔叔怎么线控炮直接打了个对穿 ...</blockquote>
+I立场没来得及防住
+
+夏利亚这段战斗我感觉和魔女好像，强化人没有修司那么强的能力自然败下阵来
+
+*****
+
+####  Steel.Haze  
+##### 14061#       发表于 2025-5-21 01:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835286&amp;ptid=2209276" target="_blank">洛克萨斯 发表于 2025-5-21 01:39</a>
+
+但是79年的机体暴打85还是离谱了，不知道会不会加设定说有更新强化</blockquote>
+都可以变成半MS挂载形态了，这个应该是战后改造过了。必经没有改造的话，仅仅79年的MA不会盯的这么死。当然，本质上夏利亚对线控精神力武器用的太熟练了。必经玩了五年了，对手的机体熟练度可能还没五星期。
+
+*****
+
+####  silvia  
+##### 14062#       发表于 2025-5-21 01:46
+
+尼亚安接下来怕不是要开鸡瘟号还是q贝雷
+
