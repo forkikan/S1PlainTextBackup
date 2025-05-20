@@ -3931,3 +3931,52 @@ HALO
 北美在卡尔玛手里吧？只说疤脸被鸭妹弄死了，没说好友这次又被算计了</blockquote>
 卡尔玛退伍跑路了啊，老早就说了
 
+
+*****
+
+####  123gp199  
+##### 13624#       发表于 2025-5-20 18:28
+
+ 本帖最后由 123gp199 于 2025-5-20 18:30 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67833657&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-20 18:22</a>
+
+卡尔玛退伍跑路了啊，老早就说了</blockquote>
+但他老婆是北美的豪门大小姐，他岳父算是投了鸡瘟的联邦侧大人物，他总不能带着老婆上宇宙隐居，把他岳父扔在地球不管不顾，大概率只是退出了鸡瘟军，但北美的地盘还是在他手里，这也符合他受宠小王子的身份，德金越来越管不住基连，总要给最喜欢的小儿子留份家业
+
+*****
+
+####  ryanghj  
+##### 13625#       发表于 2025-5-20 18:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67832905&amp;ptid=2209276" target="_blank">朋友费小号 发表于 2025-5-20 14:23</a>
+
+主要想不到怎么在20分钟里把基西莉亚到side6，绿叔叔暗中行动，番茄三人组逃脱，精神力开片有序展开。
+
+除 ...</blockquote>
+估计从头开始就进入打戏，什么基西莉亚到side6，绿叔叔暗中行动都不用讲啊
+
+*****
+
+####  我聞如是  
+##### 13626#       发表于 2025-5-20 18:33
+
+這歌詞是什麼回事，不是打算三個人一起落跑嗎
+
+我胃開始痛了
+
+
+*****
+
+####  岸浪白野  
+##### 13627#       发表于 2025-5-20 18:36
+
+[X 上的 米津玄師　ハチ：“飛び出し🫨 #Plazma #GQuuuuuuX #踊るマチュ [url]https://t.co/T27ywWdlpx](https://x.com/hachi_08/status/1924770580873806250)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/20/183634ikplfq0qc1cw1u3l.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.22 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-20 18:36 上传
+
