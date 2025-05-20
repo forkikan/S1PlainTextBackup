@@ -4052,3 +4052,14 @@ HALO
 
 2025-5-20 19:11 上传
 
+
+*****
+
+####  Toby_dak  
+##### 13633#       发表于 2025-5-20 19:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67833750&amp;ptid=2209276" target="_blank">123gp199 发表于 2025-5-20 19:45</a>
+
+联邦是战败国，估计连敖德萨都没打下来，要不然马克杯做不到中将。所罗门只是联邦最后的拼死一击，要不然 ...</blockquote>
+脑补之前哪怕看点设定都说不出这点胡话。
+
