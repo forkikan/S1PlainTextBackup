@@ -835,3 +835,14 @@ DSS被鱿鱼打烂了，暂时脱离战场。
 
 感觉除了善用激素核弹手枪的，还是躲吧。
 
+
+*****
+
+####  nukecole  
+##### 6002#       发表于 2025-5-21 00:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67833536&amp;ptid=2170852" target="_blank">kalavinka 发表于 2025-5-20 17:45</a>
+
+输了直接重启是吧</blockquote>
+解包出来是输了会激活抢其他星球的任务，做流亡政府
+
