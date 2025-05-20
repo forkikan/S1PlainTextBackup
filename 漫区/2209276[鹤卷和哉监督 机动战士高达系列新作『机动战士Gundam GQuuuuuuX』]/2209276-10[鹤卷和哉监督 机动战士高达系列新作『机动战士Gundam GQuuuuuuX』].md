@@ -5524,3 +5524,369 @@ mk2怎么寄的那么快！？纯度也太低了吧
 
 再也没有这么好的姐妹了.jpg
 
+
+*****
+
+####  m99999  
+##### 13792#       发表于 2025-5-21 00:04
+
+<blockquote>暗黑能乐 发表于 2025-5-21 00:00
+喵安之前有一点儿爱上男人的描写吗，战场上直接抓了当盾牌诶，然后突然这话就叫男人抛下高达和麻球要私奔 ...</blockquote>
+有，只是不敢表达而已。第四话有苗头，第五话是直接表达自己，第六话很明显对修司单箭头了。
+
+她跟马秋是马秋单方面施惠的关系，而且看上去很投缘追求不平凡的马秋实际上根本不理解自己的阶级和现状的可贵。这和丢了一切拼命想要落脚的喵安是一对非常经典的人物对位，个中心理可想而知。
+
+*****
+
+####  樽——見  
+##### 13793#       发表于 2025-5-21 00:04
+
+主角团剩下这么点集数怎么成长
+
+*****
+
+####  猪突猛进R  
+##### 13794#       发表于 2025-5-21 00:04
+
+结果还真是塑料姐妹<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cayon  
+##### 13795#       发表于 2025-5-21 00:04
+
+ 本帖最后由 cayon 于 2025-5-21 00:06 编辑 
+
+真主角一直都是绿叔叔啊我看是，老登带入爽嗨了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">，不仅当夏亚cp，还替夏亚把复仇吉翁的活全干了
+
+*****
+
+####  ryanghj  
+##### 13796#       发表于 2025-5-21 00:05
+
+所以玛秋和喵安其实都在利用对方来和修司亲热而已<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">纯纯塑料姐妹
+
+*****
+
+####  YU_JI  
+##### 13797#       发表于 2025-5-21 00:06
+
+我现在都怀疑修司是某种集体性幻觉了，从出现到消失只有这俩见过他，说不定红高达一直是机魂状态的无人驾驶（）
+
+*****
+
+####  ティグル  
+##### 13798#       发表于 2025-5-21 00:06
+
+就现在主角团的塑造还是别碰瓷天空学校了吧
+
+*****
+
+####  伊露伊道格拉斯  
+##### 13799#       发表于 2025-5-21 00:06
+
+绿叔叔随手踩死两只臭虫，另一边溜冰小妹在戒断反应发癫。
+
+我都不想说“主角”定位的问题了，制作组真把主角三人当人类塑造吗，是想讽刺瘾君子没有好下场？<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之异热同心  
+##### 13800#       发表于 2025-5-21 00:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">番茄被夏利亚抓去佐冬蹲监狱了还行，这下具备通辽狠人必备条件，龙场悟道了
+
+
+*****
+
+####  ryanghj  
+##### 13801#       发表于 2025-5-21 00:06
+
+ 本帖最后由 ryanghj 于 2025-5-21 00:08 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67834842&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-5-21 00:00</a>
+
+喵安之前有一点儿爱上男人的描写吗，战场上直接抓了当盾牌诶，然后突然这话就叫男人抛下高达和麻球要私奔 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202505/21/000726fmwpw7adzh4kaaw9.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>9l392h256x0f1.jpeg</strong> (401.59 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 00:07 上传
+
+对位是很明显的，只是当时主流观点不承认罢了
+
+*****
+
+####  ftyaid  
+##### 13802#       发表于 2025-5-21 00:07
+
+ 本帖最后由 ftyaid 于 2025-5-21 00:08 编辑 
+
+故事开局是0085
+
+两个女主一开始是同一个势力
+
+她们喜欢上了同一个男人，但那个男人消失了
+
+随后两个人去了不同的势力
+
+一个变成了强化人一个是NT
+
+最后两个人大打出手
+
+这不就是天空的学校！
+
+不行，越想关联点越多了
+
+*****
+
+####  105gun  
+##### 13803#       发表于 2025-5-21 00:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那个禁闭室是骡子同款吧
+
+*****
+
+####  Devola  
+##### 13804#       发表于 2025-5-21 00:07
+
+三人行就当另一部动画吧，无关心
+
+还是if的部分有乐子
+
+*****
+
+####  苇原雪道  
+##### 13805#       发表于 2025-5-21 00:07
+
+哈哈哈哈这第五集怎么一转三角剧情？？？哈哈哈哈扭曲起来了我喜欢！！！
+
+原本看男主就挺不爽，感觉没啥意思了。结果扭起来了哈哈哈哈
+
+*****
+
+####  fmban  
+##### 13806#       发表于 2025-5-21 00:08
+
+两首插入曲我觉得都不搭
+
+*****
+
+####  Toby_dak  
+##### 13807#       发表于 2025-5-21 00:08
+
+magnet:?xt=urn:btih:0d900cc46e64169c4034651216eabbcb229b6b2a&amp;dn=%5BNew-raws%5D%20Kidou%20Senshi%20Gundam%20GQuuuuuuX%20-%2007%20%5B1080p%5D%20%5BAMZN%5D.mkv&amp;tr=http%3A%2F%2Fnyaa.tracker.wf%3A7777%2Fannounce&amp;tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&amp;tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&amp;tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&amp;tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce
+
+扔个磁链。
+
+*****
+
+####  windlikeman  
+##### 13808#       发表于 2025-5-21 00:08
+
+这时间线NT是真超人.......格差太大了
+
+*****
+
+####  huanzhi  
+##### 13809#       发表于 2025-5-21 00:08
+
+<img src="https://s2.loli.net/2025/05/21/zTWrXdD9vG8wpcJ.jpg" referrerpolicy="no-referrer">
+
+没眼看<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 13810#       发表于 2025-5-21 00:08
+
+<img src="https://img.stage1st.com/forum/202505/21/000804tn98x1wj3qbwxqzh.png" referrerpolicy="no-referrer">
+
+<strong>24e4cebc88c34245effdef7df92e5d1f.png</strong> (44.56 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 00:08 上传
+
+mav战术
+
+指同时干掉两个国家级领导人
+
+*****
+
+####  楠城旧篱  
+##### 13811#       发表于 2025-5-21 00:08
+
+烂片雷达狂响,真讲的完吗
+
+*****
+
+####  中野梓  
+##### 13812#       发表于 2025-5-21 00:09
+
+鹤卷只想告诉告诉女儿别当精神小妹，远离艺术男远离毒品
+
+*****
+
+####  m99999  
+##### 13813#       发表于 2025-5-21 00:10
+
+喷三角剧情的不要急。三角关系肯定会在终盘成为终结战争火焰的关键。这部剧从头到尾估计就没想描写大规模的战争，马秋再第二部估计是阿姆罗+卡谬，绿叔叔被修正不可避
+
+*****
+
+####  猪突猛进R  
+##### 13814#       发表于 2025-5-21 00:10
+
+这集确实是神转折，不过主角团3人塑造崩了，这一切都值得吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  暗黑能乐  
+##### 13815#       发表于 2025-5-21 00:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67834867&amp;ptid=2209276" target="_blank">m99999 发表于 2025-5-21 00:04</a>
+
+有，只是不敢表达而已。第四话有苗头，第五话是直接表达自己，第六话很明显对修司单箭头了。
+
+她跟马秋是 ...</blockquote>
+那我必须说是鹤卷的问题，经常给一个大段大段的MV，然后给个一个人思考的镜头（实际想表达什么完全不知道），我觉得塑造不是你突然蹦出个结果，然后你前面啥也没写自己去脑补这样的吧，喜欢是需要理由的，是需要契机的，如果你不是一见钟情的那种尤其需要这方面描写，喵安显然没给一见钟情的暗示，感情的升温也完全没有，那突然就对修斯爱的要死这怎么就不突兀了。
+
+*****
+
+####  清雨  
+##### 13816#       发表于 2025-5-21 00:10
+
+正史里精神力高达的驾驶舱是在头部，mk2的驾驶舱也在头部吗
+
+*****
+
+####  猫兔同笼  
+##### 13817#       发表于 2025-5-21 00:10
+
+这绿叔叔实力针对标西洛克吗？开个79年机子能爆希精神力和汉布拉比？
+
+*****
+
+####  中野梓  
+##### 13818#       发表于 2025-5-21 00:10
+
+该第二季众神归位大战奶奶头了
+
+*****
+
+####  麻巳巳  
+##### 13819#       发表于 2025-5-21 00:11
+
+别的不说就那几个场景插两首情歌进来真的合适吗...没眼看了
+
+*****
+
+####  创始’’’天翔  
+##### 13820#       发表于 2025-5-21 00:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67834812&amp;ptid=2209276" target="_blank">m99999 发表于 2025-5-20 23:57</a>
+
+唯独三主角是用的富野节式的描写
+
+其实三个人的心理挺好理解的，最多修司有点迷 ...</blockquote>
+把富野根本就不会写感情戏的糟粕全学去了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 13821#       发表于 2025-5-21 00:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67834905&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-5-21 00:10</a>
+
+那我必须说是鹤卷的问题，经常给一个大段大段的MV，然后给个一个人思考的镜头（实际想表达什么完全不知道 ...</blockquote>
+鹤卷这里的手法是，前期铺垫一些小细节（比如第四集第五集里喵安试图了解修司，而玛秋在一旁旁观），你察觉不到，后期剧情爆了你回头想确实是这样的
+
+*****
+
+####  暗黑能乐  
+##### 13822#       发表于 2025-5-21 00:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67834885&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-21 00:06</a>
+
+对位是很明显的，只是当时主流观点不承认罢了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你可以说这种镜头算是暗示，但是这不等于塑造，因为如果不喜欢，也解释得通啊
+
+*****
+
+####  齿轮轴君  
+##### 13823#       发表于 2025-5-21 00:12
+
+这集好爽，各种意义上，下集讲0079属于烂活。
+
+4集内容讲完三小只和绿叔叔的话勉强够？我原本以为下集预告会一转几年后
+
+*****
+
+####  创始’’’天翔  
+##### 13824#       发表于 2025-5-21 00:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67834858&amp;ptid=2209276" target="_blank">winda 发表于 2025-5-21 00:03</a>
+
+好平和的精神力高达啊，感觉beam的人头数还没bit乱飞杀的人多，有名有姓角色更是一个不杀的善良之枪。
+
+这次 ...</blockquote>
+史上最残虐BOSS.JPG
+
+*****
+
+####  伊露伊道格拉斯  
+##### 13825#       发表于 2025-5-21 00:12
+
+这集首席哥也吐槽绿叔叔，"不需要mav战术一个人也可以"。
+
+我早就说这mav战术本来就是搞笑的吧。
+
+mav战术要求两人，完全是因为夏亚和夏利亚恰好是两人，开两台赛克缪机体。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+取得超强战绩的重点，完全在于NT+赛克缪机体啊，根本就不在于什么配合的战术。<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  windtrack  
+##### 13826#       发表于 2025-5-21 00:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67834805&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-20 23:57</a>
+
+有一个大胆的想法，修司从来没真实存在过，现在是不是只有番茄和喵安见过修司，如果修司是什么集体性幻觉呢 ...</blockquote>
+我操，搞不好真有可能，修司就是红高机魂，kirakira连接器，修司一消失2妹和番茄都感受不到kirakira了全是负面
+
+*****
+
+####  Mr1z  
+##### 13827#       发表于 2025-5-21 00:13
+
+妈的，我害怕了，鹤卷和哉哥哥太自信了
+我已经害怕了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  potenzh  
+##### 13828#       发表于 2025-5-21 00:13
+
+现在制作组还是不敢死太多人了 这么大场面 伤亡才百人
+
+*****
+
+####  YU_JI  
+##### 13829#       发表于 2025-5-21 00:13
+
+感觉两女人之后是一边打架一边吵架的节奏了
+
+*****
+
+####  洛克萨斯  
+##### 13830#       发表于 2025-5-21 00:14
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绿叔叔这强度比鸭子还高吧，开着79年的机体宰猪85年的机体
+

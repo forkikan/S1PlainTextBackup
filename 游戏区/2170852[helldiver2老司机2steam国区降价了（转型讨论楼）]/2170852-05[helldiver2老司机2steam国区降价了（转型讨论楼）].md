@@ -846,3 +846,15 @@ DSS被鱿鱼打烂了，暂时脱离战场。
 输了直接重启是吧</blockquote>
 解包出来是输了会激活抢其他星球的任务，做流亡政府
 
+
+*****
+
+####  风萧飒  
+##### 6003#       发表于 2025-5-21 00:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67834645&amp;ptid=2170852" target="_blank">狭义文具爱好者 发表于 2025-5-20 23:19</a>
+天上的利维坦5甲过万血，纯数值。手拆相对有效率的拆法就核弹手枪，at炮，无后座。at炮还要配个盾不然会主 ...</blockquote>
+我用at炮打了几次都没怎么鸟我，可能是比较远吧。不过这东西倒不怎么用管他，可以任务做完抽空去打
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
