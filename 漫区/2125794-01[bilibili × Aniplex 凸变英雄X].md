@@ -2184,3 +2184,18 @@ X一个响指其他人都掉下去了</blockquote>
 
 这个局的意义很简单吧，把不听话的老魂电换下去
 
+
+*****
+
+####  补丁  
+##### 211#       发表于 2025-5-20 10:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67830597&amp;ptid=2125794" target="_blank">acejoe 发表于 2025-5-19 18:33</a>
+
+怎么从找凶手转化到和老魂电单挑的？逻辑是啥？
+
+而且搞这个局有啥意义？捧新人？</blockquote>
+因为自己瞬间的嫉妒没救成基友，已经没有理智了，报仇是唯一发泄出口，其他人找不到只有单挑老魂电
+
+老魂电要是挂了的话还真够倒霉的，不过以后讲zero应该还有他出场
+
