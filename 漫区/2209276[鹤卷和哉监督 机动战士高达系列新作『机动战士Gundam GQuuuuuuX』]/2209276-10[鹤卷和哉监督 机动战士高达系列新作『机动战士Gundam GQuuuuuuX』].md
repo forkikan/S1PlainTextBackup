@@ -3677,3 +3677,23 @@ VSBR還是要建基於迷你化及動力爐進一步強化之後，不停矛盾�
 
 别人开精神力高达，他开精神力扎古是吧
 
+
+*****
+
+####  无念  
+##### 13598#       发表于 2025-5-20 15:16
+
+那不是越混越回去了，还不如塞吉翁号里
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  无念  
+##### 13599#       发表于 2025-5-20 15:20
+
+想了想可以把伟大吉翁号扶正啊，正好吉翁号和阿普萨拉斯这个时间线可能都被红高达带来的冲击下马了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">，不是正符合首席哥这个开不上高达的人么
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
