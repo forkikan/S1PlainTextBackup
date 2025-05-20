@@ -9640,3 +9640,72 @@ X 上的 九石三羽：“もうこうなってもいいや、ってこと？�
 
 2025-5-21 02:35 上传
 
+
+*****
+
+####  ryanghj  
+##### 14190#       发表于 2025-5-21 03:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835498&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-21 03:32</a>
+
+石川这话都知道不用说了
+
+剩下 4话内2个还要先打一遍然后再组MAV，说的话就没有骗过你的，就不要想什么大战 ...</blockquote>
+虚假的mav和真正的mav吗
+
+*****
+
+####  molemole  
+##### 14191#       发表于 2025-5-21 03:40
+
+所以，玩具什么时候出呢，事已至此起码玩具多出一些吧，强人汉谟拉比都挺好的
+
+*****
+
+####  披头破落户  
+##### 14192#       发表于 2025-5-21 03:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835407&amp;ptid=2209276" target="_blank">seedees3 发表于 2025-5-21 02:25</a>
+一季太短了，也没办法展开太多，目前来看就只是khara玩票性质的作品，人物出场人物便当让老面孔挨个出场来 ...</blockquote>
+没续作的东西随他作吧
+
+—— 来自 vivo V2329A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  岸浪白野  
+##### 14193#       发表于 2025-5-21 03:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835260&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-21 01:31</a>
+
+X 上的 Dyson Max@フリーランス3Dモデラー：“✨機動戦士Gundam GQuuuuuuX　TVシリーズ放送！！ 機動戦士G ...</blockquote>
+[X 上的 大竹 守：“ジークアクス7話作監回でした。 スタッフでリアルタイム視聴致しました📺 しかし、情報過多過ぎて、もう…笑 関係者各位様、お疲れ様でした！！ #ジークアクス #GQuuuuuuuX [url]https://t.co/nNMxSmbPNI](https://x.com/m_otake929/status/1924862099693699539)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/21/034029qjvqhwd69ouoboo3.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250521033851.jpg</strong> (2.12 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 03:40 上传
+
+*****
+
+####  希望之异热同心  
+##### 14194#       发表于 2025-5-21 03:40
+
+想到的一些线索，修斯说玫瑰启动了然后引发泽克nova传送走了。走了之后杜直接说出kirakira消失了然后开始暴走。麻球上机后也和杜一样，麻球并没有直接看到修斯传送走，但上机后感应到了kirakira消失了，并且和杜一样精神开始暴走，然后被夏利亚一炮打停机。结合2集下来杜的台词“好想在kirakira里玩““凭借自己意志进化的我们才适合当新人类”，kirakira可能并不是一个nt之间的聊天室，而是由沙仑玫瑰带来的一个特殊的高维的空间，强化人通过改造可以自己单独进入这个空间。而自然进化的新人类则需要和其他新人类一起才能进去。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  DANAmya  
+##### 14195#       发表于 2025-5-21 03:42
+
+联邦真就是背景板了，剩下4集左右希望能把干掉汤大基和紫色老太婆，然后找到玫瑰讲完吧，那后面就是留白了吗？
+
+如果只是这些的话没搞懂写这部if篇到底想表达什么主题呢？
+
+主角三人关系性也是莫名其妙的，但现在俩女主的关系也不至于上战场就反目成仇吧（除非你跟我说修司是拉拉位，俩女主是骡子鸭子位），几位主角又怎样才会参与到干掉吉翁首领的大事件呢？<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
