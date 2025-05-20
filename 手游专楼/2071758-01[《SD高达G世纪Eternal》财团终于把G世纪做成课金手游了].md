@@ -15661,3 +15661,20 @@ Z用不能变形换了空飞和五移动，赢麻了好吧<img src="https://stat
 
 但是说地区不对
 
+
+*****
+
+####  rockroxas  
+##### 1465#       发表于 2025-5-20 09:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67831658&amp;ptid=2071758" target="_blank">格雷殿下 发表于 2025-5-20 03:38</a>
+
+我商店显示jp￥，是哪个地区的
+
+我应该绑的是美国的万代号，
+
+我想领取优惠码的东西</blockquote>
+我没进行过太多的尝试，但是显示的货币大多看的加速器定位哪里或者固定是某种货币，跟哪里下的无关
+
+具体是哪里下的，你看下载渠道有没有说，没说就得专门去找万代号注册地区重新下
+

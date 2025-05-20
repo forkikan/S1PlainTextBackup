@@ -573,3 +573,15 @@ DSS被鱿鱼打烂了，暂时脱离战场。
 
 520，保卫ON SEA
 
+
+*****
+
+####  MkChang  
+##### 5979#       发表于 2025-5-20 08:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67831668&amp;ptid=2170852" target="_blank">xinfengj 发表于 2025-5-20 04:31</a>
+改枪解包，以后可能会有多种子弹可选。</blockquote>
+现在都不是所有武器都能改，改子弹估计和装甲车一样不知道猴年马月才放出来了<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
