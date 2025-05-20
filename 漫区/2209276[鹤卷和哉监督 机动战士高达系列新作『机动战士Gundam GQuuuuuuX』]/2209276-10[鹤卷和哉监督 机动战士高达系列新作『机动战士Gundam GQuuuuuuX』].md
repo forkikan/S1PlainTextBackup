@@ -9828,3 +9828,84 @@ X 上的 Dyson Max@フリーランス3Dモデラー：“✨機動戦士Gundam G
 而且缩写的GQ已经是这部作品出机设和 ...</blockquote>
 总感觉剩下这点篇幅说不了什么完整故事，药丸
 
+
+*****
+
+####  dozen  
+##### 14207#       发表于 2025-5-21 04:18
+
+杜这口罩上了机反而不用戴啊<img src="https://static.stage1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  死光光  
+##### 14208#       发表于 2025-5-21 04:27
+
+还剩5集的情况下，下一集放剧场版切片吗，真的假的
+
+*****
+
+####  xwz  
+##### 14209#       发表于 2025-5-21 04:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835526&amp;ptid=2209276" target="_blank">死光光 发表于 2025-5-21 04:27</a>
+
+还剩5集的情况下，下一集放剧场版切片吗，真的假的</blockquote>
+12集以后突然换标题的可能性微存？
+
+*****
+
+####  岸浪白野  
+##### 14210#       发表于 2025-5-21 04:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835527&amp;ptid=2209276" target="_blank">xwz 发表于 2025-5-21 04:29</a>
+
+12集以后突然换标题的可能性微存？</blockquote>
+这部立的企划真的是12集没有骗人不然不会一直都没消息，不要幻想了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而且缩写的GQ已经是这部作品出机设和人物和正作如何区别的设置了，更不会换标题影响这个
+
+*****
+
+####  岸浪白野  
+##### 14211#       发表于 2025-5-21 04:40
+
+所罗门部分只有10多分钟只能是第8集的半集，剩下半集要说什么更怪好吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  percy1234  
+##### 14212#       发表于 2025-5-21 04:44
+
+不知道是不是错觉，总觉得这片子其实还挺“穷”的，至少相比上一部tva水魔那茫茫多的staff而言，gqx好像并没有动用那么多制作资源..
+
+*****
+
+####  xwz  
+##### 14213#       发表于 2025-5-21 05:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835529&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-21 04:37</a>
+
+这部立的企划真的是12集没有骗人不然不会一直都没消息，不要幻想了
+
+而且缩写的GQ已经是这部作品出机设和 ...</blockquote>
+总感觉剩下这点篇幅说不了什么完整故事，药丸
+
+*****
+
+####  冰风血羽  
+##### 14214#       发表于 2025-5-21 05:41
+
+这集精神病乱射特效怎么跟后面扎古机枪打出来的玩意差不多（？所以你们是在玩三式礼花弹对不对<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  发呆的龙虾  
+##### 14215#       发表于 2025-5-21 05:42
+
+tts果然全是废物呢。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BRA-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
