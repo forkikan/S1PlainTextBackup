@@ -742,3 +742,12 @@ DSS被鱿鱼打烂了，暂时脱离战场。
 
 更新完之后一插旗子直接游戏崩溃<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yahuchi  
+##### 5993#       发表于 2025-5-20 18:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67833537&amp;ptid=2170852" target="_blank">Adrenaline!!! 发表于 2025-5-20 17:46</a></blockquote>
+棒约克应该是纽约，馨家泊是新加坡，荣都应该是繁荣城斯德哥尔摩，其他的就不好猜了
+
