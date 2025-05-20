@@ -3787,3 +3787,13 @@ GQX现在的线太多了，虽然大家都说要相信，但是我真好奇鹤�
 
 话说这集是汉谟拉比和精神力互组MAV吗（）
 
+
+*****
+
+####  ヒトニナル  
+##### 13609#       发表于 2025-5-20 16:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67833236&amp;ptid=2209276" target="_blank">古怪山庄士大夫 发表于 2025-5-20 16:18</a>
+因为设定有私服吧，总得出来逛一下</blockquote>
+最主要是我认为玛秋现在满脑子都是修司，要跟二号聊上是一件很难的事，要么干脆脑门过电神交一下
+

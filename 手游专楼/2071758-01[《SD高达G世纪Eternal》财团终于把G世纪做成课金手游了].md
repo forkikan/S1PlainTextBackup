@@ -15714,3 +15714,29 @@ Z用不能变形换了空飞和五移动，赢麻了好吧<img src="https://stat
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  格雷殿下  
+##### 1469#       发表于 2025-5-20 16:53
+
+防御高达用骰子还是精神应力好
+
+*****
+
+####  rockroxas  
+##### 1470#       发表于 2025-5-20 16:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67832626&amp;ptid=2071758" target="_blank">lighttt 发表于 2025-5-20 12:31</a>
+
+歪了一个风灵，你们多的是突破还是留着打永恒啊
+
+—— 来自 OPPO PHY110, Android 15, 鹅球 v3.5.99-alpha ...</blockquote>
+我的话会突
+
+1支援机输出没那么高，技能缺的UR素材也没富余
+
+2UR机的优势是有驾驶跟不会浪费狗粮容易找就业，第二台没有这个优势
+
+3突破一星提升是最大的
+
