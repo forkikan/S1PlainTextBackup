@@ -3319,3 +3319,35 @@ Q：像八千代能从嘴里喷热水、头顶冒烟花等增加了很多实用�
 
 下集要致敬TOP2是吧
 
+
+*****
+
+####  Yinacona  
+##### 289#       发表于 2025-5-21 02:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这集前面观感挺奇怪的或者说很生硬……？头一次感觉前面20分钟这么煎熬想要快进的。然后原来嘭子是星球出生宇宙长大吗？第二集时还以为是说宇宙中长大的没想到其实在母星连大学都上过了，那既然能手搓火箭了其实把机器人都修好也不是什么难事了等一个契机。最后没想到还要 tobe continue的
+
+
+*****
+
+####  NBXX  
+##### 290#       发表于 2025-5-21 02:34
+
+给嘭子准备上太空行李这段，这本漫画应该是捏他了 星の瞳のシルエット 第一卷的封面。
+
+<img src="https://img.stage1st.com/forum/202505/21/023442qyiu913xuxv19zfy.jpg" referrerpolicy="no-referrer">
+
+<strong>56342dd6a236e0fa0c1a3ae7ee6ccb88.png.jpg</strong> (626.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 02:34 上传
+
+<img src="https://img.stage1st.com/forum/202505/21/023446eu2wuqfqmiqnfunz.jpg" referrerpolicy="no-referrer">
+
+<strong>0468134df2b65b4503107dd471703ee1.png.jpg</strong> (768.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 02:34 上传
+

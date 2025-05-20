@@ -8942,3 +8942,211 @@ NGA那边的讨论笑死 <blockquote>只能说让玛秋和Gquuuuuux过吧，第�
 
 gq片场这个精神病是真的莫名其妙，原来反射是甲，把甲甩出去后本体是不防beam的<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  依然荏苒  
+##### 14127#       发表于 2025-5-21 02:26
+
+看得我笑的不停，这就是令和的高达么，不过长发女可能下意识认为电波男和自己是一样的人～无家可归的，也难免。
+
+*****
+
+####  pu  
+##### 14128#       发表于 2025-5-21 02:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835383&amp;ptid=2209276" target="_blank">ku2154513 发表于 2025-5-21 02:12</a>
+
+纯都合属于是，威力真那么小打啥光束啊，拉满实弹算了</blockquote>
+哈哈 威力这么小还建啥精神力高达 233 有的人连舰炮水平的米加粒子炮都要洗下 威力好小的 轰不掉大楼~ **能气化高达尼姆合金 能一发轰烂军舰的东西  爬上大楼米加粒子炮怼脸枪毙这种垃圾桥段要给他“合理化”一下 哇 基西莉亚爬上楼顶了（也不知道哪来的情报）咱去怼脸轰她（导演是不是忘了他手指米粒炮的口径 一般光束来复枪射出去附近10米的人都气化了）
+
+*****
+
+####  dbyboy  
+##### 14129#       发表于 2025-5-21 02:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835124&amp;ptid=2209276" target="_blank">faxi 发表于 2025-5-21 01:00</a>
+
+所以再起是不是比这几个都强一点，当然那个确实不能算高达TV就是，只能是胶达 ...</blockquote>
+你确定只是一点？
+
+抛开高达动画的属性，再起是个正儿八经的四肢健全的完整动画
+
+铁血是演到最后把腿给锯了，剩下水魔和gqx看起来就像是从胚胎就出问题的畸形儿
+
+*****
+
+####  theFinalNagisa  
+##### 14130#       发表于 2025-5-21 02:28
+
+就这啊，要我说日子人是不是承平日久过头了，一点想法都没有？
+
+*****
+
+####  青空独  
+##### 14131#       发表于 2025-5-21 02:30
+
+<blockquote>青空独 发表于 2025-5-21 02:19
+这集下来真的要降低期待了，倒不是说一定会烂。只是我很难相信一部动画在充斥着莫名其妙，强行展开的情况下 ...</blockquote>
+其实别说这集，前几集也有不少莫名其妙的地方，魔女那集我很喜欢人物塑造，但是修司到底是怎么跑魔女背后去的，以及后一集就说明了钢线可以带电，为什么魔女不带；黑色三连星中两个混成废品回收商我权当他解释过了，但是为什么一开始不砍喵安机体头部呢，又是踢又是电的，像玩一样完全不像个老兵的样子，还有大魔被砍个头部怎么就爆炸了，第一集玛秋热能斧直击扎古腹部都没爆只是断电，这大魔比扎古脆弱这么多吗，槽点真是太多说不完，话说鹤卷是不是忘了第一集开头故事的起源发给玛秋的神秘短信，他还解不解释了。
+
+*****
+
+####  yukisanae  
+##### 14132#       发表于 2025-5-21 02:30
+
+7集了，还没看出主角魅力，这片是绿叔叔传吗？
+
+*****
+
+####  llysander  
+##### 14133#       发表于 2025-5-21 02:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835292&amp;ptid=2209276" target="_blank">windlikeman 发表于 2025-5-21 01:40</a>
+
+对哦 不是索顿打了一发主炮说有IF打不动么 
+
+绿叔叔怎么线控炮直接打了个对穿 ...</blockquote>
+线控炮哒
+
+准塞克缪（老g世纪
+
+觉醒特殊射击（新g世纪
+
+完全没道理<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer"> 一般漏斗/线控出力小于制式可替换武装小于固定武装的
+
+*****
+
+####  岸浪白野  
+##### 14134#       发表于 2025-5-21 02:31
+
+这集诡异的是这杜的服设是全程没用上过的，先说明官网有列上的都是动画会用到的，和设定集补充服设是两回事<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202505/21/022918k47z8kvzay4qmq41.png" referrerpolicy="no-referrer">
+
+<strong>chara_37_01.png</strong> (487.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 02:29 上传
+
+*****
+
+####  patema  
+##### 14135#       发表于 2025-5-21 02:31
+
+其实硬要圆只能说不想波及到side6高层，只能这么圆了
+
+
+*****
+
+####  上坂莲华  
+##### 14136#       发表于 2025-5-21 02:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835418&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-21 02:31</a>
+
+这集诡异的是这杜的服设是全程没用上过的，先说明官网有列上的都是动画会用到的，和设定集补充服设是两回事 ...</blockquote>
+后面聊天室里面穿不就完了，魔女聊天室也换回常服了来着
+
+*****
+
+####  ku2154513  
+##### 14137#       发表于 2025-5-21 02:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835410&amp;ptid=2209276" target="_blank">pu 发表于 2025-5-21 02:27</a>
+哈哈 威力这么小还建啥精神力高达 233 有的人连舰炮水平的米加粒子炮都要洗下 威力好小的 轰不掉大楼~ ** ...</blockquote>
+也可以圆嘛，精神力高达的粒子炮其实是高压水枪，出力大能射穿敌方装甲，出力小了顶多给紫婆洗个澡
+
+*****
+
+####  冰风血羽  
+##### 14138#       发表于 2025-5-21 02:33
+
+精神病被绿叔叔一炮贯穿手臂一炮打穿腰部爆炸头部脱出幸存可能？
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  人形灾害  
+##### 14139#       发表于 2025-5-21 02:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835415&amp;ptid=2209276" target="_blank">青空独 发表于 2025-5-21 02:30</a>
+其实别说这集，前几集也有不少莫名其妙的地方，魔女那集我很喜欢人物塑造，但是修司到底是怎么跑魔女背后 ...</blockquote>
+看到有个鸡夸的机魂是未来麻球的猜想，说不定就是结局穿越时空给过去的自己发信息，按现在这股癫劲来看不能说没可能……
+
+*****
+
+####  llysander  
+##### 14140#       发表于 2025-5-21 02:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835336&amp;ptid=2209276" target="_blank">oi99o 发表于 2025-5-21 01:53</a>
+
+所以夏亚在面对妹妹的时候也选择脱出吗，真是个丢人的家伙呢</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">原版每次见妹妹都丢一两句意义不明的话然后遁很快呢
+
+*****
+
+####  ryanghj  
+##### 14141#       发表于 2025-5-21 02:35
+
+重看真觉得这次单纯就是红高主动tp走了，和夏亚那次不一样
+
+*****
+
+####  seedees3  
+##### 14142#       发表于 2025-5-21 02:36
+
+或许鹤卷割割拍高达只是想拍青春三角恋和膜偶像，具体技术上的事真没考虑这么多啦
+
+<img src="https://img.stage1st.com/forum/202505/21/023542z1hw1ok1vuhkh121.png" referrerpolicy="no-referrer">
+
+<strong>ggggggg.png</strong> (234.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 02:35 上传
+
+*****
+
+####  岸浪白野  
+##### 14143#       发表于 2025-5-21 02:36
+
+ 本帖最后由 岸浪白野 于 2025-5-21 02:38 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835420&amp;ptid=2209276" target="_blank">上坂莲华 发表于 2025-5-21 02:32</a>
+
+后面聊天室里面穿不就完了，魔女聊天室也换回常服了来着</blockquote>
+我没打完字，我说这集就死了再看回这个就诡异，也有可能会是第一次列没用上的人设让人猜剧情想多的，因为真有很多日本人已经觉得她已经死了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  silvia  
+##### 14144#       发表于 2025-5-21 02:37
+
+<blockquote>青空独 发表于 2025-5-21 02:30
+其实别说这集，前几集也有不少莫名其妙的地方，魔女那集我很喜欢人物塑造，但是修司到底是怎么跑魔女背后 ...</blockquote>
+这些跟闪现挡枪都是一个道理，没必要深究看个乐就行了
+
+*****
+
+####  ryanghj  
+##### 14145#       发表于 2025-5-21 02:38
+
+<img src="https://img.stage1st.com/forum/202505/21/023722wpctpann5tvjv5ng.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (180.17 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 02:37 上传
+
+<img src="https://img.stage1st.com/forum/202505/21/023744x9226e62dntsx6uk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (170.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 02:37 上传
+
+gqux的机魂是未来的玛秋，真的很有可能啊<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
