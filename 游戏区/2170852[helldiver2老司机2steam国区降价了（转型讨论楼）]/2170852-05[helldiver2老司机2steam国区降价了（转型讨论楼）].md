@@ -669,3 +669,21 @@ DSS被鱿鱼打烂了，暂时脱离战场。
 
 今晚 保卫超级地球了
 
+
+*****
+
+####  风萧飒  
+##### 5987#       发表于 2025-5-20 17:21
+
+这几个什么城市你们认得出来吗
+
+<img src="https://img.stage1st.com/forum/202505/20/172056mxzftx7r80xp8axk.png" referrerpolicy="no-referrer">
+
+<strong>Image_1747732585313.png</strong> (121.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-20 17:20 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

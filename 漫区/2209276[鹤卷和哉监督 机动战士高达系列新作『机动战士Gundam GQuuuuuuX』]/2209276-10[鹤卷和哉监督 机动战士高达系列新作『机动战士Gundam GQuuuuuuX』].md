@@ -3829,3 +3829,18 @@ GQX现在的线太多了，虽然大家都说要相信，但是我真好奇鹤�
 发布于微博和QQ空间</blockquote>
 太草台了，日语部分一堆简体字（明显是中国人做的图
 
+
+*****
+
+####  岸浪白野  
+##### 13613#       发表于 2025-5-20 17:22
+
+【【NOMELON NOLEMON】高达GQuuuuuuX 第7话插曲『HALO（星环）』全曲试听】 [https://www.bilibili.com/video/BV1YLJhzGE8G/](https://www.bilibili.com/video/BV1YLJhzGE8G/)
+
+*****
+
+####  YU_JI  
+##### 13614#       发表于 2025-5-20 17:27
+
+新歌来咯，瓜柠三杀！
+
