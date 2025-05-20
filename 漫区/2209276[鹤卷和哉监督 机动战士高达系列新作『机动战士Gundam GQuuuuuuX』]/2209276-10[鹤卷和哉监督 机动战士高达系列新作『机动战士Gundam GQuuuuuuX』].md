@@ -3706,3 +3706,23 @@ VSBR還是要建基於迷你化及動力爐進一步強化之後，不停矛盾�
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么觉得玛秋和二号能见面，首先玛秋很忙，其次二号看起来根本不是那种会出去逛的角色啊
 开个聊天室聊聊就够了
 
+
+*****
+
+####  plok201  
+##### 13601#       发表于 2025-5-20 15:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67832905&amp;ptid=2209276" target="_blank">朋友费小号 发表于 2025-5-20 14:23</a>
+
+主要想不到怎么在20分钟里把基西莉亚到side6，绿叔叔暗中行动，番茄三人组逃脱，精神力开片有序展开。
+
+除 ...</blockquote>
+GQX现在的线太多了，虽然大家都说要相信，但是我真好奇鹤卷要怎么取舍观众才能满意
+
+*****
+
+####  灵魂收割机  
+##### 13602#       发表于 2025-5-20 15:38
+
+番茄上绿木马基本没跑了，但是绿木马在停战期间能下地球吗？二战是不是该开始了？
+
