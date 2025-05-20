@@ -3432,3 +3432,13 @@ VSBR還是要建基於迷你化及動力爐進一步強化之後，不停矛盾�
 和战舰比呀</blockquote>
 您可能是对战舰航速推力有什么误解…摸霸这玩意要不靠守株待兔，用来进攻只能追在战舰后面吃屁～～而且怎么就只假想打战舰啊？难道是以为联邦是倒退了20年没MS了么🤔
 
+
+*****
+
+####  57042711  
+##### 13570#       发表于 2025-5-20 09:25
+
+这个世界线联邦被大扎姆暴打过，精神力高达这么大只就更合理了…总之大小上就不能输给吉翁什么的想想就挺好玩的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
