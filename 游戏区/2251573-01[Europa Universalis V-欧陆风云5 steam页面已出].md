@@ -418,3 +418,14 @@ EU4经过多年更新后奥斯曼强度一般，中后期更是二流国家，�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是不是p社系列在模拟不了历史的时候为了贴合历史都是靠火星势力助力啊
 
+
+*****
+
+####  林无德  
+##### 45#       发表于 2025-5-20 16:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67832935&amp;ptid=2251573" target="_blank">Anarkia 发表于 2025-5-20 14:34</a>
+
+1337开始的话怎么能自然地通过机制让金帐和元崩掉，同时让机制不妨碍帖木儿崛起感觉还是蛮有挑战的 ...</blockquote>
+开局一个灾难呼脸上，弱智ai自然地崩了，介就是机制<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
