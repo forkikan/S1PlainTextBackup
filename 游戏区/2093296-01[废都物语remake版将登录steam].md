@@ -171,3 +171,15 @@
 
 我昨晚看视频发觉有在地图自己操控小人行走探索的内容，不会点点点的探索方式改了吧，改了沉浸感-50啊
 
+
+*****
+
+####  101207777  
+##### 803#       发表于 2025-5-20 14:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67832906&amp;ptid=2093296" target="_blank">88is88 发表于 2025-5-20 14:23</a>
+我昨晚看视频发觉有在地图自己操控小人行走探索的内容，不会点点点的探索方式改了吧，改了沉浸感-50啊 ...</blockquote>
+没改，就是指针贴图变成小人了，而且可以自定义
+
+—— 来自 Xiaomi 23113RKC6C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
