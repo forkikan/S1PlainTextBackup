@@ -4425,3 +4425,71 @@ G永恒送二连星</blockquote>
 
 2025-5-20 23:05 上传
 
+
+*****
+
+####  逆袭的黑月  
+##### 13654#       发表于 2025-5-20 23:09
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在看直播都哪个途径啊 好多年没想第一时间看动画的欲望了
+
+*****
+
+####  ftyaid  
+##### 13655#       发表于 2025-5-20 23:10
+
+别说，二连星这吉翁公国词条还不赖，能用
+
+*****
+
+####  shinoverse  
+##### 13656#       发表于 2025-5-20 23:11
+
+[https://web4.lovelivegundam.top/#/LoveLive](https://web4.lovelivegundam.top/#/LoveLive)
+
+从隔壁找的
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 竞自由| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  ryanghj  
+##### 13657#       发表于 2025-5-20 23:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67834617&amp;ptid=2209276" target="_blank">逆袭的黑月 发表于 2025-5-20 23:09</a>
+
+现在看直播都哪个途径啊 好多年没想第一时间看动画的欲望了</blockquote>
+[https://web4.lovelivegundam.top/#/LoveLive](https://web4.lovelivegundam.top/#/LoveLive)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 竞自由| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  逆袭的黑月  
+##### 13658#       发表于 2025-5-20 23:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67834623&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-20 23:11</a>
+
+https://web4.lovelivegundam.top/#/LoveLive</blockquote>
+多谢了
+
