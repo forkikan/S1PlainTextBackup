@@ -6101,3 +6101,134 @@ MRX-010 精神感应高达Mk-Ⅱ
 
 2025-5-21 00:22 上传
 
+
+*****
+
+####  llysander  
+##### 13853#       发表于 2025-5-21 00:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67834915&amp;ptid=2209276" target="_blank">创始’’’天翔 发表于 2025-5-21 00:11</a>
+
+把富野根本就不会写感情戏的糟粕全学去了。富野不也能写出塞西莉和西布克这种好懂的恋爱关系，好的不学尽 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer"> 其实彼氏彼女の事情动画做的很好，青春青涩和恋爱端平同时还意识流
+
+现在只能让人觉得，“这个故事里小年轻们没arc啊” -&gt; “那就凑一段三角恋吧”
+
+而不是本打算写谈恋爱
+
+*****
+
+####  ryanghj  
+##### 13854#       发表于 2025-5-21 00:25
+
+另外这集把首席哥和小森的CP也拆了吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">什么时候有首席哥x老太婆的cp图看
+
+*****
+
+####  液体显微隧道  
+##### 13855#       发表于 2025-5-21 00:26
+
+安啦，喵安喜欢修司的苗头至少已经比0079里米莱对史列加的暗恋合理多了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  suzakushi  
+##### 13856#       发表于 2025-5-21 00:26
+
+一想到日后两个女主对砍的理由是雌竞我就笑出声。
+
+*****
+
+####  猪突猛进R  
+##### 13857#       发表于 2025-5-21 00:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67834906&amp;ptid=2209276" target="_blank">清雨 发表于 2025-5-21 00:10</a>
+
+正史里精神力高达的驾驶舱是在头部，mk2的驾驶舱也在头部吗</blockquote>
+都在头部。
+
+Z高达就是一枪爆头阻止了露莎美。
+
+*****
+
+####  岸波白野  
+##### 13858#       发表于 2025-5-21 00:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67834974&amp;ptid=2209276" target="_blank">llysander 发表于 2025-5-21 00:24</a>
+
+其实彼氏彼女の事情动画做的很好，青春青涩和恋爱端平同时还意识流
+
+现在只能让人觉得，“这个故事里小 ...</blockquote>
+这就是鹤卷至今积累和擅长的演出语言和UC的底层语境就是冲突的，还有一个有意思的地方，剧中sde6背景美术上和当代日本及时下年轻受众呼应的各类元素，随着各种竹味越来越弱的UC老面孔登场真是看着越来越违和
+
+
+*****
+
+####  huanzhi  
+##### 13859#       发表于 2025-5-21 00:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67834984&amp;ptid=2209276" target="_blank">suzakushi 发表于 2025-5-21 00:26</a>
+
+一想到日后两个女主对砍的理由是雌竞我就笑出声。</blockquote>
+这不就你头像的性转版，原来小番茄是胡索，修司是卡迪公<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gammatau  
+##### 13860#       发表于 2025-5-21 00:30
+
+这个世界线以后就是
+
+“修司是能成为我老公的男人！”
+
+“修司吗？”
+
+*****
+
+####  Aelester  
+##### 13861#       发表于 2025-5-21 00:31
+
+看到精神力高达砍手然后从塔上面掉下去有点绷不住。
+
+鹤卷哥哥你真把全身粒子炮，带反射光束，还是米浮空中机的精神力高达当初号机写了么
+
+*****
+
+####  renkan119  
+##### 13862#       发表于 2025-5-21 00:31
+
+话说首席哥为什么会直接去抓喵安 他根本不认识喵安吧
+
+*****
+
+####  m99999  
+##### 13863#       发表于 2025-5-21 00:32
+
+<blockquote>renkan119 发表于 2025-5-21 00:31
+话说首席哥为什么会直接去抓喵安 他根本不认识喵安吧</blockquote>
+紫婆看中了gq的驾驶员
+
+*****
+
+####  猪突猛进R  
+##### 13864#       发表于 2025-5-21 00:32
+
+第12集的艾尔梅斯（现代化改造版）估计是喵安开了。
+
+*****
+
+####  oi99o  
+##### 13865#       发表于 2025-5-21 00:33
+
+是啊，为什么呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202505/21/003310lqpkmpkwkw8hnwk8.png" referrerpolicy="no-referrer">
+
+<strong>Mobile.Suit.Gundam.GQuuuuuuX.S01E07.Machus.Rebellion.1080p.AMZN.WEB-DL.DUAL.DDP2.png</strong> (249.27 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 00:33 上传
+
