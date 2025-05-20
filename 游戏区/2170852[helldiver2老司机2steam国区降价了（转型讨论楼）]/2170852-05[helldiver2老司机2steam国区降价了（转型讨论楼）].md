@@ -751,3 +751,26 @@ DSS被鱿鱼打烂了，暂时脱离战场。
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67833537&amp;ptid=2170852" target="_blank">Adrenaline!!! 发表于 2025-5-20 17:46</a></blockquote>
 棒约克应该是纽约，馨家泊是新加坡，荣都应该是繁荣城斯德哥尔摩，其他的就不好猜了
 
+
+*****
+
+####  LrGsite  
+##### 5994#       发表于 2025-5-20 18:15
+
+<img src="https://img.stage1st.com/forum/202505/20/181547y2jx14m5c2eo4os1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (627.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-20 18:15 上传
+
+超级上海<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Adrenaline!!!  
+##### 5995#       发表于 2025-5-20 18:17
+
+不是，怎么只有中东那一片在挨打，我还以为7个战场同时开始呢。
+

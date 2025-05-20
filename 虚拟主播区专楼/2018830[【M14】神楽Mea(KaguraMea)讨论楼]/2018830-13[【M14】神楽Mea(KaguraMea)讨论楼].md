@@ -8824,3 +8824,18 @@ Tie！Forty？是这个吗？啊，不对不对，不是那个。有点不一样
 
 平均ランクマスターくらいありそうなフルパLoL w/Gariaru3.Shakespeare3.神楽めあたむ.クト様
 
+
+*****
+
+####  秋游刃  
+##### 18526#       发表于 2025-5-20 18:17
+
+跟大友妹子是要吵架吗，感觉。
+
+*****
+
+####  TiHaru  
+##### 18527#       发表于 2025-5-20 18:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">主播前天才鸽了シャケ的活动今天就这么刺啊
+

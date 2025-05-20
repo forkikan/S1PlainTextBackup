@@ -15740,3 +15740,16 @@ Z用不能变形换了空飞和五移动，赢麻了好吧<img src="https://stat
 
 3突破一星提升是最大的
 
+
+*****
+
+####  体制  
+##### 1471#       发表于 2025-5-20 18:14
+
+ 本帖最后由 体制 于 2025-5-20 18:16 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67833352&amp;ptid=2071758" target="_blank">格雷殿下 发表于 2025-5-20 16:53</a>
+防御高达用骰子还是精神应力好</blockquote>
+精神力。因为防御范围是按照实际移动格子而不是理论移动格子算的，所以大型机骰子高达有时候会被卡走位导致援护不到。精神力没这个问题，还有个盾。
+
+—— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
