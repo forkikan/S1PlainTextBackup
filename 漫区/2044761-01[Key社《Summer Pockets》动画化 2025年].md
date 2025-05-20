@@ -115,3 +115,11 @@ PV4（䌷文德斯线）：[https://youtu.be/C-mMijBVMEs](https://youtu.be/C-mMi
 开头的声音是香菜?不会是ED在吹逼的那个吧</blockquote>
 吹逼的那个cv是埃及人，正片里能不能出来说话存疑
 
+
+*****
+
+####  tiro_finale  
+##### 146#       发表于 2025-5-21 00:23
+
+这集笑死了，从坐船到哭着不要分开，CTRL速通是吧
+
