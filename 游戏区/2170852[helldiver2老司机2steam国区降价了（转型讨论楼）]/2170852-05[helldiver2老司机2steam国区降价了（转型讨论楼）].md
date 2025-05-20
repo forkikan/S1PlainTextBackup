@@ -593,3 +593,13 @@ DSS被鱿鱼打烂了，暂时脱离战场。
 
 实弹狗bug啥时候修啊，没有这个造假账的我是真有点不会玩了
 
+
+*****
+
+####  Fake_news  
+##### 5981#       发表于 2025-5-20 13:38
+
+啥时候更新啊，想看超级气球陷落<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这枪匠系统好折磨，之前偶然上了两趟超级结算车，把穿甲解放弄满了，发现没那么好使，现在手打训斥，太慢了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

@@ -15688,3 +15688,18 @@ Z用不能变形换了空飞和五移动，赢麻了好吧<img src="https://stat
 
 —— 来自 OPPO PHY110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  hayate0079  
+##### 1467#       发表于 2025-5-20 13:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67831658&amp;ptid=2071758" target="_blank">格雷殿下 发表于 2025-5-20 03:38</a>
+
+我商店显示jp￥，是哪个地区的
+
+我应该绑的是美国的万代号，
+
+我想领取优惠码的东西</blockquote>
+安卓的话和谷歌商店也有关系，我开港区的号上日服就是HK币
+
