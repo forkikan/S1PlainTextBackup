@@ -410,3 +410,11 @@ EU4经过多年更新后奥斯曼强度一般，中后期更是二流国家，�
 1337开始的话怎么能自然地通过机制让金帐和元崩掉，同时让机制不妨碍帖木儿崛起感觉还是蛮有挑战的 ...</blockquote>
 看过视频，元崩掉就是简单粗暴的跳事件，一会儿一个叛军，朱元璋刚出来就是大明（小明）。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Andariel  
+##### 44#       发表于 2025-5-20 15:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是不是p社系列在模拟不了历史的时候为了贴合历史都是靠火星势力助力啊
+
