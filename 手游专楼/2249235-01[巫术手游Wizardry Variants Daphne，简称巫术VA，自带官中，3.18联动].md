@@ -978,3 +978,13 @@ roll到13%攻和18攻就可以用+4-6攻击改掉防御，然后只强化第一�
 
 氪金这么贵，真没石头留给斧头女吧<img src="https://static.stage1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Laie  
+##### 355#       发表于 2025-5-22 04:41
+
+新角色看头像卖相还不错，不过你游建模对立绘面相比较立体的还原度一般
+
+—— 来自 OnePlus PKX110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
