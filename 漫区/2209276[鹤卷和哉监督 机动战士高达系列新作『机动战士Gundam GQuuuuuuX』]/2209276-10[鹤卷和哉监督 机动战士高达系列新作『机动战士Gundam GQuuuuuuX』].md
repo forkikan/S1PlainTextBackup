@@ -14375,3 +14375,23 @@ khara 的机械审美按说吊打水魔组，但战斗构成又过于脱离高�
 半吊子的ucif加上半吊子的gen z年轻人，最后两个都写 ...</blockquote>
 当然只能是 gen z 写 gen z 啊（
 
+
+*****
+
+####  无念  
+##### 14614#       发表于 2025-5-21 19:31
+
+只能说联邦的ms技术力低的离谱，这两有一个算一个都是样子货<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">连扎古3的嘴炮都不如，汉谟拉比全程站桩堪比旧历史里各种大事件里当背景板的吉姆系列
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  无念  
+##### 14615#       发表于 2025-5-21 19:33
+
+另外要是喵安那个驾驶服肤色没弄错的话，下下话搞不好就一年后了(
+毕竟皮肤美白可是个大工程<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
