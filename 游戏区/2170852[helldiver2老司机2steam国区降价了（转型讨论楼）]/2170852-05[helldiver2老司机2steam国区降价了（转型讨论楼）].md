@@ -907,3 +907,14 @@ DSS被鱿鱼打烂了，暂时脱离战场。
 
 昨晚和朋友开黑，被超级气球的傻逼服务器折磨，卡得不得了，打50拆船给打得狼狈不堪，最后跑去泰雷克打虫子了<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  MkChang  
+##### 6009#       发表于 2025-5-21 09:22
+
+昨天打了两把50船，队伍里有超过两人不熟练就很难打了。
+精英怪会越来越多，根本打不过来
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

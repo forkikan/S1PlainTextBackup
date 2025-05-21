@@ -10310,3 +10310,118 @@ kirakira这东西有毒吧，怎么跟**一样
 
 在这种情况下主角们做出的“大事”很难说会不会是观众们愿意理解的 正常 举动<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sliurus  
+##### 14258#       发表于 2025-5-21 09:18
+
+现在感觉先行剧场版真不是一个好策略，本来挺想知道下集会发生什么，结果预告直接把情绪堵住了
+
+*****
+
+####  wfantasia  
+##### 14259#       发表于 2025-5-21 09:19
+
+<blockquote>白愁帝皇 发表于 2025-5-21 08:45
+拉倒吧，这集魔鬼鱼不会变形没斗士步枪没海蛇，精神病全力输出炸不塌大楼，这条世界线ms看起来发展远 ...</blockquote>
+看来还是打少了，战争才能推动科技的飞速进步
+
+*****
+
+####  LOLITA  
+##### 14260#       发表于 2025-5-21 09:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835883&amp;ptid=2209276" target="_blank">qiyu1234 发表于 2025-5-21 09:13</a>
+
+大胆预测一下
+
+结合这集的标题 和 玛秋在安琪半挑衅半说教的语气下激起了反抗情绪开枪</blockquote>
+别预测了，这片的结局跟独角兽不会有什么不同，藏了一整部的所谓谜底肯定是个可笑的玩意<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+*****
+
+####  失落之翼  
+##### 14261#       发表于 2025-5-21 09:20
+
+夏亚开zeknova走了，EVA那群人补完的时候穿越过来了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ヒトニナル  
+##### 14262#       发表于 2025-5-21 09:21
+
+不开玩笑地说，修司应该是实际存在的，有空奇测体温发现发烧的桥段，体温也是人体体温
+
+*****
+
+####  璇瑢子R  
+##### 14263#       发表于 2025-5-21 09:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835898&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-5-21 09:18</a>
+现在感觉先行剧场版真不是一个好策略，本来挺想知道下集会发生什么，结果预告直接把情绪堵住了 ...</blockquote>
+确实，如果没有剧场版的话，这时候来揭秘本世界线一年战争的结局，论坛热闹一周完全没问题
+
+*****
+
+####  anotherDadsh  
+##### 14264#       发表于 2025-5-21 09:22
+
+虽然感觉胡扯，没准...下下一集时间唐突推进到0093if...
+
+*****
+
+####  mousy55555  
+##### 14265#       发表于 2025-5-21 09:22
+
+这殖民卫星的强度……里面随便开火外加精神病发病BEAM乱射了一通，再来红高达精神力爆发穿越了，连个洞都不带开的啊，79年的时候是不是扔了个假殖民卫星去地球啊，要是扔动画里这个的话应该是地球碎掉了
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 14266#       发表于 2025-5-21 09:22
+
+ 本帖最后由 Dai-Dai-Dai-Dai 于 2025-5-21 09:24 编辑 
+
+身为高达主角没有和精神力高达大干一场，也不给三人组安排下打精神力高达的强烈动机。
+
+精神力高达没有干票大的，是为了让警察有空闲管小番茄让小番茄社死吗？
+
+UC那些事和三人组间简直是左右脑互搏。
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 14267#       发表于 2025-5-21 09:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835742&amp;ptid=2209276" target="_blank">Gysumitka 发表于 2025-5-21 08:38</a>
+
+伊濑说得就是这段对手戏吧，怪不得不忍心
+
+玛秋把安琪看成是让自己随心所欲的“母亲”位，实际上全是利用 ...</blockquote>
+大人都讨厌是这集最好的一段<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TiiTiiLL  
+##### 14268#       发表于 2025-5-21 09:25
+
+现在看到ed就想笑<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  九山节度使  
+##### 14269#       发表于 2025-5-21 09:25
+
+真好呢喵安，你梦寐以求的吉翁居留权已经不费吹灰之力拿到了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狸狸狐  
+##### 14270#       发表于 2025-5-21 09:27
+
+一季根本不够吧。剩下集数想要把俩女主分开对立，男主谜团揭晓，绿叔叔大计划实施都讲到，怎么可能。
+
+快进到第二季，5年后，长发冷漠脸番茄，癫狂喵安，见面就喊名字互捅，对了还得新机新装备
+
