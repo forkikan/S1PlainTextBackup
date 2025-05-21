@@ -13385,3 +13385,18 @@ gqx版汉布拉比和精神病mk2都有点恶意消费情怀了
 
 我建议别提什么UC了，这不就是吉翁**了，直接改称吉翁片吧
 
+
+*****
+
+####  llysander  
+##### 14531#       发表于 2025-5-21 15:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836066&amp;ptid=2209276" target="_blank">绞首浪漫派丶 发表于 2025-5-21 09:53</a>
+
+所以KIRAKIRA到底是个啥，NT聊天室也妹有成瘾性啊，而且也解释不了为什么修斯一走KIRAKIRA就没了。很难想象 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer"> 哈曼也有问题啊，以前觉得是恋爱脑看上年下木星爷爷了
+
+现在再一想不对劲，这不就是吸...
+
+少年，回到地球圈的味道，太好了
+
