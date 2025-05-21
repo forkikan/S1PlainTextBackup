@@ -184,3 +184,16 @@ SSR机师都是没人用才顶上去的，而且旧吉恩公国词条的人太�
 
 看到说SR自由比SSR自由厉害，是真的吗，我先合一个SR自由3星，打SEED副本会好打点吗
 
+
+*****
+
+####  hayate0079  
+##### 1499#       发表于 2025-5-21 16:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67837365&amp;ptid=2071758" target="_blank">格雷殿下 发表于 2025-5-21 15:15</a>
+
+看到说SR自由比SSR自由厉害，是真的吗，我先合一个SR自由3星，打SEED副本会好打点吗 ...</blockquote>
+流星自由？
+
+流自的话赛道不同，你打EX3都要上的
+
