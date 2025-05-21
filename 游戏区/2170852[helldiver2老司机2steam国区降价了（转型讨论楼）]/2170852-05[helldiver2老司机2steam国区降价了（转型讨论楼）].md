@@ -1124,3 +1124,64 @@ n10以下的队友全看脸，n10无论国人老外大都是熟练工
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  IWS2000  
+##### 6030#       发表于 2025-5-21 19:17
+
+每次想补超级公民都因为债券已经有了而没买，虽然可以学贴吧邮件，但是懒
+
+*****
+
+####  御风沐雪  
+##### 6031#       发表于 2025-5-21 19:27
+
+回坑后一直没开加速器，很丝滑
+
+*****
+
+####  九十九忍  
+##### 6032#       发表于 2025-5-21 19:42
+
+之前很长一段时间是裸连比开加速器流畅的
+
+*****
+
+####  ParadiseMartyr  
+##### 6033#       发表于 2025-5-22 00:03
+
+所以这游戏武器全锁在通行证里，太难顶了吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Swss  
+##### 6034#       发表于 2025-5-22 03:23
+
+<img src="https://img.stage1st.com/forum/202505/22/032233qygbdkzv88hcb5zd.jpg" referrerpolicy="no-referrer">
+
+<strong>D5B01C0F-2FFA-4781-BEEC-D9F9EADD29B4.jpg</strong> (305.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 03:22 上传
+
+为什么一个水沟能摔死人啊 上海遍地是水沟<img src="https://static.stage1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Adrenaline!!!  
+##### 6035#       发表于 2025-5-22 07:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67839084&amp;ptid=2170852" target="_blank">ParadiseMartyr 发表于 2025-5-22 00:03</a>
+所以这游戏武器全锁在通行证里，太难顶了吧
+
+—— 来自 鹅球 v3.3.96</blockquote>
+以前连武器经验都没有，刷勋章和蓝币凑齐能应付各种情况的配装过程更无聊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
