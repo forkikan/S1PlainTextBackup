@@ -14964,3 +14964,22 @@ GQX第一话首席哥看见红高达放了浮游炮，第一时间是插入NT启
 
 —— 来自 samsung SM-F9460, Android 14, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  screeper  
+##### 14672#       发表于 2025-5-21 22:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67838133&amp;ptid=2209276" target="_blank">mhss 发表于 2025-5-21 18:57</a>
+萝莉屋压制的3、5、6、7op前面的番茄单人跑全都存在花屏现象，问题他家都找不到地方报错 ...</blockquote>
+web源是亚马逊独占，而亚马逊最近码率给得特别低，所以op一定会糊，这是片源本身的问题
+
+*****
+
+####  allenz3  
+##### 14673#       发表于 2025-5-21 22:03
+
+有0079if打底还拍成这样，高达这ip还是埋了吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
