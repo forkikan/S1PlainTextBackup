@@ -15944,3 +15944,11 @@ gqux这插入曲怎么都既突兀又口水年轻人就喜欢这种吗</blockquo
 
 最大的感想就是，在Side6眼里一年战争压根就是小孩子过家家，人家的材料技术远超联邦和吉翁一百年以上，造房子的材料比两家造战舰造MS的都要硬<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  g救世主高达  
+##### 14749#       发表于 2025-5-22 05:16
+
+这个世界的德金公王和雷比尔也被手电筒照死了吗<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">，咋没看到这两
+
