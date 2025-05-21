@@ -14009,3 +14009,98 @@ ex-s应该是最早最小的 ...</blockquote>
 
 2025-5-21 17:31 上传
 
+
+*****
+
+####  g救世主高达  
+##### 14585#       发表于 2025-5-21 17:34
+
+这设计有点眼熟啊
+
+70018794a4c27d1e439356d45dd5ad6eddc43823.jpg
+(48.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 17:34 上传
+
+<img src="https://img.stage1st.com/forum/202505/21/173427ai8jy8uomyuuyikd.jpg" referrerpolicy="no-referrer">
+
+7d0dc895d143ad4b7b212ad0c4025aafa40f0655.jpg
+(167.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 17:34 上传
+
+<img src="https://img.stage1st.com/forum/202505/21/173429l7yyyb7mjsj9bwzc.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  LOLITA  
+##### 14586#       发表于 2025-5-21 17:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67837845&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-5-21 17:32</a>
+
+https://x.com/accelaangl/status/1924959868341067880?s=46&amp;t=XH91CbxXPkTOlk4NTqE-Ag</blockquote>
+这集的空调出风口脸高达和火柴人妙蛙种子基克罗格也算是卧龙凤雏的设计了
+
+震撼UC老登0093年
+
+*****
+
+####  岸浪白野  
+##### 14587#       发表于 2025-5-21 17:38
+
+[X 上的 上石神井☀️ヨコス：“キケロガ　描いた [url]https://t.co/y5unZwnLj6](https://x.com/yokos8838/status/1925050123610161368)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/21/173856dccirjs1gq1hczzy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.19 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 17:38 上传
+
+*****
+
+####  ParadiseMartyr  
+##### 14588#       发表于 2025-5-21 17:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67837725&amp;ptid=2209276" target="_blank">麻仓月轩 发表于 2025-5-21 16:53</a>
+学金刚爬楼只能理解为想要活捉基西莉亚了，不然随便啥武装都直接秒了
+
+还是说提坦斯真的有自信能全身而退？
+
+ ...</blockquote>
+用精神力高达活捉而不是多上几个汉默拉比么？那确实很活捉了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  猪突猛进R  
+##### 14589#       发表于 2025-5-21 17:43
+
+看到UCE动画下的一个评论<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+夏利亚：夏亚上校，原来你打盖茨要花这么长时间啊。这是我打盖茨的视频（指gqx第七话），要是有胆量的话就打开来看看吧。
+
+UCE里盖茨出场的动画：
+[https://www.bilibili.com/video/BV1qu4y13715](https://www.bilibili.com/video/BV1qu4y13715)
+
+*****
+
+####  Steel.Haze  
+##### 14590#       发表于 2025-5-21 17:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67837725&amp;ptid=2209276" target="_blank">麻仓月轩 发表于 2025-5-21 16:53</a>
+
+学金刚爬楼只能理解为想要活捉基西莉亚了，不然随便啥武装都直接秒了
+
+还是说提坦斯真的有自信能全身而退？
+
+ ...</blockquote>
+无论是捉还是杀，精神力想要冲出殖民卫星，那时原计划的S6军警和护卫MS绝对拦不住的；它的问题只有进入宇宙后如何找人接应的问题（必经其续航有限）。没有休斯干扰那精神力其实无需爆甲，没有夏利亚那贴脸怎么都赢了。所以想象没有休斯和夏利亚干扰下，那杜和精高的确可以轻松完成任务。甚至路上军警如果不敢开火都可以不管。
+

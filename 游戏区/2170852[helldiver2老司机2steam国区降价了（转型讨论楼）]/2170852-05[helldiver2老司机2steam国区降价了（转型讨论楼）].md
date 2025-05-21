@@ -1004,3 +1004,11 @@ n10以下的队友全看脸，n10无论国人老外大都是熟练工
 “就比如说图里我刚打到14级，全喉缩还没买，想提前解锁鸭嘴，那就：选择全喉缩，长按购买键→进度条快要到 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">每次解锁东西都要卡那么一会，没想到还能这样利用提前解锁，天才
 
+
+*****
+
+####  FLZB  
+##### 6018#       发表于 2025-5-21 17:43
+
+国内时段真没法玩，几乎把把都是加速器卡逼，十几秒的延迟还以为连到火星人了，我直连地球另一边都丝滑流畅，踏马只能跟鬼佬保卫仰齐浜了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
