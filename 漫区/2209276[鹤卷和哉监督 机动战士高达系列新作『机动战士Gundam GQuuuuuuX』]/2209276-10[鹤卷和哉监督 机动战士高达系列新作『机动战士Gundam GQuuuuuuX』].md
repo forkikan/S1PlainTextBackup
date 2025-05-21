@@ -11729,3 +11729,132 @@ zeknova这茬你也不能说它前后矛盾，毕竟夏亚也是本来是各方�
 
 你说的对，所以我们在三主角这边加入了更多的神人演出平衡观感<img src="https://static.stage1st.com/image/smiley/face2017/268.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Concrete  
+##### 14387#       发表于 2025-5-21 12:06
+
+夏利亚就是暗线主角位啦。下集所罗门夏亚的遗言刚好对应这集修司的。如果修司没事，那夏亚当时也只是被传送了。所以下集应该是夏利亚解释zekenova，然后两人都去找自己各自的目标。紫婆的下一个任务可能也是找到玫瑰，这样三个人(夏利亚，玛秋，喵安)的目标就一致了。
+
+*****
+
+####  冷静先找时光机  
+##### 14388#       发表于 2025-5-21 12:07
+
+为什么有这么多人会觉得村雨兔没死，高达一号机跟大魔都是光剑砍头就整个身子全炸了，难道这回精神病mk2整个身子都炸没了，结果头部反而能留下来吗<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  封印的右手  
+##### 14389#       发表于 2025-5-21 12:09
+
+麻球再怎么说也是上了新闻的“恐袭”分子，要不是还有点开高达的价值，不然就变成这次事件的交代了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  暗黑能乐  
+##### 14390#       发表于 2025-5-21 12:09
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上一话还有漏油分析2是什么重要人物能活好几话呢，结果也是路边
+
+*****
+
+####  syndrome2032  
+##### 14391#       发表于 2025-5-21 12:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836734&amp;ptid=2209276" target="_blank">冷静先找时光机 发表于 2025-5-21 12:07</a>
+为什么有这么多人会觉得村雨兔没死，高达一号机跟大魔都是光剑砍头就整个身子全炸了，难道这回精神病mk2整 ...</blockquote>
+精神病传统就是驾驶舱在头里。
+
+
+*****
+
+####  猪突猛进R  
+##### 14392#       发表于 2025-5-21 12:12
+
+2对剧情发展已经没用了，就算活下来被吉翁拣去或被TTS回收，再出现时按这集的表现还不是路边一条。
+
+*****
+
+####  岸浪白野  
+##### 14393#       发表于 2025-5-21 12:13
+
+官推没更，周边已经上了
+
+<img src="https://img.stage1st.com/forum/202505/21/121240bc32n3tzruzw3i3b.png" referrerpolicy="no-referrer">
+
+<strong>9ZH~%_[7GJ1)3BRY0TNR{VT.png</strong> (218.69 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 12:12 上传
+
+<img src="https://img.stage1st.com/forum/202505/21/121257d175417ioovspizh.png" referrerpolicy="no-referrer">
+
+<strong>VUDR`~Z)4~}P1G0KS_RCFL8.png</strong> (159.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 12:12 上传
+
+*****
+
+####  YU_JI  
+##### 14394#       发表于 2025-5-21 12:13
+
+念叨了两集Kirakira的2甚至连一个聊天室镜头都没有（）
+
+*****
+
+####  王留美  
+##### 14395#       发表于 2025-5-21 12:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836589&amp;ptid=2209276" target="_blank">wolf1997 发表于 2025-5-21 11:30</a>
+ 所以，你就说这集的扎古是不是真的拯救了无数生命？</blockquote>
+真没有
+都被砸烂了
+
+拯救无数生命的是基克罗格
+
+*****
+
+####  砂糖续香香  
+##### 14396#       发表于 2025-5-21 12:14
+
+我突然在想 会不会 kirakira 就是一种新人类进化错误？以前的新人类是没有什么 kirakira 的场景的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  ヒトニナル  
+##### 14397#       发表于 2025-5-21 12:14
+
+怎么还有一个coming soon，都这地步了还要加新角色？
+
+*****
+
+####  冷静先找时光机  
+##### 14398#       发表于 2025-5-21 12:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836746&amp;ptid=2209276" target="_blank">syndrome2032 发表于 2025-5-21 12:10</a>
+
+精神病传统就是驾驶舱在头里。
+
+不过村雨2多半是死了。</blockquote>
+我就是这个意思啊，其他驾驶舱在胸口的被爆头都死了，反过来说驾驶舱在脑袋里的整个身子都炸了能不死？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  神意  
+##### 14399#       发表于 2025-5-21 12:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836734&amp;ptid=2209276" target="_blank">冷静先找时光机 发表于 2025-5-21 12:07</a>
+为什么有这么多人会觉得村雨兔没死，高达一号机跟大魔都是光剑砍头就整个身子全炸了，难道这回精神病mk2整 ...</blockquote>
+大家可能觉得编剧不会这么傻逼，毕竟头部是可以分离的
+
+但目前看来是大家看来屎吃得还是不够多，对日本动画还有幻想
+
