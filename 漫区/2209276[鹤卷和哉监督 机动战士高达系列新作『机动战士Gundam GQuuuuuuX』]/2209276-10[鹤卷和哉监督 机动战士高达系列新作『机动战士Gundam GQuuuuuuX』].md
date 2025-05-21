@@ -14128,3 +14128,22 @@ GQ版倒是看起来很杂鱼<img src="https://static.stage1st.com/image/smiley/
 
 但是也太拉胯了，介绍上还写着可变MS呢，正片好像根本都没变就被秒杀了
 
+
+*****
+
+####  洛克萨斯  
+##### 14593#       发表于 2025-5-21 17:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以后变成夏枪秒么，吉翁第一巴图鲁夏利亚，联邦还有能打的机师么
+
+
+*****
+
+####  中野梓  
+##### 14594#       发表于 2025-5-21 18:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67837915&amp;ptid=2209276" target="_blank">洛克萨斯 发表于 2025-5-21 17:56</a>
+
+以后变成夏枪秒么，吉翁第一巴图鲁夏利亚，联邦还有能打的机师么</blockquote>
+肯定是主世界满状态阿姆罗堂堂登场
+
