@@ -260,3 +260,11 @@ SR自由主要还是给无氪阵容用的，而且要SP化，目前SP芯片没�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">万代很小气的，你用BUG大概率账号要死
 
+
+*****
+
+####  格雷殿下  
+##### 1506#       发表于 2025-5-22 03:40
+
+哎呀，还准备做任务拿下3星番茄的，怎么关了
+
