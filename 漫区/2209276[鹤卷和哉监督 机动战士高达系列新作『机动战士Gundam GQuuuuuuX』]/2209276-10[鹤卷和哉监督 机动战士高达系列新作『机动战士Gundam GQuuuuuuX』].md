@@ -11064,3 +11064,197 @@ kirakira明面上就是精神状态吧。
 
 也许番茄见识到真正的天空、重力和大海以后，念头通达了就会回去好好念书升学了
 
+
+*****
+
+####  岸浪白野  
+##### 14333#       发表于 2025-5-21 11:16
+
+<img src="https://img.stage1st.com/forum/202505/21/111428d9ugu7gemyum79uu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.41 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 11:14 上传
+
+<img src="https://img.stage1st.com/forum/202505/21/111433lpjl60lk0010t90l.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.33 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 11:14 上传
+
+<img src="https://img.stage1st.com/forum/202505/21/111451xzhzhh47ixandndi.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.21 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 11:14 上传
+
+<img src="https://img.stage1st.com/forum/202505/21/111458w2uw29zqlc9iiwb2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.95 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 11:14 上传
+
+<img src="https://img.stage1st.com/forum/202505/21/111506jibt4fj8r8y2pph0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.8 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 11:15 上传
+
+<img src="https://img.stage1st.com/forum/202505/21/111439d0zan9ipwkvwoiwv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.76 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 11:14 上传
+
+<img src="https://img.stage1st.com/forum/202505/21/111445viwzjebkybedy4wt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.14 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 11:14 上传
+
+*****
+
+####  猪突猛进R  
+##### 14334#       发表于 2025-5-21 11:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836378&amp;ptid=2209276" target="_blank">koodooliz 发表于 2025-5-21 10:50</a>
+
+沙仑玫瑰到底是谜题的解答？还是一个永远没有答案的幌子？</blockquote>
+我认为在12集会给一个解答。
+
+不过就跟独角兽的联邦宪法一样是块破石头，别报太大希望。
+
+*****
+
+####  洛克萨斯  
+##### 14335#       发表于 2025-5-21 11:16
+
+番茄这真算不孝子了吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">代入一下她家人简直天崩地裂
+
+和被那啥的刹那造成悲剧不同，番茄给人观感太差了
+
+*****
+
+####  猪突猛进R  
+##### 14336#       发表于 2025-5-21 11:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836509&amp;ptid=2209276" target="_blank">qiyu1234 发表于 2025-5-21 11:13</a>
+
+感觉只是字面意思
+
+也许番茄见识到真正的天空、重力和大海以后，念头通达了就会回去好好念书升学了 ...</blockquote>
+体验过kirakira后已经回不去啦！
+
+*****
+
+####  柴突猛进  
+##### 14337#       发表于 2025-5-21 11:17
+
+小番茄已经见过kirakira之后还能回去念书嘛？就像联邦的魔女上了战场即使退役结婚生子了也没能逃离战场
+
+
+*****
+
+####  ads147147  
+##### 14338#       发表于 2025-5-21 11:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836523&amp;ptid=2209276" target="_blank">洛克萨斯 发表于 2025-5-21 11:16</a>
+
+番茄这真算不孝子了吧代入一下她家人简直天崩地裂
+
+和被那啥的刹那造成悲剧不同，番茄给人观感太差了 ...</blockquote>
+杀魔女那集其实已经很凸显人家就要搞六亲不认了，只是不少人不愿意承认。。。
+
+现在真连累家人了，等一个番茄的精神状态转变，估计播完电影剩下部分真的要时间跳跃跳一年了，不然这故事讲不完的。
+
+*****
+
+####  岸浪白野  
+##### 14339#       发表于 2025-5-21 11:21
+
+ 本帖最后由 岸浪白野 于 2025-5-21 11:24 编辑 
+
+<img src="https://img.stage1st.com/forum/202505/21/111708s3030hphopyzp9qt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 11:17 上传
+
+<img src="https://img.stage1st.com/forum/202505/21/112057bfhf7x2dwxgl7lgt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.11 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 11:20 上传
+
+<img src="https://img.stage1st.com/forum/202505/21/112102n3291jnrn93barwe.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.93 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 11:21 上传
+
+<img src="https://img.stage1st.com/forum/202505/21/112050hxlt5tv5tboz1ox1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.42 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 11:20 上传
+
+<img src="https://img.stage1st.com/forum/202505/21/112318dm1ijd333vixuuxx.png" referrerpolicy="no-referrer">
+
+<strong>4Z5PCR)D$U)POGFFXKE[JMX.png</strong> (1.58 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 11:23 上传
+
+<img src="https://img.stage1st.com/forum/202505/21/112325i76wnyfw7b7wyszq.png" referrerpolicy="no-referrer">
+
+<strong>R_MARZKN%Q$JXT}OBBM[K6F.png</strong> (1.6 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 11:23 上传
+
+<img src="https://img.stage1st.com/forum/202505/21/112420jl94s4kfbzpfbsos.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.55 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 11:24 上传
+
+*****
+
+####  ads147147  
+##### 14340#       发表于 2025-5-21 11:22
+
+不过之前又看到说希洛克已经回来的假药，如果是真的话，绿叔叔三天两头说什么平衡啊和平啊除掉渣比家啊都是很笑死的做法了，到时候你们真的打得过奶奶头么。。。。
+
+*****
+
+####  洛克萨斯  
+##### 14341#       发表于 2025-5-21 11:24
+
+假设绿叔叔把扎比家两大派系首脑全干掉，那他怎么稳定局面，卡尔玛还在地球吧，直接当哈曼的位置亲自当摄政扶持小美么
+
