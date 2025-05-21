@@ -13768,3 +13768,143 @@ ex-s应该是最早最小的 ...</blockquote>
 但这个不行我又觉得挺合理的 ...</blockquote>
 都别造了，造什么都不能行。鸡瘟梦楠厨编剧不是明白告诉你了 联邦就是逊呐。我鸡瘟NT超人是超勇的 战争什么的我手一挥就是次元黑洞😡你们还胆敢违抗拥有krkr的我么？
 
+
+*****
+
+####  岸浪白野  
+##### 14566#       发表于 2025-5-21 16:38
+
+又把场刊访谈搬出来论证玛秋可能有多迷那不如newtype的也又搬出来算了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还玛秋真的是一个被“鹤卷监督的演出理念完全填满的角色” 呢
+
+——真有意思！您之前有过类似经历吗？
+
+黑泽：可能从没遇到过监督个人色彩如此浓烈的角色。通常原创作品会给角色诠释留有一定余地，但玛秋让我强烈感受到"这是被鹤卷监督的演出理念完全填满的角色"，这种体验既新鲜又有趣。算是职业生涯的初体验呢。
+
+——毕竟是破格作品中的破格主角呢。
+
+黑泽：更棘手的是玛秋的独特定位——既非纯粹英雄亦非传统女主角，更算不上反派。那种重心飘忽的青春期特质，让理性分析常常失效。但正因如此，饰演这个角色反而让作为声优的我乐在其中。
+
+——这种特质最终在您心中找到答案了吗？
+
+黑泽：答案虽有...但更希望留给观众自行解读。如果大家能各自做出判断，我将不胜感激。
+
+*****
+
+####  otaku21126  
+##### 14567#       发表于 2025-5-21 16:38
+
+这个精神力高达（GQ）的外甲，不就是MOON高达的蜉蝣工字钢嘛<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+我看这高达GQX不是寄给富野的情书，是寄给福井的情书啊
+
+*****
+
+####  中野梓  
+##### 14568#       发表于 2025-5-21 16:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67837626&amp;ptid=2209276" target="_blank">麻仓月轩 发表于 2025-5-21 16:29</a>
+
+GQX还会自己动 有什么说法么</blockquote>
+牛高的浮游炮也会自己动，赛克缪系统接收脑波做出反应吧
+
+*****
+
+####  zerocount  
+##### 14569#       发表于 2025-5-21 16:39
+
+喵安的精神状态 be like：
+
+<img src="https://img.stage1st.com/forum/202505/21/163900kzrh48tw824rh8l1.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9427.jpeg</strong> (283.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 16:39 上传
+
+<img src="https://img.stage1st.com/forum/202505/21/163900ty9ossnytsxf99os.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9428.jpeg</strong> (259.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 16:39 上传
+
+希望她真的能活下去吧。
+
+*****
+
+####  ws4222  
+##### 14570#       发表于 2025-5-21 16:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67837521&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-21 16:00</a>
+
+不止大空调不行，汉谟拉比更不行，设定直接说了变形速度很慢
+
+联邦确实不行了 ...</blockquote>
+我觉得汉谟拉比还可以挖掘下的，主要是驾驶员太拉跨。上来被老兵直接一个小妙招给秒了
+
+*****
+
+####  xunit  
+##### 14571#       发表于 2025-5-21 16:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67837660&amp;ptid=2209276" target="_blank">otaku21126 发表于 2025-5-21 16:38</a>
+
+这个精神力高达（GQ）的外甲，不就是MOON高达的蜉蝣工字钢嘛
+
+我看这高达GQX不是寄给富野的情书，是寄给福井 ...</blockquote>
+月高飞出去的好歹只是外挂的赛克缪板，这新精神病直接把外甲飞出去打人，自己靠骨架和if硬抗伤害，愣是把重型MA防御面的优势全给扔了
+
+
+*****
+
+####  麻仓月轩  
+##### 14572#       发表于 2025-5-21 16:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67837663&amp;ptid=2209276" target="_blank">中野梓 发表于 2025-5-21 16:39</a>
+
+牛高的浮游炮也会自己动，赛克缪系统接收脑波做出反应吧</blockquote>
+有没有坐在驾驶舱里面还是有区别的吧
+
+虽然也有过很多可以接收战场上别人意志的情节
+
+都不好说GQX是认主还是无差别接收周围人的情绪
+
+*****
+
+####  岸浪白野  
+##### 14573#       发表于 2025-5-21 16:46
+
+<img src="https://img.stage1st.com/forum/202505/21/164623ojm391mbm3yrz91t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (188.59 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 16:46 上传
+
+*****
+
+####  未来起航  
+##### 14574#       发表于 2025-5-21 16:47
+
+一集下来所有人都闹麻了，比下来倒是基西莉亚这股任务完成拉倒的冷淡活人微死感挺有味儿<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23116PN5BC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  ryanghj  
+##### 14575#       发表于 2025-5-21 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67837696&amp;ptid=2209276" target="_blank">麻仓月轩 发表于 2025-5-21 16:46</a>
+
+有没有坐在驾驶舱里面还是有区别的吧
+
+虽然也有过很多可以接收战场上别人意志的情节
+
+都不好说GQX是认主还 ...</blockquote>
+此事在独角兽中亦有记载
+
