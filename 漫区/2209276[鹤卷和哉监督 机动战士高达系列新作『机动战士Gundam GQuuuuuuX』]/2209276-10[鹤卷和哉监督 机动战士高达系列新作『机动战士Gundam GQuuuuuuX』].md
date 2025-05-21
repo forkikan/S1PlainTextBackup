@@ -14983,3 +14983,60 @@ web源是亚马逊独占，而亚马逊最近码率给得特别低，所以op一
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  mellshon001  
+##### 14674#       发表于 2025-5-21 22:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67837233&amp;ptid=2209276" target="_blank">狮子咕 发表于 2025-5-21 14:37</a>
+赶紧放弃那个莫名其妙的kirakira的话这番还有救，求求你们别再kirakira犯病了</blockquote>
+偶像厨不是最喜欢说自己推的偶像在舞台上会kirakira发光么<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这样一看，kirakira代表莫名其妙的犯病好像很正常<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxasuka  
+##### 14675#       发表于 2025-5-21 22:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上一个发癫时被夏利亚这么骂，还被关牢房蹲禁闭的驾驶员是——————
+
+草了，麻球这是快要被修正了是吧？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  千恋万花  
+##### 14676#       发表于 2025-5-21 22:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67838133&amp;ptid=2209276" target="_blank">mhss 发表于 2025-5-21 18:57</a>
+
+萝莉屋压制的3、5、6、7op前面的番茄单人跑全都存在花屏现象，问题他家都找不到地方报错 ...</blockquote>
+如果是类似这位说的，可能和硬件解码器有关？（[来源](https://share.dmhy.org/topics/view/693919_SweetSub_LoliHouse_GQuuuuuuX_Mobile_Suit_Gundam_GQuuuuuuX_-_03_WebRip_1080p_HEVC-10bit_AAC.html)）
+
+<img src="https://img.stage1st.com/forum/202505/21/220535tffdxn7fcx8nxjff.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (422.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 22:05 上传
+
+<img src="https://img.stage1st.com/forum/202505/21/220803i55g5vi5angnygyg.jpg" referrerpolicy="no-referrer">
+
+<strong>photo_2025-04-27_17-44-16.jpg</strong> (1011.98 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 22:08 上传
+
+*****
+
+####  mhss  
+##### 14677#       发表于 2025-5-21 22:09
+
+问题是已经花到下面这个程度了
+<img src="https://p.sda1.dev/24/f89ceca2a003839fc265f29b8db328d7/image.jpg" referrerpolicy="no-referrer">
+sweetsub本家压的片就没问题
+<img src="https://p.sda1.dev/24/7a747b8143218b025fc378c4b25888d2/image.jpg" referrerpolicy="no-referrer">
+
