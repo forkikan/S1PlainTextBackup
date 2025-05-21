@@ -11258,3 +11258,140 @@ kirakira明面上就是精神状态吧。
 
 假设绿叔叔把扎比家两大派系首脑全干掉，那他怎么稳定局面，卡尔玛还在地球吧，直接当哈曼的位置亲自当摄政扶持小美么
 
+
+*****
+
+####  岸浪白野  
+##### 14342#       发表于 2025-5-21 11:26
+
+一年战争后内部进行了大幅度的改修为了应对战术的多样性搭载了MS形态
+
+*****
+
+####  ads147147  
+##### 14343#       发表于 2025-5-21 11:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836560&amp;ptid=2209276" target="_blank">洛克萨斯 发表于 2025-5-21 11:24</a>
+
+假设绿叔叔把扎比家两大派系首脑全干掉，那他怎么稳定局面，卡尔玛还在地球吧，直接当哈曼的位置亲自当摄政 ...</blockquote>
+把鸭子找来按在总帅位置上，然后鸭子继续降下阿克西斯（这不是完全没改历史吗）
+
+*****
+
+####  巴尔干炮  
+##### 14344#       发表于 2025-5-21 11:28
+
+这话真是太灾难了，不仅逻辑和演出一坨，甚至连基础设定都抛之脑后了。
+
+两台MA在殖民地肆无忌惮的使用大出力米加炮，内部早就应该千疮百孔了，然而外壁的破损描写呢？空气泄露描写呢？警报呢？逃难的群众呢？通通没有。
+
+老害们对各种设定一副了如指掌的样子，怎么一到关键时刻就掉链子了？罚你们重看F91十遍。
+
+*****
+
+####  leleq  
+##### 14345#       发表于 2025-5-21 11:29
+
+虽然没有被爆头但2号显然没用了，2主角都被带走了遇不到2号了，遇不到主角留着活口也没用了，在新地方遇见不如直接来个新人物。
+
+但爬楼想到了一种可能性就是作为麻球的mav，喵安那边有首席而木马这边只有一个绿叔叔了，绿叔叔这集的表现现然不可能跟麻球做mav（绿叔叔：我的心里只有夏亚这么一个mav）
+
+就说精神病被爆前弹射被绿叔叔接住就行，这样也能致敬Z。
+
+不过感觉几率还是不大。要说的2人精神小妹绿叔叔这也太难了吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wolf1997  
+##### 14346#       发表于 2025-5-21 11:30
+
+所以，你就说这集的扎古是不是真的拯救了无数生命？
+
+
+*****
+
+####  希望之异热同心  
+##### 14347#       发表于 2025-5-21 11:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836560&amp;ptid=2209276" target="_blank">洛克萨斯 发表于 2025-5-21 11:24</a>
+假设绿叔叔把扎比家两大派系首脑全干掉，那他怎么稳定局面，卡尔玛还在地球吧，直接当哈曼的位置亲自当摄政 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">我感觉夏利亚才是最癫的那个，造个假药，他抓麻球搞不好是想引发zekenova穿越时间去干掉扎比家，而不是想在现在这个时间去干掉扎比家
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  qratosones1337  
+##### 14348#       发表于 2025-5-21 11:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836339&amp;ptid=2209276" target="_blank">Evomenon 发表于 2025-5-21 10:41</a>
+
+还有一个问题，就是麻球接下来上机的理由
+
+绿叔叔显然要让她“派上用场”，但要用什么条件来让她服从呢？
+
+单 ...</blockquote>
+小番茄好像之前查过夏亚的事？
+
+*****
+
+####  猪突猛进R  
+##### 14349#       发表于 2025-5-21 11:32
+
+基卡罗格这改修的MS形态除了公主抱GQX外有啥必要吗，收拾两条强化人杂鱼还不是MA形态就搞定了。
+
+*****
+
+####  灵魂收割机  
+##### 14350#       发表于 2025-5-21 11:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835261&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-21 01:32</a>
+
+紫色眼睛喵安上机的时候也出现过，现在看来喵安第四集那个状态根本不是个别现象 ...</blockquote>
+第四集GQuuuuuuX出现紫色眼睛的时候整个画面颜色都有变化，应该不是真的变色了。
+
+*****
+
+####  洛克萨斯  
+##### 14351#       发表于 2025-5-21 11:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836592&amp;ptid=2209276" target="_blank">希望之异热同心 发表于 2025-5-21 11:30</a>
+
+我感觉夏利亚才是最癫的那个，造个假药，他抓麻球搞不好是想引发zekenova穿越时间去干掉扎比家，而不是想 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">懂了，和番茄组队，布劳布罗和gqx合体是吧
+
+*****
+
+####  aptx8285144  
+##### 14352#       发表于 2025-5-21 11:33
+
+现在怎么感觉真主角是夏亚亚呀，老谋深算有心机而又有战斗力，而另外两位女性角色更像是纯粹的棋子，修司也不说人话。
+
+然后感觉这打戏还是不够爽
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 14353#       发表于 2025-5-21 11:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836589&amp;ptid=2209276" target="_blank">wolf1997 发表于 2025-5-21 11:30</a>
+
+所以，你就说这集的扎古是不是真的拯救了无数生命？</blockquote>
+靠绿叔叔carry的躺赢狗，还有精神力高达大削的场外要素<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之异热同心  
+##### 14354#       发表于 2025-5-21 11:34
+
+现在对比第一集麻球和喵安的身份好像彻底反转了啊，麻球彻底社死一无所有惨过宇宙难民，喵安实现了她的安稳日子的愿望，进了吉翁不用担心被人在路边一脚踢死了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  桜庭ななみ  
+##### 14355#       发表于 2025-5-21 11:35
+
+夏利亚说要除掉基连和基西莉亚，现在我严重怀疑卡尔玛消失也是被夏利亚除掉了，正好符合原版被夏亚暗中作掉的情节。解决掉扎比家两个人然后摄政扶持唯一继承人汤小美上台变成新吉翁世界线收束。
+
