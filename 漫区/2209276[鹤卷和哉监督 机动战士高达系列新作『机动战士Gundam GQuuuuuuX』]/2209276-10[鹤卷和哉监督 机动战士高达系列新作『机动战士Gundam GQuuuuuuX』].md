@@ -15856,3 +15856,13 @@ gqux这插入曲怎么都既突兀又口水年轻人就喜欢这种吗</blockquo
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836538&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-21 11:21</a></blockquote>
 紫婆这战舰是从隔壁天元突破片场过来的吗<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ryanghj  
+##### 14741#       发表于 2025-5-22 01:12
+
+草，HALO有MV，那为啥きえない没有
+
+因为HALO是玛秋的曲子吗
+

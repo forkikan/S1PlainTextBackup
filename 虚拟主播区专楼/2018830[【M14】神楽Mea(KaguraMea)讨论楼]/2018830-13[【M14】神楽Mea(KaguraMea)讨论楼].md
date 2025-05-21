@@ -9404,3 +9404,15 @@ _
 你咩这么早的线都还在线下联系，好奇现在跟森永甚至bs年代的还有联系 ...</blockquote>
 Gibara21年就毕业了，不过那时是为数不多和mea线下过的v，所以可能说的是毕业前的事也不一定？
 
+
+*****
+
+####  shmilyhua  
+##### 18541#       发表于 2025-5-22 01:05
+
+ 本帖最后由 shmilyhua 于 2025-5-22 01:08 编辑 
+
+gibara是毕业了又不是死了，和观众说巴布太郎恐怕不合适罢。（
+
+—— 来自 Google Pixel 8 Pro, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
