@@ -13460,3 +13460,38 @@ gqux应该是类似异世界小说里那种测量战斗力的水晶，能启动�
 
 但这个不行我又觉得挺合理的，如果厉害的话联邦79年可能就不会输了。把大空调想象成20世纪少年里那个空壳大机器人是不是合理多了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ryanghj  
+##### 14537#       发表于 2025-5-21 16:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67837511&amp;ptid=2209276" target="_blank">桜庭ななみ 发表于 2025-5-21 15:57</a>
+
+这大空调真不行，连给卫星开个洞都办不到，联邦还是去造大冰箱吧别造空调了。
+
+但这个不行我又觉得挺合理的 ...</blockquote>
+不止大空调不行，汉谟拉比更不行，设定直接说了变形速度很慢
+
+联邦确实不行了
+
+*****
+
+####  kcalb  
+##### 14538#       发表于 2025-5-21 16:01
+
+精神力2的特点之一就比1代多了头部脱出装置，布鲁2就是这么逃生的
+
+
+*****
+
+####  llysander  
+##### 14539#       发表于 2025-5-21 16:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67837093&amp;ptid=2209276" target="_blank">千千千千鸟 发表于 2025-5-21 13:54</a>
+
+没觉得2个小女孩塑造的有多差，但确实是不讨人喜欢，特别是玛秋，和PV里念诗的文艺范根本不是一个人，差别 ...</blockquote>
+开始的印象是 - 疯犬
+
+对疯犬有期待的自然觉得为了男人/女人的行为很下头low穿side6
+
