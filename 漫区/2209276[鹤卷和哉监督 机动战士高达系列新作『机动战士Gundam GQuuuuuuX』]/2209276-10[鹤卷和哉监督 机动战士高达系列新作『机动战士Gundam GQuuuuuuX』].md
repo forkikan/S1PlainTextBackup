@@ -12598,3 +12598,33 @@ QUX本身就是沒武器，連光劍都沒有的試驗機，
 
 好像没人注意到这个手电筒改造计划的名字叫尤玛恩托？星之贪食者啊，怕不是对行星兵器，一炮毁灭地球
 
+
+*****
+
+####  iuiuk2  
+##### 14458#       发表于 2025-5-21 13:26
+
+kirakira果然就是冰吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+感觉这集断货了，下（下）集两边病情又要加重了
+
+*****
+
+####  patema  
+##### 14459#       发表于 2025-5-21 13:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836987&amp;ptid=2209276" target="_blank">eilot 发表于 2025-5-21 13:11</a>
+
+QUX本身就是沒武器，連光劍都沒有的試驗機，
+
+今次捉回去後，再補回武裝應該是原本預定給他的基本配置來</blockquote>
+gq是有武器的，开头被红高打没有了而已
+
+
+*****
+
+####  ryanghj  
+##### 14460#       发表于 2025-5-21 13:32
+
+所以op里的plazma会不会是指手电筒？
+
