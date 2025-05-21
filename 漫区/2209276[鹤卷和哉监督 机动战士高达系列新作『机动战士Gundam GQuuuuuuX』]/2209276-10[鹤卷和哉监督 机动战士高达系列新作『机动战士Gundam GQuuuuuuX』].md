@@ -15722,3 +15722,32 @@ GQuuuuuuX7話の演出を担当させていだきました。怒涛の展開の�
 
 说实话，这集比马秋更让我难受的是首席哥，虽然有语音剧透，但真看到他是扎比家的狗还是感觉很不舒服，拉喵安入伙时的神态可以说对自己的身份非常自豪了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mishidexieyu  
+##### 14728#       发表于 2025-5-22 00:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67839047&amp;ptid=2209276" target="_blank">ykyin09 发表于 2025-5-21 23:45</a>
+夏利亚为什么会有杀掉紫婆和基连的想法，没看懂</blockquote>
+我估计79年夏亚拉他入伙的时候可能就已经透露想法了
+
+*****
+
+####  ryanghj  
+##### 14729#       发表于 2025-5-22 00:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67839103&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-5-22 00:10</a>
+
+说实话，这集比马秋更让我难受的是首席哥，虽然有语音剧透，但真看到他是扎比家的狗还是感觉很不舒服，拉喵 ...</blockquote>
+拉人入伙的时候他一直是阴阳脸，虽然表情很纯良但明显是另有所图
+
+*****
+
+####  mishidexieyu  
+##### 14730#       发表于 2025-5-22 00:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67839030&amp;ptid=2209276" target="_blank">patema 发表于 2025-5-21 23:38</a>
+这浮游装甲可是反射bit+月高精神力工字钢。含金量高的一逼好吧，给个会玩的nt能玩飞起来 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就是会玩的nt一般都不是强化人
+

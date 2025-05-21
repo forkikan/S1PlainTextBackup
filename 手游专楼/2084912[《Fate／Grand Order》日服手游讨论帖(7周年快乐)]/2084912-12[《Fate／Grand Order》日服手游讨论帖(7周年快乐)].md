@@ -524,3 +524,41 @@
 
 刷完50次终于结束了....收工<img src="https://static.stage1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 16769#       发表于 2025-5-21 22:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67838916&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-5-21 22:52</a>
+
+刷完50次终于结束了....收工</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">欧 羡慕
+
+*****
+
+####  希望之花  
+##### 16770#       发表于 2025-5-21 23:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就说怎么我的绊礼装小麻雀怎么被人借去打冠位战了，原来是加入了1t速刷阵容
+
+*****
+
+####  都谷捻柏  
+##### 16771#       发表于 2025-5-21 23:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67838872&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2025-5-21 22:40</a>
+
+枪阶的玛丽安宁有10NP群充+女性限定15蓝放15攻击，算是个不错的拐；其他人顶多是单乘区buff或单充，阿育王 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">枪阶还有刚强化的白枪，刚好妖兰单体形态能吃满。
+
+*****
+
+####  khxooo  
+##### 16772#       发表于 2025-5-22 00:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67838912&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-5-21 22:51</a>
+
+小麻雀这么变态的吗</blockquote>
+有特攻啊，小麻雀混沌/恶特攻分开的，刚好武藏是混沌/善。
+
