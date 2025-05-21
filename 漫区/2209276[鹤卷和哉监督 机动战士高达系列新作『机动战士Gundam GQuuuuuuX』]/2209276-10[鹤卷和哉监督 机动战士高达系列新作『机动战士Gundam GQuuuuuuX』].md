@@ -14499,3 +14499,59 @@ gq的汉谟拉比和正史差太多了，没有磁气覆膜，变形很慢
 
 GQX到现在都只有一把斧子...什么时候能好好打一场，别进了机战还要等机战原创武器，不然前半流程都只有一把斧子
 
+
+*****
+
+####  qiyu1234  
+##### 14627#       发表于 2025-5-21 20:13
+
+ 本帖最后由 qiyu1234 于 2025-5-21 20:14 编辑 
+
+鹤卷不是说后面跟过山车一样高潮迭起吗
+
+感觉没有时间给这俩位慢慢练级了，赶鸭子上架直冲剧情高潮也是有可能的
+
+反正本身也是在军团战里虐菜的级别（虽然是算上修司），打不过论外水平很正常，打精神病武装贫乏被米加炮初见杀爆了也没办法
+
+其他杂鱼应该还是有一战之力
+
+*****
+
+####  prattwhitney  
+##### 14628#       发表于 2025-5-21 20:14
+
+想了想这集的展开方式不就是Top2么，剧情怎么都很有即视感
+
+但是Top2里搞玄学我觉得没问题，UC里搞玄学就感觉大有问题了……
+
+*****
+
+####  winda  
+##### 14629#       发表于 2025-5-21 20:16
+
+<img src="https://img.stage1st.com/forum/202505/21/201247j03fncncuwynnn3f.jpg" referrerpolicy="no-referrer">
+
+<strong>tes546.jpg</strong> (81.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 20:12 上传
+
+杜妹这个想法放UC纪元倒是挺新奇的，虽然这样的她比较适合去扎夫特（
+
+一般都认为天然的nt优于强化人，她这套革新理念都可以去宇宙战国时代起个独立势力了。
+
+不过很可惜没啥角色描写就杀青了，那就当喊喊口号吧<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 14630#       发表于 2025-5-21 20:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67838409&amp;ptid=2209276" target="_blank">winda 发表于 2025-5-21 20:16</a>
+
+杜妹这个想法放UC纪元倒是挺新奇的，虽然这样的她比较适合去扎夫特（
+
+一般都认为天然的nt优于强化人，她 ...</blockquote>
+我说过完全就是trans对于女性的观点<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
