@@ -15936,3 +15936,11 @@ gqux这插入曲怎么都既突兀又口水年轻人就喜欢这种吗</blockquo
 
 多心了么，基克罗格这脑袋尖尖形态不会还藏着一个将后面的本体当作外甲穿在身上的胖子形态吧？毕竟单纯变个”波尔星人“感觉挺鸡肋的，手脚的攻击方式又没起变化，身上也不像内置其他武器的样子<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mellshon001  
+##### 14748#       发表于 2025-5-22 04:20
+
+最大的感想就是，在Side6眼里一年战争压根就是小孩子过家家，人家的材料技术远超联邦和吉翁一百年以上，造房子的材料比两家造战舰造MS的都要硬<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
