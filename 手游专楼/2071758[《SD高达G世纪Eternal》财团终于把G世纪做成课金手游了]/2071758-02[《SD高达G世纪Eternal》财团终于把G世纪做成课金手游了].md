@@ -242,3 +242,13 @@ SR自由主要还是给无氪阵容用的，而且要SP化，目前SP芯片没�
 
 永恒之路关了？咋了
 
+
+*****
+
+####  chivalry  
+##### 1504#       发表于 2025-5-21 20:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67838415&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2025-5-21 20:17</a>
+永恒之路关了？咋了</blockquote>
+无限再动 bug，卧槽早点知道我把无限之路就全通了
+

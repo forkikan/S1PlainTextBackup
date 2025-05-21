@@ -239,3 +239,41 @@
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  khxooo  
+##### 16740#       发表于 2025-5-21 19:29
+
+敌方限定啊，我看LXG肯定不会给你实装到我方的武藏的<img src="https://static.stage1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+*****
+
+####  都谷捻柏  
+##### 16741#       发表于 2025-5-21 19:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67838141&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2025-5-21 18:59</a>
+
+武藏亲打赢复活赛了？也不换身衣服，借此机会出个灵衣多好啊。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">进游戏看了下，还是datalost，我方武藏无事发生。
+
+越想越气！
+
+*****
+
+####  v22325  
+##### 16742#       发表于 2025-5-21 19:58
+
+冠位上啥好呢……
+
+*****
+
+####  森兰丸  
+##### 16743#       发表于 2025-5-21 20:29
+
+剑单体现在感觉伤害最高的是梅杜莎
+
+好友里只有个100级3宝的能抱....这伤害也完全高过同样是绿卡单体的5宝冲田和剑阿福了
+
+以及这个武藏到底会不会出卡.....模型都做好了没道理就这么放着只能作为敌人吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

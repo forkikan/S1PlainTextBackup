@@ -14589,3 +14589,53 @@ GQX到现在都只有一把斧子...什么时候能好好打一场，别进了�
 
 精神病这爆甲模式莫名其妙的啊，感觉因为村雨2本人暴走反而变弱了是什么鬼
 
+
+*****
+
+####  patema  
+##### 14635#       发表于 2025-5-21 20:28
+
+哪怕活着应该也不会怎么讲她了，看能不能混个外传漫画吧
+
+*****
+
+####  ryanghj  
+##### 14636#       发表于 2025-5-21 20:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67838430&amp;ptid=2209276" target="_blank">ヒトニナル 发表于 2025-5-21 20:23</a>
+
+最主要要训练一下玛秋拉一下驾驶技术，不然也是路边一条野狗随便被人踹死的程度
+
+按照玛秋那个身体能力训个 ...</blockquote>
+那必然是用修司继续吊着玛秋了，没啥好说服的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 14637#       发表于 2025-5-21 20:31
+
+说起来绿叔叔的NT能力感觉已经超模到足够抹除现阶段几乎所有信息差了，没见过修司，往番茄脑子里一读就有了（）
+
+
+*****
+
+####  无念  
+##### 14638#       发表于 2025-5-21 20:36
+
+ 本帖最后由 无念 于 2025-5-21 20:38 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67838385&amp;ptid=2209276" target="_blank">巨馍蘸酱 发表于 2025-5-21 20:07</a>
+GQX到现在都只有一把斧子...什么时候能好好打一场，别进了机战还要等机战原创武器，不然前半流程都只有一把 ...</blockquote>
+机战还不简单，第一话先出场首席哥说几句话插剧情，友军/第三方红高达出现在地图上，说几句话后换乘小番茄，然后斧王砍完第一话，第二话开始就可以放原创主角和各路牛鬼蛇神进来了，武器？无关心
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  adretyu67.  
+##### 14639#       发表于 2025-5-21 20:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67838385&amp;ptid=2209276" target="_blank">巨馍蘸酱 发表于 2025-5-21 20:07</a>
+
+GQX到现在都只有一把斧子...什么时候能好好打一场，别进了机战还要等机战原创武器，不然前半流程都只有一把 ...</blockquote>
+回绿色木马了，配件应该回来了。
+
