@@ -152,3 +152,13 @@ SSR机师都是没人用才顶上去的，而且旧吉恩公国词条的人太�
 —— 来自 Xiaomi 23 ...</blockquote>
 我一周所有体力都刷红高达了，一台都没出，到底怎么打才给
 
+
+*****
+
+####  lighttt  
+##### 1496#       发表于 2025-5-21 14:52
+
+鬼子是真有毛病<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PHY110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

@@ -9275,3 +9275,13 @@ Morambo这款味噌相扑火锅汤底。
 
 一块吃饭的Gibara是彩虹社的御伽原江良吧，我看的比较晚，好像听老天狗说过这事。
 
+
+*****
+
+####  sino__unnko3  
+##### 18535#       发表于 2025-5-21 14:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67837209&amp;ptid=2018830" target="_blank">秋游刃 发表于 2025-5-21 14:31</a>
+一块吃饭的Gibara是彩虹社的御伽原江良吧，我看的比较晚，好像听老天狗说过这事。 ...</blockquote>
+啊？这么多年来没再听过她俩有联系
+
