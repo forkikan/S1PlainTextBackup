@@ -3396,3 +3396,14 @@ Q：像八千代能从嘴里喷热水、头顶冒烟花等增加了很多实用�
 —— 来自 Xiaomi 23013RK75C, Android 15, 鹅球 v3.5.99 ...</blockquote>
 冈钉可是因果律武器<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shimotsuki14  
+##### 295#       发表于 2025-5-21 12:16
+
+早知道下周再看了<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+花了70年上宇宙，好歹多带几根冈钉嘛（载重估计也不够了）
+
+—— 来自 OPPO PKJ110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

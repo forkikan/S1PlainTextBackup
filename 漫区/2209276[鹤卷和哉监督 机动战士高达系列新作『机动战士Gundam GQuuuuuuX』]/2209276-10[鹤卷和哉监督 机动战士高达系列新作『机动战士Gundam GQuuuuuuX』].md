@@ -11858,3 +11858,113 @@ zeknova这茬你也不能说它前后矛盾，毕竟夏亚也是本来是各方�
 
 但目前看来是大家看来屎吃得还是不够多，对日本动画还有幻想
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 14400#       发表于 2025-5-21 12:16
+
+绿叔叔神枪手，一枪下来GQX没炸，冲击刚好让小番茄失去意识。
+
+这种情况下改成纯粹是NT发功比物理手段更有说服力。
+
+
+*****
+
+####  Humpy  
+##### 14401#       发表于 2025-5-21 12:16
+
+说实话我怎么感觉绿叔叔要危了
+破格的战斗能力和缜密的思维方式+强大的主观能动性+正当性高的目的，但却不是主角。
+下一个被泽科诺瓦送走的不会是绿叔叔吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  plok201  
+##### 14402#       发表于 2025-5-21 12:18
+
+<blockquote>kmr927 发表于 2025-5-21 11:11
+直径6.4公里的宇宙殖民卫星，每113.5秒就会转一圈，产生1G的离心力。宇宙不在我们的头顶，而是在我们的脚下 ...</blockquote>
+只能说这段把太多人骗进来了，明明前几集的番茄挺灵性的，现在这个番茄真的有种一眼到头的无趣感
+
+*****
+
+####  YU_JI  
+##### 14403#       发表于 2025-5-21 12:18
+
+<blockquote>Dai-Dai-Dai-Dai 发表于 2025-5-21 12:16
+绿叔叔神枪手，一枪下来GQX没炸，冲击刚好让小番茄失去意识。
+
+这种情况下改成纯粹是NT发功比物理手段更有说 ...</blockquote>
+那个地方我怎么看着就是NT发功啊？
+
+*****
+
+####  冷静先找时光机  
+##### 14404#       发表于 2025-5-21 12:19
+
+话说Gquuuuuux似乎是目前唯一的双眼机吧，这回钢加农、高达一号机都是四眼，红高是复眼加其他一堆小眼睛，神经病mk2也是密密麻麻一堆眼睛，汉布拉比是五眼，纯血吉翁系倒都很传统，连本来没眼的布劳布罗都有独眼了
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 14405#       发表于 2025-5-21 12:22
+
+ 本帖最后由 Dai-Dai-Dai-Dai 于 2025-5-21 12:25 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836789&amp;ptid=2209276" target="_blank">plok201 发表于 2025-5-21 12:18</a>
+
+只能说这段把太多人骗进来了，明明前几集的番茄挺灵性的，现在这个番茄真的有种一眼到头的无趣感 ...</blockquote>
+现在流行的JK模板，和猫一样抓摸不透，和丰富的内心世界，“直径6.4公里”的发言让小番茄看着像那样的角色，实际上貌似一样都没沾<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 14406#       发表于 2025-5-21 12:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836755&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-21 12:13</a>
+
+官推没更，周边已经上了</blockquote>
+[X 上的 『機動戦士ガンダム』関連イベント情報 【バンダイナムコアミューズメント公式】：“／ 📢明日5月21日 ドゥー・ムラサメ登場！！ ＼ 機動戦士Gundam GQuuuuuuX （読み：#ジークアクス） 期間限定公式ショップに5月29日より「ドゥー・ムラサメ」の新商品が登場！ ✨MAVアクリルスタンド✨ ✨S賞アクリルパネル✨ ✨A´賞缶バッジ✨ 公式サイト ▶[url]https://t.co/lS03gmuAsb](https://x.com/am_ev_gundam/status/1925044713553592837) #gquuuuuux [https://t.co/NZBaZQEtPl](https://t.co/NZBaZQEtPl)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/21/122353nb1a1kffneiwkf11.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (469.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 12:23 上传
+
+<img src="https://img.stage1st.com/forum/202505/21/122358eadlkx8i3x8xqsxq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (621.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 12:23 上传
+
+<img src="https://img.stage1st.com/forum/202505/21/122404ube7h8e4rl2d8c2u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (542.48 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 12:24 上传
+
+*****
+
+####  wpcc  
+##### 14407#       发表于 2025-5-21 12:24
+
+这集基本就是eva新剧场版 然后把side6拆了给大家一人发一个能发功的小朋友 过半年再打卫星炮。100有卡逼尼 这个衣服就是卡逼尼的裙子
+
+*****
+
+####  Sliurus  
+##### 14408#       发表于 2025-5-21 12:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836616&amp;ptid=2209276" target="_blank">桜庭ななみ 发表于 2025-5-21 11:35</a>
+
+夏利亚说要除掉基连和基西莉亚，现在我严重怀疑卡尔玛消失也是被夏利亚除掉了，正好符合原版被夏亚暗中作掉 ...</blockquote>
+卡尔玛跑路的时候夏利亚还没回来
+
