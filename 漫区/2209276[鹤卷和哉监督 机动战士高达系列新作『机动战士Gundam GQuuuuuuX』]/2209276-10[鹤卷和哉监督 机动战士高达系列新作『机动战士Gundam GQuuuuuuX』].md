@@ -13400,3 +13400,63 @@ gqx版汉布拉比和精神病mk2都有点恶意消费情怀了
 
 少年，回到地球圈的味道，太好了
 
+
+*****
+
+####  ardente  
+##### 14532#       发表于 2025-5-21 15:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67837292&amp;ptid=2209276" target="_blank">xwr 发表于 2025-5-21 14:56</a>
+
+下一集前半所罗门，后半会讲讲玫瑰吧，夏利亚虽然想把两个都收拾了，不过看来暂时并没有什么机会，别下下集 ...</blockquote>
+合理解释就是首席哥导致的，他直接把基西莉亚带歪了
+
+为了保留夏利亚扣住麻球这个结果
+
+首席哥已知情报是高达的驾驶员有nt能力，抓回来上交，之前堵人事件出错，认为红毛的这个不是nt，去抓了另一个，否则side6麻球新闻满天飞，最少麻球也是要一并交出的
+
+以后紫婆要是寄了得有这小子一份的，实属荣誉吉翁人<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  llysander  
+##### 14533#       发表于 2025-5-21 15:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836592&amp;ptid=2209276" target="_blank">希望之异热同心 发表于 2025-5-21 11:30</a>
+
+我感觉夏利亚才是最癫的那个，造个假药，他抓麻球搞不好是想引发zekenova穿越时间去干掉扎比家，而不是想 ...</blockquote>
+本片里最单纯，目的最明确，最好看懂的就是绿叔叔了
+
+那就是，我的使命就是正传里鸭想干什么<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+79年那杯红酒里下了魅药
+
+
+*****
+
+####  ryanghj  
+##### 14534#       发表于 2025-5-21 15:55
+
+gqux应该是类似异世界小说里那种测量战斗力的水晶，能启动的属于特殊人才，谁都想要
+
+绿叔叔和紫老太婆都在寻找
+
+*****
+
+####  llysander  
+##### 14535#       发表于 2025-5-21 15:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836734&amp;ptid=2209276" target="_blank">冷静先找时光机 发表于 2025-5-21 12:07</a>
+
+为什么有这么多人会觉得村雨兔没死，高达一号机跟大魔都是光剑砍头就整个身子全炸了，难道这回精神病mk2整 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">正版的大型带脑袋ma的脑袋很多是脱出装置，要杀两遍
+
+*****
+
+####  桜庭ななみ  
+##### 14536#       发表于 2025-5-21 15:57
+
+这大空调真不行，连给卫星开个洞都办不到，联邦还是去造大冰箱吧别造空调了。
+
+但这个不行我又觉得挺合理的，如果厉害的话联邦79年可能就不会输了。把大空调想象成20世纪少年里那个空壳大机器人是不是合理多了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
