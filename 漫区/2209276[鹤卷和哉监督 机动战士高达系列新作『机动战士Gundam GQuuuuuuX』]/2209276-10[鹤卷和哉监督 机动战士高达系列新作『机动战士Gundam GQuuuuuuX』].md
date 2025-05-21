@@ -14431,3 +14431,71 @@ khara 的机械审美按说吊打水魔组，但战斗构成又过于脱离高�
 
 最多跳一年了，再跳就0087了，那防希洛克真是防了个笑话（鹤卷：逗逗你的啊）
 
+
+*****
+
+####  猪突猛进R  
+##### 14620#       发表于 2025-5-21 19:59
+
+不跳时间很难办，要花至少1集交代两姐妹之后发生了啥，不如跳时间留白，而且EVA新剧场版就是这么做的。
+
+防希洛克其实不是防他的能力，目前来看希洛克和绿叔叔的定位是冲突的。
+
+*****
+
+####  patema  
+##### 14621#       发表于 2025-5-21 20:01
+
+鹤卷也没说不让奶奶头登场，只说了登场很麻烦
+
+*****
+
+####  ryanghj  
+##### 14622#       发表于 2025-5-21 20:02
+
+从人设来看最多跳几个月，不会超过一年
+
+*****
+
+####  ryanghj  
+##### 14623#       发表于 2025-5-21 20:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67837975&amp;ptid=2209276" target="_blank">mengsu 发表于 2025-5-21 18:12</a>
+
+汉布拉比这么好的机子你盖茨全程挂机看戏实属难绷。
+
+这精神力高达的弱智爆甲模式可以竞争高达全系列最丑机 ...</blockquote>
+gq的汉谟拉比和正史差太多了，没有磁气覆膜，变形很慢
+
+*****
+
+####  ryanghj  
+##### 14624#       发表于 2025-5-21 20:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67837973&amp;ptid=2209276" target="_blank">Geyorkias 发表于 2025-5-21 18:12</a>
+
+夏利亚要打的是扎比家，又不是联邦....周大佐这波没捞到啥后面估计也未必有什么联邦机体出来了。
+
+别看他人 ...</blockquote>
+联邦可能是竭尽全力攒了个精神力高达，还搞了强化人，结果被吉翁最强NT全秒了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Toby_dak  
+##### 14625#       发表于 2025-5-21 20:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836868&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-21 13:37</a>
+
+老太婆座驾怎么叫紫寡妇</blockquote>
+<img src="https://p.sda1.dev/24/6aca703bdec7dec329e450cabfe1beaf/13DL.ME-THE ORIGIN 23_149.jpg" referrerpolicy="no-referrer">
+
+此事在GTO早有记载。
+
+*****
+
+####  巨馍蘸酱  
+##### 14626#       发表于 2025-5-21 20:07
+
+GQX到现在都只有一把斧子...什么时候能好好打一场，别进了机战还要等机战原创武器，不然前半流程都只有一把斧子
+
