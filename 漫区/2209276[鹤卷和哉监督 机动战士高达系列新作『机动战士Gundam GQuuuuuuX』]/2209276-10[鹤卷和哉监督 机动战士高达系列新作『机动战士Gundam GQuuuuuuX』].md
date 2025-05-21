@@ -15320,3 +15320,40 @@ seed的成功让日升觉得投更多钱就赚的更多，然后00的高清化�
 番茄新闻只是说和袭击有关系，没说有什么关系，而且首席已经亲身确认gqx/红高打军团战期间番茄没上机，且番 ...</blockquote>
 番茄可是在众目睽睽之下大撒 币跳上鸡夸克斯的，虽然目击的军警大概烧得渣都不剩，但执法记录仪应该都实时上传了
 
+
+*****
+
+####  mishidexieyu  
+##### 14699#       发表于 2025-5-21 23:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835644&amp;ptid=2209276" target="_blank">Aokaedo 发表于 2025-5-21 07:56</a>
+番茄爹妈直接麻了，一个在外出差工作，一个昨天最大的发愁是孩子想变成水母/想去地球
+
+—— 来自 HONOR PTP ...</blockquote>
+番茄妈看见电视：早知如此还是让她去当水母算了
+
+*****
+
+####  syndrome2032  
+##### 14700#       发表于 2025-5-21 23:29
+
+番茄最大的罪名是参与军团战打黑拳，现在下落不明。
+
+精神病发癫攻击城市这锅怎么也甩不到番茄身上。
+
+
+*****
+
+####  mishidexieyu  
+##### 14701#       发表于 2025-5-21 23:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">怎么大家都在纠结绿叔叔拿79老机体干掉精神病兔
+他这都能变形了显然是个三代机ma，里面是最新代显卡外面是廉洁机箱啊
+
+*****
+
+####  patema  
+##### 14702#       发表于 2025-5-21 23:32
+
+这片就一高达皮top2,这些奇妙电波发言也不是什么光头味，今天回顾top2 ep4,鹤卷那时候就这样了<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
