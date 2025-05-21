@@ -3435,3 +3435,15 @@ Q：像八千代能从嘴里喷热水、头顶冒烟花等增加了很多实用�
 
 —— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  PingGuo233  
+##### 299#       发表于 2025-5-21 18:23
+
+这冈钉不会下一集就要用来发射八千代到地球吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">或者是把原本用来发射冈钉的能量用来回程，那这样不是白装了吗
+
+不过我觉得大概率不会，但是如果冈钉不发射的话那根据契诃夫的理论，后面几集遇到了要发射冈钉的状况会有多危急
+
+话说上一话打出的温泉这话居然一点镜头都没有吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

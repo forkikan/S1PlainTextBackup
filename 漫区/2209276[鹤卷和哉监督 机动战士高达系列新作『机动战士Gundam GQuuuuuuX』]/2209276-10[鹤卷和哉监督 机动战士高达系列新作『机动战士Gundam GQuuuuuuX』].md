@@ -14228,3 +14228,32 @@ gqx这科技树都点塞可缪了啊，联邦还是害怕NT那样走强化人路
 青春期，是指逃课去打随时会丧命的黑拳，跟来路不明的野小子一起Kirakira，还跟难民女争风吃醋的青春期吗？ ...</blockquote>
 神人tv预备役。
 
+
+*****
+
+####  玖羽  
+##### 14602#       发表于 2025-5-21 18:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67837645&amp;ptid=2209276" target="_blank">patema 发表于 2025-5-21 16:34</a>
+
+再看了遍其实感觉还好，主要观感还是败在了强化人二人组太菜</blockquote>
+还行吧，我只是感觉这个死法太富野了，别忘了阿姆罗杀邱尼也就用了半秒
+
+*****
+
+####  灵魂收割机  
+##### 14603#       发表于 2025-5-21 18:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67837888&amp;ptid=2209276" target="_blank">CCMkIII 发表于 2025-5-21 17:48</a>
+
+这集机设上最帅的我觉得其实是汉布拉比，喜欢这个比原版更暗的配色，倒下来的头也很顺眼，感觉可以做成鲨鱼 ...</blockquote>
+这版汉布拉比变形慢，战场上根本没有变形的机会<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+*****
+
+####  whzfjd  
+##### 14604#       发表于 2025-5-21 18:32
+
+khara 的机械审美按说吊打水魔组，但战斗构成又过于脱离高达的传统美学了
+
