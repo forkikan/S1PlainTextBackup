@@ -10021,3 +10021,34 @@ tts果然全是废物呢。<img src="https://static.stage1st.com/image/smiley/fa
 
 胡子这ma两炮就能将mk2融了是什么水平的出力
 
+
+*****
+
+####  風卷豹  
+##### 14228#       发表于 2025-5-21 08:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835481&amp;ptid=2209276" target="_blank">xwz 发表于 2025-5-21 03:22</a>
+
+说起来，不会最后是哈曼跟喵安搭档吧……</blockquote>
+八成是首席哥。
+
+这集首席哥回到老太婆身边笑容都灿烂了不少，讲话也利索了，简直像回到主人身边瞬间精神的小狗
+
+*****
+
+####  cih  
+##### 14229#       发表于 2025-5-21 08:28
+
+<blockquote>moondigi 发表于 2025-5-21 08:17
+胡子这ma两炮就能将mk2融了是什么水平的出力</blockquote>
+当然是厨力，早有结论了绿色欧吉桑就是某鸭子梦男♂的八美肉吧😍
+
+*****
+
+####  wincle  
+##### 14230#       发表于 2025-5-21 08:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835351&amp;ptid=2209276" target="_blank">巨馍蘸酱 发表于 2025-5-21 01:58</a>
+这集有一点我没看明白，黑拳的运营方是SIDE6官方吗？还是谁来着？ 为啥这集军团战要安排到在殖民地内部开打 ...</blockquote>
+不是联邦，不是垃圾佬，我猜是夏利亚
+

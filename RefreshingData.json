@@ -2265,7 +2265,7 @@
     "lastedit": 1747716060,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1804478": {
     "totalreply": 1244,
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 166184,
+    "totalreply": 166185,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1747787049,
+    "lastedit": 1747787650,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -10521,10 +10521,10 @@
     "update": false
   },
   "2209276": {
-    "totalreply": 14227,
+    "totalreply": 14230,
     "title": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
     "newtitle": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
-    "lastedit": 1747786940,
+    "lastedit": 1747787542,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 136152,
+    "totalreply": 136161,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1747786940,
+    "lastedit": 1747787891,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10827,10 +10827,10 @@
     "update": false
   },
   "2238336": {
-    "totalreply": 2349,
+    "totalreply": 2350,
     "title": "[任天堂病 栋12楼，山雨欲来风满楼，新年新机新病 栋！／剑指1.16！]",
     "newtitle": "[任天堂病 栋12楼，山雨欲来风满楼，新年新机新病 栋！5.8审判日]",
-    "lastedit": 1747753209,
+    "lastedit": 1747787542,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11682,10 +11682,10 @@
     "update": false
   },
   "2251402": {
-    "totalreply": 191,
+    "totalreply": 193,
     "title": "[高达很长一串字母不会翻车，我要吹爆鹤卷哥哥！！]",
     "newtitle": "[高达很长一串字母不会翻车，我要吹爆鹤卷哥哥！！]",
-    "lastedit": 1747784778,
+    "lastedit": 1747787536,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11862,10 +11862,10 @@
     "update": false
   },
   "2130715": {
-    "totalreply": 347,
+    "totalreply": 348,
     "title": "[心跳回忆明年就30周年了，能期待KONAMI出纪念新作吗（一代重置将于5月8日登陆NS平台)]",
     "newtitle": "[心跳回忆明年就30周年了，能期待KONAMI出纪念新作吗（一代重置将于5月8日登陆NS平台)]",
-    "lastedit": 1747784778,
+    "lastedit": 1747787771,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13189,6 +13189,15 @@
     "title": "[佐野隆 苍的不伦 1+2卷 个人汉化]",
     "newtitle": "[佐野隆 苍的不伦 1+2卷 个人汉化]",
     "lastedit": 1747776981,
+    "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2252254": {
+    "totalreply": 42,
+    "title": "[（既然没人开那我开吧）gqx第七集投票帖]",
+    "newtitle": "[（既然没人开那我开吧）gqx第七集投票帖]",
+    "lastedit": 1747787543,
     "category": "漫区",
     "active": true,
     "update": false
