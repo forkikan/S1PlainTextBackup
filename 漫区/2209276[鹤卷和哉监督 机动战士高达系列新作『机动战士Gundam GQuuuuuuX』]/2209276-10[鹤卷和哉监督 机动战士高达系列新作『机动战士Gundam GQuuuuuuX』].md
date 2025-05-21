@@ -14354,3 +14354,24 @@ khara 的机械审美按说吊打水魔组，但战斗构成又过于脱离高�
 
 半吊子的ucif加上半吊子的gen z年轻人，最后两个都写的乱七八糟
 
+
+*****
+
+####  patema  
+##### 14612#       发表于 2025-5-21 19:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">怎么还在eva
+
+
+*****
+
+####  whzfjd  
+##### 14613#       发表于 2025-5-21 19:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67838190&amp;ptid=2209276" target="_blank">Flechette 发表于 2025-5-21 19:10</a>
+
+这帮以前能写出EVA的人，如今怎么连gen z都把握不清楚
+
+半吊子的ucif加上半吊子的gen z年轻人，最后两个都写 ...</blockquote>
+当然只能是 gen z 写 gen z 啊（
+
