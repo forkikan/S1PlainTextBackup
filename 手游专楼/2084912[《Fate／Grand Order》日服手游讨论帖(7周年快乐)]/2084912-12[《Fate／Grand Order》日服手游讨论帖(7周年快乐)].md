@@ -324,3 +324,37 @@
 直接借超级伊织 一套200多万 还没红红红</blockquote>
 伊织这么强么……靠……要不要换呢……
 
+
+*****
+
+####  alucardcz  
+##### 16748#       发表于 2025-5-21 21:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67838528&amp;ptid=2084912" target="_blank">v22325 发表于 2025-5-21 20:57</a>
+
+伊织这么强么……靠……要不要换呢……</blockquote>
+你要拉到120然后全满吗（ 100+1000的没那么行（
+
+*****
+
+####  khxooo  
+##### 16749#       发表于 2025-5-21 21:10
+
+疯狂找好友的剑武藏，就问你谁是冠位剑<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  v22325  
+##### 16750#       发表于 2025-5-21 21:11
+
+<blockquote>alucardcz 发表于 2025-5-21 21:05
+你要拉到120然后全满吗（ 100+1000的没那么行（</blockquote>
+那就算了【  120是真爱了
+
+*****
+
+####  alucardcz  
+##### 16751#       发表于 2025-5-21 21:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">打一把刷助战要刷很久。。有点烦人
+
