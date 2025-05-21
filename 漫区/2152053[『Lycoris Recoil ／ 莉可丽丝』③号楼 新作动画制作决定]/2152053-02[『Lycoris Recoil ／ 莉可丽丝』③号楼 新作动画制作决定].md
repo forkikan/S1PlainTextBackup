@@ -161,3 +161,19 @@
 
 [https://x.com/drpow1/status/1925163140918206597/photo/1](https://x.com/drpow1/status/1925163140918206597/photo/1)
 
+
+*****
+
+####  虚无缥缈的光阴  
+##### 2335#       发表于 2025-5-21 22:15
+
+ 本帖最后由 虚无缥缈的光阴 于 2025-5-21 22:17 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67838398&amp;ptid=2152053" target="_blank">osore 发表于 2025-5-21 20:11</a>
+
+还不忘整他那主线
+
+织田信长也是你丫杀的可还行</blockquote>
+可能古代的石蒜组织感觉会是圣殿骑士团/上古维序者or刺客/无形者的一部分吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+感觉泷奈戴兜帽配袖剑的样子会很合适
+
