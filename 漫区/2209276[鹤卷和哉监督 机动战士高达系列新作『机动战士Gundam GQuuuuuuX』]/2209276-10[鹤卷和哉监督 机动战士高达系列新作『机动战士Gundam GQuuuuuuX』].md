@@ -11395,3 +11395,135 @@ kirakira明面上就是精神状态吧。
 
 夏利亚说要除掉基连和基西莉亚，现在我严重怀疑卡尔玛消失也是被夏利亚除掉了，正好符合原版被夏亚暗中作掉的情节。解决掉扎比家两个人然后摄政扶持唯一继承人汤小美上台变成新吉翁世界线收束。
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 14356#       发表于 2025-5-21 11:36
+
+喵安杀了人没反应，进吉翁大概也是当作在打工吧，对喵安来说确实是安稳日子，很是合适，前提是没被强化。
+
+*****
+
+####  伊川  
+##### 14357#       发表于 2025-5-21 11:37
+
+作为泥潭唯一的独角兽粉，我想请教一下这片演到现在和独角兽有没有关系，去电影院看了序章后就没看了，如果有关系我还是想补补番
+
+*****
+
+####  ヒトニナル  
+##### 14358#       发表于 2025-5-21 11:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836597&amp;ptid=2209276" target="_blank">qratosones1337 发表于 2025-5-21 11:32</a>
+小番茄好像之前查过夏亚的事？</blockquote>
+就谷狗了一下wiki瑞萍了一下面具，那不叫查<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  windlikeman  
+##### 14359#       发表于 2025-5-21 11:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836413&amp;ptid=2209276" target="_blank">秋月孝三 发表于 2025-5-21 10:56</a>
+
+说起来钉宫太太确实存活下来了，而且由于踢坛子还没组起来想来也不会被装罐了，可喜可贺 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">电子眼：我还活着呢 总不会导演让我出来说两句话就杀青
+
+不会吧<img src="https://static.stage1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eilot  
+##### 14360#       发表于 2025-5-21 11:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836589&amp;ptid=2209276" target="_blank">wolf1997 发表于 2025-5-21 11:30</a>
+
+所以，你就说这集的扎古是不是真的拯救了无数生命？</blockquote>
+突然腦補了那批警察渣古四處去破洞噴膠填回
+
+下集見到他們指著瑪秋的照片大罵她是叛徒去X
+
+
+*****
+
+####  未来起航  
+##### 14361#       发表于 2025-5-21 11:40
+
+ 本帖最后由 未来起航 于 2025-5-21 11:41 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836066&amp;ptid=2209276" target="_blank">绞首浪漫派丶 发表于 2025-5-21 09:53</a>
+
+所以KIRAKIRA到底是个啥，NT聊天室也妹有成瘾性啊，而且也解释不了为什么修斯一走KIRAKIRA就没了。很难想象 ...</blockquote>
+按榎户的尿性应该还是“青春的无限大可能性”这种东西。有了kirakira的人就是神人，上天入地随心所欲。理所当然所有人都跟溜冰似的狂热追求。
+
+然后魔女回也正好从两方面揭示了这种“无限可能”美好想象背后的阴影：第一是她丈夫的死，表明能在无限的可能性里遨游的人需要强大的幸运，许多人一辈子也就是这层强运的光辉背后倒霉的祭品。第二是修司和她的对话，她说kirakira根本不存在，修司说有的兄弟有的/只是我也不是全能/愿望也就那么一个。无限可能的岔路口听着好听，但实际选下来也就自己那一条人生路可走而已。这些也都是青春期那坛醋的老东西了。
+
+这套点子有个问题是他跟uc系战争年代的严肃现实不太搭。青春期的事儿，就算你要冷着脸讲道理，说什么你小子幸运了别人就倒霉了，但那个别人一般充其量也就学业/恋爱/社团成绩之类搞砸了，日子还照常过；你愧疚两下也就过了。高达这kirakira是沾点鲨人狂的，一边自己爽玩一边开挂割草，道德上就问题巨大<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+我觉得到后面很容易把走成佐佐那种路子：鲨他们那是死有余辜，整个宇宙社会体制都有问题，我要灶返呀！.jpg  献给佐佐的青春也是青春不是。
+
+好坏先不谈，大伙接不接受就比较难讲（
+
+*****
+
+####  希望之异热同心  
+##### 14362#       发表于 2025-5-21 11:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836605&amp;ptid=2209276" target="_blank">洛克萨斯 发表于 2025-5-21 11:33</a>
+懂了，和番茄组队，布劳布罗和gqx合体是吧</blockquote>
+不用合体吧，这集明确了kirakira有穿越时空的功能，而线索也都指向和沙仑玫瑰（艾尔美斯）有关，抓了麻球再找到艾尔美斯可能就能打开kirakira了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  leleq  
+##### 14363#       发表于 2025-5-21 11:40
+
+麻球这事其实很好解决的只要绿叔叔给说一句“麻球是我们找的民间协力者（卧底）”就行了
+
+<strong>只要</strong>绿叔叔一句话<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猪突猛进R  
+##### 14364#       发表于 2025-5-21 11:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836624&amp;ptid=2209276" target="_blank">伊川 发表于 2025-5-21 11:37</a>
+
+作为泥潭唯一的独角兽粉，我想请教一下这片演到现在和独角兽有没有关系，去电影院看了序章后就没看了，如果 ...</blockquote>
+没有直接关系。
+
+但主角机和红高达的塞克缪系统（尤其是主角机）与独角兽可能有关，不过这个得等谜底揭晓。
+
+*****
+
+####  YU_JI  
+##### 14365#       发表于 2025-5-21 11:42
+
+话说，首席当年不会和喵安现在一样，被紫婆拿一模一样的套路拐进吉翁的吧？
+
+*****
+
+####  希望之异热同心  
+##### 14366#       发表于 2025-5-21 11:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836640&amp;ptid=2209276" target="_blank">leleq 发表于 2025-5-21 11:40</a>
+麻球这事其实很好解决的只要绿叔叔给说一句“麻球是我们找的民间协力者（卧底）”就行了
+
+只要绿叔叔一句话 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">中立殖民地居民当吉翁间谍不还是社死么
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  伊川  
+##### 14367#       发表于 2025-5-21 11:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836643&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-21 11:41</a>
+
+没有直接关系。
+
+但主角机和红高达的塞克缪系统（尤其是主角机）与独角兽可能有关，不过这个得等谜底揭晓 ...</blockquote>
+多谢，那就等完结后再看<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
