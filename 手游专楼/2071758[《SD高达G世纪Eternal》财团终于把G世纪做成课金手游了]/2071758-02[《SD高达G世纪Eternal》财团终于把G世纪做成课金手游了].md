@@ -71,3 +71,15 @@ SSR机师都是没人用才顶上去的，而且旧吉恩公国词条的人太�
 
 防御有射程+1，还算能用吧，可惜吉翁防御机除了强人全都要抽，而且吉翁卡池里很多优秀人才，除非一个都没抽到
 
+
+*****
+
+####  clauderayvane  
+##### 1489#       发表于 2025-5-21 11:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836083&amp;ptid=2071758" target="_blank">AminGly 发表于 2025-5-21 09:57</a>
+小号怎么满破红高达 硬刷吗</blockquote>
+硬刷 我活动开始到现在满破两台了，应该是第一台满破爆率很高，第二台就正常爆率了
+
+—— 来自 Xiaomi 23113RKC6C, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

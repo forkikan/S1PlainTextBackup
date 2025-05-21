@@ -10914,3 +10914,84 @@ kirakira明面上就是精神状态吧。
 
 夏利亚的机体突然变形真是想不到呀，后续突然转正当主角可能性微存<img src="https://static.stage1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">。就像destiny里突然前辈抢戏当主角一样
 
+
+*****
+
+####  秋月孝三  
+##### 14321#       发表于 2025-5-21 10:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说起来钉宫太太确实存活下来了，而且由于踢坛子还没组起来想来也不会被装罐了，可喜可贺
+
+*****
+
+####  eilot  
+##### 14322#       发表于 2025-5-21 10:57
+
+夏利安也太強了，之前空中射擊救場已經非常強
+
+今次輕鬆拆了精神病...
+
+這台精神病其實沒I力場，隨便被拆
+
+瑪秋直接被社死了
+
+*****
+
+####  岸浪白野  
+##### 14323#       发表于 2025-5-21 10:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836339&amp;ptid=2209276" target="_blank">Evomenon 发表于 2025-5-21 10:41</a>
+
+还有一个问题，就是麻球接下来上机的理由
+
+绿叔叔显然要让她“派上用场”，但要用什么条件来让她服从呢？
+
+单 ...</blockquote>
+那不可能了，对信息的掌控是主角团声优说过是看了电影的79部分才知道夏利亚为什么对夏亚执着的过往<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mr姜  
+##### 14324#       发表于 2025-5-21 11:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836019&amp;ptid=2209276" target="_blank">kaion111 发表于 2025-5-21 09:43</a>
+
+俩妹子行动逻辑都是有的 但是这么写完全不讨喜啊
+
+精神小妹和逃避型人格
+
+只有四集很难修正</blockquote>
+涅安人格还好吧，至少不会让人火大，但是感情线有点突兀了
+
+
+*****
+
+####  ads147147  
+##### 14325#       发表于 2025-5-21 11:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836419&amp;ptid=2209276" target="_blank">eilot 发表于 2025-5-21 10:57</a>
+
+夏利安也太強了，之前空中射擊救場已經非常強
+
+今次輕鬆拆了精神病...
+
+這台精神病其實沒I力場，隨便被拆</blockquote>
+有是有i立场的，只是大概率不全面。
+
+这个杜实战经验也太烂了，而且精神状态也不怎么样。。
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 14326#       发表于 2025-5-21 11:02
+
+<img src="https://img.stage1st.com/forum/202505/21/110028up6stppu4n4u6ueu.png" referrerpolicy="no-referrer">
+
+<strong>518519818919819.png</strong> (715.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 11:00 上传
+
+来点假药，有把钱留下的余裕，博美犬可能是比想象中更大的势力，还有大的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
