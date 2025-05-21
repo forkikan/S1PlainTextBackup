@@ -15357,3 +15357,106 @@ seed的成功让日升觉得投更多钱就赚的更多，然后00的高清化�
 
 这片就一高达皮top2,这些奇妙电波发言也不是什么光头味，今天回顾top2 ep4,鹤卷那时候就这样了<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mintslime  
+##### 14703#       发表于 2025-5-21 23:34
+
+尾焰烧军警这种纯臆测的东西就不用当真了吧，SIDE 6人民多奇志，精神病高达光束炮齐射死伤都只过百，怎么会怕小小尾焰<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+再说这集番茄上GQUX纯自保，反而是军警这种在MS外面看到一个高中女生，MS动了第一反应不是你快过来那里面有**，而是我们机关枪打死你这样它就不会动了的行为比较抽象
+
+*****
+
+####  mishidexieyu  
+##### 14704#       发表于 2025-5-21 23:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67838852&amp;ptid=2209276" target="_blank">伊露伊道格拉斯 发表于 2025-5-21 22:35</a>
+线控炮能一枪打穿重型机精神病，我感觉也是放弃治疗了
+
+93浮游炮都不敢说一发秒普通ms，都得连续攻击，你8 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实给了很多前置条件了，驾驶员溜戒断了不在状态犯病，犯病把外置装甲当浮游装甲（设计师脑子有坑吧，不过可能是觉得加了i立场天下无敌了
+以及夏利亚这机体看着就是个79的壳，实际上是变形机说明强度就不是旧式的了
+
+*****
+
+####  ryanghj  
+##### 14705#       发表于 2025-5-21 23:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67839017&amp;ptid=2209276" target="_blank">mishidexieyu 发表于 2025-5-21 23:31</a>
+
+怎么大家都在纠结绿叔叔拿79老机体干掉精神病兔
+
+他这都能变形了显然是个三代机ma，里面是最新代显卡外面是 ...</blockquote>
+这机体搞不好是夏利亚自己设计的
+
+同为木星归来的男人，是吧
+
+*****
+
+####  syndrome2032  
+##### 14706#       发表于 2025-5-21 23:36
+
+番茄开个红高达被一群军警扎古追着咬。
+
+那会krkr戒断症发作真暴走怕不是把军警扎古都手撕了。
+
+side6分自警队老是在莫名其妙的地方作威作福不知道是胆子大还是笨。
+
+*****
+
+####  mishidexieyu  
+##### 14707#       发表于 2025-5-21 23:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">强人是不是最后一台hg了，夏利亚这机体之后还会模型化吗
+这集简直是万代集
+
+*****
+
+####  mishidexieyu  
+##### 14708#       发表于 2025-5-21 23:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67839021&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-21 23:36</a>
+这机体搞不好是夏利亚自己设计的
+
+同为木星归来的男人，是吧</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">弥补了新时代卡缪小番茄不需要自己设计变形机的剧情（）
+
+*****
+
+####  patema  
+##### 14709#       发表于 2025-5-21 23:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67839020&amp;ptid=2209276" target="_blank">mishidexieyu 发表于 2025-5-21 23:35</a>
+
+其实给了很多前置条件了，驾驶员溜戒断了不在状态犯病，犯病把外置装甲当浮游装甲（设计师脑子有坑吧，不 ...</blockquote>
+这浮游装甲可是反射bit+月高精神力工字钢。含金量高的一逼好吧，给个会玩的nt能玩飞起来
+
+
+*****
+
+####  Asukalangley33  
+##### 14710#       发表于 2025-5-21 23:40
+
+感觉还是为了分级考虑了
+
+换以前多少跟你整点平民融化，废弹药砸车的镜头<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+这袭击的残酷性完全没体现出来
+
+当然，也有可能鹤卷就是想用高达背景整一个FLCL
+
+*****
+
+####  ryanghj  
+##### 14711#       发表于 2025-5-21 23:41
+
+ 本帖最后由 ryanghj 于 2025-5-21 23:43 编辑 
+
+能不能假药个修司回到0079的格拉纳达，被阿纳海姆收留，发挥机械天才的能力制造了GquuuuuuX
+
+毕竟牢修是能把游戏机改成机器人的神人
+
+正好下集叫月に墜（堕）ちる，墜ちる当然说的是所罗门，那堕ちる是什么呢<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">当然是牢修了
+
