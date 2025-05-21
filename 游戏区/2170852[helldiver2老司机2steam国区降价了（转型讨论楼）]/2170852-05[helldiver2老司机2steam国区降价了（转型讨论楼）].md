@@ -1041,3 +1041,24 @@ n10以下的队友全看脸，n10无论国人老外大都是熟练工
 挂加速器还是不挂加速器好，我没试过裸连</blockquote>
 除非你是四人黑，否则必开
 
+
+*****
+
+####  ParadiseMartyr  
+##### 6022#       发表于 2025-5-21 19:10
+
+买哪个版本？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  IWS2000  
+##### 6023#       发表于 2025-5-21 19:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67838188&amp;ptid=2170852" target="_blank">ParadiseMartyr 发表于 2025-5-21 19:10</a>
+买哪个版本？
+
+—— 来自 鹅球 v3.3.96</blockquote>
+一般来说普通版就可以了，超级怨种送了一把枪一套衣服一个称号还有战舰的游戏机，还有一个债券
+

@@ -3447,3 +3447,13 @@ Q：像八千代能从嘴里喷热水、头顶冒烟花等增加了很多实用�
 
 话说上一话打出的温泉这话居然一点镜头都没有吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  白玫瑰之夜  
+##### 300#       发表于 2025-5-21 19:17
+
+可以的话我希望下集是发射了然后发现雀食没啥卵用按这番尿性还挺有可能的顺便这集嘭子理工科学霸的身份前面没有铺垫显的有点唐突了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2337A, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
