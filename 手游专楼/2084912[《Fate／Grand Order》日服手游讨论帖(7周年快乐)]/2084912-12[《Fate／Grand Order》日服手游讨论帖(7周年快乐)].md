@@ -431,3 +431,40 @@
 
 把任务刷完了，最后定位战给的是冠位剑限定的20%御主经验的礼装
 
+
+*****
+
+####  alucardcz  
+##### 16760#       发表于 2025-5-21 22:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67838717&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-5-21 21:54</a>
+
+喂了个100级伊织 很好用</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">欧 羡慕
+
+
+*****
+
+####  壳壳牛  
+##### 16761#       发表于 2025-5-21 22:09
+
+冠位不是最低100级吗？
+
+我好友里怎么有个90级的冠位呆毛？
+
+*****
+
+####  天王寺凯伊姆  
+##### 16762#       发表于 2025-5-21 22:27
+
+剑阶现在，除了单体打手，拐一个花嫁一个长恭，那其他职介怎么办呢，别的不说剩下两个上三是不是半废了
+
+*****
+
+####  Jamaisvu  
+##### 16763#       发表于 2025-5-21 22:28
+
+我刷冠剑本用花嫁尼禄加兰陵王当辅助，结果兰陵王在场固定触发武藏退场彩蛋，临终前喃喃自语着“美少年还不够多”...
+
+如此正式的场合，留下的最后一句话竟然在暴露性癖，真是丢人的大人啊<img src="https://static.stage1st.com/image/smiley/carton2017/424.png" referrerpolicy="no-referrer">
+
