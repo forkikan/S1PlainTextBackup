@@ -15460,3 +15460,117 @@ side6分自警队老是在莫名其妙的地方作威作福不知道是胆子大
 
 正好下集叫月に墜（堕）ちる，墜ちる当然说的是所罗门，那堕ちる是什么呢<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">当然是牢修了
 
+
+*****
+
+####  6030sylar  
+##### 14712#       发表于 2025-5-21 23:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67838852&amp;ptid=2209276" target="_blank">伊露伊道格拉斯 发表于 2025-5-21 22:35</a>
+线控炮能一枪打穿重型机精神病，我感觉也是放弃治疗了
+
+93浮游炮都不敢说一发秒普通ms，都得连续攻击，你8 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">线控炮能精神病整条手臂熔了，精神病那散射炮连建筑物都没有打出几个洞，side6够硬的我怀疑这是side6移民广告
+
+—— 来自 OnePlus PKG110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  EFSF  
+##### 14713#       发表于 2025-5-21 23:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67838937&amp;ptid=2209276" target="_blank">昆古尼尔 发表于 2025-5-21 23:01</a>
+
+GQ的精神病应该I-filed是在双手上的 挡木马那发mega粒子炮有个明显的双手挡在胸前的动作
+
+后面被大叔上来 ...</blockquote>
+还是说不通的，I-field理论上是不需要靠什么特定动作来发动，开机了就一直有效，无论手在哪（当然制作组可以自己又玩新设定）。挡木马那一击纯粹双手放在胸前就是画面视觉要求大于一切导致的，那么以那一幕为基准，精神力高达的I-field是紧贴身体型的，那就不存在像GP03那样的I-field和机体之间的空隙，那夏利尔是怎么干爆左手的？理论上他的攻击会被I-field挡下来。
+
+然后夏利尔干爆精神力，就先假设背后没有i-field保护，就右手有，那右手是怎么给干爆的？理论上右手要爆，也要身体被打穿，供电供不上才行吧。但是画面上体感是右手先爆身体再穿的。但是其实这些细节不重要。他要为了抬夏利尔厉害，先要用木马的舰炮展示精神力高达够硬，然后夏利尔出场精神力高达硬不硬就无所谓了，因为要展示夏利尔强。
+
+*****
+
+####  ykyin09  
+##### 14714#       发表于 2025-5-21 23:45
+
+夏利亚为什么会有杀掉紫婆和基连的想法，没看懂
+
+*****
+
+####  璇瑢子R  
+##### 14715#       发表于 2025-5-21 23:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67839013&amp;ptid=2209276" target="_blank">syndrome2032 发表于 2025-5-21 23:29</a>
+
+番茄最大的罪名是参与军团战打黑拳，现在下落不明。
+
+精神病发癫攻击城市这锅怎么也甩不到番茄身上。 ...</blockquote>
+在影片中大家视角是有限的
+
+1：吉翁方面，大家都知道精神病那是联邦那边。
+
+2：side6官方/军警：只知道小番茄作为驾驶员参与了这个晚上的事件，但是到底哪些是她做的，哪些不是应该是不知道的。如果小番茄现在被关在绿木马上，那军警也无从审问
+
+而且军警看小番茄上机的地方有泽科诺瓦留下的大坑。军警又不知道那是红高达留下的，这个锅小番茄大概是背定了。
+
+3：side6平民：看见晚上的攻击行为，但是多半无法识别机体具体是谁，在干什么。现在新闻里直接在伤亡相关新闻里放小番茄大头照，而且写明小番茄是嫌疑人。那普通人只会认为滥杀无辜的不是小番茄也是小番茄的同伙
+
+但是现在side6官方可能很着急给国民也好，给吉翁也好，给牺牲的军警也好一个交代，而且小番茄也不再手上（所以小番茄无法为自己辩护）
+
+所以把所有锅甩到小番茄头上是非常顺其自然的一种行为
+
+*****
+
+####  eyeego  
+##### 14716#       发表于 2025-5-21 23:45
+
+从魔女虹step开始你们还在考虑鹤卷的战斗逻辑吗？根本不存在这种东西的好吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 14717#       发表于 2025-5-21 23:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67839047&amp;ptid=2209276" target="_blank">ykyin09 发表于 2025-5-21 23:45</a>
+
+夏利亚为什么会有杀掉紫婆和基连的想法，没看懂</blockquote>
+觉得扎比家背叛了吉翁戴肯的理念，需要再次革命呗
+
+什么UC萨布林
+
+*****
+
+####  patema  
+##### 14718#       发表于 2025-5-21 23:47
+
+鹤卷哥哥就不要想战斗逻辑了，手掏缩退炉大家都忘了吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 14719#       发表于 2025-5-21 23:48
+
+夏利亚的想法是保证不发生大规模战争的情况下让吉翁重回戴肯时期的共和国体制吧
+
+*****
+
+####  eyeego  
+##### 14720#       发表于 2025-5-21 23:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67839047&amp;ptid=2209276" target="_blank">ykyin09 发表于 2025-5-21 23:45</a>
+夏利亚为什么会有杀掉紫婆和基连的想法，没看懂</blockquote>
+严格来说 他不是想杀基连跟紫婆 是在解释为什么要救紫婆
+他认为这俩死一个就必定会开战 所以为了平衡必须两个一起杀<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ykyin09  
+##### 14721#       发表于 2025-5-21 23:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67839055&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-21 23:47</a>
+觉得扎比家背叛了吉翁戴肯的理念，需要再次革命呗
+
+什么UC萨布林</blockquote>
+绿色木马就是警戒号，对上了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

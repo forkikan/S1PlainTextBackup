@@ -3492,3 +3492,11 @@ Q：像八千代能从嘴里喷热水、头顶冒烟花等增加了很多实用�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">八千代不会用分段式自爆把自己推回驾驶舱吧
 
+
+*****
+
+####  吉吉国王  
+##### 305#       发表于 2025-5-21 23:47
+
+太空部分要是删去效果音就更有感觉了。
+
