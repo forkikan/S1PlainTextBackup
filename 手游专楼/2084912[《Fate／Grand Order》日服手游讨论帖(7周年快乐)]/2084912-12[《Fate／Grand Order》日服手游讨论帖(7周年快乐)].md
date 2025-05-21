@@ -277,3 +277,50 @@
 
 以及这个武藏到底会不会出卡.....模型都做好了没道理就这么放着只能作为敌人吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blue321  
+##### 16744#       发表于 2025-5-21 20:42
+
+剑阶5星没有十羁绊的，四星的尼禄又不想冠……
+
+看来要加紧肝一个满羁绊剑阶了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 16745#       发表于 2025-5-21 20:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67838444&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-5-21 20:29</a>
+
+剑单体现在感觉伤害最高的是梅杜莎
+
+好友里只有个100级3宝的能抱....这伤害也完全高过同样是绿卡单体的5宝冲 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">直接借超级伊织 一套200多万 还没红红红
+
+*****
+
+####  v22325  
+##### 16746#       发表于 2025-5-21 20:56
+
+<blockquote>blue321 发表于 2025-5-21 20:42
+剑阶5星没有十羁绊的，四星的尼禄又不想冠……
+
+看来要加紧肝一个满羁绊剑阶了 ...</blockquote>
+
+这挑战给的挺多的,刷刷感觉能硬刷出来一个10绊。
+
+我冠位2宝双子了,回转快点每回合都能放,但双嫁王只能一发七十万,还是宝太低了……
+
+等点完了再打最后一个
+
+*****
+
+####  v22325  
+##### 16747#       发表于 2025-5-21 20:57
+
+<blockquote>alucardcz 发表于 2025-5-21 20:55
+直接借超级伊织 一套200多万 还没红红红</blockquote>
+伊织这么强么……靠……要不要换呢……
+

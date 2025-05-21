@@ -14672,3 +14672,16 @@ GQX到现在都只有一把斧子...什么时候能好好打一场，别进了�
 
 绿叔叔和奶奶头除了称号一样，对全局的掌控和个人能力都算现时作品内综合最强所以定位一样觉得要回避很正常但始终是题外话
 
+
+*****
+
+####  winda  
+##### 14643#       发表于 2025-5-21 20:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67838417&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-21 20:17</a>
+
+我说过完全就是trans对于女性的观点</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我第一个想到的倒是学运，毕竟是那个年代过来的老登
+
+果然还是要自己意志来决定身份什么的
+
