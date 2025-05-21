@@ -15824,3 +15824,35 @@ gqux这插入曲怎么都既突兀又口水<img src="https://static.stage1st.com
 那也好歹把赛克缪板做成外挂式啊，做成外甲是什么思路，这板子飞出去本体直接裸奔了，像话吗（ ...</blockquote>
 反正MS都是“打不中就没有意义”的兵器，所以裸不裸奔都没差吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 14738#       发表于 2025-5-22 01:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67839144&amp;ptid=2209276" target="_blank">Alicest 发表于 2025-5-22 00:33</a>
+gqux这插入曲怎么都既突兀又口水年轻人就喜欢这种吗</blockquote>
+人还没老到听不进美波、ずっと真夜中でいいのに等歌手的歌吧（夜游烂了就不提了）。
+
+年轻人喜欢什么还能不知道吗？插入曲只不过不是这类型的顶尖而已，要求每首都是顶尖不切实际。
+
+
+*****
+
+####  Alicest  
+##### 14739#       发表于 2025-5-22 01:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67839187&amp;ptid=2209276" target="_blank">Dai-Dai-Dai-Dai 发表于 2025-5-22 01:00</a>
+人还没老到听不进美波、ずっと真夜中でいいのに等歌手的歌吧（夜游烂了就不提了）。
+
+年轻人喜欢什么还能 ...</blockquote>
+同质化太严重了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">也是被提醒了是新歌才意识到插入曲都差不多
+
+*****
+
+####  荔湾周润发  
+##### 14740#       发表于 2025-5-22 01:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836538&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-21 11:21</a></blockquote>
+紫婆这战舰是从隔壁天元突破片场过来的吗<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
