@@ -15952,3 +15952,88 @@ gqux这插入曲怎么都既突兀又口水年轻人就喜欢这种吗</blockquo
 
 这个世界的德金公王和雷比尔也被手电筒照死了吗<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">，咋没看到这两
 
+
+*****
+
+####  ryanghj  
+##### 14750#       发表于 2025-5-22 01:28
+
+日本人讨论泽克诺瓦是不是类似玻色子跳跃的东西
+
+还真是
+
+*****
+
+####  ryanghj  
+##### 14751#       发表于 2025-5-22 01:32
+
+<img src="https://img.stage1st.com/forum/202505/22/013219bgz58npeo3y82nzc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (154.59 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 01:32 上传
+
+*****
+
+####  轮太  
+##### 14752#       发表于 2025-5-22 01:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67839048&amp;ptid=2209276" target="_blank">璇瑢子R 发表于 2025-5-21 23:45</a>
+
+在影片中大家视角是有限的
+
+1：吉翁方面，大家都知道精神病那是联邦那边。
+
+2：side6官方/军警：只知道小番 ...</blockquote>
+把锅推到不在手上的人身上才是危险
+
+也就是紫老太婆和side6谈的好
+
+要是谈崩了，这事一完发现手上有个番茄在，
+
+吉翁直接给你全卫星播放冤情布告，保证把你side6现任总统搞下台
+
+所以最后甩给番茄，要么是一线直接捅出去了，要不就是和绿叔叔谈妥了
+
+*****
+
+####  洛克萨斯  
+##### 14753#       发表于 2025-5-22 03:03
+
+00的问题是财团b大手笔投入没有在商业上达到他们的预期，毕竟前面是高世祖seed，就整个高达ip来说00的吸金能力基本是仅次于uc和seed系的，但当时财团b觉得自己没问题，然后age，g回归，铁血三连击之后就走火入魔了，全靠中间有驴的ova和创战者撑住口碑和商业
+
+*****
+
+####  kcalb  
+##### 14754#       发表于 2025-5-22 03:11
+
+多心了么，基克罗格这脑袋尖尖形态不会还藏着一个将后面的本体当作外甲穿在身上的胖子形态吧？毕竟单纯变个”波尔星人“感觉挺鸡肋的，手脚的攻击方式又没起变化，身上也不像内置其他武器的样子<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  mellshon001  
+##### 14755#       发表于 2025-5-22 04:20
+
+最大的感想就是，在Side6眼里一年战争压根就是小孩子过家家，人家的材料技术远超联邦和吉翁一百年以上，造房子的材料比两家造战舰造MS的都要硬<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  g救世主高达  
+##### 14756#       发表于 2025-5-22 05:16
+
+这个世界的德金公王和雷比尔也被手电筒照死了吗<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">，咋没看到这两
+
+*****
+
+####  pu  
+##### 14757#       发表于 2025-5-22 06:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67838303&amp;ptid=2209276" target="_blank">patema 发表于 2025-5-21 19:42</a>
+
+米加粒子炮的动画表现向来玄学，其实没办法作为实际的出力依据
+
+还有布劳布罗单出力其实远高于神经病高达， ...</blockquote>
+布劳布罗比现在动画里的吉克罗格大的多 是大型MS双人驾驶 现在动画里是缩小到比一般MS大一点点的版本
+
