@@ -13908,3 +13908,33 @@ GQX还会自己动 有什么说法么</blockquote>
 都不好说GQX是认主还 ...</blockquote>
 此事在独角兽中亦有记载
 
+
+*****
+
+####  麻仓月轩  
+##### 14576#       发表于 2025-5-21 16:53
+
+学金刚爬楼只能理解为想要活捉基西莉亚了，不然随便啥武装都直接秒了
+
+还是说提坦斯真的有自信能全身而退？
+
+哦 忘了，红高达消失以后，白毛已经直接颠了，cos一个看过的宇宙世纪前的电影也说得过去吧
+
+*****
+
+####  格林达姆  
+##### 14577#       发表于 2025-5-21 16:54
+
+ 本帖最后由 格林达姆 于 2025-5-21 16:57 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67837675&amp;ptid=2209276" target="_blank">ws4222 发表于 2025-5-21 16:41</a>
+
+我觉得汉谟拉比还可以挖掘下的，主要是驾驶员太拉跨。上来被老兵直接一个小妙招给秒了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原本两年后才端出来的机子，现在说不定其实只造了个壳。拆开一看其实是吉姆改
+
+*****
+
+####  洛克萨斯  
+##### 14578#       发表于 2025-5-21 16:58
+
+没磁气覆膜，没可变框架，不能瞬间变形的汉谟拉比<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
