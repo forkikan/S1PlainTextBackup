@@ -10001,3 +10001,15 @@ tts果然全是废物呢。<img src="https://static.stage1st.com/image/smiley/fa
 
 后面修司把背景交代一下就可以结束了，说实话和两女主也没啥关系，毕竟也没啥感情
 
+
+*****
+
+####  朋友费小号  
+##### 14226#       发表于 2025-5-21 08:07
+
+ 本帖最后由 朋友费小号 于 2025-5-21 08:09 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">中间铁几把有一集要叫相见在地球或者相见在宇宙吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
