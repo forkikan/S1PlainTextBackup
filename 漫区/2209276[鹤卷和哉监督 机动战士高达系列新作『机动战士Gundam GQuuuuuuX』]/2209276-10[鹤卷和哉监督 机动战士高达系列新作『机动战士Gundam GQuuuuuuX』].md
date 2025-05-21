@@ -11527,3 +11527,92 @@ kirakira明面上就是精神状态吧。
 但主角机和红高达的塞克缪系统（尤其是主角机）与独角兽可能有关，不过这个得等谜底揭晓 ...</blockquote>
 多谢，那就等完结后再看<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  花達香奈  
+##### 14368#       发表于 2025-5-21 11:46
+
+我就等下次kirakira的zeknova里出来牛高达和山渣球(并非饼)了<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  王留美  
+##### 14369#       发表于 2025-5-21 11:47
+
+一个很有趣的点是第四话在桥上的时候两个人对敢达的态度是反过来的
+麻球认为敢达只是工具，修司的想法都是他自己的
+而喵安则是相信敢达是真的可以说话的，换句话说相信敢达对于休斯是有特殊意义的
+
+结果在第六话第七话反而是麻球记得带上敢达跑路（虽然是被哈罗提醒过的），但是喵安反而要修斯抛弃有特殊意义的敢达
+实在是有趣的对比
+
+*****
+
+####  leleq  
+##### 14370#       发表于 2025-5-21 11:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836646&amp;ptid=2209276" target="_blank">希望之异热同心 发表于 2025-5-21 11:42</a>
+
+中立殖民地居民当吉翁间谍不还是社死么
+
+—— 来自 鹅球 v3.3.96</blockquote>
+就说麻球是个扫地的自己找到威逼利诱呗，一个未成年少女还能不听吉翁军官的？，且反正麻球都跟着木马出任务了人不在社死就社死呗，好歹妈保住了不是吗。
+
+
+*****
+
+####  未来起航  
+##### 14371#       发表于 2025-5-21 11:50
+
+zeknova这茬你也不能说它前后矛盾，毕竟夏亚也是本来是各方神人各怀鬼胎大显身手的战场高潮阶段给来了发大的。
+
+但两次都和马伯庸的陨石遁一样难绷。
+
+*****
+
+####  猪突猛进R  
+##### 14372#       发表于 2025-5-21 11:51
+
+ 本帖最后由 猪突猛进R 于 2025-5-21 11:52 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836638&amp;ptid=2209276" target="_blank">希望之异热同心 发表于 2025-5-21 11:40</a>
+
+不用合体吧，这集明确了kirakira有穿越时空的功能，而线索也都指向和沙仑玫瑰（艾尔美斯）有关，抓了麻球 ...</blockquote>
+他说的合体可能是雷霆宙域里完美高达+布劳布罗大杀四方的合体。
+
+*****
+
+####  zhzij111  
+##### 14373#       发表于 2025-5-21 11:52
+
+麻球最适合的其实是丢进管教所里好好教育，别放孩子回去开高达了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ads147147  
+##### 14374#       发表于 2025-5-21 11:53
+
+其实从修司视角来看，他本来就想独走打军团赛赚钱去地球的？但是红高达本来就是没被锁的战争兵器，为什么会需要去买解锁装置？
+
+修司身上藏了太多应该被解释的东西了。。
+
+*****
+
+####  ヒトニナル  
+##### 14375#       发表于 2025-5-21 11:54
+
+但现在鸡夸只有玛秋开的动，而且机魂也对玛秋示好，这高达是开定了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 14376#       发表于 2025-5-21 11:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836673&amp;ptid=2209276" target="_blank">ads147147 发表于 2025-5-21 11:53</a>
+其实从修司视角来看，他本来就想独走打军团赛赚钱去地球的？但是红高达本来就是没被锁的战争兵器，为什么会 ...</blockquote>
+那个os是给博美犬本来的扎古用的啊，不是红高达。
+
+扎古退役都要拆掉军用os防止装武器滥用的
+
