@@ -12990,3 +12990,75 @@ GTO里的旗舰就叫紫寡妇了，算是某种有意无意的“巧合”吧
 是MS不是MS战
 虽然我不知道这两有啥区别<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  狮子咕  
+##### 14496#       发表于 2025-5-21 14:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">赶紧放弃那个莫名其妙的kirakira的话这番还有救，求求你们别再kirakira犯病了
+
+*****
+
+####  Lawliet.L  
+##### 14497#       发表于 2025-5-21 14:38
+
+绿叔叔化名裤袜脱落如何？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  plok201  
+##### 14498#       发表于 2025-5-21 14:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67837130&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-21 14:03</a>
+
+只能观望麻球之后的触底反弹环节了，喵安这集很多地方就是给我一种模模糊糊的感觉，感觉也是这剧脚本的通病 ...</blockquote>
+人物关系描写的留白太多了，虽然能从细节上推导出来，但是这种主线塑造只靠细节是不够的
+
+比如喵安那个报纸回想，是她后面破防拐男人的重要铺垫，然后画面就那么几秒，也不知道她上家被抓是真的还是幻想的，军团战没描写的那几场顺带把三人组关系也留空了
+
+喵安这个难民身份对她人设塑造非常重要，剧里描写太少了，描写不足缺乏铺垫导致这集很多情感冲突就有一种现在是说这个的时候么
+
+
+*****
+
+####  芝村舞  
+##### 14499#       发表于 2025-5-21 14:42
+
+7话的展开真的不敢恭维，把前面的气氛毁了不少
+
+精神高达的大战完全消失变成单方面表演，表演完还迅速收场。2个铺垫的角色便当秒发。还是让夏利亚这样贤者系配角来收人头
+
+全集主角们只管逃，没有感情互动的渐进式爆发，情绪还留在之前，就强行分开阵营
+
+之前小番茄那么强健的身体能力，多大的冲击都扛下来了。居然被夏利亚寸止BEAM炮打晕了？玩呢？就剧本这里一定要小番茄晕，但是没办法了强行晕是吧？
+
+休司的消失也是，剧本要求这里必须消失。他消失以后很多冲突就没了呀，变成寻夫之旅才符合人物逻辑啊。
+
+本来小三口小清新酸甜味很适合新时代高达的，就在7把之前的都毁了。
+
+总的来说，开始表现得还有点新时代的样子，7话又回到了老套的展开，在不该展开的方向前进了一大步。
+
+*****
+
+####  xunit  
+##### 14500#       发表于 2025-5-21 14:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67837205&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-21 14:30</a>
+现在问题是夏利亚和老太婆阵营都有人了，那基连阵营呢
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+如果按照对照来看，小森怕不是汤大基安排在夏利亚身边的眼线（
+
+*****
+
+####  中野梓  
+##### 14501#       发表于 2025-5-21 14:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67837252&amp;ptid=2209276" target="_blank">芝村舞 发表于 2025-5-21 14:42</a>
+
+7话的展开真的不敢恭维，把前面的气氛毁了不少
+
+精神高达的大战完全消失变成单方面表演，表演完还迅速收场 ...</blockquote>
+和真嗣一样同步率太高了<img src="https://static.stage1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">疼晕了
+

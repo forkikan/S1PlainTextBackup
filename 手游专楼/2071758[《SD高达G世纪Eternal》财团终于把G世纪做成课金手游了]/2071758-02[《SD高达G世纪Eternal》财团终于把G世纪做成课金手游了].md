@@ -139,3 +139,16 @@ SSR机师都是没人用才顶上去的，而且旧吉恩公国词条的人太�
 
 是对鬼子程序员抱有期待的我不对 
 
+
+*****
+
+####  中野梓  
+##### 1495#       发表于 2025-5-21 14:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836452&amp;ptid=2071758" target="_blank">clauderayvane 发表于 2025-5-21 11:03</a>
+
+硬刷 我活动开始到现在满破两台了，应该是第一台满破爆率很高，第二台就正常爆率了
+
+—— 来自 Xiaomi 23 ...</blockquote>
+我一周所有体力都刷红高达了，一台都没出，到底怎么打才给
+
