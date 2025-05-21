@@ -15804,3 +15804,23 @@ gqux这插入曲怎么都既突兀又口水<img src="https://static.stage1st.com
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  ryanghj  
+##### 14736#       发表于 2025-5-22 00:51
+
+说起来修司的姓好像一次都没人叫过
+
+为啥是修司·伊藤
+
+*****
+
+####  terminator1990  
+##### 14737#       发表于 2025-5-22 00:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67839072&amp;ptid=2209276" target="_blank">xunit 发表于 2025-5-21 23:54</a>
+
+那也好歹把赛克缪板做成外挂式啊，做成外甲是什么思路，这板子飞出去本体直接裸奔了，像话吗（ ...</blockquote>
+反正MS都是“打不中就没有意义”的兵器，所以裸不裸奔都没差吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
