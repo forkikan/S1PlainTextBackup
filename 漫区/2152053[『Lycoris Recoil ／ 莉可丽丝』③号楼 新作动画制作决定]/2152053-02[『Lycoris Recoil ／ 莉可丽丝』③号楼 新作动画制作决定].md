@@ -90,3 +90,24 @@
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还不忘整他那主线
 织田信长也是你丫杀的可还行
 
+
+*****
+
+####  Delicatus545  
+##### 2330#       发表于 2025-5-21 20:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67838398&amp;ptid=2152053" target="_blank">osore 发表于 2025-5-21 20:11</a>
+
+还不忘整他那主线
+
+织田信长也是你丫杀的可还行</blockquote>
+那是电影虚构内容，剧中剧
+
+
+*****
+
+####  forgetit  
+##### 2331#       发表于 2025-5-21 20:25
+
+还是只有新作锐意制作中
+

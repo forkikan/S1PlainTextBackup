@@ -14555,3 +14555,37 @@ GQX到现在都只有一把斧子...什么时候能好好打一场，别进了�
 一般都认为天然的nt优于强化人，她 ...</blockquote>
 我说过完全就是trans对于女性的观点<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  patema  
+##### 14631#       发表于 2025-5-21 20:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">相信鹤卷哥哥一定会对可怜的白毛异世界老广强化人网开一面的
+
+*****
+
+####  猪突猛进R  
+##### 14632#       发表于 2025-5-21 20:23
+
+所以村雨兔到底是不是伪娘？
+
+*****
+
+####  ヒトニナル  
+##### 14633#       发表于 2025-5-21 20:23
+
+最主要要训练一下玛秋拉一下驾驶技术，不然也是路边一条野狗随便被人踹死的程度
+按照玛秋那个身体能力训个个把月大概就够，就看怎么说服玛秋了
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说服玛秋的桥段也跳掉的话那我无话可说
+
+
+*****
+
+####  adretyu67.  
+##### 14634#       发表于 2025-5-21 20:25
+
+我觉得村雨2基本死了。这种爆炸如果要活一般会特意补个脱出镜头。但是没给那就先默认死了。
+
+精神病这爆甲模式莫名其妙的啊，感觉因为村雨2本人暴走反而变弱了是什么鬼
+
