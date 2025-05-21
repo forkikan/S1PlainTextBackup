@@ -13954,3 +13954,18 @@ GQX还会自己动 有什么说法么</blockquote>
 
 这次的精神力有一种造了大和号的船壳，结果只装了高射机枪的美
 
+
+*****
+
+####  失落之翼  
+##### 14581#       发表于 2025-5-21 17:15
+
+这精神病居然是脱了装甲玩质量武器，让我想起了暗黑2的鸡腿丁，扭这屁股一圈圈鸡腿（圣锤）环绕<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LOLITA  
+##### 14582#       发表于 2025-5-21 17:15
+
+我刚刚给鹤卷哥哥打电话问了，其实修司是鸭和拉拉在裸漂时空生的儿子，所以人不人鬼不鬼的<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
