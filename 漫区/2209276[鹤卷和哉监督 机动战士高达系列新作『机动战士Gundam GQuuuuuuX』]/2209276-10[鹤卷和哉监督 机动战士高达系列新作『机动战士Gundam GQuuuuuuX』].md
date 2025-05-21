@@ -12291,3 +12291,87 @@ asuka：你们又想发动战争么！<img src="https://static.stage1st.com/imag
 
 修斯和红高达应该是聊天室的节点 传送走之后直接断网了 所以三个人都疯了
 
+
+*****
+
+####  ryanghj  
+##### 14440#       发表于 2025-5-21 12:46
+
+果然有人和我想法一样，把剧场版后半放在这里就是为了和这集修司连起来，下集给个镜头夏亚看到的对面就是修司<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  stmule  
+##### 14441#       发表于 2025-5-21 12:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835223&amp;ptid=2209276" target="_blank">洛克萨斯 发表于 2025-5-21 01:22</a>
+ma没更新升级的话就是绿叔叔开着79年的玩意把85年的机体当猪宰，骡叔叔也做不到吧，想象不出开元祖能在汉谟 ...</blockquote>
+扯啥呢，骡子能用双翼机大破南瓜饼，这含金量多高<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  ftyaid  
+##### 14442#       发表于 2025-5-21 12:47
+
+这精神力高达出场的贡献就是把MS战用出来了，MS战还是好听啊
+
+其他的部分值得推敲吗，被线控炮两炮踢死，还不如鸡煲饭的路边一条罢了
+
+*****
+
+####  qiyu1234  
+##### 14443#       发表于 2025-5-21 12:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836865&amp;ptid=2209276" target="_blank">qiyu1234 发表于 2025-5-21 12:37</a>
+
+首席哥回基西利亚那边以后，绿色木马这边确实得依靠玛秋和G夸克斯出动了
+
+夏利亚就身份地位来说不可能每次都 ...</blockquote>
+玛秋和G夸克斯现在是亟需快速升级
+
+玛秋除了NT能力以外她那三脚猫功夫顶多应对下低水平的黑拳比赛，还要靠队友，用高达VS的话讲，实际上硬仗魔女靠的是前卫红高达1打2，她这个水平甚至跟不上节奏，真正的高强度战斗里铁完蛋的（例如本集的情况）
+
+而G夸克斯现在的武装太贫瘠了，根本不是战争需要的制式武装，而使用新武器当然也需要驾驶员熟练才行
+
+就剩四集半，细枝末节的地方可以稍微跳过，但我觉得成长桥段总归还是要讲一讲
+
+
+*****
+
+####  Sliurus  
+##### 14444#       发表于 2025-5-21 12:53
+
+看了眼，罗莎美的精神力mkII还没反射板这个技能，是普露兹的才有，说不定后面还有十二个杜<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之异热同心  
+##### 14445#       发表于 2025-5-21 12:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836858&amp;ptid=2209276" target="_blank">璇瑢子R 发表于 2025-5-21 12:36</a>
+这次事件之后。至少izuma居民对吉翁应该好感爆棚
+
+毕竟如果不是吉翁军及时镇压，大家差点被side6政府弄死 ...</blockquote>
+麻球:我也加入吉翁了，这是基西莉亚的还是汤大基的部队呢？什么叫反扎比家戴肯派？！！
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  怀旧战士  
+##### 14446#       发表于 2025-5-21 12:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836856&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-21 12:35</a>
+
+基克罗格也是尖帽子
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+它变形的那一刻
+
+我仿佛看到了拖着它的是隔壁雷霆宙域的完美高达
+
