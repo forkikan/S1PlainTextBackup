@@ -12084,3 +12084,210 @@ zeknova这茬你也不能说它前后矛盾，毕竟夏亚也是本来是各方�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  璇瑢子R  
+##### 14420#       发表于 2025-5-21 12:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836646&amp;ptid=2209276" target="_blank">希望之异热同心 发表于 2025-5-21 11:42</a>
+中立殖民地居民当吉翁间谍不还是社死么
+
+—— 来自 鹅球 v3.3.96</blockquote>
+这次事件之后。至少izuma居民对吉翁应该好感爆棚
+
+毕竟如果不是吉翁军及时镇压，大家差点被side6政府弄死
+
+*****
+
+####  双菜  
+##### 14421#       发表于 2025-5-21 12:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836779&amp;ptid=2209276" target="_blank">Humpy 发表于 2025-5-21 12:16</a>
+说实话我怎么感觉绿叔叔要危了
+破格的战斗能力和缜密的思维方式+强大的主观能动性+正当性高的目的，但却不 ...</blockquote>
+已经有人在担心绿叔叔巧克力化了<img src="https://static.stage1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ardente  
+##### 14422#       发表于 2025-5-21 12:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">跳十个月把修司生回来
+
+*****
+
+####  qiyu1234  
+##### 14423#       发表于 2025-5-21 12:37
+
+首席哥回基西利亚那边以后，绿色木马这边确实得依靠玛秋和G夸克斯出动了
+
+夏利亚就身份地位来说不可能每次都是他来亲自出击，顶多给首席哥擦擦屁股
+
+从这集也能看出绿色木马只有他俩能上机出击，面对精神力高达甚至需要木马本舰压上去
+
+*****
+
+####  ryanghj  
+##### 14424#       发表于 2025-5-21 12:37
+
+老太婆座驾怎么叫紫寡妇<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/24/87228c26e08a43440cb3bf65c07c0f8c/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  hsyg  
+##### 14425#       发表于 2025-5-21 12:38
+
+一个想法多半是对的<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">，这集MA变形了明显就是参考雷霆周瑜
+
+那多半地球上面要找的其实是雷霆大光头，高达里面的所谓机魂其实就是大光头的复制脑袋，螃蟹和哈罗里面自然也有
+
+kirakira为啥那么抽象，因为其实是佛教极乐世界的入口，所以接触到的人都无比快乐，传送现象其实就是把人直接送上西天。
+
+而G跨跨为啥对首席没反应，就是佛渡有缘人，这次没传送喵亚就是她凡心太重没法放下凡尘
+
+*****
+
+####  YU_JI  
+##### 14426#       发表于 2025-5-21 12:39
+
+基西莉亚让夏利亚赶往下一个任务地点，那问题来了，下一个任务是什么？
+
+
+*****
+
+####  ftyaid  
+##### 14427#       发表于 2025-5-21 12:40
+
+最终战！夏利尔培养出的新人类杀手麻球大战强化人喵安！
+
+欸？修斯和红高达呢？无人关心！
+
+*****
+
+####  Sliurus  
+##### 14428#       发表于 2025-5-21 12:41
+
+这作的i立场应该是个主动技能，挡米加粒子炮的时候有明显的动作和护盾效果，可能这玩意不能一直开？
+
+重看才发现原来装甲是mk2的反射板，爆甲可能只是看起来更炫酷一点
+
+*****
+
+####  wpcc  
+##### 14429#       发表于 2025-5-21 12:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836881&amp;ptid=2209276" target="_blank">ftyaid 发表于 2025-5-21 12:40</a>
+
+最终战！夏利尔培养出的新人类杀手麻球大战强化人喵安！
+
+欸？修斯和红高达呢？无人关心！ ...</blockquote>
+红高达是劝架的奖杯吧
+
+*****
+
+####  wpcc  
+##### 14430#       发表于 2025-5-21 12:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836883&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-5-21 12:41</a>
+
+这作的i立场应该是个主动技能，挡米加粒子炮的时候有明显的动作和护盾效果，可能这玩意不能一直开？
+
+重看才 ...</blockquote>
+应该是靠NT能力驱动的 ma也不能天天开
+
+*****
+
+####  YU_JI  
+##### 14431#       发表于 2025-5-21 12:42
+
+<blockquote>Sliurus 发表于 2025-5-21 12:41
+这作的i立场应该是个主动技能，挡米加粒子炮的时候有明显的动作和护盾效果，可能这玩意不能一直开？
+
+重看才 ...</blockquote>
+感觉更像是覆盖范围有限，还专门给了个线控炮绕后的镜头
+
+*****
+
+####  stmule  
+##### 14432#       发表于 2025-5-21 12:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835184&amp;ptid=2209276" target="_blank">Aelester 发表于 2025-5-21 01:13</a>
+从这一话精神力高达和gqx的样式看，这个世界的精神力骨架技术怕不是eva那套巨人套壳。那抢番茄来的唯一理由 ...</blockquote>
+asuka：你们又想发动战争么！<img src="https://static.stage1st.com/image/smiley/carton2017/026.png" referrerpolicy="no-referrer">
+（对上了
+
+—— 来自 samsung SM-S9110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  ftyaid  
+##### 14433#       发表于 2025-5-21 12:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836884&amp;ptid=2209276" target="_blank">wpcc 发表于 2025-5-21 12:41</a>
+
+红高达是劝架的奖杯吧</blockquote>
+赢家的🏆也说不定
+
+*****
+
+####  岸浪白野  
+##### 14434#       发表于 2025-5-21 12:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836836&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-5-21 12:32</a>
+
+一开始坐飞船的时候是戴围巾的</blockquote>
+哦对，这个确实是只出现半个身的形象，比其它人还惨
+
+*****
+
+####  wpcc  
+##### 14435#       发表于 2025-5-21 12:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836883&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-5-21 12:41</a>
+
+这作的i立场应该是个主动技能，挡米加粒子炮的时候有明显的动作和护盾效果，可能这玩意不能一直开？
+
+重看才 ...</blockquote>
+爆甲就是为了膜一下雷天使，其实确实是反射板 所以一开始是用砸的
+
+*****
+
+####  ardente  
+##### 14436#       发表于 2025-5-21 12:43
+
+当年还是开格瓦金级的，现在只有重巡坐了，啧啧啧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 14437#       发表于 2025-5-21 12:43
+
+新版精神力高达的驾驶室在左前胸
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  猪突猛进R  
+##### 14438#       发表于 2025-5-21 12:43
+
+<img src="https://img.stage1st.com/forum/202505/21/124328a48ke0p2weawka78.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ1aa-doxoK2lT3cSsg-hu.jpg</strong> (97.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 12:43 上传
+
+*****
+
+####  wpcc  
+##### 14439#       发表于 2025-5-21 12:44
+
+修斯和红高达应该是聊天室的节点 传送走之后直接断网了 所以三个人都疯了
+
