@@ -13938,3 +13938,19 @@ GQX还会自己动 有什么说法么</blockquote>
 
 没磁气覆膜，没可变框架，不能瞬间变形的汉谟拉比<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  花達香奈  
+##### 14579#       发表于 2025-5-21 16:59
+
+绿叔叔最神乎其技的是一个MA那么大却完全回避那密集的散射+反射的beam吧，就连线都没擦到一下。一流的驾驶员就是能躲过的
+对了，记得精神病mk2的手也能线控的？beam出力太小搞不了拆迁极限减肥米浮刚够离地也不是你爬楼的理由<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  105gun  
+##### 14580#       发表于 2025-5-21 17:03
+
+这次的精神力有一种造了大和号的船壳，结果只装了高射机枪的美
+
