@@ -468,3 +468,59 @@
 
 如此正式的场合，留下的最后一句话竟然在暴露性癖，真是丢人的大人啊<img src="https://static.stage1st.com/image/smiley/carton2017/424.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  GameTheory  
+##### 16764#       发表于 2025-5-21 22:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67838759&amp;ptid=2084912" target="_blank">壳壳牛 发表于 2025-5-21 22:09</a>
+
+冠位不是最低100级吗？
+
+我好友里怎么有个90级的冠位呆毛？</blockquote>
+有提示同灵基随便换是不是能做到这个？
+
+*****
+
+####  Jamaisvu  
+##### 16765#       发表于 2025-5-21 22:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67838826&amp;ptid=2084912" target="_blank">天王寺凯伊姆 发表于 2025-5-21 22:27</a>
+
+剑阶现在，除了单体打手，拐一个花嫁一个长恭，那其他职介怎么办呢，别的不说剩下两个上三是不是半废了 ...</blockquote>
+枪阶的玛丽安宁有10NP群充+女性限定15蓝放15攻击，算是个不错的拐；其他人顶多是单乘区buff或单充，阿育王一技能算是不错的了，红蓝20魔放+20宝威。
+
+弓阶的图坦卡蒙有20群充20宝威，圣诞阿提拉、圣诞南丁格尔、灾星简也有辅助能力，而且弓阶除了冠位夫妇都有充能，辅助能提供伤害buff应该够用了。
+
+而且以后的冠位本也不一定全是打单boss，兴许会给光炮发挥空间呢...
+
+*****
+
+####  森兰丸  
+##### 16766#       发表于 2025-5-21 22:40
+
+这次数任务一共要打多少次啊....把冠位剑的星盘都点完了还没结束<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 16767#       发表于 2025-5-21 22:51
+
+<img src="https://img.stage1st.com/forum/202505/21/225111kt3lq5iqys3lwlzu.png" referrerpolicy="no-referrer">
+
+<strong>11111111111111.png</strong> (460.68 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 22:51 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">小麻雀这么变态的吗
+
+*****
+
+####  森兰丸  
+##### 16768#       发表于 2025-5-21 22:52
+
+刷完50次终于结束了....收工<img src="https://static.stage1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+

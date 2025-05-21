@@ -15145,3 +15145,25 @@ X 上的 青袖てゃ ...</blockquote>
 
 要不然时空穿越能力要是能轻易使用那剧情100%要烂
 
+
+*****
+
+####  yone0000  
+##### 14685#       发表于 2025-5-21 22:48
+
+其实问题就来了，本世界中鸡瘟现在的主力量产机是勇士还是强人<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Devola  
+##### 14686#       发表于 2025-5-21 22:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67838877&amp;ptid=2209276" target="_blank">璇瑢子R 发表于 2025-5-21 22:40</a>
+
+这集的泽科诺瓦后面最好给出一个合理解释来。
+
+要不然时空穿越能力要是能轻易使用那剧情100%要烂 ...</blockquote>
+鹤卷：大文豪能做的事情我不能做？
+
+神棍力不爆表我还做什么新高达
+
