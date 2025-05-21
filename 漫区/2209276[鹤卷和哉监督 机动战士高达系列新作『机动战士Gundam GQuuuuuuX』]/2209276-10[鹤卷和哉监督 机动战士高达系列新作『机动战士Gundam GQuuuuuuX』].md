@@ -10685,3 +10685,47 @@ KIRAKIRA就是一种精神致幻能力，一种冰，是新人类邪教组织领
 
 看到现在感觉就是老害自嗨的作品只不过老害本身水平在线所以看起来还能接受没烂到家
 
+
+*****
+
+####  巨馍蘸酱  
+##### 14297#       发表于 2025-5-21 10:04
+
+要是本作是超级系那违和感还不会太强，鹤卷式青春片跟真实系萝卜片就不搭，何况在真实系里也是特别复杂的UC高达
+
+*****
+
+####  syndrome2032  
+##### 14298#       发表于 2025-5-21 10:08
+
+kirakira明面上就是精神状态吧。
+说成溜冰溜嗨了是最简单通俗快速理解的状态。
+
+我个人对kirakira的理解还是得看修司，他就一个人形自走kirakira闪光机。
+
+具体形态我觉得是修司折腾的那些喷涂。
+其实6话修司就很奇怪的拿白漆把原本象征kirakira的喷涂图案抹掉表示要去寻找新的kirakira了。
+
+现在看来7话触发zeknova脱出不是意外，而是已经有征兆了。
+
+只不过这自走型传送就有点神棍了。
+
+*****
+
+####  JITAN  
+##### 14299#       发表于 2025-5-21 10:08
+
+精神力高达就这么没了？
+
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 14300#       发表于 2025-5-21 10:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835096&amp;ptid=2209276" target="_blank">默逍 发表于 2025-5-21 00:55</a>
+没看出来两个未成年少女对电波系同龄少年有什么感情，一个是不识愁滋味，向往所谓的非日常；一个是精神创伤 ...</blockquote>
+不要小看木星归来的男人啊<img src="https://static.stage1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
