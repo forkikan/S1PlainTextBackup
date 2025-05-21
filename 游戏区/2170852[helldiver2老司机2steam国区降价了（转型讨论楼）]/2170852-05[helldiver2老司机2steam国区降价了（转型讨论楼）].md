@@ -899,3 +899,11 @@ DSS被鱿鱼打烂了，暂时脱离战场。
 解包出来是输了会激活抢其他星球的任务，做流亡政府</blockquote>
 流亡政府？启动备用的超级地球！
 
+
+*****
+
+####  Fake_news  
+##### 6008#       发表于 2025-5-21 09:02
+
+昨晚和朋友开黑，被超级气球的傻逼服务器折磨，卡得不得了，打50拆船给打得狼狈不堪，最后跑去泰雷克打虫子了<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
