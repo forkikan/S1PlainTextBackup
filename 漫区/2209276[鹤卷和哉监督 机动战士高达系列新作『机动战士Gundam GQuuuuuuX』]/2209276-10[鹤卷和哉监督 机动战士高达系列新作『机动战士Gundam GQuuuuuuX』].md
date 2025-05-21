@@ -15794,3 +15794,13 @@ gqux这插入曲怎么都既突兀又口水<img src="https://static.stage1st.com
 夏利亚为什么会有杀掉紫婆和基连的想法，没看懂</blockquote>
 下周会说，夏亚已经告诉夏利亚他要消灭扎比家了。
 
+
+*****
+
+####  无念  
+##### 14735#       发表于 2025-5-22 00:37
+
+这精神病仔细一看爆甲的时候正面五门炮也飞出去三门啊，也没看见开火画面，不然就当飞天扩散光束炮用也能挡住绿叔叔一次啊，什么你说飞出去就不能开火只剩下反射功能了？那你飞这个部分有个屁用，还不如保留正面五炮的火力规格<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
