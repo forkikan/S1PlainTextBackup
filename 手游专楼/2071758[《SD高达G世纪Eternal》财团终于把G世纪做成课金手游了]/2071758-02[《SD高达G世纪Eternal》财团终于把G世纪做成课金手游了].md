@@ -162,3 +162,17 @@ SSR机师都是没人用才顶上去的，而且旧吉恩公国词条的人太�
 
 —— 来自 OPPO PHY110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  clauderayvane  
+##### 1497#       发表于 2025-5-21 15:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836802&amp;ptid=2071758" target="_blank">蒂芙尼的早餐 发表于 2025-5-21 12:24</a>
+好消息 1.1.0版本更新了全部开发功能 可以一键开发机体了
+
+坏消息 它不会看你开发树中间有没有现成的 而是一 ...</blockquote>
+🌿 没事吧 这么偷懒 又亏了
+
+—— 来自 Xiaomi 23113RKC6C, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
