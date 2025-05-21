@@ -15594,3 +15594,131 @@ GQ的精神病应该I-filed是在双手上的 挡木马那发mega粒子炮有个
 夏利亚为什么会有杀掉紫婆和基连的想法，没看懂</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不然怎么是夏鸭梦男？
 
+
+*****
+
+####  Piano-Forest  
+##### 14724#         楼主| 发表于 2025-5-22 00:05
+
+<img src="https://p.sda1.dev/24/1350d6d0ea4d455ab611a2248fd5e637/20250521_234617.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/12063748b46cfafa28bd40f7a3fcd0e6/20250521_234620.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/bc44d59bf718ba51474d28de56f2ef0f/20250521_234623.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/76ab706bf9302175b7d5e009ec98c31b/20250521_234713.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/f14135bc79678726e9e2ce56e17b4d2a/20250521_234715.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/b62a463e41e29ed2d87f35f2381a4b12/20250521_234626.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/df34a7ce09577411bebfb070c3c8ba90/20250521_234704.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/dc8d1573d6b7b8cbe0431243402ae283/20250521_234706.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/11d5de39d1b3b8bd98bf9199c6aa8fba/20250521_234630.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/250327fe02f9e33d85cc94aad5190605/20250521_234700.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/b07fb1abc31fc1c8392b08e7f4c46b68/20250521_234651.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/17458ef45361e6a7ac19d4d04dcf89bd/20250521_234639.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/853328557d961a74d22913eb3f93d152/20250521_234719.jpg" referrerpolicy="no-referrer">
+
+HG 1/144 泽维尔专用强人(白瓷装备) 预计2025年7月发售
+[https://bandai-hobby.net/item/01_5952/](https://bandai-hobby.net/item/01_5952/)
+
+<img src="https://p.sda1.dev/24/21a5e4c916877d84972ed27455c96991/20250521_234710.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/4021e5ad32fe72960ec669c866bb794d/20250521_234504.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/c0f975838558f84c2a94fbf7e1a00cd7/79c11837gy1i1n14rlrdvj20xc0iyn4t.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/ef1091af387c1ee3ac70d468935db343/AgJavgUR8fF83EVB.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/6e9b4fb16077508b70e7afe1a2161f42/Crc71yOoYCUpCjKZ.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/6b3acacac86abb0556112cb8cb6058e3/EM4rrE0ACGYaMsLk.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/d282da910fa036a58847cb7d54ea4f21/hwLyP6pDRcGcwrFQ.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 14725#         楼主| 发表于 2025-5-22 00:05
+
+[https://x.com/YY_shibata/status/1924856164388667856](https://x.com/YY_shibata/status/1924856164388667856)
+
+第7話ご視聴いただきありがとうございました！
+
+動画で参加しております！
+
+配信等でもお楽しみください！
+<img src="https://p.sda1.dev/24/eba4d92b4c0cb5e7b52b2f8cd718bc49/20250521_235242.jpg" referrerpolicy="no-referrer">
+
+推しMSが来た。
+<img src="https://p.sda1.dev/24/ba969acf4a337003aee7ade216d6b218/20250521_235318.jpg" referrerpolicy="no-referrer">
+
+ｵｧ………ｱｧ…………………………(血涙)
+<img src="https://p.sda1.dev/24/ea5f0556ed3f8fab75a24cedef72a6fe/20250521_235329.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/1ce20d1357652f11532d6efa6cc0bc10/20250521_235344.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/b258cd09409d3bd80bb608aebce6087d/20250521_235345.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/14668a707a2550ce8b0b845d1ba85b53/20250521_235346.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/801eadc8e181f5396a5c5df3e93f8254/20250521_235348.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/kouda_nyo/status/1924857106311872875](https://x.com/kouda_nyo/status/1924857106311872875)
+
+ドゥーとゲーツ
+<img src="https://p.sda1.dev/24/1af81833799530a38de8d785c4e8d9a2/20250521_235401.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/nkn_ruka/status/1924858037183119841](https://x.com/nkn_ruka/status/1924858037183119841)
+
+7話、動画で参加しておりました。
+
+前回に引き続きまして、色々本当にありがとうございました……！！！！！！！！
+<img src="https://p.sda1.dev/24/36b5be0d6b0f5c7c2029e21ff031f00a/20250521_235407.jpg" referrerpolicy="no-referrer">
+
+kawaii
+<img src="https://p.sda1.dev/24/0b870dd35a1720094ca8f8a1f332ded2/20250521_235410.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/shuta_osb/status/1924857815665172891](https://x.com/shuta_osb/status/1924857815665172891)
+
+『機動戦士Gundam GQuuuuuuX』
+
+7話、キャラクター作画監督と原画で参加させていただきました！
+
+ご視聴ありがとうございました！！✨
+<img src="https://p.sda1.dev/24/acf75b1343bd4b24a9994b444bb3dfbe/20250521_235522.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/m_otake929/status/1924862099693699539](https://x.com/m_otake929/status/1924862099693699539)
+
+ジークアクス7話作監回でした。
+
+スタッフでリアルタイム視聴致しました📺
+
+しかし、情報過多過ぎて、もう…笑
+
+関係者各位様、お疲れ様でした！！
+<img src="https://p.sda1.dev/24/12029ff39ea2f87bedfeda1bf4734eff/20250521_235540.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/ito_0006/status/1924858275511869896](https://x.com/ito_0006/status/1924858275511869896)
+
+GQuuuuuuX7話の演出を担当させていだきました。怒涛の展開の連続を楽しんでもらえたら嬉しいです。ご試聴ありがとうございました～。
+<img src="https://p.sda1.dev/24/5b043b36c40e63b92f9b683c8a349562/20250521_235529.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/muu_excelsior/status/1924858886257049629](https://x.com/muu_excelsior/status/1924858886257049629)
+
+少しだけお手伝いしてました！
+<img src="https://p.sda1.dev/24/fe503ef1415b302994194fa7f574fbeb/20250521_235533.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/24/306a8e79752b60ba96857f33438d6dd1/20250521_235617.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/fc065d8ef4cd3fc9446cef2c7d490f4f/20250521_235610.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/_take_oekaki/status/1924837754099433640](https://x.com/_take_oekaki/status/1924837754099433640)
+
+🐾
+<img src="https://p.sda1.dev/24/8ad87d41570a4d41d2405e229bd95c2b/20250521_235228.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/63520063a74b96085165eaf01c0135ae/20250521_235229.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  lickey  
+##### 14726#       发表于 2025-5-22 00:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67839035&amp;ptid=2209276" target="_blank">Asukalangley33 发表于 2025-5-21 23:40</a>
+
+感觉还是为了分级考虑了
+
+换以前多少跟你整点平民融化，废弹药砸车的镜头</blockquote>
+都出现死人镜头了，然后镜头一转番茄还在因为krkr破防不是更加拷打吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sliurus  
+##### 14727#       发表于 2025-5-22 00:10
+
+说实话，这集比马秋更让我难受的是首席哥，虽然有语音剧透，但真看到他是扎比家的狗还是感觉很不舒服，拉喵安入伙时的神态可以说对自己的身份非常自豪了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
