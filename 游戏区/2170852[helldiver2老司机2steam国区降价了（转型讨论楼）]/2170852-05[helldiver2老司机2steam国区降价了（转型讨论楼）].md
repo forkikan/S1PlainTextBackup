@@ -1030,3 +1030,14 @@ n10以下的队友全看脸，n10无论国人老外大都是熟练工
 国内时段真没法玩，几乎把把都是加速器卡逼，十几秒的延迟还以为连到火星人了，我直连地球另一边都丝滑流畅 ...</blockquote>
 挂加速器还是不挂加速器好，我没试过裸连
 
+
+*****
+
+####  qwased  
+##### 6021#       发表于 2025-5-21 19:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67837972&amp;ptid=2170852" target="_blank">IWS2000 发表于 2025-5-21 18:11</a>
+
+挂加速器还是不挂加速器好，我没试过裸连</blockquote>
+除非你是四人黑，否则必开
+

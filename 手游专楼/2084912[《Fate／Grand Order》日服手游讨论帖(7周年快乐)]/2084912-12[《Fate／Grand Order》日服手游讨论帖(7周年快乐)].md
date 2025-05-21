@@ -143,3 +143,68 @@
 
 对于15满绊从者，yls给出的解答是把溢出的绊平摊掉？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 16730#       发表于 2025-5-21 18:59
+
+<img src="https://img.stage1st.com/forum/202505/21/185834lhy402eqq006m40y.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250521_185823.jpg</strong> (310.32 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-5-21 18:58 上传
+
+武藏亲打赢复活赛了？也不换身衣服，借此机会出个灵衣多好啊。
+
+*****
+
+####  alucardcz  
+##### 16731#       发表于 2025-5-21 19:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67838141&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2025-5-21 18:59</a>
+
+武藏亲打赢复活赛了？也不换身衣服，借此机会出个灵衣多好啊。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这是boss又不是我方（
+
+*****
+
+####  Jamaisvu  
+##### 16732#       发表于 2025-5-21 19:01
+
+<blockquote>希望之花 发表于 2025-5-21 18:58
+对于15满绊从者，yls给出的解答是把溢出的绊平摊掉？</blockquote>
+和马修被动一样，相当于自身是个25%羁绊加成礼装？
+
+但这样的话茶壶的翻倍效果可能就吃不到了吧...？
+
+*****
+
+####  岸浪白野  
+##### 16733#       发表于 2025-5-21 19:01
+
+还特别声明了只是这次活动的所谓冠位和FGO剧情里设定上的冠位无关
+
+*****
+
+####  khxooo  
+##### 16734#       发表于 2025-5-21 19:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67838141&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2025-5-21 18:59</a>
+
+武藏亲打赢复活赛了？也不换身衣服，借此机会出个灵衣多好啊。</blockquote>
+武藏那是真的大<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 16735#       发表于 2025-5-21 19:01
+
+<blockquote>alucardcz 发表于 2025-5-21 19:00
+这是boss又不是我方（</blockquote>
+
+懂了，开挂封号现在被人理顶机代打当质检员。
+
