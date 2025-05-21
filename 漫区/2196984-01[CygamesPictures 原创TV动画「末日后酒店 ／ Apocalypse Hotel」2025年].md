@@ -3457,3 +3457,14 @@ Q：像八千代能从嘴里喷热水、头顶冒烟花等增加了很多实用�
 
 —— 来自 vivo V2337A, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Yinacona  
+##### 301#       发表于 2025-5-21 21:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67838211&amp;ptid=2196984" target="_blank">白玫瑰之夜 发表于 2025-5-21 19:17</a>
+
+可以的话我希望下集是发射了然后发现雀食没啥卵用按这番尿性还挺有可能的顺便这集嘭子理工科学霸的 ...</blockquote>
+即使是理工学霸在第一次遇到环境检测机器人并且觉得它发生故障时第一反应也是拍一拍<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
