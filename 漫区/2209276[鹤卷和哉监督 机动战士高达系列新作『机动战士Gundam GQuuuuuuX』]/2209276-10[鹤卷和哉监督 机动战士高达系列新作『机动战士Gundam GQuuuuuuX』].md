@@ -13969,3 +13969,43 @@ GQX还会自己动 有什么说法么</blockquote>
 
 我刚刚给鹤卷哥哥打电话问了，其实修司是鸭和拉拉在裸漂时空生的儿子，所以人不人鬼不鬼的<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Steel.Haze  
+##### 14583#       发表于 2025-5-21 17:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67837599&amp;ptid=2209276" target="_blank">llysander 发表于 2025-5-21 16:22</a>
+
+以前全装zz的都叫 耐beam涂层 ， 小型ifield都在水枪牙签里但是太小没法用于防御。
+
+ex-s应该是最早最小的 ...</blockquote>
+现在全装甲ZZ补设了。然后实际上EXS那一点I力场范围已经比夸克斯那个盾的范围要大得多了。你看看EXS的体积。
+
+牛高达那个算是可控的I力场驾驭射出的粒子膜，实际上和光束盾一样的粒子对消，不是I力场原理。
+
+*****
+
+####  Sliurus  
+##### 14584#       发表于 2025-5-21 17:32
+
+[https://x.com/accelaangl/status/ ... 1CbxXPkTOlk4NTqE-Ag](https://x.com/accelaangl/status/1924959868341067880?s=46&amp;t=XH91CbxXPkTOlk4NTqE-Ag)
+
+<img src="https://img.stage1st.com/forum/202505/21/173151jmwkmmzswm1yf98b.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_7935.JPG</strong> (211.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 17:31 上传
+
+[https://x.com/nukazuke_kyuuri/st ... 1CbxXPkTOlk4NTqE-Ag](https://x.com/nukazuke_kyuuri/status/1925084022969139520?s=46&amp;t=XH91CbxXPkTOlk4NTqE-Ag)
+
+<img src="https://img.stage1st.com/forum/202505/21/173152qrgzyl333xf2g36v.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_7936.JPG</strong> (125.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 17:31 上传
+
