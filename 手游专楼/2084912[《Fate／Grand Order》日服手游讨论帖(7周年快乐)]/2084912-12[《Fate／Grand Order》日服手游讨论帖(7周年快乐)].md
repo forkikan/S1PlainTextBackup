@@ -399,3 +399,35 @@
 
 西哥和麻雀，有什么建议吗，两个都能打就是了
 
+
+*****
+
+####  壳壳牛  
+##### 16756#       发表于 2025-5-21 21:41
+
+我的剑单全是1宝都不想喂杯子...
+
+*****
+
+####  qixinno2  
+##### 16757#       发表于 2025-5-21 21:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">喂了个100级伊织 很好用
+
+*****
+
+####  khxooo  
+##### 16758#       发表于 2025-5-21 21:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67838667&amp;ptid=2084912" target="_blank">天王寺凯伊姆 发表于 2025-5-21 21:37</a>
+
+西哥和麻雀，有什么建议吗，两个都能打就是了</blockquote>
+麻雀吧，起码有50自充，还有对武藏特攻，打柱子舒服多了。
+
+*****
+
+####  yangun22  
+##### 16759#       发表于 2025-5-21 21:54
+
+把任务刷完了，最后定位战给的是冠位剑限定的20%御主经验的礼装
+
