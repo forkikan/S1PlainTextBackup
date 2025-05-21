@@ -12558,3 +12558,43 @@ brave bang是吧
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  qiyu1234  
+##### 14455#       发表于 2025-5-21 13:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836987&amp;ptid=2209276" target="_blank">eilot 发表于 2025-5-21 13:11</a>
+
+QUX本身就是沒武器，連光劍都沒有的試驗機，
+
+今次捉回去後，再補回武裝應該是原本預定給他的基本配置來</blockquote>
+红高达再登场估计接近结局了
+
+敌友情况不好说，但武器这块应该没有必要刻意吝啬
+
+集数焦虑导致很多需要解释的部分都在排队，角色关系性都被一定程度上压缩跳过了，遑论强度成长（大概玛秋还是能安排1-2场战斗诠释一下）
+
+
+*****
+
+####  没取名啊  
+##### 14456#       发表于 2025-5-21 13:23
+
+马克贝能不能发发力，再出个黑瓷的，我组一队买
+
+*****
+
+####  ryanghj  
+##### 14457#       发表于 2025-5-21 13:23
+
+<img src="https://img.stage1st.com/forum/202505/21/132205vklysqptijcsl87y.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (222.34 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 13:22 上传
+
+好像没人注意到这个手电筒改造计划的名字叫尤玛恩托？星之贪食者啊，怕不是对行星兵器，一炮毁灭地球
+
