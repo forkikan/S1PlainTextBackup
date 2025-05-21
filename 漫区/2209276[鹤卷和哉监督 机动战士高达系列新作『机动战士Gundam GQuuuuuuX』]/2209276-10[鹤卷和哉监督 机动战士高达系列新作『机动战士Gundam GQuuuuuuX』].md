@@ -14303,3 +14303,37 @@ khara 的机械审美按说吊打水魔组，但战斗构成又过于脱离高�
 
 2025-5-21 18:45 上传
 
+
+*****
+
+####  猪突猛进R  
+##### 14607#       发表于 2025-5-21 18:51
+
+<img src="https://img.stage1st.com/forum/202505/21/185114oozy3wo8jpod15r4.jpg" referrerpolicy="no-referrer">
+
+<strong>123e3af33a87e9502bd9917c56385343faf2b496.jpg</strong> (406.3 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 18:51 上传
+
+
+*****
+
+####  xunit  
+##### 14608#       发表于 2025-5-21 18:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67838028&amp;ptid=2209276" target="_blank">玖羽 发表于 2025-5-21 18:24</a>
+
+还行吧，我只是感觉这个死法太富野了，别忘了阿姆罗杀邱尼也就用了半秒 ...</blockquote>
+邱尼的死虽然只花了阿姆罗几秒的时间，但人前面的戏份多啊，开头打灵格斯、拦截核弹、杀凯拉，还有暴典黑夏亚，观众不会觉得这个角色菜，死了只是因为阿姆罗更强
+
+但这集这俩，一个kirakira掉线了就化身宇宙世纪金刚，一个驾驶魔鬼鱼成了精神病挂件OB了半天，就很难觉得这俩真的是巴斯克精挑细选来实行秘密行动的人……虽然可能是篇幅的锅，但“菜”的观感是甩不掉了
+
+*****
+
+####  mhss  
+##### 14609#       发表于 2025-5-21 18:57
+
+萝莉屋压制的3、5、6、7op前面的番茄单人跑全都存在花屏现象，问题他家都找不到地方报错<img src="https://static.stage1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+

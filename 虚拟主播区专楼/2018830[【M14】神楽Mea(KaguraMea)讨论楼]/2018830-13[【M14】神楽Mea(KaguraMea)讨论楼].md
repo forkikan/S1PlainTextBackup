@@ -9301,3 +9301,16 @@ gibara死的早不认识很正常，初代虹版kgrma了属于是
 
 草，另一个马自立的b限那边开头出来蹦出来一个ID带kaguramea的
 
+
+*****
+
+####  秋游刃  
+##### 18538#       发表于 2025-5-21 18:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67837263&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2025-5-21 14:45</a>
+
+啊？这么多年来没再听过她俩有联系
+
+你咩这么早的线都还在线下联系，好奇现在跟森永甚至bs年代的还有联系 ...</blockquote>
+是疏远了不少，不过没啥矛盾想联系随时能联系。
+
