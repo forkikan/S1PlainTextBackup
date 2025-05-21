@@ -11616,3 +11616,116 @@ zeknova这茬你也不能说它前后矛盾，毕竟夏亚也是本来是各方�
 
 扎古退役都要拆掉军用os防止装武器滥用的
 
+
+*****
+
+####  YU_JI  
+##### 14377#       发表于 2025-5-21 11:56
+
+日常彻底崩毁之后该换造型了吧，总不能俩人还是JK衣服吧，吉翁军服的二创要成真了吗？
+
+*****
+
+####  人形灾害  
+##### 14378#       发表于 2025-5-21 11:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836656&amp;ptid=2209276" target="_blank">王留美 发表于 2025-5-21 11:47</a>
+一个很有趣的点是第四话在桥上的时候两个人对敢达的态度是反过来的
+麻球认为敢达只是工具，修司的想法都是 ...</blockquote>
+麻球都开始对高达说谢谢了
+
+至少对现在的她来讲GQ肯定比这些大人们更靠谱，更值得投射感情
+
+*****
+
+####  ryanghj  
+##### 14379#       发表于 2025-5-21 11:57
+
+现在感觉搞不好夏亚和塞拉是跑哪个地方隐居起来了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+反正修司肯定会有回归剧情，那夏亚也会回来吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  岸浪白野  
+##### 14380#       发表于 2025-5-21 11:57
+
+ 本帖最后由 岸浪白野 于 2025-5-21 11:59 编辑 
+
+说实话型号还是MS-15前面有楼友觉得的取消MS-14的开发会影响导致型号不同要失望了，而且加上GQ勇士，兹玛德  挺赢太多的
+
+拿原案的名字白瓷来当白瓷装备
+
+<img src="https://img.stage1st.com/forum/202505/21/115444r5qoii003ld0i28b.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (196.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 11:54 上传
+
+<img src="https://img.stage1st.com/forum/202505/21/115500gyvvcrhhd91ylq9z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.42 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 11:55 上传
+
+*****
+
+####  猪突猛进R  
+##### 14381#       发表于 2025-5-21 11:57
+
+下下集说不定就是N年后了，新人们该补ZZ和CCA了。（真有新人吗？）
+
+*****
+
+####  YU_JI  
+##### 14382#       发表于 2025-5-21 11:58
+
+女人会背叛你，男人会抛弃你，大人会利用你，只有高达，高达是真的爱你<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  woui003woui  
+##### 14383#       发表于 2025-5-21 11:59
+
+原来如此，这就是卖模型的醍醐味
+
+*****
+
+####  ryanghj  
+##### 14384#       发表于 2025-5-21 11:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836684&amp;ptid=2209276" target="_blank">syndrome2032 发表于 2025-5-21 11:56</a>
+那个os是给博美犬本来的扎古用的啊，不是红高达。
+
+扎古退役都要拆掉军用os防止装武器滥用的 ...</blockquote>
+第三集是修司买安装装置才让三人相遇，欠了钱才会去打军团战
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  wpcc  
+##### 14385#       发表于 2025-5-21 11:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836673&amp;ptid=2209276" target="_blank">ads147147 发表于 2025-5-21 11:53</a>
+
+其实从修司视角来看，他本来就想独走打军团赛赚钱去地球的？但是红高达本来就是没被锁的战争兵器，为什么会 ...</blockquote>
+那个是火控 打坏了换一个
+
+*****
+
+####  ardente  
+##### 14386#       发表于 2025-5-21 12:00
+
+能把几个新人物这边的细节搞的全是槽点也不容易<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+飞马打爬楼精神病这种打戏是来搞笑吧，还不如不演
+
+你说的对，所以我们在三主角这边加入了更多的神人演出平衡观感<img src="https://static.stage1st.com/image/smiley/face2017/268.gif" referrerpolicy="no-referrer">
+

@@ -101,3 +101,16 @@ SSR机师都是没人用才顶上去的，而且旧吉恩公国词条的人太�
 
 还是说可以分两次完成的
 
+
+*****
+
+####  double8G  
+##### 1492#       发表于 2025-5-21 11:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836667&amp;ptid=2071758" target="_blank">格雷殿下 发表于 2025-5-21 11:52</a>
+
+剧情关的隐藏任务和3星要同时完成的吗，
+
+还是说可以分两次完成的</blockquote>
+可以分两次，但是隐藏自己算额外1星，不点亮应该扫荡不出隐藏相关？
+
