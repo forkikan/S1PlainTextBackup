@@ -15574,3 +15574,23 @@ GQ的精神病应该I-filed是在双手上的 挡木马那发mega粒子炮有个
 什么UC萨布林</blockquote>
 绿色木马就是警戒号，对上了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xunit  
+##### 14722#       发表于 2025-5-21 23:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67839030&amp;ptid=2209276" target="_blank">patema 发表于 2025-5-21 23:38</a>
+
+这浮游装甲可是反射bit+月高精神力工字钢。含金量高的一逼好吧，给个会玩的nt能玩飞起来 ...</blockquote>
+那也好歹把赛克缪板做成外挂式啊，做成外甲是什么思路，这板子飞出去本体直接裸奔了，像话吗（
+
+*****
+
+####  cxasuka  
+##### 14723#       发表于 2025-5-21 23:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67839047&amp;ptid=2209276" target="_blank">ykyin09 发表于 2025-5-21 23:45</a>
+夏利亚为什么会有杀掉紫婆和基连的想法，没看懂</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不然怎么是夏鸭梦男？
+
