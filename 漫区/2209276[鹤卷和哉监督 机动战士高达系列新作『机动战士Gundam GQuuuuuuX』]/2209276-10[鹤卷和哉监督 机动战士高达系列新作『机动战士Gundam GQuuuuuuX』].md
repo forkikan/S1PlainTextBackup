@@ -15110,3 +15110,38 @@ B以下 杂鱼警察和其他军团战对手
 
 —— 来自 samsung SM-F9460, Android 14, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  伊露伊道格拉斯  
+##### 14682#       发表于 2025-5-21 22:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67838530&amp;ptid=2209276" target="_blank">EFSF 发表于 2025-5-21 20:57</a>
+
+动画和动画，作品和作品不同，打浮游/线控炮也会不一样，你这是独角兽战斗动画出来后的思路，但是GQX明显 ...</blockquote>
+线控炮能一枪打穿重型机精神病，我感觉也是放弃治疗了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+93浮游炮都不敢说一发秒普通ms，都得连续攻击，你85的线控炮火力能秒精神病，你比93都牛逼<img src="https://static.stage1st.com/image/smiley/bundam2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  伊露伊道格拉斯  
+##### 14683#       发表于 2025-5-21 22:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67838652&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-21 21:33</a>
+
+X 上的 ツナニキ🇦🇶：“キラキラ（隠語） #ジークアクスhttps://t.co/qsWfxkWLHO” / X
+
+X 上的 青袖てゃ ...</blockquote>
+草，真有人把溜冰画出来了啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  璇瑢子R  
+##### 14684#       发表于 2025-5-21 22:40
+
+这集的泽科诺瓦后面最好给出一个合理解释来。
+
+要不然时空穿越能力要是能轻易使用那剧情100%要烂
+
