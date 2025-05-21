@@ -14257,3 +14257,49 @@ gqx这科技树都点塞可缪了啊，联邦还是害怕NT那样走强化人路
 
 khara 的机械审美按说吊打水魔组，但战斗构成又过于脱离高达的传统美学了
 
+
+*****
+
+####  patema  
+##### 14605#       发表于 2025-5-21 18:40
+
+我其实觉得浮游工字钢挺帅的
+
+
+*****
+
+####  猪突猛进R  
+##### 14606#       发表于 2025-5-21 18:45
+
+<img src="https://img.stage1st.com/forum/202505/21/184539jrpvids5e5qfiurt.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (206.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 18:45 上传
+
+<img src="https://img.stage1st.com/forum/202505/21/184539t71ngpplurm1llep.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (227.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 18:45 上传
+
+<img src="https://img.stage1st.com/forum/202505/21/184539a2wgw1fv88zhscz1.png" referrerpolicy="no-referrer">
+
+<strong>3.png</strong> (354.74 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 18:45 上传
+
+<img src="https://img.stage1st.com/forum/202505/21/184538yizqz8kc3cu0guo8.jpg" referrerpolicy="no-referrer">
+
+<strong>4.jpg</strong> (35.69 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 18:45 上传
+
