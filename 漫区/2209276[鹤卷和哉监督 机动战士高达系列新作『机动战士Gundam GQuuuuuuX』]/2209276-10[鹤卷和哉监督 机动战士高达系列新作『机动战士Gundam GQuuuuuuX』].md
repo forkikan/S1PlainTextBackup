@@ -10013,3 +10013,11 @@ tts果然全是废物呢。<img src="https://static.stage1st.com/image/smiley/fa
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  moondigi  
+##### 14227#       发表于 2025-5-21 08:17
+
+胡子这ma两炮就能将mk2融了是什么水平的出力
+

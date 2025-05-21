@@ -3361,3 +3361,13 @@ Q：像八千代能从嘴里喷热水、头顶冒烟花等增加了很多实用�
 
 「アポカリプスホテルぷすぷすぷす」#7 漫画汉化
 
+
+*****
+
+####  KDConan  
+##### 292#       发表于 2025-5-21 08:19
+
+这神之杖打得了上集的哈鲁马哥吗就冒这么大风险<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
