@@ -12423,3 +12423,138 @@ https://x.com/nidoto_milna9/status/1925041308948967576?s=19
 
 2025-5-21 13:04 上传
 
+
+*****
+
+####  Sliurus  
+##### 14451#       发表于 2025-5-21 13:06
+
+第一次觉得强人有点帅，但枪上的小球看着有点恶心
+
+*****
+
+####  岸浪白野  
+##### 14452#       发表于 2025-5-21 13:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836964&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-21 13:04</a>
+
+X 上的 BANDAI SPIRITS ホビー事業部：“✨ガンプラ商品化解禁✨ 『機動戦士Gundam GQuuuuuuX』より エグザ ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202505/21/130450thht188jwtppjj81.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (727.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 13:04 上传
+
+<img src="https://img.stage1st.com/forum/202505/21/130508n2wt3t4znlool234.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (867.98 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 13:05 上传
+
+<img src="https://img.stage1st.com/forum/202505/21/130515si8dsxsssutht4k0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (848.21 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 13:05 上传
+
+<img src="https://img.stage1st.com/forum/202505/21/130535ilyymdbmt2kgybmz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (543.94 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 13:05 上传
+
+<img src="https://img.stage1st.com/forum/202505/21/130541qfafijpidi0e6nu8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (559.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 13:05 上传
+
+<img src="https://img.stage1st.com/forum/202505/21/130547tokrzah822acwg11.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (605.4 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 13:05 上传
+
+<img src="https://img.stage1st.com/forum/202505/21/130553weuw84fmsxcclesp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (783.54 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 13:05 上传
+
+<img src="https://img.stage1st.com/forum/202505/21/130603e9o73mwmsomttom2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (659.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 13:06 上传
+
+<img src="https://img.stage1st.com/forum/202505/21/130628g6s0evsjwk6yj3ju.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (589.43 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 13:06 上传
+
+<img src="https://img.stage1st.com/forum/202505/21/130640kwjinqmbwjd5lzwm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (786.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 13:06 上传
+
+<img src="https://img.stage1st.com/forum/202505/21/130650wcv8b9bifbbfc6li.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (443.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 13:06 上传
+
+
+*****
+
+####  eilot  
+##### 14453#       发表于 2025-5-21 13:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836910&amp;ptid=2209276" target="_blank">qiyu1234 发表于 2025-5-21 12:49</a>
+
+玛秋和G夸克斯现在是亟需快速升级
+
+玛秋除了NT能力以外她那三脚猫功夫顶多应对下低水平的黑拳比赛，还要靠 ...</blockquote>
+QUX本身就是沒武器，連光劍都沒有的試驗機，
+
+今次捉回去後，再補回武裝應該是原本預定給他的基本配置來
+
+另外之前都是到紅高達的武器也快被敗光
+
+他們再不回收，下次出場真是用來純開KIRAKIRA領域嗎?就好像水星魔女2季最後一集，女主拖了3架殘破機體一起分解大光筒就沒之後?
+
+*****
+
+####  朋友费小号  
+##### 14454#       发表于 2025-5-21 13:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835424&amp;ptid=2209276" target="_blank">人形灾害 发表于 2025-5-21 02:34</a>
+看到有个鸡夸的机魂是未来麻球的猜想，说不定就是结局穿越时空给过去的自己发信息，按现在这股癫劲来看不 ...</blockquote>
+brave bang是吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
