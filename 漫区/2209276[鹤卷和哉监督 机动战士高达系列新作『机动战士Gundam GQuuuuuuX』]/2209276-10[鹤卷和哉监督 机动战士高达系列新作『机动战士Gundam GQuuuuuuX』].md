@@ -14198,3 +14198,33 @@ gqx这科技树都点塞可缪了啊，联邦还是害怕NT那样走强化人路
 
 2025-5-21 18:12 上传
 
+
+*****
+
+####  seedees3  
+##### 14599#       发表于 2025-5-21 18:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67837975&amp;ptid=2209276" target="_blank">mengsu 发表于 2025-5-21 18:12</a>
+
+汉布拉比这么好的机子你盖茨全程挂机看戏实属难绷。
+
+这精神力高达的弱智爆甲模式可以竞争高达全系列最丑机 ...</blockquote>
+硬要在UC里塞入EVA味就是这样了，让精神病高达出场就是为了这碟子醋
+
+*****
+
+####  妄想系同盟  
+##### 14600#       发表于 2025-5-21 18:23
+
+你是说战败国执行暗杀计划指望对方没有ace当护卫？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  mumubear  
+##### 14601#       发表于 2025-5-21 18:23
+
+<blockquote>猪突猛进R 发表于 2025-5-21 16:13
+青春期，是指逃课去打随时会丧命的黑拳，跟来路不明的野小子一起Kirakira，还跟难民女争风吃醋的青春期吗？ ...</blockquote>
+神人tv预备役。
+
