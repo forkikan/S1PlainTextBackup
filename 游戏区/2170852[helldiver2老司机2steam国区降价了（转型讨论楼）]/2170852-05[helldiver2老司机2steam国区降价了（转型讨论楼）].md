@@ -1020,3 +1020,13 @@ n10以下的队友全看脸，n10无论国人老外大都是熟练工
 
 现在有啥补给包值得买的？
 
+
+*****
+
+####  IWS2000  
+##### 6020#       发表于 2025-5-21 18:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67837874&amp;ptid=2170852" target="_blank">FLZB 发表于 2025-5-21 17:43</a>
+国内时段真没法玩，几乎把把都是加速器卡逼，十几秒的延迟还以为连到火星人了，我直连地球另一边都丝滑流畅 ...</blockquote>
+挂加速器还是不挂加速器好，我没试过裸连
+

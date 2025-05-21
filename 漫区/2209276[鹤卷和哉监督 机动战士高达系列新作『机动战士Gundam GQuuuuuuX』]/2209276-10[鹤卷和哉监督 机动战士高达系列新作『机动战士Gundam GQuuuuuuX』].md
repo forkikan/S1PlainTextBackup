@@ -14147,3 +14147,54 @@ GQ版倒是看起来很杂鱼<img src="https://static.stage1st.com/image/smiley/
 以后变成夏枪秒么，吉翁第一巴图鲁夏利亚，联邦还有能打的机师么</blockquote>
 肯定是主世界满状态阿姆罗堂堂登场
 
+
+*****
+
+####  猎人D  
+##### 14595#       发表于 2025-5-21 18:11
+
+gqx这科技树都点塞可缪了啊，联邦还是害怕NT那样走强化人路线，被绿叔叔这种正统NT秒杀，太丢人了
+
+*****
+
+####  Geyorkias  
+##### 14596#       发表于 2025-5-21 18:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">夏利亚要打的是扎比家，又不是联邦....周大佐这波没捞到啥后面估计也未必有什么联邦机体出来了。
+
+别看他人在吉翁军就觉得他要吉翁万岁扎比万岁了啊。
+
+*****
+
+####  mengsu  
+##### 14597#       发表于 2025-5-21 18:12
+
+汉布拉比这么好的机子你盖茨全程挂机看戏实属难绷。
+
+这精神力高达的弱智爆甲模式可以竞争高达全系列最丑机设之一了，这都特么什么啊，真的打算拿这玩意卖胶吗？
+
+*****
+
+####  岸浪白野  
+##### 14598#       发表于 2025-5-21 18:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836518&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-21 11:16</a></blockquote>
+
+将吉翁公国军少将那句删掉
+
+<img src="https://img.stage1st.com/forum/202505/21/181248yg6ymp9pnn362nz9.png" referrerpolicy="no-referrer">
+
+<strong>R~{I$%VAON(V`(0ZCY}`[93.png</strong> (1.24 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 18:12 上传
+
+<img src="https://img.stage1st.com/forum/202505/21/181253skir65wve4rkkkjb.png" referrerpolicy="no-referrer">
+
+<strong>~ETT)`Y6JVQ7VS47X2WIP.png</strong> (77.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 18:12 上传
+
