@@ -12375,3 +12375,51 @@ ma没更新升级的话就是绿叔叔开着79年的玩意把85年的机体当�
 
 我仿佛看到了拖着它的是隔壁雷霆宙域的完美高达
 
+
+*****
+
+####  有钱多买小人  
+##### 14447#       发表于 2025-5-21 12:56
+
+https://x.com/nidoto_milna9/status/1925041308948967576?s=19
+
+<img src="https://p.sda1.dev/24/0ed8bb852a6b9e3d24ee6da6975bc48c/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ヒトニナル  
+##### 14448#       发表于 2025-5-21 13:01
+
+物理上的成长过程在这个片场倒是最不被需要的东西，2000 years later就行了
+
+*****
+
+####  zoomegg  
+##### 14449#       发表于 2025-5-21 13:04
+
+这集演出也太EVA了。。。另外神经病怎么菜成一坨
+
+*****
+
+####  岸浪白野  
+##### 14450#       发表于 2025-5-21 13:04
+
+[X 上的 BANDAI SPIRITS ホビー事業部：“✨ガンプラ商品化解禁✨ 『機動戦士Gundam GQuuuuuuX』より エグザべ専用ギャン(ハクジ装備)がHGで商品化！ HG 1/144 エグザべ専用ギャン(ハクジ装備) 2025年7月発売予定 ▼商品ページはこちら [url]https://t.co/dmkWvJSvp7](https://x.com/HobbySite/status/1925054229875773931) ▼ガンプラ特設サイトはこちら [https://t.co/9WasWdfkoL](https://t.co/9WasWdfkoL) #ガンプラ [https://t.co/P8x0wkeaa6](https://t.co/P8x0wkeaa6)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/21/130410bww3oynjd9ohzdph.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.05 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 13:04 上传
+
+<img src="https://img.stage1st.com/forum/202505/21/130426sr06rxlnrp9o0c9p.png" referrerpolicy="no-referrer">
+
+<strong>)`X7BU@8EUXLA5$Z]3VH.png</strong> (1.26 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 13:04 上传
+
