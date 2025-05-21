@@ -993,3 +993,14 @@ n10以下的队友全看脸，n10无论国人老外大都是熟练工
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  kemyes  
+##### 6017#       发表于 2025-5-21 15:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67837308&amp;ptid=2170852" target="_blank">Adrenaline!!! 发表于 2025-5-21 15:01</a>
+
+“就比如说图里我刚打到14级，全喉缩还没买，想提前解锁鸭嘴，那就：选择全喉缩，长按购买键→进度条快要到 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">每次解锁东西都要卡那么一会，没想到还能这样利用提前解锁，天才
+
