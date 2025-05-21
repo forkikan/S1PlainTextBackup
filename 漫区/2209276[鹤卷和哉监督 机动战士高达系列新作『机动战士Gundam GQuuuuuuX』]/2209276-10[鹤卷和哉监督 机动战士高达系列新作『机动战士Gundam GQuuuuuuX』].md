@@ -14899,3 +14899,28 @@ Z高在剧场版里追加了一个光束搅乱幕（ビームコンフューズ�
 但是现在这展开我总觉得商会四人组后期会直接下线，毕竟舞台 ...</blockquote>
 基本不会，这种一季完的短剧反而要把所有资源用到极致，商会那票人后面肯定要冒出来，并且也肯定会搞到新机体甚至母舰，大姐头的旧吉翁背景还没收束呢
 
+
+*****
+
+####  ティグル  
+##### 14665#       发表于 2025-5-21 21:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67838562&amp;ptid=2209276" target="_blank">patema 发表于 2025-5-21 21:10</a>
+
+国内二次元特有的上世纪知名创作者=左翼=好人的简单逻辑推导</blockquote>
+哎，政治正确
+
+*****
+
+####  冰风血羽  
+##### 14666#       发表于 2025-5-21 21:46
+
+那就让博美犬这帮人当汤大基派的再出场怎么样<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lunaticfool  
+##### 14667#       发表于 2025-5-21 21:47
+
+博美犬钱都没有带走，可能被抓了吧
+

@@ -358,3 +358,44 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">打一把刷助战要刷很久。。有点烦人
 
+
+*****
+
+####  blue321  
+##### 16752#       发表于 2025-5-21 21:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67838524&amp;ptid=2084912" target="_blank">v22325 发表于 2025-5-21 20:56</a>
+
+这挑战给的挺多的,刷刷感觉能硬刷出来一个10绊。
+
+我冠位2宝双子了,回转快点每回合都能放,但双嫁王只能一 ...</blockquote>
+那等有空就多刷一点好了，反正是一宝玩家其他就不想冲厨的角色去了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  quanlix  
+##### 16753#       发表于 2025-5-21 21:23
+
+好弱智的设计，选光炮纯吃瘪
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  森兰丸  
+##### 16754#       发表于 2025-5-21 21:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67838548&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-5-21 21:05</a>
+
+你要拉到120然后全满吗（ 100+1000的没那么行（</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">应该不是等级的问题....而是新的星盘效果
+
+抱了个同样的斋藤.....之前一套宝具只能打100万......现在大概是把星盘给点了一套也能打200万了
+
+*****
+
+####  天王寺凯伊姆  
+##### 16755#       发表于 2025-5-21 21:37
+
+西哥和麻雀，有什么建议吗，两个都能打就是了
+
