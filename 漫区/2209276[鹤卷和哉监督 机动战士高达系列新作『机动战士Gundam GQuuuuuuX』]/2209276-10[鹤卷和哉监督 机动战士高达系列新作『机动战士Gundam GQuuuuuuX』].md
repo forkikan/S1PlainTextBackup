@@ -15751,3 +15751,46 @@ GQuuuuuuX7話の演出を担当させていだきました。怒涛の展開の�
 这浮游装甲可是反射bit+月高精神力工字钢。含金量高的一逼好吧，给个会玩的nt能玩飞起来 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就是会玩的nt一般都不是强化人
 
+
+*****
+
+####  竹様  
+##### 14731#       发表于 2025-5-22 00:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67838986&amp;ptid=2209276" target="_blank">璇瑢子R 发表于 2025-5-21 23:19</a>
+
+军警可是看着小番茄丢下钱袋上机的
+
+而且新闻里明确说小番茄是嫌疑人，最后都要调查了。不是驾驶员她犯了 ...</blockquote>
+军警看见玛秋上机这事只会在SIDE6内部共享，紫婆又不知道这事，反倒是能摆平俩军警尸体的基连更有可能知道。
+
+况且首席哥已经先入为主的认为玛秋不是GQX/红高达的驾驶员，开的什么也不重要了吧，说不定是首席哥见过一面的倒福扎古呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+
+*****
+
+####  tastySugar  
+##### 14732#       发表于 2025-5-22 00:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67838133&amp;ptid=2209276" target="_blank">mhss 发表于 2025-5-21 18:57</a>
+
+萝莉屋压制的3、5、6、7op前面的番茄单人跑全都存在花屏现象，问题他家都找不到地方报错 ...</blockquote>
+这是硬件解码的问题，关闭播放器的硬件解码，使用软件解码观看即可解决。
+
+*****
+
+####  Alicest  
+##### 14733#       发表于 2025-5-22 00:33
+
+gqux这插入曲怎么都既突兀又口水<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">年轻人就喜欢这种吗
+
+*****
+
+####  灵魂收割机  
+##### 14734#       发表于 2025-5-22 00:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67839047&amp;ptid=2209276" target="_blank">ykyin09 发表于 2025-5-21 23:45</a>
+
+夏利亚为什么会有杀掉紫婆和基连的想法，没看懂</blockquote>
+下周会说，夏亚已经告诉夏利亚他要消灭扎比家了。
+
