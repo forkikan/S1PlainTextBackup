@@ -10729,3 +10729,22 @@ kirakira明面上就是精神状态吧。
 
 — from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  希望之异热同心  
+##### 14301#       发表于 2025-5-21 10:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67836066&amp;ptid=2209276" target="_blank">绞首浪漫派丶 发表于 2025-5-21 09:53</a>
+所以KIRAKIRA到底是个啥，NT聊天室也妹有成瘾性啊，而且也解释不了为什么修斯一走KIRAKIRA就没了。很难想象 ...</blockquote>
+很可能不是什么聊天室，所有线索都指向和沙仑的玫瑰有关，我猜测这可能是个高纬度的空间只有有比较高nt能力的人才能接入进去，而红高达可以使用这个空间进行时间与纬度的转移
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Seabiscuit  
+##### 14302#       发表于 2025-5-21 10:21
+
+消费情怀
+
