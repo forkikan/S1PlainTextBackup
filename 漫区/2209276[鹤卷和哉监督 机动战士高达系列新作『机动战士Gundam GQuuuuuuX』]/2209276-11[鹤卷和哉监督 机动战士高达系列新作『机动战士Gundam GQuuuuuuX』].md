@@ -1751,3 +1751,11 @@ top2你就不能把其当top1的续作来看，建议当成独立作品，如果
 
 主要是时间跨度一大，玛秋就不是青春期少女了，有点违背主题的意思<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  galgamesh11  
+##### 14957#       发表于 2025-5-23 01:01
+
+不会跳太久时间的，真要跳也就几个月吧，极限是一年，不然奶奶头要到了
+
