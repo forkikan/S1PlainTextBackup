@@ -1378,3 +1378,45 @@ az从商业上是个卖腐的作品 你要这么看还真没问题 卖公主就�
 
 这集很多事件安排的很刻意，修斯我都不想提，作为一个和核心谜题强相关的主要角色全程谜语人高达传话筒大愚若智，相关剧情有效信息为零，水了这么多集直接zknv遁烂到家了，精神力驾驶员的发癫还有麻球跑到gqx前面才在身后刷新出一大票jc和警车，编剧的大手nb
 
+
+*****
+
+####  ryanghj  
+##### 14926#       发表于 2025-5-22 23:09
+
+ 顺带有没有人解读一下下集为啥标题有个括号
+
+坠入月球：0079后半，所罗门
+
+堕入月球：喵安被老太婆带到月球洗（）脑？
+
+<img src="https://img.stage1st.com/forum/202505/22/230918j1egtkemqywgwzeb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (181.32 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 23:09 上传
+
+
+*****
+
+####  wpcc  
+##### 14927#       发表于 2025-5-22 23:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67842714&amp;ptid=2209276" target="_blank">zzf111 发表于 2025-5-22 23:05</a>
+
+剧情这目前"所谓大的"和主角三人有一毛钱关系吗？观感很好吗？
+
+反方又有干什么精彩的事情吗，整场全是绿叔 ...</blockquote>
+side6的矛盾没有这三个人也会展开就对了 这就是老害游乐园
+
+*****
+
+####  日野下花帆  
+##### 14928#       发表于 2025-5-22 23:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们还是对鹤卷滤镜太大了才会念叨着top2 可惜他在这片展现的功力连top2的1/10都没
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
