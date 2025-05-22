@@ -862,3 +862,42 @@ uc if和麻球喵安休斯三人故事这两条线非常割裂。
 死亡能上6位数意味着殖民地完蛋了，制作组在这话的表现证明他们没能力写这种展开。 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">明显是不想写高达里面已经写烂的殖民地坠落了
 
+
+*****
+
+####  肛之练筋士  
+##### 14881#       发表于 2025-5-22 19:59
+
+<img src="https://img.stage1st.com/forum/202505/22/195926ig1z1kgz1fvag1jx.jpg" referrerpolicy="no-referrer">
+
+<strong>Griq6F-bQAAlmcZ.jpg</strong> (155.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 19:59 上传
+
+[https://x.com/Ervin0083/status/1925476762793947481](https://x.com/Ervin0083/status/1925476762793947481)
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不孝子女喜+1
+
+*****
+
+####  猪突猛进R  
+##### 14882#       发表于 2025-5-22 20:02
+
+不想写大场面干嘛把空调机搬来呢？
+
+想描写“暗杀”也可以让几台轻加农来做么，还不是既要又要。
+
+既要表现所谓的“战后”高达，与老高达“不一样”。
+
+但是又舍不得老粉，于是搬出一个套精神病皮的EVA，还煞有介事配上Z的曲子，然后又让它像野狗一样死掉，不就是在消费情怀。
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 14883#       发表于 2025-5-22 20:03
+
+反正没干票大的很缺戏剧性、紧迫感、刺激感<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
