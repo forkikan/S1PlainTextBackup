@@ -988,3 +988,15 @@ IMG_3746.jpeg
 
 <img src="https://img.stage1st.com/forum/202505/22/223320j7lrf67zayn6frts.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暗黑能乐  
+##### 99#       发表于 2025-5-23 02:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67842620&amp;ptid=2140549" target="_blank">只等待明天 发表于 2025-5-22 22:37</a>
+越来越刀了希望能有个好结局</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">看完了？
+
+—— 来自 HONOR BVL-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
