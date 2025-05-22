@@ -3576,3 +3576,11 @@ B站的评论也提出了一个思路，从目前7集整体来看，片子里八
 现在这个展开不是完美符合地心引力么？</blockquote>
 这集开头不是说了“地球上有未完成的太空兵器”嘛，下一集估计就是用这玩意上去回收八千代了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  哈尔路尼亚  
+##### 313#       发表于 2025-5-22 16:29
+
+我觉得跟着上帝之杖一起回来比较有意思<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
