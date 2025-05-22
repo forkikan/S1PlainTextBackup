@@ -268,3 +268,14 @@ SR自由主要还是给无氪阵容用的，而且要SP化，目前SP芯片没�
 
 哎呀，还准备做任务拿下3星番茄的，怎么关了
 
+
+*****
+
+####  电脑死机  
+##### 1507#       发表于 2025-5-22 08:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67839308&amp;ptid=2071758" target="_blank">格雷殿下 发表于 2025-5-22 03:40</a>
+
+哎呀，还准备做任务拿下3星番茄的，怎么关了</blockquote>
+出bug了，无限再动，看能不能补偿点钻石吧
+
