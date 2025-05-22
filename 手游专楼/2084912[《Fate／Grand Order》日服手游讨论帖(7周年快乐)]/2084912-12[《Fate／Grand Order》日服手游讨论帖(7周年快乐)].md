@@ -562,3 +562,37 @@
 小麻雀这么变态的吗</blockquote>
 有特攻啊，小麻雀混沌/恶特攻分开的，刚好武藏是混沌/善。
 
+
+*****
+
+####  khxooo  
+##### 16773#       发表于 2025-5-22 02:05
+
+50次搞掂，可以休息了。
+
+*****
+
+####  qixinno2  
+##### 16774#       发表于 2025-5-22 06:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67838749&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-5-21 22:05</a>
+
+欧 羡慕</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">免费的伊织有什么可欧的
+
+*****
+
+####  千叶铁矢  
+##### 16775#       发表于 2025-5-22 08:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67838829&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2025-5-21 22:28</a>
+我刷冠剑本用花嫁尼禄加兰陵王当辅助，结果兰陵王在场固定触发武藏退场彩蛋，临终前喃喃自语着“美少年还不 ...</blockquote>
+凯撒也能当拐
+
+*****
+
+####  qixinno2  
+##### 16776#       发表于 2025-5-22 08:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">靠着嫖大佬的嫁王和麻雀跟伊织哥砍完50次了 没有强力单体打手真蛋疼
+
