@@ -16232,3 +16232,28 @@ image.png
 
 <img src="https://img.stage1st.com/forum/202505/22/103216n7ay31fxkxckfcbk.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 14770#       发表于 2025-5-22 10:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67839966&amp;ptid=2209276" target="_blank">王留美 发表于 2025-5-22 10:27</a>
+
+00剧场版一定是不如预期的
+
+要不然不至于定番的HG最终决战装备和TransAM配色都没出，1/100也没出
+
+当然你要 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">age那个简直是市场部脑子进水的操作，我就不懂为啥他们会觉得特意低幼化的画风能讨好他们认为的低龄段观众，我小学生的时候看seed看w看的多开心，age绿茶篇的人设机神真心不喜欢
+
+
+*****
+
+####  白起的老公  
+##### 14771#       发表于 2025-5-22 10:55
+
+本来想完结再补番的，怎么隔壁楼已经开香槟庆祝好似了？<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
