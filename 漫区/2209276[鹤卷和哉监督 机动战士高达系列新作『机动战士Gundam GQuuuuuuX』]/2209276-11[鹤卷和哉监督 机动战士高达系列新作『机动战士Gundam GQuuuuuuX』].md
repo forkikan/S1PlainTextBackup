@@ -376,3 +376,60 @@ nbht再**，也反证不了他觉得烂的片不是烂片，这两者并不冲�
 这样能解释很多问题</blockquote>
 <img src="https://static.stage1st.com/image/smiley/bundam2017/011.png" referrerpolicy="no-referrer">：？？？我们骨架家族没有这么菜的，见不得这个
 
+
+*****
+
+####  无念  
+##### 14841#       发表于 2025-5-22 16:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67841419&amp;ptid=2209276" target="_blank">洛克萨斯 发表于 2025-5-22 16:40</a>
+：？？？我们骨架家族没有这么菜的，见不得这个</blockquote>
+仔细看发光的是爆甲后留在表面的布带一样的东西，按照人体来说更像是筋吧，或者说是主要肌肉群，里面估计还是普通骨架，里面装着炉子，米飞，以及塞可缪控制器啥的
+他联邦要是有可动骨架那估计绿叔叔那个也是可动骨架了，有可动骨架汉谟拉比也不会特意提一嘴变形慢吧
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  CSWQ  
+##### 14842#       发表于 2025-5-22 16:47
+
+<blockquote>zing223 发表于 2025-5-22 16:34
+赞同漏油，我甚至会觉得楼里的部分猜测有点陈腐...主视觉图这样一个酸性的色彩设计，照说就不太可能再把 ...</blockquote>
+说是要做出区分那做出什么区分了呢，把扎比家召唤回来吗？
+
+*****
+
+####  Launce  
+##### 14843#       发表于 2025-5-22 16:48
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这对吗
+
+<img src="https://img.stage1st.com/forum/202505/22/164824ajbwcvka6c34agbd.png" referrerpolicy="no-referrer">
+
+<strong>C`][`8FW5G(YHZDOY(MNB.png</strong> (242.4 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 16:48 上传
+
+<img src="https://img.stage1st.com/forum/202505/22/164830uctkth7xu48mmv4h.png" referrerpolicy="no-referrer">
+
+<strong>5]P`BSR@5)3VS(T$XI$E0AE.png</strong> (114.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 16:48 上传
+
+
+*****
+
+####  zing223  
+##### 14844#       发表于 2025-5-22 16:52
+
+<blockquote>CSWQ 发表于 2025-5-22 16:47
+说是要做出区分那做出什么区分了呢，把扎比家召唤回来吗？</blockquote>
+我觉得这个剧情改动部分完全是恶趣味，不是有啥创作意义的改动点...
+
+区分我觉得是人物，片子里的人物比起z和0079的思维模式比起来，起码不是那么在二战后尝试去重现战争过程这种意图下的思维模式
+
