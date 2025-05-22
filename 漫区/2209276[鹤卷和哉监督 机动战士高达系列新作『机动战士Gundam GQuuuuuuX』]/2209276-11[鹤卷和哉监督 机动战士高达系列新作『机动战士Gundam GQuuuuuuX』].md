@@ -935,3 +935,11 @@ uc if和麻球喵安休斯三人故事这两条线非常割裂。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">钢针，不是G夸的side6太硬，而是正史的殖民卫星太脆了。
 
+
+*****
+
+####  aptx8285144  
+##### 14888#       发表于 2025-5-22 20:48
+
+麻球，黑发两个太像棋子<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，修司又溜得利索，这三个怎么说呢，如果说这是对逆夏的致敬，夏亚这角色反而更像夏利亚，阿姆罗就不知道是谁来演了
+
