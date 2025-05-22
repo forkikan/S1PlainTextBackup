@@ -1700,3 +1700,16 @@ top2你就不能把其当top1的续作来看，建议当成独立作品，如果
 还是说根本没有在看 ...</blockquote>
 这种看播完之后会不会搞那种霓虹Z世代随机采访节目吧
 
+
+*****
+
+####  灵魂收割机  
+##### 14953#       发表于 2025-5-23 00:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67842853&amp;ptid=2209276" target="_blank">qiyu1234 发表于 2025-5-23 00:06</a>
+
+所以这片所谓要描写的日本Z世代是怎么看待这片的呢？
+
+还是说根本没有在看 ...</blockquote>
+在买新出的红白谷，新高达一边去<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer"> 
+
