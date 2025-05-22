@@ -1244,3 +1244,24 @@ nt发动神棍表演都要靠米粒当材料的、
 呃呃，机战黑不动就开始骂为啥不多死点人了，无敌了</blockquote>
 哪黑不动了，俩强化人一个挂机一个弱智<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  璇瑢子R  
+##### 14915#       发表于 2025-5-22 22:32
+
+我倒是觉得最后几集泽克诺瓦不要变得太廉价随便用
+穿越系能力用多了故事总是圆不上的
+
+*****
+
+####  Sliurus  
+##### 14916#       发表于 2025-5-22 22:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67842497&amp;ptid=2209276" target="_blank">久井路路 发表于 2025-5-22 21:51</a>
+
+说起来我有两个关于NT感应的问题想问下UC老人
+
+1. 麻球也算是个NT，第三集远在学校脑门过个电精准定位牢修 ...</blockquote>
+NT感应确实很薛定谔，有时候能远距离交流，但也可能化个妆面对面都认不出，还经常有认错人的环节
+

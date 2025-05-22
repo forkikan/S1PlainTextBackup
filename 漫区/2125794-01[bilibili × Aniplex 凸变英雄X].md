@@ -2327,3 +2327,55 @@ X - 未知
 </blockquote>
 默杀年龄那么大吗？
 
+
+*****
+
+####  Piano-Forest  
+##### 219#         楼主| 发表于 2025-5-22 22:33
+
+nice篇
+
+[https://weibo.com/u/2012573973](https://weibo.com/u/2012573973)
+
+奈斯和破坏王的原案解禁
+
+充满“弹簧刀”的《凸变英雄X》第二集都看了吗？趁机解禁一波奈斯篇的人设原案
+
+破坏王的设计出发点——作为完美代言人奈斯的宿敌，自然是“不完美”的代言人！于是，一个名为“不对称之王”的古怪形象就这么出现在脑海中。当然，这个怪味十足的名字很快就被李导枪毙了[裂开]～无论是脸上的美人痣还是英雄状态下各种逼死强迫症的细节，无不在暗示两人的对立和关联。而在DTY老师独特而充满魅力的美术风格夹持下，一个足以媲美“完美先生”的宿敌诞生了！至于大女主萧月卿，英雄状态的概念借鉴了早期女团的制服感，而平时的状态就简单多了：一副生无可恋只想下班摆烂的女孩子形象……对于这种状态可是太有体会了[暗中观察R]当然，要在同一个角色身上体现“摆烂”和“女团”并且不能感觉像两个人，这里面神态微妙的差别还是琢磨了一阵子～
+
+最后感叹一下，为凸变角色美术风格化和人物立绘的DTY和ShaDow@SpeakLOUDER_ 两位老师实在是太出色了！凸变中角色能那么受欢迎，多亏两位老师赋予人物无穷的魅力！
+<img src="https://p.sda1.dev/24/074cf0ddaf2c612e28044c9af0a594d6/77f57115gy1i0g6j6fkrmj21ma0sgwln.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/ec515040836b20905689bfbfbb557caf/77f57115gy1i0g6j6ru1rj21ea0u0gqi.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/cef0703059c616f7dd4cbdc4145e09fb/77f57115gy1i0g6j5y7jpj21lz0u07bj.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/f993b1b1211ab75249a92baa09aa57bd/77f57115gy1i0g6j755cvj20yj0u0wjf.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/6b2ac2cfcbca356a7d94a8ea0f1d7024/77f57115gy1i0g6j7ta1hj218q0u0n3s.jpg" referrerpolicy="no-referrer">
+
+分享第一集里最爱的角色boss的灵感原型～[笑cry]那时还没有尊者，只有高委员，还有阳光普照里被时间生活反复殴打依然不屈而坚韧的老爸～回头细想一下——当初李导说第一集需要一个boss，是不是和我理解的boss是同一个意思的boss呢……[白眼]
+<img src="https://p.sda1.dev/24/11e42af46d11e6f448b0fe014cb35636/77f57115gy1i0igc4ciexj21vo0u0n7t.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/c8c72c112bf6092bb5edbb2f4021d4ac/77f57115gy1i0igc94vuzj20j00ludh4.jpg" referrerpolicy="no-referrer">
+
+陈以文（同学麦娜丝）
+<img src="https://p.sda1.dev/24/fe92c076d8311fa0c18d6befb7bb7169/77f57115gy1i0igc5s705j20u00gv74x.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/155d4efc092f01aea01a9b06c5396780/77f57115gy1i0igc3vvcij20u00gvjsq.jpg" referrerpolicy="no-referrer">
+
+第三集反派原案解禁
+
+很多观众都猜出第三集大反派的灵感来自“狼外婆”[允悲]没错～因为最早构思这个故事时曾想把她设定成一个因为种种原因而把小孩拐进下水道的坏蛋，一个另类“狼外婆”的形象就自然而然地出现了，处于标新立异的考量，觉得“外婆”不一定是年纪大的，也许这会是个很年轻的“外婆”，于是就把和“外婆”有关的“做家务”概念和能突出“年轻女性”气质的概念结合，发现女仆装也许是个不错的选择………因为我很喜欢狼人，所以还偷偷加了个“头发包裹住头骨面具变成真正狼人，成为一个身材高大的金刚芭比”这种设计～不出意外的，这种复杂而带着怪味的想法在随后多次编创讨论中根据故事需要被慢慢优化和简化成现在看到的蛊狼形象了～至于魔影，倒是出乎意料地一下子就定下了基本形象[偷笑]
+<img src="https://p.sda1.dev/24/49a71073d18483b63a0e83ed66337123/77f57115gy1i0onb3wdgtj20yu0u0jur.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/032c4940c44557095fb6bf25c6261a28/77f57115gy1i0onb5ytaxj21k50u0gts.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/849a2e3909dd87f7f5673b9ed1d822e7/77f57115gy1i0onb6za8cj213o0u0jxg.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/604d6f35c4a12f886b4de977eaee26e6/77f57115gy1i0onb88vzyj21ky0u07cr.jpg" referrerpolicy="no-referrer">
+
+英雄不倒原案解禁
+
+不倒和奈斯是最早被李导提及的英雄，这个角色能非常直接且准确地展示出凸变X最基础的设定概念。而于我来说，当听到“不能倒下”的想法时，脑海中立刻蹦出一个“想努力蹲下的强壮大叔”的姿态，于是很快地就把这个形象画了下来。我希望通过外观就能向观众传达出“不倒”的概念，所以尽量简化上身衣着而把更多的设计全部加载在腿部装甲上，而早期原案中刻意加上的黑眼圈和胡子拉渣是因为他“长期只能站着睡觉”，所以联想一下，不倒的精神状态一定很接近每天熬夜赶稿的我吧……当然，为了兼顾帅气，最终还是去掉了胡子和过浓的黑眼圈，加上的护腰，是因为当时长期坐着画图腰痛发作，于是感同身受地忍不住联想：这么长期直立，不倒绝对会有椎间盘突出症的危险，他一定需要一个护腰！
+<img src="https://p.sda1.dev/24/a122bfcef85e29d162146fb5a2cbba62/77f57115gy1i0t00p0r5dj21bj0u0dqy.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/88575cf2c1ce3f583179d2b0839f7f02/77f57115gy1i0t00pjt32j21fk0u0jys.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/41b1b0e21e575a25f8937bba300be000/77f57115gy1i0t00qg4a9j215j0u0gra.jpg" referrerpolicy="no-referrer">
+
+“天眼”最初的原案分享
+
+凸变第四集中，大家是否被“天眼”查的能力威慑到了呢？[笑cry] 打假王启士应该如何升级成boss，他的能力该如何展示？特别是李导还提出最终的决战希望能反传统，改用“最返璞归真的战斗方式来决战”（贴合普通人林凌的概念）那反派的战力也不能过于强大……这问题确实困扰了我一阵子，然后忽然就想起了尼尔盖曼的《美国众神》——在这个被各种信息裹挟的时代，一个能随意操控和掌握大量信息的反派应该是很强大的吧，但除此之外，整天躲在幕后靠挖黑爆料的他，体能应该不怎么行，如果是肉搏那肯定不会太厉害[偷笑]——这样既“强”又“弱”也许可行吧……所以在最初的构想中，天眼的脑袋后面会有一个由不断闪烁滚动着的信息流构成的“圣光”，既代表着他在不断链接网络获取海量信息，也能让观众一眼看去，有种“佛光”在脑后的感觉，有种信息时代里产生的“信息之神”的即视感，而他依靠装备控制着小机器人，如果装备被破坏，丧失了对小机器人的控制，那论战力体力，也就是个战斗力只有5的渣渣～林凌要战胜他也变成了可能～
+<img src="https://p.sda1.dev/24/c76c3443cfd3d989eeee7fcb1458d9b8/77f57115gy1i0yv2oavckj20t20ixju8.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/543fca9bca0e83476a50ee81d4835147/77f57115gy1i0yv2pa8bkj21910u00yk.jpg" referrerpolicy="no-referrer">
+
