@@ -1447,3 +1447,61 @@ side6的矛盾没有这三个人也会展开就对了 这就是老害游乐园
 
 当时1和2连着看的，看完只觉得2能配得上续作两个字么
 
+
+*****
+
+####  nemuru_baka  
+##### 14932#       发表于 2025-5-22 23:32
+
+绿叔叔不会是个正面角色吧，应该从始至终是个看起来冷静的疯子，把基西莉亚和基连都杀掉不然会发生内战这个说法根本站不住脚。如果故事真就按夏利亚的剧本来拍，也太乳鸭了，把这个视频发给原世界线的夏亚看会是什么感受<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">。
+
+比起来大烂片常有的人物形象不同集数之间像是失忆了一样，GQX的人物形象算得上连贯，算是现在还能感到安心的点了。
+
+*****
+
+####  岸浪白野  
+##### 14933#       发表于 2025-5-22 23:32
+
+问就是核心<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+背后那些更宏大的大人物那些事还是交给大人物处理
+
+<img src="https://img.stage1st.com/forum/202505/22/232436h3p4go2coo04a46n.png" referrerpolicy="no-referrer">
+
+<strong>$R`)AR37_5]`5ARLO[`HLYL.png</strong> (825.93 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 23:24 上传
+
+*****
+
+####  Wondering  
+##### 14934#       发表于 2025-5-22 23:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67842772&amp;ptid=2209276" target="_blank">Devola 发表于 2025-5-22 23:26</a>
+
+所以top2好在哪，来点老资历吹一吹
+
+当时1和2连着看的，看完只觉得2能配得上续作两个字么
+
+ ...</blockquote>
+top2你就不能把其当top1的续作来看，建议当成独立作品，如果连着看的确怪味很大<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我聞如是  
+##### 14935#       发表于 2025-5-22 23:35
+
+<blockquote>猪突猛进R 发表于 2025-5-22 22:41
+泽克诺瓦目前至少用了3次：
+
+1.79鸭炸了所罗门（虽然不是他本意）。
+
+2.第4集牢修杀魔女，有个高达眼睛的特 ...</blockquote>
+魔女戰那個，個人覺得是修司主動發功想把魔女拉進kirakira聊天室
+
+發功是引起Zeknova的前一階段但不是Zeknova的感覺
+
+除非你想說瞬移繞後是Zeknova<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
