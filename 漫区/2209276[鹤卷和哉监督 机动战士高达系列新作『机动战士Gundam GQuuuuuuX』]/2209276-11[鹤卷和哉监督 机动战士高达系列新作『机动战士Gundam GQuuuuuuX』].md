@@ -1199,3 +1199,48 @@ gqux验证nt应该是能不能听到kirakira发动中的女鬼唱歌，这个是
 
 第七集已经点明泽克诺瓦和米粒有关了
 
+
+*****
+
+####  adretyu67.  
+##### 14911#       发表于 2025-5-22 22:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67842575&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-22 22:17</a>
+
+泽克诺瓦把米粒转移走了，所以感受不到了？
+
+第七集已经点明泽克诺瓦和米粒有关了</blockquote>
+zeknova当然和米粒有关啊。
+
+nt发动神棍表演都要靠米粒当材料的、
+
+*****
+
+####  久保由利香  
+##### 14912#       发表于 2025-5-22 22:21
+
+呃呃，机战黑不动就开始骂为啥不多死点人了，无敌了
+
+
+*****
+
+####  花達香奈  
+##### 14913#       发表于 2025-5-22 22:26
+
+<blockquote>ryanghj 发表于 2025-5-22 22:17
+泽克诺瓦把米粒转移走了，所以感受不到了？
+
+第七集已经点明泽克诺瓦和米粒有关了
+</blockquote>
+这么一说没有zeknova带走米粒在通信障害条件下番茄被抓现行也不会马上被天眼识别社死了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灵魂收割机  
+##### 14914#       发表于 2025-5-22 22:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67842583&amp;ptid=2209276" target="_blank">久保由利香 发表于 2025-5-22 22:21</a>
+
+呃呃，机战黑不动就开始骂为啥不多死点人了，无敌了</blockquote>
+哪黑不动了，俩强化人一个挂机一个弱智<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
