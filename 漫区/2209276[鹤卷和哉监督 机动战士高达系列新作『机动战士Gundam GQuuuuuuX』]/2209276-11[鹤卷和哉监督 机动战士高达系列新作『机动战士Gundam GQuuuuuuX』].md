@@ -124,3 +124,30 @@ gqx那个机设，手绘吗。。。
 https://www.zhihu.com/question/1908350913120276849/answer/1908498441643991731
 gqux机战的细节是真不少，nbht看不到看不懂当没有罢了
 
+
+*****
+
+####  lickey  
+##### 14815#       发表于 2025-5-22 14:33
+
+难道nbht这段话最幽默的不是下面的“合格分就是8分”，一句话给g复国和闪哈打成不合格<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sauron.j  
+##### 14816#       发表于 2025-5-22 14:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67840910&amp;ptid=2209276" target="_blank">oi99o 发表于 2025-5-22 14:10</a>
+
+其他先不说，手绘机战是真的不用指望了
+
+论坛助手,iPhone</blockquote>
+这年头的高质量手绘机战全在手游UCE里了
+
+*****
+
+####  千恋万花  
+##### 14817#       发表于 2025-5-22 14:36
+
+目前尼娅安对柊二的感情是恋爱还是别的没有定论吧（是不是三角恋也没有定论），我感觉是看见玛秋的计划不顺利，自己又被通缉，柊二的藏身处也快被人举报出去，情急之下准备拉着柊二跑路（但被问到具体逃去哪里也答不上来）
+
