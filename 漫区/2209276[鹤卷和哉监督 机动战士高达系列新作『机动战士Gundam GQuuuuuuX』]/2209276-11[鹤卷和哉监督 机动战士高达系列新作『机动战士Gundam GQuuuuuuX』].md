@@ -831,3 +831,13 @@ uc if和麻球喵安休斯三人故事这两条线非常割裂。
 
 别惦记FLCL和TOP2了，鹤卷上一部作品是龙牙医
 
+
+*****
+
+####  Gysumitka  
+##### 14878#       发表于 2025-5-22 19:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67841889&amp;ptid=2209276" target="_blank">赤黑的假面 发表于 2025-5-22 19:06</a>
+高吧给我看懵了</blockquote>
+播了七集了，还不知道编剧是谁<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer"> 新生代编剧在哪？
+
