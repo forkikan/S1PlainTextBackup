@@ -1353,3 +1353,17 @@ B站有视频，教你样本会刷在什么样的地形上的。而且主线、�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  保科智子  
+##### 6049#       发表于 2025-5-23 00:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67842624&amp;ptid=2170852" target="_blank">ParadiseMartyr 发表于 2025-5-22 22:37</a>
+好麻烦，还是直接氪吧
+
+—— 来自 鹅球 v3.3.96</blockquote>
+别，找个虫子1级图基本都是farm队，2人最多半小时能刷1k。就是落地各自往不同方向跑，走到附近会地图上有问号和人物语音。数量固定发光飞机刷1个，集装箱刷2个，双人门刷3个，其他问号点一概不刷货币。带上喷气背包，手雷或者爆炸武器，扫描被动。落地往问号方向走就是了不用带脑子的。最多看下b站集装箱的几个地形图不然可能找不到门。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR FLC-AN00, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
