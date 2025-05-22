@@ -3711,3 +3711,17 @@ https://www.bilibili.com/video/BV1anJJzuEK8
 
 真漂太久有点不太合适，估摸这次顶多1年
 
+
+*****
+
+####  leleq  
+##### 321#       发表于 2025-5-23 00:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67842287&amp;ptid=2196984" target="_blank">TOYSTORY 发表于 2025-5-22 20:57</a>
+https://www.bilibili.com/video/BV1anJJzuEK8
+
+第8話「おしおきはグー！なかなおりはパー！」</blockquote>
+这集不是说了八千代可以靠太阳能发电吗
+
+—— 来自 HUAWEI NOH-AN00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
