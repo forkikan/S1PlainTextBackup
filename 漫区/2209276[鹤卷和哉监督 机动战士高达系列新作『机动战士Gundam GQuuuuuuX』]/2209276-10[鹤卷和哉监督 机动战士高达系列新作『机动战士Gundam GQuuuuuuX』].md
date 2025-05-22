@@ -16140,3 +16140,17 @@ Grcb9kOa4AAnElA-2.jpg
 现代NT：混战之中外挂一开直接敌我全员下线失去战斗力看我一个主角装逼
 未来NT：这个Kirakira真的正啊，我看不到Kirakira要疯了，啊啊啊啊啊给我Kirakira，Motto Kirakira
 
+
+*****
+
+####  王留美  
+##### 14768#       发表于 2025-5-22 10:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67839293&amp;ptid=2209276" target="_blank">洛克萨斯 发表于 2025-5-22 03:03</a>
+ 00的问题是财团b大手笔投入没有在商业上达到他们的预期，毕竟前面是高世祖seed，就整个高达ip来说00的吸金 ...</blockquote>
+00剧场版一定是不如预期的
+要不然不至于定番的HG最终决战装备和TransAM配色都没出，1/100也没出
+当然你要说这本身是的销售策略导致的那也是事实
+
+事实上之所以AGE要去找L5来搞也是看到客户年龄层的问题觉得不能吃老本要再拉新人入坑了，只是没想到不仅AGE没成功，老本还一吃20年都没吃完
+

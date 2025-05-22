@@ -201,3 +201,13 @@
 
 所以为什么樱能留宿，惠理香不能
 
+
+*****
+
+####  Saber琪  
+##### 2339#       发表于 2025-5-22 10:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67838783&amp;ptid=2152053" target="_blank">虚无缥缈的光阴 发表于 2025-5-21 22:15</a>
+可能古代的石蒜组织感觉会是圣殿骑士团/上古维序者or刺客/无形者的一部分吧</blockquote>
+若山诗音是星球大战粉，自己的广播里穿过电影里面那种武士服，伊右群还根据这个画过绝地武士的tkn，很帅
+
