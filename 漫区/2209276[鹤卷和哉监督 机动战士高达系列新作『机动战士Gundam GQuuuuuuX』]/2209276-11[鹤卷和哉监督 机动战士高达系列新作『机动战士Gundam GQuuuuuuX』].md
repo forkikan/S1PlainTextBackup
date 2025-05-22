@@ -151,3 +151,24 @@ gqux机战的细节是真不少，nbht看不到看不懂当没有罢了
 
 目前尼娅安对柊二的感情是恋爱还是别的没有定论吧（是不是三角恋也没有定论），我感觉是看见玛秋的计划不顺利，自己又被通缉，柊二的藏身处也快被人举报出去，情急之下准备拉着柊二跑路（但被问到具体逃去哪里也答不上来）
 
+
+*****
+
+####  ARATANG  
+##### 14818#       发表于 2025-5-22 14:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67840854&amp;ptid=2209276" target="_blank">仟音一心 发表于 2025-5-22 13:55</a></blockquote>
+nbht的鉴赏能力还是一边去吧，看都看不懂还谈什么手绘
+
+*****
+
+####  无动于衷  
+##### 14819#       发表于 2025-5-22 14:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67839912&amp;ptid=2209276" target="_blank">AkaiSuisei 发表于 2025-5-22 10:16</a>
+
+传统NT：混战之中高度通感躲避威胁的同时，听到了大量逝去生命的悲鸣，精神受到冲击然后疯特了
+
+现代NT：混 ...</blockquote>
+秒变禁毒宣传片是吧
+
