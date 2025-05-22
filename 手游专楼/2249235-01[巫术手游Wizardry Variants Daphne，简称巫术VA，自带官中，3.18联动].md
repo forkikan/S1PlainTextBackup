@@ -1106,3 +1106,11 @@ roll到13%攻和18攻就可以用+4-6攻击改掉防御，然后只强化第一�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">gbf也是后面才真的开杀了，之前看群里说现在还有？不过我弃了有3年了也不知道是真是假了。
 
+
+*****
+
+####  碧空之歌P  
+##### 370#       发表于 2025-5-23 07:26
+
+到18层boss油尽灯枯了，17层还没奖励，可恶
+

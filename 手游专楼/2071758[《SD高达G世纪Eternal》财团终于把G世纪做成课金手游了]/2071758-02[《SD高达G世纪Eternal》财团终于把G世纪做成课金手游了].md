@@ -398,3 +398,18 @@ ULT机还可以，但有SP灾厄跟神意之后还有没有必要练不好说，
 
 现在的船是这期的船，斧王和红高达也能有加成
 
+
+*****
+
+####  体制  
+##### 1518#       发表于 2025-5-23 07:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67843033&amp;ptid=2071758" target="_blank">格雷殿下 发表于 2025-5-23 03:22</a>
+刚出来个天鹅，已经有风铃了，要一起带吗，之前是用一个等级很低的红高达的，
+
+现在的船是这期的船，斧王和 ...</blockquote>
+天鹅能打uc剧本，风灵打原创剧本，不冲突。
+而且ur支援驾驶员比ssr支援驾驶员强太多。
+
+—— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
