@@ -88,3 +88,24 @@
 
 2025-5-21 21:51 上传
 
+
+*****
+
+####  holofan  
+##### 11038#       发表于 2025-5-22 18:42
+
+<img src="https://img.stage1st.com/forum/202505/22/184244p5puww0055jdje66.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (13.54 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 18:42 上传
+
+*****
+
+####  holofan  
+##### 11039#       发表于 2025-5-22 20:08
+
+你就是holo的唯一切片鉴定大师了
+
