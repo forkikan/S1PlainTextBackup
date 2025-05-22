@@ -1914,3 +1914,21 @@ top2你就不能把其当top1的续作来看，建议当成独立作品，如果
 别惦记FLCL和TOP2了，鹤卷上一部作品是龙牙医</blockquote>
 龙的牙医还好吧。不过这部主要是鹤卷跟舞城王太郎搞出来的，榎户洋司基本上是走个过场。参与度舞城50％，鹤卷40％，榎户10％的样子。
 
+
+*****
+
+####  Libartas  
+##### 14967#       发表于 2025-5-23 01:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有没有一种可能，现在这个夏利亚其实是鸡胯时间线上的裤袜脱落，上次赛可诺瓦也是鸭子故意搞出来混淆扎比家监视的障眼法，鸭子换夏利亚马甲继续他的对扎比家复仇计划
+
+*****
+
+####  希望之异热同心  
+##### 14968#       发表于 2025-5-23 01:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67842974&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-23 01:36</a>
+
+其实我感觉夏利亚最后肯定是要吃瘪的</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我猜想是最后搞不好麻球会修正夏利亚一顿，感觉夏利亚对夏亚的追求比麻球现在追求修斯还要更癫，仔细想想对夏利亚来说他也是找不到对他最重要的MAV（夏亚），正如麻球现在已经找不到修斯一样，制止麻球暴走时说的那一句“抑制自己的怒火”看起来像自己也是个过来者。
+
