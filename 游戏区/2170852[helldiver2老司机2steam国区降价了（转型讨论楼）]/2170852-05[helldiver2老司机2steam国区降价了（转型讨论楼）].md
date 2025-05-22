@@ -1257,3 +1257,29 @@ n10以下的队友全看脸，n10无论国人老外大都是熟练工
 
 —— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  赤井稻妻  
+##### 6042#       发表于 2025-5-22 11:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67840037&amp;ptid=2170852" target="_blank">ParadiseMartyr 发表于 2025-5-22 10:40</a>
+
+主要是找不到啊，什么标本也是随缘拿的，都不知道怎么搜刮
+
+有群吗？就顶楼的群么
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+贴吧有给蓝币加个大箭头的mod，还有样本高亮mod
+
+*****
+
+####  ParadiseMartyr  
+##### 6043#       发表于 2025-5-22 11:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67840427&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2025-5-22 11:46</a>
+贴吧有给蓝币加个大箭头的mod，还有样本高亮mod</blockquote>
+不会封号吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
