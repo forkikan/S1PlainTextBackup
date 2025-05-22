@@ -2299,3 +2299,18 @@ X - 未知
 
 阿虎 - 13 (28AC)
 
+
+*****
+
+####  新HGCG  
+##### 217#       发表于 2025-5-22 17:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67839657&amp;ptid=2125794" target="_blank">补丁 发表于 2025-5-22 09:12</a>
+
+集卡社的人物卡上年龄，林凌能才21吗？
+
+X - 未知</blockquote>
+集卡社是什么
+
+国内的出集换卡的厂家？
+

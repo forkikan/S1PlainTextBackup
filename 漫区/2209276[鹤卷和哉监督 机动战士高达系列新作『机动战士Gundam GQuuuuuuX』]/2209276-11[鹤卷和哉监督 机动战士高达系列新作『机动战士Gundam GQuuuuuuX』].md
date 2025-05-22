@@ -453,3 +453,49 @@ nbht再**，也反证不了他觉得烂的片不是烂片，这两者并不冲�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  岸浪白野  
+##### 14847#       发表于 2025-5-22 17:45
+
+魔女的小游戏
+[スーパーユニカム スティグマ大作戦](https://bocchinet.com/GQstigma/)
+
+<img src="https://img.stage1st.com/forum/202505/22/174353ukzakeieefkka5e3.png" referrerpolicy="no-referrer">
+
+<strong>MSU)Y%3({7K0IYIQWDRI0YK.png</strong> (927.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 17:43 上传
+
+<img src="https://img.stage1st.com/forum/202505/22/174524o4e5jtq5u5ueuele.png" referrerpolicy="no-referrer">
+
+<strong>P~X2R~P_`757[PGWF1Z1EK4.png</strong> (955.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 17:45 上传
+
+
+*****
+
+####  玖羽  
+##### 14848#       发表于 2025-5-22 17:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67841446&amp;ptid=2209276" target="_blank">zing223 发表于 2025-5-22 16:52</a>
+
+我觉得这个剧情改动部分完全是恶趣味，不是有啥创作意义的改动点...
+
+区分我觉得是人物，片子里的人物比起 ...</blockquote>
+问题是吧，这样一来（就像有人已经说过的），
+
+如果这个剧情把把高达换成摩托，黑拳换成飙车，krkr换成嗑药(和SEX)，似乎也没有什么违和感
+
+想表达“不满压抑生活找刺激改变现状”不是不行，但是问题在于，它把这个主题过度锚定在修司这个实际存在的男性个体身上，
+
+就导致给人的观感<strong>很像</strong>……“精神小妹争抢男人”
+
+你又不刻画战争，就算这是间战期的中立国，离战争比较远，黑拳的部分也没有什么深入描写，和黑拳相关的所有设定都很工具，那还剩下什么
+
