@@ -1891,3 +1891,26 @@ top2你就不能把其当top1的续作来看，建议当成独立作品，如果
 
 其他的贴图还看不出内容物
 
+
+*****
+
+####  ryanghj  
+##### 14965#       发表于 2025-5-23 01:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67842960&amp;ptid=2209276" target="_blank">巨馍蘸酱 发表于 2025-5-23 01:26</a>
+
+这种情况是作者和观众的视角不一样导致的。作者拥有上帝视角，能看到整个故事的全貌，而观众只能看到作者 ...</blockquote>
+其实我感觉夏利亚最后肯定是要吃瘪的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hahah  
+##### 14966#       发表于 2025-5-23 01:42
+
+<blockquote>ティグル 发表于 2025-5-22 19:31
+还是那句话
+
+别惦记FLCL和TOP2了，鹤卷上一部作品是龙牙医</blockquote>
+龙的牙医还好吧。不过这部主要是鹤卷跟舞城王太郎搞出来的，榎户洋司基本上是走个过场。参与度舞城50％，鹤卷40％，榎户10％的样子。
+
