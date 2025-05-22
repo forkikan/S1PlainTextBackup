@@ -679,3 +679,31 @@ GQX 整集在跑路，最后吼了一嗓子要暴走给一枪寸止
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  玖羽  
+##### 14864#       发表于 2025-5-22 18:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67841744&amp;ptid=2209276" target="_blank">88ace88 发表于 2025-5-22 18:20</a>
+
+角色没立起来，死的再多也不过是一串数字，0080仅凭巴尼和克丽丝这一对(克丽丝甚至都没死），也足够有uc味 ...</blockquote>
+独眼巨人小队：<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+0080的切入点选得好，它刻画的还是“大人的战争”，小孩(包括新兵巴尼)纯属添乱
+
+这里正好相反，“小孩”三人组真的掌握着关键力量
+
+
+*****
+
+####  88ace88  
+##### 14865#       发表于 2025-5-22 18:31
+
+<blockquote>玖羽 发表于 2025-5-22 18:28
+独眼巨人小队：
+
+0080的切入点选得好，它刻画的还是“大人的战争”，小孩(包括新兵巴尼)纯属添乱
+</blockquote>
+所以我说仅凭嘛，就是没多打哪怕两个字，不然就不会有歧义了。
+

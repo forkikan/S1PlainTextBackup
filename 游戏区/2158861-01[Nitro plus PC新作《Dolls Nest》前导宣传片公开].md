@@ -40,3 +40,12 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">先把村正和呆萌笨的联动铠壳吐出来啊，该不会放图的时候刚想到要建模吧
 
+
+*****
+
+####  madcow  
+##### 219#       发表于 2025-5-22 18:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">steam新公告是不是在说存档损坏的把存档发去他们邮箱他们修修看。
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这也太小作坊行为了吧
+
