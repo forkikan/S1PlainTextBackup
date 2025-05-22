@@ -951,3 +951,24 @@ uc if和麻球喵安休斯三人故事这两条线非常割裂。
 
 麻球喵安2个女主塑造的点都落到了莫名其妙的kirakira上面，然而这个又是最终谜题，运气好下集给你揭秘个大半，那还有救，就怕是最后一集才来揭秘然后光速和解<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ryanghj  
+##### 14890#       发表于 2025-5-22 21:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67842232&amp;ptid=2209276" target="_blank">aptx8285144 发表于 2025-5-22 20:48</a>
+
+麻球，黑发两个太像棋子，修司又溜得利索，这三个怎么说呢，如果说这是对逆夏的致敬，夏亚这角色反而更像夏 ...</blockquote>
+夏利亚我感觉最后会像时臣一样<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ryanghj  
+##### 14891#       发表于 2025-5-22 21:14
+
+我想知道难道大的=死很多人吗
+
+这集还不算大吗？<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
