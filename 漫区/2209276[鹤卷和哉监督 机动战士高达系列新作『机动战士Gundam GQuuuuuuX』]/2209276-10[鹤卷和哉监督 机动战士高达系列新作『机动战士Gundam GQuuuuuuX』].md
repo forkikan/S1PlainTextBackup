@@ -16431,3 +16431,56 @@ age那个简直是市场部脑子进水的操作，我就不懂为啥他们会�
 
 那万一鹤卷是小说版死忠这是艾尔美斯二号机呢？
 
+
+*****
+
+####  秋月孝三  
+##### 14789#       发表于 2025-5-22 12:07
+
+<img src="https://img.stage1st.com/forum/202505/22/120649o7nlkbn3h2hf2s93.jpg" referrerpolicy="no-referrer">
+
+<strong>dksg.jpg</strong> (112.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 12:06 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  花達香奈  
+##### 14790#       发表于 2025-5-22 12:09
+
+op卡其脱离太6人只有小森没上过机
+喵安被恶心杂鱼君带到紫婆那边去了九成就成抹布了，这下小森和番茄有共同的情敌人了，组新cp抹布出道也很合理吧，毕竟绿叔叔超规格了而且只认定了那位大人<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  syndrome2032  
+##### 14791#       发表于 2025-5-22 12:12
+
+库斯克艾尔这角色除了比拉拉更色更容易有⭐幻想以外毫无意义吧。
+
+我也没搞懂为啥光头在小说版79给她发便当要强调这个。后来在f91小说版光头写扎比尼杀黑妹又来了一次。
+
+*****
+
+####  ryanghj  
+##### 14792#       发表于 2025-5-22 12:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67839646&amp;ptid=2209276" target="_blank">虚无缥缈的分身 发表于 2025-5-22 09:10</a>
+真卖这对女主嬷真会破大防了吧
+
+我在微博上看到番茄粉女嬷对三角恋中心不是番茄而是修斯而不满了，然后一 ...</blockquote>
+看推上说的
+
+夏利亚和玛秋是被邪恶魔法师抓起来的公主的故事
+
+首席哥和喵安是被骑士救走的公主的故事
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
