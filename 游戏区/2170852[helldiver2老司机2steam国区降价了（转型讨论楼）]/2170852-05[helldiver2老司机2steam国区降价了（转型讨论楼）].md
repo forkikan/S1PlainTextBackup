@@ -1283,3 +1283,16 @@ n10以下的队友全看脸，n10无论国人老外大都是熟练工
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  赤井稻妻  
+##### 6044#       发表于 2025-5-22 11:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67840432&amp;ptid=2170852" target="_blank">ParadiseMartyr 发表于 2025-5-22 11:47</a>
+
+不会封号吗
+
+—— 来自 鹅球 v3.3.96</blockquote>
+开挂都不封号的好吧，管理式民主不会剥夺任何人成为绝地战兵的权利
+

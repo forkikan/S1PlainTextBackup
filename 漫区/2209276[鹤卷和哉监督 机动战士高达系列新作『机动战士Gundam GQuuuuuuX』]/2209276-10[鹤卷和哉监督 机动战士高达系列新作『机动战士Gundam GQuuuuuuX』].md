@@ -16384,3 +16384,50 @@ age那个简直是市场部脑子进水的操作，我就不懂为啥他们会�
 
 千言万语汇成一句话，代便Σ
 
+
+*****
+
+####  夜火雷纹  
+##### 14785#       发表于 2025-5-22 11:49
+
+鹤卷，你算计我！
+
+—— 来自 Xiaomi 2407FRK8EC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  EFSF  
+##### 14786#       发表于 2025-5-22 11:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67839511&amp;ptid=2209276" target="_blank">bbjajdd 发表于 2025-5-22 08:16</a>
+
+精神病挡完木马的mega粒子炮后双臂有个冒烟特效
+
+没准抗完那一下后if就暂时失效了 ...</blockquote>
+还是想太多，鹤卷想不了那么多，有烟只是画面好看。GQX战斗没逻辑，只是追求视觉上他们自己觉得酷。这整个片子看下来就是他们自己弄得爽。
+
+当然后续会有人帮他们补的。
+
+*****
+
+####  ryanghj  
+##### 14787#       发表于 2025-5-22 11:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67840400&amp;ptid=2209276" target="_blank">silvia 发表于 2025-5-22 11:42</a>
+看上去zeknova是拉拉有意控制的现象？</blockquote>
+我现在觉得可能到最后拉拉都不会登场
+
+因为你想想拉拉完全没法解释，是个和原作正史关联性非常强的角色，新人是完全看不懂的，如果核心谜题涉及她解释起来非常麻烦
+
+所以大概率会留白
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  ティグル  
+##### 14788#       发表于 2025-5-22 11:57
+
+那万一鹤卷是小说版死忠这是艾尔美斯二号机呢？
+

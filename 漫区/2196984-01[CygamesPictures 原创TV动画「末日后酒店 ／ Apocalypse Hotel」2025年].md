@@ -3536,3 +3536,11 @@ B站的评论也提出了一个思路，从目前7集整体来看，片子里八
 
 无法预测的命运的舞台！
 
+
+*****
+
+####  ggby  
+##### 310#       发表于 2025-5-22 11:54
+
+火箭发射时候的bgm也太Decisive Battle了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
