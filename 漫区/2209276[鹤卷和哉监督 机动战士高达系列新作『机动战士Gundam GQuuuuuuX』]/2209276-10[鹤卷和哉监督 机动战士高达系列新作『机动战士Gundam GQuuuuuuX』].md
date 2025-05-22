@@ -16065,3 +16065,14 @@ gqux这插入曲怎么都既突兀又口水年轻人就喜欢这种吗</blockquo
 
 白毛人设讨喜吗？不就是个集抛人设，画的还不好看
 
+
+*****
+
+####  虚无缥缈的分身  
+##### 14761#       发表于 2025-5-22 09:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67835525&amp;ptid=2209276" target="_blank">dozen 发表于 2025-5-21 04:18</a>
+
+杜这口罩上了机反而不用戴啊</blockquote>
+可能只是和奶嘴一样的安慰用品，平时喝不到奶的时候嘬两口，真能喝到的时候肯定扔一边阿，不然咋喝<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
