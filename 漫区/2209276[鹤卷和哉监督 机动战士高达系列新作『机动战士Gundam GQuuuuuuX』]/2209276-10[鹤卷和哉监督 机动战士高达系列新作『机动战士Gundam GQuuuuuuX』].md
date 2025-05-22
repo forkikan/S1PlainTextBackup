@@ -16281,3 +16281,25 @@ image.png
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 14774#       发表于 2025-5-22 11:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67840094&amp;ptid=2209276" target="_blank">洛克萨斯 发表于 2025-5-22 10:48</a>
+
+age那个简直是市场部脑子进水的操作，我就不懂为啥他们会觉得特意低幼化的画风能讨好他们认为的低龄段观 ...</blockquote>
+和靠拥抱DEI开拓海外市场一样可笑<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Mr姜  
+##### 14775#       发表于 2025-5-22 11:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67839103&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-5-22 00:10</a>
+
+说实话，这集比马秋更让我难受的是首席哥，虽然有语音剧透，但真看到他是扎比家的狗还是感觉很不舒服，拉喵 ...</blockquote>
+目前紫婆塑造还是比较正面的吧，首席哥大学刚毕业这表现也正常
+
