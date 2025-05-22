@@ -216,3 +216,27 @@ nbht的鉴赏能力还是一边去吧，看都看不懂还谈什么手绘
 有一个事实能确定：在喵安告白后，牢修就和红高 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">红高达感觉预定被这两颠婆其中一个或者一起捅爆驾驶舱
 
+
+*****
+
+####  koodooliz  
+##### 14824#       发表于 2025-5-22 15:58
+
+依i can Friday by day故事不是麻球先干喵安再干修司<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">？
+
+*****
+
+####  绞首浪漫派丶  
+##### 14825#       发表于 2025-5-22 15:59
+
+接下来能看到失去修斯的喵安转向首席哥寻找精神支柱大战小森吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 14826#       发表于 2025-5-22 16:00
+
+玛秋和喵安毫无疑问是喜欢修司这个人的
+
+玛秋只是喜欢kirakira和喵安只是渴望友情的话，那些插曲就不会这么写了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

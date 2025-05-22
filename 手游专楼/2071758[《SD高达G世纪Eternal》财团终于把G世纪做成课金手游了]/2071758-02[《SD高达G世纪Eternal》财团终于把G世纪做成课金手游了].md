@@ -323,3 +323,16 @@ SR自由主要还是给无氪阵容用的，而且要SP化，目前SP芯片没�
 
 开自动的话，隐藏任务没打到，会有说隐藏掉落没的吗
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 1512#       发表于 2025-5-22 16:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67841231&amp;ptid=2071758" target="_blank">格雷殿下 发表于 2025-5-22 15:49</a>
+
+想给SSR的SEED的机子升星变强一下，有推介哪些机子的不
+
+我完美高达好像还有再做两次的图纸，要做这台吗</blockquote>
+龙骑兵强袭和流星自由，这两算是不错的，然后到SR自由正义，但是需要SP
+

@@ -632,3 +632,34 @@
 
 能不能1t全看好友这大腿够不够粗，就现在这模式完全就是光炮低人一等，辅助无人权
 
+
+*****
+
+####  yangun22  
+##### 16781#       发表于 2025-5-22 14:58
+
+100级的麻雀一个晚上都能给我弄了1万多友情点<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 16782#       发表于 2025-5-22 15:31
+
+打完这活动我只想问什么时候改助战 既然有连续出击 为什么不能直接锁定好友助战还要出去重选<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
+*****
+
+####  里村紅葉  
+##### 16783#       发表于 2025-5-22 15:34
+
+大王满宝也打不出什么伤害，只能忍痛现喂个百级剑R了<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xunit  
+##### 16784#       发表于 2025-5-22 16:01
+
+伊织老弟打冠位本还挺好用的，如果是原作那个战狂肯定爽到爆炸
+
+可惜联动来的是个排毒版
+
