@@ -596,3 +596,39 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">靠着嫖大佬的嫁王和麻雀跟伊织哥砍完50次了 没有强力单体打手真蛋疼
 
+
+*****
+
+####  克苏鲁系青骑士  
+##### 16777#       发表于 2025-5-22 13:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">为了挖石头抽莉莉丝用完了茶壶的我悔之不及
+而且还没抽到<img src="https://static.stage1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 16778#       发表于 2025-5-22 13:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67839489&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-5-22 08:06</a>
+
+靠着嫖大佬的嫁王和麻雀用伊织砍完50次了 没有强力单体打手真蛋疼</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">尬黑了 麻雀一个人不就结束了
+
+*****
+
+####  qixinno2  
+##### 16779#       发表于 2025-5-22 13:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67840751&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-5-22 13:17</a>
+
+尬黑了 麻雀一个人不就结束了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我既没嫁王也没麻雀 就一个兰陵王拿头一个人打
+
+*****
+
+####  quanlix  
+##### 16780#       发表于 2025-5-22 13:33
+
+能不能1t全看好友这大腿够不够粗，就现在这模式完全就是光炮低人一等，辅助无人权
+

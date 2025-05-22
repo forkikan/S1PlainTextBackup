@@ -16553,3 +16553,13 @@ op卡其脱离太6人只有小森没上过机
 
 玛秋当着side6军警的面上的机子，身份也被查出来了，鸡瘟总不能不知道绿叔叔还有个驾驶员吧
 
+
+*****
+
+####  无念  
+##### 14800#       发表于 2025-5-22 13:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">0085再怎么进化人类也不可能获得肉身抗米加粒子炮的能力，所以要么精神力泼出去的是水，要么side6民众跑路速度堪比ms
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
