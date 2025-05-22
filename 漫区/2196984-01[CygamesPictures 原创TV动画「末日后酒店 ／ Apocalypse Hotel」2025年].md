@@ -3563,3 +3563,16 @@ B站的评论也提出了一个思路，从目前7集整体来看，片子里八
 
 然后里面发现了人类内战/团灭的证据
 
+
+*****
+
+####  qwased  
+##### 312#       发表于 2025-5-22 16:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67840848&amp;ptid=2196984" target="_blank">Asukalangley33 发表于 2025-5-22 13:54</a>
+
+制作组挺喜欢NETA美国电影的
+
+现在这个展开不是完美符合地心引力么？</blockquote>
+这集开头不是说了“地球上有未完成的太空兵器”嘛，下一集估计就是用这玩意上去回收八千代了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
