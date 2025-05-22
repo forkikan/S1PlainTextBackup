@@ -1234,3 +1234,26 @@ n10以下的队友全看脸，n10无论国人老外大都是熟练工
 主要不充钱完全没法解锁实弹武器以外的 ...</blockquote>
 其实破裂者挺好用的，现在还有强化系统之后真挺好用。这玩意也是一代的新手战神武器了，二代依然能发光发热
 
+
+*****
+
+####  ParadiseMartyr  
+##### 6040#       发表于 2025-5-22 10:40
+
+ 本帖最后由 ParadiseMartyr 于 2025-5-22 10:42 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67839742&amp;ptid=2170852" target="_blank">狭义文具爱好者 发表于 2025-5-22 09:32</a>
+蓝币能在图里捡的，去难度1图里拿资源点，捡到直接退不用撤离。不用氪金，不过现在都在保卫超级地球，可 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">主要是找不到啊，什么标本也是随缘拿的，都不知道怎么搜刮
+有群吗？就顶楼的群么
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  Sylpheed  
+##### 6041#       发表于 2025-5-22 10:44
+
+超级地球几个地区都ai地图就算了，还没单独做地标，除了炸飞碟压力大其他也基本在散步，懒狗屎头还是去死一死吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

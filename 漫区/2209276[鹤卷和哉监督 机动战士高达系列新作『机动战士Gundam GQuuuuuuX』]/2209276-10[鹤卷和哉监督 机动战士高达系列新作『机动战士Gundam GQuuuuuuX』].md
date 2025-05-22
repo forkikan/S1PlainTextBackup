@@ -16154,3 +16154,81 @@ Grcb9kOa4AAnElA-2.jpg
 
 事实上之所以AGE要去找L5来搞也是看到客户年龄层的问题觉得不能吃老本要再拉新人入坑了，只是没想到不仅AGE没成功，老本还一吃20年都没吃完
 
+
+*****
+
+####  千恋万花  
+##### 14769#       发表于 2025-5-22 10:39
+
+才发现官网人物简介给部分人物换了形象（详情页也换了或者增加了立绘，不清楚什么时候换的，下面是 [5 月 17 日](https://web.archive.org/web/20250517113318/https://www.gundam.info/feature/gquuuuuux/character/)的快照对比今天的）
+
+顺序也有调整，5 月 17 日的时候博美犬一行排在夏利亚一行前面，现在是顺序调过来
+
+盖茨和杜是把第 6 集的形象换成了第 7 集的形象，就不重复贴了
+
+<img src="https://img.stage1st.com/forum/202505/22/103352qh5yd5yywkyokd93.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (678.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 10:33 上传
+
+<img src="https://img.stage1st.com/forum/202505/22/103404l1xeeszqspeelasz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (749.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 10:34 上传
+
+<img src="https://img.stage1st.com/forum/202505/22/103507meo7o1118r67c11b.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (231.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 10:35 上传
+
+<img src="https://img.stage1st.com/forum/202505/22/103519gy95mgksykezqpss.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (234.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 10:35 上传
+
+<img src="https://img.stage1st.com/forum/202505/22/103543myxiegeels7ylc12.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (412.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 10:35 上传
+
+<img src="https://img.stage1st.com/forum/202505/22/103557mk7j5x7wh8ek5hjw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (453.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 10:35 上传
+
+汎用ポーズ_エグザベ_fin_250115_01.png
+(373.98 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 10:32 上传
+
+<img src="https://img.stage1st.com/forum/202505/22/103204m1lff31mmgg66z13.png" referrerpolicy="no-referrer">
+
+image.png
+(186.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 10:32 上传
+
+<img src="https://img.stage1st.com/forum/202505/22/103216n7ay31fxkxckfcbk.png" referrerpolicy="no-referrer">
+
