@@ -1567,3 +1567,68 @@ top2你就不能把其当top1的续作来看，建议当成独立作品，如果
 
 正片里 主角团和绿叔叔关于玫瑰，修司， 夏亚和泽克诺瓦 有多少情报是互相交互的还是个迷呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赤黑的假面  
+##### 14942#       发表于 2025-5-22 23:49
+
+<blockquote>岸浪白野 发表于 2025-5-22 23:46
+如果你硬要研究主角团CV是看了79部分才知道夏利亚的过往和对夏亚为何很执着正片里不知道 这信息
+
+正片里 主 ...</blockquote>
+至少夏利亚跟首席应该是信息不对等，妮娅安的情报应该没有互相交流
+
+*****
+
+####  rockroxas  
+##### 14943#       发表于 2025-5-22 23:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67842722&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-22 23:09</a>
+
+顺带有没有人解读一下下集为啥标题有个括号
+
+坠入月球：0079后半，所罗门</blockquote>
+我是感觉这帮人已经找到了夏亚失踪后坠入月面什么地方的痕迹，然后下话哪边大人带着小孩去到那痕迹那念叨点设定感想，小孩堕入痕迹的kirakira再次发癫（
+
+*****
+
+####  sauron.j  
+##### 14944#       发表于 2025-5-22 23:51
+
+绿叔叔的塑造已经让我联想到石蒜的绿毛 和eva里的司令了
+
+这是staff里哪位高人的自恋皮套
+
+
+*****
+
+####  YU_JI  
+##### 14945#       发表于 2025-5-22 23:53
+
+<blockquote>sauron.j 发表于 2025-5-22 23:51
+绿叔叔的塑造已经让我联想到石蒜的绿毛 和eva里的司令了
+
+这是staff里哪位高人的自恋皮套 ...</blockquote>
+之前猜是痞子用来梦鸭的皮套
+
+*****
+
+####  岸浪白野  
+##### 14946#       发表于 2025-5-22 23:55
+
+ 堕（墜）就是想双关语才括号起来啊，不然呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+都准备1集说两件事了
+
+79所罗门部分就11分钟多点，还是物理意义上的墜落月球
+
+堕是用在意义和精神部分的
+
+*****
+
+####  Gysumitka  
+##### 14947#       发表于 2025-5-22 23:57
+
+堕落指戴新月耳环的吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
