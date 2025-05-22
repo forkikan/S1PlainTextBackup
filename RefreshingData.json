@@ -2265,7 +2265,7 @@
     "lastedit": 1747911960,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1804478": {
     "totalreply": 1244,
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 166567,
+    "totalreply": 166569,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1747934068,
+    "lastedit": 1747934411,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -9846,10 +9846,10 @@
     "update": false
   },
   "2200312": {
-    "totalreply": 11096,
+    "totalreply": 11097,
     "title": "[【集中讨论】【黑泥2】二游圈吃瓜／搬运／黑泥讨论楼，欢迎来综合讨论]",
     "newtitle": "[【集中讨论】【黑泥2】二游圈吃瓜／搬运／黑泥讨论楼，欢迎来综合讨论]",
-    "lastedit": 1747933095,
+    "lastedit": 1747934533,
     "category": "手游战斗",
     "active": true,
     "update": false
@@ -10224,10 +10224,10 @@
     "update": false
   },
   "2201083": {
-    "totalreply": 1774,
+    "totalreply": 1776,
     "title": "[宝可梦卡牌手游PTCG pocket（9.26新西兰服已提前上线]",
     "newtitle": "[宝可梦卡牌手游PTCG pocket（1.30已更新A2扩展包]",
-    "lastedit": 1747920747,
+    "lastedit": 1747934663,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -10521,10 +10521,10 @@
     "update": false
   },
   "2209276": {
-    "totalreply": 14960,
+    "totalreply": 14962,
     "title": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
     "newtitle": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
-    "lastedit": 1747934293,
+    "lastedit": 1747934658,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11385,10 +11385,10 @@
     "update": false
   },
   "2181098": {
-    "totalreply": 366,
+    "totalreply": 367,
     "title": "[忍者×杀手二人组的日常生活 动画化]",
     "newtitle": "[忍者×杀手二人组的日常生活 动画化]",
-    "lastedit": 1747931895,
+    "lastedit": 1747934663,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11439,10 +11439,10 @@
     "update": false
   },
   "2188167": {
-    "totalreply": 1038,
+    "totalreply": 1039,
     "title": "[小高&amp;打越新作，百日战记 最终防卫学园2025.4.24发售，ns／pc]",
     "newtitle": "[小高&amp;打越新作，百日战记 最终防卫学园2025.4.24发售，ns／pc]",
-    "lastedit": 1747933823,
+    "lastedit": 1747934779,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13086,10 +13086,10 @@
     "update": false
   },
   "2252297": {
-    "totalreply": 75,
+    "totalreply": 76,
     "title": "[暗喻幻想即将加入xgp]",
     "newtitle": "[暗喻幻想即将加入xgp]",
-    "lastedit": 1747920374,
+    "lastedit": 1747934779,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13207,6 +13207,15 @@
     "title": "[『Princess Principal Crown Handler』剧场第三章／2023]",
     "newtitle": "[『Princess Principal Crown Handler』剧场第三章／2023]",
     "lastedit": 1747924945,
+    "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2126670": {
+    "totalreply": 53,
+    "title": "[『WIND BREAKER ／ 防风少年』TV动画化 2024年4月]",
+    "newtitle": "[『WIND BREAKER ／ 防风少年』TV动画化 2024年4月]",
+    "lastedit": 1747934664,
     "category": "漫区",
     "active": true,
     "update": false
