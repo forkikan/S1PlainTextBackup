@@ -1113,3 +1113,49 @@ ban红高达是对的因为这回红高达只能上去拼光剑 也只能跑路
 
 2. 我是00入坑并且听说过GN粒子膜米粒所以先入为主了，米粒应该没有能够增幅NT感应能力的效果吧？比如说，在散布了米粒的地方NT的感应能力会比低浓度米粒环境的NT更敏锐，应该没有这回事吧？
 
+
+*****
+
+####  awefhio  
+##### 14904#       发表于 2025-5-22 21:58
+
+感觉很多所谓的“减分项”在我这里都是加分项，感觉自己和其他观众不是一个世界的人<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 14905#       发表于 2025-5-22 21:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67842497&amp;ptid=2209276" target="_blank">久井路路 发表于 2025-5-22 21:51</a>
+
+说起来我有两个关于NT感应的问题想问下UC老人
+
+1. 麻球也算是个NT，第三集远在学校脑门过个电精准定位牢修 ...</blockquote>
+第二点，NT可以通过赛可缪与米粒产生共振，这也是赛可缪技术的基础
+
+<img src="https://img.stage1st.com/forum/202505/22/215944rb4wx44xlgpj1vzx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (168.82 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 21:59 上传
+
+*****
+
+####  久井路路  
+##### 14906#       发表于 2025-5-22 22:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67842529&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-22 21:59</a>
+
+第二点，NT可以通过赛可缪与米粒产生共振，这也是赛可缪技术的基础</blockquote>
+原来如此，多谢指教
+
+
+*****
+
+####  盐盐盐盐盐  
+##### 14907#       发表于 2025-5-22 22:04
+
+脑门过电确实挺薛定谔的，不如说nt能感应到什么东西本身就很薛定谔，就算是卡缪被吹得好像神仙一样也不是天天都能感应到所有大行动的
+
