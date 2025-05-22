@@ -16535,3 +16535,21 @@ op卡其脱离太6人只有小森没上过机
 
 麻球明显是刻意安排的骡子对位吧，一边大喊大叫一边BIUBIU小手枪，最后同款蹲牢房<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zerocount  
+##### 14798#       发表于 2025-5-22 13:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67839019&amp;ptid=2209276" target="_blank">mintslime 发表于 2025-5-21 23:34</a>
+尾焰烧军警这种纯臆测的东西就不用当真了吧，SIDE 6人民多奇志，精神病高达光束炮齐射死伤都只过百，怎么会 ...</blockquote>
+武德不够充沛的思路
+建议多看大美执法案例
+
+*****
+
+####  cayon  
+##### 14799#       发表于 2025-5-22 13:24
+
+玛秋当着side6军警的面上的机子，身份也被查出来了，鸡瘟总不能不知道绿叔叔还有个驾驶员吧
+
