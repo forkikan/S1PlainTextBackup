@@ -3694,3 +3694,20 @@ B站的评论也提出了一个思路，从目前7集整体来看，片子里八
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  Asukalangley33  
+##### 320#       发表于 2025-5-23 00:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67842287&amp;ptid=2196984" target="_blank">TOYSTORY 发表于 2025-5-22 20:57</a>
+
+https://www.bilibili.com/video/BV1anJJzuEK8
+
+第8話「おしおきはグー！なかなおりはパー！」</blockquote>
+低轨道的话顶多飘几年就下来了
+
+然后这集刚上天就发生了太阳耀斑，大概掉的更快
+
+真漂太久有点不太合适，估摸这次顶多1年
+
