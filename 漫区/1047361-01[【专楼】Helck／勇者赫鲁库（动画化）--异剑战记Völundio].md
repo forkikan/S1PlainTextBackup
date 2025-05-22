@@ -35,3 +35,21 @@
 
 —— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  hac0101  
+##### 1227#       发表于 2025-5-22 19:03
+
+可以相信老师是把故事写完了才开始画的了。<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  azbhg1  
+##### 1228#       发表于 2025-5-22 19:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67841882&amp;ptid=1047361" target="_blank">hac0101 发表于 2025-5-22 19:03</a>
+可以相信老师是把故事写完了才开始画的了。</blockquote>
+不至于写完，但是完整大纲应该是有的
+
