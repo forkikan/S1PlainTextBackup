@@ -784,3 +784,11 @@ side6科技还真是恐怖如斯，直径6km多点的殖民地闹市区打成那
 
 其实我就想番茄和喵安单挑的时候多爆点典<img src="https://static.stage1st.com/image/smiley/carton2017/088.png" referrerpolicy="no-referrer">邪恶大人的傀儡罢了
 
+
+*****
+
+####  ティグル  
+##### 14873#       发表于 2025-5-22 19:18
+
+因为企划从最开始就是鹤卷提出要做UC if的故事
+

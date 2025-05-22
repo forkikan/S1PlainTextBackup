@@ -663,3 +663,40 @@
 
 可惜联动来的是个排毒版
 
+
+*****
+
+####  alucardcz  
+##### 16785#       发表于 2025-5-22 16:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67841173&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2025-5-22 15:34</a>
+
+大王满宝也打不出什么伤害，只能忍痛现喂个百级剑R了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">是2宝的那个吗 伤害也不够啊 不如直接借人
+
+*****
+
+####  芭德薇  
+##### 16786#       发表于 2025-5-22 17:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67838872&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2025-5-21 22:40</a>
+
+枪阶的玛丽安宁有10NP群充+女性限定15蓝放15攻击，算是个不错的拐；其他人顶多是单乘区buff或单充，阿育王 ...</blockquote>
+三星枪其实有一个20群充20攻20宝威……
+
+*****
+
+####  里村紅葉  
+##### 16787#       发表于 2025-5-22 19:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67841369&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-5-22 16:23</a>
+是2宝的那个吗 伤害也不够啊 不如直接借人</blockquote>
+我打100星摆烂的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之花  
+##### 16788#       发表于 2025-5-22 19:25
+
+两百石头没艾雷王了<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
