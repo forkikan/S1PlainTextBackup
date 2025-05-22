@@ -747,3 +747,40 @@ side6科技还真是恐怖如斯，直径6km多点的殖民地闹市区打成那
 舉個例子，能登地震第二 ...</blockquote>
 但100倍也只有一万多，这下更加闹麻了，对izuma造成最大伤害的可能还是红高达的泽科诺瓦<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赤黑的假面  
+##### 14870#       发表于 2025-5-22 19:06
+
+<img src="https://img.stage1st.com/forum/202505/22/190615z9qca97zgeqg39qq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-05-22-18-40-21-499_com.baidu.tieba.jpg</strong> (661.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 19:06 上传
+
+高吧给我看懵了
+
+*****
+
+####  qiyu1234  
+##### 14871#       发表于 2025-5-22 19:08
+
+之前讨论过
+
+主角三人离故事核心区太远，以前高达大长篇里主角一般都是几集上舰的，你这十二集过半了才上舰
+
+另外主人公现在还处于一个刚出没出新手村的状态，本集的表现只能用 “无力” 来形容，本身也算合理，但考虑到此前两部高达TV正作，慢热+主人公缺少高光环节 容易引起某种PTSD
+
+其实如果把主角团看成OP跑的6人组的话，目前的内容分配还算是正常，然而第一主角是番茄，关于她的表现就确实绕不开
+
+
+*****
+
+####  jojonathan  
+##### 14872#       发表于 2025-5-22 19:13
+
+其实我就想番茄和喵安单挑的时候多爆点典<img src="https://static.stage1st.com/image/smiley/carton2017/088.png" referrerpolicy="no-referrer">邪恶大人的傀儡罢了
+
