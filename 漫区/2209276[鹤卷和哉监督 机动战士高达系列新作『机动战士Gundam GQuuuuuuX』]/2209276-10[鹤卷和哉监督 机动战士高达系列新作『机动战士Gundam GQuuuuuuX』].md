@@ -16037,3 +16037,31 @@ gqux这插入曲怎么都既突兀又口水年轻人就喜欢这种吗</blockquo
 还有布劳布罗单出力其实远高于神经病高达， ...</blockquote>
 布劳布罗比现在动画里的吉克罗格大的多 是大型MS双人驾驶 现在动画里是缩小到比一般MS大一点点的版本
 
+
+*****
+
+####  fireadol  
+##### 14758#       发表于 2025-5-22 09:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67839170&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-22 00:51</a>
+
+说起来修司的姓好像一次都没人叫过
+
+为啥是修司·伊藤</blockquote>
+是伊藤剑在GQX的投影<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a85982313  
+##### 14759#       发表于 2025-5-22 09:29
+
+上周一小时番组收视率 个收1.7 世带3.3
+<img src="https://p.sda1.dev/24/f6fa6784e13bab2489d4c62d69423f72/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  朋友费小号  
+##### 14760#       发表于 2025-5-22 09:31
+
+白毛人设讨喜吗？不就是个集抛人设，画的还不好看
+
