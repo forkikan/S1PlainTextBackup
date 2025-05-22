@@ -356,3 +356,23 @@ nbht的鉴赏能力还是一边去吧，看都看不懂还谈什么手绘
 
 赞同漏油，我甚至会觉得楼里的部分猜测有点陈腐...主视觉图这样一个酸性的色彩设计，照说就不太可能再把那些陈芝麻烂谷子的高达桥段在拉出来演一遍（有点牵强hh）。不如说本作我更觉得正是为了和uc做出一定区分才会选择套用uc背景的
 
+
+*****
+
+####  88ace88  
+##### 14839#       发表于 2025-5-22 16:39
+
+nbht再**，也反证不了他觉得烂的片不是烂片，这两者并不冲突。
+
+*****
+
+####  洛克萨斯  
+##### 14840#       发表于 2025-5-22 16:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67841356&amp;ptid=2209276" target="_blank">王留美 发表于 2025-5-22 16:19</a>
+
+我觉得精神力敢达是不是全身精骨+脑操啊
+
+这样能解释很多问题</blockquote>
+<img src="https://static.stage1st.com/image/smiley/bundam2017/011.png" referrerpolicy="no-referrer">：？？？我们骨架家族没有这么菜的，见不得这个
+
