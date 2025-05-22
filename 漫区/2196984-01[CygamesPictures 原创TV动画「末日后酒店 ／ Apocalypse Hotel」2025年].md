@@ -3600,3 +3600,67 @@ B站的评论也提出了一个思路，从目前7集整体来看，片子里八
 
 宇宙居民嘭子直接开上机甲了，你不会还是nt吧？
 
+
+*****
+
+####  TOYSTORY  
+##### 316#       发表于 2025-5-22 20:57
+
+<img src="https://img.stage1st.com/forum/202505/22/205812l0qq6nah2yo5pnfp.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (80.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 20:58 上传
+
+<img src="https://img.stage1st.com/forum/202505/22/205818nvevb54bldl3dan3.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (76.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 20:58 上传
+
+<img src="https://img.stage1st.com/forum/202505/22/205818j9d35dv968629s3d.jpg" referrerpolicy="no-referrer">
+
+<strong>3.jpg</strong> (92.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 20:58 上传
+
+<img src="https://img.stage1st.com/forum/202505/22/205819hbrydtay8yylwtay.jpg" referrerpolicy="no-referrer">
+
+<strong>4.jpg</strong> (103.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 20:58 上传
+
+<img src="https://img.stage1st.com/forum/202505/22/205820t8a673jcu26vcuao.jpg" referrerpolicy="no-referrer">
+
+<strong>5.jpg</strong> (126.21 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 20:58 上传
+
+[https://www.bilibili.com/video/BV1anJJzuEK8](https://www.bilibili.com/video/BV1anJJzuEK8)
+
+第8話「おしおきはグー！なかなおりはパー！」
+
+〈あらすじ〉
+
+支配人代理の代理の代理のポン子です。
+
+『銀河楼』からヤチヨちゃんがいなくなってずいぶん経ちました。
+
+おばあちゃんが「ヤチヨちゃんはいつもお空で見守ってるよ」って言うけど、ほんとは近くでもっといろいろ教わりたかったし、いっぱいお話して、笑って、たまにはケンカとかしたかったな……。
+
+ヤチヨちゃんが帰ってくるまで、ポン子たちが絶対に『銀河楼』を守るからね。
+
+鹏子暂时替八千代管理酒店？按这片的尿性，就是说八千代可能在太空飘了有几十年了都没回去？
+
+预告**子开萝卜，不会是有外星铁人兵团入侵地球，鹏子开机子守卫地球吧<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+

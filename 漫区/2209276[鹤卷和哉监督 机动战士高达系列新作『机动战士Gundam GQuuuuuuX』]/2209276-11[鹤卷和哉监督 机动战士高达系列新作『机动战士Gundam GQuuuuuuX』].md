@@ -943,3 +943,11 @@ uc if和麻球喵安休斯三人故事这两条线非常割裂。
 
 麻球，黑发两个太像棋子<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，修司又溜得利索，这三个怎么说呢，如果说这是对逆夏的致敬，夏亚这角色反而更像夏利亚，阿姆罗就不知道是谁来演了
 
+
+*****
+
+####  plok201  
+##### 14889#       发表于 2025-5-22 21:03
+
+麻球喵安2个女主塑造的点都落到了莫名其妙的kirakira上面，然而这个又是最终谜题，运气好下集给你揭秘个大半，那还有救，就怕是最后一集才来揭秘然后光速和解<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
