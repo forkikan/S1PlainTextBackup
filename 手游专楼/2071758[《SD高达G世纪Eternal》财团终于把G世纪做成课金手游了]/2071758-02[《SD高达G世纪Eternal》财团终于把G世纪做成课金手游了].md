@@ -336,3 +336,35 @@ SR自由主要还是给无氪阵容用的，而且要SP化，目前SP芯片没�
 我完美高达好像还有再做两次的图纸，要做这台吗</blockquote>
 龙骑兵强袭和流星自由，这两算是不错的，然后到SR自由正义，但是需要SP
 
+
+*****
+
+####  lighttt  
+##### 1513#       发表于 2025-5-22 16:10
+
+要提升钻石获取和sp化芯片获取量了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PHY110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  rockroxas  
+##### 1514#       发表于 2025-5-22 16:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67841231&amp;ptid=2071758" target="_blank">格雷殿下 发表于 2025-5-22 15:49</a>
+
+想给SSR的SEED的机子升星变强一下，有推介哪些机子的不
+
+我完美高达好像还有再做两次的图纸，要做这台吗</blockquote>
+现在官方说每月可以SP化1-2台单位，那可以随意点了
+
+SP自由是很强的攻击机 SP禁断是很强的防御机
+
+完美强袭很泛用，神意（天帝）作为盾机也很不错
+
+单纯以永恒为目标的话两台流星都可以练
+
+ULT机还可以，但有SP灾厄跟神意之后还有没有必要练不好说，更别说还有更强的盾UR正义
+
+以体力效率来说尽量打hard本掉落更多，G X这些实在要刷只能进去刷了，进去刷一定要保证打出隐藏，比如开局手操三动机深入进去再自动
+
