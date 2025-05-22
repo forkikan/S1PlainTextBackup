@@ -192,3 +192,27 @@ nbht的鉴赏能力还是一边去吧，看都看不懂还谈什么手绘
 喵安紧急情况下要拉着修司逃跑不一定是因为太喜欢修司，但是你说喵安麻球喜不喜欢修司，俩人神社谈话互问对方都不敢回答还不能说明问题吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不是喜欢有什么不敢回答的
 又或者你可以当她们自以为是喜欢其实不是真正的喜欢之类的
 
+
+*****
+
+####  猪突猛进R  
+##### 14822#       发表于 2025-5-22 15:24
+
+两女主肯定是喜欢牢修的，但是牢修喜不喜欢她们，我不好说<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+有一个事实能确定：在喵安告白后，牢修就和红高达一起传送走了。
+
+虽然是非曲折难以论说，喵安心里说不定认为是自己吓跑了牢修，但不管怎样润了就是润了，连带小番茄和村雨兔没有kirakira用<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 14823#       发表于 2025-5-22 15:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67841135&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-22 15:24</a>
+
+两女主肯定是喜欢牢修的，但是牢修喜不喜欢她们，我不好说
+
+有一个事实能确定：在喵安告白后，牢修就和红高 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">红高达感觉预定被这两颠婆其中一个或者一起捅爆驾驶舱
+
