@@ -841,3 +841,24 @@ uc if和麻球喵安休斯三人故事这两条线非常割裂。
 高吧给我看懵了</blockquote>
 播了七集了，还不知道编剧是谁<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer"> 新生代编剧在哪？
 
+
+*****
+
+####  巴尔干炮  
+##### 14879#       发表于 2025-5-22 19:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67841971&amp;ptid=2209276" target="_blank">玖羽 发表于 2025-5-22 19:31</a>
+
+有一个地方是对的，之前不要那么执着于每集死人，这一集把所有黑拳MS掏出来和联邦、吉恩、军警进行四方大 ...</blockquote>
+死亡能上6位数意味着殖民地完蛋了，制作组在这话的表现证明他们没能力写这种展开。
+
+*****
+
+####  ryanghj  
+##### 14880#       发表于 2025-5-22 19:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67842016&amp;ptid=2209276" target="_blank">巴尔干炮 发表于 2025-5-22 19:47</a>
+
+死亡能上6位数意味着殖民地完蛋了，制作组在这话的表现证明他们没能力写这种展开。 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">明显是不想写高达里面已经写烂的殖民地坠落了
+
