@@ -1390,3 +1390,16 @@ B站有视频，教你样本会刷在什么样的地形上的。而且主线、�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  normalli  
+##### 6052#       发表于 2025-5-23 07:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67839556&amp;ptid=2170852" target="_blank">ParadiseMartyr 发表于 2025-5-22 08:41</a>
+所以这游戏主要的武器来源就是空投高级武器，普通武器没啥大用？
+主要不充钱完全没法解锁实弹武器以外的 ...</blockquote>
+多肝肝，普通债券最后一页的焦土属于反一切武器
+
+—— 来自 Xiaomi 23127PN0CC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
