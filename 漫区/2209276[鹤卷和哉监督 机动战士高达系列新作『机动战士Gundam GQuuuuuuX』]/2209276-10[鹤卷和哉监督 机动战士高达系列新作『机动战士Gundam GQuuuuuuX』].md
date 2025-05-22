@@ -16303,3 +16303,27 @@ age那个简直是市场部脑子进水的操作，我就不懂为啥他们会�
 说实话，这集比马秋更让我难受的是首席哥，虽然有语音剧透，但真看到他是扎比家的狗还是感觉很不舒服，拉喵 ...</blockquote>
 目前紫婆塑造还是比较正面的吧，首席哥大学刚毕业这表现也正常
 
+
+*****
+
+####  pmoe  
+##### 14776#       发表于 2025-5-22 11:22
+
+红高达和修司传送走的时候那段，我想到了《时间旅行者的妻子》。<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 14777#       发表于 2025-5-22 11:24
+
+老太婆喜欢小鲜肉吧，首席哥和身边的助理都是黑皮小鲜肉<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  千千千千鸟  
+##### 14778#       发表于 2025-5-22 11:25
+
+喵安会成为面具女吗，还是说夏利亚这边的玛秋更有可能戴面具，毕竟变通缉犯了，还有夏利亚影响<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
