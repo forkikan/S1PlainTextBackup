@@ -2265,7 +2265,7 @@
     "lastedit": 1747911960,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1804478": {
     "totalreply": 1244,
@@ -9180,10 +9180,10 @@
     "update": false
   },
   "2192398": {
-    "totalreply": 6409,
+    "totalreply": 6410,
     "title": "[《尘白禁区》攻略活动互助讨论楼 ver2.0空都演绎（7.11-8.22）]",
     "newtitle": "[《尘白禁区》综合讨论楼#2.8「罅隙轨迹」 5.29-7.10]",
-    "lastedit": 1747933819,
+    "lastedit": 1747937051,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 137200,
+    "totalreply": 137202,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1747936578,
+    "lastedit": 1747937173,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11250,10 +11250,10 @@
     "update": false
   },
   "2192378": {
-    "totalreply": 192,
+    "totalreply": 193,
     "title": "[摇滚乃淑女之嗜好 TV动画化 2025年]",
     "newtitle": "[摇滚乃淑女之嗜好 TV动画化 2025年]",
-    "lastedit": 1747931900,
+    "lastedit": 1747936944,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11385,10 +11385,10 @@
     "update": false
   },
   "2181098": {
-    "totalreply": 369,
+    "totalreply": 371,
     "title": "[忍者×杀手二人组的日常生活 动画化]",
     "newtitle": "[忍者×杀手二人组的日常生活 动画化]",
-    "lastedit": 1747936211,
+    "lastedit": 1747937175,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11628,10 +11628,10 @@
     "update": false
   },
   "2251402": {
-    "totalreply": 223,
+    "totalreply": 225,
     "title": "[高达很长一串字母不会翻车，我要吹爆鹤卷哥哥！！]",
     "newtitle": "[高达很长一串字母不会翻车，我要吹爆鹤卷哥哥！！]",
-    "lastedit": 1747934060,
+    "lastedit": 1747936944,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12578,7 +12578,7 @@
     "newtitle": "[新二游《白银之城》你们觉得怎么样？]",
     "lastedit": 1747677606,
     "category": "手游专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1564345": {
@@ -13216,6 +13216,15 @@
     "title": "[『WIND BREAKER ／ 防风少年』TV动画化 2024年4月]",
     "newtitle": "[『WIND BREAKER ／ 防风少年』TV动画化 2024年4月]",
     "lastedit": 1747934664,
+    "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "1992785": {
+    "totalreply": 377,
+    "title": "[推个漫《舞冰的祈愿》（官方译名《金牌得主》）]",
+    "newtitle": "[推个漫《舞冰的祈愿》（官方译名《金牌得主》）]",
+    "lastedit": 1747936966,
     "category": "漫区",
     "active": true,
     "update": false
