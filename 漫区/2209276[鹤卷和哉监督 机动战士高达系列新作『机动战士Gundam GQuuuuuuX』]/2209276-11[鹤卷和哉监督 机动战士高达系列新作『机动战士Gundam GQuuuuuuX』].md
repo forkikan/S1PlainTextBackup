@@ -901,3 +901,21 @@ uc if和麻球喵安休斯三人故事这两条线非常割裂。
 
 反正没干票大的很缺戏剧性、紧迫感、刺激感<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  g救世主高达  
+##### 14884#       发表于 2025-5-22 20:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67842027&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-22 19:50</a>
+
+明显是不想写高达里面已经写烂的殖民地坠落了</blockquote>
+可以写手电筒照side6啊<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">，隔壁雷霆就是想拿手电筒把月球上的ae总部灭了
+
+*****
+
+####  molemole  
+##### 14885#       发表于 2025-5-22 20:24
+
+大的什么时候来，大的一直不来（笑）
+
