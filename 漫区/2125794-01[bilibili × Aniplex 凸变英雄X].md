@@ -2379,3 +2379,55 @@ nice篇
 <img src="https://p.sda1.dev/24/c76c3443cfd3d989eeee7fcb1458d9b8/77f57115gy1i0yv2oavckj20t20ixju8.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/24/543fca9bca0e83476a50ee81d4835147/77f57115gy1i0yv2pa8bkj21910u00yk.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 220#         楼主| 发表于 2025-5-22 22:45
+
+魂电篇
+
+杨澄和他的朋友们
+
+魂电篇终于开始啦，是不是被杨澄的故事感动到呢？偷偷解一波角色原案～在设计之初，大家就想着要把杨澄的气质和《奈斯篇》的林凌区别开，奈斯篇的故事荒诞感多一些，林凌的气质也有种鬼马搞怪的小人物感；而到了剧情向的《魂电篇》，杨澄则是一个丧失双亲、信赖值为0、独自生活、开局就是“最高难度”的苦命人[苦涩]在这样的背景下，最先产生的概念其实是颜色——蓝色，不仅因为魂电的主题色是蓝色，而是蓝色代表着忧郁的气质。于是便有了一个忧郁的普通少年的印象，他常常一个人独自在打工后吃便当的场景，也许会害羞得不敢看人所以会带着魂电的面具？很快便出了第一张印象草图～似乎忧郁、纠结这些词一直伴随着这个人物，所以为了形成对比，另外几个角色尚超、夏晴和小柚子就会设计得活泼开朗一些，而夏晴则会多一些“安全感和责任感”的完美大姐姐气质（可能是想到他有个小弟弟的关系吧）。不过第一版出来的几个角色会有点太低龄化和太欧美卡通感了，所以反复调试，给杨澄又添加了点“独立”和“凌厉”的气质以及根据身世背景而产生的更多服装配饰上的细节想法……有个有趣的小插曲：在设定杨澄外貌时，偷偷参考了魂电篇的执行导演之一FC（笑）@一风尘FletcherC ，就是图三我打了马赛克的那张照片。真的，原案里的杨澄和fc导演非常像呢！另外不得不提一下人见人爱的小柚子的设计过程：最初我们设计了好几个小柚子，可能做了太多设计却依然没通过而有点绝望吧，在某一版提交中故意搞怪地画了一个黑色皮肤的小柚子，结果李导竟然觉得这个想法不错！“因为凸变是面向世界的故事，多种族的角色很正常呀……”“但是……他和夏晴是姐弟哎……”“同母异父？”“……”“或者就是天生皮肤比较黑？”“………”大家自行脑补吧～还好最后没有使用这个方案[裂开]
+<img src="https://p.sda1.dev/24/725c926297488f90aad65e99d1a17108/77f57115gy1i18ao9il0cj21nd0u0jxj.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/398794a7fff268e3fb7c3aa24451f3d4/77f57115gy1i18ao9smmzj21b60u079l.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/06a570878d0336bf0126dd60fbbcd8c4/77f57115gy1i18aoa5rxhj21g70u0jyo.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/739f0eee1b48e9cd28d56f83e84c51f8/77f57115gy1i18aoax2u3j20np0o6q57.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/fb9977329f84913e7ab8a46044ea95bb/77f57115gy1i18aobmqzjj21q10u0457.jpg" referrerpolicy="no-referrer">
+
+岩叔“黑化史”
+
+本周《魂电篇》大家是不是被结尾的各种大反转惊到了？最早设计岩叔时，只是觉得像YC这样一个内向的主角，身边需要一些性格外放和开朗的配角与他产生互动以激发他不断前进不至于走入内心的深渊～所以奶茶店老板岩叔的形象会是个看起来有点“老不正经”但内心却细腻温柔的大叔。可能是自己的年纪也在不断上长的关系，我一直排斥着把动画中的老人家角色设计成“一眼就是老年人既视感”的样子～所以在初期草图中给了岩叔有些“骚包”的服装设计。比如粉色的紧身衬衣和白色的短裤以及依然健壮的身材，看起来有些滑稽又出挑～我自己很喜欢这一版，正当我满心欢喜地提交给李导时，李导忽然对我说“岩叔还有一个身份……”———嗯，就是各位看官本周的表情～～～～[裂开]于是为了兼顾“岩叔的另一面”，我又开始找新的形象灵感～那时刚看完《好莱坞往事》，里面布拉德皮特实在是太帅了总在脑海中不能忘记，所以就希望岩叔的奶茶铺老板形象会带着布拉德皮特在电影中那看似亲和却又有些深藏不露的气质，一个六十岁依然状态很好的老人家形象渐渐就出来。其实还为奶茶铺设计过两个配角店员：酷酷的冷面小姐姐和暗恋小姐姐的单纯小伙，《魂电篇》是描写大学生和年轻人为主的故事，就想着尽可能多呈现一些和yc同龄的年轻人的状态和样子（还偷偷想过单纯小火和yc一起感叹暗恋之苦的场面～）至于围裙logo的彩虹和太阳，灵感来自某天原画老师在工作室开很大声播放着法老的歌，歌词里有“阳光、彩虹、我和你…”，那首歌的氛围似乎和奶茶店的剧情很搭呢，只是世事难料谁都不知道未来会变成什么样[裂开]………还是珍惜当下和眼前值得珍惜的每一刻和每个人吧！ 
+<img src="https://p.sda1.dev/24/b145b07f257bdcbfd2d94c673db36aad/77f57115gy1i1kx8y6w7aj20p80lwq5a.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/51f19c903af3fe0d09c299460859768d/77f57115gy1i1kx8xkyn4j212q0sqwj6.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/366e6841c0d0d5a807010f9b69caefbd/77f57115gy1i1kx8z92suj21fe0rrdnm.jpg" referrerpolicy="no-referrer">
+
+两个魂电
+
+关于两个魂电这个想法其实在和李导还有FC导最初头脑风暴时就已经开始浮现，当时用很快速度画过一张草图（图2）来将脑海中的想法固定下来；“两个特摄风味的皮套英雄；一个带点黑暗气质，另一个是涉世未深的新人”，同时还做了一些关于两人对决的概念镜头（图3、4、5、6）：一个使用能将电力凝聚发射的装置；另一个则依靠电力带来的能量使用更简陋和原始的肉搏方式……在凸变英雄X的项目中，我常常会在编创会后把一些灵光一闪的点子快速画下来，大部分都是些带着“故事感”的画面和镜头，这多亏过去漫画创作生涯让自己养成了用“画画”来代替“记录”的习惯，在凸变X的编创中这种用“画”记录创意的方式为编创工作提供了不少沟通和交流的便利～[可爱]
+<img src="https://p.sda1.dev/24/9be4c2d576b615d0e48e951f7e8dcca2/77f57115gy1i1ni5znlwkj20o00ib79i.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/5b116d7b5652e7066569946677ebc267/77f57115gy1i1ni60dpnyj219r0mrtei.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/0401b18e704c2631fefc2f67e858d578/77f57115gy1i1ni5z7uw2j20u01dx7ct.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/888ca2ea150f316e2d88771b9de2943c/77f57115gy1i1ni60qxafj20u01dedoz.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/eb20da381952bd76bbaf1c0673aa98b5/77f57115gy1i1ni614seej20u01xpdri.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/1cfef74fb9fcfb12bb2e87701fc40218/77f57115gy1i1ni61x8r4j20u01xpdt6.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/ba6789a507833a1060652daa671873bb/77f57115gy1i1dyr2otruj21jl0u0doy.jpg" referrerpolicy="no-referrer">
+
+【【凸变英雄X】魂电篇01集 二维动画部分 作画展示】 [https://b23.tv/JfKTtef](https://b23.tv/JfKTtef)
+
+【【凸变英雄X】魂电篇03集 二维动画部分 作画展示】 [https://b23.tv/OL4YNTR](https://b23.tv/OL4YNTR)
+
+【凸变英雄X魂电篇07集原画线拍】 [https://b23.tv/b9ABOQ8](https://b23.tv/b9ABOQ8)
+
+[https://weibo.com/5462694638/5162560820085070](https://weibo.com/5462694638/5162560820085070)
+
+首先还是很荣幸李导能给我参与凸变前期剧本的机会，之前头脑风暴会议时在想英雄角色的时候很多角色磊哥想的都很有意思，可是英雄需求数量要的是10个难免有点难哈哈，所以群策群力我也参与到了其中，然后出差跑上海关小黑屋里创作锤炼，近两个月的高强度剧本大纲虽然真的很累但是收获许多哈哈。
+
+小黑屋期间，当时想的是能不能做一个类似特摄片的英雄角色，因为从小就喜欢蒙面超人就想着看看能不能往皮套人靠一靠，于是魂电为名的英雄角色就诞生了，前期剧情打磨其实特别不顺利和满意，但确实故事要让人动情必然要拿出自己的一部分出去，这个也是当初学到的东西，后来经过轮番打磨以及阳建和磊哥的加入，然后到李导总修才有了今天的故事，自己也受益很多，很高兴大家能喜欢魂电篇~~也算是第一次原创实践~~
+<img src="https://p.sda1.dev/24/46a7d28fa4e28b743716bf8f1aaeae01/005XGUq2gy1i13d0sq5lgj30wt17rhdu.jpg" referrerpolicy="no-referrer">
+
+继时光代理人logo后的新设计，希望大家喜欢。祝今天开播大家看得开心！
+<img src="https://p.sda1.dev/24/22fa8d606021f8ebb1f0c7d1217e6ef8/005XGUq2gy1i06wv5nsvaj318g0nxqjs.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/6053f9c83568716d0805e7a6d0844bb6/005XGUq2gy1i06wv5ivk4j318g0nxdrt.jpg" referrerpolicy="no-referrer">
+

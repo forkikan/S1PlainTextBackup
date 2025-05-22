@@ -1341,3 +1341,15 @@ B站有视频，教你样本会刷在什么样的地形上的。而且主线、�
 
 至于搜刮出来的是钱、样本、徽章还是超级货币纯看脸。最稀有的还是超级货币，因为不氪金的话只有地图上搜刮和通行证解锁两个途径，而后者因为本身就是花超级货币买的所以至多算回血，所以打到后面要是老不上线的话真正缺的是超级货币，徽章却会时不时发工资给你，导致无课党最后买不起新通行证又为了防止徽章溢出不得不氪金买新通行证及时花掉<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ParadiseMartyr  
+##### 6048#       发表于 2025-5-22 22:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67840763&amp;ptid=2170852" target="_blank">Muteki_Link 发表于 2025-5-22 13:20</a>
+B站有视频，教你样本会刷在什么样的地形上的。而且主线、支线任务点基本都会散布一些样本在周围，接近后 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好麻烦，还是直接氪吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

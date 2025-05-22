@@ -1265,3 +1265,43 @@ nt发动神棍表演都要靠米粒当材料的、
 1. 麻球也算是个NT，第三集远在学校脑门过个电精准定位牢修 ...</blockquote>
 NT感应确实很薛定谔，有时候能远距离交流，但也可能化个妆面对面都认不出，还经常有认错人的环节
 
+
+*****
+
+####  rockroxas  
+##### 14917#       发表于 2025-5-22 22:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67842402&amp;ptid=2209276" target="_blank">wpcc 发表于 2025-5-22 21:27</a>
+
+az从商业上是个卖腐的作品 你要这么看还真没问题 卖公主就是bg了这不是背离市场了 ...</blockquote>
+是神作吗
+
+这么迎合市场，最后市场对他的评价一定至少是平稳落地吧
+
+*****
+
+####  ヒトニナル  
+##### 14918#       发表于 2025-5-22 22:41
+
+对面是个人就会被总帅认成阿姆罗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猪突猛进R  
+##### 14919#       发表于 2025-5-22 22:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67842610&amp;ptid=2209276" target="_blank">璇瑢子R 发表于 2025-5-22 22:32</a>
+
+我倒是觉得最后几集泽克诺瓦不要变得太廉价随便用
+
+穿越系能力用多了故事总是圆不上的 ...</blockquote>
+泽克诺瓦目前至少用了3次：
+
+1.79鸭炸了所罗门（虽然不是他本意）。
+
+2.第4集牢修杀魔女，有个高达眼睛的特写，现在回过头来看就是发功了。
+
+（从第7集来看，泽克诺瓦影响范围可大可小）
+
+3.第7集牢修跑路。
+
