@@ -1713,3 +1713,33 @@ top2你就不能把其当top1的续作来看，建议当成独立作品，如果
 还是说根本没有在看 ...</blockquote>
 在买新出的红白谷，新高达一边去<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  ryanghj  
+##### 14954#       发表于 2025-5-23 00:39
+
+要是真有大跨度时间跳跃也挺好
+
+不过看起来不像是会这么演的样子
+
+<img src="https://img.stage1st.com/forum/202505/23/003926mwghozfzsvvj03h2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (206.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-23 00:39 上传
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 14955#       发表于 2025-5-23 00:46
+
+ 本帖最后由 Dai-Dai-Dai-Dai 于 2025-5-23 00:47 编辑 
+
+吉翁的光能/热能武器不是建吗？按照留了伏笔就一定要回收原则，应该要跳到吉翁的大杀器建好的时间点。
+
+有没有熟UC的告诉我建好要多久？
+
