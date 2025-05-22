@@ -32,3 +32,24 @@
 
 有人猜最后会是GQX和2号机升重高达胡扯头花。
 
+
+*****
+
+####  仟音一心  
+##### 14804#       发表于 2025-5-22 13:55
+
+<img src="https://p.sda1.dev/24/54e524d42d473f5086b97f16eac1452f/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  无念  
+##### 14805#       发表于 2025-5-22 14:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67840844&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-22 13:51</a>
+有人猜最后会是GQX和2号机升重高达胡扯头花。</blockquote>
+真的存在二号机的话倒是可以理解老太婆为啥只要喵安了，对她来说手里有机体只缺能激活欧米茄塞可缪的驾驶员，那自然能说出对G夸无所谓
+而且也可以圆上为啥对番茄视而不见了，她可能用留下G夸和对应的驾驶员之一番茄和绿叔叔做了交换，让他同意立马带着木马执行下一个任务
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

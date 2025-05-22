@@ -3544,3 +3544,22 @@ B站的评论也提出了一个思路，从目前7集整体来看，片子里八
 
 火箭发射时候的bgm也太Decisive Battle了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Asukalangley33  
+##### 311#       发表于 2025-5-22 13:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67838020&amp;ptid=2196984" target="_blank">PingGuo233 发表于 2025-5-21 18:23</a>
+
+这冈钉不会下一集就要用来发射八千代到地球吧或者是把原本用来发射冈钉的能量用来回程，那这样不是白装了吗 ...</blockquote>
+制作组挺喜欢NETA美国电影的
+
+现在这个展开不是完美符合地心引力么？
+
+猜一个下集八千代用一个轨道上的废弃卫星回的地球
+
+国际空间站啥的<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+然后里面发现了人类内战/团灭的证据
+
