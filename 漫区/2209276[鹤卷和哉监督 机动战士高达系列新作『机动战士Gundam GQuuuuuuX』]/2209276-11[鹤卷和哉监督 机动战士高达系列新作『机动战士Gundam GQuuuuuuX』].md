@@ -1809,3 +1809,85 @@ top2你就不能把其当top1的续作来看，建议当成独立作品，如果
 你是不是木柜子看多了 高达主角蹲紧闭吃修正一直都有</blockquote>
 我说的是在主角不断吃瘪被打压的同时，还有一个配角或反派一直踩着主角装逼如风，主角待遇差的同时且配角待遇好，如果是反派的话更加明显，谁是作者偏爱的角色一目了然
 
+
+*****
+
+####  巨馍蘸酱  
+##### 14963#       发表于 2025-5-23 01:26
+
+ 本帖最后由 巨馍蘸酱 于 2025-5-23 01:27 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67842956&amp;ptid=2209276" target="_blank">巨馍蘸酱 发表于 2025-5-23 01:20</a>
+
+我说的是在主角不断吃瘪被打压的同时，还有一个配角或反派一直踩着主角装逼如风，主角待遇差的同时且配角 ...</blockquote>
+这种情况是作者和观众的视角不一样导致的。作者拥有上帝视角，能看到整个故事的全貌，而观众只能看到作者所描写出来的部分。而绝大多数作品都是以主角的视角来展开故事和带领观众了解作品的世界的，所以观众天然会对主角投射最大的情感。 但是作者并非如此，作者并不需要通过带入主角的视角来进入作品的世界，作者可以拥有很多视角，而部分作者喜欢带入配角或反派，也就是所谓的作者皮套。经验多的观众能很容易看出哪些角色是作者皮套，只不过不同作者风格不同，有的作者喜欢让自己的皮套在作品里当个次要配角，虽然有可能很装逼但戏份不多不太影响剧情，而有的作者就喜欢让自己的皮套狠狠抢主角的风头
+
+
+*****
+
+####  ryanghj  
+##### 14964#       发表于 2025-5-23 01:30
+
+ 本帖最后由 ryanghj 于 2025-5-23 01:32 编辑 
+
+<img src="https://img.stage1st.com/forum/202505/23/012351qxfmydf0fwx4fw25.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.99 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-23 01:23 上传
+
+之前有人提出ED里似乎有些小物件能体现剧情
+
+比如这里似乎有一个吉翁国徽的文件，可能是对应喵安加入吉翁军
+
+<img src="https://img.stage1st.com/forum/202505/23/012434whooododw7jjo95x.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (25.19 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-23 01:24 上传
+
+那么分析一下其他贴在墙上的东西，或许有暗示剧情的作用
+
+<img src="https://img.stage1st.com/forum/202505/23/012517y50uyh85wx5jtuw2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (126.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-23 01:25 上传
+
+首先是这一串照片，似乎是在地球上拍的，至少能看到大海和云，还能看到往返地球的机票
+
+<img src="https://img.stage1st.com/forum/202505/23/012539k5f4wprodqz2gq0f.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (39.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-23 01:25 上传
+
+然后是这个奇怪的物体，背景的红色新月让人联想到了玛秋的耳环，但是中间的十字形结构不知道是什么东西，但我隐约觉得这东西就是手电筒
+
+<img src="https://img.stage1st.com/forum/202505/23/012712pzaf6f1zf2mq8iiy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (603.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-23 01:27 上传
+
+下面这张图，有地平线、有地球，说明是从月亮上拍的地球，下集应该就会有涉及月亮的剧情了
+
+<img src="https://img.stage1st.com/forum/202505/23/012815gz1iy9daddtk0229.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (33.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-23 01:28 上传
+
+其他的贴图还看不出内容物
+

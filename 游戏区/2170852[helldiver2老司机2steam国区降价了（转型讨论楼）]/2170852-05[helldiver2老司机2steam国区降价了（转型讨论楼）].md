@@ -1367,3 +1367,16 @@ B站有视频，教你样本会刷在什么样的地形上的。而且主线、�
 
 —— 来自 HONOR FLC-AN00, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  qwased  
+##### 6050#       发表于 2025-5-23 01:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67842889&amp;ptid=2170852" target="_blank">保科智子 发表于 2025-5-23 00:33</a>
+
+别，找个虫子1级图基本都是farm队，2人最多半小时能刷1k。就是落地各自往不同方向跑，走到附近会地图上有 ...</blockquote>
+要刷早点刷，贱头说以后会改这种获取方式了
+
+没洁癖的话直接坐挂车算了
+
