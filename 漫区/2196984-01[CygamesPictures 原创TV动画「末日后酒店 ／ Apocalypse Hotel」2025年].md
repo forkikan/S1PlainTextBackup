@@ -3592,3 +3592,11 @@ B站的评论也提出了一个思路，从目前7集整体来看，片子里八
 
 <img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  吉吉国王  
+##### 315#       发表于 2025-5-22 18:12
+
+宇宙居民嘭子直接开上机甲了，你不会还是nt吧？
+
