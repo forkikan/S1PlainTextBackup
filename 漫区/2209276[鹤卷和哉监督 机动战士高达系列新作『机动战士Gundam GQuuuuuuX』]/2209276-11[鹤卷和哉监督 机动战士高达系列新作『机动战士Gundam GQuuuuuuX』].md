@@ -53,3 +53,36 @@
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  洛克萨斯  
+##### 14806#       发表于 2025-5-22 14:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不会最后一集是1号机和2号机对捅引发那啥共鸣吧
+
+*****
+
+####  oi99o  
+##### 14807#       发表于 2025-5-22 14:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67840854&amp;ptid=2209276" target="_blank">仟音一心 发表于 2025-5-22 13:55</a></blockquote>
+其他先不说，手绘机战是真的不用指望了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  ティグル  
+##### 14808#       发表于 2025-5-22 14:13
+
+闪哈这种规格的制作都只配用3D，洗洗睡吧
+
+*****
+
+####  久保由利香  
+##### 14809#       发表于 2025-5-22 14:17
+
+nbht这种，套用亚赞那句话“你看都看不懂，还谈什么机战”
+
