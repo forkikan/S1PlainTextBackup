@@ -16519,3 +16519,11 @@ op卡其脱离太6人只有小森没上过机
 喵安会成为面具女吗，还是说夏利亚这边的玛秋更有可能戴面具，毕竟变通缉犯了，还有夏利亚影响 ...</blockquote>
 我觉得马秋的安排更像夏亚在骡鸭拉三人里的定位，富家大小姐，早期飒爽中期被穷小子压制<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  YU_JI  
+##### 14796#       发表于 2025-5-22 13:01
+
+这部对于Kirakira的描写路径会类似top2里topless对自己能力的执念吗？当时看top2的时候也觉得topless对这玩意过度执念，不过topless好歹有交代一些简单设定，Kirakira除了背靠一个聊天室背景啥都没有<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
