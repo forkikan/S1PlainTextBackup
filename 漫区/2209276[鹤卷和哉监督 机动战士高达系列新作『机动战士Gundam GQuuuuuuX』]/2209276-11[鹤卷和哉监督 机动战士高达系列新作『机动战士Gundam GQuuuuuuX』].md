@@ -3193,3 +3193,54 @@ side6科技还真是恐怖如斯，直径6km多点的殖民地闹市区打成那
 
 这保护伞失格啊
 
+
+*****
+
+####  赤黑的假面  
+##### 15075#       发表于 2025-5-23 15:57
+
+<blockquote>hsyg 发表于 2025-5-23 15:51
+现在想想片里除了黑三，其他正常队伍都是开的扎古。而黑三只能排排前四，那前三是什么妖孽。
+
+加上全民参赌 ...</blockquote>
+美苏冷战的时候只知道意大利的阿涅利家族喜欢两头吃，同时跟美苏做生意
+
+
+*****
+
+####  玖羽  
+##### 15076#       发表于 2025-5-23 16:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67844648&amp;ptid=2209276" target="_blank">久可让 发表于 2025-5-23 15:22</a>
+
+关于紫婆婆可能喜提nt身份这一点，如果要在原作里找补的话，那就是79里紫婆婆对于自己戴面罩的解释是“讨厌 ...</blockquote>
+大不了和雷比尔一样NT Lv1，没人在乎
+
+*****
+
+####  猪突猛进R  
+##### 15077#       发表于 2025-5-23 16:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67844768&amp;ptid=2209276" target="_blank">syndrome2032 发表于 2025-5-23 15:53</a>
+
+黑拳最抽象的不是side6总统都知道还默认，结果izuma条子查的一个比一个紧吗。
+
+这保护伞失格啊 ...</blockquote>
+SIDE6的军警职业素养很高的，看见精神力高达不逃不躲反而往前冲，真是拯救生命的扎古了。（虽然没卵用<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 15078#       发表于 2025-5-23 16:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67844768&amp;ptid=2209276" target="_blank">syndrome2032 发表于 2025-5-23 15:53</a>
+
+黑拳最抽象的不是side6总统都知道还默认，结果izuma条子查的一个比一个紧吗。
+
+这保护伞失格啊 ...</blockquote>
+也许只有个别底层不知道，这不重要
+
+我在前面也说过，这片一个明显的问题是并没有打算好好刻画黑拳生态，而只是纯粹当成工具设定
+
+你本来就已经远离战争了，连黑拳都不好好刻画，就会显得根基很空
+
