@@ -2725,3 +2725,16 @@ V高达结局没法让人释怀吧，也不是要卡迪公这个颠婆去世，�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">结局后的卡迪公是活不下去的，也算是隐晦的给了她一个更痛苦的死法
 
+
+*****
+
+####  桜庭ななみ  
+##### 15035#       发表于 2025-5-23 13:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67843829&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-23 11:20</a>
+
+一角驴只看情节也还好，只是大文豪的大方向有毛病而已，外加被并进了UC正史才是最难蚌的 ...</blockquote>
+独角兽最难崩的就是剧情，反而思想和情感有非常强的作家性这一点算是脚本家的功劳。
+
+只是太着重感性却没有靠理性的故事线合理表达出来才是最大的问题。
+

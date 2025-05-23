@@ -568,3 +568,27 @@ PVP S0赛季更多感觉像变种爬塔
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  zksandy  
+##### 1535#       发表于 2025-5-23 13:21
+
+这天梯真不肝…反正…打不过就是打不过…
+
+*****
+
+####  rockroxas  
+##### 1536#       发表于 2025-5-23 13:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67844187&amp;ptid=2071758" target="_blank">体制 发表于 2025-5-23 12:56</a>
+
+双防御机师才是mvp
+
+因为上次up的是seed系，盾机用亥伯龙有奇效。</blockquote>
+没有的
+
+sf是种命机不吃那个能力
+
+自由正义输出不怎么高
+
