@@ -2290,3 +2290,37 @@ GQ 一个铺垫了2集 护卫精神力只浮在边上 从开炮到被打死一�
 
 实际上刚完结的时候官方柄图和周边都是带着卖国姬的，经常有奇妙3P构图。完结一两年之后的官方图才开始甩掉负面资产卖卖能卖的角色。
 
+
+*****
+
+####  mishidexieyu  
+##### 14997#       发表于 2025-5-23 10:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67843434&amp;ptid=2209276" target="_blank">pu 发表于 2025-5-23 10:01</a>
+可能你们都忘了 盖茨本来是个特殊安装了增幅器猎狗的操作员 原作甚至没开ms打过 只在和卡缪人肉互射了几 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">夏利亚原作里其实对骡子的动作能反应过来，但是其他的ma操作员（记得就是眼镜妹）反映不过来寄了
+那时候的骡子已经是操作杆搓出火花的水平了，刚出场就能跟得上骡子，夏利亚确实是一个很有潜力的nt，哪怕不按照gq时间线而是单纯在79活下来，也是数一数二的王牌
+uc里只要是自然的nt感觉都不弱
+
+*****
+
+####  mishidexieyu  
+##### 14998#       发表于 2025-5-23 10:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67843455&amp;ptid=2209276" target="_blank">LadySaazbaum 发表于 2025-5-23 10:06</a>
+路过说一句，az24话出来之前p站骑士姬（男二X女主）作品数一直吊打其他cp，磕这对的不分男女。讲道理正式 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我当时是觉得男二这样的舔狗肯定是没法和女主在一起，男主只是对女王有点感情的样子，但真论起来也不像是这么爱
+女王有政治想法反而最符合我想法，az结局我当年甚至还觉得没什么感觉）如果给男主配个地球女友我觉得可能争议声没准会少很多
+
+*****
+
+####  猪突猛进R  
+##### 14999#       发表于 2025-5-23 10:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67843348&amp;ptid=2209276" target="_blank">mengsu 发表于 2025-5-23 09:33</a>
+
+强化人小妹已经被夏亚现象搞得脑子瓦特了，爬大楼什么都可以理解。我不太理解的是为什么这么执着于用精神力 ...</blockquote>
+我怀疑原本是有场汉谟拉比和强人的打戏的，后来因为篇幅或其他原因删掉。
+
+实际情况是这集强人只是挡在紫婆前面，什么事都没干，人头都被绿叔叔刷了。
+
