@@ -3893,3 +3893,29 @@ FBI两头堵首席哥时还说绿叔叔调MA来是要把他们都送上天，但
 
 所以我的观点是，她俩是真的把修司当做一个人来喜欢的<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">玛秋向往的kirakira、喵安想要的包容自己的人，都不过是一个契机
 
+
+*****
+
+####  七七見奈波  
+##### 15129#       发表于 2025-5-23 23:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67845981&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-23 23:09</a>
+
+两个人下意识的第一反应都是带着修司跑，不管其他的
+
+这集玛秋更是把上一集里叫做“我的MS”的Gqux交给喵 ...</blockquote>
+修司除了kirakira（……）以外也确实和两个女孩身边所有男性都不一样，虽然不说人话（误），但是语气和态度总是很温和，充满包容性，几乎很少否定他人。啊，果然还是“修司是能成为我母亲（大概无误）的男性！”<img src="https://static.stage1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 15130#       发表于 2025-5-23 23:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67845906&amp;ptid=2209276" target="_blank">新人马甲2 发表于 2025-5-23 22:39</a>
+
+这句话的意思是，博美犬这边不会理解（
+
+不过这么说起来，这个剧本到目前的弱点之一，可能就是分配给角色 ...</blockquote>
+严格来说算有一次吧，那个好心哥（姑且这么叫吧）叫番茄还是回去上学吧，虽然基本上也是他说话番茄在听
+
