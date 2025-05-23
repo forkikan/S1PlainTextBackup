@@ -3731,3 +3731,12 @@ FBI两头堵首席哥时还说绿叔叔调MA来是要把他们都送上天，但
 
 有一说一如果这条世界线上真有厕妹那玛秋现在肯定是那个被厕妹挂的人<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Devola  
+##### 15115#       发表于 2025-5-23 21:49
+
+既然不叫宇宙厕妹
+那就叫集美型nt吧
+
