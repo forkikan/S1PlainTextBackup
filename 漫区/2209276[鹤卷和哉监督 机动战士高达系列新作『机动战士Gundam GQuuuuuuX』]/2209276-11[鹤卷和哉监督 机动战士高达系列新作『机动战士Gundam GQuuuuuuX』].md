@@ -3755,3 +3755,34 @@ FBI两头堵首席哥时还说绿叔叔调MA来是要把他们都送上天，但
 
 我看到厕妹也以为在说喵搞得我半天看不懂，不要乱用词。
 
+
+*****
+
+####  王元姬无惨  
+##### 15118#       发表于 2025-5-23 22:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67845846&amp;ptid=2209276" target="_blank">fujissw 发表于 2025-5-23 22:15</a>
+
+确实别乱用这个词，厕妹是现实生活环境差看家境好的人就挂对方偷自己人生并且对家人没感情的叉烧小妹，不知 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+笑了 你说的这不完全符合吗
+
+“修斯和基拉基拉是属于我的”
+
+“对家人毫无感情”
+
+家庭倒是不差 所以是“宇宙厕妹” 宇宙世纪的厕妹也要现代化改造啊 完全符合 哪用错了
+
+*****
+
+####  新人马甲2  
+##### 15119#       发表于 2025-5-23 22:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67845742&amp;ptid=2209276" target="_blank">Dai-Dai-Dai-Dai 发表于 2025-5-23 21:39</a>
+
+退路只不过是安琪糊弄小番茄的说辞，我不觉得安琪把小番茄和GQUX卖给绿毛帅大叔有想过小番茄的退路了，又 ...</blockquote>
+她的退路一直是抽身回去过JK日子，只要她忘了这一切没有人会特地牵扯到她的
+
+对博美犬来说小番茄就是那个明明没有一点好处莫名其妙非要跟他们混在一起的好人家大小姐，而且其实一帮男人都不太清楚她在想什么，安琪可能也没想过她真的愿意为了小男友（安琪视角）走到失去一切不能回头的地步
+
