@@ -2642,3 +2642,26 @@ gqux第七话想让麻球或者修斯打精神病唯一解就是神棍发动触�
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  qixinno2  
+##### 15027#       发表于 2025-5-23 12:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有阿姆罗的世界太棒了
+
+<img src="https://img.stage1st.com/forum/202505/23/120532tqc1pqm0ipgmi1w4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (195.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-23 12:05 上传
+
+*****
+
+####  秋月孝三  
+##### 15028#       发表于 2025-5-23 12:06
+
+还是贷款下一话后半的夏利亚大回旋吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

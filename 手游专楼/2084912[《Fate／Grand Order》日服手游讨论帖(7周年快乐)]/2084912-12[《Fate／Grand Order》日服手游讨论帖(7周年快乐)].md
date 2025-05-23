@@ -740,3 +740,24 @@
 
 呆毛这个2技能强化现在直接成了负面效果了
 
+
+*****
+
+####  alucardcz  
+##### 16793#       发表于 2025-5-23 11:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67843809&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-5-23 11:16</a>
+
+欧个蛋</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">欧皇 就是不一样 欧羡慕
+
+*****
+
+####  qixinno2  
+##### 16794#       发表于 2025-5-23 12:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67843882&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-5-23 11:33</a>
+
+欧，羡慕</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你都出几个五星了 羡慕个屁
+
