@@ -3994,3 +3994,14 @@ FBI两头堵首席哥时还说绿叔叔调MA来是要把他们都送上天，但
 
 之后要是把小番茄的错付大书特书当这作的情感核心，会比较无趣吧，希望不要这样。
 
+
+*****
+
+####  创始’’’天翔  
+##### 15137#       发表于 2025-5-24 00:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67846054&amp;ptid=2209276" target="_blank">jojonathan 发表于 2025-5-23 23:55</a>
+
+想了一下 如果夏利亚是什么好大人典范我大概就要破防了 感觉主角在剧情上的生存空间被压缩的好厉害.   ...</blockquote>
+他要不是好大人的典范，那谁来给麻球一个大回旋<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
