@@ -2240,3 +2240,25 @@ GQ 一个铺垫了2集 护卫精神力只浮在边上 从开炮到被打死一�
 强化人小妹已经被夏亚现象搞得脑子瓦特了，爬大楼什么都可以理解。我不太理解的是为什么这么执着于用精神力 ...</blockquote>
 盖茨这人不一直就是个垫子的水平么，也不奇怪吧。
 
+
+*****
+
+####  璇瑢子R  
+##### 14993#       发表于 2025-5-23 09:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67843356&amp;ptid=2209276" target="_blank">AraTurambar 发表于 2025-5-23 09:34</a>
+盖茨这人不一直就是个垫子的水平么，也不奇怪吧。</blockquote>
+那说起来夏利亚原来也是个垫子
+
+*****
+
+####  AraTurambar  
+##### 14994#       发表于 2025-5-23 09:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67843387&amp;ptid=2209276" target="_blank">璇瑢子R 发表于 2025-5-23 09:47</a>
+
+那说起来夏利亚原来也是个垫子</blockquote>
+夏利亚新人设+核心地位那当然不一样。
+
+盖茨这次出场得也很杂鱼，那基本上可以认为垫子水平没有变。
+
