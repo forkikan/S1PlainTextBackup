@@ -754,3 +754,18 @@ SSR有哪个防御高达是高手吗
 我的00和斧王开局就往对面送阿，这能玩吗 ...</blockquote>
 防御机用SEEDA ULT的亥伯龙，环境卡，对SEED系专杀
 
+
+*****
+
+####  rockroxas  
+##### 1553#       发表于 2025-5-23 15:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67844669&amp;ptid=2071758" target="_blank">windtrack 发表于 2025-5-23 15:27</a>
+
+防御机用SEEDA ULT的亥伯龙，环境卡，对SEED系专杀</blockquote>
+点开效果目标看看，对sf不生效的（
+
+ex武装基本都是属性减伤无效，只能靠盾跟血防顶了，不过光这点而言亥伯龙UR化之后也是个及格的防御机，还有必杀+劲敌
+
+母舰跟主角劲敌至少要能吃到一个，还有主角劲敌标签的就是杜鲁基斯2，卡池的扎古2改跟1.5高达了
+
