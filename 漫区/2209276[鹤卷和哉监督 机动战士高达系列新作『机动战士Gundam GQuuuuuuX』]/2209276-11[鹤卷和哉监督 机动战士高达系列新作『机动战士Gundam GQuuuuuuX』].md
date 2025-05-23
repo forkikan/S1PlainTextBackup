@@ -3623,3 +3623,26 @@ TOP1也一样，它是2集为一组发售，每一组之间差异大得都不像
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  wpcc  
+##### 15105#       发表于 2025-5-23 20:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67844924&amp;ptid=2209276" target="_blank">newise 发表于 2025-5-23 16:32</a>
+
+FBI两头堵首席哥时还说绿叔叔调MA来是要把他们都送上天，但是正宗大飞空调却能光明正大过海关上街 ...</blockquote>
+那个海关上一次放了一台京宝梵进来 你说呢 同一个人
+
+*****
+
+####  wpcc  
+##### 15106#       发表于 2025-5-23 20:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67845372&amp;ptid=2209276" target="_blank">花達香奈 发表于 2025-5-23 19:07</a>
+
+如果你说的是绿叔叔的线控炮，你看汉布拉比和精神病那烧穿融化的效果，前者还有灌浆音效
+
+如果说的精神病 ...</blockquote>
+完全反射光束的材料谁和你说的 基本原理是用i立场反射的 难道是用镜子能反射吗
+
