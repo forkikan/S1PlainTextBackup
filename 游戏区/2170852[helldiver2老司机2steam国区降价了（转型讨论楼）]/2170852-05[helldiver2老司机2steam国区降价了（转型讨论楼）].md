@@ -1454,3 +1454,16 @@ B站有视频，教你样本会刷在什么样的地形上的。而且主线、�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ParadiseMartyr  
+##### 6058#       发表于 2025-5-23 13:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67843155&amp;ptid=2170852" target="_blank">jy000129 发表于 2025-5-23 08:25</a>
+我觉得新人别急着焦土，初始债券太吃勋章了
+去下个超级货币大箭头补丁刷货币解锁民主爆炸债券，里面的爆燃 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">主要我看刷蓝币攻略，里面就要配装爆炸弩。我买也没爆炸弩给我用啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

@@ -2708,3 +2708,20 @@ v的结局更像一种麻木和自我欺骗。
 V高达结局没法让人释怀吧，也不是要卡迪公这个颠婆去世，但罪人失忆忘记自己的罪孽平静生活，是否太温柔了 ...</blockquote>
 奥德罗最不能让人释怀 还有Z里的艾玛 
 
+
+*****
+
+####  57042711  
+##### 15033#       发表于 2025-5-23 12:54
+
+果然还是因为汉布拉比没有表演一通板野马戏再被击坠的原因吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  秋月孝三  
+##### 15034#       发表于 2025-5-23 12:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">结局后的卡迪公是活不下去的，也算是隐晦的给了她一个更痛苦的死法
+

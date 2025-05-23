@@ -548,3 +548,23 @@ PVP S0赛季更多感觉像变种爬塔
 
 看对面哪个速度最快（都破的情况下自由比sf快），对位放个高攻的反死他，防御机不够强的话不要上两次援防避免对面多动
 
+
+*****
+
+####  体制  
+##### 1533#       发表于 2025-5-23 12:56
+
+双防御机师才是mvp
+因为上次up的是seed系，盾机用亥伯龙有奇效。
+
+—— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  jackyhuang  
+##### 1534#       发表于 2025-5-23 12:59
+
+一堆三星拿头打<img src="https://p.sda1.dev/24/22aa33cb7e6deae76ef10b7f7b999ccd/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
