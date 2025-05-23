@@ -3611,3 +3611,15 @@ TOP1也一样，它是2集为一组发售，每一组之间差异大得都不像
 
 还有个猴版的incom，给nt力不够的一般人也能用的
 
+
+*****
+
+####  无念  
+##### 15104#       发表于 2025-5-23 20:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67845212&amp;ptid=2209276" target="_blank">llysander 发表于 2025-5-23 18:00</a>
+光头也钦点过面对全向攻击贴得越紧越好，虽然裤袜脱落大尉做了个反面教材但是意思传达到了，剧中人大致思 ...</blockquote>
+讲道理夏亚先是贡献了单手单脚躲一轮浮游炮后偷袭卡碧尼得手的名场面好吧，要不是手里连把光束军刀都没有<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">当然夏亚能不能下得去手另说
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

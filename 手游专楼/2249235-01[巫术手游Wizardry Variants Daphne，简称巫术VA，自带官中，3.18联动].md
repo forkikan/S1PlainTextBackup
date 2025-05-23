@@ -1172,3 +1172,42 @@ roll到13%攻和18攻就可以用+4-6攻击改掉防御，然后只强化第一�
 
 全程打防反
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 376#         楼主| 发表于 2025-5-23 20:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67844168&amp;ptid=2249235" target="_blank">elven119 发表于 2025-5-23 12:50</a>
+
+听说有双端卡bug跳过boss直接通关的，通关速度那里是0，这种都跳到脸上打官方耳光了，估计活不久了。
+
+还有 ...</blockquote>
+看到一些正常玩的说也能打到十几的(但一般只有某一层，不像作弊的全都低)，我感觉是你游的祖传bug导致结算时没有算到其中一部分过程（而它这个算法又没公开）
+
+比如穿怪实际是一直没修好的，上次只是修了玩家主动撞怪，听说怪撞你的时候能卡出界面一样能穿，最近似乎还修出了把怪卡复位(我觉得意思是直接退回巡逻路径远端的原点)的bug
+
+多开好像很早就有(这部分我觉得倒不全是你游的锅，回合制只在战斗结束才正式结算的游戏一直都有，但你游的土豆服务器可能会出别人没有的bug)
+
+作弊仔应该是能做到全程卡/跳路径不打怪了<img src="https://static.stage1st.com/image/smiley/face2017/069.png">，目前1-5和16-20榜首这个直球吐槽你游运营的玩家只用了30级面具男单通的
+
+<img src="https://img.stage1st.com/forum/202505/23/200727ohqtuzdue0t0gbhu.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-05-23_194909.jpg</strong> (53.54 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-23 20:07 上传
+
+      
+
+<img src="https://img.stage1st.com/forum/202505/23/200727h45gvwwp8kzqwk94.jpg" referrerpolicy="no-referrer">
+
+<strong>2025-05-23_195425.jpg</strong> (140.32 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-23 20:07 上传
+
+希望你游能处理得得体一点，毕竟才肉眼可见的好起来了，这次出发点也没恶意，就是一如既往的草台<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
