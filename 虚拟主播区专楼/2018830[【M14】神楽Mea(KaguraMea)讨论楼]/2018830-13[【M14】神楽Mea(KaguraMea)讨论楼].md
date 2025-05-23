@@ -9441,3 +9441,13 @@ gibara是毕业了又不是死了，和观众说巴布太郎恐怕不合适罢�
 
 至少动了，删了一堆直播通知推
 
+
+*****
+
+####  sino__unnko3  
+##### 18545#       发表于 2025-5-23 21:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67845633&amp;ptid=2018830" target="_blank">TiHaru 发表于 2025-5-23 20:58</a>
+这种收录肯定是全部收录完了才会说出来有这么一件事的，智齿那个也是你的翻译翻错了 ...</blockquote>
+草草，那那天说的是啥来着
+
