@@ -3469,3 +3469,72 @@ TOP1也一样，它是2集为一组发售，每一组之间差异大得都不像
 
 全身光束涂层小功率的浮游炮就短时间打不穿了吧，其实力大砖飞就能破，防御足够浮游炮短时间打不穿就能往死里踩油门突脸对面本体
 
+
+*****
+
+####  ryanghj  
+##### 15095#       发表于 2025-5-23 19:00
+
+刚才看到有人提到第一集玛秋觉醒时候的kirakira背景音里也有潜水声，去听了下还真是，之前一直没注意
+
+<img src="https://img.stage1st.com/forum/202505/23/190021ov8ff82fnb8vzbdy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (179.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-23 19:00 上传
+
+
+*****
+
+####  ryanghj  
+##### 15096#       发表于 2025-5-23 19:03
+
+另外就是夏亚那次泽克诺瓦特效和修司的差别挺大的
+
+<img src="https://img.stage1st.com/forum/202505/23/190219wytre9ers7n9cvvr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (91.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-23 19:02 上传
+
+<img src="https://img.stage1st.com/forum/202505/23/190338o5x8q2jqnexkssaq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (741.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-23 19:03 上传
+
+<img src="https://img.stage1st.com/forum/202505/23/190301ve1dbxjb9rf18d9d.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (309.88 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-23 19:03 上传
+
+<img src="https://img.stage1st.com/forum/202505/23/190241opzll8fj0kzpofii.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (103.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-23 19:02 上传
+
+*****
+
+####  花達香奈  
+##### 15097#       发表于 2025-5-23 19:07
+
+<blockquote>洛克萨斯 发表于 2025-5-23 18:07
+全身光束涂层小功率的浮游炮就短时间打不穿了吧，其实力大砖飞就能破，防御足够浮游炮短时间打不穿就能往死 ...</blockquote>
+如果你说的是绿叔叔的线控炮，你看汉布拉比和精神病那烧穿融化的效果，前者还有灌浆音效
+
+如果说的精神病那是反射bit不是漏斗，取决于本体的mega/扩散粒子炮威力，就剧中滋水枪的表现怕是军警扎古可以硬扛
+
+不如说有完全反射光束的材料为什么只做成奇怪的武器不普及到一般MS的装甲上
+
