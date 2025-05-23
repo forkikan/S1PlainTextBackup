@@ -527,3 +527,11 @@ PVP S0赛季更多感觉像变种爬塔
 
 有没有无氪的配队思路 我两盾三支援打到大师9w就打不动了
 
+
+*****
+
+####  dio999  
+##### 1531#       发表于 2025-5-23 12:36
+
+大师后又打了几把，都是20w的满破拉克丝，今天把换人次数都用光最后积分12w日不动了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
