@@ -2800,3 +2800,26 @@ V高达结局没法让人释怀吧，也不是要卡迪公这个颠婆去世，�
  但是女的打女的就没问题了，等一个喵安下机抽麻球  —— 来自 HONOR SDY-AN00, Android 14, 鹅球 v3.5.99 ...</blockquote>
 说得好，所以科莫莉留在索顿上了（
 
+
+*****
+
+####  deadpig  
+##### 15042#       发表于 2025-5-23 14:28
+
+说起来我以前就一直不喜欢z的bgm，机战的时候尤其是这样，这次忽然被激发了这个点…
+
+另外，我一直觉得卡缪疯了主要导火索是艾玛辛死在他面前了
+
+
+*****
+
+####  朋友费小号  
+##### 15043#       发表于 2025-5-23 14:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67844399&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-23 14:08</a>
+
+时代不同了，不能打女人。
+
+0079第一集芙劳的家人在眼前惨死，骡子为了让她避难抽醒了她。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可别说了，我又想起来距今七八年前的一场跑团，有女npc在惊恐发作，情况紧急，我情急之下说“我给她一巴掌，让他快速冷静”。然后我就被主持人（女）一直针对到结束，麻了都。
+

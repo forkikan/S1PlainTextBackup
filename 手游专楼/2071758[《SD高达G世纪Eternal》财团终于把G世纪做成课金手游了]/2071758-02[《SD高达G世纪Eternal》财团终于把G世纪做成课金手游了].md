@@ -671,3 +671,22 @@ sf是种命机不吃那个能力
 
 <img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">才打到大师 9w，这几年盾机真是爹，之前没把盾机师拉满后悔死
 
+
+*****
+
+####  rockroxas  
+##### 1546#       发表于 2025-5-23 14:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67844328&amp;ptid=2071758" target="_blank">zzy516232108 发表于 2025-5-23 13:43</a>
+
+有比较好用的ssr机体/机师推荐嘛（</blockquote>
+SP化的SR自由，风灵改修，这俩最好能配UR支援机师；再加上W的双龙高达，流星正义，这些都能吃一击必杀
+
+gq夏亚搭起码一破的白高达，但是吃不到母舰的情况下高端局打不了，容易给对面主力送多动
+
+高破的S高达，1.5高达，骰子高达，能吃到一击必杀词条
+
+卡尔塔（铁血的防御SSR卡池驾驶），毕赛德（00的），松永真（UC79的）有HP恢复，剩下就是找反应高的
+
+ZZ系不建议，达到强势加攻的能力有点难触发，近战机优先度下降一级
+
