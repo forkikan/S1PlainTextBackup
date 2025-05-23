@@ -1144,3 +1144,11 @@ roll到13%攻和18攻就可以用+4-6攻击改掉防御，然后只强化第一�
 
 食人花实在太硬了，感觉得有2w血左右。推到20层实在没资源打过去
 
+
+*****
+
+####  toblkr  
+##### 374#       发表于 2025-5-23 15:52
+
+这就去肝闪避装<img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+

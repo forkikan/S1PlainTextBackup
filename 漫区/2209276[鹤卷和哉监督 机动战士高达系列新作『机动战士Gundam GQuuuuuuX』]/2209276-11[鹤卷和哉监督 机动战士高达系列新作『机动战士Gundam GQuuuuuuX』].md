@@ -3161,3 +3161,35 @@ side6科技还真是恐怖如斯，直径6km多点的殖民地闹市区打成那
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">鸡夸汉谟拉比的表现还是拉一条链子说他是拴在精神病上的比较令人信服
 
+
+*****
+
+####  LadySaazbaum  
+##### 15072#       发表于 2025-5-23 15:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67844587&amp;ptid=2209276" target="_blank">kcalb 发表于 2025-5-23 15:06</a>
+
+喵安干掉汤大基，番茄一筒子打爆紫色寡妇，最后一头锥顶爆绿叔叔，这算不算影响事态走向 ...</blockquote>
+然后原地建立不登校共和国嘛<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">挺好的，支持
+
+*****
+
+####  hsyg  
+##### 15073#       发表于 2025-5-23 15:51
+
+现在想想片里除了黑三，其他正常队伍都是开的扎古。而黑三只能排排前四，那前三是什么妖孽。
+
+加上全民参赌，还能出周边，收获资金巨大，但是依然非法，甚至女主妈当财务高管的都不知道。运营还敢放MS进来打。
+
+冷战有这么厉害的玩法吗？
+
+
+*****
+
+####  syndrome2032  
+##### 15074#       发表于 2025-5-23 15:53
+
+黑拳最抽象的不是side6总统都知道还默认，结果izuma条子查的一个比一个紧吗。
+
+这保护伞失格啊
+
