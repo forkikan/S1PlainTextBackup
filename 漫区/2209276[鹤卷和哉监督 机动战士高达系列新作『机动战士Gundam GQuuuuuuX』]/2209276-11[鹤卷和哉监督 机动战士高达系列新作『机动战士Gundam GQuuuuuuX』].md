@@ -4163,3 +4163,35 @@ Z高达有注意要怎么让观众一眼看出来谁是坏人的，和普通的�
 
 只是我不太信现在这年头会搞Not Happy的结局就是了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  terminator1990  
+##### 15153#       发表于 2025-5-24 06:52
+
+到底是哪种呢<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202505/24/065121un9gyd19lepzmmfs.jpg" referrerpolicy="no-referrer">
+
+<strong>GrcaGujbAAQk7St.JPG</strong> (142.44 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-24 06:51 上传
+
+<img src="https://img.stage1st.com/forum/202505/24/065127i0jhx08hrtg0e8j8.jpg" referrerpolicy="no-referrer">
+
+<strong>b515a017a857b8556fb6b71768f64f45350070959.jpg</strong> (115.56 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-24 06:51 上传
+
+<img src="https://img.stage1st.com/forum/202505/24/065133cj8ujwy8gc088oyi.jpg" referrerpolicy="no-referrer">
+
+<strong>GrdmKEUbQAAQw7I.JPG</strong> (354.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-24 06:51 上传
+
