@@ -592,3 +592,37 @@ sf是种命机不吃那个能力
 
 自由正义输出不怎么高
 
+
+*****
+
+####  lighttt  
+##### 1537#       发表于 2025-5-23 13:38
+
+上大师了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">最后换了双盾才勉强上了12000分
+
+—— 来自 OPPO PHY110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  horacio  
+##### 1538#       发表于 2025-5-23 13:42
+
+打到15w收工，看样子支援机pvp真没用，双盾比双支援强太多了，我遇到个双盾互相援护，对面行动拉克斯回一口，自己机师再回一口，深深的感觉绝望
+
+*****
+
+####  zzy516232108  
+##### 1539#       发表于 2025-5-23 13:43
+
+有比较好用的ssr机体/机师推荐嘛（
+
+*****
+
+####  lighttt  
+##### 1540#       发表于 2025-5-23 13:46
+
+到了大师对面没有盾机也打不过，大师60000挺好了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PHY110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
