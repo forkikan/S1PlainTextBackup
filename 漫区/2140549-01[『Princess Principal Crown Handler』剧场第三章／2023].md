@@ -1012,3 +1012,15 @@ IMG_3746.jpeg
 —— 来自 HONOR BVL-AN00, Android 15, 鹅球 v3.4.98</blockquote>
 嗯是一到四章连播的先行上映
 
+
+*****
+
+####  暗黑能乐  
+##### 101#       发表于 2025-5-23 08:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67843095&amp;ptid=2140549" target="_blank">只等待明天 发表于 2025-5-23 07:28</a>
+嗯是一到四章连播的先行上映</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">这章咋样，评价评价
+
+—— 来自 HONOR BVL-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
