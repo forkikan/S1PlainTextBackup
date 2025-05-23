@@ -3554,3 +3554,60 @@ TOP1也一样，它是2集为一组发售，每一组之间差异大得都不像
 
 线控炮威力更大，浮游炮在后UC因为出力问题直接被淘汰了
 
+
+*****
+
+####  高达age  
+##### 15100#       发表于 2025-5-23 19:29
+
+<img src="https://img.stage1st.com/forum/202505/23/192939pf6s1e9woie16bh9.jpg" referrerpolicy="no-referrer">
+
+<strong>f_富士茄鹰老师的推特短篇_我的GQuuuuuuX猜想_1747907031_1-1.jpg</strong> (533.31 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-23 19:29 上传
+
+<img src="https://img.stage1st.com/forum/202505/23/192939d8yxpbpqxle9ned9.jpg" referrerpolicy="no-referrer">
+
+<strong>f_富士茄鹰老师的推特短篇_我的GQuuuuuuX猜想_1747907031_1-2.jpg</strong> (520.05 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-23 19:29 上传
+
+<img src="https://img.stage1st.com/forum/202505/23/192940nlxm00nhh7xum0xo.jpg" referrerpolicy="no-referrer">
+
+<strong>f_富士茄鹰老师的推特短篇_我的GQuuuuuuX猜想_1747907031_1-3.jpg</strong> (213.74 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-23 19:29 上传
+
+*****
+
+####  轮太  
+##### 15101#       发表于 2025-5-23 19:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67845377&amp;ptid=2209276" target="_blank">downnote 发表于 2025-5-23 19:11</a>
+有个疑问是浮游炮已经能做了，为什么还要用线控炮，是为了追求火力续航还是为了在重力环境使用 ...</blockquote>
+浮游炮火力肯定没法两炮拆精神病的
+线控靠本体发电机供电才能做得到
+
+
+*****
+
+####  ティグル  
+##### 15102#       发表于 2025-5-23 19:33
+
+顺便纠正一下，后UC还是有浮游炮的，比如艮高佐那个可以分离的背部喷射组件就可以看做是一个超大号的浮游炮
+
+然后长谷川还根据这个给木星帝国MA配备了大型浮游炮，反正跟前UC那些已经不是一个东西了
+
+*****
+
+####  花達香奈  
+##### 15103#       发表于 2025-5-23 19:35
+
+还有个猴版的incom，给nt力不够的一般人也能用的
+
