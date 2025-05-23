@@ -828,3 +828,11 @@ ex武装基本都是属性减伤无效，只能靠盾跟血防顶了，不过光
 
 一局没输
 
+
+*****
+
+####  dio999  
+##### 1559#       发表于 2025-5-23 17:22
+
+换了下阵容，凑出15万<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

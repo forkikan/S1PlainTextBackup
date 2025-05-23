@@ -3293,3 +3293,52 @@ FBI两头堵首席哥时还说绿叔叔调MA来是要把他们都送上天，但
 
 插手剧本的人多了，设定前后改来改去把自己改晕了，一看时间拖太久了硬着头皮上，草台班子很常见的情况<img src="https://static.stage1st.com/image/smiley/carton2017/040.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ryanghj  
+##### 15083#       发表于 2025-5-23 17:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67844768&amp;ptid=2209276" target="_blank">syndrome2032 发表于 2025-5-23 15:53</a>
+
+黑拳最抽象的不是side6总统都知道还默认，结果izuma条子查的一个比一个紧吗。
+
+这保护伞失格啊 ...</blockquote>
+最后这次明显是吉翁直接指挥军警作战绕开总统了
+
+实际上总统（文官政府）和军警是两个体系
+
+
+*****
+
+####  Steel.Haze  
+##### 15084#       发表于 2025-5-23 17:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67844621&amp;ptid=2209276" target="_blank">无念 发表于 2025-5-23 15:15</a>
+
+哦唯一能确认的是汉布拉比疑似有悬停功能，毕竟盖兹在那哔哔的时候远景高楼都不带动的，不过G夸大家的推力 ...</blockquote>
+其实Z里面的机体在殖民卫星里面都可以一定程度飞行和大跳（尤其是大跳后进入低重力中心区后喷射滑翔）不过盖兹近地也在浮空，那台机体的总推力应该还不错。
+
+*****
+
+####  Steel.Haze  
+##### 15085#       发表于 2025-5-23 17:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67844889&amp;ptid=2209276" target="_blank">无念 发表于 2025-5-23 16:22</a>
+
+就打黑拳这帮子的二手扎古，要没市长帮忙遮掩，就第七集这个火力密度早被打没了
+
+—— 来自 HONOR SDY-AN00 ...</blockquote>
+S6的这帮名曰军警，实际上是私兵，其实反而是防着吉翁哪天癫了搬个罐子过来的。驾驶员好多都是留在宙域没能退回地球的联邦老兵。
+
+*****
+
+####  创始’’’天翔  
+##### 15086#       发表于 2025-5-23 17:27
+
+<blockquote>玖羽 发表于 2025-5-23 16:06
+也许只有个别底层不知道，这不重要
+
+我在前面也说过，这片的一个明显问题是并没有打算好好刻画黑拳生态， ...</blockquote>
+跟校园决斗比如何
+
