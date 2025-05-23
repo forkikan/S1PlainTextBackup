@@ -4047,3 +4047,42 @@ FBI两头堵首席哥时还说绿叔叔调MA来是要把他们都送上天，但
 
 鹤卷哥哥真的不觉得割裂吗？？？？
 
+
+*****
+
+####  jojonathan  
+##### 15143#       发表于 2025-5-24 01:00
+
+唉 还是很怀疑鹤卷写gqux就是想骂当代年轻人垮了 最后给出的答案是正确的大人引导年轻人 这样子的话也太恶俗了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 还是希望夏利亚也是一款邪恶大人 进一步给麻丘上刑 让她自己领悟给自己负责的重要性 
+
+*****
+
+####  57042711  
+##### 15144#       发表于 2025-5-24 01:01
+
+真冷战的话下一集就是电子眼决定发动B计划强袭基西莉亚座舰了<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  YU_JI  
+##### 15145#       发表于 2025-5-24 01:04
+
+<blockquote>jojonathan 发表于 2025-5-24 01:00
+唉 还是很怀疑鹤卷写gqux就是想骂当代年轻人垮了 最后给出的答案是正确的大人引导年轻人 这样子的话也太恶 ...</blockquote>
+那鹤卷这20年心态变化还挺大的，20年前做FLCL的时候可是会怒骂“大人的眉毛”的
+
+*****
+
+####  ryanghj  
+##### 15146#       发表于 2025-5-24 01:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67846145&amp;ptid=2209276" target="_blank">jojonathan 发表于 2025-5-24 01:00</a>
+
+唉 还是很怀疑鹤卷写gqux就是想骂当代年轻人垮了 最后给出的答案是正确的大人引导年轻人 这样子的话也太恶 ...</blockquote>
+从这部里面各种大人的表现来看，我看鹤卷要表达的意思是完全相反的
+
+是年轻人要走自己的路
+
