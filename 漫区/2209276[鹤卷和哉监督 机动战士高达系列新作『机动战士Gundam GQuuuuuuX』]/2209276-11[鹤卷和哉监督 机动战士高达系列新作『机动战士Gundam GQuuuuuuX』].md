@@ -3132,3 +3132,24 @@ side6科技还真是恐怖如斯，直径6km多点的殖民地闹市区打成那
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  无念  
+##### 15069#       发表于 2025-5-23 15:15
+
+哦唯一能确认的是汉布拉比疑似有悬停功能，毕竟盖兹在那哔哔的时候远景高楼都不带动的，不过G夸大家的推力都过剩，同一集里还有一堆扎古飞着追G夸和G夸靠喷射器近地悬浮的画面呢，只能说难怪你们下了地球都要抱怨重力<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  久可让  
+##### 15070#       发表于 2025-5-23 15:22
+
+关于紫婆婆可能喜提nt身份这一点，如果要在原作里找补的话，那就是79里紫婆婆对于自己戴面罩的解释是“讨厌战场的气息”。
+确实是有种奇妙的nt感的说法
+
+—— 来自 Xiaomi 2312CRAD3C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
