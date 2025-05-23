@@ -3018,3 +3018,95 @@ gqux第七话想让麻 ...</blockquote>
 side6科技还真是恐怖如斯，直径6km多点的殖民地闹市区打成那样，结果老太婆旅馆没全融了，死伤也只有100+， ...</blockquote>
 我觉得杜算是比较克制了，她的扩散炮从来没有站着直接放射，我估计殖民卫星的地面承受不了近距离扩散炮，会被打穿，都是躺平后发射，在殖民卫星空域中扩散光束到达环壁时已经衰竭了，只有同高度的楼宇要遭殃。可能联邦强化人研究所的训练就是如此，尽量避免打穿殖民地，制造太大混乱也耽误事。
 
+
+*****
+
+####  朋友费小号  
+##### 15059#       发表于 2025-5-23 14:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67844494&amp;ptid=2209276" target="_blank">ヒトニナル 发表于 2025-5-23 14:40</a>
+
+如果是coc的话我只能说精神分析（物理）一直是coc的精髓，这件事说明带你的是个很差劲的kp ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“你为什么要打女人？！”
+
+*****
+
+####  无念  
+##### 15060#       发表于 2025-5-23 14:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67844519&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-5-23 14:49</a>
+对，夸克斯的头部确实拉直了，这里好像有微变形，纯MS形态下，是有点前倾。本质上像个鲨鱼头。原来的汉莫 ...</blockquote>
+主要还是手和脚，如果和原设汉布拉比对比的话，你会发现变形的部分他其实都保留了，比如为了变形ma让脚往上翻，两台汉布拉比都是没有后裙甲的，为了ma形态能格斗，手臂上设计了可收放的钩爪，这些小设计新版都保留了，然后你告诉我变形的时候不用？<img src="https://p.sda1.dev/24/bb5ebd3b7ea3f02f921e235d0cbe375e/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Steel.Haze  
+##### 15061#       发表于 2025-5-23 14:58
+
+ 本帖最后由 Steel.Haze 于 2025-5-23 15:01 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67844469&amp;ptid=2209276" target="_blank">deadpig 发表于 2025-5-23 14:28</a>
+
+说起来我以前就一直不喜欢z的bgm，机战的时候尤其是这样，这次忽然被激发了这个点…
+
+另外，我一直觉得卡缪 ...</blockquote>
+我觉得导火索是不得不自己枪杀罗莎米亚。“NT除了更高效杀人什么也做不到，我就好好杀来终结战争吧”他已经疯了。艾玛死在面前和殖民卫星炮发射后大量死者的杂波，让其最后的心理控制线也崩溃了。最后西洛克再刺激一下。
+
+卡缪的铁轨难题是什么？左边的轨道上是一直想要救过来干妹妹，右边的轨道上是船上的一船战友，大概只有10秒不到来做选择。他“理性”的选了死人少的那个，拉了杆子。
+
+*****
+
+####  Mr姜  
+##### 15062#       发表于 2025-5-23 15:00
+
+ 本帖最后由 Mr姜 于 2025-5-23 15:01 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67844540&amp;ptid=2209276" target="_blank">yichengyu 发表于 2025-5-23 14:54</a>
+
+说到这个，有没有老嗨思考过殖民卫星里到底有没有重力，毕竟建筑物什么的都是被压在外壁上的，空中应该是 ...</blockquote>
+应该说就是零重力环境，只要你不跟着殖民地转就行，你开个车和殖民地反方向跑应该会飘起来，如果你还是有和殖民地一样的旋转速度那空中也是有重力的
+
+
+*****
+
+####  ryanghj  
+##### 15063#       发表于 2025-5-23 15:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67844561&amp;ptid=2209276" target="_blank">Mr姜 发表于 2025-5-23 15:00</a>
+应该说就是零重力环境，只要你不跟着殖民地转就行，你开个车和殖民地反方向跑应该会飘起来，如果你还是有 ...</blockquote>
+有惯性在反向开车也不会飘起来
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  无念  
+##### 15064#       发表于 2025-5-23 15:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67844561&amp;ptid=2209276" target="_blank">Mr姜 发表于 2025-5-23 15:00</a>
+应该说就是零重力环境，只要你不跟着殖民地转就行，你开个车和殖民地反方向跑应该会飘起来，如果你还是有 ...</blockquote>
+有的，兄弟，有的
+原设就有，越靠近中央支柱重力越低，所以宇宙港出来一般都用飘的，远一点的逆夏，近一点的独角兽都有体现，包括那场巴纳吉从中央支柱开工业ms跳下去救奥黛丽
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  yichengyu  
+##### 15065#       发表于 2025-5-23 15:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67844561&amp;ptid=2209276" target="_blank">Mr姜 发表于 2025-5-23 15:00</a>
+
+应该说就是零重力环境，只要你不跟着殖民地转就行，你开个车和殖民地反方向跑应该会飘起来，如果你还是有 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">开车飞起来这个。。我突然想起来独角兽里和奥黛丽第一次见面就是下落的。。。嗯不能细想
+
+*****
+
+####  Steel.Haze  
+##### 15066#       发表于 2025-5-23 15:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67844554&amp;ptid=2209276" target="_blank">无念 发表于 2025-5-23 14:58</a>
+
+主要还是手和脚，如果和原设汉布拉比对比的话，你会发现变形的部分他其实都保留了，比如为了变形ma让脚往 ...</blockquote>
+虽然有钩爪，但是你看，它没有光剑收纳区吧....那爪子不是考虑突袭，而是（机动炮击机体凑合各个理论上能近战的工具）。主要是腿部膝关节正反看上去不能变形。结构上确实非常相似。我其实挺喜欢新的鲨鱼头风格。如果能变形就好了。
+
