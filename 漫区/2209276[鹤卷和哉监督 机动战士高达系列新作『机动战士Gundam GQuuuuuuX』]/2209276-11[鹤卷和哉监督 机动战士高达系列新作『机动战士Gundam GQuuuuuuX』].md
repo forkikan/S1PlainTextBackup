@@ -3878,3 +3878,18 @@ FBI两头堵首席哥时还说绿叔叔调MA来是要把他们都送上天，但
 某的感觉来说，安琪给恋爱建议那里其实也只是自以为能跟小番茄共情罢了，但其实她跟小番茄不算是一路人， ...</blockquote>
 就算不理解小番茄也好。她前脚鼓励玛秋大胆去追她的mav，结果后脚就考虑把红高达卖了，她是知道玛秋对红高达驾驶员有意思的。而且红高达的信息还不是玛秋主动透露，而是她偷偷跟踪玛秋得来的，这就是赤裸裸的背叛啊。
 
+
+*****
+
+####  ryanghj  
+##### 15128#       发表于 2025-5-23 23:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67845918&amp;ptid=2209276" target="_blank">七七見奈波 发表于 2025-5-23 22:46</a>
+
+之前楼里讨论都提麻球和喵安对比，也不知道算不算是个对比：第六话麻球抱着哈罗想着要让修司藏起来时经过哈 ...</blockquote>
+两个人下意识的第一反应都是带着修司跑，不管其他的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+这集玛秋更是把上一集里叫做“我的MS”的Gqux交给喵安（上次喵安擅自上机玛秋还非常愤怒），就是为了让修司待在自己身边
+
+所以我的观点是，她俩是真的把修司当做一个人来喜欢的<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">玛秋向往的kirakira、喵安想要的包容自己的人，都不过是一个契机
+
