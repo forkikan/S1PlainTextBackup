@@ -861,3 +861,24 @@ z高有时候会不用911而是滋水枪，直接被闪避。
 
 —— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  rockroxas  
+##### 1562#       发表于 2025-5-23 17:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67845115&amp;ptid=2071758" target="_blank">格雷殿下 发表于 2025-5-23 17:31</a>
+
+看到那个the 0够材料升2星，词条也有劲敌和我的船的加成
+
+够材料就喂起来试试 ...</blockquote>
+the O没有盾，有一个能力是超强势才能加防，总的来说应该跟精神力不会差太多，假如你精神力跟葵曼莎都练了觉得不够强的话大概率不用浪费精力去搞（
+
+
+*****
+
+####  xiongxingyu  
+##### 1563#       发表于 2025-5-23 18:04
+
+不得不说，高达游戏凯子就是多，到了大师段一刷5个2w战力的，中间两个战力高的点进去一看6个满破的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">哦，对了，NTA在这模式意外的好用，大体型扔最前面干扰走位挺不错的
+

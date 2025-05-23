@@ -3417,3 +3417,16 @@ TOP1也一样，它是2集为一组发售，每一组之间差异大得都不像
 
 布劳布罗连格斗武装都没（加了个变形可能就是为了用制式的格斗武器）
 
+
+*****
+
+####  llysander  
+##### 15092#       发表于 2025-5-23 18:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67838530&amp;ptid=2209276" target="_blank">EFSF 发表于 2025-5-21 20:57</a>
+
+动画和动画，作品和作品不同，打浮游/线控炮也会不一样，你这是独角兽战斗动画出来后的思路，但是GQX明显 ...</blockquote>
+光头也钦点过面对全向攻击贴得越紧越好，虽然裤袜脱落大尉做了个反面教材但是意思传达到了，剧中人大致思路是这样。
+
+正常罕布拉比的话大概直接以灰机形态出场一路狂奔就行了，线控炮怎么跑都没本体带推进器跑得快<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
