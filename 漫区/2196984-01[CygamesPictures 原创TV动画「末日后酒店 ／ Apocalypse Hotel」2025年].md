@@ -3776,3 +3776,26 @@ https://www.bilibili.com/video/BV1anJJzuEK8
 
 根据官方今天中午更新的漫画，八千代在太空中至少漂浮了5年以上。
 
+
+*****
+
+####  太极八爪鱼  
+##### 328#       发表于 2025-5-23 12:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67843773&amp;ptid=2196984" target="_blank">梦诗歌雪 发表于 2025-5-22 19:09</a>
+
+这集融的梗太多太杂了很拉低观感。剧情上的目的是为了射卫星让柜姐上太空，那完全可以找一个更贴近主题的理 ...</blockquote>
+广告卫星说了啊……而且上去了。剧情里不是说之所以要人上去是因为上帝之杖的弹体需要在空间里组合么
+
+*****
+
+####  太极八爪鱼  
+##### 329#       发表于 2025-5-23 12:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67843910&amp;ptid=2196984" target="_blank">NBXX 发表于 2025-5-22 19:40</a>
+
+「アポカリプスホテルぷすぷす」第7話更新
+
+https://storia.takeshobo.co.jp/_files/apo_hotel/07/</blockquote>
+那是真结实……而且5年还不降轨？
+
