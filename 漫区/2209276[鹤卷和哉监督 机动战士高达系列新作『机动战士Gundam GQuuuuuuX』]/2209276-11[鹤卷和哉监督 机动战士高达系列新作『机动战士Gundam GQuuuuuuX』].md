@@ -4086,3 +4086,35 @@ FBI两头堵首席哥时还说绿叔叔调MA来是要把他们都送上天，但
 
 是年轻人要走自己的路
 
+
+*****
+
+####  ryanghj  
+##### 15147#       发表于 2025-5-24 01:08
+
+ 本帖最后由 ryanghj 于 2025-5-24 01:10 编辑 
+
+夏利亚在我看来是反面角色，尤其是考虑到第5集他叫基克罗格的时候打光的效果，完全是暗示他要干坏事
+
+<img src="https://img.stage1st.com/forum/202505/24/010816bqeyx6senz4mnbxx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (141.54 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-24 01:08 上传
+
+夏利亚的剧情重点在于被过去所束缚，这与开启新时代的想法是完全相悖的
+
+甚至可以说，哪怕他现在已经干掉了基连和基西莉亚，并恭迎夏亚从泽克诺瓦对面回来了，夏亚也会撂挑子逃跑<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  暗黑能乐  
+##### 15148#       发表于 2025-5-24 01:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那问题来了，还有正面角色吗，你接下来年轻人打算靠什么挣脱这个被反面角色全方位包围的世界，不会你真要让基西莉亚当正面吧
+
+—— 来自 HONOR BVL-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
