@@ -2754,3 +2754,18 @@ V高达结局没法让人释怀吧，也不是要卡迪公这个颠婆去世，�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能看到麻球喊“连我妈妈都没打过我”吗
 
+
+*****
+
+####  猪突猛进R  
+##### 15038#       发表于 2025-5-23 14:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67844361&amp;ptid=2209276" target="_blank">ykyin09 发表于 2025-5-23 13:58</a>
+
+能看到麻球喊“连我妈妈都没打过我”吗</blockquote>
+时代不同了，不能打女人。
+
+0079第一集芙劳的家人在眼前惨死，骡子为了让她避难抽醒了她。
+
+换今天再让骡子打个巴掌试试<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
