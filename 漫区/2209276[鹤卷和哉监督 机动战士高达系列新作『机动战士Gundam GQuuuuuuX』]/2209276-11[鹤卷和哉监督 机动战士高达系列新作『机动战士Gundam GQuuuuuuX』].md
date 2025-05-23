@@ -3979,3 +3979,18 @@ FBI两头堵首席哥时还说绿叔叔调MA来是要把他们都送上天，但
 
 想了一下 如果夏利亚是什么好大人典范我大概就要破防了 <img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">感觉主角在剧情上的生存空间被压缩的好厉害.  
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 15136#       发表于 2025-5-24 00:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67845997&amp;ptid=2209276" target="_blank">七七見奈波 发表于 2025-5-23 23:18</a>
+
+修司除了kirakira（……）以外也确实和两个女孩身边所有男性都不一样，虽然不说人话（误），但是语气和态 ...</blockquote>
+从目前的表现看来，修司不在意当然不会较真，表现起来就是温和有包容性。同理，对人际关系应该不会过于重视。
+
+会做点好事，但只会顺手做，而不会拼命去做。第一集捡盾时要是被首席锁定了应该就不会冒风险去捡，小番茄被砸死就没有之后的故事了。
+
+之后要是把小番茄的错付大书特书当这作的情感核心，会比较无趣吧，希望不要这样。
+
