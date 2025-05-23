@@ -1152,3 +1152,23 @@ roll到13%攻和18攻就可以用+4-6攻击改掉防御，然后只强化第一�
 
 这就去肝闪避装<img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  茄子自走炮  
+##### 375#       发表于 2025-5-23 16:43
+
+<img src="https://img.stage1st.com/forum/202505/23/164242x00fhovhsg1y4hvs.jpg" referrerpolicy="no-referrer">
+
+<strong>1000178217.jpg</strong> (543.53 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-23 16:42 上传
+
+物理职业和不存在一样（
+
+三瓶灵药
+
+全程打防反
+
