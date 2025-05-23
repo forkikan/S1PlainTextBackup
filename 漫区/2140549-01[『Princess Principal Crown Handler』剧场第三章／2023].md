@@ -1024,3 +1024,13 @@ IMG_3746.jpeg
 
 —— 来自 HONOR BVL-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  aaron17  
+##### 102#       发表于 2025-5-23 19:24
+
+這章是過渡啊 大的要來了
+
+— from Sony XQ-CT44, Android 14, [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
