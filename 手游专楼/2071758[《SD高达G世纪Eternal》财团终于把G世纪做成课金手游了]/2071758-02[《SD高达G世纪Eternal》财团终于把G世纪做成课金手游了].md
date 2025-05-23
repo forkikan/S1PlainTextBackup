@@ -655,3 +655,19 @@ sf是种命机不吃那个能力
 
 <img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">到了钻石完全打不过啊，各种zeta强袭自由一枪秒我一个
 
+
+*****
+
+####  12481632  
+##### 1544#       发表于 2025-5-23 14:19
+
+大师太变态了，人均满破SF
+
+
+*****
+
+####  chivalry  
+##### 1545#       发表于 2025-5-23 14:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">才打到大师 9w，这几年盾机真是爹，之前没把盾机师拉满后悔死
+

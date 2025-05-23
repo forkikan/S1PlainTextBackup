@@ -8420,7 +8420,7 @@
     "newtitle": "[学园偶像大师]",
     "lastedit": 1747722015,
     "category": "手游专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1803414": {
@@ -10521,10 +10521,10 @@
     "update": false
   },
   "2209276": {
-    "totalreply": 15038,
+    "totalreply": 15041,
     "title": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
     "newtitle": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
-    "lastedit": 1747980622,
+    "lastedit": 1747981231,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 137420,
+    "totalreply": 137428,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1747980974,
+    "lastedit": 1747981231,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10827,10 +10827,10 @@
     "update": false
   },
   "2238336": {
-    "totalreply": 2519,
+    "totalreply": 2520,
     "title": "[任天堂病 栋12楼，山雨欲来风满楼，新年新机新病 栋！／剑指1.16！]",
     "newtitle": "[任天堂病 栋12楼，山雨欲来风满楼，新年新机新病 栋！5.8审判日]",
-    "lastedit": 1747980622,
+    "lastedit": 1747981465,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11223,10 +11223,10 @@
     "update": false
   },
   "2071758": {
-    "totalreply": 1543,
+    "totalreply": 1545,
     "title": "[《SD高达G世纪Eternal》财团终于把G世纪做成课金手游了]",
     "newtitle": "[《SD高达G世纪永恒》【5.23 PVP模式S0赛季】 S1群：9314964]",
-    "lastedit": 1747980494,
+    "lastedit": 1747981694,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -11268,10 +11268,10 @@
     "update": false
   },
   "2236118": {
-    "totalreply": 304,
+    "totalreply": 305,
     "title": "[2025年全年推理游戏发售清单(更新至3.13)，2025推理游戏专楼]",
     "newtitle": "[2025年全年推理游戏发售清单(更新至5.15)，2025推理游戏专楼]",
-    "lastedit": 1747804581,
+    "lastedit": 1747981465,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11385,10 +11385,10 @@
     "update": false
   },
   "2251015": {
-    "totalreply": 215,
+    "totalreply": 216,
     "title": "[我那么大一个网文楼呢]",
     "newtitle": "[我那么大一个网文楼呢]",
-    "lastedit": 1747980389,
+    "lastedit": 1747981571,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11430,10 +11430,10 @@
     "update": false
   },
   "2188167": {
-    "totalreply": 1040,
+    "totalreply": 1041,
     "title": "[小高&amp;打越新作，百日战记 最终防卫学园2025.4.24发售，ns／pc]",
     "newtitle": "[小高&amp;打越新作，百日战记 最终防卫学园2025.4.24发售，ns／pc]",
-    "lastedit": 1747975469,
+    "lastedit": 1747981458,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13050,10 +13050,10 @@
     "update": false
   },
   "2135452": {
-    "totalreply": 311,
+    "totalreply": 312,
     "title": "[《合金装备3：食蛇者》重制版 2025年8月28日发售]",
     "newtitle": "[《合金装备3：食蛇者》重制版 2025年8月28日发售]",
-    "lastedit": 1747980029,
+    "lastedit": 1747981231,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13194,10 +13194,10 @@
     "update": false
   },
   "1992785": {
-    "totalreply": 384,
+    "totalreply": 385,
     "title": "[推个漫《舞冰的祈愿》（官方译名《金牌得主》）]",
     "newtitle": "[推个漫《舞冰的祈愿》（官方译名《金牌得主》）]",
-    "lastedit": 1747980389,
+    "lastedit": 1747981231,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13208,6 +13208,15 @@
     "newtitle": "[开个逻辑解谜游戏（Thinky Puzzle）的楼，Maxwell's puzzling demon 8.30]",
     "lastedit": 1747966845,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2252321": {
+    "totalreply": 41,
+    "title": "[＂十年涩图无人问，一朝机娘天下知＂]",
+    "newtitle": "[＂十年涩图无人问，一朝机娘天下知＂]",
+    "lastedit": 1747981232,
+    "category": "漫区",
     "active": true,
     "update": false
   }
