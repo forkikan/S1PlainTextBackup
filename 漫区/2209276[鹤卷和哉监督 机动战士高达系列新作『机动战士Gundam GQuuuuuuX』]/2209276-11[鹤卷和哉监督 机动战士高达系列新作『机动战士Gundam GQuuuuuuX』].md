@@ -2183,3 +2183,60 @@ GQ 一个铺垫了2集 护卫精神力只浮在边上 从开炮到被打死一�
 
 这么一想三个人的关系整个就通了，搞不好鹤卷和榎户在写剧本的时候就是这么思考的（毕竟是写了FLCL的老登，妈的突然意识到FLCL的直太和晴子不就是性别倒转的麻球和修斯么），只是简单粗暴的顺应流行趋势把主角换成女的，那么整个张力就完全变掉了
 
+
+*****
+
+####  久保由利香  
+##### 14987#       发表于 2025-5-23 09:27
+
+有没有可能在不存在挂机，重高达手被打断之前都是十拿九稳，盖茨刚看见手被打断就和绿叔叔打上了
+
+*****
+
+####  AraTurambar  
+##### 14988#       发表于 2025-5-23 09:27
+
+两男一女两女一男有啥区别……
+
+这样的女女男关系性你晚上九点到下北泽盯着背着吉他的看过去，不是满地都是……
+
+*****
+
+####  newise  
+##### 14989#       发表于 2025-5-23 09:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67843261&amp;ptid=2209276" target="_blank">hsyg 发表于 2025-5-23 09:09</a>
+
+这里其实最大问题是②之前又不是在这里的，总不能在地球嗑药的时候就天天连线这side6的野男人kirakira吧 ...</blockquote>
+②就是戒断反应嘛。自己都说了最喜欢米粒的味道了，实验必然是管够，本来这次实战散播浓度也够高了奶嘴都不用戴，谁知道zeknova一下就反相了呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mr姜  
+##### 14990#       发表于 2025-5-23 09:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67843116&amp;ptid=2209276" target="_blank">pu 发表于 2025-5-23 07:59</a>
+
+233 还没去仔细推敲布吉克罗格线控炮能不能在重力环境下用（殖民地靠近圆筒中轴高空是低重力）  按照标准 ...</blockquote>
+殖民地是考旋转模拟重力啊，只要离地不和殖民地转就无重力了
+
+
+*****
+
+####  mengsu  
+##### 14991#       发表于 2025-5-23 09:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">强化人小妹已经被夏亚现象搞得脑子瓦特了，爬大楼什么都可以理解。我不太理解的是为什么这么执着于用精神力高达打死基西莉亚，看驾驶员精神状态不行果断切B方案换汉穆拉比上去一枪毙了老太婆不好吗，不然你开机体来干什么，不如拿个麦克风在下面指挥啊。
+
+当然绿叔叔应该是一直在上空ob，自己上应该也只是被先毙了就是了。
+
+*****
+
+####  AraTurambar  
+##### 14992#       发表于 2025-5-23 09:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67843348&amp;ptid=2209276" target="_blank">mengsu 发表于 2025-5-23 09:33</a>
+
+强化人小妹已经被夏亚现象搞得脑子瓦特了，爬大楼什么都可以理解。我不太理解的是为什么这么执着于用精神力 ...</blockquote>
+盖茨这人不一直就是个垫子的水平么，也不奇怪吧。
+
