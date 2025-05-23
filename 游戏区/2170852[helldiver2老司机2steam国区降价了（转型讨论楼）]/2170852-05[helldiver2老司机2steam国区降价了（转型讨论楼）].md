@@ -1444,3 +1444,13 @@ B站有视频，教你样本会刷在什么样的地形上的。而且主线、�
 打光能者改用轻甲以后神清气爽，只要我跑的快，拼好人就追不上我，甩开拼好人光能就还是逛大街，拼好人这东 ...</blockquote>
 自从用上换弹甲后就一直没替换，已经用不了中重甲了<img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风萧飒  
+##### 6057#       发表于 2025-5-23 12:17
+
+换弹甲确实好，缺点就是没中甲
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
