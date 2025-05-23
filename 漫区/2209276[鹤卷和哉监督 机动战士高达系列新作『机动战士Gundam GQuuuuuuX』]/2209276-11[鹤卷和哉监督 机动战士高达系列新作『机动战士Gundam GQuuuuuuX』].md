@@ -3110,3 +3110,25 @@ side6科技还真是恐怖如斯，直径6km多点的殖民地闹市区打成那
 主要还是手和脚，如果和原设汉布拉比对比的话，你会发现变形的部分他其实都保留了，比如为了变形ma让脚往 ...</blockquote>
 虽然有钩爪，但是你看，它没有光剑收纳区吧....那爪子不是考虑突袭，而是（机动炮击机体凑合各个理论上能近战的工具）。主要是腿部膝关节正反看上去不能变形。结构上确实非常相似。我其实挺喜欢新的鲨鱼头风格。如果能变形就好了。
 
+
+*****
+
+####  kcalb  
+##### 15067#       发表于 2025-5-23 15:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67843616&amp;ptid=2209276" target="_blank">LadySaazbaum 发表于 2025-5-23 10:33</a>
+
+卖国姬所谓的政治想法：在本国军头磨刀霍霍的时候强令停战并下嫁给一个死了爹、没了城、没有萝卜、刚刚搞 ...</blockquote>
+喵安干掉汤大基，番茄一筒子打爆紫色寡妇，最后一头锥顶爆绿叔叔，这算不算影响事态走向<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  无念  
+##### 15068#       发表于 2025-5-23 15:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67844581&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-5-23 15:05</a>
+虽然有钩爪，但是你看，它没有光剑收纳区吧....那爪子不是考虑突袭，而是（机动炮击机体凑合各个理论上能 ...</blockquote>
+主要还是没几个动起来的镜头，虽然知乎那个拉片说得好像盖兹干了好多事，但是ms其实就闪了两次，开了两炮，然后就寄了，别说光束剑了，海蛇和斗士步枪在不在都存疑
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
