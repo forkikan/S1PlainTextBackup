@@ -626,3 +626,15 @@ sf是种命机不吃那个能力
 
 —— 来自 OPPO PHY110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  马桶3  
+##### 1541#       发表于 2025-5-23 13:53
+
+ 本帖最后由 马桶3 于 2025-5-23 13:58 编辑 
+
+目前大师14W，等刷新次数刷个我能win的大概就15W了<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+换了下阵容把本来打不过的对手打赢了，15W分保全成功<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
