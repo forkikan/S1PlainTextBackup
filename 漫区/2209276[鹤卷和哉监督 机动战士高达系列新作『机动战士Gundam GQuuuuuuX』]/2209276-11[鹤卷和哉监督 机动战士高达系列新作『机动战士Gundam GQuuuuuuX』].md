@@ -4005,3 +4005,28 @@ FBI两头堵首席哥时还说绿叔叔调MA来是要把他们都送上天，但
 想了一下 如果夏利亚是什么好大人典范我大概就要破防了 感觉主角在剧情上的生存空间被压缩的好厉害.   ...</blockquote>
 他要不是好大人的典范，那谁来给麻球一个大回旋<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猪突猛进R  
+##### 15138#       发表于 2025-5-24 00:38
+
+不一定要修正呀，麻球现在不是在绿木马上龙场悟道么，也许自己就悟了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ヒトニナル  
+##### 15139#       发表于 2025-5-24 00:42
+
+指望绿叔叔这个夏亚痴修正玛秋这个kirakira痴是否有点不切实际<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不如指望科莫利女士
+
+*****
+
+####  adretyu67.  
+##### 15140#       发表于 2025-5-24 00:43
+
+麻球要是不叛逆跑去追求kirakira和打黑拳干啥<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">，不叛逆她根本不会上gqux
+
+现在上了绿色木马就看她自己怎么反思了。
+
