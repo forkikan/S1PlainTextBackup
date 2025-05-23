@@ -1211,3 +1211,11 @@ roll到13%攻和18攻就可以用+4-6攻击改掉防御，然后只强化第一�
 
 希望你游能处理得得体一点，毕竟才肉眼可见的好起来了，这次出发点也没恶意，就是一如既往的草台<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UnknownRei  
+##### 377#       发表于 2025-5-23 20:21
+
+一路上还是得多防御打破绽节省资源，我记得破绽是百分比血量伤害<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
