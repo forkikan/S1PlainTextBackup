@@ -3765,3 +3765,14 @@ https://www.bilibili.com/video/BV1anJJzuEK8
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实一个不能细想的点就是，他们有人改无人折腾的功夫都能把那个棍子改成无人部署了吧
 
+
+*****
+
+####  NBXX  
+##### 327#       发表于 2025-5-23 11:40
+
+「アポカリプスホテルぷすぷす」第7話更新
+[https://storia.takeshobo.co.jp/_files/apo_hotel/07/](https://storia.takeshobo.co.jp/_files/apo_hotel/07/)
+
+根据官方今天中午更新的漫画，八千代在太空中至少漂浮了5年以上。
+
