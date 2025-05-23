@@ -2665,3 +2665,14 @@ gqux第七话想让麻球或者修斯打精神病唯一解就是神棍发动触�
 
 还是贷款下一话后半的夏利亚大回旋吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sliurus  
+##### 15029#       发表于 2025-5-23 12:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67843951&amp;ptid=2209276" target="_blank">pu 发表于 2025-5-23 11:51</a>
+
+以前正当年的时候年番50级是定番 非改编动画能50集不水的屈指可数 我觉得富野适合做40集左右的体量  最近 ...</blockquote>
+富野确实能做出一些好到对前面的不满释怀的结局，V高达死了一群不该死的，但结局却让人感到无比平静
+
