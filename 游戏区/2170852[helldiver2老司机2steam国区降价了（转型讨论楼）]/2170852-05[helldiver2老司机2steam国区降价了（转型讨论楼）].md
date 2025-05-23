@@ -1532,3 +1532,20 @@ B站有视频，教你样本会刷在什么样的地形上的。而且主线、�
 春田换上佩德森装置成了连发步枪
 正如“宪法”加上了宪法“修正”案<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ykyin09  
+##### 6065#       发表于 2025-5-24 00:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没想到箭头还真做了地球沦陷的事件，想想反攻地球归乡其实还挺带感的
+
+
+*****
+
+####  IWS2000  
+##### 6066#       发表于 2025-5-24 00:51
+
+独狼捡超级货币每次都是看着地堡2个或者3个蓝币干瞪眼，最近蓝币出货真多，n1两局一百多了
+<img src="https://p.sda1.dev/24/30235bba7ca493cc16a3c71f7bd025df/image.jpg" referrerpolicy="no-referrer">
+
