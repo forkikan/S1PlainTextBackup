@@ -638,3 +638,20 @@ sf是种命机不吃那个能力
 
 换了下阵容把本来打不过的对手打赢了，15W分保全成功<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一个陆仁贾  
+##### 1542#       发表于 2025-5-23 14:03
+
+感受到氪金的力量了<img src="https://static.stage1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  ddlsyo  
+##### 1543#       发表于 2025-5-23 14:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">到了钻石完全打不过啊，各种zeta强袭自由一枪秒我一个
+
