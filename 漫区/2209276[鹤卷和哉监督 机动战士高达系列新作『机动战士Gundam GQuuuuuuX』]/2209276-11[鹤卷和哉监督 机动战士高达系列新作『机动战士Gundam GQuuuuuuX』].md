@@ -3656,3 +3656,27 @@ FBI两头堵首席哥时还说绿叔叔调MA来是要把他们都送上天，但
 那个海关上一次放了一台京宝梵进来 你说呢 同一个人</blockquote>
 算上平行世界的上一次太冤枉他了吧
 
+
+*****
+
+####  hsyg  
+##### 15108#       发表于 2025-5-23 20:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67845583&amp;ptid=2209276" target="_blank">Wiksy 发表于 2025-5-23 20:38</a>
+
+算上平行世界的上一次太冤枉他了吧</blockquote>
+原版是队长求他他才放过的，而且证照齐全还是把鸡煲饭拆成3个货柜的前提下。
+
+这次这个废物，是明显看着不像话还漏了一角的前提下依然把货放了。
+
+说实话根本就不是一回事。
+
+*****
+
+####  王元姬无惨  
+##### 15109#       发表于 2025-5-23 20:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">神了 还能见到宇宙厕妹吹的 还腆着剑喷别人黑子无脑黑他家妹妹 
+
+这下我明白那个被封号的嘴臭哥为什么看到百合党就发癫了 遇到这样的厕妹粉 确实需要这样一个嘴替
+
