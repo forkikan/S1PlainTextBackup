@@ -727,3 +727,30 @@ SSR有哪个防御高达是高手吗
 
 —— 来自 Xiaomi 22081212C, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  kenqqex  
+##### 1551#       发表于 2025-5-23 15:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67844615&amp;ptid=2071758" target="_blank">fpp1992 发表于 2025-5-23 15:13</a>
+
+一上大师就全是这种，无氪有推荐阵容能打上15w么。。，
+
+—— 来自 Xiaomi 22081212C, Android 12, 鹅球 v3 ...</blockquote>
+不急,明天刷新一下可能就遇到带gq的人了
+
+*****
+
+####  windtrack  
+##### 1552#       发表于 2025-5-23 15:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67844591&amp;ptid=2071758" target="_blank">格雷殿下 发表于 2025-5-23 15:07</a>
+
+我还在第3层还是第4层，
+
+SSR有哪个防御高达是高手吗
+
+我的00和斧王开局就往对面送阿，这能玩吗 ...</blockquote>
+防御机用SEEDA ULT的亥伯龙，环境卡，对SEED系专杀
+
