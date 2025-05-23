@@ -437,3 +437,11 @@ ULT机还可以，但有SP灾厄跟神意之后还有没有必要练不好说，
 
 阿B能不能赶紧来点新的主线啊。开发SSR都刷得七七八八了，纯长草了都
 
+
+*****
+
+####  alialex  
+##### 1522#       发表于 2025-5-23 10:42
+
+SP了猎犬和杜宾狼，资源放开了还是不错的<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

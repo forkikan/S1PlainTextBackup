@@ -2418,3 +2418,16 @@ nbht就算了吧，只能用悲剧来形容
 
 这是一部一共50话的动画
 
+
+*****
+
+####  AraTurambar  
+##### 15007#       发表于 2025-5-23 10:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67843604&amp;ptid=2209276" target="_blank">88ace88 发表于 2025-5-23 10:31</a>
+
+硬要扯什么真主角的可以先想想黄大河是不是比夏利亚“真”，以及这么多年了，又有多少观众原谅种命了 ...</blockquote>
+不原谅种命的不是小鸟粉么，不是全部吧……
+
+而且本作也不存在主角群被夏利亚垫了的情况啊，反复告诉你主角很弱就是一般民间人。
+
