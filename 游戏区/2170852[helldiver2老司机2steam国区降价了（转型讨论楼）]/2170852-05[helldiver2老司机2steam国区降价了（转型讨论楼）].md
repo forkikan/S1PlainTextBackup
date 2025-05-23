@@ -1467,3 +1467,38 @@ B站有视频，教你样本会刷在什么样的地形上的。而且主线、�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  jy000129  
+##### 6059#       发表于 2025-5-23 13:09
+
+ 本帖最后由 jy000129 于 2025-5-23 13:12 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67844224&amp;ptid=2170852" target="_blank">ParadiseMartyr 发表于 2025-5-23 13:06</a>
+
+主要我看刷蓝币攻略，里面就要配装爆炸弩。我买也没爆炸弩给我用啊
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+带爆炸类手雷就行，主要是用来炸货箱，里面有机率出物资和蓝币，带爆炸弩是图个效率，或者刷的时候带个3号位的榴弹发射器，以免刷一半手雷用完了
+
+*****
+
+####  normalli  
+##### 6060#       发表于 2025-5-23 13:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67844224&amp;ptid=2170852" target="_blank">ParadiseMartyr 发表于 2025-5-23 13:06</a>
+主要我看刷蓝币攻略，里面就要配装爆炸弩。我买也没爆炸弩给我用啊
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+刷蓝币都是在1级地图刷，解放者都够用了，赶快把飞行背包买了还更有用
+
+—— 来自 Xiaomi 23127PN0CC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  用户名未定义  
+##### 6061#       发表于 2025-5-23 13:14
+
+爆炸弩是用来炸集装箱门的,用手雷或者3号位里的大部分也能开,用反器材狙好点,不会引爆旁边的爆炸桶搞得要火灭了才能去捡东西.
+
