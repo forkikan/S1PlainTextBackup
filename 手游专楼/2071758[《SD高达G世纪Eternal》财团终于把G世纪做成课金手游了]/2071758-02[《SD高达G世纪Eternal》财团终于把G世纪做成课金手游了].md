@@ -535,3 +535,16 @@ PVP S0赛季更多感觉像变种爬塔
 
 大师后又打了几把，都是20w的满破拉克丝，今天把换人次数都用光最后积分12w日不动了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rockroxas  
+##### 1532#       发表于 2025-5-23 12:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67844084&amp;ptid=2071758" target="_blank">dfdddfdd 发表于 2025-5-23 12:29</a>
+
+有没有无氪的配队思路 我两盾三支援打到大师9w就打不动了</blockquote>
+支援机的db看起来不怎么有用，太随机不如让支援驾驶攻击机（一定要有5格武装）
+
+看对面哪个速度最快（都破的情况下自由比sf快），对位放个高攻的反死他，防御机不够强的话不要上两次援防避免对面多动
+
