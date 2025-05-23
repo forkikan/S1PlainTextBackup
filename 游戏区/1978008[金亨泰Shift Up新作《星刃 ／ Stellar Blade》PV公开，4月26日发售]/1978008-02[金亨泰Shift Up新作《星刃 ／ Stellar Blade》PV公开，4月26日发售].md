@@ -38,3 +38,14 @@
 
 查了下这个doro是同人创作，还能做到游戏里的吗<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xunit  
+##### 2022#       发表于 2025-5-23 18:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67845255&amp;ptid=1978008" target="_blank">寂长无星夜 发表于 2025-5-23 18:12</a>
+
+查了下这个doro是同人创作，还能做到游戏里的吗</blockquote>
+从同人作者那边买了版权的
+
