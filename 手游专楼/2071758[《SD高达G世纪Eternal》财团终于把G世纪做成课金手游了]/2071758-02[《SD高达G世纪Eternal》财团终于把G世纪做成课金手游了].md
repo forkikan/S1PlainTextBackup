@@ -445,3 +445,26 @@ ULT机还可以，但有SP灾厄跟神意之后还有没有必要练不好说，
 
 SP了猎犬和杜宾狼，资源放开了还是不错的<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无念  
+##### 1523#       发表于 2025-5-23 11:20
+
+啊B好歹顺手把那几个500钻的半残独立作品慢慢补起来啊，就当填充活动垃圾时间用了
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  captoon  
+##### 1524#       发表于 2025-5-23 11:20
+
+ 本帖最后由 captoon 于 2025-5-23 11:23 编辑 
+
+S0赛季的MVP是 SF和煞**，配合粉红母船，出手速度太快了
+
+PVP S0赛季更多感觉像变种爬塔
+
+对手像AI从玩家机库里自动配队出来的
+
