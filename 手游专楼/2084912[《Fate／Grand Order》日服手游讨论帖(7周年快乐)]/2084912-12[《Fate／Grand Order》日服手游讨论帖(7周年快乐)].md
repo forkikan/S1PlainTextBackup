@@ -700,3 +700,43 @@
 
 两百石头没艾雷王了<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 16789#       发表于 2025-5-22 19:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67841567&amp;ptid=2084912" target="_blank">芭德薇 发表于 2025-5-22 17:30</a>
+
+三星枪其实有一个20群充20攻20宝威……</blockquote>
+一三技能强化后的赫克托尔，作为拐确实很强，堪称枪阶的兰陵王<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  woodacg  
+##### 16790#       发表于 2025-5-22 20:29
+
+开狗粮本减半的同时能不能把素材和钱也减半下，现在狗粮爆仓了，钱却不够开310。只好40一把的刷
+
+*****
+
+####  qixinno2  
+##### 16791#       发表于 2025-5-23 08:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">兽蕾+1 就很蛋疼 想要的不出 随便扔几个石头浪费欧气
+
+*****
+
+####  quanlix  
+##### 16792#       发表于 2025-5-23 09:23
+
+有了冠盘加成之后这三连+EX伤害比以前高太多了，而且混色连比纯色连伤害高好多
+
+打QAB第一张Q吃50%绿卡威力，第二张A吃100%蓝卡威力，第三张B吃150%红卡威力，EX吃400%白卡威力
+
+你要是打BBB的话，每张B都只吃50%的红卡威力，叠不起来了，EX还是吃400%
+
+而且这个加成是能给宝具卡吃的，现在宝具卡放后两位伤害更高
+
+呆毛这个2技能强化现在直接成了负面效果了
+
