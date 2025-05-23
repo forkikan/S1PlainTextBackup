@@ -795,3 +795,11 @@ ex武装基本都是属性减伤无效，只能靠盾跟血防顶了，不过光
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">为什么对面都会用ex，我这边就死都不用啊
 
+
+*****
+
+####  silvia  
+##### 1556#       发表于 2025-5-23 16:28
+
+0课看来只能9w了，对面满破强自根本打不过还会回血，我方死活不用
+

@@ -3254,3 +3254,27 @@ SIDE6的军警职业素养很高的，看见精神力高达不逃不躲反而往
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  newise  
+##### 15080#       发表于 2025-5-23 16:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67844768&amp;ptid=2209276" target="_blank">syndrome2032 发表于 2025-5-23 15:53</a>
+
+黑拳最抽象的不是side6总统都知道还默认，结果izuma条子查的一个比一个紧吗。
+
+这保护伞失格啊 ...</blockquote>
+FBI两头堵首席哥时还说绿叔叔调MA来是要把他们都送上天，但是正宗大飞空调却能光明正大过海关上街<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  YU_JI  
+##### 15081#       发表于 2025-5-23 16:34
+
+<blockquote>newise 发表于 2025-5-23 16:32
+FBI两头堵首席哥时还说绿叔叔调MA来是要把他们都送上天，但是正宗大飞空调却能光明正大过海关上街 ...</blockquote>
+
+基克罗格毕竟是一战老兵，跟着鸭子混了一年声名大噪，大飞空调恐怕side6这帮人是真没认出来是什么东西（
+
