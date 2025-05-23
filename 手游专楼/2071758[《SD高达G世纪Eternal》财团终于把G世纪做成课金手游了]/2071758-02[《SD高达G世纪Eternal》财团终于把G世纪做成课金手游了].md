@@ -787,3 +787,11 @@ ex武装基本都是属性减伤无效，只能靠盾跟血防顶了，不过光
 
 2025-5-23 16:12 上传
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 1555#       发表于 2025-5-23 16:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">为什么对面都会用ex，我这边就死都不用啊
+
