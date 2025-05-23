@@ -3688,3 +3688,20 @@ FBI两头堵首席哥时还说绿叔叔调MA来是要把他们都送上天，但
 
 小番茄的初期表现特别容易初见误终身，这也是没办法的事<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mintslime  
+##### 15111#       发表于 2025-5-23 21:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67845629&amp;ptid=2209276" target="_blank">王元姬无惨 发表于 2025-5-23 20:56</a>
+
+神了 还能见到宇宙厕妹吹的 还腆着剑喷别人黑子无脑黑他家妹妹 
+
+这下我明白那个被封号的嘴臭哥为什么看到 ...</blockquote>
+番茄表现可以说精神小妹不靠谱白眼狼，但是和厕妹完全八竿子打不着，建议不要随便看到个网络热词就用。
+
+厕妹是指的在wb匿名发言bot里靠匿名攻击他人的小妹，特征也就是阴暗匿名，爱抱团，爱网暴，嘴脏，哪一条都跟番茄现在的表现搭不着边。用厕妹形容番茄只会让人觉得没认真看片。
+
+就像你想攻击总帅，可以骂他萝莉控或者母控，但是骂他人妻控就很莫名其妙了。
+
