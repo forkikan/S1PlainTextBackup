@@ -1434,3 +1434,13 @@ B站有视频，教你样本会刷在什么样的地形上的。而且主线、�
 
 免费债券肝完几个强化资源可以暂时搁置，民主爆破才是重中之重
 
+
+*****
+
+####  IWS2000  
+##### 6056#       发表于 2025-5-23 11:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67843391&amp;ptid=2170852" target="_blank">normalli 发表于 2025-5-23 09:48</a>
+打光能者改用轻甲以后神清气爽，只要我跑的快，拼好人就追不上我，甩开拼好人光能就还是逛大街，拼好人这东 ...</blockquote>
+自从用上换弹甲后就一直没替换，已经用不了中重甲了<img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
