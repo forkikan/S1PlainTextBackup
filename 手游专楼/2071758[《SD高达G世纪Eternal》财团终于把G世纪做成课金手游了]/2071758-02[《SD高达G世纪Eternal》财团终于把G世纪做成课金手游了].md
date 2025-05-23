@@ -882,3 +882,25 @@ the O没有盾，有一个能力是超强势才能加防，总的来说应该跟
 
 不得不说，高达游戏凯子就是多，到了大师段一刷5个2w战力的，中间两个战力高的点进去一看6个满破的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">哦，对了，NTA在这模式意外的好用，大体型扔最前面干扰走位挺不错的
 
+
+*****
+
+####  一个陆仁贾  
+##### 1564#       发表于 2025-5-23 18:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67845227&amp;ptid=2071758" target="_blank">xiongxingyu 发表于 2025-5-23 18:04</a>
+不得不说，高达游戏凯子就是多，到了大师段一刷5个2w战力的，中间两个战力高的点进去一看6个满破的还好打法 ...</blockquote>
+但是我感觉nta不是合格盾机，经常挨一炮就没了……
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  HEERO.W  
+##### 1565#       发表于 2025-5-23 18:12
+
+<img src="https://p.sda1.dev/24/ec39bfb206376209bd5ffbb8b6bb8a97/image.jpg" referrerpolicy="no-referrer">从其他敌人那边毛分，中间输了也拿满奖励
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

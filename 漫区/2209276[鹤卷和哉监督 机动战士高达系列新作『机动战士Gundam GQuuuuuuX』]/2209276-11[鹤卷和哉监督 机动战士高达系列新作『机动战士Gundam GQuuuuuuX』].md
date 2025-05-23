@@ -3430,3 +3430,42 @@ TOP1也一样，它是2集为一组发售，每一组之间差异大得都不像
 
 正常罕布拉比的话大概直接以灰机形态出场一路狂奔就行了，线控炮怎么跑都没本体带推进器跑得快<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 15093#       发表于 2025-5-23 18:06
+
+[X 上的 ガンダムフィギュア／魂ネイションズ公式：“『機動戦士Gundam #GQuuuuuuX』より デフォルメフィギュア「Figuarts mini」 ✅アマテ・ユズリハ (マチュ) ✅ニャアン ✅シュウジ・イトウ 3アイテムは5月24日(土)店頭発売!! 📌[url]https://t.co/RCLeKYMqCQ](https://x.com/gundam_tamashii/status/1925854379791299061) 商品サンプル撮りおろし画像を公開です♪ #ガンダムフィギュア #アーツミニ #ジークアクス [https://t.co/ZGrTSchZfA](https://t.co/ZGrTSchZfA)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/23/180606ne0mnnmj0mke6n00.png" referrerpolicy="no-referrer">
+
+<strong>DN0B][(E4O[7(VZYWSCQ0MU.png</strong> (3.06 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-23 18:06 上传
+
+<img src="https://img.stage1st.com/forum/202505/23/180615hvz7ruv4u02ue4rd.png" referrerpolicy="no-referrer">
+
+<strong>RCLHHQ7FNCN[C1G}Q(C$(ZN.png</strong> (2.87 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-23 18:06 上传
+
+<img src="https://img.stage1st.com/forum/202505/23/180623andlki7vr949dsuz.png" referrerpolicy="no-referrer">
+
+<strong>}JU12AF(195[K}6D4RXLRZK.png</strong> (2.24 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-23 18:06 上传
+
+*****
+
+####  洛克萨斯  
+##### 15094#       发表于 2025-5-23 18:07
+
+全身光束涂层小功率的浮游炮就短时间打不穿了吧，其实力大砖飞就能破，防御足够浮游炮短时间打不穿就能往死里踩油门突脸对面本体
+
