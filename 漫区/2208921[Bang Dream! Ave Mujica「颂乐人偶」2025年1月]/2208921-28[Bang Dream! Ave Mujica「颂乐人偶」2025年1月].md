@@ -711,3 +711,492 @@ https://x.com/esp_t_talent/status/1923287308901490980
 
 如果mujica和祥子再次相遇那段做得好一点，或许能看出来。
 
+
+*****
+
+####  堀内爱里衣  
+##### 40935#       发表于 2025-5-20 18:32
+
+       
+
+<img src="https://img.stage1st.com/forum/202505/20/183214a7gmkw1qmwgctzbb.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-05-20_18-31-13.jpg</strong> (213.94 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-20 18:32 上传
+
+       [https://x.com/bang_dream_info/status/1924744403823837656](https://x.com/bang_dream_info/status/1924744403823837656)
+
+       [https://t.co/yjETWs4dcC](https://t.co/yjETWs4dcC)
+
+*****
+
+####  堀内爱里衣  
+##### 40936#       发表于 2025-5-20 20:23
+
+       
+
+<img src="https://img.stage1st.com/forum/202505/20/202338ynfez0aas99neeeb.jpg" referrerpolicy="no-referrer">
+
+<strong>MC分发.jpg</strong> (401.66 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-20 20:23 上传
+
+       [https://x.com/bang_dream_info/status/1924782196176650389](https://x.com/bang_dream_info/status/1924782196176650389)
+
+       [https://x.com/bang_dream_info/status/1924782152199094452](https://x.com/bang_dream_info/status/1924782152199094452)
+
+       [https://t.co/5X5sntphjb](https://t.co/5X5sntphjb)
+
+*****
+
+####  堀内爱里衣  
+##### 40937#       发表于 2025-5-20 20:31
+
+       
+
+<img src="https://img.stage1st.com/forum/202505/20/203107g9ddbyy9y0rluybu.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-05-20_20-30-34.jpg</strong> (281.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-20 20:31 上传
+
+       [https://weibo.com/7799681699/PsHYQaWwj](https://weibo.com/7799681699/PsHYQaWwj)
+
+*****
+
+####  堀内爱里衣  
+##### 40938#       发表于 2025-5-20 20:32
+
+       
+
+<img src="https://img.stage1st.com/forum/202505/20/203234fwcoztl1f4wdywsc.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-05-20_20-29-38.jpg</strong> (239.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-20 20:32 上传
+
+       [https://weibo.com/7799681699/PsI4r12Yo](https://weibo.com/7799681699/PsI4r12Yo)
+
+*****
+
+####  堀内爱里衣  
+##### 40939#       发表于 2025-5-21 14:46
+
+       
+
+<img src="https://img.stage1st.com/forum/202505/21/144604gcisyjgxlj66xk6j.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-05-21_14-45-07.jpg</strong> (232.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 14:46 上传
+
+       [https://x.com/bang_dream_info/status/1925023747548880954](https://x.com/bang_dream_info/status/1925023747548880954)
+
+       [https://t.co/bXnQ7lMpRs](https://t.co/bXnQ7lMpRs)
+
+*****
+
+####  堀内爱里衣  
+##### 40940#       发表于 2025-5-21 17:13
+
+       
+
+<img src="https://img.stage1st.com/forum/202505/21/171335zcnf44ibnux9owzl.png" referrerpolicy="no-referrer">
+
+<strong>6827fc6d-cfd0-4dd5-bb83-20406670a7cd.png</strong> (1.11 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 17:13 上传
+
+       [https://x.com/bang_dream_info/status/1925099246803681384](https://x.com/bang_dream_info/status/1925099246803681384)
+
+       [https://t.co/1d9V5zQHy5](https://t.co/1d9V5zQHy5)
+
+       [https://x.com/bang_dream_info/status/1925099249018237114](https://x.com/bang_dream_info/status/1925099249018237114)
+
+       [https://t.co/Dyqj4dmcAK](https://t.co/Dyqj4dmcAK)
+
+*****
+
+####  草台培训班  
+##### 40941#       发表于 2025-5-21 18:27
+
+说起来，第三季，母鸡卡在剧中的知名度已经很高了吧？乐队本身的热度加上成员背景公布，知名度已经算是一线明星级别了，
+
+不单是小圈子里的人认识，而是达到了路人看到也会认出来的程度。
+
+这种情况下，普通日常情节没法拍了吧？
+
+*****
+
+####  堀内爱里衣  
+##### 40942#       发表于 2025-5-21 18:42
+
+       
+
+<img src="https://img.stage1st.com/forum/202505/21/184220i2nuwjwuzu2vyjww.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-05-21_18-41-35.jpg</strong> (309.21 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 18:42 上传
+
+       [https://x.com/bang_dream_info/status/1925129442730586283](https://x.com/bang_dream_info/status/1925129442730586283)
+
+       [https://t.co/JPTLyKHkiA](https://t.co/JPTLyKHkiA)
+
+*****
+
+####  堀内爱里衣  
+##### 40943#       发表于 2025-5-21 20:50
+
+ 本帖最后由 堀内爱里衣 于 2025-5-22 01:32 编辑 
+
+       <strong>【Radio企划】MyGO!!!!!の「迷子集会」#127</strong>
+ <blockquote>
+
+<img src="https://img.stage1st.com/forum/202505/21/204846rz7ddtydc6ae82cx.jpg" referrerpolicy="no-referrer">
+
+<strong>38e280a614a9285a6b0eb218b7081a5a579c466b.jpg</strong> (263.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-21 20:48 上传
+
+该节目是由随机MyGO!!!!!成员担任主持人的广播节目，本期为#127。
+
+本期主持人：
+
+小日向美香・林鼓子・米泽茜・高尾奏音
+
+▽可由以下链接向节目投稿哦
+
+⇒[https://forms.gle/WW2Y2pN5PaUd8ee37](https://forms.gle/WW2Y2pN5PaUd8ee37)
+
+本周成员寄语：
+
+・是首次嘉宾回—！！好开心—！！
+
+   请到了Ave Mujica的Nonnon和Akanen
+
+   会为大家多多献上联合LIVE的感想哦—！！（小日向）
+
+・没想到，节目首次请到了嘉宾！
+
+   请到了Ave Mujica的Non酱和Akanen！MyGO×AveMujica话题聊得好开心—！
+
+   还请继续期待下期节目♥（林）
+
+・能受邀成为迷子集会的首次嘉宾十分荣幸。
+
+   虽然还不太习惯广播，但是多亏大家的引领，
+
+   聊得十分开心。（米泽）
+
+・能够和MyGO!!!!!们一起聊「わかれ道の、その先へ」期间的小故事
+
+   真的十分开心。
+
+   果然MyGO×AveMujica最棒了！！（高尾）
+
+翻译协力：Apricot</blockquote>
+    [https://www.bilibili.com/video/BV1WgJzzmEhW/](https://www.bilibili.com/video/BV1WgJzzmEhW/)
+
+       
+
+<img src="https://img.stage1st.com/forum/202505/22/013102qnemolhq7a9omqy5.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-05-22_01-30-13.jpg</strong> (237.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 01:31 上传
+
+       [https://x.com/AkaneY_banu/status/1925164758615097520](https://x.com/AkaneY_banu/status/1925164758615097520)
+
+       
+
+<img src="https://img.stage1st.com/forum/202505/22/013223be50wldzydnebj5a.jpg" referrerpolicy="no-referrer">
+
+<strong>PP_2025-05-22_01-31-25.jpg</strong> (418.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 01:32 上传
+
+       [https://x.com/Kanon_Takao/status/1925182429717025208](https://x.com/Kanon_Takao/status/1925182429717025208)
+
+*****
+
+####  南宮凝香  
+##### 40944#       发表于 2025-5-21 23:22
+
+<blockquote>草台培训班 发表于 2025-5-21 18:27
+说起来，第三季，母鸡卡在剧中的知名度已经很高了吧？乐队本身的热度加上成员背景公布，知名度已经算是一线 ...</blockquote>
+邦是一個偶像在咖啡廳打工也沒粉絲上門的世界
+
+所以你說的不成立
+
+像對邦卡祥子就能毫無阻礙的在卡啦OK 裡辦公
+
+*****
+
+####  yone0000  
+##### 40945#       发表于 2025-5-22 11:02
+
+鸡饲料这不就来了，虽然是混在狗粮里<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 40946#       发表于 2025-5-22 14:12
+
+『BanG Dream! It's MyGO!!!!! 雨中祈晴』第6话① ​​​
+
+<img src="https://img.stage1st.com/forum/202505/22/140918gtk2syph00hlvynh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (196.34 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 14:09 上传
+
+<img src="https://img.stage1st.com/forum/202505/22/140924zzlascoyseja9fy6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (91.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 14:09 上传
+
+<img src="https://img.stage1st.com/forum/202505/22/140934rbqlhbvuv969nusz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (96.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 14:09 上传
+
+<img src="https://img.stage1st.com/forum/202505/22/140942fz9k0r0w490w9n0m.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (109.93 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 14:09 上传
+
+<img src="https://img.stage1st.com/forum/202505/22/140949pyjtgjbtctcsayza.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (83.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 14:09 上传
+
+<img src="https://img.stage1st.com/forum/202505/22/140957zcutzukxj7ixv7gq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (115.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 14:09 上传
+
+<img src="https://img.stage1st.com/forum/202505/22/141007bnposoinopbb5zi1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (112.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 14:10 上传
+
+<img src="https://img.stage1st.com/forum/202505/22/141016jhhr1slhrl97yms5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (103.54 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 14:10 上传
+
+<img src="https://img.stage1st.com/forum/202505/22/141026l00nszgg4n7zskcu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (99.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 14:10 上传
+
+<img src="https://img.stage1st.com/forum/202505/22/141033k8s638pohsaapkpm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (109.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 14:10 上传
+
+<img src="https://img.stage1st.com/forum/202505/22/141042sci1ttim3gzh0t7v.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (131.19 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 14:10 上传
+
+<img src="https://img.stage1st.com/forum/202505/22/141049gaaa96llizsp0ia4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (131.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 14:10 上传
+
+<img src="https://img.stage1st.com/forum/202505/22/141056tia4685xw6iz6wu8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (117.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 14:10 上传
+
+<img src="https://img.stage1st.com/forum/202505/22/141103pknbphkar04aaiji.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (132.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 14:11 上传
+
+<img src="https://img.stage1st.com/forum/202505/22/141111hnrojomvxvwfuzpp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (98.3 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 14:11 上传
+
+<img src="https://img.stage1st.com/forum/202505/22/141118z966o9s667kx9176.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (96.44 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 14:11 上传
+
+<img src="https://img.stage1st.com/forum/202505/22/141126lzvmm0mej6v5e2kl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (46.05 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 14:11 上传
+
+<img src="https://img.stage1st.com/forum/202505/22/141135clxdlz2edhp2edzd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (119.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 14:11 上传
+
+*****
+
+####  仟音一心  
+##### 40947#       发表于 2025-5-22 14:17
+
+<img src="https://img.stage1st.com/forum/202505/22/141703mg8bnnomw8xrwmpo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (138.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 14:17 上传
+
+<img src="https://img.stage1st.com/forum/202505/22/141715kd79r47r3jn0z77w.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (184.79 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 14:17 上传
+
+*****
+
+####  丰川祥  
+##### 40948#       发表于 2025-5-22 14:23
+
+买鸡bd或任意邦邦cd送随机胶片
+
+<img src="https://img.stage1st.com/forum/202505/22/142319ufk4z1zbn0h9h41f.png" referrerpolicy="no-referrer">
+
+<strong>IMG_1085.png</strong> (300.69 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 14:23 上传
+
+*****
+
+####  osore  
+##### 40949#       发表于 2025-5-22 14:35
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿农连正脸都不配有吗
+
+*****
+
+####  南宮凝香  
+##### 40950#       发表于 2025-5-22 20:34
+
+就喜歡立希嘴上硬氣，
+
+一見面就道歉的樣子
+
+*****
+
+####  osore  
+##### 40951#       发表于 2025-5-22 21:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67842183&amp;ptid=2208921" target="_blank">南宮凝香 发表于 2025-5-22 20:34</a>
+就喜歡立希嘴上硬氣，
+
+一見面就道歉的樣子</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那是看在168e的份上
+
+*****
+
+####  thisisaspider  
+##### 40952#       发表于 2025-5-22 23:12
+
+立希气走爱音最后不也是道歉了吗
+
+性格如此
+
+*****
+
+####  thisisaspider  
+##### 40953#       发表于 2025-5-22 23:18
+
+实际上这里表现也挺奇妙的，立希似乎也没有去挽留灯。
+
+立希在两次解散后的行动也不太一样。是因为经历过了还是因为其他的发生了变化，这部分空白挺多的。
+
+如果mujica和祥子再次相遇那段做得好一点，或许能看出来。
+
+*****
+
+####  钦念以忱  
+##### 40954#       发表于 2025-5-23 11:29
+
+素睦的第一次拥抱改了啊，我不太了解，手游的这个地方有改动么？
+
