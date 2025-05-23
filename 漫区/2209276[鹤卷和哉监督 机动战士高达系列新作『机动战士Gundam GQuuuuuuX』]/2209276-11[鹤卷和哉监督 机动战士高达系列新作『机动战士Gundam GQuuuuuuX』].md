@@ -2823,3 +2823,88 @@ V高达结局没法让人释怀吧，也不是要卡迪公这个颠婆去世，�
 0079第一集芙劳的家人在眼前惨死，骡子为了让她避难抽醒了她。</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可别说了，我又想起来距今七八年前的一场跑团，有女npc在惊恐发作，情况紧急，我情急之下说“我给她一巴掌，让他快速冷静”。然后我就被主持人（女）一直针对到结束，麻了都。
 
+
+*****
+
+####  盐盐盐盐盐  
+##### 15044#       发表于 2025-5-23 14:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67844424&amp;ptid=2209276" target="_blank">windlikeman 发表于 2025-5-23 14:15</a>
+ 说起来是不是金元要来官方节目 感觉和魔女不一样 2号这没啥可聊啊 喊来坐牢 ...</blockquote>
+本来副音轨节目大多数也是聊的录音时候的故事之类的，和角色内核没太大关系<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">虽然是看动画评论但是经常几个人光聊天了没空看屏幕
+
+*****
+
+####  Steel.Haze  
+##### 15045#       发表于 2025-5-23 14:38
+
+<img src="https://img.stage1st.com/forum/202505/23/143317vb8ezt8bjepzww6z.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (17.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-23 14:33 上传
+
+我又看了一下，实际上，汉莫拉比的巡航MA形态展现了，不过技术水平远低于UCZ，它基本MS部分不变形，就是利用背部机翼（原设散热板兼顾平衡翼）来平飞，MS头部设计针对放平身体后的顶部视角探测，腿部不变形。它等于就是把一个飞行踏板SFS背在背上，然后平飞而已，还是用尾巴当平衡转向机动轴。背着飞行单元的传统MS是这个阶段联邦的TMS的解决方案。这倒是非常符合技术水平。原作必经汉莫拉比是可动骨架、磁气覆膜、木星系技术的喷射引擎都用上了，才能在不搞大型发电机的情况下机动性小胜Z高达。现在这个汉莫拉比基本是83年左右的MS技术和动力水平+79年的飞行MS的模式（外挂飞行背包）然后整合的更加一体化。
+
+*****
+
+####  无念  
+##### 15046#       发表于 2025-5-23 14:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67844483&amp;ptid=2209276" target="_blank">盐盐盐盐盐 发表于 2025-5-23 14:36</a>
+本来副音轨节目大多数也是聊的录音时候的故事之类的，和角色内核没太大关系虽然是看动画评论但是经常几个 ...</blockquote>
+真的要全程评论当前画面的意义，背后的构思啥的一般都是主创的活，比如少战剧场版的监督副音轨(
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  ヒトニナル  
+##### 15047#       发表于 2025-5-23 14:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67844474&amp;ptid=2209276" target="_blank">朋友费小号 发表于 2025-5-23 14:30</a>
+可别说了，我又想起来距今七八年前的一场跑团，有女npc在惊恐发作，情况紧急，我情急之下说“我给她一巴 ...</blockquote>
+如果是coc的话我只能说精神分析（物理）一直是coc的精髓，这件事说明带你的是个很差劲的kp<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yichengyu  
+##### 15048#       发表于 2025-5-23 14:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67843767&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-23 11:07</a>
+
+高达打戏很好看的有独角兽里杰刚队长打12妹那一幕。（估计很难超越了）
+
+先是两台新兵杰刚瞬间被秒，反衬出 ...</blockquote>
+开场这一段真的不错，队长扔了装备以后进行了数次冲锋，真的是机体性能差太多了
+
+*****
+
+####  Steel.Haze  
+##### 15049#       发表于 2025-5-23 14:43
+
+ 本帖最后由 Steel.Haze 于 2025-5-23 14:44 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67843740&amp;ptid=2209276" target="_blank">adretyu67. 发表于 2025-5-23 11:00</a>
+
+说实话，你就算只给骡子叔叔一把光剑让他solo精神病，骡子叔叔也是要骂你是不是有病的。
+
+gqux第七话想让麻 ...</blockquote>
+如果机体好的话，精神病MK1他可能还真能拿光剑SOLO了。
+
+我估计他们考虑过让夸克斯和红高达共振发功，然后把精神力用那个NT光球直接炸没了（顺便修斯和红高达传送走），然后S6直接破个巨大的缺口，然后开始演出太空吸尘器。然后我觉得他们也考虑到现在的小年轻观众可能已经在之前的节奏下，看不了这种突然的巨大转变（这一幕估计堪比V高达了），商业考虑起见，在前半部分，基本没让女主杀人。更不会让其落下高达史上第一平民屠夫的定位。现在的演出是一种极度克制的产物。我觉得鹤卷他们肯定有“来一幕'大'的这样的创意能力和动力”不过现在的市场承受力嘛....
+
+*****
+
+####  无念  
+##### 15050#       发表于 2025-5-23 14:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67844490&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-5-23 14:38</a>
+我又看了一下，实际上，汉莫拉比的巡航MA形态展现了，不过技术水平远低于UCZ，它基本MS部分不变形，就是利 ...</blockquote>
+很难说这一卡是不是变形了，可能要等胶出来才能确认，毕竟这“变形”可谓敷衍到家了
+手和脚一点动作都没，一趴变形都比他有诚意，这要是真的那合体后的超级高达也能算可变机(
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
