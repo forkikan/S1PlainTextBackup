@@ -4118,3 +4118,30 @@ FBI两头堵首席哥时还说绿叔叔调MA来是要把他们都送上天，但
 
 —— 来自 HONOR BVL-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  大十字紅朔  
+##### 15149#       发表于 2025-5-24 01:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67846140&amp;ptid=2209276" target="_blank">adretyu67. 发表于 2025-5-24 00:57</a>
+
+除了那个水槽发言，麻球的日常是完完全全的21世纪日本高中生，上了高达开始打黑拳告诉你这个世界其实是ucif ...</blockquote>
+说来有点好笑，以往的高达殖民卫星里面从来没有这样完全是现代日本城市的，日本特有的狭窄街道，地下铁，神社……
+
+你说这个卫星是G高达的新日本我能信
+
+*****
+
+####  大十字紅朔  
+##### 15150#       发表于 2025-5-24 01:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67846120&amp;ptid=2209276" target="_blank">adretyu67. 发表于 2025-5-24 00:43</a>
+
+麻球要是不叛逆或者说对女高生活感觉到无聊跑去追求kirakira和打黑拳干啥，不叛逆她根本不会上gqux
+
+现在上 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">布莱德第一话还是第二话就被几个提坦斯杂兵喂老拳了
+
+Z高达有注意要怎么让观众一眼看出来谁是坏人的，和普通的精神小伙不一样
+
