@@ -1034,3 +1034,15 @@ IMG_3746.jpeg
 
 — from Sony XQ-CT44, Android 14, [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  aaron17  
+##### 103#       发表于 2025-5-23 20:03
+
+白鴿4人被迫雙面間諜 control通過任務試她們忠誠度 最後兩邊不討好 白鴿的處境還是夾縫求生
+
+片尾印第安老哥和澤爾達帶共和國軍or起義軍？劫獄理查德 準備起義了
+
+— from Sony XQ-CT44, Android 14, [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
