@@ -990,3 +990,14 @@ nta毕竟没有盾
 
 怎么精神病高达打不中人的
 
+
+*****
+
+####  rockroxas  
+##### 1575#       发表于 2025-5-24 01:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67846200&amp;ptid=2071758" target="_blank">格雷殿下 发表于 2025-5-24 01:53</a>
+
+怎么精神病高达打不中人的</blockquote>
+命中率主要看机体机动力，打不中就是敌人高星机动力太高，命中率去到80就能明显感觉到经常miss了
+
