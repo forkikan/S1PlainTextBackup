@@ -3799,3 +3799,11 @@ https://www.bilibili.com/video/BV1anJJzuEK8
 https://storia.takeshobo.co.jp/_files/apo_hotel/07/</blockquote>
 那是真结实……而且5年还不降轨？
 
+
+*****
+
+####  starfisher  
+##### 330#       发表于 2025-5-23 17:10
+
+现在酒店老板的样子，脸上那颗五角星，怎么都觉得他也是AI机器人。看看最后收尾的时候怎么解题吧。
+

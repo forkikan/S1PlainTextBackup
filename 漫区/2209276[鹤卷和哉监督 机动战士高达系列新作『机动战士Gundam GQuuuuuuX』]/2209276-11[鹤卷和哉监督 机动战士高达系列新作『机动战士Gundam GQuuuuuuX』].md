@@ -3278,3 +3278,18 @@ FBI两头堵首席哥时还说绿叔叔调MA来是要把他们都送上天，但
 
 基克罗格毕竟是一战老兵，跟着鸭子混了一年声名大噪，大飞空调恐怕side6这帮人是真没认出来是什么东西（
 
+
+*****
+
+####  大十字紅朔  
+##### 15082#       发表于 2025-5-23 17:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67844825&amp;ptid=2209276" target="_blank">玖羽 发表于 2025-5-23 16:06</a>
+
+也许只有个别底层不知道，这不重要
+
+我在前面也说过，这片的一个明显问题是并没有打算好好刻画黑拳生态， ...</blockquote>
+这个题我会啊
+
+插手剧本的人多了，设定前后改来改去把自己改晕了，一看时间拖太久了硬着头皮上，草台班子很常见的情况<img src="https://static.stage1st.com/image/smiley/carton2017/040.png" referrerpolicy="no-referrer">
+
