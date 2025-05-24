@@ -4341,3 +4341,26 @@ Z高达有注意要怎么让观众一眼看出来谁是坏人的，和普通的�
 —— 来自 鹅球 v3.3.96-alpha</blockquote>
 对玛秋而言而已，她妈就一普通家长，除非后面写她妈的工作内容有问题，但你GQX还有篇幅写玛秋妈吗？
 
+
+*****
+
+####  发呆的龙虾  
+##### 15167#       发表于 2025-5-24 10:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67846442&amp;ptid=2209276" target="_blank">plok201 发表于 2025-5-24 09:37</a>
+这个UCif给我的感觉又是鹤卷报恩了，庵野想玩一把UCif然后跑路，鹤卷就顺着他意上船了
+
+说起卡缪，富野都知 ...</blockquote>
+说不定制作组觉得观感没问题呢。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TET-AN00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  LadySaazbaum  
+##### 15168#       发表于 2025-5-24 10:24
+
+楼上几位潭友可能误会了一些点。厕妹所谓的家境差不是一个可以客观衡量的点而是主观感受，是“有人比我家条件好=我家很差”，比较起来没止境的。仔细观察一下哪个厕妹是真的缺吃少穿没学上？不都是衣食无忧才有空无病呻吟么。
+
+而在网上阴暗爬行也只是其中一面，线下和该溜子混到一起、上街偷电动车、通过不三不四的手段搞钱，也很常见。大家看见宇宙厕妹四个字立刻get到了不是没有道理的。
+
