@@ -5161,3 +5161,22 @@ u1s1，让联邦ace和黑色二连星活下来，然后第七集让精神病高�
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  ティグル  
+##### 15239#       发表于 2025-5-24 20:51
+
+如果解锁条件是少年少女的话，那鸭妹肯定过期了啊
+
+*****
+
+####  无念  
+##### 15240#       发表于 2025-5-24 20:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67847802&amp;ptid=2209276" target="_blank">ティグル 发表于 2025-5-24 20:51</a>
+如果解锁条件是少年少女的话，那鸭妹肯定过期了啊</blockquote>
+以前能用现在用不了也可以解释为啥要招喵安啊<img src="https://static.stage1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
