@@ -4400,3 +4400,21 @@ Z高达有注意要怎么让观众一眼看出来谁是坏人的，和普通的�
 之前那 ...</blockquote>
 15万是买宇宙飞船的总价，不是一场黑拳的收入。打黑拳确实挣得多，但也没那么赚。
 
+
+*****
+
+####  57042711  
+##### 15173#       发表于 2025-5-24 11:25
+
+脱离剧情也没办法吧，毕竟麻球可是历史上第一个盗窃现金被发现然后一转持枪抢劫的高达主人公啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+年轻时犯下的错误.jpg
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  ryanghj  
+##### 15174#       发表于 2025-5-24 11:25
+
+那钱不还是玛秋自己拼命挣的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
