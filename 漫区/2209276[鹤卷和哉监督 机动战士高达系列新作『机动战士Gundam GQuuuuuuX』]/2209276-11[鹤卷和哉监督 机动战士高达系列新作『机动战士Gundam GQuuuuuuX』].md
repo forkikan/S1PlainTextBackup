@@ -5180,3 +5180,22 @@ u1s1，让联邦ace和黑色二连星活下来，然后第七集让精神病高�
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Sacross  
+##### 15241#       发表于 2025-5-24 21:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">所以这片子现在定性到底是一季还是分上下啊，这赶得要死塑造完全排不过来完了剧场版还占了4集，行不行啊
+
+—— 来自 OnePlus IN2020, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  ティグル  
+##### 15242#       发表于 2025-5-24 21:05
+
+而且番茄本人也比较微妙吧，也十六七的人了
+
+说起来还有个很微妙的点，如果真是描写的gen z的话却完全没有遭到信息轰炸也没有SNS依赖，真不像是这么回事
+
