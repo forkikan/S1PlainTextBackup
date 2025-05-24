@@ -4329,3 +4329,15 @@ Z高达有注意要怎么让观众一眼看出来谁是坏人的，和普通的�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  ヒトニナル  
+##### 15166#       发表于 2025-5-24 10:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67846470&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-24 09:52</a>
+玛秋妈在这个节点上来看也并非正面人物
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+对玛秋而言而已，她妈就一普通家长，除非后面写她妈的工作内容有问题，但你GQX还有篇幅写玛秋妈吗？
+
