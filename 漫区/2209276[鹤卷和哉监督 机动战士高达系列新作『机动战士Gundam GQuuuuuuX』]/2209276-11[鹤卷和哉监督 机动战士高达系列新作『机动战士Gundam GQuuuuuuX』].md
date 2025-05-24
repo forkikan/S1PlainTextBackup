@@ -4704,3 +4704,18 @@ machu主要是虚假重力和真实重力吧，就是新哥斯拉的宣传词“
 其实夏亚的泽克诺瓦有水声和第一集的kirakira有水声都是以前有围绕是79意象大海的延伸创作讨论过的，但你 ...</blockquote>
 夏亚那段TV没放没法查证了，第一集那个真没注意到，只记得那个汽笛的声音了
 
+
+*****
+
+####  plok201  
+##### 15200#       发表于 2025-5-24 14:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67846514&amp;ptid=2209276" target="_blank">发呆的龙虾 发表于 2025-5-24 10:23</a>
+
+说不定制作组觉得观感没问题呢。
+
+—— 来自 HUAWEI TET-AN00, Android 12, 鹅球 v3.4.98 ...</blockquote>
+那我们能期待4集后的大烟花了
+
+好奇GQX大结局前那个网络讨论环境变化<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
