@@ -110,3 +110,15 @@
 
 完整版才有和2b的联动对吗？
 
+
+*****
+
+####  lighttt  
+##### 2028#       发表于 2025-5-24 23:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67847875&amp;ptid=1978008" target="_blank">落花微塵 发表于 2025-5-24 21:17</a>
+完整版才有和2b的联动对吗？</blockquote>
+对的
+
+—— 来自 OPPO PHY110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
