@@ -9515,3 +9515,20 @@ jimmyshen怎么被点草了
 
 —— 来自 Google Pixel 8 Pro, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  TiHaru  
+##### 18552#       发表于 2025-5-25 03:25
+
+看回复应该是点了歌没被唱
+
+*****
+
+####  shmilyhua  
+##### 18553#       发表于 2025-5-25 03:26
+
+哎，看得久了果然还是会想被认知吗。
+
+—— 来自 Google Pixel 8 Pro, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
