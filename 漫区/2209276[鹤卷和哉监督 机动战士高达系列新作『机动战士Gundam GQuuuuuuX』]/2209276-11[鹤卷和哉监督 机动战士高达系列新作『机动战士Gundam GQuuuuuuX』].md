@@ -5704,3 +5704,25 @@ via [https://weibo.com/5204777712/PtlAyFyuI?pagetype=profilefeed](https://weibo.
 我说句不好听的，单就对战争本身的认知这群货可能都不如少女终末旅行的作者一根毛 ...</blockquote>
 用gqx比，辱少终了
 
+
+*****
+
+####  岸浪白野  
+##### 15283#       发表于 2025-5-25 00:16
+
+关于后半程谈到GQuuuuuuX
+
+安彦良和："虽然被高千穗推荐我看了，但实在没搞懂。之前本想跟相关人士说唯独不想让庵野做高达，结果没来得及阻止..."
+
+庵野秀明："那不是我做的！是鹤卷在负责。真的不是我"
+
+会场大笑
+
+<img src="https://img.stage1st.com/forum/202505/24/233811cnbsttian6bboint.png" referrerpolicy="no-referrer">
+
+<strong>DSLP3ZV~UKZ2HP04I@O9R.png</strong> (113.9 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-24 23:38 上传
+

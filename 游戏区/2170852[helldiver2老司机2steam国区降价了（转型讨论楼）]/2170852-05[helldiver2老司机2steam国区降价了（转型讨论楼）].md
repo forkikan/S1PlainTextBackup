@@ -1565,3 +1565,11 @@ ps5版是不是出bug了 自定义枪械一按就崩溃
 
 希望明天起来超级ON SEA没有沦陷<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  九十九忍  
+##### 6069#       发表于 2025-5-25 00:12
+
+其他任务有多散步50船任务就有多抗压，都不叫坐牢了，基本全程被撵着跑
+
