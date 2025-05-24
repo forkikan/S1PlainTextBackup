@@ -5848,3 +5848,25 @@ via [https://weibo.com/5204777712/PtlAyFyuI?pagetype=profilefeed](https://weibo.
 
 看了一下泛式本周的杂谈切片，好像不少人还是蛮期待的（笑）
 
+
+*****
+
+####  ryanghj  
+##### 15295#       发表于 2025-5-25 01:54
+
+ 本帖最后由 ryanghj 于 2025-5-25 01:56 编辑 
+
+其实富野这人也是很拧巴的，实际上逆夏的夏亚的主张大概率就是他本人的想法（押井守分析的），一边在作品里宣传NT是人类革新的未来，一边将NT角色赋予凄惨的下场<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202505/25/015428hb76vaaa60a73bb3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (105.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-25 01:54 上传
+
+很多老害喜欢说富野高达反战，但实际上我认为他把战争的残酷表达出来更多的是一种嘲讽，“你们人类活该”<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+后来变白富野也是走出这种思维之后了
+
