@@ -865,3 +865,61 @@
 最咸的看来就是我了....梦火还有100多个....虽然每个月金方块的梦火我都买了 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">欧皇不需要挖矿！
 
+
+*****
+
+####  森兰丸  
+##### 16808#       发表于 2025-5-24 18:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67847353&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-5-24 17:55</a>
+
+欧皇不需要挖矿！</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新又在XJB乱黑....非洲人只是仓鼠+抽的少
+
+*****
+
+####  alucardcz  
+##### 16809#       发表于 2025-5-24 18:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67847394&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-5-24 18:16</a>
+
+萌新又在XJB乱黑....非洲人只是仓鼠+抽的少</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">有没有可能都是宝具等级
+
+*****
+
+####  森兰丸  
+##### 16810#       发表于 2025-5-24 18:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67847407&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-5-24 18:22</a>
+
+有没有可能都是宝具等级</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无氪非洲人一直都是只抽2宝的啊...像梅贞这种不需要追求强度的也是1宝就够了
+
+*****
+
+####  alucardcz  
+##### 16811#       发表于 2025-5-24 18:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67847424&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-5-24 18:29</a>
+
+无氪非洲人一直都是只抽2宝的啊...像梅贞这种不需要追求强度的也是1宝就够了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">5宝限定 我会忘吗！
+
+*****
+
+####  森兰丸  
+##### 16812#       发表于 2025-5-24 18:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67847437&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-5-24 18:33</a>
+
+5宝限定 我会忘吗！</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">早就过了时效了....你该忘了!
+
+*****
+
+####  qixinno2  
+##### 16813#       发表于 2025-5-24 18:35
+
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">基本都是一宝仓管的仰望二宝起步大佬
+
