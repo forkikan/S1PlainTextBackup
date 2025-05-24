@@ -4843,3 +4843,15 @@ machu主要是虚假重力和真实重力吧，就是新哥斯拉的宣传词“
 
 這根大木頭配上那個極度內向的喵安肯定會鬧出不少笑話
 
+
+*****
+
+####  体制  
+##### 15211#       发表于 2025-5-24 17:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67841889&amp;ptid=2209276" target="_blank">赤黑的假面 发表于 2025-5-22 19:06</a>
+高吧给我看懵了</blockquote>
+u1s1，让联邦ace和黑色二连星活下来，然后第七集让精神病高达一起收了说不定效果更好。
+
+—— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
