@@ -4646,3 +4646,51 @@ side6的货币单位都是USD的parody了，军警也parody一下没毛病么（
 那钱不还是玛秋自己拼命挣的</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有喵安替她代班 一场缺席就全赔回去了
 
+
+*****
+
+####  岸浪白野  
+##### 15195#       发表于 2025-5-24 13:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67846842&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-24 13:11</a>
+本质还是为了贴合“海”这个意向吧，第七集的zknv有很明显的坠水的音效 （夏亚那一次倒是好像没这回事），o ...</blockquote>
+其实夏亚的泽克诺瓦有水声和第一集的kirakira有水声都是以前有围绕是79意象大海的延伸创作讨论过的，但你们好像没记住<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赤黑的假面  
+##### 15196#       发表于 2025-5-24 13:28
+
+machu主要是虚假重力和真实重力吧，就是新哥斯拉的宣传词“真实vs虚构”，只能说卡拉他们很有想法，具体怎么实现的还得再看
+
+
+*****
+
+####  千恋万花  
+##### 15197#       发表于 2025-5-24 13:32
+
+可能是因为上一部的高达女主角也喜欢水母，房间里也贴了水母相关图片（声优梗）
+
+<img src="https://img.stage1st.com/forum/202505/24/133222zrbvnbjjdj3whnj3.png" referrerpolicy="no-referrer">
+
+<strong>PINEJAM_info-1582654313176133633-img2.png</strong> (106.3 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-24 13:32 上传
+
+<img src="https://img.stage1st.com/forum/202505/24/133235kvpz01pq2dbvwqp2.jpg" referrerpolicy="no-referrer">
+
+<strong>2022-10-29-0003_23.jpg</strong> (202.11 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-24 13:32 上传
+
+*****
+
+####  Sliurus  
+##### 15198#       发表于 2025-5-24 13:33
+
+突然发现会不会是鹤卷不会描写双主角，实际上第三集和第五集分别是马秋和喵安在战斗中获得了自我认同，紧跟着在随后的两集里原本的美梦崩塌，但马秋作为第一主角低潮时间就变得过长了，观众对马秋的认同感也是这样逐渐变低的
+
