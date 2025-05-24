@@ -5738,3 +5738,15 @@ via [https://weibo.com/5204777712/PtlAyFyuI?pagetype=profilefeed](https://weibo.
 宇宙世纪 ...</blockquote>
 如果他给了异域感我看才是超过了作者意图
 
+
+*****
+
+####  wpcc  
+##### 15285#       发表于 2025-5-25 00:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67848275&amp;ptid=2209276" target="_blank">Tungsten 发表于 2025-5-24 23:31</a>
+反过来说也是很真实地反映出了战后作者写只在电视里见过战争的一代人对战争是什么态度
+
+从剧里到剧外都属 ...</blockquote>
+12集根本讲不完战争 水魔和gqux都刻意避免了全面持久战
+
