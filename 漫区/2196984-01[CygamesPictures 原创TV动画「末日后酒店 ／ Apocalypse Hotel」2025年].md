@@ -3930,3 +3930,15 @@ aiko，进攻性太强了吧
 
 日本电视台放的时候竹本泉才10岁
 
+
+*****
+
+####  pzk  
+##### 340#       发表于 2025-5-24 20:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67847385&amp;ptid=2196984" target="_blank">NBXX 发表于 2025-5-24 18:11</a>
+「アポカリプスホテルぷすぷす」第7話 汉化
+
+第一页提到的奥特Q我之前没看过，查资料的时候特地去看 ...</blockquote>
+机器人应该不用担心晒黑这种问题吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
