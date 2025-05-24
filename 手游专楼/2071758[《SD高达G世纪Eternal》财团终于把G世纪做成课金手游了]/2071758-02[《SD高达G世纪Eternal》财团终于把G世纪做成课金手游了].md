@@ -1114,3 +1114,16 @@ nta毕竟没有盾
 —— 来自 Xiaomi 23049RAD8C, Android 15, 鹅球 v3.5.99</blockquote>
 有
 
+
+*****
+
+####  windtrack  
+##### 1586#       发表于 2025-5-24 16:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67847028&amp;ptid=2071758" target="_blank">真贝尔奈普斯 发表于 2025-5-24 14:43</a>
+
+亥伯龙有必要开发ur了吗
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, 鹅球 v3.5.99</blockquote>
+开发到第二级就很能打了，我靠亥伯龙和UR78当盾大师到15万了
+
