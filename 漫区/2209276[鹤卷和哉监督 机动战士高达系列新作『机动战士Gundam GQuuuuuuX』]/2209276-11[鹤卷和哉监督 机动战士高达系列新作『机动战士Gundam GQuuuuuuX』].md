@@ -5513,3 +5513,35 @@ OST
 —— ...</blockquote>
 我说句不好听的，单就对战争本身的认知这群货可能都不如少女终末旅行的作者一根毛
 
+
+*****
+
+####  玖羽  
+##### 15269#       发表于 2025-5-24 22:40
+
+ 本帖最后由 玖羽 于 2025-5-24 22:41 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67848078&amp;ptid=2209276" target="_blank">无动于衷 发表于 2025-5-24 22:36</a>
+
+我说句不好听的，单就对战争本身的认知这群货可能都不如少女终末旅行的作者一根毛 ...</blockquote>
+我还是那句话，你不描写战争可以，但是你不能连黑拳都不描写，那不就剩下精神小妹鬼火摩托了吗
+
+宇宙世纪精神小妹那也是精神小妹啊，再说你这个殖民地跟现代日本城市有什么区别，连异域感都不能给观众
+
+
+*****
+
+####  LadySaazbaum  
+##### 15270#       发表于 2025-5-24 22:47
+
+害我爆笑了三分钟hhhhhh
+
+<img src="https://img.stage1st.com/forum/202505/24/224731t47bsrb5rs7bb5pi.jpg" referrerpolicy="no-referrer">
+
+<strong>005GeIrCgy1i1qx2w8colj30m822o7wh.jpg</strong> (409.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-24 22:47 上传
+
+via [https://weibo.com/5204777712/PtlAyFyuI?pagetype=profilefeed](https://weibo.com/5204777712/PtlAyFyuI?pagetype=profilefeed)
+
