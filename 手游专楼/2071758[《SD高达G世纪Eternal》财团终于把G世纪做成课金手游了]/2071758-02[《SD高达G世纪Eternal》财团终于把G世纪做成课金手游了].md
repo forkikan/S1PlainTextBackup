@@ -1051,3 +1051,29 @@ nta毕竟没有盾
 
 —— 来自 OPPO PHY110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  rockroxas  
+##### 1581#       发表于 2025-5-24 13:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67846800&amp;ptid=2071758" target="_blank">lighttt 发表于 2025-5-24 12:54</a>
+
+送的夏亚好像2次援防，ur阿姆罗都只有一次
+
+—— 来自 OPPO PHY110, Android 15, 鹅球 v3.5.99-alpha ...</blockquote>
+夏亚想触发2次必须搭卡池GQ白高达（难入手难突且这次jjc词条不适配），活动红高达（不是防御机）
+
+79骡就……机子驾驶都是UR最差那档
+
+不过UR阿斯兰也只有一次就是了
+
+*****
+
+####  洛克萨斯  
+##### 1582#       发表于 2025-5-24 13:13
+
+没刷初始的我打这个pvp太恶心了................唯一一艘ur船是突破力，打pvp全是废物
+
+在13w战力这个区间一个都打不过
+
