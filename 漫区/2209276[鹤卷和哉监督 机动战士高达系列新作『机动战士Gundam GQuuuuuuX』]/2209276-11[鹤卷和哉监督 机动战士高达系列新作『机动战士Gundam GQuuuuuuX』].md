@@ -4203,3 +4203,13 @@ Z高达有注意要怎么让观众一眼看出来谁是坏人的，和普通的�
 
 这插入曲是音监还是监督的主意，两人起码有个人对配乐的认知不像人的
 
+
+*****
+
+####  王留美  
+##### 15155#       发表于 2025-5-24 08:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67846286&amp;ptid=2209276" target="_blank">龙卷丁真 发表于 2025-5-24 06:54</a>
+ 这插入曲是音监还是监督的主意，两人起码有个人对配乐的认知不像人的</blockquote>
+鹤卷定的
+
