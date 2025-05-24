@@ -3846,3 +3846,23 @@ https://storia.takeshobo.co.jp/_files/apo_hotel/07/</blockquote>
 
 后面那个⚪的才是上帝之杖
 
+
+*****
+
+####  玻璃洋葱  
+##### 335#       发表于 2025-5-24 16:42
+
+广告卫星就不太好引出队狸猫姐姐不愿逃亡心理的描写了吧。
+
+*****
+
+####  玻璃洋葱  
+##### 336#       发表于 2025-5-24 16:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67846743&amp;ptid=2196984" target="_blank">太极八爪鱼 发表于 2025-5-24 12:29</a>
+
+实现了吧，先推出去的那个金箔包裹的方形的就是吧。小狸猫啃了好久的巧克力。
+
+后面那个⚪的才是上帝之杖 ...</blockquote>
+金箔那个卫星就是随冈钉一起上去的，前面先释放了这颗卫星。
+
