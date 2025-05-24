@@ -5432,3 +5432,84 @@ OST
 
 这次都膜宇宙世纪了，不知道会不会膜光头那套就算中间再水，结尾也能拉回评价的操作
 
+
+*****
+
+####  LadySaazbaum  
+##### 15263#       发表于 2025-5-24 22:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67847049&amp;ptid=2209276" target="_blank">大十字紅朔 发表于 2025-5-24 14:58</a>
+
+这个我倒想帮主角说一句，人都想要追求更好的生活
+
+按那个什么什么什么人的理论就是生存需要，归属与爱的 ...</blockquote>
+道理是这样的但是
+
+麻球确实是严重缺乏精神层面的满足，想要摆脱日常想要出去闯闯，心情是可以理解的
+
+——然后这倒霉孩子就上街偷电驴打黑赛混帮派去了。她选择的这条路，说是吃饱了撑的已经很客气了，更传统的评价是高低得打断一条腿。
+
+追求更高层次满足的动画片主人公，正面例子得看运动番，努力友情羁绊汗水等等。
+
+萝卜番原则上是需要打仗的。而现在的症结所在也不是一个角色如何如何，是整个一批创作者&amp;整个一批观众都离战争太远了，一边写不明白一边看不懂，主角的空虚是果，观众的空虚是因。
+
+所以问题回到了和平年代吃饱了饭没事干——的正是观众呀嘿<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fujissw  
+##### 15264#       发表于 2025-5-24 22:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67845856&amp;ptid=2209276" target="_blank">王元姬无惨 发表于 2025-5-23 22:18</a>
+
+笑了 你说的这不完全符合吗
+
+“修斯和基拉基拉是属于我的”
+
+“对家人毫无感情”</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以说是一般观众误解，让人家理解什么宇宙世纪什么现代化改造还是太难了，按词义理解第一反应就是喵的黑称
+
+*****
+
+####  岸浪白野  
+##### 15265#       发表于 2025-5-24 22:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67847998&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-24 22:06</a>
+
+本篇未使用的歌曲</blockquote>
+初回限定版特典CD中，收录了基于正片时长和场景配合考量而遗憾未能采用的乐曲，经过重新精选制作完成。这些包含流行、电子乐、极简音乐等风格的作品，完美契合作品世界观
+
+
+*****
+
+####  Toby_dak  
+##### 15266#       发表于 2025-5-24 22:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67847959&amp;ptid=2209276" target="_blank">大十字紅朔 发表于 2025-5-24 22:53</a>
+
+其实没关系，等下一部高达出GQuuuuuuX就会转好评了</blockquote>
+水魔还想翻案？别的不说，霸道总裁遇上木讷女，这短剧视频出来的角色就根本是全世代高达最底层的设定。
+
+*****
+
+####  岸浪白野  
+##### 15267#       发表于 2025-5-24 22:36
+
+除了口快说的杜暂时退场让日本人怀疑是不是还能出场
+
+土屋主动提起的让人期待下周第8集也是重点
+
+*****
+
+####  无动于衷  
+##### 15268#       发表于 2025-5-24 22:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67848051&amp;ptid=2209276" target="_blank">LadySaazbaum 发表于 2025-5-24 22:29</a>
+
+道理是这样的但是
+
+麻球确实是严重缺乏精神层面的满足，想要摆脱日常想要出去闯闯，心情是可以理解的
+
+—— ...</blockquote>
+我说句不好听的，单就对战争本身的认知这群货可能都不如少女终末旅行的作者一根毛
+
