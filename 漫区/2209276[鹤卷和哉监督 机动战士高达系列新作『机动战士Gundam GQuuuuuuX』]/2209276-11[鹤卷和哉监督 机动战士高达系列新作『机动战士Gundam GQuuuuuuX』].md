@@ -5819,3 +5819,24 @@ via [https://weibo.com/5204777712/PtlAyFyuI?pagetype=profilefeed](https://weibo.
 
 老G社这批人始终褪不去同人社团的烙印，三十年过去了拍的片气质还是像XX粉丝俱乐部参展作品
 
+
+*****
+
+####  ryanghj  
+##### 15292#       发表于 2025-5-25 01:38
+
+都看到第七集了还期待啥宏大展开吗，很明显gqux并不想讨论人类的变革or未来的希望<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  王元姬无惨  
+##### 15293#       发表于 2025-5-25 01:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67848248&amp;ptid=2209276" target="_blank">无念 发表于 2025-5-24 23:26</a>
+高达说的这句话其实语气有点像第一季傻子那喊我是高达当然如果红高达真的有机魂，那内核其实更像是提子对 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">傻子那风评好转是从1v3去干三位一体开始的 之前也是高达挂嘴边的意义不明谜语人
+
+但看到三位一体干的那些狗屁事之后 
+“你们根本不是高达！”  这一刻傻子那成了大家的化身 承载了观众的愤怒
+
