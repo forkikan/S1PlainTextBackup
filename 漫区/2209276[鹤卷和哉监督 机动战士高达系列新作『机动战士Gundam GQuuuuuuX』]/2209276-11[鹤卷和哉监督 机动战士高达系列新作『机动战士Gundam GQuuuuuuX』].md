@@ -4418,3 +4418,30 @@ Z高达有注意要怎么让观众一眼看出来谁是坏人的，和普通的�
 
 那钱不还是玛秋自己拼命挣的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  孙吧星人  
+##### 15175#       发表于 2025-5-24 11:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67846023&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-23 23:31</a>
+
+其实第七集玛秋和安琪对峙那里，玛秋是占理的，但是演出效果却搞得玛秋好像是要被修正的一方一样
+
+安琪扮 ...</blockquote>
+再怎么不占理她也准确点出了麻球的心态，被说中心事当然会心虚，麻球跑路的时候丢下一句讨厌大人和三方会谈找个借口跑路没有区别。
+
+
+*****
+
+####  ryanghj  
+##### 15176#       发表于 2025-5-24 11:32
+
+ 本帖最后由 ryanghj 于 2025-5-24 11:35 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67846628&amp;ptid=2209276" target="_blank">孙吧星人 发表于 2025-5-24 11:28</a>
+
+再怎么不占理她也准确点出了麻球的心态，被说中心事当然会心虚，麻球跑路的时候丢下一句讨厌大人和三方会 ...</blockquote>
+真的说中了吗，不如说玛秋比安琪想的坚定多了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+安琪把玛秋当过家家的大小姐，没想到真的会开枪
+
