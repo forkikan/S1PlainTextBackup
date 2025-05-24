@@ -5800,3 +5800,22 @@ via [https://weibo.com/5204777712/PtlAyFyuI?pagetype=profilefeed](https://weibo.
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  赤黑的假面  
+##### 15290#       发表于 2025-5-25 01:11
+
+<blockquote>岸浪白野 发表于 2025-5-25 00:16
+关于安彦和庵野谈话后半程谈到GQuuuuuuX
+
+安彦良和："虽然被高千穗推荐我看了，但实在没搞懂。之前本想跟相 ...</blockquote>
+安彦认证不能让痞子做还行
+
+*****
+
+####  sauron.j  
+##### 15291#       发表于 2025-5-25 01:11
+
+老G社这批人始终褪不去同人社团的烙印，三十年过去了拍的片气质还是像XX粉丝俱乐部参展作品
+
