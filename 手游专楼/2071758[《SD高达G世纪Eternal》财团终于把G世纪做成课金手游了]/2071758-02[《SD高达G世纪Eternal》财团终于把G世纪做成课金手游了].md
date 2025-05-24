@@ -1019,3 +1019,13 @@ nta毕竟没有盾
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  棍机凹升龙  
+##### 1578#       发表于 2025-5-24 12:33
+
+卡12，没啥援护机师来搭<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-F9460, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
