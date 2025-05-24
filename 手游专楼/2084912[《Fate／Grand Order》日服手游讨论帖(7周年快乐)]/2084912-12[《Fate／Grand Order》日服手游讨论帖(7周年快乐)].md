@@ -801,3 +801,35 @@
 
 冠位的技能树点满之后输出好猛啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  quanlix  
+##### 16800#       发表于 2025-5-23 18:30
+
+为什么我还有85个梦火
+
+
+*****
+
+####  qixinno2  
+##### 16801#       发表于 2025-5-23 18:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">之前一直觉得用不上没买过商店的梦火 现在只剩几个了
+
+*****
+
+####  blue321  
+##### 16802#       发表于 2025-5-23 22:46
+
+ 本帖最后由 blue321 于 2025-5-23 23:22 编辑 
+
+冠位的技能树点满之后输出好猛啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ggyy0088  
+##### 16803#       发表于 2025-5-24 10:35
+
+三色combo宝具卡后置和前置伤害也差太多了，瞎打选手的噩梦
+
