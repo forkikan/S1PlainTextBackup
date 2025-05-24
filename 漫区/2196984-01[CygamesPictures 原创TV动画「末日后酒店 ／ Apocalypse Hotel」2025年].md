@@ -3950,3 +3950,26 @@ aiko，进攻性太强了吧
 
 用手划圈不就可以用角动量守恒原理来转身了<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  太极八爪鱼  
+##### 342#       发表于 2025-5-25 04:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67847228&amp;ptid=2196984" target="_blank">玻璃洋葱 发表于 2025-5-24 00:43</a>
+
+金箔那个卫星就是随冈钉一起上去的，前面先释放了这颗卫星。</blockquote>
+一舰两星啊……所以先放出去的那个不就是广告卫星么。
+
+*****
+
+####  太极八爪鱼  
+##### 343#       发表于 2025-5-25 04:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67847385&amp;ptid=2196984" target="_blank">NBXX 发表于 2025-5-24 02:11</a>
+
+「アポカリプスホテルぷすぷす」第7話 汉化
+
+第一页提到的奥特Q我之前没看过，查资料的时候特地去看 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">她能动的吧，嘴里能吐开水不是，而且火药我记得自带氧化剂，直接分解出氧气的。所以烟花是可以放的才对。最后，她可以AMBAC机动啊！
+
