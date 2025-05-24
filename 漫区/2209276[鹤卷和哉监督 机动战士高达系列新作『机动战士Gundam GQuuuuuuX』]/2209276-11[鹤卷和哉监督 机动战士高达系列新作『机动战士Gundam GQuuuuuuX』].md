@@ -5916,3 +5916,28 @@ via [https://weibo.com/5204777712/PtlAyFyuI?pagetype=profilefeed](https://weibo.
 富野比起“反战”，更像是“反军”“反武”——近现代军队天然野蛮——近现代军事武器的开发动机天然残忍——类似于这种表达方向
 作品主题也是“反思城市化扩张危害环境”——“痛定思痛和平生活被战火摧毁”——“想象无战田园牧歌乌托邦遭遇危机如何化解”这么一步步发展着
 
+
+*****
+
+####  玖羽  
+##### 15300#       发表于 2025-5-25 03:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67848723&amp;ptid=2209276" target="_blank">ティグル 发表于 2025-5-25 02:25</a>
+
+人狼和红眼镜也没搞什么价值判断啊，故事还是聚焦在角色本身的。和平保卫战倒是带点想要抽身事外却被现状裹 ...</blockquote>
+性癖不一样罢了
+
+押井守的性癖就是他年轻时梦想看到但一直没有出现的场景，秩序的破坏者 VS 官僚主义镇压机构，尤其是 首 都 封 锁 <img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">（包括类似物）
+
+*****
+
+####  玖羽  
+##### 15301#       发表于 2025-5-25 03:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67848701&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-25 01:54</a>
+
+其实富野这人也是很拧巴的，实际上逆夏的夏亚的主张大概率就是他本人的想法（押井守分析的），一边在作品里 ...</blockquote>
+还用看逆夏吗，在丹拜因里已经表达得很明白了
+
+地上奥拉力超强的原因是地球人充满斗争心，按照富野的价值观来说就是坏透了，拜斯顿威尔人弱鸡是因为缺乏斗争心，但是开始大规模打仗特别是上到地面之后也开始增长斗争心，表现上就是拜斯顿威尔机师逐渐变强，拜斯顿威尔把交战双方传送到地上，其实就是扔垃圾，最后所有人全死了
+
