@@ -5786,3 +5786,17 @@ via [https://weibo.com/5204777712/PtlAyFyuI?pagetype=profilefeed](https://weibo.
  关于安彦和庵野谈话后半程谈到GQuuuuuuX 安彦良和："虽然被高千穗推荐我看了，但实在没搞懂。之前本想跟相 ...</blockquote>
 庵野这下见到光头也不怕了“鹤卷做的”
 
+
+*****
+
+####  Gaybird  
+##### 15289#       发表于 2025-5-25 01:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67848539&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-24 11:16</a>
+关于安彦和庵野谈话后半程谈到GQuuuuuuX
+
+安彦良和："虽然被高千穗推荐我看了，但实在没搞懂。之前本想跟相 ...</blockquote>
+之前还说自己是来报恩的，转头就在偶像面前把锅甩给鹤卷，庵野你果然是共犯吧
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
