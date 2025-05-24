@@ -5726,3 +5726,15 @@ via [https://weibo.com/5204777712/PtlAyFyuI?pagetype=profilefeed](https://weibo.
 
 2025-5-24 23:38 上传
 
+
+*****
+
+####  wpcc  
+##### 15284#       发表于 2025-5-25 00:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67848091&amp;ptid=2209276" target="_blank">玖羽 发表于 2025-5-24 22:40</a>
+我还是那句话，你不描写战争可以，但是你不能连黑拳都不描写，那不就剩下精神小妹鬼火摩托了吗
+
+宇宙世纪 ...</blockquote>
+如果他给了异域感我看才是超过了作者意图
+
