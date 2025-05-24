@@ -3866,3 +3866,27 @@ https://storia.takeshobo.co.jp/_files/apo_hotel/07/</blockquote>
 后面那个⚪的才是上帝之杖 ...</blockquote>
 金箔那个卫星就是随冈钉一起上去的，前面先释放了这颗卫星。
 
+
+*****
+
+####  The_Ether_  
+##### 337#       发表于 2025-5-24 17:40
+
+ 本帖最后由 The_Ether_ 于 2025-5-24 17:41 编辑 
+
+<img src="https://img.stage1st.com/forum/202505/24/173931xaionna2zz3mx3mi.jpg" referrerpolicy="no-referrer">
+
+<strong>1000294054.jpg</strong> (135.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-24 17:39 上传
+
+这两天有条推爆了，点赞手绘跳舞的五万多，觉得op怪的十几万
+
+放个ds翻译:《Apocalypse Hotel》的OP，角色跳舞系OP/ED的巅峰之作啊这个。让人忍不住循环观看
+
+aiko，进攻性太强了吧
+
+这个旋律理论上真的能算合理的声音吗？
+
