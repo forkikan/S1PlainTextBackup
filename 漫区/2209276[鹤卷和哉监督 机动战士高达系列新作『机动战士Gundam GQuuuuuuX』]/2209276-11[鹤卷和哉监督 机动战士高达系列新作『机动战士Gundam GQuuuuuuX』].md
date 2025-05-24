@@ -5750,3 +5750,29 @@ via [https://weibo.com/5204777712/PtlAyFyuI?pagetype=profilefeed](https://weibo.
 从剧里到剧外都属 ...</blockquote>
 12集根本讲不完战争 水魔和gqux都刻意避免了全面持久战
 
+
+*****
+
+####  ティグル  
+##### 15286#       发表于 2025-5-25 00:42
+
+问题是也没有鸭嘴兽式的暗流涌动啊
+
+说实话你要把冷战+大国夹缝+多方博弈合一块不就是刻耳柏洛斯世界观吗，GQX现在的表现真的很尴尬
+
+
+*****
+
+####  岸浪白野  
+##### 15287#       发表于 2025-5-25 00:46
+
+[X 上的 はいむらきよたか：“#GQuuuuuuX [url]https://t.co/PNO8VGmmph](https://x.com/haimurakiyotaka/status/1926218816436015459)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/25/004612c6vtp8fg50ntnbt8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (579.77 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-25 00:46 上传
+
