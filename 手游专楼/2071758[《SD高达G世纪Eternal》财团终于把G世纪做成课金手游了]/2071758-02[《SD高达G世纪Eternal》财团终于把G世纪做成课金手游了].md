@@ -1127,3 +1127,16 @@ nta毕竟没有盾
 —— 来自 Xiaomi 23049RAD8C, Android 15, 鹅球 v3.5.99</blockquote>
 开发到第二级就很能打了，我靠亥伯龙和UR78当盾大师到15万了
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 1587#       发表于 2025-5-24 20:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67847028&amp;ptid=2071758" target="_blank">真贝尔奈普斯 发表于 2025-5-24 14:43</a>
+
+亥伯龙有必要开发ur了吗
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, 鹅球 v3.5.99</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">没办法，正义自由实在是太多，亥伯龙的被动刚好对应这个
+
