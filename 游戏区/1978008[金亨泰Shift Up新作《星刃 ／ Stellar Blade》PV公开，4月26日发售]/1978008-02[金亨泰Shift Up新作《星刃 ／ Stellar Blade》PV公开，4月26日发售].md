@@ -102,3 +102,11 @@
 
 —— 来自 Xiaomi 2304FPN6DC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  落花微塵  
+##### 2027#       发表于 2025-5-24 21:17
+
+完整版才有和2b的联动对吗？
+
