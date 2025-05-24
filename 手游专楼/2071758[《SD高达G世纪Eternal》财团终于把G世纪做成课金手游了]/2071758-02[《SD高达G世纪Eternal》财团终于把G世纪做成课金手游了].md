@@ -1077,3 +1077,17 @@ nta毕竟没有盾
 
 在13w战力这个区间一个都打不过
 
+
+*****
+
+####  lighttt  
+##### 1583#       发表于 2025-5-24 14:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67846841&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-5-24 13:10</a>
+夏亚想触发2次必须搭卡池GQ白高达（难入手难突且这次jjc词条不适配），活动红高达（不是防御机）
+
+79骡就 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PHY110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
