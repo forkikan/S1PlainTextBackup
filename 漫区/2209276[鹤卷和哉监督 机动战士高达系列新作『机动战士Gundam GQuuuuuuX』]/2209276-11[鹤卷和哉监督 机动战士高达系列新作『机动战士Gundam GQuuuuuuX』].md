@@ -5134,3 +5134,30 @@ u1s1，让联邦ace和黑色二连星活下来，然后第七集让精神病高�
 
 真得是性别吧，麻辣高达鸡夸裤湿，男的能come但不能cum，只有女人才能动他的机机，丢人的玩意<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  玖羽  
+##### 15237#       发表于 2025-5-24 20:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67847478&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-24 18:50</a>
+
+怎么都没看懂我说首席哥是普通人的意思</blockquote>
+没必要这么复杂，就目前的剧情来说，Ω赛可缪的启动资格相当于这部作品里的Topless
+
+说白了就是青春期综合症（青春期猪头少年里的那个），只不过效果是正面的
+
+只有青春期少年少女才有，过了青春期就会消失，实质上是青春期心理的一种影射
+
+*****
+
+####  无念  
+##### 15238#       发表于 2025-5-24 20:40
+
+ 本帖最后由 无念 于 2025-5-24 20:41 编辑 
+
+理论上说，吉翁那边应该还有个能启动欧米茄塞可缪的测试机师<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">艹，不会是哈曼吧
+总不能是鸭妹为了找哥哥投吉翁了吧
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
