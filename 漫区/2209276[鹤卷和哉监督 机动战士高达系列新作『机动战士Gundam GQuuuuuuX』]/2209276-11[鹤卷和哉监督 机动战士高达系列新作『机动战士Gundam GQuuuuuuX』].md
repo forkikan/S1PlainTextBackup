@@ -4855,3 +4855,27 @@ u1s1，让联邦ace和黑色二连星活下来，然后第七集让精神病高�
 
 —— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  千恋万花  
+##### 15212#       发表于 2025-5-24 17:14
+
+说是台本上写着第 3 集的硬币是金币
+
+<img src="https://img.stage1st.com/forum/202505/24/171321ynnbn5mbggdnnnaj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.8 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-24 17:13 上传
+
+<img src="https://img.stage1st.com/forum/202505/24/171442pzyvyrroeyonq2nn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (777 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-24 17:14 上传
+
