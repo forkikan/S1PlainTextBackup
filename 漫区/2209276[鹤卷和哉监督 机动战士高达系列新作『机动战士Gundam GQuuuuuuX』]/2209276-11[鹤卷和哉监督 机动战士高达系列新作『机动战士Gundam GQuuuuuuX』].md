@@ -5694,3 +5694,13 @@ via [https://weibo.com/5204777712/PtlAyFyuI?pagetype=profilefeed](https://weibo.
 
 从剧里到剧外都属于社会学样本了（
 
+
+*****
+
+####  Devola  
+##### 15282#       发表于 2025-5-24 23:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67848078&amp;ptid=2209276" target="_blank">无动于衷 发表于 2025-5-24 22:36</a>
+我说句不好听的，单就对战争本身的认知这群货可能都不如少女终末旅行的作者一根毛 ...</blockquote>
+用gqx比，辱少终了
+
