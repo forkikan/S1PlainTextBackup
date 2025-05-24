@@ -1235,3 +1235,12 @@ roll到13%攻和18攻就可以用+4-6攻击改掉防御，然后只强化第一�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">趁着还没修之前赶紧打了 能打破绽就好说 骚乱锤把蝎子女控到死（
 
+
+*****
+
+####  macshi  
+##### 380#       发表于 2025-5-24 23:16
+
+ 趁着周末去把初见打了，17-19层脸黑没碰上冒险者还在20层被魅魔吸了sp和mp，最后只能平a磨到蝎子女，交了一瓶mp药和sp药过关了。
+打完结算一看时间8000多排名5000开外，返回去1-5层直奔终点打完也花了600，这些综合排名前排1000往下的能做到也太离谱吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

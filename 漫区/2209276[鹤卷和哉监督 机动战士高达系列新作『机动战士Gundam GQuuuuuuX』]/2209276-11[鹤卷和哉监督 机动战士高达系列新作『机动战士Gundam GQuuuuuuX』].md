@@ -5649,3 +5649,35 @@ via [https://weibo.com/5204777712/PtlAyFyuI?pagetype=profilefeed](https://weibo.
 
 后面听到喵安说的那句没有朋友，黑泽说没有？明明都叫了修酱了
 
+
+*****
+
+####  Tungsten  
+##### 15278#       发表于 2025-5-24 23:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67847368&amp;ptid=2209276" target="_blank">wpcc 发表于 2025-5-24 18:02</a>
+
+喵安一直是这个状态 我怀疑我们看的不是同一个片子 她一直在被社会压抑 只有kirakira暴走了一下 后面不光 ...</blockquote>
+上一集除开麻球照常发挥以外真的有压抑吗，就连最后见面的部分都是留了个包袱到这周
+
+又是包饺子又是温馨小窝还有臭脸大叔的人生相谈，至少给我的感觉是她的生活在修酱和黑拳的帮助下稳中向好，虽然有裂痕但逐渐被接纳这样
+
+*****
+
+####  aptx8285144  
+##### 15279#       发表于 2025-5-24 23:25
+
+瞄安这话对修司感情突然如此升温到私奔，还是有点让人物形象很微妙
+
+*****
+
+####  无念  
+##### 15280#       发表于 2025-5-24 23:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67848202&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-5-24 23:15</a>
+第七话修司只有一句“高达说的”，而且用法也没那么生硬，前面像子供向凹口头禅 ...</blockquote>
+高达说的这句话其实语气有点像第一季傻子那喊我是高达<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+傻子那第一季其实也全靠机体带，要不是又有宿敌佣兵又有好敌手格拉汉姆，还有整整一季给他成长空间，估计现在风评也...(虽然我记得当时由于佣兵的关系和全金九龙太相似也被诟病过）
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
