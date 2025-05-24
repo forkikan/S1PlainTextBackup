@@ -4297,3 +4297,15 @@ Z高达有注意要怎么让观众一眼看出来谁是坏人的，和普通的�
 
 只能猜是绿叔叔给番茄讲故事然后讲完后给番茄一点高光了（这时间够么）<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ryanghj  
+##### 15163#       发表于 2025-5-24 09:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67846429&amp;ptid=2209276" target="_blank">ヒトニナル 发表于 2025-5-24 09:30</a>
+好大人，或者说正常的大人，不就玛秋妈吗，虽然玛秋并不认为她是“好大人” ...</blockquote>
+玛秋妈在这个节点上来看也并非正面人物
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
