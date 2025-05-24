@@ -92,3 +92,13 @@
 想想地狱潜兵2一开始也不要求PSN，</blockquote>
 背刺啥啊，都写清楚了"将您的Steam账户与PlayStation™Network绑定，只要保持账户绑定状态，即可解锁伊芙的星球空降服（第2小队）" 绑了多给个衣服而已。
 
+
+*****
+
+####  gaiden  
+##### 2026#       发表于 2025-5-24 19:32
+
+买好了等解锁了
+
+—— 来自 Xiaomi 2304FPN6DC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

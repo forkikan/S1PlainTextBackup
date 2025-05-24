@@ -5044,3 +5044,29 @@ u1s1，让联邦ace和黑色二连星活下来，然后第七集让精神病高�
 
 考试指的是EXAM系统，不是真的考试
 
+
+*****
+
+####  ryanghj  
+##### 15228#       发表于 2025-5-24 19:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67847558&amp;ptid=2209276" target="_blank">ティグル 发表于 2025-5-24 19:21</a>
+
+考试指的是EXAM系统，不是真的考试</blockquote>
+现在看不是EXAM，EXAM是把普通人变成NT
+
+*****
+
+####  ryanghj  
+##### 15229#       发表于 2025-5-24 19:28
+
+说起来不知道有没有机会在剧里看到gqux核心战机
+
+<img src="https://img.stage1st.com/forum/202505/24/192847u2c86s2os8bjbopg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (175.05 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-24 19:28 上传
+
