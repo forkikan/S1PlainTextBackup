@@ -833,3 +833,35 @@
 
 三色combo宝具卡后置和前置伤害也差太多了，瞎打选手的噩梦
 
+
+*****
+
+####  v22325  
+##### 16804#       发表于 2025-5-24 17:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">我也二十几个，以前太咸了想着每次活动给的就够了，基本每月不换的。
+
+*****
+
+####  希望之花  
+##### 16805#       发表于 2025-5-24 17:47
+
+歪了pp枪wdnmd<img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+*****
+
+####  森兰丸  
+##### 16806#       发表于 2025-5-24 17:47
+
+最咸的看来就是我了....梦火还有100多个....虽然每个月金方块的梦火我都买了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 16807#       发表于 2025-5-24 17:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67847336&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-5-24 17:47</a>
+
+最咸的看来就是我了....梦火还有100多个....虽然每个月金方块的梦火我都买了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">欧皇不需要挖矿！
+

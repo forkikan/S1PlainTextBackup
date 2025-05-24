@@ -4889,3 +4889,32 @@ u1s1，让联邦ace和黑色二连星活下来，然后第七集让精神病高�
 说是台本上写着第 3 集的硬币是金币</blockquote>
 所以面額是真的5000海特吧
 
+
+*****
+
+####  jojonathan  
+##### 15214#       发表于 2025-5-24 17:59
+
+这下邪恶番茄头更邪恶了<img src="https://static.stage1st.com/image/smiley/carton2017/088.png" referrerpolicy="no-referrer">
+身无分文的鬼火少年散发气质拐骗懵懂少女×
+小太妹肘飞少年全部存款后诱骗少年打黑拳还债v
+
+*****
+
+####  型月神话伊阿宋  
+##### 15215#       发表于 2025-5-24 18:01
+
+修斯第一次见到麻球就被爆金币了吗？
+
+*****
+
+####  wpcc  
+##### 15216#       发表于 2025-5-24 18:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67846701&amp;ptid=2209276" target="_blank">Tungsten 发表于 2025-5-24 12:08</a>
+
+叙事节奏上有大问题啊
+
+如果要刻画喵安被外部环境不断上压力以至于情绪崩溃撕掉酷妹面具秒变insecure小女生 ...</blockquote>
+喵安一直是这个状态 我怀疑我们看的不是同一个片子 她一直在被社会压抑 只有kirakira暴走了一下 后面不光是社会连塑料姐妹都给他上压力 看到精神力终于崩溃想私奔了
+
