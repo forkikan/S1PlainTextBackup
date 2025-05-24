@@ -5681,3 +5681,16 @@ via [https://weibo.com/5204777712/PtlAyFyuI?pagetype=profilefeed](https://weibo.
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Tungsten  
+##### 15281#       发表于 2025-5-24 23:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67848078&amp;ptid=2209276" target="_blank">无动于衷 发表于 2025-5-24 22:36</a>
+
+我说句不好听的，单就对战争本身的认知这群货可能都不如少女终末旅行的作者一根毛 ...</blockquote>
+反过来说也是很真实地反映出了战后作者写只在电视里见过战争的一代人对战争是什么态度
+
+从剧里到剧外都属于社会学样本了（
+
