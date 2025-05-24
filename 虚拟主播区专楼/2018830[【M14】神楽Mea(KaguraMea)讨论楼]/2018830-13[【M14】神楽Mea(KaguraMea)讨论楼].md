@@ -9532,3 +9532,15 @@ jimmyshen怎么被点草了
 
 —— 来自 Google Pixel 8 Pro, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  sino__unnko3  
+##### 18554#       发表于 2025-5-25 03:53
+
+(保卫完上海才看到群友的讨论，补充点粉丝相关的，略偏题
+
+群友有附上jimmy shen原文，应该是点歌一直被忽视，没唱，导致不更时间戳？
+
+这位的号倒是经常莫名其妙被ban，年初推也被ban了，所以什么推文都没留下
+
