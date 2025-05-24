@@ -4611,3 +4611,38 @@ side6的货币单位都是USD的parody了，军警也parody一下没毛病么（
 
 本质还是为了贴合“海”这个意向吧，第七集的zknv有很明显的坠水的音效 （夏亚那一次倒是没这回事），op里也有GQX坠水的镜头，已经在开始把塞克缪和“海”的意向联系起来了
 
+
+*****
+
+####  plok201  
+##### 15192#       发表于 2025-5-24 13:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67846826&amp;ptid=2209276" target="_blank">久井路路 发表于 2025-5-24 13:05</a>
+
+说起来麻球到底是看上水母的哪一点了这么想当水母
+
+觉得现在的生活很虚假烦闷，那如果追求自由的话一般是先 ...</blockquote>
+水母会发光啊
+
+这次泽克诺瓦的意象里有水声和水的表现，麻球去地球也是想着大海，在大海里闪亮的东西，那就选水母呗
+
+*****
+
+####  秋月孝三  
+##### 15193#       发表于 2025-5-24 13:20
+
+ 本帖最后由 秋月孝三 于 2025-5-24 13:21 编辑 
+
+出生并成长在人工重力环境下的人很难说会对能飞的鸟有什么憧憬
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  王元姬无惨  
+##### 15194#       发表于 2025-5-24 13:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67846624&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-24 11:25</a>
+那钱不还是玛秋自己拼命挣的</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有喵安替她代班 一场缺席就全赔回去了
+
