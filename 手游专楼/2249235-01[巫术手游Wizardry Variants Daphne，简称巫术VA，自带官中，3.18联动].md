@@ -1219,3 +1219,11 @@ roll到13%攻和18攻就可以用+4-6攻击改掉防御，然后只强化第一�
 
 一路上还是得多防御打破绽节省资源，我记得破绽是百分比血量伤害<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  elven119  
+##### 378#       发表于 2025-5-24 07:56
+
+笑尿了，这第一名就是拿一个卡了bug的号开挂上来诉苦的呗，真的是爱的深沉<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
