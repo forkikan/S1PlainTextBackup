@@ -48,3 +48,16 @@ niji在玩的这个圣地争夺，杏玩过没，感觉反而比较适合游戏�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  艾特娜  
+##### 1162#       发表于 2025-5-24 15:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67846805&amp;ptid=2171972" target="_blank">usodakedo 发表于 2025-5-24 12:55</a>
+
+虽然琉璃和lize平时说话的声音有点像，但是唱起歌来就区别很大了
+
+—— 来自 S1Fun ...</blockquote>
+感觉昨晚说话时声音差别比平时大了不少，不知道是不是收音设备的原因
+

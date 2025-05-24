@@ -1227,3 +1227,11 @@ roll到13%攻和18攻就可以用+4-6攻击改掉防御，然后只强化第一�
 
 笑尿了，这第一名就是拿一个卡了bug的号开挂上来诉苦的呗，真的是爱的深沉<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一之江瑞江  
+##### 379#       发表于 2025-5-24 15:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">趁着还没修之前赶紧打了 能打破绽就好说 骚乱锤把蝎子女控到死（
+
