@@ -3890,3 +3890,21 @@ aiko，进攻性太强了吧
 
 这个旋律理论上真的能算合理的声音吗？
 
+
+*****
+
+####  NBXX  
+##### 338#       发表于 2025-5-24 18:11
+
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAITz2gxmsD3Rye85tds245V9f7ofbjTAALCEgAC9nCJVbTTTdduQtAjNgQ.jpg" referrerpolicy="no-referrer">
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAIT1WgxmsniUMLgf6-WgijqrWqg8BHfAALIEgAC9nCJVY2oAR3BI4TaNgQ.png" referrerpolicy="no-referrer">
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAIT0WgxmsA5A3JLKxbb-YFKkK2PgXeNAALEEgAC9nCJVSZHxxCt02BFNgQ.jpg" referrerpolicy="no-referrer">
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAIT1GgxmshLFbo4A8RQGEZKj59mwJmPAALHEgAC9nCJVdYsIFp8V7OJNgQ.jpg" referrerpolicy="no-referrer">
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAIT02gxmsHX8PD5t9alKV3zEvYafEr-AALGEgAC9nCJVYaiUdLq7ZFZNgQ.jpg" referrerpolicy="no-referrer">
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAIT0mgxmsDotEZXCl6rCTjG5kQAAV83QQACxRIAAvZwiVXH7v3PPTZRuzYE.jpg" referrerpolicy="no-referrer">
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAIT0GgxmsC8cdnHl_J8_2UN8q4feSIEAALDEgAC9nCJVYwroPvRHiqMNgQ.jpg" referrerpolicy="no-referrer">
+
+「アポカリプスホテルぷすぷす」第7話 汉化
+
+第一页提到的奥特Q我之前没看过，查资料的时候特地去看了那一集和相关怪物解析。八千代现在的境遇，跟M1号还真的有些神似
+
