@@ -1037,3 +1037,17 @@ nta毕竟没有盾
 
 看见个S高达搭UR逆夏骡子伤害爆表
 
+
+*****
+
+####  lighttt  
+##### 1580#       发表于 2025-5-24 12:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67846749&amp;ptid=2071758" target="_blank">棍机凹升龙 发表于 2025-5-24 12:33</a>
+卡12，没啥援护机师来搭
+
+—— 来自 samsung SM-F9460, Android 15, 鹅球 v3.5.99-alpha</blockquote>
+送的夏亚好像2次援防，ur阿姆罗都只有一次<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PHY110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

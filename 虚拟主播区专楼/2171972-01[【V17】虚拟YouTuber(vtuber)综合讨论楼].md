@@ -38,3 +38,13 @@ niji在玩的这个圣地争夺，杏玩过没，感觉反而比较适合游戏�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">独轮车管人（物理）
 
+
+*****
+
+####  usodakedo  
+##### 1161#       发表于 2025-5-24 12:55
+
+虽然琉璃和lize平时说话的声音有点像，但是唱起歌来就区别很大了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
