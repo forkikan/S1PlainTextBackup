@@ -5096,3 +5096,26 @@ u1s1，让联邦ace和黑色二连星活下来，然后第七集让精神病高�
 说起来不知道有没有机会在剧里看到gqux核心战机</blockquote>
 根据废品商黄发男的未采用表情差分来看，不排除GQX的核心战机像G奥秘的变形机能一样完结了都没用上的可能性
 
+
+*****
+
+####  bandage_n2_ki  
+##### 15233#       发表于 2025-5-24 20:12
+
+造型好深奥的核心战机…所以首席启动不了omega塞克缪<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202505/24/201102l3f1furrr116j6m1.jpg" referrerpolicy="no-referrer">
+
+<strong>子宮-300x236.jpg</strong> (11.19 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-24 20:11 上传
+
+*****
+
+####  我聞如是  
+##### 15234#       发表于 2025-5-24 20:15
+
+好歹找老鼠的啊 那個比較像
+
