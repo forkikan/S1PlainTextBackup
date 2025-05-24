@@ -3942,3 +3942,11 @@ aiko，进攻性太强了吧
 第一页提到的奥特Q我之前没看过，查资料的时候特地去看 ...</blockquote>
 机器人应该不用担心晒黑这种问题吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PLANETDANCE  
+##### 341#       发表于 2025-5-25 03:02
+
+用手划圈不就可以用角动量守恒原理来转身了<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
