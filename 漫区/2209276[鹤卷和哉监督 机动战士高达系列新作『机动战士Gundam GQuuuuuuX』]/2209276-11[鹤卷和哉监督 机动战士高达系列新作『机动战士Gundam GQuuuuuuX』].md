@@ -5211,3 +5211,224 @@ u1s1，让联邦ace和黑色二连星活下来，然后第七集让精神病高�
  ...</blockquote>
 早就说了只有一季
 
+
+*****
+
+####  岸浪白野  
+##### 15244#       发表于 2025-5-24 21:30
+
+金元寿子说的我的台本只有2集笑了
+
+*****
+
+####  kcalb  
+##### 15245#       发表于 2025-5-24 21:35
+
+本篇只有一季，但没说次回作和前作不能世界观共通，例如Double Zeta，电光鸡王<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  plok201  
+##### 15246#       发表于 2025-5-24 21:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67847841&amp;ptid=2209276" target="_blank">Sacross 发表于 2025-5-24 21:04</a>
+
+所以这片子现在定性到底是一季还是分上下啊，这赶得要死塑造完全排不过来完了剧场版还占了4集，行不行啊
+
+ ...</blockquote>
+这个采访有，企划从头到尾就一季，而且还是很久以前的企划
+
+khara也不太可能分那个时间给高达，鹤卷看着也不会给你弄那么长的片
+
+这就是为啥这周后那么多人在滑坡
+
+*****
+
+####  创始’’’天翔  
+##### 15247#       发表于 2025-5-24 21:51
+
+khara没产能搞次回作，又或者说让阿代给你整个小林宽导演冈妈编剧的次回作？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wpcc  
+##### 15248#       发表于 2025-5-24 21:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67847842&amp;ptid=2209276" target="_blank">ティグル 发表于 2025-5-24 21:05</a>
+
+而且番茄本人也比较微妙吧，也十六七的人了
+
+说起来还有个很微妙的点，如果真是描写的gen z的话却完全没有遭 ...</blockquote>
+讲道理kirakira比网瘾厉害多了 sns只有同学那里有体现
+
+*****
+
+####  大十字紅朔  
+##### 15249#       发表于 2025-5-24 21:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67847947&amp;ptid=2209276" target="_blank">plok201 发表于 2025-5-24 21:49</a>
+
+这个采访有，企划从头到尾就一季，而且还是很久以前的企划
+
+khara也不太可能分那个时间给高达，鹤卷看着 ...</blockquote>
+其实没关系，等下一部高达出GQuuuuuuX就会转好评了
+
+每部高达出来都要先被骂几年的，等下部出来大家就会珍惜上一部的好<img src="https://static.stage1st.com/image/smiley/carton2017/432.png" referrerpolicy="no-referrer">
+
+45年来这个定律从来没有失效过<img src="https://static.stage1st.com/image/smiley/carton2017/028.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猪突猛进R  
+##### 15250#       发表于 2025-5-24 21:54
+
+别下一作了，先预测结局吧。
+
+之前说能到地球看海就是胜利，现在我是没想法了，各位坛友开动你们的脑洞预测下结局呗。
+
+*****
+
+####  柴突猛进  
+##### 15251#       发表于 2025-5-24 21:55
+
+水魔风评好转了嘛？
+
+*****
+
+####  岸浪白野  
+##### 15252#       发表于 2025-5-24 21:56
+
+ 本帖最后由 岸浪白野 于 2025-5-24 21:57 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67847901&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-24 21:30</a>
+
+金元寿子说的我的台本只有2集笑了</blockquote>
+x恢复了，日本人也开始讨论金元寿子口快说的那句杜就暂时退场了
+
+但联系前面说的，也只能是其它可能性了
+
+*****
+
+####  木板春香  
+##### 15253#       发表于 2025-5-24 21:57
+
+ 结局不会说清楚机体原理的  这个可以肯定编剧没办法给个合理的解释
+
+*****
+
+####  岸浪白野  
+##### 15254#       发表于 2025-5-24 22:03
+
+<img src="https://img.stage1st.com/forum/202505/24/220330i7jjjvhvzfu777tv.png" referrerpolicy="no-referrer">
+
+<strong>V8`TTHLMGQ%2TO8`2M_CI(4.png</strong> (31.9 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-24 22:03 上传
+
+*****
+
+####  千恋万花  
+##### 15255#       发表于 2025-5-24 22:05
+
+OST 8 月 27 日发售
+
+*****
+
+####  岸浪白野  
+##### 15256#       发表于 2025-5-24 22:05
+
+OST
+
+<img src="https://img.stage1st.com/forum/202505/24/220505q7xx7uzcl44emuiu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (687.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-24 22:05 上传
+
+*****
+
+####  岸浪白野  
+##### 15257#       发表于 2025-5-24 22:06
+
+本篇未使用的歌曲
+
+<img src="https://img.stage1st.com/forum/202505/24/220629ukfq16249b16t219.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.14 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-24 22:06 上传
+
+*****
+
+####  岸浪白野  
+##### 15258#       发表于 2025-5-24 22:09
+
+宣传红高达
+
+<img src="https://img.stage1st.com/forum/202505/24/220830sm6bw83urz6zou2b.png" referrerpolicy="no-referrer">
+
+<strong>4%4ULTEVJ~JGE({SZE$H8[Q.png</strong> (988.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-24 22:08 上传
+
+<img src="https://img.stage1st.com/forum/202505/24/220837xodlk6mrnwpo3os3.png" referrerpolicy="no-referrer">
+
+<strong>O@W0CG7G2FW{IAD{PV)RO2V.png</strong> (1.43 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-24 22:08 上传
+
+<img src="https://img.stage1st.com/forum/202505/24/220851beh9z53o9xqnl8hh.png" referrerpolicy="no-referrer">
+
+<strong>6O[]G)FJB[5HV$@OAR33H6L.png</strong> (1.39 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-24 22:08 上传
+
+*****
+
+####  古怪山庄士大夫  
+##### 15259#       发表于 2025-5-24 22:11
+
+怎么还有带货
+
+*****
+
+####  Gysumitka  
+##### 15260#       发表于 2025-5-24 22:13
+
+月底发售，下集也狠狠带货
+
+*****
+
+####  岸浪白野  
+##### 15261#       发表于 2025-5-24 22:13
+
+ 本帖最后由 岸浪白野 于 2025-5-24 22:14 编辑 
+
+下次是6月14号，6月10号是第10集
+
+<img src="https://img.stage1st.com/forum/202505/24/221327pg6addo6ccdzshz1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (99.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-24 22:13 上传
+
+*****
+
+####  赤黑的假面  
+##### 15262#       发表于 2025-5-24 22:24
+
+这次都膜宇宙世纪了，不知道会不会膜光头那套就算中间再水，结尾也能拉回评价的操作
+
