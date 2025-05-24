@@ -4285,3 +4285,15 @@ Z高达有注意要怎么让观众一眼看出来谁是坏人的，和普通的�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好大人，或者说正常的大人，不就玛秋妈吗，虽然玛秋并不认为她是“好大人”
 
+
+*****
+
+####  plok201  
+##### 15162#       发表于 2025-5-24 09:37
+
+这个UCif给我的感觉又是鹤卷报恩了，庵野想玩一把UCif然后跑路，鹤卷就顺着他意上船了
+
+说起卡缪，富野都知道二集刺激的搞完后，第三集要想办法把卡缪的观感提上来，给卡缪正当性，现在GQX最需要救番茄观感的时候，居然给你播0079
+
+只能猜是绿叔叔给番茄讲故事然后讲完后给番茄一点高光了（这时间够么）<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
