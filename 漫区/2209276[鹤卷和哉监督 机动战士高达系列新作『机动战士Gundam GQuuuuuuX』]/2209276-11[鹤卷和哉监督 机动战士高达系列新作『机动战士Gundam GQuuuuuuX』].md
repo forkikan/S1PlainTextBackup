@@ -7176,3 +7176,67 @@ nga说金元说漏嘴了，杜有可能返场？真的假的</blockquote>
 事后来看，其实高达能在日本动画界一直占据独特地位是因为之前的几代人真的相信高达是有什么深奥的思想性 ...</blockquote>
 你这一说，高达发展史就像是独角兽的剧情<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大十字紅朔  
+##### 15403#       发表于 2025-5-25 22:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67849964&amp;ptid=2209276" target="_blank">ティグル 发表于 2025-5-25 19:23</a>
+
+我谔谔，对美国人而言参战后对方闻风而降的那是WW1，WW2是完全不同的
+
+这里说个跟GQX有共通点的，塞林格在西 ...</blockquote>
+说的是“战争打了很久最后用魔法搞定”这个事
+
+在西线吃苦不就是因为没有魔法吗
+
+*****
+
+####  创始’’’天翔  
+##### 15404#       发表于 2025-5-25 22:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67850541&amp;ptid=2209276" target="_blank">赤黑的假面 发表于 2025-5-25 22:03</a>
+
+确实，这个ip的昭和包袱是真的重，像超级战队没有那种大的昭和包袱，做节目的时候就敢放开手多了 ...</blockquote>
+作者性太强的系列是这样的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  大十字紅朔  
+##### 15405#       发表于 2025-5-25 22:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67850626&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-5-25 22:23</a>
+
+我觉得杜实际是if普露系列，因为罗莎美的精神力mkII是没有浮游反射板这个东西的，这是到了普露兹才有，而且 ...</blockquote>
+这高达不是精神力高达吗
+
+旧版精神力高达是我唯一喜欢的UC机体，挺喜欢那种厚重巨大的感觉，mkII就没那种感觉（脸不对劲）
+
+新版这个……呃呃
+
+*****
+
+####  6030sylar  
+##### 15406#       发表于 2025-5-25 22:37
+
+<img src="https://img.stage1st.com/forum/202505/25/223613azllnrhlbkhq66hk.png" referrerpolicy="no-referrer">
+
+<strong>79c2db5262b0ce119ebfa4af3b024ec3.png</strong> (46.43 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-25 22:36 上传
+
+应该是烫知识，紫婆这造型是sweet dreams mv的，就是快银那首
+
+*****
+
+####  jojonathan  
+##### 15407#       发表于 2025-5-25 22:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67850603&amp;ptid=2209276" target="_blank">patema 发表于 2025-5-25 22:17</a>
+nga说金元说漏嘴了，杜有可能返场？真的假的</blockquote>
+是真的 但也可能只是嘴瓢了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过从剧情的角度讲不返场有点浪费时长了吧
+
