@@ -6304,3 +6304,21 @@ UC有吉姆王啊（迫真）
 
 除非天降一个天然卷的实验机体试驾员，开着新锐实验机体把绿叔叔打死了
 
+
+*****
+
+####  Sliurus  
+##### 15332#       发表于 2025-5-25 14:04
+
+[https://x.com/ervin0083/status/1 ... 1CbxXPkTOlk4NTqE-Ag](https://x.com/ervin0083/status/1926256234744652198?s=46&amp;t=XH91CbxXPkTOlk4NTqE-Ag)
+
+<img src="https://img.stage1st.com/forum/202505/25/135642scg8t44ci3t4t7g4.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_7950.JPG</strong> (75.34 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-25 13:56 上传
+
+已经不能再包饺子了
+
