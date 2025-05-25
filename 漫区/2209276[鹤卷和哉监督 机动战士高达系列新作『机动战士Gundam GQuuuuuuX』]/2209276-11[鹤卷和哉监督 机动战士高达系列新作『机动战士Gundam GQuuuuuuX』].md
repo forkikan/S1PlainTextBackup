@@ -6825,3 +6825,44 @@ ucif只是推动两个少女命运的背景推力
 
 就像……当初国家队第一组镜头不是机器人的镜头，而是主角在那儿自言自语，我就知道这片子的重点肯定不是机器人了……<img src="https://static.stage1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大十字紅朔  
+##### 15373#       发表于 2025-5-25 20:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67850131&amp;ptid=2209276" target="_blank">岸波白野 发表于 2025-5-25 20:36</a>
+
+阿哥现在看最大的罪过在戏外吧，主要就是找LV5日野来正太富皇篇激进创新拉了坨大的，再加上铁血长冈（虽然 ...</blockquote>
+福皇真的挺好的，那个才是上面某一楼说的，战争带来的影响几代人都不会消除
+
+日本观众不怎么理解，所以商业失败挺正常，因为按那片子日本观众的立场是火星人……<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大十字紅朔  
+##### 15374#       发表于 2025-5-25 20:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67850133&amp;ptid=2209276" target="_blank">AkaiSuisei 发表于 2025-5-25 20:38</a>
+
+这片的问题难道不是铺垫了一大堆要搞事的人，大家都想看主角大吼一声mother fxxker你们又想挑起战争吗老娘 ...</blockquote>
+捷多是富野高达里唯一一个底层出生的，他和丽娜是留守儿童，双亲外出务工的农民工，给两兄妹打钱付水电气费都着急，和其他主角都……觉悟不一样
+
+*****
+
+####  bgmilk  
+##### 15375#       发表于 2025-5-25 20:53
+
+        阿哥那个子供皮相直接把原来的观众劝退了，那能怪谁？实际又不是在拍子供片，就是个搞笑企划。
+
+
+*****
+
+####  Sliurus  
+##### 15376#       发表于 2025-5-25 20:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67850045&amp;ptid=2209276" target="_blank">aptx8285144 发表于 2025-5-25 19:54</a>
+
+萝卜片确实不一定需要打仗或者说不一定要你死我活，银河美少年就是对决抢巫女，问题还是鹤卷和秃子要引进uc ...</blockquote>
+引进的除了夏亚都是些戏份不多的反派，正经的主角团除了没露脸的鸭妹可是一个没有（前夫哥中立路人），鹤卷其实还是懂分寸的
+
