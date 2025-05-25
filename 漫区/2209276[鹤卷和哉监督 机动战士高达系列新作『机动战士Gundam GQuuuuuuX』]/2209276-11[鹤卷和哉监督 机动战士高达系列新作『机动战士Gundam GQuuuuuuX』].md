@@ -6013,3 +6013,25 @@ via [https://weibo.com/5204777712/PtlAyFyuI?pagetype=profilefeed](https://weibo.
 突然有的想法，如果79绿叔叔活到了一年战争后，跟着夏亚去了奥古，对z剧情会有什么影响 ...</blockquote>
 79绿看不上鸭子，第一眼就看出他不是个东西
 
+
+*****
+
+####  ティグル  
+##### 15308#       发表于 2025-5-25 10:39
+
+没啥影响，AEUG翻盘也是靠的手电筒
+
+然后打完提坦斯必内斗，格利普斯战争就是走个流程而已
+
+*****
+
+####  阿刚  
+##### 15309#       发表于 2025-5-25 10:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67846826&amp;ptid=2209276" target="_blank">久井路路 发表于 2025-5-24 13:05</a>
+
+说起来麻球到底是看上水母的哪一点了这么想当水母
+
+觉得现在的生活很虚假烦闷，那如果追求自由的话一般是先 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">前段时间不是网上流行的，水母这玩意没有脑也没有心，不会烦恼也不会痛苦每天吃吃吃飘着就行了
+
