@@ -6079,3 +6079,33 @@ GQ比以往的高达作品更强调个体的“人”，对这部作品有期待
 
 刚补完富野的高达作品后，我看0080的评价挺低的，因为这给富野拍就是个两集的故事。后来才明白这个系列能延续至今就是靠风格迥异的作品吸引不同的观众，就逐渐释怀了，G和W这种风格化明显的我也能给予正面评价
 
+
+*****
+
+####  秋月孝三  
+##### 15314#       发表于 2025-5-25 11:35
+
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">UC本就是没有吉姆王来彻底解决地宇矛盾的世界
+
+
+*****
+
+####  灵魂收割机  
+##### 15315#       发表于 2025-5-25 11:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67849168&amp;ptid=2209276" target="_blank">秋月孝三 发表于 2025-5-25 11:35</a>
+
+UC本就是没有吉姆王来彻底解决地宇矛盾的世界</blockquote>
+UC有吉姆王啊（迫真）
+
+*****
+
+####  zhzij111  
+##### 15316#       发表于 2025-5-25 11:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67848074&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-5-24 22:35</a>
+水魔还想翻案？别的不说，霸道总裁遇上木讷女，这短剧视频出来的角色就根本是全世代高达最底层的设定。 ...</blockquote>
+比烂这块比gquux好，好歹水魔第一季总体评价还是偏正面的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

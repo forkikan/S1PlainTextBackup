@@ -1234,3 +1234,16 @@ theO少个盾，不能飞，加防要超强势；这次靠着劲敌词条20%，�
 
 —— 来自 samsung SM-F9460, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  rockroxas  
+##### 1597#       发表于 2025-5-25 11:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67849150&amp;ptid=2071758" target="_blank">棍机凹升龙 发表于 2025-5-25 11:24</a>
+
+这次是只有pvp银币是吗，还是我哪里漏看了金币的获得
+
+—— 来自 samsung SM-F9460, Android 15, 鹅球 v3.5 ...</blockquote>
+赛季结束之后按阶级跟分数给金币
+

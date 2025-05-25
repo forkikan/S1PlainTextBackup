@@ -78,3 +78,13 @@ purirun的弱智感降低了
 
 广末悠奈是第二次独立演出？有活啊
 
+
+*****
+
+####  codezwei  
+##### 882#       发表于 2025-5-25 11:43
+
+这集好强啊，噗哩伦作为吉祥物已经够尽职了，何必自责捏<img src="https://static.stage1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+反派boss也太坏了，这么搞 员工们毫无生活隐私可言啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
