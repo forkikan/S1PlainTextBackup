@@ -13110,7 +13110,7 @@
     "lastedit": 1748172840,
     "category": "手游战斗",
     "active": true,
-    "update": true
+    "update": false
   },
   "1789861": {
     "totalreply": 147,
@@ -13163,6 +13163,15 @@
     "newtitle": "[新人开始补UC高达正传，刚补完高达the origin，一些感想]",
     "lastedit": 1748195410,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2236671": {
+    "totalreply": 167,
+    "title": "[(汉化已出，NSFW？)老doom风二次元美少女打枪游戏the Citadel续作已上线steam]",
+    "newtitle": "[(汉化已出，NSFW？)老doom风二次元美少女打枪游戏the Citadel续作已上线steam]",
+    "lastedit": 1748208499,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
