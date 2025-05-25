@@ -7643,3 +7643,40 @@ SD三国我小时候没少买<img src="https://static.stage1st.com/image/smiley/
 
 不端水至少有点好，假如一个高达只是木柜子乐队的乐器时你不会对他产生GQX这种“好像要讲点你来兴趣的东西”这样的预期，且UC和平成高达还有新企划消费端终究能稳住，而不是代孙现在整天想着拿出水魔GQX这样的东西，老登就高兴去买角色谷，小登就去买胶这种不切实际的事。 
 
+
+*****
+
+####  王元姬无惨  
+##### 15445#       发表于 2025-5-26 01:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67850987&amp;ptid=2209276" target="_blank">创始’’’天翔 发表于 2025-5-26 01:12</a>
+目前只是丢个设定就开始吹了吗，gqx没放送前设定不是看的挺带感的？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至少人设好看啊 age图一出来全都萎了 最直观的“不好看”就是这么劝退
+
+*****
+
+####  otaku21126  
+##### 15446#       发表于 2025-5-26 01:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67850987&amp;ptid=2209276" target="_blank">创始’’’天翔 发表于 2025-5-26 01:12</a>
+目前只是丢个设定就开始吹了吗，gqx没放送前设定不是看的挺带感的？</blockquote>
+这楼里前几十页你翻翻，播出前从头到尾大家的态度都是先质疑再质疑
+后来先行放送剧场版播了0079重置部分，风评开始回暖了一点，但是仍然有不少人抱怨前半和后半接不上
+
+TV播出后
+TV第4集魔女下线的快节奏展开给大家拉高了点期待，
+TV第5集故事主线进展缓慢，大家开始抱怨宇宙厕妹
+TV第6集Z系老角色刷脸熟，众人期待下集大爆
+TV第7集                                  ⬅️我们现在在这里
+
+
+*****
+
+####  赤黑的假面  
+##### 15447#       发表于 2025-5-26 01:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67850991&amp;ptid=2209276" target="_blank">岸波白野 发表于 2025-5-26 01:13</a>
+
+表述可能不太精准，只是针对前楼回复阿哥子供向这一点引出商业化之癌这个概念，并不是说子供向就是商业化 ...</blockquote>
+那纯是高达IP话事人菜吧，假面骑士和超级战队还不是要平衡遗老和新人的问题，他们做的不比高达既要又要的嘴脸好多了（参考海贼战队和时不时就有的老作品回归作），甚至白仓还说过假面骑士的事情不需要搞的那么清楚，不过我觉得假面骑士和超级战队唯一不需要担心的问题就是遗老占据话语权高地搞美式霸陵的行为艺术
+
