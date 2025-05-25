@@ -7315,3 +7315,72 @@ gqx的魔女说白了不就是FS那套丢人设让观众自己发动fs脑去补�
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  ryanghj  
+##### 15415#       发表于 2025-5-25 23:36
+
+AGE最大问题不是搞了个神必的子供向画风，不知道在想什么<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+而且剧情能看出有野心，但是说实话乏善可陈。类似的剧本见得多了
+
+*****
+
+####  大十字紅朔  
+##### 15416#       发表于 2025-5-25 23:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67850749&amp;ptid=2209276" target="_blank">创始’’’天翔 发表于 2025-5-25 23:09</a>
+
+gqx的魔女说白了不就是FS那套丢人设让观众自己发动fs脑去补完</blockquote>
+FS是什么……Fujiwara Sinobu？<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大十字紅朔  
+##### 15417#       发表于 2025-5-25 23:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67850692&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-5-25 22:46</a>
+
+那不是明摆着吗？水魔那两位，除了河豚整天发癫贴贴之外还有什么能立得起来的人设？GQuuuuuuX到现在，就单 ...</blockquote>
+你自己觉得没问题就行，这个话题我不多说了
+
+*****
+
+####  岸浪白野  
+##### 15418#       发表于 2025-5-25 23:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67850603&amp;ptid=2209276" target="_blank">patema 发表于 2025-5-25 22:17</a>
+
+nga说金元说漏嘴了，杜有可能返场？真的假的</blockquote>
+昨天在楼里就有讨论过...........也不用看隔壁才知道吧
+
+*****
+
+####  jojonathan  
+##### 15419#       发表于 2025-5-25 23:39
+
+魔女这种叫观众脑补<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">那现在的观众阅读理解水平是不是有点低了
+
+*****
+
+####  洛克萨斯  
+##### 15420#       发表于 2025-5-25 23:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67850822&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-25 23:36</a>
+
+AGE最大问题不是搞了个神必的子供向画风，不知道在想什么
+
+而且剧情能看出有野心，但是说实话乏善可陈。类 ...</blockquote>
+那个画风就够劝退了，而且绿茶篇前期剧情极度儿戏，后期才开始有看头，一直延续到奶茶篇观感都不错，然后红茶篇把人看傻了，特别是战场劝架不杀的演出看得人血压高
+
+*****
+
+####  xunit  
+##### 15421#       发表于 2025-5-25 23:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67850824&amp;ptid=2209276" target="_blank">大十字紅朔 发表于 2025-5-25 23:37</a>
+
+FS是什么……Fujiwara Sinobu？</blockquote>
+游戏界当红炸子鸡 From Software
+
