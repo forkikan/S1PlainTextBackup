@@ -7081,3 +7081,40 @@ ucif只是推动两个少女命运的背景推力
 
 还有种相反的叙事方向是，马球可能在参与了一阵子绿叔叔的布局后意识到这是某种强加于自身的责任（符合现在年轻受众口味的对宏大叙事的批判，以及战后日本人对二战惯有的逃避责任意识），因而作出乖张的行为破局，就算不说过度解读才可能让人意识到战后世代的无责任感，但因为马球的出身和上GQX打黑拳爆米这些都是得利者的表现，感觉不被喷也很难。
 
+
+*****
+
+####  大十字紅朔  
+##### 15394#       发表于 2025-5-25 22:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67848074&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-5-24 22:35</a>
+
+水魔还想翻案？别的不说，霸道总裁遇上木讷女，这短剧视频出来的角色就根本是全世代高达最底层的设定。 ...</blockquote>
+我怕吵架所以不知道这样说合不合适，但是你这句话，和你说的这句话，是不是…<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202505/25/220715q9zs53zuhhch6uh7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (64.87 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-25 22:07 上传
+
+我犹豫了半天要不要吐槽
+<img src="https://static.stage1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秋月孝三  
+##### 15395#       发表于 2025-5-25 22:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿哥把要拍一年半到两年的内容压缩到一年，导致整体观感还不如PSP版。杰哈特开着火星高达在奶茶手上没活过一分钟真的是让人忍俊不禁
+
+
+*****
+
+####  patema  
+##### 15396#       发表于 2025-5-25 22:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">nga说金元说漏嘴了，杜有可能返场？真的假的
+
