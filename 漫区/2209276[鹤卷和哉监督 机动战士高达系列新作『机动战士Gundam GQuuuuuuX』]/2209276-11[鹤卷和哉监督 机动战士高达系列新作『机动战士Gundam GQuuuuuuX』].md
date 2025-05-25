@@ -6129,3 +6129,14 @@ UC有吉姆王啊（迫真）
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">铁血第一期注水了多了点，但整体剧情结构是没啥问题的
 
+
+*****
+
+####  psycho_Gadfly  
+##### 15319#       发表于 2025-5-25 12:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67849196&amp;ptid=2209276" target="_blank">zhzij111 发表于 2025-5-25 11:44</a>
+
+比烂这块目前比gquux好，好歹水魔第一季总体评价还是偏正面的，夸克斯要是能在大结局把风评掰回来那确实 ...</blockquote>
+水魔第一季不是靠第二季贷款风评才还行？没有第二季的话真不比GQX好，至少后者还有野史提供乐子<img src="https://static.stage1st.com/image/smiley/face2017/265.gif" referrerpolicy="no-referrer">
+
