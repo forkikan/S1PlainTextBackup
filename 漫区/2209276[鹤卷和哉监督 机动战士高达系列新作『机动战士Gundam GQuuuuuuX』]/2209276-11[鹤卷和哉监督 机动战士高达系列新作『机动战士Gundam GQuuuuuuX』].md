@@ -6999,3 +6999,27 @@ ucif只是推动两个少女命运的背景推力
 
 当然更多还有日本的制造业和科技投入这些大环境因素
 
+
+*****
+
+####  psycho_Gadfly  
+##### 15387#       发表于 2025-5-25 21:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67850342&amp;ptid=2209276" target="_blank">大十字紅朔 发表于 2025-5-25 21:38</a>
+
+事后来看，其实高达能在日本动画界一直占据独特地位是因为之前的几代人真的相信高达是有什么深奥的思想性 ...</blockquote>
+倒A不是亏麻了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+现在这IP早看开了 还是赚钱比较实在<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pokemon最爱  
+##### 15388#       发表于 2025-5-25 21:55
+
+阿哥属于是福皇篇前期的弱智子贡向外皮和红茶篇后期孙子的迷惑行为拖低了评价，故事本身来说即便算上前面说的两个毒点比铁血第二季和水魔第二季要强不知道几个BFT（暴论）<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+百年战争这个尺度完整了展现了福皇的一生，除了红茶火星死老头以及路人女主们以外其他角色的塑造都是水准在线的，超长的时间尺度也很清晰地展现的不同的时代背景与经历对人的性格成长影响，也由此带来了祖孙三代人不同的理念以及相应的理念冲突（虽然红茶的塑造是真的拉）
+
+铁血第二季和水魔第二季那属于是“您跟第一季有什么关联吗？”，割裂的根本不像是一部作品了，自然也就烂到姥姥家了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
