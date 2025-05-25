@@ -3973,3 +3973,13 @@ aiko，进攻性太强了吧
 第一页提到的奥特Q我之前没看过，查资料的时候特地去看 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">她能动的吧，嘴里能吐开水不是，而且火药我记得自带氧化剂，直接分解出氧气的。所以烟花是可以放的才对。最后，她可以AMBAC机动啊！
 
+
+*****
+
+####  KDConan  
+##### 344#       发表于 2025-5-25 08:29
+
+已经飘5年了吗<img src="https://static.stage1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
