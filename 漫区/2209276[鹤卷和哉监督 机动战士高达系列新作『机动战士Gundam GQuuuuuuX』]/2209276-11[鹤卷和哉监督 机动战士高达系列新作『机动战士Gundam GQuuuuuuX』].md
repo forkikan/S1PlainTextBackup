@@ -6666,3 +6666,46 @@ UC有吉姆王啊（迫真）
 
 那种英雄迟暮不得不向现实妥协的感觉就很真实，也让福皇的形象更加饱满（不然就成那种爽文里面的雄主了）
 
+
+*****
+
+####  xunit  
+##### 15361#       发表于 2025-5-25 19:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67849894&amp;ptid=2209276" target="_blank">大十字紅朔 发表于 2025-5-25 18:53</a>
+
+你别说，高达系列写战争写得最好的就是ACE了
+
+虽然很多人很气最后福皇妥协了没有杀光火星人，但是年纪大了 ...</blockquote>
+不是，人叫机动战士高达AGE
+
+*****
+
+####  大十字紅朔  
+##### 15362#       发表于 2025-5-25 19:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67849553&amp;ptid=2209276" target="_blank">无动于衷 发表于 2025-5-25 15:02</a>
+
+白皮本质原因在于“作者说啥我信啥”，没有一点哪怕是属于自己的主见
+
+还有就是，不要瞧不起“做题家思维 ...</blockquote>
+本来动漫区扯现实里面的战争不太好
+
+老美和其他人对WW2的感受是不一样的，对老美来说WW2就是靠魔法砰！的一声就结束了
+
+（然后越南和阿富汗是“算了算了我不打了好吧”，伊拉克就不说了）
+
+所以老美有“24小时结束战争”的感受是从历史惯性宗接得来的经验，不是说老美都是傻X，中国人都是大聪明……
+
+而且魔法的话俄罗斯也是有的，俄罗斯要用也可以“24小时结束战争”，用魔法结束战争本身不是什么不符合现实的事情。
+
+*****
+
+####  大十字紅朔  
+##### 15363#       发表于 2025-5-25 19:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67849913&amp;ptid=2209276" target="_blank">xunit 发表于 2025-5-25 19:02</a>
+
+不是，人叫机动战士高达AGE</blockquote>
+只差一个字吧，还好还好<img src="https://static.stage1st.com/image/smiley/carton2017/040.png" referrerpolicy="no-referrer">
+
