@@ -6121,3 +6121,11 @@ UC有吉姆王啊（迫真）
 
 说真的还不如铁血1，虽然我感觉也就是比烂
 
+
+*****
+
+####  洛克萨斯  
+##### 15318#       发表于 2025-5-25 12:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">铁血第一期注水了多了点，但整体剧情结构是没啥问题的
+
