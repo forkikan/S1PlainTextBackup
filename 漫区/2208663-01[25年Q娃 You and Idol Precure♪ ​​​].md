@@ -68,3 +68,13 @@ purirun的弱智感降低了
 
 按这个节奏下下集两个妖精变身追加？毕竟三人合体技已经干不掉干部了，也是时候让追加登场了，ZQ和Kiss的相关玩具也是6月开卖到时间了。不过虽然说你Q娃前期常驻全队合体技一般保值时间比较短，而且这集相当于是BOSS亲自出手把干部变怪强度不一般，但偶Q这个三人合体技这么快就过保护期还是挺难绷的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jaewoongh_  
+##### 881#       发表于 2025-5-25 10:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">这故事发展就突出一个公式，还是猜猜噗哩伦的bank担当会是谁吧
+
+广末悠奈是第二次独立演出？有活啊
+

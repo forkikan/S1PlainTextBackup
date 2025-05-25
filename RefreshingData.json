@@ -6917,7 +6917,7 @@
     "newtitle": "[黑杰克组策略战棋新作《钢岚》专楼]",
     "lastedit": 1747882700,
     "category": "手游专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2163117": {
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 166955,
+    "totalreply": 166956,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1748141426,
+    "lastedit": 1748142261,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -9009,10 +9009,10 @@
     "update": false
   },
   "2167723": {
-    "totalreply": 1691,
+    "totalreply": 1692,
     "title": "[米泽穗信『小市民系列』TV动画化 2024年7月]",
     "newtitle": "[米泽穗信『小市民系列』TV动画化 2024年7月]",
-    "lastedit": 1748127378,
+    "lastedit": 1748142255,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10458,10 +10458,10 @@
     "update": false
   },
   "2208663": {
-    "totalreply": 880,
+    "totalreply": 881,
     "title": "[25年Q娃 You and Idol Precure♪ ​​​]",
     "newtitle": "[2025年Q娃 You and Idol Precure♪ ​​​]",
-    "lastedit": 1748138416,
+    "lastedit": 1748142010,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10521,10 +10521,10 @@
     "update": false
   },
   "2209276": {
-    "totalreply": 15310,
+    "totalreply": 15311,
     "title": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
     "newtitle": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
-    "lastedit": 1748141426,
+    "lastedit": 1748142261,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 138221,
+    "totalreply": 138226,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1748141426,
+    "lastedit": 1748142261,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13068,10 +13068,10 @@
     "update": false
   },
   "2252347": {
-    "totalreply": 56,
+    "totalreply": 57,
     "title": "[猫头鹰新作《战锤40k：黑暗异端》正式公布]",
     "newtitle": "[猫头鹰新作《战锤40k：黑暗异端》正式公布]",
-    "lastedit": 1748141651,
+    "lastedit": 1748142261,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13173,7 +13173,7 @@
     "lastedit": 1748109420,
     "category": "手游战斗",
     "active": true,
-    "update": false
+    "update": true
   },
   "1789861": {
     "totalreply": 147,
