@@ -4018,3 +4018,15 @@ aiko，进攻性太强了吧
 
 第六集后播放增速好快，好起来了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Totokei  
+##### 349#       发表于 2025-5-25 20:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67849537&amp;ptid=2196984" target="_blank">syndrome2032 发表于 2025-5-25 14:49</a>
+这部时间前进都是以年为单位的。
+
+就当八千代享受了一个5年长期假期吧。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">考虑到地面上谁来管酒店这事还是不安desu的
+
