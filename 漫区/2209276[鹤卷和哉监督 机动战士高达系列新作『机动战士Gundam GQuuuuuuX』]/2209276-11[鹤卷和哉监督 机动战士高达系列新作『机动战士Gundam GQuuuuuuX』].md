@@ -6035,3 +6035,16 @@ via [https://weibo.com/5204777712/PtlAyFyuI?pagetype=profilefeed](https://weibo.
 觉得现在的生活很虚假烦闷，那如果追求自由的话一般是先 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">前段时间不是网上流行的，水母这玩意没有脑也没有心，不会烦恼也不会痛苦每天吃吃吃飘着就行了
 
+
+*****
+
+####  xunit  
+##### 15310#       发表于 2025-5-25 10:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67849020&amp;ptid=2209276" target="_blank">太极八爪鱼 发表于 2025-5-25 09:55</a>
+
+79绿看不上鸭子，第一眼就看出他不是个东西</blockquote>
+79鸭可以说是心胸狭小，夏利亚看不上
+
+但87鸭已经算是在为全人类的进程而努力了吧，夏利亚应该还是会在奥古跟着夏亚混吧
+
