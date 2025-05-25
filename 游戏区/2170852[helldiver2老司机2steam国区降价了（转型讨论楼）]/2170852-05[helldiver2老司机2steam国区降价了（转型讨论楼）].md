@@ -1628,3 +1628,11 @@ QQ图片20250525184309.jpg
 
 <img src="https://img.stage1st.com/forum/202505/25/184320we80zceobccziic8.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ykyin09  
+##### 6075#       发表于 2025-5-25 20:41
+
+超级上海77的解放度，打破光能族三天灭亡超级地球的幻想
+

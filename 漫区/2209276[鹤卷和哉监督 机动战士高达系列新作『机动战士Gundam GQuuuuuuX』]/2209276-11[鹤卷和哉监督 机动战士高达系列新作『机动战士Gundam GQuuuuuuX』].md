@@ -6794,3 +6794,34 @@ ucif只是推动两个少女命运的背景推力
 
 阿哥现在看最大的罪过在戏外吧，主要就是找LV5日野来正太富皇篇激进创新拉了坨大的后面好起来也没他事拍拍屁股被撵走了，再加上铁血长冈（虽然这俩反而来高达棚特别保守，高达震这种贵乱要素要放其他冈妈片不得震天响结果完全淹没在后期俩烂梗中NBCS），之后代孙日升开新TV旗舰作企划监督编剧至少保一个或者像这次干脆俩都是老萝卜旗干出实绩的（水魔编剧大河内，这次卡拉算是倾囊而出），杜绝彻底激进创新的可能，变成不得不在老登和小登的喜好间进行端水创作的局面。
 
+
+*****
+
+####  AkaiSuisei  
+##### 15371#       发表于 2025-5-25 20:38
+
+这片的问题难道不是铺垫了一大堆要搞事的人，大家都想看主角大吼一声mother fxxker你们又想挑起战争吗老娘跟你们爆了。结果麻球小姐两耳不闻窗外事，满脑子都是要跟牢修跑路。甚至跑路的时候都不敢亲自上高达杀出一条血路，渲染了半季的觉悟不如第一话就敢偷高达拿去给妹妹交学费的朱总
+
+*****
+
+####  大十字紅朔  
+##### 15372#       发表于 2025-5-25 20:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67850112&amp;ptid=2209276" target="_blank">盐盐盐盐盐 发表于 2025-5-25 20:25</a>
+
+有没有可能gqx本质就是麻球（或许还加半个喵安）的青春（？）故事
+
+ucif只是推动两个少女命运的背景推力
+
+如 ...</blockquote>
+如果是青春故事的话描写青春就是主题<img src="https://static.stage1st.com/image/smiley/carton2017/038.png" referrerpolicy="no-referrer">
+但是目前来看没这种可能<img src="https://static.stage1st.com/image/smiley/carton2017/042.png" referrerpolicy="no-referrer">
+
+不然就该把夏亚的剧情全砍掉<img src="https://static.stage1st.com/image/smiley/carton2017/041.png" referrerpolicy="no-referrer">
+
+除非下一话写所罗门写修司穿越回去了<img src="https://static.stage1st.com/image/smiley/carton2017/031.png" referrerpolicy="no-referrer">
+
+都说看番像买股票，我看番眼光很准的
+
+就像……当初国家队第一组镜头不是机器人的镜头，而是主角在那儿自言自语，我就知道这片子的重点肯定不是机器人了……<img src="https://static.stage1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
+
