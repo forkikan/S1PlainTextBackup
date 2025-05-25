@@ -99,3 +99,13 @@ purirun的弱智感降低了
 下集给我的感觉是幸充救富春那段的味道，要用收集的道具(蝴蝶结)来救。下半继续重回收集之路。 ...</blockquote>
 今姨是要把没做TV的份补回来啊 <img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leleq  
+##### 884#       发表于 2025-5-25 16:30
+
+这集看标题开始还以为是日常看到铅球自己还发推了想到不一般结果是转折回，总体很王道打戏不错还有无bank小招算是很认真了。去闪亮王国的理由也比前几年严肃了。
+
+下面就看2银兽应该变身了关键回来了。有点期待2人（兽）的人间体了<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
