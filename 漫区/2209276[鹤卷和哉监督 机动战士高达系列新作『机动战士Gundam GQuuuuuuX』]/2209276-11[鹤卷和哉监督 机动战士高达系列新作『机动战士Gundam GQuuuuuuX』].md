@@ -6401,3 +6401,29 @@ UC有吉姆王啊（迫真）
 
 给个5分钟相爱相杀精神力MS对砍，1分钟闪闪亮，然后两个人太空拥抱15秒，然后插入曲平滑作为终盘ED，已经非常足够了～
 
+
+*****
+
+####  岸浪白野  
+##### 15340#       发表于 2025-5-25 16:04
+
+[X 上的 未幡/わたゆり13巻！：“ドゥーちゃんたちがどうなったのか今のうちに予想しておこう。 こんな感じかなあと思います #GQuuuuuuX #ジークアクス [url]https://t.co/CtblQHqgeR](https://x.com/n28miman/status/1926138457547477236)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/25/155529cuhpwvhcuz2yp6p5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.55 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-25 15:55 上传
+
+[X 上的 シャパリントン：“｢お前はコロニーから弾き出されたんだ！シュウちゃんは私が！！！｣ ｢ニャアン！！！💢💢💢💢💢💢｣ #GQuuuuuuX #ジークアクス [url]https://t.co/I0d6nCZcOV](https://x.com/syaparinton/status/1926084933564379592)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/25/160432zudcn2fnzvy1zb4k.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.84 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-25 16:04 上传
+
