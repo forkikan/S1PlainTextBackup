@@ -109,3 +109,14 @@ purirun的弱智感降低了
 
 下面就看2银兽应该变身了关键回来了。有点期待2人（兽）的人间体了<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 885#       发表于 2025-5-26 00:24
+
+今年的热度有点不如去年？
+都放完一个季度才23页，去年汪Q专楼到第三集就吵了23页
+
+—— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
