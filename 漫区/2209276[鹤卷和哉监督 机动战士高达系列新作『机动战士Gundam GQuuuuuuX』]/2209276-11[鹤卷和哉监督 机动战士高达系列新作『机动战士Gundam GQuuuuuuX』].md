@@ -6378,3 +6378,26 @@ UC有吉姆王啊（迫真）
 
 还有就是，不要瞧不起“做题家思维”，天朝观众基本都接受过最基本的语文教育，虽然很多人对这玩意不屑一顾，但落实在看片梳理剧情和总结方面就是有大用处
 
+
+*****
+
+####  jojonathan  
+##### 15338#       发表于 2025-5-25 15:25
+
+过程可以快进只需要表现角色当下的关系就好了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Steel.Haze  
+##### 15339#       发表于 2025-5-25 15:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67849519&amp;ptid=2209276" target="_blank">ティグル 发表于 2025-5-25 14:38</a>
+
+我指的是要塑造现在才开始接触的几人之间的亲密关系，这个是神仙难救
+
+总不能聊两句闪闪亮就变闺蜜吧 ...</blockquote>
+鹤卷的那些动画感情波动都是一集就一个珠穆朗玛峰直上下。
+
+给个5分钟相爱相杀精神力MS对砍，1分钟闪闪亮，然后两个人太空拥抱15秒，然后插入曲平滑作为终盘ED，已经非常足够了～
+
