@@ -6002,3 +6002,14 @@ via [https://weibo.com/5204777712/PtlAyFyuI?pagetype=profilefeed](https://weibo.
 
 突然有的想法，如果79绿叔叔活到了一年战争后，跟着夏亚去了奥古，对z剧情会有什么影响
 
+
+*****
+
+####  太极八爪鱼  
+##### 15307#       发表于 2025-5-25 09:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67849017&amp;ptid=2209276" target="_blank">ykyin09 发表于 2025-5-24 17:52</a>
+
+突然有的想法，如果79绿叔叔活到了一年战争后，跟着夏亚去了奥古，对z剧情会有什么影响 ...</blockquote>
+79绿看不上鸭子，第一眼就看出他不是个东西
+
