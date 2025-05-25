@@ -7240,3 +7240,23 @@ nga说金元说漏嘴了，杜有可能返场？真的假的</blockquote>
 nga说金元说漏嘴了，杜有可能返场？真的假的</blockquote>
 是真的 但也可能只是嘴瓢了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过从剧情的角度讲不返场有点浪费时长了吧
 
+
+*****
+
+####  Toby_dak  
+##### 15408#       发表于 2025-5-25 22:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67850563&amp;ptid=2209276" target="_blank">大十字紅朔 发表于 2025-5-25 23:08</a>
+
+我怕吵架所以不知道这样说合不合适，但是你这句话，和你说的这句话，是不是…
+
+我犹豫了半天要不要吐槽</blockquote>
+那不是明摆着吗？水魔那两位，除了河豚整天发癫贴贴之外还有什么能立得起来的人设？GQuuuuuuX到现在，就单是魔女这个人设就高了一个段位。
+
+*****
+
+####  whzfjd  
+##### 15409#       发表于 2025-5-25 22:48
+
+我突然有个疑问，玛秋关的牢是side6的还是绿色基地的？按说绿色基地的应该不算牢，但很多人都有股牢玛蹲号子的口气
+
