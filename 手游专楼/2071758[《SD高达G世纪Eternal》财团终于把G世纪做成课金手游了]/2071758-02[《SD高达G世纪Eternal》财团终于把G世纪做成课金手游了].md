@@ -1247,3 +1247,25 @@ theO少个盾，不能飞，加防要超强势；这次靠着劲敌词条20%，�
 —— 来自 samsung SM-F9460, Android 15, 鹅球 v3.5 ...</blockquote>
 赛季结束之后按阶级跟分数给金币
 
+
+*****
+
+####  xiongxingyu  
+##### 1598#       发表于 2025-5-25 11:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67848786&amp;ptid=2071758" target="_blank">卡奥斯·克斯拉 发表于 2025-5-25 04:24</a>
+
+援护威力需要坐援护机才能生效</blockquote>
+全控本身觉醒高，加上攻击机高面板大招打人就够疼了，ai还会用射程+1配合5格大招偷鸡，拿来当二三号位支援正合适。黄胖子手短还是硬伤。另一台我上了风灵加狸猫，PVP也用不着挂太多debuff，反正反击回合一轮齐射什么妖魔鬼怪都射死了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格雷殿下  
+##### 1599#       发表于 2025-5-25 11:55
+
+看到扎古3改有盾，还能吃加成
+
+防看着还很高
+
+可惜没图纸做来试试
+
