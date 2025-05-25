@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 14828,
+    "totalreply": 14830,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》5.22 夏日周年庆]",
-    "lastedit": 1748147414,
+    "lastedit": 1748148013,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -8415,12 +8415,12 @@
     "update": false
   },
   "2145840": {
-    "totalreply": 2955,
+    "totalreply": 2956,
     "title": "[学园偶像大师]",
     "newtitle": "[学园偶像大师]",
-    "lastedit": 1747722015,
+    "lastedit": 1748148372,
     "category": "手游专楼",
-    "active": false,
+    "active": true,
     "update": false
   },
   "1803414": {
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 166965,
+    "totalreply": 166966,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1748146812,
+    "lastedit": 1748148374,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 138279,
+    "totalreply": 138280,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1748147893,
+    "lastedit": 1748148134,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11205,12 +11205,12 @@
     "update": false
   },
   "2145249": {
-    "totalreply": 238,
+    "totalreply": 239,
     "title": "[渡边信一郎 新作「Lazarus」]",
     "newtitle": "[渡边信一郎 新作「Lazarus」]",
-    "lastedit": 1747886532,
+    "lastedit": 1748148134,
     "category": "漫区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2071758": {
@@ -11902,15 +11902,6 @@
     "title": "[最近“有女性当主角就认定为女性向动画”的说法到底是怎么兴起的？]",
     "newtitle": "[最近“有女性当主角就认定为女性向动画”的说法到底是怎么兴起的？]",
     "lastedit": 1747461613,
-    "category": "漫区",
-    "active": false,
-    "update": false
-  },
-  "1983869": {
-    "totalreply": 58,
-    "title": "[大小姐才不会玩格斗游戏 动画化]",
-    "newtitle": "[大小姐才不会玩格斗游戏 动画化]",
-    "lastedit": 1746938533,
     "category": "漫区",
     "active": false,
     "update": false
@@ -12915,10 +12906,10 @@
     "update": false
   },
   "2252304": {
-    "totalreply": 276,
+    "totalreply": 277,
     "title": "[任天堂香港京东自营旗舰店开业，Switch 2预购3489(+317.5)元，官方质保]",
     "newtitle": "[京东香港自营Switch 2，反黄牛公告Switch 2大幅涨价（公告去掉了任天堂）]",
-    "lastedit": 1748146815,
+    "lastedit": 1748148013,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12933,10 +12924,10 @@
     "update": false
   },
   "2252312": {
-    "totalreply": 160,
+    "totalreply": 162,
     "title": "[《百劍討妖傳綺譚》这算是跟发行商直接爆了吧，以后湾湾开发者想吃大陆饭更难了]",
     "newtitle": "[《百劍討妖傳綺譚》这算是跟发行商直接爆了吧，以后湾湾开发者想吃大陆饭更难了]",
-    "lastedit": 1748147774,
+    "lastedit": 1748148372,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13173,7 +13164,7 @@
     "lastedit": 1748109420,
     "category": "手游战斗",
     "active": true,
-    "update": false
+    "update": true
   },
   "1789861": {
     "totalreply": 147,
