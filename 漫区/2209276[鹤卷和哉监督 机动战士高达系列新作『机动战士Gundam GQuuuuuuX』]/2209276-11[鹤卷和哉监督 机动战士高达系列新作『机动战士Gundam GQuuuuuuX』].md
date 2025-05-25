@@ -7118,3 +7118,61 @@ ucif只是推动两个少女命运的背景推力
 
 <img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">nga说金元说漏嘴了，杜有可能返场？真的假的
 
+
+*****
+
+####  盐盐盐盐盐  
+##### 15397#       发表于 2025-5-25 22:19
+
+AGE有奶茶篇和铁血有第一季（虽然第一季有些文戏回不咋样但精彩的地方真的可以，包括第二季有些内容我是喜欢的）在我这就是可以免罪<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜雨秋水  
+##### 15398#       发表于 2025-5-25 22:19
+
+玛丘大战精神力是很爽，但是没拍是对的，ep7的根本目的是为了在单话内把玛丘的精神逼迫到极限，这种情况下不可能还有余裕去演那种英雄桥段，何况这个阶段玛丘压根就不是什么所谓的英雄形象，只是个无所适从的小孩罢了，以这个片子的整体调性，就连她最终会不会成为“英雄”般的人物都存疑。
+只是想拍得爽那方法可太多了，但那样就成了为观众而拍，很明显那样非导演本意，和已有的架构也冲突。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  岸波白野  
+##### 15399#       发表于 2025-5-25 22:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67850555&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-25 22:07</a>
+
+阿哥属于典型的志大才疏、好高骛远、眼高手低等等等所有类似的词都可以拿来形容。
+
+50集播100年，UC系那么多 ...</blockquote>
+子供向就是商业化之癌了，一个IP想持续运营需要新的受众（虽然水魔gqx的潮巴表现也是基于这点），从这个层面上可能代孙还要感谢L5和日野，阿哥的结论是钢弹的受众年龄层拉不到L5作品那么低，或者至少调性不能真和L5作品一样(但说实在的日升万代那些P没在企划阶段就参悟这点阿哥的结果也算他们活该了）。当然就这样受众年轻化的路还是要走的，不说现在的水魔gqx,总结了狂四郎SD一系要素的创战者算是一个折中的打低受众年龄层且给老登提供一定情绪价值的优秀案例。
+
+*****
+
+####  Sliurus  
+##### 15400#       发表于 2025-5-25 22:23
+
+我觉得杜实际是if普露系列，因为罗莎美的精神力mkII是没有浮游反射板这个东西的，这是到了普露兹才有，而且两个人都带2，后面出来的可能是复制人或者本体
+
+
+*****
+
+####  秋月孝三  
+##### 15401#       发表于 2025-5-25 22:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67850603&amp;ptid=2209276" target="_blank">patema 发表于 2025-5-25 22:17</a>
+
+nga说金元说漏嘴了，杜有可能返场？真的假的</blockquote>
+确实说了“ドゥーはここで一旦”。但是按照老UC的尿性不一定是村雨2本人返场，也有可能是在地球上见到村雨2的克隆<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lawliet.L  
+##### 15402#       发表于 2025-5-25 22:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67850342&amp;ptid=2209276" target="_blank">大十字紅朔 发表于 2025-5-25 21:38</a>
+
+事后来看，其实高达能在日本动画界一直占据独特地位是因为之前的几代人真的相信高达是有什么深奥的思想性 ...</blockquote>
+你这一说，高达发展史就像是独角兽的剧情<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
