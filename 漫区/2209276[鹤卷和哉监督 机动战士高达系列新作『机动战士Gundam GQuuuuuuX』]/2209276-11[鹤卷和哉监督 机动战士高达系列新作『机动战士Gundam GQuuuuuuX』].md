@@ -7384,3 +7384,88 @@ AGE最大问题不是搞了个神必的子供向画风，不知道在想什么
 FS是什么……Fujiwara Sinobu？</blockquote>
 游戏界当红炸子鸡 From Software
 
+
+*****
+
+####  大十字紅朔  
+##### 15422#       发表于 2025-5-25 23:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67850832&amp;ptid=2209276" target="_blank">jojonathan 发表于 2025-5-25 23:39</a>
+
+魔女这种叫观众脑补那现在的观众阅读理解水平是不是有点低了</blockquote>
+我倒是看到日本那边给她脑补出其实是强化人，根本就没有小孩之类的设定
+
+*****
+
+####  我聞如是  
+##### 15423#       发表于 2025-5-25 23:45
+
+<blockquote>whzfjd 发表于 2025-5-25 22:48
+我突然有个疑问，玛秋关的牢是side6的还是绿色基地的？按说绿色基地的应该不算牢，但很多人都有股牢玛蹲号 ...</blockquote>
+這點似乎連日本觀眾裡也有不少人搞錯<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但就算不認得那是船內，前一段side6新聞報道才剛開番茄的盒開始公開追捕
+
+要是已經抓到人，新聞就不會這樣寫啦
+
+海外觀眾看不懂日文就算了，日本人都看不出來真是藥丸了
+
+*****
+
+####  jojonathan  
+##### 15424#       发表于 2025-5-25 23:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67850839&amp;ptid=2209276" target="_blank">大十字紅朔 发表于 2025-5-25 23:43</a>
+我倒是看到日本那边给她脑补出其实是强化人，根本就没有小孩之类的设定 ...</blockquote>
+那不是纯假药<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jojonathan  
+##### 15425#       发表于 2025-5-25 23:48
+
+喵安 修斯 魔女 甚至 番茄都有强化人假药<img src="https://static.stage1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">番茄一种是怀疑她的nt能力是被omega塞克谬激发的也是一款强化人 另一种是觉得番茄就是收养的强化人啦
+
+*****
+
+####  大十字紅朔  
+##### 15426#       发表于 2025-5-25 23:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67850813&amp;ptid=2209276" target="_blank">无念 发表于 2025-5-25 23:31</a>
+
+虽然我也觉得这是精神病，但是第七集从机体编号，到配色，到反射板都在告诉你这是if线的mk2
+
+当然也说不定 ...</blockquote>
+说起来其实……
+
+按古早的旧版的设定，联邦军在一年战争赢了之后接收了吉恩的NT研究所，所以才有强化人研究
+
+我也不知道这个设定改没有
+
+GQ既然是吉恩赢了，那联邦应该就没有强化人才对……
+
+
+*****
+
+####  wpcc  
+##### 15427#       发表于 2025-5-25 23:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67850850&amp;ptid=2209276" target="_blank">大十字紅朔 发表于 2025-5-25 23:49</a>
+
+说起来其实……
+
+按古早的旧版的设定，联邦军在一年战争赢了之后接收了吉恩的NT研究所，所以才有强化人研 ...</blockquote>
+这就是硬搓搓出来的 所以性能都很菜啊 包括精神力和罕布拉比
+
+*****
+
+####  大十字紅朔  
+##### 15428#       发表于 2025-5-25 23:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67850842&amp;ptid=2209276" target="_blank">我聞如是 发表于 2025-5-25 23:45</a>
+
+這點似乎連日本觀眾裡也有不少人搞錯
+
+但就算不認得那是船內，前一段side6新聞報道才剛開番茄的盒開始公開 ...</blockquote>
+因为主角在side6参加黑赛，那应该是side6的抓她，就算是擅自开动高达，吉恩也没有权力把她抓起来带走（什么长手管辖）
+
