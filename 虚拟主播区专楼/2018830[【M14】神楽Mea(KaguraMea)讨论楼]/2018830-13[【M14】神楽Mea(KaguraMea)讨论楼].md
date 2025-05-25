@@ -9594,3 +9594,13 @@ jimmyshen怎么被点草了
 
 今天是和韩国人打clash，话说这个天使到底是谁的小号啊
 
+
+*****
+
+####  sino__unnko3  
+##### 18560#       发表于 2025-5-26 00:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67850818&amp;ptid=2018830" target="_blank">TiHaru 发表于 2025-5-25 23:33</a>
+今天是和韩国人打clash，话说这个天使到底是谁的小号啊</blockquote>
+虹KR吗？
+
