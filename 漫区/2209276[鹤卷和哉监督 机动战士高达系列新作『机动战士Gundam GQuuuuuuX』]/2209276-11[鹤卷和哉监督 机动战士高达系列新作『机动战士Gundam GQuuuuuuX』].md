@@ -6568,3 +6568,13 @@ UC有吉姆王啊（迫真）
 与此同时基西莉亚自己能不能策划基连暗杀，很合 ...</blockquote>
 其实流程应该差不多，同时暗杀的原因就是不希望另一方来得及接管内部权力，所以最后演变成格里普斯战役那种三方战格局的可能性还是不小的，第三方是基连还是联邦就不知道了，但我觉得基连侧还有角色没登场，就像这俩集出来的俩强化人一样，可能是老熟人也可能是玩梗角色
 
+
+*****
+
+####  伊露伊道格拉斯  
+##### 15353#       发表于 2025-5-25 18:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67849447&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-5-25 14:04</a>
+[https://x.com/ervin0083/status/1926256234744652198?s=46&amp;t=XH91CbxXPkTOlk4NTqE-Ag](https://x.com/ervin0083/status/1926256234744652198?s=46&amp;t=XH91CbxXPkTOlk4NTqE-Ag)</blockquote>
+快进到喵安机体外表是黑色吉翁号或者其他MA的壳子，里面是台高达或者卡碧尼<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
