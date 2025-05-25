@@ -7260,3 +7260,23 @@ nga说金元说漏嘴了，杜有可能返场？真的假的</blockquote>
 
 我突然有个疑问，玛秋关的牢是side6的还是绿色基地的？按说绿色基地的应该不算牢，但很多人都有股牢玛蹲号子的口气
 
+
+*****
+
+####  patema  
+##### 15410#       发表于 2025-5-25 22:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67850699&amp;ptid=2209276" target="_blank">whzfjd 发表于 2025-5-25 22:48</a>
+
+我突然有个疑问，玛秋关的牢是side6的还是绿色基地的？按说绿色基地的应该不算牢，但很多人都有股牢玛蹲号 ...</blockquote>
+绿色木马的
+
+*****
+
+####  盐盐盐盐盐  
+##### 15411#       发表于 2025-5-25 22:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67850699&amp;ptid=2209276" target="_blank">whzfjd 发表于 2025-5-25 22:48</a>
+ 我突然有个疑问，玛秋关的牢是side6的还是绿色基地的？按说绿色基地的应该不算牢，但很多人都有股牢玛蹲号 ...</blockquote>
+这不一眼木马禁闭房，理解成蹲牢的难道觉得夏利亚会把麻球交给军警吗
+
