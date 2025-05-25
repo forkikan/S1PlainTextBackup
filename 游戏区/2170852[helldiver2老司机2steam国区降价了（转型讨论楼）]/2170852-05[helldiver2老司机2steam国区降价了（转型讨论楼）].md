@@ -1644,3 +1644,28 @@ QQ图片20250525184309.jpg
 
 纽约分流了，上海6.6的进攻度，光能舰队还能撑6天，恐怕是守不住了
 
+
+*****
+
+####  九十九忍  
+##### 6077#       发表于 2025-5-25 21:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">看样子是能守住，技术员回归了带点新玩意吧，这个改枪目前一眼敷衍
+
+*****
+
+####  Jabeck  
+##### 6078#       发表于 2025-5-25 21:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67850206&amp;ptid=2170852" target="_blank">九十九忍 发表于 2025-5-25 21:11</a>
+
+看样子是能守住，技术员回归了带点新玩意吧，这个改枪目前一眼敷衍</blockquote>
+改枪改子弹类型什么的都没开放，有得磨洋工了。
+
+*****
+
+####  ykyin09  
+##### 6079#       发表于 2025-5-25 21:14
+
+<img src="https://static.stage1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">明天工作日一来估计守不住了
+

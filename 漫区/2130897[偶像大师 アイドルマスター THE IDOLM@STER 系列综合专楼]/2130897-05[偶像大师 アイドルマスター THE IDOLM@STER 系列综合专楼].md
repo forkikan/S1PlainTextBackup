@@ -138,3 +138,113 @@ Spotlight Star Day 1 Setlist (於17:01(UTC+9)開演):
 
 我节奏全乱了😭
 
+
+*****
+
+####  wfhtony  
+##### 6991#       发表于 2025-5-25 21:12
+
+Spotlight Star Day 2 Setlist (於17:01(UTC+9)開演)：
+
+開演前：《ライブ直前！初星放送部 出張生配信》（＊現場錄音，無畫面，16:15~16:55 (UTC+9)）
+<img src="https://tc2.wfhtony.space/images/2025/05/25/baad8446c14848f3d811e56a9805e46e.png" referrerpolicy="no-referrer">
+
+・Overture<blockquote>[開演前注意事項 // 十王邦夫（CV.大塚明夫）、根緒亜紗里（CV.古賀葵）]
+<img src="https://tc2.wfhtony.space/images/2025/05/25/912d68f8a5fc664bbfa052a58fdaaf2c.png" referrerpolicy="no-referrer">
+
+[Overture]</blockquote>
+・1st block<blockquote>01. 叶えたい、ことばかり // 小鹿なお
+
+02. Fighting My Way // 長月あおい
+
+03. Ride on Beat // 湊みや
+
+04. clumsy trick // 薄井友里（＊Long Intro ver.）
+<img src="https://tc2.wfhtony.space/images/2025/05/25/ab093a7f8fdbfb5801ea61842a47d616.jpg" referrerpolicy="no-referrer">
+
+05. The Cute!!! // 飯田ヒカル
+
+06. ツキノカメ // 春咲暖
+
+→ 開場MC（MC①）</blockquote>
+・2nd block<blockquote><img src="https://tc2.wfhtony.space/images/2025/05/25/e2bb77aea2f07ee3b288e1cad44801d1.png" referrerpolicy="no-referrer">
+
+07. Fragile Heart // 花岩香奈
+
+08. The Rolling Riceball // 松田彩音
+
+09. Fluorite // 七瀬つむぎ
+<img src="https://tc2.wfhtony.space/images/2025/05/25/848958b51d88da1eb2dedfe57e308144.jpg" referrerpolicy="no-referrer">
+
+10. Choo Choo Choo // 陽高真白
+
+11. 光景 // 川村玲奈
+
+12. ときめきのソルフェージュ // 伊藤舞音
+
+13. Campus mode!! // 全員
+
+→ MC②</blockquote>
+・3rd block<blockquote><img src="https://tc2.wfhtony.space/images/2025/05/25/7e1883c4ce3de8e5fa4c4ee6a244a994.png" referrerpolicy="no-referrer">
+
+14. メクルメ // 川村玲奈
+
+15. 小さな野望 // 陽高真白
+
+16. ヨルニテ // 春咲暖
+
+17. Wonder Scale // 伊藤舞音
+
+18. marble heart // 薄井友里
+
+19. Tame-Lie-One-Step // 湊みや
+
+→ MC③</blockquote>
+・4th block<blockquote>20. 極光 // 花岩香奈
+
+21. Try it now // 長月あおい
+
+22. Luna say maybe // 小鹿なお
+
+23. Top Secret // 七瀬つむぎ
+<img src="https://tc1.wfhtony.space/images/2025/05/25/1d2f7fef20625431e89ebadebdbe3019.jpg" referrerpolicy="no-referrer">
+
+24. グースーピー // 松田彩音（＊新曲）
+
+25. 白線 // 花岩香奈
+
+26. 世界一可愛い私 // 飯田ヒカル
+
+→ 安可前MC
+
+27. 古今東西ちょちょいのちょい // 全員
+
+[安可前致辭+業務聯絡環節 // 十王邦夫（CV.大塚明夫）、根緒亜紗里（CV.古賀葵）]</blockquote>
+・業務聯絡環節<blockquote><img src="https://tc2.wfhtony.space/images/2025/05/25/b2a610d164330554378f2c53960ace86.png" referrerpolicy="no-referrer">
+
+犬束傳第三卷特裝版的CD將會收錄琴音翻唱的《GO MY WAY》。
+
+<img src="https://tc2.wfhtony.space/images/2025/05/25/9b9c4d05b29d75322b45dbab3464f01e.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2025/05/25/be52d694bc71f8c76eb268ba891d1dd0.png" referrerpolicy="no-referrer">
+
+《Howling over the World》即將實裝。</blockquote>
+・安可<blockquote>28. 標 // 全員
+<img src="https://tc2.wfhtony.space/images/2025/05/25/48b576ccc4094aaea948ecd54e7a6453.png" referrerpolicy="no-referrer">
+
+（今天校歌最後的高音部分是小鹿擔當。）
+
+29. 初 // 全員
+
+→ 安可MC
+
+30. Star-mine // Begrazia (陽高真白、春咲暖、松田彩音)
+
+[W ENCORE]
+
+31. 雨上がりのアイリス // Re;IRIS (長月あおい、小鹿なお、飯田ヒカル)
+<img src="https://tc1.wfhtony.space/images/2025/05/25/e734a28ee8650caba38d3d7061d93f0b.png" referrerpolicy="no-referrer">
+
+[終演後致辭 // 十王邦夫（CV.大塚明夫）、根緒亜紗里（CV.古賀葵）]
+<img src="https://tc1.wfhtony.space/images/2025/05/25/5637f0ddaed70afef657b2e5fa45dece.png" referrerpolicy="no-referrer">
+<img src="https://tc1.wfhtony.space/images/2025/05/25/4dc4421376d18a6340a953d368021353.png" referrerpolicy="no-referrer"></blockquote>
+
