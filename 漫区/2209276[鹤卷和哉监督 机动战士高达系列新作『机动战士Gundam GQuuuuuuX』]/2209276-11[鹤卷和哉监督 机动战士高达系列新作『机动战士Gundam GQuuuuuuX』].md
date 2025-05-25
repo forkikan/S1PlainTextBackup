@@ -6578,3 +6578,22 @@ UC有吉姆王啊（迫真）
 [https://x.com/ervin0083/status/1926256234744652198?s=46&amp;t=XH91CbxXPkTOlk4NTqE-Ag](https://x.com/ervin0083/status/1926256234744652198?s=46&amp;t=XH91CbxXPkTOlk4NTqE-Ag)</blockquote>
 快进到喵安机体外表是黑色吉翁号或者其他MA的壳子，里面是台高达或者卡碧尼<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大十字紅朔  
+##### 15354#       发表于 2025-5-25 18:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67849310&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-25 12:34</a>
+
+铁血甚至第2期的大纲也没问题，铁华团的结局是可以预见和被接受的。
+
+问题是手段过于简单粗暴，编剧有形的大 ...</blockquote>
+水魔只有地球居民的抵抗活动，但是和主角关系不大，对桃染的塑造倒是有帮助，但是桃染这条线最终没有去处理
+
+所以水魔是重要人物太多篇幅太短互相挤压了故事线，主角和女主和三大家族和地球势力每个都是重要人物，但只有两季……
+
+水魔和GQX问题不一样，GQX只有两个中心人物，两边却完全是割裂的，我还是提倡我那个“编剧改来改去把自己改晕了”的假说
+
+但不管怎样，等下一步高达出来了一切都会好起来
+
