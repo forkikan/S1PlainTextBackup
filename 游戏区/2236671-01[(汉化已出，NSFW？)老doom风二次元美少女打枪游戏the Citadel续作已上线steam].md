@@ -1973,3 +1973,13 @@ fusion cannon耐久掉太快了基本没有实用价值，空中支援就最后�
 
 2025-5-26 05:23 上传
 
+
+*****
+
+####  zzy516232108  
+##### 168#       发表于 2025-5-26 06:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67851078&amp;ptid=2236671" target="_blank">zzf111 发表于 2025-5-26 05:23</a>
+翻4ch帖见到的乐子一则，ai自动翻译凑合下</blockquote>
+作者有点过于压抑了
+
