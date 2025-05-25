@@ -7302,3 +7302,16 @@ age是只看大纲很不错，一落实到实际就完蛋那种，超劝退的�
 
 gqx的魔女说白了不就是FS那套丢人设让观众自己发动fs脑去补完<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无念  
+##### 15414#       发表于 2025-5-25 23:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67850663&amp;ptid=2209276" target="_blank">大十字紅朔 发表于 2025-5-25 22:34</a>
+这高达不是精神力高达吗</blockquote>
+虽然我也觉得这是精神病，但是第七集从机体编号，到配色，到反射板都在告诉你这是if线的mk2
+当然也说不定四集内进地球能看见2的复制人开精神病<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

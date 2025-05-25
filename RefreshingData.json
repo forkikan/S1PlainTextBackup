@@ -63,9 +63,9 @@
     "update": false
   },
   "2018830": {
-    "totalreply": 18558,
+    "totalreply": 18559,
     "title": "[【M14】神楽Mea(KaguraMea)讨论楼]",
-    "lastedit": 1748179579,
+    "lastedit": 1748187261,
     "category": "虚拟主播区专楼",
     "active": true,
     "newtitle": "[【M14】神楽Mea(KaguraMea)讨论楼]",
@@ -10521,10 +10521,10 @@
     "update": false
   },
   "2209276": {
-    "totalreply": 15413,
+    "totalreply": 15414,
     "title": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
     "newtitle": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
-    "lastedit": 1748186060,
+    "lastedit": 1748187261,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 138585,
+    "totalreply": 138591,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1748186653,
+    "lastedit": 1748187261,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11367,10 +11367,10 @@
     "update": false
   },
   "2181098": {
-    "totalreply": 415,
+    "totalreply": 416,
     "title": "[忍者×杀手二人组的日常生活 动画化]",
     "newtitle": "[忍者×杀手二人组的日常生活 动画化]",
-    "lastedit": 1748186060,
+    "lastedit": 1748187254,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11466,10 +11466,10 @@
     "update": false
   },
   "2198136": {
-    "totalreply": 221,
+    "totalreply": 222,
     "title": "[原创TV动画『前橋ウィッチーズ ／ 前桥魔女』 2025年4月]",
     "newtitle": "[原创TV动画『前橋ウィッチーズ ／ 前桥魔女』 2025年4月]",
-    "lastedit": 1748186653,
+    "lastedit": 1748187013,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13128,7 +13128,7 @@
     "lastedit": 1748172840,
     "category": "手游战斗",
     "active": true,
-    "update": false
+    "update": true
   },
   "1789861": {
     "totalreply": 147,
@@ -13172,6 +13172,15 @@
     "newtitle": "[数码宝贝物语 时空异客发布，2025发售，ps5／xs／pc]",
     "lastedit": 1748164090,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2252419": {
+    "totalreply": 41,
+    "title": "[新人开始补UC高达正传，刚补完高达the origin，一些感想]",
+    "newtitle": "[新人开始补UC高达正传，刚补完高达the origin，一些感想]",
+    "lastedit": 1748187261,
+    "category": "漫区",
     "active": true,
     "update": false
   }
