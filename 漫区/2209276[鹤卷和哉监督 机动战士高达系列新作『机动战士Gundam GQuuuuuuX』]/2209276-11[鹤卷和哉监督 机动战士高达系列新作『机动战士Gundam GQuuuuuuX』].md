@@ -6525,3 +6525,33 @@ UC有吉姆王啊（迫真）
 
 在坛友们的潜意识里麻球仍然是一个只能用电波/私欲尝试沟通的神人<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  玖羽  
+##### 15350#       发表于 2025-5-25 17:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67849394&amp;ptid=2209276" target="_blank">qiyu1234 发表于 2025-5-25 13:23</a>
+
+现在有两条主线
+
+首先是绿叔叔说的同时刺杀基连和基西利亚这条线
+
+汤大基还没有正式登场，而紫婆经过刺杀计划 ...</blockquote>
+我觉得你们被“同时刺杀基连和基西莉亚”这句话绕进去了
+
+与此同时基西莉亚自己能不能策划基连暗杀，很合理吧，Solar Ray已经出现了，如果用Solar Ray把基连干掉，基连甚至都不用登场
+
+这样可以把矛盾简化为干掉基西莉亚、阻止Solar Ray向地球发射，一两话完全能搞定
+
+至于夏亚，随便吧，解释这件事不需要花太多时长
+
+<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  jojonathan  
+##### 15351#       发表于 2025-5-25 17:59
+
+我倒是觉得交流的时候把欲望明明白白的展示出来更真诚<img src="https://static.stage1st.com/image/smiley/carton2017/088.png" referrerpolicy="no-referrer">最近线下快被各路扭扭捏捏心思有好有坏的谜语人弄疯了
+
