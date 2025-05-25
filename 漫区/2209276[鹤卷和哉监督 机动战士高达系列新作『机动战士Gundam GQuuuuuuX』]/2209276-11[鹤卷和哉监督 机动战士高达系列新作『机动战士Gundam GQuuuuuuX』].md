@@ -6338,3 +6338,14 @@ UC有吉姆王啊（迫真）
 
 贷款之前请记住还剩四集半
 
+
+*****
+
+####  Steel.Haze  
+##### 15335#       发表于 2025-5-25 14:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67849491&amp;ptid=2209276" target="_blank">ティグル 发表于 2025-5-25 14:23</a>
+
+贷款之前请记住还剩四集半</blockquote>
+以飞越巅峰2的标准的话，四集塞下整个第二次宇宙怪物战争的主线部分过于绰绰有余了。飞2后面几集塞了三场大场面。
+
