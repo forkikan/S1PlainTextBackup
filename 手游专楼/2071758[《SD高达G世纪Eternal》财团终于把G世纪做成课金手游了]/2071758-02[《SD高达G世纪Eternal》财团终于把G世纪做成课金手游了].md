@@ -1192,3 +1192,13 @@ G可能 デビルガンダムJr。
 不得不说，高达游戏凯子就是多，到了大师段一刷5个2w战力的，中间两个战力高的点进去一看6个满破的还好打法 ...</blockquote>
 援护威力需要坐援护机才能生效
 
+
+*****
+
+####  lighttt  
+##### 1593#       发表于 2025-5-25 08:53
+
+把亥伯龙拉到90就过了15000了<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">不吃战舰加成确实不好打
+
+—— 来自 OPPO PHY110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
