@@ -1591,3 +1591,13 @@ on sea甚至还在以惊人的速度反推，太伟大了on sea👊🌏🔥
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Adrenaline!!!  
+##### 6072#       发表于 2025-5-25 12:33
+
+50船不能有混子，四个人分头行动拆，战备不留着生蛋，刷怪数就不会量变产生质变。有人摸鱼就糟了。<img src="https://static.stage1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
