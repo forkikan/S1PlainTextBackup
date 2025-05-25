@@ -6947,3 +6947,21 @@ ucif只是推动两个少女命运的背景推力
 
 与其说绿叔叔太强了+精神病火力太差了（轰了大半天麻球还能两耳不闻窗外事呢），还不如说编剧的大手把夸克斯按住了不让释放
 
+
+*****
+
+####  Toby_dak  
+##### 15383#       发表于 2025-5-25 21:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67850184&amp;ptid=2209276" target="_blank">ティグル 发表于 2025-5-25 22:04</a>
+
+就是因为情绪得不到释放才诞生了虐主流假说嘛</blockquote>
+不如说现在国内主流的巨婴观众，只要剧情没有完全按照他们认定那样展开，就急不可待地都打上烂片标签。连丁点耐心都没有。
+
+*****
+
+####  Sabbah  
+##### 15384#       发表于 2025-5-25 21:26
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没跟着牢修一起换地图我是不服的，就喜欢这种弄下莫名其妙的烂摊子后莫名奇妙换地图的剧情。
+
