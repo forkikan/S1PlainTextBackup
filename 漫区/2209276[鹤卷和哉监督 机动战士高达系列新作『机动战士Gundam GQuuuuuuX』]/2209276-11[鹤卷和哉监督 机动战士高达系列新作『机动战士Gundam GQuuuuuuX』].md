@@ -7563,3 +7563,14 @@ GQ既然是吉恩赢了，那联邦应该就没有强化人才对……
 
 现在心态已经扭曲了<img src="https://static.stage1st.com/image/smiley/face2017/121.png" referrerpolicy="no-referrer">反正最后支棱一波就好了
 
+
+*****
+
+####  sauron.j  
+##### 15438#       发表于 2025-5-26 00:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67850920&amp;ptid=2209276" target="_blank">Wondering 发表于 2025-5-26 00:27</a>
+
+财团b对高达商业价值的探索从富野初代出了之后就开始了，真以为高达就是一个聚焦战争和探讨战争的ip？武斗 ...</blockquote>
+那还是武斗传开了最好的头，首次将uc属性解构掉，从此大家可以随意创作各种画风的高达
+
