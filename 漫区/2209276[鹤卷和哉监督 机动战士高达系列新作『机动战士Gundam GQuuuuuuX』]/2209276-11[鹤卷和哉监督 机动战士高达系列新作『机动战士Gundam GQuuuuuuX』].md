@@ -6140,3 +6140,37 @@ UC有吉姆王啊（迫真）
 比烂这块目前比gquux好，好歹水魔第一季总体评价还是偏正面的，夸克斯要是能在大结局把风评掰回来那确实 ...</blockquote>
 水魔第一季不是靠第二季贷款风评才还行？没有第二季的话真不比GQX好，至少后者还有野史提供乐子<img src="https://static.stage1st.com/image/smiley/face2017/265.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhzij111  
+##### 15320#       发表于 2025-5-25 12:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67849254&amp;ptid=2209276" target="_blank">psycho_Gadfly 发表于 2025-5-25 12:10</a>
+水魔第一季不是靠第二季贷款风评才还行？没有第二季的话真不比GQX好，至少后者还有野史提供乐子
+
+ ...</blockquote>
+夸克斯不也是第六集大的要来了大的要来了然后第七集端出来一坨精神小妹吗。
+
+所以我也说了它结局要是能把风评掰回来那确实比水魔强，不然不就是一路货色<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  赤黑的假面  
+##### 15321#       发表于 2025-5-25 12:20
+
+高达正传烂了就招魂以前的片子这操作我是不是在曼联已经看过一遍了
+
+
+*****
+
+####  希望之异热同心  
+##### 15322#       发表于 2025-5-25 12:26
+
+铁血第一季故事聚焦在铁华团去地球的历程，很多背景板的组织故事没有展开写观感当然好，到第二季铁华团自己就是背景板都算不上的雇佣兵企业，主线是巧克力的兵变，所以巧克力一写烂故事就直接烂到底了。gqux第七集还是聚焦在麻球身上没有脱离主角去写鸡瘟联邦的故事是挺好的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
