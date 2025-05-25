@@ -3991,3 +3991,11 @@ aiko，进攻性太强了吧
 
 从欢迎入住到送你上天，这有点激进了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  依然荏苒  
+##### 346#       发表于 2025-5-25 13:03
+
+烟花自带的硝酸钾氯酸钾和金属粉真空也是能点燃的啊，不然那么多固体发动机，唉宽松教育…。
+
