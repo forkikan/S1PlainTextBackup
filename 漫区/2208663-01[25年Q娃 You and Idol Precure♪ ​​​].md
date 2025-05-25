@@ -32,3 +32,15 @@
 
 第 16 集的 TVer 源（含日字）：magnet:?xt=urn:btih:3c32f53848b66aaadd8e4beabe1a37d61d6b0ad2
 
+
+*****
+
+####  我吃诗人  
+##### 877#       发表于 2025-5-25 09:25
+
+来了来了，我从文字情报就开始期待这集了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+烂完了--&gt;我艹活来了！--&gt;烂完了简直--&gt;还有活！<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+总算有点像样的作画了
+
