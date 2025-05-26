@@ -8182,3 +8182,15 @@ UCE手游玩的很花啊</blockquote>
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  我聞如是  
+##### 15494#       发表于 2025-5-26 16:30
+
+看到匿名板討論GQuuuuuuX的真名會不會就是alphacide
+
+突然想到，企劃書裡的lies heavy會不會也是假名？剛好和alphacide一樣是9字母
+
+可能後來決定把高堡奇人要素拔掉(而且liesheavy作為機體名好怪)，才改成了佔位符QuuuuuuX
+
