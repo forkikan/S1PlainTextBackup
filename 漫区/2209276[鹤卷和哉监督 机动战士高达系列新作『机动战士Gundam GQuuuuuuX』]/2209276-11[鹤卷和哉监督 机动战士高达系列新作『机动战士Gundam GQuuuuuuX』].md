@@ -8572,3 +8572,51 @@ lies heavy这名字其实也只是承担隐藏的作用和GQuuuuuuX是一样的�
 
 真到0087结果吉翁主力加撒c直接眼前一黑<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  我聞如是  
+##### 15537#       发表于 2025-5-26 19:34
+
+難道8話番茄真的不出場嗎？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Gysumitka  
+##### 15538#       发表于 2025-5-26 19:36
+
+有半集的量，不至于不出场
+
+*****
+
+####  某某某人  
+##### 15539#       发表于 2025-5-26 19:37
+
+<blockquote>我聞如是 发表于 2025-5-26 19:34
+難道8話番茄真的不出場嗎？</blockquote>
+前半集鴨子，後半集喵安
+
+至於麻球，我們預告裡見XD
+
+*****
+
+####  jojonathan  
+##### 15540#       发表于 2025-5-26 19:39
+
+番茄谁啊 真不熟<img src="https://static.stage1st.com/image/smiley/carton2017/088.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Gysumitka  
+##### 15541#       发表于 2025-5-26 19:39
+
+接下来两边搞捕鸟红高达行动<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ftyaid  
+##### 15542#       发表于 2025-5-26 19:40
+
+不知道是修正番茄半集然后最后放机体特写呢，还是强化喵安半集最后放一点禁闭室番茄呢
+
