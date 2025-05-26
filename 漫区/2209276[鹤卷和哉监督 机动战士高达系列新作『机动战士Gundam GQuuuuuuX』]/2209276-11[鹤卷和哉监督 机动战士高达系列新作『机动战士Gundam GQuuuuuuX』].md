@@ -9238,3 +9238,19 @@ khara的保密是不是该管管了，怎么经常被人泄密
 
 让小森发双长筒靴<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ftyaid  
+##### 15603#       发表于 2025-5-27 01:36
+
+上木马还只穿校服的话，那不是只有一套日常用的衣服，脏了只能穿驾驶服了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  YU_JI  
+##### 15604#       发表于 2025-5-27 01:42
+
+按理来说都决定离家出走跑路润地球了，就不太可能把校服带走了，或者说给一个把校服一起带走了的细节来表示其实她还有在地球看完海回来的打算？如果后续有冷静下来的反思桥段可以拿这个点去铺情绪
+
