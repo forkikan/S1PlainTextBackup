@@ -716,3 +716,16 @@ uc最重要人物之一的夏亚到了gto就成了心狠手辣的小丑，平行
 
 0079TV的剧情节奏还是不错的，前期内容非常紧凑吸引人一口气看下去，中期开始舒缓下来通过单元剧引入更多配角故事，后期再上宇宙反攻和决战，而且台词的富野节也还没那么严重，各种名台词配合弹幕也很有意思，只要能接受得了老画面的话其实相当适合入坑
 
+
+*****
+
+####  gundammarkⅡ  
+##### 68#       发表于 2025-5-26 16:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67851291&amp;ptid=2252419" target="_blank">妄想系同盟 发表于 2025-5-26 09:19</a>
+
+别忘了gto还有部剧场版啊虚空给吉翁造了一支精锐小队，虚空给多安发了个看守核弹的秘密任务，虚空小队被骡 ...</blockquote>
+这事最搞笑的是，这部剧场版没挂GTO的名义，说就是GTO漫画没有多安的岛，但更大原因不就是GTO出OVA的时候还搞了个以多安的岛为名，拓展GTO版MSV的漫画麽<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+个人看法，那部漫画比剧场版有意思多了
+
