@@ -812,3 +812,16 @@ gto、驴和雷霆宙域至今没碰，就留着哪天当消遣
 
 广告片管他怎么乱拍，能出好胶就行
 
+
+*****
+
+####  太极八爪鱼  
+##### 77#       发表于 2025-5-27 06:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67853731&amp;ptid=2252419" target="_blank">vorfeed 发表于 2025-5-26 07:09</a>
+
+GTO无论漫画还是动画作为入坑选项都算是门槛很低的了  没什么不好
+
+我是很少见的在接触动画和SRW之前先看了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">这印象其实也没错，从0079就开始喜欢金发大马好吧，抛弃了自己的青梅竹马，跪舔死对头的妹妹！就因为对方是金发大洋马！战后被软禁8年后，出来第一件事就是又找了个金发大洋马！你说是不是吧！
+
