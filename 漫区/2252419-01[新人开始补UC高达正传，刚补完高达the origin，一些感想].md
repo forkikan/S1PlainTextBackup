@@ -605,3 +605,26 @@ gto动画衔接0079没啥问题吧，按照他这个动画就卡到0079开头，
 
 GTO也不是正传啊，GTO对于原版0079来说都可以算作是野史了，比GQ还离谱的那种。
 
+
+*****
+
+####  takami  
+##### 59#       发表于 2025-5-26 10:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67850215&amp;ptid=2252419" target="_blank">Toby_dak 发表于 2025-5-25 21:13</a>
+
+我是不懂国内社群为啥对GTO充满恶意，同样言辞没出现过在0079小说版和Z剧版上面。对于新人，最重要先入 ...</blockquote>
+入门不能入歪了啊
+
+从GTO入uc高达就像是从《原道救世歌》《原道醒世训》《原道觉世训》入天主教<img src="https://static.stage1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  棍机凹升龙  
+##### 60#       发表于 2025-5-26 10:33
+
+0079我正在看，在打老虎了，之前陆陆续续按z，zz，逆鸭，GTO过了一遍
+
+每一集的剧情密集度都超级爽，画面因为我关注点是剧情推动其实对它的接受程度还好，机战部分肯定没现在的这么细，人物对话肢体语言都能接受
+
