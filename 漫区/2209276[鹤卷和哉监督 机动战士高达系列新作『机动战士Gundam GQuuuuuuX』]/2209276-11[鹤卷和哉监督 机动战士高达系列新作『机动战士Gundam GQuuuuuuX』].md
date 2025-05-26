@@ -8297,3 +8297,26 @@ lies heavy这名字其实也只是承担隐藏的作用和GQuuuuuuX是一样的�
 
 <img src="https://p.sda1.dev/24/95b55d53016cb5cf0e6a0f079779e0e4/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 15505#       发表于 2025-5-26 18:14
+
+<img src="https://p.sda1.dev/24/cb9058332134c70a274557f72a8dc4f6/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  molemole  
+##### 15506#       发表于 2025-5-26 18:16
+
+二号机，你来啦（）
+
+
+*****
+
+####  二阶堂真琉  
+##### 15507#       发表于 2025-5-26 18:22
+
+又是新的敢达喔
+
