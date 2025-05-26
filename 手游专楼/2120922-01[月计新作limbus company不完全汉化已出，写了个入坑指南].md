@@ -34,3 +34,11 @@
 
 上周为了过主线把卯浮强抽了出来，就三四十发还挺沾沾自喜，结果现在说返回全部抽卡资源，感觉亏大发了......
 
+
+*****
+
+####  无证madam  
+##### 1126#       发表于 2025-5-26 20:32
+
+破裂为符辛还了这么多债 结果最后还是给符咒砍了 早干嘛去了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
