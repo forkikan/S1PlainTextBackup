@@ -741,3 +741,13 @@ GTO的剧情就是突出一个行云流水，所以看文戏真心爽过看机�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">GTO动画为什么不出了啊，卡在骡子登场之前，有种寸止的不快感
 
+
+*****
+
+####  香雨香香  
+##### 70#       发表于 2025-5-26 21:19
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">看个动画而已，从哪一部入坑真的重要吗，好看，看得下去不就行了，哪怕看完gto再也看不下去别的高达也无所谓吧
+
+当然看过gto然后在那儿宣传gto才是正统甚至跑去跟人辩经确实该被喷，但单纯自己看看动画无所谓的吧，这也要批判一下争个对错在我看来真是闹麻了
+

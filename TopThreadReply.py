@@ -6,6 +6,7 @@ from pathlib import Path
 from datetime import datetime,timedelta
 import requests,os,time,sys
 from collections import Counter
+import signal
 # from cutword import Cutter
 # from snownlp import SnowNLP
 # import jieba
@@ -71,6 +72,9 @@ def 提取回帖(text):
     # final_reply_content = re.sub(r"\s+", "", final_reply_content)
     # final_reply_content = re.sub(r"<.*?>", "", final_reply_content)
     return filtered_lines
+
+def timeout_handler(signum, frame):
+    raise TimeoutError("Function execution has timed out.")
 
 if __name__ == '__main__':
     根路径="./"
@@ -147,19 +151,29 @@ if __name__ == '__main__':
     RURL = 'https://stage1st.com/2b/forum.php?mod=viewthread&tid=334540&extra=page%3D1'
     s1 = requests.get(RURL, headers=headers,  cookies=cookies)
     content = s1.content
-    rows = re.findall(r'<input type=\"hidden\" name=\"formhash\" value=\"(.*?)\" />', str(content)) #正则匹配找到formhash值
-    if len(rows)!=0:
-        formhash = rows[0]
-        print('formhash is: ' + formhash)
-        subject = u''
-        # Aurl = 'https://raw.fastgit.org/TomoeMami/S1PlainTextBackup/master/A-Thread-id.txt'
-        # s = requests.get(Aurl)
-        # threadid = s.content.decode('utf-8')
-        '''回帖ID，手动修改'''
-        threadid = 2143473
-        '''回帖ID，手动修改'''
-        replyurl = 'https://stage1st.com/2b/forum.php?mod=post&action=reply&fid=151&tid='+str(threadid)+'&extra=page%3D1&replysubmit=yes'
-        #url为要回帖的地址
-        Data = {'formhash': formhash,'message': 回帖字符串,'subject': subject,'posttime':int(time.time()),'wysiwyg':1,'usesig':1}
-        req = requests.post(replyurl,data=Data,headers=headers,cookies=cookies)
-        print(req)
+    signal.signal(signal.SIGALRM, timeout_handler)
+    signal.alarm(60)  # 设置超时时间为60秒
+    try:
+        while True:
+            rows = re.findall(r'<input type=\"hidden\" name=\"formhash\" value=\"(.*?)\" />', str(content)) #正则匹配找到formhash值
+            if len(rows)!=0:
+                formhash = rows[0]
+                print('formhash is: ' + formhash)
+                subject = u''
+                # Aurl = 'https://raw.fastgit.org/TomoeMami/S1PlainTextBackup/master/A-Thread-id.txt'
+                # s = requests.get(Aurl)
+                # threadid = s.content.decode('utf-8')
+                '''回帖ID，手动修改'''
+                threadid = 2143473
+                '''回帖ID，手动修改'''
+                replyurl = 'https://stage1st.com/2b/forum.php?mod=post&action=reply&fid=151&tid='+str(threadid)+'&extra=page%3D1&replysubmit=yes'
+                #url为要回帖的地址
+                Data = {'formhash': formhash,'message': 回帖字符串,'subject': subject,'posttime':int(time.time()),'wysiwyg':1,'usesig':1}
+                req = requests.post(replyurl,data=Data,headers=headers,cookies=cookies)
+                print(req)
+                break
+            else:
+                print('none formhash!')
+                continue
+    except TimeoutError:
+        print("Function execution has timed out.")

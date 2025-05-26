@@ -8890,3 +8890,78 @@ khara的保密是不是该管管了，怎么经常被人泄密
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  盐盐盐盐盐  
+##### 15568#       发表于 2025-5-26 21:16
+
+怕不是和修司这个好脾气nt呆多了以为不说话对方都能懂<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+已经开始期待战场上姐妹吵架了，话说开才行嘛
+
+*****
+
+####  YU_JI  
+##### 15569#       发表于 2025-5-26 21:18
+
+说实话这俩目前没啥矛盾能演变成互相杀红眼的深仇大恨，除非继续误会、继续上头，真要狠狠对立的话需要再立一个足够充分的矛盾
+
+
+*****
+
+####  ryanghj  
+##### 15570#       发表于 2025-5-26 21:20
+
+难到鹤卷一直不让玛秋杀人，为的就是杀的第一个就是喵安<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">？
+
+*****
+
+####  无念  
+##### 15571#       发表于 2025-5-26 21:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67853471&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-26 21:18</a>
+说实话这俩目前没啥矛盾能演变成互相杀红眼的深仇大恨，除非继续误会、继续上头，真要狠狠对立的话需要再立 ...</blockquote>
+你不要说的好像修斯要死了一样<img src="https://static.stage1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  王留美  
+##### 15572#       发表于 2025-5-26 21:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67853479&amp;ptid=2209276" target="_blank">无念 发表于 2025-5-26 21:20</a>
+ 你不要说的好像修斯要死了一样  —— 来自 HONOR SDY-AN00, Android 14, 鹅球 v3.5.99 ...</blockquote>
+事到如今不来一个“爸爸？修斯吗？呜哇”很难说得过去啊<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 15573#       发表于 2025-5-26 21:23
+
+ 本帖最后由 YU_JI 于 2025-5-26 21:25 编辑 
+<blockquote>无念 发表于 2025-5-26 21:20
+你不要说的好像修斯要死了一样
+
+—— 来自 HONOR SDY-AN00, Android 14, 鹅球 v3.5.99 ...</blockquote>
+
+搞不好这俩理解不了zknv，真以为牢修似了（）
+
+不过两边有紫婆和夏利亚，泽克诺瓦的信息差可以抹，就看大人们使不使绊子了
+
+*****
+
+####  otaku21126  
+##### 15574#       发表于 2025-5-26 21:23
+
+最后一话新登场一台机体，不是“HGGQUUUUUUX”而是“HGUC”，这个想法还挺有趣的
+
+但是感觉GQX不太可能采用这种有趣的点子，采用的都是谁也预测不到的展开
+
+*****
+
+####  我聞如是  
+##### 15575#       发表于 2025-5-26 21:25
+
+最後一話艾爾美斯登場就是HGUC啊
+
