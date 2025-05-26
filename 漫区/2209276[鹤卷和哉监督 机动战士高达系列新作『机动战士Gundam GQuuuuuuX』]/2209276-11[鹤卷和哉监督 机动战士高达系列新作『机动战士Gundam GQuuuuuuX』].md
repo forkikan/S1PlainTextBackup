@@ -8215,3 +8215,37 @@ gqux建造的目的估计就是冲着泽克诺瓦去的，搞不好是大规模�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  岸浪白野  
+##### 15497#       发表于 2025-5-26 16:45
+
+ 本帖最后由 岸浪白野 于 2025-5-26 16:50 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67852690&amp;ptid=2209276" target="_blank">我聞如是 发表于 2025-5-26 16:30</a>
+看到匿名板討論GQuuuuuuX的真名會不會就是alphacide
+
+突然想到，企劃書裡的lies heavy會不會也是假名？剛好 ...</blockquote>
+不用想就是<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+lies heavy这名字其实也只是承担隐藏的作用和GQuuuuuuX是一样的只是假名
+阿尔法杀手才是一直要藏的
+而且原案的企划名就已经叫机动战士高达阿尔法杀手
+
+
+*****
+
+####  王留美  
+##### 15498#       发表于 2025-5-26 16:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67852716&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-26 16:43</a>
+ gqux建造的目的估计就是冲着泽克诺瓦去的，搞不好是大规模杀伤性武器  结合老太婆的手电筒项目，打算在地球 ...</blockquote>
+老太婆没那么疯，搞地球对她没有直接利益，反而会便宜了基连
+如果真要搞事那一定是冲着基连去的
+
+*****
+
+####  ykyin09  
+##### 15499#       发表于 2025-5-26 16:51
+
+所以结局是一群人开着ms把手电筒往别处推吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
