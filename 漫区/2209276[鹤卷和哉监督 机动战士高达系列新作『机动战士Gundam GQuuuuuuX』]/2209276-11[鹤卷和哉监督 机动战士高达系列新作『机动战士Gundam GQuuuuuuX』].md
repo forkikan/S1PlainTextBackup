@@ -9196,3 +9196,21 @@ khara的保密是不是该管管了，怎么经常被人泄密
 不過這也代表紫太婆和基 ...</blockquote>
 这个是不可能的（）就算跳时间也会在希洛克来之前
 
+
+*****
+
+####  ryanghj  
+##### 15599#       发表于 2025-5-27 01:03
+
+看这个驾驶服设定就知道了，上了索顿依然穿的是安琪给的衣服，只不过加了点东西
+
+<img src="https://img.stage1st.com/forum/202505/27/010329ostuvewewov2xh0f.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (145.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-27 01:03 上传
+
+平时穿校服？
+
