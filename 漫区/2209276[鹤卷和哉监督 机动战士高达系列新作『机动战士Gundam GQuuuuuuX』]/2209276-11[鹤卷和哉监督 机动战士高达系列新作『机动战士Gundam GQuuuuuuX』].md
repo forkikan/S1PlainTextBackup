@@ -8126,3 +8126,14 @@ https://x.com/MandarinG0/status/1923745936108552439
 
 然后TV谁知道万代有没有藏呢（）
 
+
+*****
+
+####  liy30dlys  
+##### 15488#       发表于 2025-5-26 14:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67852221&amp;ptid=2209276" target="_blank">jojonathan 发表于 2025-5-26 13:59</a>
+
+说起来既然gqux就一个季度 那明年播啥高达啊万代说好的年年都播</blockquote>
+要不把seed后面加的剪成一季番再播一遍<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
