@@ -751,3 +751,21 @@ GTO的剧情就是突出一个行云流水，所以看文戏真心爽过看机�
 
 当然看过gto然后在那儿宣传gto才是正统甚至跑去跟人辩经确实该被喷，但单纯自己看看动画无所谓的吧，这也要批判一下争个对错在我看来真是闹麻了
 
+
+*****
+
+####  オルガピピック  
+##### 71#       发表于 2025-5-26 21:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67851368&amp;ptid=2252419" target="_blank">劳动改造归来 发表于 2025-5-26 09:46</a>
+
+你们居然推荐新人看GTO的动画来入坑？GTO动画这么反动右倾洗白纳粹反战败你们也觉得好看？你们是不是瞎了， ...</blockquote>
+说白了都无所谓的 看的人又不是没有任何判断力 不也有大量种入坑的回看uc嘛 uc系列入坑其实更推荐从现代一点的gto 独角兽和雷霆宙域看起<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  王元姬无惨  
+##### 72#       发表于 2025-5-26 21:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我推荐直接看gto漫画 塞拉的乳头没有缩水！
+
