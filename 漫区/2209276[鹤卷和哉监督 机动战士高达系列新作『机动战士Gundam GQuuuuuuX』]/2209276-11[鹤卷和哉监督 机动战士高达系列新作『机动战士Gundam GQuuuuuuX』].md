@@ -8269,3 +8269,13 @@ lies heavy这名字其实也只是承担隐藏的作用和GQuuuuuuX是一样的�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">我觉得大概率还是有降卫星的环节
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 15502#       发表于 2025-5-26 17:30
+
+如果说推卫星是逆鸭的出力的浪漫场面，希望本作的浪漫场面不是推卫星。
+
+老登起的事端就该让老登解决，应该出力的浪漫场面该是年轻三人组间的事。
+
