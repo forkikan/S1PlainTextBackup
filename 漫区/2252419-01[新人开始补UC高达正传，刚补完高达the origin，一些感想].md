@@ -570,3 +570,13 @@ gto动画衔接0079没啥问题吧，按照他这个动画就卡到0079开头，
 
 剧场版加了很多额外的设定让骡子灭了南十字星小队。考虑到tv回只有22-24分钟，而剧场版是90–120分钟的时长，这样的加戏和修改是必然的。
 
+
+*****
+
+####  syndrome2032  
+##### 55#       发表于 2025-5-26 09:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67851291&amp;ptid=2252419" target="_blank">妄想系同盟 发表于 2025-5-26 09:19</a>
+别忘了gto还有部剧场版啊虚空给吉翁造了一支精锐小队，虚空给多安发了个看守核弹的秘密任务，虚空小队被骡 ...</blockquote>
+多安的岛把骡子首败给删了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
