@@ -2728,3 +2728,21 @@ live的歌也不搭
 
 <img src="https://p.sda1.dev/24/6c5ef7749fe391624921058a1c619ebb/7523bfdfgy1i1qswigdajj22du2tee82.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新HGCG  
+##### 242#       发表于 2025-5-26 11:46
+
+岛崎信长是因为绿川光而入了声优这行的
+
+所以凸变英雄X里故意这么安排的吗
+
+<img src="https://img.stage1st.com/forum/202505/26/114455gjiy4syuyn7bp4zj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (183.11 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-26 11:44 上传
+

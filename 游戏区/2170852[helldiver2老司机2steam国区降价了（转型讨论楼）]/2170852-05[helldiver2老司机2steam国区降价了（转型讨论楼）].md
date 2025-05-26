@@ -1738,3 +1738,33 @@ QQ图片20250525184309.jpg
 刷了几次蓝币感觉太无聊了，直接就氪了三个通行证
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  FLZB  
+##### 6087#       发表于 2025-5-26 11:50
+
+光能谁爱打谁打吧，这几天都是被利维坦和纸飞机阴死的，提供不了公平有趣的挑战，就靠这种下三滥手段恶心人，我看以后没指令谁还愿意打这个垃圾阵营<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sloorz  
+##### 6088#       发表于 2025-5-26 11:56
+
+请教下，AFK很久后回来打。武器升级系统打哪个武器比较好？我打了几把长柄镰，感觉用处不大？
+
+新的军旗债券好用吗？
+
+*****
+
+####  IWS2000  
+##### 6089#       发表于 2025-5-26 11:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67851829&amp;ptid=2170852" target="_blank">sloorz 发表于 2025-5-26 11:56</a>
+请教下，AFK很久后回来打。武器升级系统打哪个武器比较好？我打了几把长柄镰，感觉用处不大？
+
+新的军旗债券 ...</blockquote>
+主手最强爆裂统
+新的债券不是蓝币太多别买
+
