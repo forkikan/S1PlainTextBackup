@@ -11055,3 +11055,15 @@ NEET待会儿看存档。
 
 repo就是R.E.P.O.，一个类似于致命公司的游戏
 
+
+*****
+
+####  sino__unnko3  
+##### 18577#       发表于 2025-5-27 02:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67853965&amp;ptid=2018830" target="_blank">TiHaru 发表于 2025-5-27 01:49</a>
+就是一个定型文有人改了个套她的版本，不知道她知不知道那个是定型文
+
+repo就是R.E.P.O.，一个类似于致命公 ...</blockquote>
+没找到这篇定型文的帖子，倒是看到了昨天说打clash的路人推文
+
