@@ -7884,3 +7884,40 @@ seed事实上放弃了nt和未来这些又高又深又玄乎又电波的东西�
 
 玛秋没战绩是没问题，个人觉得如果这一集让她开枪真的打到安琪了，然后在机子上情绪更复杂点而不是脑子里只有kirakira可能观感会好些
 
+
+*****
+
+####  猪突猛进R  
+##### 15465#       发表于 2025-5-26 11:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67851702&amp;ptid=2209276" target="_blank">syndrome2032 发表于 2025-5-26 11:12</a>
+
+大基是疯掉的紫婆，紫婆是不那么疯的大基。
+
+这就是紫婆和大基的区别。</blockquote>
+恰恰相反，基连有一套完整的逻辑，甭管是不是小胡子跟屁虫，他一直按自己那套在走。
+
+反而紫婆比较情绪化，谁能想到在大决战的关键时刻，她会爆了他哥的头<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 15466#       发表于 2025-5-26 11:28
+
+<blockquote>千千千千鸟 发表于 2025-5-26 11:22
+玛秋没战绩是没问题，个人觉得如果这一集让她开枪真的打到安琪了，然后在机子上情绪更复杂点而不是脑子里只 ...</blockquote>
+第七集的在麻球这条线上的主要目的就是为了表现这丫头走投无路彻底癫了的低谷处境，这点我倒觉得问题不大，更复杂一点的情绪解构应该是留给后续集数的反思环节更好，当然要是剧本真打算把麻球这个陀螺抽到底的话当我没说（）
+
+*****
+
+####  dbyboy  
+##### 15467#       发表于 2025-5-26 11:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67851170&amp;ptid=2209276" target="_blank">大十字紅朔 发表于 2025-5-26 08:27</a>
+商业化这个说法就很好笑，反正我没提这个词
+
+高达本来就是商品，富野是个生意人，富野和玩具商的冲突往往 ...</blockquote>
+我第一次能听到把商业化成绩叫伟大的，太后现代了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
