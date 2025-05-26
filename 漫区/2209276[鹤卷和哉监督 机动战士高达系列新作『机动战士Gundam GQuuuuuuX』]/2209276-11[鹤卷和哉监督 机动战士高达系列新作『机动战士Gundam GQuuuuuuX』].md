@@ -9093,3 +9093,25 @@ khara的保密是不是该管管了，怎么经常被人泄密
 
 这队兄妹的很多信心都来自政治和惯性思维考虑，忽略了人性的影响力。
 
+
+*****
+
+####  Steel.Haze  
+##### 15588#       发表于 2025-5-26 22:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67851809&amp;ptid=2209276" target="_blank">玖羽 发表于 2025-5-26 11:49</a>
+
+不完全是，他们俩不是单纯的上下级关系，当年卡斯帕尔的地位比基西莉亚高，同时按年龄来说基西莉亚相当于 ...</blockquote>
+是的，我是描述这个意思，基西利亚就是一种套近乎，而且选择了一种她觉得合适的叙旧方式。不过这方面的选择表明了她用人角度很喜欢看人下菜碟的安抚。
+
+
+*****
+
+####  Steel.Haze  
+##### 15589#       发表于 2025-5-26 22:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67851693&amp;ptid=2209276" target="_blank">kkl12355 发表于 2025-5-26 11:11</a>
+
+紫婆很像曹老板，不失为枭雄，尤其是和大基比。</blockquote>
+是的，如果德金家没有大基等，基西利亚会采取一种能顺着德金的稳健独立策略。不过基连本质是装疯，借此进行激进战略，而紫婆自己也很喜欢这些激进战略，只是只有她的话，她会谨慎得多。
+
