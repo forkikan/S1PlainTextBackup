@@ -497,3 +497,24 @@ gto被开除因为确实改了不少啊。
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  银川智将Kuroky  
+##### 47#       发表于 2025-5-26 08:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67849907&amp;ptid=2252419" target="_blank">hamartia 发表于 2025-5-25 19:00</a>
+
+79还分TV和剧场版，剧场版算是富野维持自身矜持的导剪版，去掉了当初TV为了卖玩具加的一些设定 ...</blockquote>
+被流星锤砸死怎么就能促进卖玩具了！
+
+*****
+
+####  银川智将Kuroky  
+##### 48#       发表于 2025-5-26 08:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67849807&amp;ptid=2252419" target="_blank">桜庭ななみ 发表于 2025-5-25 18:03</a>
+
+0079有鸭妹出浴福利，那个年代（日本）实在太棒了，然后再看zeta全都是修正主义，那个年代（日本）实在是太 ...</blockquote>
+0079最出名的洗澡不是黄毛吗
+
