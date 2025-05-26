@@ -174,3 +174,15 @@ purirun的弱智感降低了
 
 而且这个问题貌似日本本土也存在，据B站UP主关于Rainbow Flavor 32的视频分享反映，偶Q的摊位甚至不如天Q宠Q。
 
+
+*****
+
+####  我吃诗人  
+##### 891#       发表于 2025-5-26 15:01
+
+网红staff大绫老师老实打工，其他人也是不温不火的灌水，最差也就带货回，就连寄予厚望的加藤桑也在写了个不知所谓的三人大招回后人间蒸发，那确实没啥能说的吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说希望最近的主线回多拍几集
+
+bg方面凯特桑更是神隐，豚豚厨厨停火和平，主打一个安心。总不能混沌到炒起胖虎uta的bg吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+wait我发现两个人首字母都是K.T.，嚯嚯，压力马斯内<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
