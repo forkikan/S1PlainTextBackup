@@ -154,3 +154,11 @@ purirun的弱智感降低了
 
 —— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  himfsz  
+##### 889#       发表于 2025-5-26 11:40
+
+去年我从自己脑袋里面把它开除了，基本把我不喜欢的雷都踩了，唯一有价值的是cure nyammy和她虐畜的那几下
+
