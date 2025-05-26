@@ -7812,3 +7812,16 @@ SEED这个正剧TV系列放弃了继续向老登们兜售“高达是很深奥�
 
 40k的暗黑天使炸掉30k的卡利班老家是吧
 
+
+*****
+
+####  kenqqex  
+##### 15458#       发表于 2025-5-26 09:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67851290&amp;ptid=2209276" target="_blank">whzfjd 发表于 2025-5-26 09:19</a>
+
+补了几集 0079，节奏酣畅淋漓还挺好吃的，看到紫色老太婆和脱了头盔的夏亚一起在食堂吃饭绷不住了 ...</blockquote>
+所以说g跨时最大的贡献就是给很多想补0079的人跨越了门槛
+
+其实0079 z 我们老登偶尔就会重新看一次的 真的很好看
+
