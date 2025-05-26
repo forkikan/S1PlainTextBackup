@@ -528,3 +528,11 @@ gto动画衔接0079没啥问题吧，按照他这个动画就卡到0079开头，
 
 当年看完0079，甚至看完z都有一大堆事情不了解，后来看了gto动画才懂了这些人是从哪来的
 
+
+*****
+
+####  妄想系同盟  
+##### 50#       发表于 2025-5-26 09:19
+
+别忘了gto还有部剧场版啊<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">戏太多了
+

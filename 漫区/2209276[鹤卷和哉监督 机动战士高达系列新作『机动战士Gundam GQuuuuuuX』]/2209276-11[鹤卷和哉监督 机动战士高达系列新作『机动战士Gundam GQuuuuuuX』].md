@@ -7787,3 +7787,20 @@ SEED这个正剧TV系列放弃了继续向老登们兜售“高达是很深奥�
 
 假如是活在回忆或闪亮闪亮聊天室里，算返场吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  whzfjd  
+##### 15455#       发表于 2025-5-26 09:19
+
+补了几集 0079，节奏酣畅淋漓还挺好吃的，看到紫色老太婆和脱了头盔的夏亚一起在食堂吃饭绷不住了
+
+*****
+
+####  57042711  
+##### 15456#       发表于 2025-5-26 09:21
+
+下一集也不能说是毫无关系吧，要是真的是修司这边发功那边就把所罗门炸了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
