@@ -8428,3 +8428,87 @@ lies heavy这名字其实也只是承担隐藏的作用和GQuuuuuuX是一样的�
 
 早该折磨折磨金世俊了，在gqx的表现太不让人满意了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  YU_JI  
+##### 15520#       发表于 2025-5-26 18:44
+
+ 本帖最后由 YU_JI 于 2025-5-26 18:45 编辑 
+
+头部乍一看没有类似GQX的开合结构，应该是常驻欧米茄塞克缪
+
+
+*****
+
+####  无念  
+##### 15521#       发表于 2025-5-26 18:45
+
+明明是对称设计，这光打的嘴歪连斜的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  无念  
+##### 15522#       发表于 2025-5-26 18:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67853066&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-26 18:44</a>
+头部乍一看没有类似GQX的开合结构，应该是常驻欧米茄塞克缪</blockquote>
+不好说，旁边的V型天线这么粗，感觉移下来左右合遮住上半张脸绰绰有余
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  cayon  
+##### 15523#       发表于 2025-5-26 18:49
+
+这个是天线没展开的形态吧
+
+*****
+
+####  57042711  
+##### 15524#       发表于 2025-5-26 18:49
+
+这图太黑直接幻视胡子高达了<img src="https://static.stage1st.com/image/smiley/bundam2017/027.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  YU_JI  
+##### 15525#       发表于 2025-5-26 18:49
+
+<blockquote>无念 发表于 2025-5-26 18:46
+不好说，旁边的V型天线这么粗，感觉移下来左右合遮住上半张脸绰绰有余
+
+—— 来自 HONOR SDY-AN00, Andro ...</blockquote>
+确实，这么看确实像是左右开脸的设计，这个诡异的面部也确实是藏起来更合理
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 15526#       发表于 2025-5-26 18:49
+
+无名异端是你吗？
+
+
+*****
+
+####  ryanghj  
+##### 15527#       发表于 2025-5-26 18:52
+
+喵安真的要被拉到格拉纳达强化了
+
+*****
+
+####  无念  
+##### 15528#       发表于 2025-5-26 18:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67853093&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-26 18:52</a>
+喵安真的要被拉到格拉纳达强化了</blockquote>
+可以看看强化要多久，搞不好已经0086了
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
