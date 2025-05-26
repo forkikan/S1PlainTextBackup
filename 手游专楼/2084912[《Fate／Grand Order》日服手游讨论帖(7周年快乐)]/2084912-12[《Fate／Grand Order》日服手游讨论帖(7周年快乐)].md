@@ -968,3 +968,44 @@
 最后打不动剩下五十多抽直接氪了一单，在保底前两 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看来是真的喜欢
 
+
+*****
+
+####  希望之花  
+##### 16818#       发表于 2025-5-26 13:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67851124&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-5-26 07:51</a>
+
+看来是真的喜欢</blockquote>
+更多是沉没成本<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 16819#       发表于 2025-5-26 13:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67852116&amp;ptid=2084912" target="_blank">希望之花 发表于 2025-5-26 13:19</a>
+
+更多是沉没成本</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这种时候只能骗自己欧非守恒了
+
+*****
+
+####  alucardcz  
+##### 16820#       发表于 2025-5-26 13:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67852131&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-5-26 13:25</a>
+
+这种时候只能骗自己欧非守恒了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">但你是真的欧
+
+*****
+
+####  qixinno2  
+##### 16821#       发表于 2025-5-26 13:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67852143&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-5-26 13:29</a>
+
+但你是真的欧</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">每年五星最少比我多7个以上的狗萌新说什么呢
+
