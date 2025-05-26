@@ -923,3 +923,48 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">基本都是一宝仓管的仰望二宝起步大佬
 
+
+*****
+
+####  alucardcz  
+##### 16814#       发表于 2025-5-24 18:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67847439&amp;ptid=2084912" target="_blank">森兰丸 发表于 2025-5-24 18:34</a>
+
+早就过了时效了....你该忘了!</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">忘不了一点
+
+*****
+
+####  khxooo  
+##### 16815#       发表于 2025-5-25 01:49
+
+ 本帖最后由 khxooo 于 2025-5-25 01:51 编辑 
+
+157根，小贝爆了一次金币，现在换剑元帅了。
+
+*****
+
+####  希望之花  
+##### 16816#       发表于 2025-5-26 07:02
+
+为了艾雷王周末刷了七百多把冠位战把麻雀刷满绊了还没出<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+最后打不动剩下五十多抽直接氪了一单，在保底前两抽终于出来了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+在日元贬值的背景下官网95折充值真便宜啊（重点错
+
+你踏马的330抽天井就算了，保底前抽到了还重置计数不能多换一个，老子真是草了
+
+*****
+
+####  qixinno2  
+##### 16817#       发表于 2025-5-26 07:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67851094&amp;ptid=2084912" target="_blank">希望之花 发表于 2025-5-26 07:02</a>
+
+为了艾雷王周末刷了七百多把冠位战把麻雀刷满绊了还没出
+
+最后打不动剩下五十多抽直接氪了一单，在保底前两 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看来是真的喜欢
+

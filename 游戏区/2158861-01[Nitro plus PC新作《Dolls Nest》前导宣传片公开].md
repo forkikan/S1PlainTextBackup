@@ -14,3 +14,16 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  squallx  
+##### 221#       发表于 2025-5-26 07:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67851107&amp;ptid=2158861" target="_blank">serj005 发表于 2025-5-26 07:28</a>
+打完第一张图了，
+听说是acv的感觉，但实际上还是比acv要更灵活点，画面配色才是和acv一样的瞎眼，大森林室 ...</blockquote>
+有回城道具 商店有卖  最终关还会给一个无限次使用的多周目可用  不必省
+
+—— 来自 OnePlus PJZ110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
