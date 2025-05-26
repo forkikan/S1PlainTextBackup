@@ -1490,3 +1490,13 @@ theO少个盾，不能飞，加防要超强势；这次靠着劲敌词条20%，�
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  windtrack  
+##### 1620#       发表于 2025-5-27 00:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67853565&amp;ptid=2071758" target="_blank">nagamasa 发表于 2025-5-26 21:53</a>
+你是指商店的G点吗？其实按理说除了第一个月要当61居士或者钢球超人之外，后面体力每天就用来扫hard的话 ...</blockquote>
+不够的，每日h捕获也就差不多够买光ur材料，换ssr突破还得拆铁球坦克
+
