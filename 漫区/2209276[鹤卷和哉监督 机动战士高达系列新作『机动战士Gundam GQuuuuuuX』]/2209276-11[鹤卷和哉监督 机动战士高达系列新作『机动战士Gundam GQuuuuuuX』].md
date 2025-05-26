@@ -7743,3 +7743,18 @@ TV第7集                                  ⬅️我们现
 [https://x.com/takanocchi9/status/1926095161559322629](https://x.com/takanocchi9/status/1926095161559322629)
 <img src="https://p.sda1.dev/24/60d322a1f082efbd6eff74e1402add29/20250526_022926.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  某某某人  
+##### 15452#       发表于 2025-5-26 08:12
+
+<blockquote>wbtsy 发表于 2025-5-25 16:10
+我觉得这个片的剧情人物设计还是挺清晰的。
+
+但是有两点没做好：
+</blockquote>
+前3集重播劇場版還好，我就當作gqx比其他動畫遲3星期播出好了
+
+上周看見下回預告時真的是兩眼一黑，キラキラ了2個月後忽然要寸止一周……
+
