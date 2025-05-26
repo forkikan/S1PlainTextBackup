@@ -7988,3 +7988,16 @@ seed事实上放弃了nt和未来这些又高又深又玄乎又电波的东西�
 
 今年还有永恒，你高财报应该会再攀新高了
 
+
+*****
+
+####  大十字紅朔  
+##### 15475#       发表于 2025-5-26 12:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67851817&amp;ptid=2209276" target="_blank">syndrome2032 发表于 2025-5-26 11:52</a>
+
+大基的疯当然是系统性的，从再战十年到手电筒，然后一炮把德金和雷比尔一起蒸发了。本质是拿亲爹当诱饵。 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/carton2017/024.png" referrerpolicy="no-referrer">吉恩最后会输就是因为吉利西亚把基连崩了，指挥混乱情况急转直下
+
+不过最终吉恩还是会输的，吉利西亚想的是献祭基连早点讲和，基连则是没退路又不能献祭自己
+
