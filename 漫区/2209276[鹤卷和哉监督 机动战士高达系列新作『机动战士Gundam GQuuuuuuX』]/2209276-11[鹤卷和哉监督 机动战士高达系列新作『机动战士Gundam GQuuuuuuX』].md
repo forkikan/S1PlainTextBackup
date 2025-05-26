@@ -8527,3 +8527,11 @@ lies heavy这名字其实也只是承担隐藏的作用和GQuuuuuuX是一样的�
 
 快进到0087吧，我要看超级木星人回归打新格里普斯战役
 
+
+*****
+
+####  猪突猛进R  
+##### 15531#       发表于 2025-5-26 19:06
+
+快进到0087，我要看真哈曼开卡碧尼<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
