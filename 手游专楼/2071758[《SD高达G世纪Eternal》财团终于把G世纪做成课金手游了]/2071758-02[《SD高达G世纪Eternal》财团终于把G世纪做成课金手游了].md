@@ -1368,3 +1368,13 @@ theO少个盾，不能飞，加防要超强势；这次靠着劲敌词条20%，�
 
 机子升级武器，会给加战力吗，有个任务要队伍有18战力
 
+
+*****
+
+####  nagamasa  
+##### 1609#       发表于 2025-5-26 13:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67852140&amp;ptid=2071758" target="_blank">格雷殿下 发表于 2025-5-26 13:28</a>
+机子升级武器，会给加战力吗，有个任务要队伍有18战力</blockquote>
+加，每台机还不一样<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
