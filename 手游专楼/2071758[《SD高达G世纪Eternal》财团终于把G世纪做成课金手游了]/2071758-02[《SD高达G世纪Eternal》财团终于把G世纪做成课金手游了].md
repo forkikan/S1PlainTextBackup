@@ -1512,3 +1512,13 @@ theO少个盾，不能飞，加防要超强势；这次靠着劲敌词条20%，�
 
 当然自由（destiny）按这尿性也是迟早出，看sf驾驶专门选了张鼻子看人的歪脸就知道，肯定要再来个爆种状态的
 
+
+*****
+
+####  fpp1992  
+##### 1622#       发表于 2025-5-27 01:05
+
+两盾三支援真的好用，无氪蹭进15w了<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/24/021c90295f3d8c025d1a46fbc94a4738/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22081212C, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
