@@ -9056,3 +9056,23 @@ khara的保密是不是该管管了，怎么经常被人泄密
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  ftyaid  
+##### 15585#       发表于 2025-5-26 22:06
+
+现在的我是玛丘，除此以外我谁都不是
+
+你说side6要抓天手让叶？和我玛丘有什么关系
+
+*****
+
+####  老耗子  
+##### 15586#       发表于 2025-5-26 22:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67852750&amp;ptid=2209276" target="_blank">ykyin09 发表于 2025-5-26 16:51</a>
+
+所以结局是一群人开着ms把手电筒往别处推吗</blockquote>
+一堆人围着手电筒打会战这不格里普斯嘛<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
