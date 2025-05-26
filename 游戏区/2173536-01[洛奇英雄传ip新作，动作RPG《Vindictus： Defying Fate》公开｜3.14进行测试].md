@@ -1103,3 +1103,15 @@ BOSS出硬直不看积蓄只看特定技能，联机就是谁快谁有理。明�
 6.9号A测，所以为什么没有出杖子跟镰刀</blockquote>
 这个测试应该无需报名筛选的？
 
+
+*****
+
+####  放大镜  
+##### 118#       发表于 2025-5-26 23:02
+
+[https://www.bilibili.com/video/BV1KijjzDEvk](https://www.bilibili.com/video/BV1KijjzDEvk)
+
+应该是开放测试，先塞个愿望单吧
+
+测试时间一周，内容比上次丰富很多
+
