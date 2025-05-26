@@ -788,3 +788,11 @@ GTO无论漫画还是动画作为入坑选项都算是门槛很低的了  没�
 
 所以有很长一段时间里对骡子的印象是喜欢金毛的种马  以及只知道夜莺不知道山楂饼<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  molemole  
+##### 75#       发表于 2025-5-26 23:17
+
+始终无法忘记gto漫画让小林对骡子下跪说把芙劳让给他…
+
