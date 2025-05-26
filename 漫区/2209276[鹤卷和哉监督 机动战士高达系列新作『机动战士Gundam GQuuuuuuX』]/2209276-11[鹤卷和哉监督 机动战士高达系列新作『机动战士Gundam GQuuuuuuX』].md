@@ -8383,3 +8383,48 @@ lies heavy这名字其实也只是承担隐藏的作用和GQuuuuuuX是一样的�
 这个u形的领口有GQX的既视感，怕不是喵安开的对位机，下一集是喵安恶堕记吗？ ...</blockquote>
 没错，这就是喵安开的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  YU_JI  
+##### 15515#       发表于 2025-5-26 18:35
+
+ 本帖最后由 YU_JI 于 2025-5-26 18:36 编辑 
+
+也就是说紫婆没把GQX带走，因为重点在于更新更潮的二号机是吗，GQX只是试验机而已<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ftyaid  
+##### 15516#       发表于 2025-5-26 18:40
+
+天空的学校既视感要又+1了（）
+
+
+*****
+
+####  cckuku  
+##### 15517#       发表于 2025-5-26 18:40
+
+直觉告诉我它或许是主角三人组里最好看的那一台<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我聞如是  
+##### 15518#       发表于 2025-5-26 18:40
+
+好奇這台是GQ的2號機，還是GQ才是2號機
+
+還有賽可謬的版本號
+
+代號應該叫作畫殺手吧
+
+感覺就非常難畫，仿佛聽到了金世俊的哀號<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  创始’’’天翔  
+##### 15519#       发表于 2025-5-26 18:43
+
+早该折磨折磨金世俊了，在gqx的表现太不让人满意了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
