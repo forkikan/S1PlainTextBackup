@@ -1291,3 +1291,26 @@ theO少个盾，不能飞，加防要超强势；这次靠着劲敌词条20%，�
 
 从gp下的游戏，没研究是什么服，估计是日服
 
+
+*****
+
+####  马桶3  
+##### 1602#       发表于 2025-5-26 10:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67851499&amp;ptid=2071758" target="_blank">wing130083 发表于 2025-5-26 10:18</a>
+话说我前两天玩还没问题，今天只要进主线关就在开打之前说日期变了返回主页
+
+无限循环进不了图，是什么情况 ...</blockquote>
+参考官方公告
+<img src="https://p.sda1.dev/24/2d7acbc3f9f15329881333d4b378ad12/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2408A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  CCMkIII  
+##### 1603#       发表于 2025-5-26 10:40
+
+能天使正义托2飞翼0马甲E勉强打进大师，3星强自3星拉妖太哈人了
+

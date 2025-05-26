@@ -141,3 +141,16 @@ purirun的弱智感降低了
 都放完一个季度才23页，去年汪Q专楼到第三集就吵了23页</blockquote>
 大部分剧情都太典了，而且演出上也很少有什么特别的亮点，让人吵不起来<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 888#       发表于 2025-5-26 10:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67851402&amp;ptid=2208663" target="_blank">lyflyflxf 发表于 2025-5-26 09:54</a>
+大部分剧情都太典了，而且演出上也很少有什么特别的亮点，让人吵不起来 ...</blockquote>
+偶Q自己也看得有点乏力<img src="https://static.stage1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+今年三个Q娃只有kyunkyun有吸引力，而且还有两只妖精败坏观感<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
