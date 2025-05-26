@@ -8194,3 +8194,24 @@ UCE手游玩的很花啊</blockquote>
 
 可能後來決定把高堡奇人要素拔掉(而且liesheavy作為機體名好怪)，才改成了佔位符QuuuuuuX
 
+
+*****
+
+####  ryanghj  
+##### 15495#       发表于 2025-5-26 16:43
+
+gqux建造的目的估计就是冲着泽克诺瓦去的，搞不好是大规模杀伤性武器
+
+结合老太婆的手电筒项目，打算在地球引发超大规模的灾难？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  ryanghj  
+##### 15496#       发表于 2025-5-26 16:44
+
+要说冷战主题，怎么能没有核军备竞赛<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
