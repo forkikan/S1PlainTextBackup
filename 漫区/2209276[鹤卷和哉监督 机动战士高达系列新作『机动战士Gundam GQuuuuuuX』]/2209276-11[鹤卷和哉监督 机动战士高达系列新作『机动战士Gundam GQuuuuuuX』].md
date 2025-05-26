@@ -8170,3 +8170,15 @@ https://x.com/MandarinG0/status/1923745936108552439
 
 UCE手游玩的很花啊
 
+
+*****
+
+####  无念  
+##### 15493#       发表于 2025-5-26 15:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67852469&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-26 15:25</a>
+UCE手游玩的很花啊</blockquote>
+的确，要说老登圆梦，我觉得UCE那边圆梦的场景多了去了，搞不好哪天狗代就松口让他们先拍几卡aoz或者海盗来试水温了
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
