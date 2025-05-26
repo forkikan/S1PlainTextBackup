@@ -1326,3 +1326,26 @@ theO少个盾，不能飞，加防要超强势；这次靠着劲敌词条20%，�
 </blockquote>
 好的，谢谢
 
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 1605#       发表于 2025-5-26 12:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67849754&amp;ptid=2071758" target="_blank">zzy516232108 发表于 2025-5-25 17:24</a>
+
+国际服不能绑日本的万代账号，要换个区域？
+
+真麻烦啊，万代</blockquote>
+国际服需要帮的万代账号注册地区不能选日本
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 1606#       发表于 2025-5-26 12:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67851590&amp;ptid=2071758" target="_blank">CCMkIII 发表于 2025-5-26 10:40</a>
+
+能天使正义托2飞翼0马甲E勉强打进大师，3星强自3星拉妖太哈人了</blockquote>
+报机体没意义，要先说什么母舰
+
