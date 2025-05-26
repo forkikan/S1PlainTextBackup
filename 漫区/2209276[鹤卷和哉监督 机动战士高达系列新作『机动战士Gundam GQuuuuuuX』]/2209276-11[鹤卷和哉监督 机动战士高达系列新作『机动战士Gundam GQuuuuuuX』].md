@@ -8735,3 +8735,92 @@ lies heavy这名字其实也只是承担隐藏的作用和GQuuuuuuX是一样的�
 
 不是二号机但是同一个设计理念的两个分支的话本质和二号机也差不了多少吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kria  
+##### 15553#       发表于 2025-5-26 20:14
+
+2號机就登場 8話中
+
+*****
+
+####  二阶堂真琉  
+##### 15554#       发表于 2025-5-26 20:15
+
+khara的保密是不是该管管了，怎么经常被人泄密
+
+*****
+
+####  洛克萨斯  
+##### 15555#       发表于 2025-5-26 20:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大家觉得会是复刻强袭大战圣盾那样打的两机支离破碎么
+
+*****
+
+####  猪突猛进R  
+##### 15556#       发表于 2025-5-26 20:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67853325&amp;ptid=2209276" target="_blank">洛克萨斯 发表于 2025-5-26 20:15</a>
+
+大家觉得会是复刻强袭大战圣盾那样打的两机支离破碎么</blockquote>
+互捅驾驶舱的姐妹情是吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+其实我认为可能会像独角兽和报丧女妖那样和解，最后共同打一个大BOSS，这样也不算ED欺诈。
+
+*****
+
+####  ku2154513  
+##### 15557#       发表于 2025-5-26 20:19
+
+感觉怪帅怪帅的
+
+
+*****
+
+####  洛克萨斯  
+##### 15558#       发表于 2025-5-26 20:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67853329&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-26 20:19</a>
+
+互捅驾驶舱的姐妹情是吧
+
+其实我认为可能会像独角兽和报丧女妖那样和解，最后共同打一个大BOSS，这样也不 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">驴和狮子那种就很无趣啊，还是强袭打圣盾那种有看头
+
+*****
+
+####  wpcc  
+##### 15559#       发表于 2025-5-26 20:21
+
+这不是eva我直接吃 太喜欢面罩了
+
+*****
+
+####  CSWQ  
+##### 15560#       发表于 2025-5-26 20:23
+
+战斗演出能跟着新机/时间点更新一下么，别再慢动作了
+
+
+*****
+
+####  wpcc  
+##### 15561#       发表于 2025-5-26 20:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67853341&amp;ptid=2209276" target="_blank">CSWQ 发表于 2025-5-26 20:23</a>
+
+战斗演出能跟着新机/时间点更新一下么，别再慢动作了</blockquote>
+0079没有的东西应该是不会PPT的 没必要
+
+*****
+
+####  猪突猛进R  
+##### 15562#       发表于 2025-5-26 20:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67853332&amp;ptid=2209276" target="_blank">洛克萨斯 发表于 2025-5-26 20:20</a>
+
+驴和狮子那种就很无趣啊，还是强袭打圣盾那种有看头</blockquote>
+都打碎一部分，然后两台机剩余部件合体成一台，正好弥补EVA新剧场版8+2号机没有出场的遗憾。
+
