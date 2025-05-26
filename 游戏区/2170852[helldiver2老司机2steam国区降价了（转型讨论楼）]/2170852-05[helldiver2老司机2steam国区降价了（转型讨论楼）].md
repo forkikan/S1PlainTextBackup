@@ -1842,3 +1842,11 @@ QQ图片20250525184309.jpg
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  FLZB  
+##### 6098#       发表于 2025-5-27 01:52
+
+全银河系殖民修一个空间站靠捡废铁<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
