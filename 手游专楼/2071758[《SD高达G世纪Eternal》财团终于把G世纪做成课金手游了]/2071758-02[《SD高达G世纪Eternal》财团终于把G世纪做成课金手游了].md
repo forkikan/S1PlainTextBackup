@@ -1378,3 +1378,16 @@ theO少个盾，不能飞，加防要超强势；这次靠着劲敌词条20%，�
 机子升级武器，会给加战力吗，有个任务要队伍有18战力</blockquote>
 加，每台机还不一样<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  胖达君  
+##### 1610#       发表于 2025-5-26 13:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67852140&amp;ptid=2071758" target="_blank">格雷殿下 发表于 2025-5-26 13:28</a>
+
+机子升级武器，会给加战力吗，有个任务要队伍有18战力</blockquote>
+18W战力并不难，尤其是上2个队伍，平均每个队伍9-10万，即使全是SSR和SR，练度高一点都可以轻松达成
+
+我这无氪白嫖用户都能做到单队伍19万，双队伍30万+战力了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
