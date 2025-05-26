@@ -8620,3 +8620,89 @@ lies heavy这名字其实也只是承担隐藏的作用和GQuuuuuuX是一样的�
 
 不知道是修正番茄半集然后最后放机体特写呢，还是强化喵安半集最后放一点禁闭室番茄呢
 
+
+*****
+
+####  jojonathan  
+##### 15543#       发表于 2025-5-26 19:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67853222&amp;ptid=2209276" target="_blank">ftyaid 发表于 2025-5-26 19:40</a>
+不知道是修正番茄半集然后最后放机体特写呢，还是强化喵安半集最后放一点禁闭室番茄呢 ...</blockquote>
+八成是跳到至少几个月后<img src="https://static.stage1st.com/image/smiley/carton2017/088.png" referrerpolicy="no-referrer">把过程全跳了 喵安已经训练完给紫婆干活了 番茄也给夏利亚忽悠的去打工了
+
+*****
+
+####  岸浪白野  
+##### 15544#       发表于 2025-5-26 19:49
+
+<img src="https://p.sda1.dev/24/77dede2839741ecff1442daed6dc9133/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  我聞如是  
+##### 15545#       发表于 2025-5-26 19:49
+
+尸丁丁「知情人士」說不是GQ2號機
+
+<img src="https://img.stage1st.com/forum/202505/26/194855ylciz00f924d2c27.jpg" referrerpolicy="no-referrer">
+
+<strong>1000028958.jpg</strong> (265.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-26 19:48 上传
+
+<img src="https://img.stage1st.com/forum/202505/26/194907lt8m13kgu13kxkj0.png" referrerpolicy="no-referrer">
+
+<strong>1000028961.png</strong> (252.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-26 19:49 上传
+
+<img src="https://img.stage1st.com/forum/202505/26/194935f85z5a9qqv59k81v.png" referrerpolicy="no-referrer">
+
+<strong>1000028956.png</strong> (455.64 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-26 19:49 上传
+
+
+*****
+
+####  Sliurus  
+##### 15546#       发表于 2025-5-26 19:51
+
+配色看着确实有点辣眼睛，红配绿
+
+*****
+
+####  galgamesh11  
+##### 15547#       发表于 2025-5-26 19:52
+
+ 本帖最后由 galgamesh11 于 2025-5-26 19:53 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67853245&amp;ptid=2209276" target="_blank">我聞如是 发表于 2025-5-26 19:49</a>
+
+尸丁丁「知情人士」說不是GQ2號機</blockquote>
+
+意思是不是设定集上那个，但应该还是和gpx一个系列的，“开发理念一样”
+
+*****
+
+####  YU_JI  
+##### 15548#       发表于 2025-5-26 19:55
+
+<blockquote>ftyaid 发表于 2025-5-26 19:40
+不知道是修正番茄半集然后最后放机体特写呢，还是强化喵安半集最后放一点禁闭室番茄呢 ...</blockquote>
+紧闭室连关两集也太变态了
+
+*****
+
+####  猪突猛进R  
+##### 15549#       发表于 2025-5-26 19:55
+
+重新设定过，不还是贰号机吗？只不过长得和原设有区别罢了。
+
+最终话初号机打贰号机，知道了，是EVA的TV版<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
