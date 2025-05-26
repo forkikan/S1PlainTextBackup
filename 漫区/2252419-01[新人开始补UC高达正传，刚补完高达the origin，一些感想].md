@@ -664,3 +664,15 @@ GTO的OVA6结尾正义演讲吉翁已无可用之兵是一月底，高达屹立�
 GTO的OVA6结尾正义演讲吉翁已无可用之兵是一月底，高达屹立于大地之上都九月还是十月了 ...</blockquote>
 gto结尾不是给夏亚一只小队让他去找高达，还交代了白色木马上那帮人之前在干啥么，基本剧情就是来衔接0079第一集的啊
 
+
+*****
+
+####  玻璃洋葱  
+##### 64#       发表于 2025-5-26 14:49
+
+ 本帖最后由 玻璃洋葱 于 2025-5-26 14:54 编辑 
+
+0079上个月补完的。觉得很多人难看下去的原因不是画面，其实是台词。很多信息都是从台词里说出来的，前面哪个人说了个没出现过的名词，后面再出现的时候就会有点错乱。我看的时候是开弹幕，遇到不懂的事件名词啥的就查下百科<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+话说你们觉得0079的信息密度高吗？我不知道是不是我阅读理解有问题<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

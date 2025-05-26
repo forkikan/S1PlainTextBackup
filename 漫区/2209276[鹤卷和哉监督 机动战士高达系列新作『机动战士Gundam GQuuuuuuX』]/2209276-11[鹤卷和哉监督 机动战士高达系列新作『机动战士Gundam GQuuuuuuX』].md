@@ -8137,3 +8137,28 @@ https://x.com/MandarinG0/status/1923745936108552439
 说起来既然gqux就一个季度 那明年播啥高达啊万代说好的年年都播</blockquote>
 要不把seed后面加的剪成一季番再播一遍<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 15489#       发表于 2025-5-26 14:49
+
+铁血不是手游还有素材么，剪一下废物利用拍个tv吧，金星仔公路片寻宝故事挺王道的，比三流黑帮片好看
+
+*****
+
+####  jojonathan  
+##### 15490#       发表于 2025-5-26 14:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67852354&amp;ptid=2209276" target="_blank">洛克萨斯 发表于 2025-5-26 14:49</a>
+铁血不是手游还有素材么，剪一下废物利用拍个tv吧，金星仔公路片寻宝故事挺王道的，比三流黑帮片好看 ...</blockquote>
+倒是想看很久了 但是他不播啊<img src="https://static.stage1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  创始’’’天翔  
+##### 15491#       发表于 2025-5-26 14:54
+
+要是有TV企划的话，年底就能知道了
+
