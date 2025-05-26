@@ -8824,3 +8824,29 @@ khara的保密是不是该管管了，怎么经常被人泄密
 驴和狮子那种就很无趣啊，还是强袭打圣盾那种有看头</blockquote>
 都打碎一部分，然后两台机剩余部件合体成一台，正好弥补EVA新剧场版8+2号机没有出场的遗憾。
 
+
+*****
+
+####  psycho_Gadfly  
+##### 15563#       发表于 2025-5-26 20:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67853349&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-26 20:25</a>
+
+都打碎一部分，然后两台机剩余部件合体成一台，正好弥补EVA新剧场版8+2号机没有出场的遗憾。 ...</blockquote>
+复刻TOP系列合体是吧<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+预言一把红高是BOSS机 不过得先把武器补全了（
+
+
+*****
+
+####  ryanghj  
+##### 15564#       发表于 2025-5-26 20:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67853292&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-26 20:03</a>
+
+红高达对应零号机，牢修对应绫波丽。
+
+番茄=真嗣喜欢绫波丽=牢修，这样看尼安是香香和渚薰的合体，她其实是 ...</blockquote>
+不应该是首席哥=剑剑，然后香香和剑剑凑一对吗
+
