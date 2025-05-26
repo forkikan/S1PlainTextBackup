@@ -8706,3 +8706,32 @@ lies heavy这名字其实也只是承担隐藏的作用和GQuuuuuuX是一样的�
 
 最终话初号机打贰号机，知道了，是EVA的TV版<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  我聞如是  
+##### 15550#       发表于 2025-5-26 19:57
+
+<blockquote>岸浪白野 发表于 2025-5-26 19:49
+</blockquote>
+線稿看起來沒那麼多凹凸，比較順眼
+
+可惜實際上<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  猪突猛进R  
+##### 15551#       发表于 2025-5-26 20:03
+
+红高达对应零号机，牢修对应绫波丽。
+
+番茄=真嗣喜欢绫波丽=牢修，这样看尼安是香香和渚薰的合体，她其实是喜欢着番茄的，恢复ED里的姐妹情的可能性微存？
+
+*****
+
+####  盐盐盐盐盐  
+##### 15552#       发表于 2025-5-26 20:05
+
+不是二号机但是同一个设计理念的两个分支的话本质和二号机也差不了多少吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
