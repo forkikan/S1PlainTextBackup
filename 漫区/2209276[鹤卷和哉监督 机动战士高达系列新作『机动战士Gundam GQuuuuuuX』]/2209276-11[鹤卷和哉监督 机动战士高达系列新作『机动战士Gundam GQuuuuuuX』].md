@@ -8095,3 +8095,22 @@ seed事实上放弃了nt和未来这些又高又深又玄乎又电波的东西�
 
 按照现在动画的制作模式没有几家玩得了一年一部，用类似特摄棚的模式来拍机器人动画化以前不是没有过，最晚一次叫勇者系列。
 
+
+*****
+
+####  jojonathan  
+##### 15485#       发表于 2025-5-26 13:59
+
+说起来既然gqux就一个季度 那明年播啥高达啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">万代说好的年年都播
+
+*****
+
+####  Concrete  
+##### 15486#       发表于 2025-5-26 14:04
+
+<blockquote>Piano-Forest 发表于 2025-5-26 02:39
+https://x.com/MandarinG0/status/1923745936108552439
+
+</blockquote>
+这几张mav的图好看诶(･∀･)
+
