@@ -9076,3 +9076,20 @@ khara的保密是不是该管管了，怎么经常被人泄密
 所以结局是一群人开着ms把手电筒往别处推吗</blockquote>
 一堆人围着手电筒打会战这不格里普斯嘛<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Steel.Haze  
+##### 15587#       发表于 2025-5-26 22:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67852006&amp;ptid=2209276" target="_blank">大十字紅朔 发表于 2025-5-26 12:46</a>
+
+我忘了是小说还是什么的内心活动，吉利西亚对夏亚是真有点好感的
+
+这次GQ都没把吉利西亚人设美型化一下， ...</blockquote>
+是的，对夏亚有欣赏和欣慰（我没有看错人，他的确很有潜力）的一种独特收获感。所以确实她想拉拢夏亚。
+
+基连则是认为在决战那个大局下，他自己是轴心，那么没人会不跟他站在一起，要想抵御联邦这次攻势，其它异见者也被迫和自己抱团。所以给了夏亚吉翁号。也没觉得妹妹敢于此时就杀自己。
+
+这队兄妹的很多信心都来自政治和惯性思维考虑，忽略了人性的影响力。
+

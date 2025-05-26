@@ -32,3 +32,11 @@
 
 爱噗哩&amp;爱豆噗哩&amp;噗哩OK：在幼女动画的世界观下1+1+1不等于3而是等于∞不是很正常的事吗！（懂了，所以爱噗哩+爱豆噗哩+噗哩OK=财团B与财团T的无限钱包压榨计划<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">）
 
+
+*****
+
+####  天风绯炎  
+##### 109#       发表于 2025-5-26 22:33
+
+和偶q都是搞特训回，新玩具来得比偶q早，夏夏落寞的表情，黑化在安排了吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
