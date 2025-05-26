@@ -8320,3 +8320,66 @@ lies heavy这名字其实也只是承担隐藏的作用和GQuuuuuuX是一样的�
 
 又是新的敢达喔
 
+
+*****
+
+####  Adrenaline!!!  
+##### 15508#       发表于 2025-5-26 18:24
+
+嘴部这个有点像强化人用的那个
+
+
+*****
+
+####  YU_JI  
+##### 15509#       发表于 2025-5-26 18:30
+
+虽然知道会有半集新内容，但是这居然都能塞一个新机子吗？
+
+*****
+
+####  妄想系同盟  
+##### 15510#       发表于 2025-5-26 18:30
+
+技师是强化后的喵安吗？<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我聞如是  
+##### 15511#       发表于 2025-5-26 18:31
+
+看起來像草案的這個版本
+
+<img src="https://img.stage1st.com/forum/202505/26/183137lkdtdet6lnawwldz.jpg" referrerpolicy="no-referrer">
+
+<strong>1000028954.jpg</strong> (60.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-26 18:31 上传
+
+*****
+
+####  某某某人  
+##### 15512#       发表于 2025-5-26 18:32
+
+應該是上半集0079的月球，下半集0085的月球吧
+
+直接一轉幾個月後喵安訓練完成，紫婆派首席哥和喵安去地球找玫瑰，然後提一句索頓也會去
+
+*****
+
+####  YU_JI  
+##### 15513#       发表于 2025-5-26 18:32
+
+这个u形的领口有GQX的既视感，怕不是喵安开的对位机，下一集是喵安恶堕记吗？
+
+*****
+
+####  岸浪白野  
+##### 15514#       发表于 2025-5-26 18:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67853029&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-26 18:32</a>
+这个u形的领口有GQX的既视感，怕不是喵安开的对位机，下一集是喵安恶堕记吗？ ...</blockquote>
+没错，这就是喵安开的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
