@@ -8249,3 +8249,15 @@ lies heavy这名字其实也只是承担隐藏的作用和GQuuuuuuX是一样的�
 
 所以结局是一群人开着ms把手电筒往别处推吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无念  
+##### 15500#       发表于 2025-5-26 16:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67852750&amp;ptid=2209276" target="_blank">ykyin09 发表于 2025-5-26 16:51</a>
+所以结局是一群人开着ms把手电筒往别处推吗</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
