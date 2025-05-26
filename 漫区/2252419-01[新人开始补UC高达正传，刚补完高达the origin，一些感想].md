@@ -769,3 +769,22 @@ GTO的剧情就是突出一个行云流水，所以看文戏真心爽过看机�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我推荐直接看gto漫画 塞拉的乳头没有缩水！
 
+
+*****
+
+####  wasssf  
+##### 73#       发表于 2025-5-26 23:07
+
+喜欢这种夏亚的建议也看一下鲁路修，上面有人提过，很像gto回忆部分的夏亚
+
+*****
+
+####  vorfeed  
+##### 74#       发表于 2025-5-26 23:09
+
+GTO无论漫画还是动画作为入坑选项都算是门槛很低的了  没什么不好
+
+我是很少见的在接触动画和SRW之前先看了小说版0079和逆袭夏亚的那种(家附近的图书馆很神奇的有台版的0079上中下  逆袭夏亚是地摊上淘来的)
+
+所以有很长一段时间里对骡子的印象是喜欢金毛的种马  以及只知道夜莺不知道山楂饼<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
