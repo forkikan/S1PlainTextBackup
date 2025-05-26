@@ -10104,3 +10104,11 @@ Tsutsuuru。正常啦。只是困而已。
 
 可能是tito_ ？不过主播没关注他，懂绘柄的可以鉴定一下
 
+
+*****
+
+####  sino__unnko3  
+##### 18571#       发表于 2025-5-26 14:11
+
+破案了，jimmy shen自删的时间轴<img src="https://p.sda1.dev/24/13749ab86b974588c9aa7562b54faa83/image.jpg" referrerpolicy="no-referrer">
+
