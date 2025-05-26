@@ -9115,3 +9115,22 @@ khara的保密是不是该管管了，怎么经常被人泄密
 紫婆很像曹老板，不失为枭雄，尤其是和大基比。</blockquote>
 是的，如果德金家没有大基等，基西利亚会采取一种能顺着德金的稳健独立策略。不过基连本质是装疯，借此进行激进战略，而紫婆自己也很喜欢这些激进战略，只是只有她的话，她会谨慎得多。
 
+
+*****
+
+####  jojonathan  
+##### 15590#       发表于 2025-5-26 23:29
+
+事到如今 喵安训练啊之类的时间都会跳过了吧感觉夏利亚忽悠番茄的过程也会被跳过<img src="https://static.stage1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  57042711  
+##### 15591#       发表于 2025-5-26 23:33
+
+不要啊，再见面就是熟番茄啥的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+感觉会很怀念打黑拳的日子…
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
