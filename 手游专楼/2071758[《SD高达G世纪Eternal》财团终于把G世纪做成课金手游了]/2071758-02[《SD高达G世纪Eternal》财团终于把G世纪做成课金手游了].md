@@ -1349,3 +1349,14 @@ theO少个盾，不能飞，加防要超强势；这次靠着劲敌词条20%，�
 能天使正义托2飞翼0马甲E勉强打进大师，3星强自3星拉妖太哈人了</blockquote>
 报机体没意义，要先说什么母舰
 
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 1607#       发表于 2025-5-26 13:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67845931&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2025-5-23 22:53</a>
+
+这...这是氪了多少啊</blockquote>
+22W算少的了能拉到24W
+
