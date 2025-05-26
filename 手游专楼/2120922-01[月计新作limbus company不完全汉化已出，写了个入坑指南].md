@@ -54,3 +54,29 @@
 
 “非常抱歉，脑叶公司 e.g.o::朱符 辛克莱的存在左右着今后出现的破裂人格和e.g.o的性能和定位，对于该人格的性能进行调整，请谅解。”
 
+
+*****
+
+####  Anatoly  
+##### 1128#       发表于 2025-5-26 21:39
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">卧槽，无敌了
+
+真正加入了行为艺术的层次，还不如一起砍呢
+
+*****
+
+####  ヒトニナル  
+##### 1129#       发表于 2025-5-26 21:42
+
+太幽默了，要削就削新的，怎么变成只削老的了，这信任危机反而变大了
+
+
+*****
+
+####  神剑烧鸡  
+##### 1130#       发表于 2025-5-26 21:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">因为环箱的时候说不会对未来新出的进行削弱吧
+哎，我削弱老的不就行了<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+

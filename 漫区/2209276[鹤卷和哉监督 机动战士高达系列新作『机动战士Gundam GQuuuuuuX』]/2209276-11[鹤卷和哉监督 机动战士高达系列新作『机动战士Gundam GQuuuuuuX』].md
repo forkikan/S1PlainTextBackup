@@ -8965,3 +8965,35 @@ khara的保密是不是该管管了，怎么经常被人泄密
 
 最後一話艾爾美斯登場就是HGUC啊
 
+
+*****
+
+####  盐盐盐盐盐  
+##### 15576#       发表于 2025-5-26 21:37
+
+基西莉亚会不会骗喵安不好说，夏利亚应该不会骗麻球吧，不过就算喵安单边接收错误信息先下狠手也够俩人打起来了
+
+*****
+
+####  Piano-Forest  
+##### 15577#         楼主| 发表于 2025-5-26 21:40
+
+[https://x.com/pponoss/status/1926650292457681216](https://x.com/pponoss/status/1926650292457681216)
+<img src="https://p.sda1.dev/24/83fa8ba4c78997c1f42f93555758cbd3/20250526_213407.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/newcie_/status/1923564370480726470](https://x.com/newcie_/status/1923564370480726470)
+<img src="https://p.sda1.dev/24/95658a318f722ed6116e2b7cfd4479f3/20250526_213355.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/gquuu_06/status/1924665802470654461](https://x.com/gquuu_06/status/1924665802470654461)
+<img src="https://p.sda1.dev/24/e1c462d2c28603c8ece0af1b3f52c280/20250526_213512.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/a2fb5ebdea6f0cb3047354114f9c4db4/20250526_213516.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  猪突猛进R  
+##### 15578#       发表于 2025-5-26 21:41
+
+绿叔叔能不骗麻球？
+
+天手同学，我打算把吉翁公国的一把手和二把手做掉，麻烦你帮个忙？
+
