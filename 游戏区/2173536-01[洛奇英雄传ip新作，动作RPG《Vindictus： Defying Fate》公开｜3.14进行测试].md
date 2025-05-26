@@ -1093,3 +1093,13 @@ BOSS出硬直不看积蓄只看特定技能，联机就是谁快谁有理。明�
 
 6.9号A测，所以为什么没有出杖子跟镰刀<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  医生狼多  
+##### 117#         楼主| 发表于 2025-5-26 20:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67853377&amp;ptid=2173536" target="_blank">真爱与热情 发表于 2025-5-26 20:38</a>
+6.9号A测，所以为什么没有出杖子跟镰刀</blockquote>
+这个测试应该无需报名筛选的？
+
