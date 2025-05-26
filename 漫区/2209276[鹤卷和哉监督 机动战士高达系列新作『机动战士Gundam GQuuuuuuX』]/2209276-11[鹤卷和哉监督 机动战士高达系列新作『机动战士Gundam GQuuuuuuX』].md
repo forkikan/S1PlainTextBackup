@@ -7779,3 +7779,11 @@ SEED这个正剧TV系列放弃了继续向老登们兜售“高达是很深奥�
 
 这都是从结果往回看的，从结果上看以往所有高达没做到的事情SEED做到了，这就是SEED的伟大之处
 
+
+*****
+
+####  妄想系同盟  
+##### 15454#       发表于 2025-5-26 09:06
+
+假如是活在回忆或闪亮闪亮聊天室里，算返场吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
