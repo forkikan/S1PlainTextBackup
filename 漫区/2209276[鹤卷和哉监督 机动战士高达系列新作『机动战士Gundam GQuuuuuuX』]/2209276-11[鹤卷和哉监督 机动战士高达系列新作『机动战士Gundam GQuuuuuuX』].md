@@ -9023,3 +9023,36 @@ khara的保密是不是该管管了，怎么经常被人泄密
 
 造出来的MS也都是垃圾<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">资源全在宇宙里，怎么破
 
+
+*****
+
+####  盐盐盐盐盐  
+##### 15582#       发表于 2025-5-26 21:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67853524&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-26 21:41</a>
+ 绿叔叔能不骗麻球？ 天手同学，我打算把吉翁公国的一把手和二把手做掉，麻烦你帮个忙？ ...</blockquote>
+说的是他不会骗麻球说修司似了，他自己还要找夏亚呢，至于会不会说实际要打基西莉亚就不一定了可能会瞒着
+
+*****
+
+####  无念  
+##### 15583#       发表于 2025-5-26 21:57
+
+说起来虽然绿叔叔会不会帮忙消通缉还两说，但是多半会给番茄一个吉翁侧身份，搞不好还有军衔，这下不用担心孩子就业了呢番茄妈<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  无念  
+##### 15584#       发表于 2025-5-26 22:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67853574&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-26 21:55</a>
+我之前就怀疑，现在宇宙被吉翁控制着地球联邦真不行了吧，果然如此
+
+造出来的MS也都是垃圾资源全在宇宙里， ...</blockquote>
+想了想，我记得月神钛是低重力才能炼的，联邦军这种宇宙全丢的情况搞不好只能集体喜提钛陶复合装甲了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">嗯，这精神病这么脆的理由又多了一个
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
