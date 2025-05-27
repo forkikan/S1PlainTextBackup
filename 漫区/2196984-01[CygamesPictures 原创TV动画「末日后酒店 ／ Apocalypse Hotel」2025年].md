@@ -4058,3 +4058,39 @@ aiko，进攻性太强了吧
 
 这这这……我是在看0093吗？
 
+
+*****
+
+####  NBXX  
+##### 353#       发表于 2025-5-28 01:47
+
+ 本帖最后由 NBXX 于 2025-5-28 01:49 编辑 
+
+这一集明显各个机器人的老化程度更明显了，但是在上一集中却没有太多体现。
+
+此外嘭子这五十年的增长速度也是比之前上百年还快。
+
+<img src="https://img.stage1st.com/forum/202505/28/014925ike68x5meqkcmm8e.jpg" referrerpolicy="no-referrer">
+
+<strong>6c125137-ae31-45e8-9778-1b29f8eea588.png.jpg</strong> (703.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 01:49 上传
+
+<img src="https://img.stage1st.com/forum/202505/28/014928bt7l5s27d27d6wls.jpg" referrerpolicy="no-referrer">
+
+<strong>587b56f1-3cf6-4cf6-85e0-f6a653a49d37.png.jpg</strong> (769.9 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 01:49 上传
+
+
+*****
+
+####  センコウ  
+##### 354#       发表于 2025-5-28 01:53
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">高强度工作（客人多了）+彭子式维护吧
+

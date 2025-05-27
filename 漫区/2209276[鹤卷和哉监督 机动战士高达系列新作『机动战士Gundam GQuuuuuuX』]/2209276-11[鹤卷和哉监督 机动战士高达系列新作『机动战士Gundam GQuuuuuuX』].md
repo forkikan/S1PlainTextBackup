@@ -13502,3 +13502,132 @@ G夸和G飞难道定位是平行世界的马克兔吗
  ...</blockquote>
 太坏了这khara，先行放映还藏重要信息<img src="https://static.stage1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大泽瑠璃乃  
+##### 16031#       发表于 2025-5-28 01:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857059&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-28 01:32</a>
+
+这集的“堕”怎么理解？喵安也没被强化啊。启动贰号机就算“堕”了？</blockquote>
+喵安被重力束缚在格拉纳达了，固定在阵营之内了，不能再随便上宇宙开机子了，虽然对现在的喵安来说是心甘情愿的事情
+
+*****
+
+####  azbhg1  
+##### 16032#       发表于 2025-5-28 01:46
+
+ 本帖最后由 azbhg1 于 2025-5-28 01:51 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857048&amp;ptid=2209276" target="_blank">ads147147 发表于 2025-5-28 01:27</a>
+
+大概率是，蛋糕哥认为成为nt就是恶魔，首席哥nt能力一直很弱所以被判定为不是。。。
+
+—— 来自 鹅球 v3. ...</blockquote>
+上面回过了
+[https://stage1st.com/2b/forum.ph ... 209276&amp;pid=67856937](https://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=2209276&amp;pid=67856937)
+
+蛋糕哥可没说NT就是恶魔，蛋糕哥说的意思是上机后会被二号机变成恶魔，他们几个弗拉纳冈机构出来的同期肯定本来就都是NT，起码也是都有NT资质，而从那里毕业就基本代表拥有NT水平了
+
+首席哥的首席不就是从他们几个里对比出来的，所以也不太可能比那两个菜
+
+这集喵安眼睛突然变红估计也和传统NT没啥关系，之前也是番茄眼睛突然变红，吓得绿叔叔当场给他打断了
+
+*****
+
+####  zzf111  
+##### 16033#       发表于 2025-5-28 01:47
+
+这话末尾基西莉亚念叨夏亚时眼睛都闪着光，很难不是含情脉脉<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赤黑的假面  
+##### 16034#       发表于 2025-5-28 01:47
+
+这么看的话，妮娅安麻球还有修斯他们相遇的起始点也是因为拉拉的匿名短信
+
+*****
+
+####  ryanghj  
+##### 16035#       发表于 2025-5-28 01:48
+
+突然想到，夏亚阵营鸭妹也在吧？不然红高也不会拿着流星锤了
+
+*****
+
+####  岸浪白野  
+##### 16036#       发表于 2025-5-28 01:48
+
+心甘情愿成为吉翁人就是精神堕，因为对自己好不讨厌自己
+
+*****
+
+####  岸浪白野  
+##### 16037#       发表于 2025-5-28 01:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857025&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-28 01:18</a>
+
+复制人就是杜系列了吧，正好和金元说的话对的上
+
+所以给巴斯克情报的就是基连咯，那估计村雨研究所他也有投 ...</blockquote>
+
+首先基连的复制强化人是才在准备投入实战<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202505/28/014908smh088xbeu8ru0b8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.11 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 01:49 上传
+
+<img src="https://img.stage1st.com/forum/202505/28/014914xvvvmdvatlx3lmlm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.98 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 01:49 上传
+
+*****
+
+####  NaughtyFish  
+##### 16038#       发表于 2025-5-28 01:50
+
+感觉这集还行，就是感觉还在铺开真的讲的完吗，加上上集让我信不过鹤卷了<img src="https://static.stage1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wasssf  
+##### 16039#       发表于 2025-5-28 01:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857087&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-28 01:48</a>
+
+心甘情愿成为吉翁人就是精神堕，因为对自己好不讨厌自己</blockquote>
+这个世界只是吉翁和联邦瓜分而已，说的好像各side在吉翁反之前和联邦就不是这样的关系一样，都明示叫colony了，去吉翁只是地方人进入权力中心而已，升了，而且之前是难民，连地方人都不是
+
+
+*****
+
+####  patema  
+##### 16040#       发表于 2025-5-28 01:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857028&amp;ptid=2209276" target="_blank">qiyu1234 发表于 2025-5-28 01:19</a>
+
+这个世界线的哈曼在干啥，照顾汤小美吗（</blockquote>
+应该回去当大小姐照顾老妈了吧
+
+
+*****
+
+####  岸浪白野  
+##### 16041#       发表于 2025-5-28 01:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857092&amp;ptid=2209276" target="_blank">wasssf 发表于 2025-5-28 01:51</a>
+
+这个世界只是吉翁和联邦瓜分而已，说的好像各side在吉翁反之前和联邦就不是这样的关系一样，都明示叫colon ...</blockquote>
+不是想说地位的问题.......堕这个词主要还是不好的意思，但对于喵安是能住好房间和觉得紫婆不讨厌她
+
+就像前面有人说了容易沦为工具
+
