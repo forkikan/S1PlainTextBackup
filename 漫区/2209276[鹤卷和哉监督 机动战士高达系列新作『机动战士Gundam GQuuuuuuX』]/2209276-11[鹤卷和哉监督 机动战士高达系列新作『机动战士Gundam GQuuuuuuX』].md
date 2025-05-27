@@ -9572,3 +9572,25 @@ solar ray秒掉基连之后紫色老太婆反手被绿叔叔火箭筒爆头
 那谁来带领之后的吉翁呢？ ...</blockquote>
 卡尔马是不是还没死
 
+
+*****
+
+####  无念  
+##### 15635#       发表于 2025-5-27 12:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67854860&amp;ptid=2209276" target="_blank">大十字紅朔 发表于 2025-5-27 12:46</a>
+卡尔马是不是还没死</blockquote>
+艹，卡尔玛上台那搞不好电影院里真的能看见夏亚和老太婆上演战争绝恋，等会，那炮毙了老太婆的绿叔叔不是很尴尬<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  猪突猛进R  
+##### 15636#       发表于 2025-5-27 12:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67854857&amp;ptid=2209276" target="_blank">cayon 发表于 2025-5-27 12:46</a>
+
+封面看来是喵安开着新高达把什么东西干掉了，可能是拿联邦的炮灰来练手</blockquote>
+说不定就是有人期待的村雨兔反场<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
