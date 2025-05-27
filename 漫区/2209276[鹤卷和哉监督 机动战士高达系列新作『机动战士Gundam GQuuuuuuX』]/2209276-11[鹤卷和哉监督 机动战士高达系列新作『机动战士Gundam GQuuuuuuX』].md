@@ -13631,3 +13631,158 @@ G夸和G飞难道定位是平行世界的马克兔吗
 
 就像前面有人说了容易沦为工具
 
+
+*****
+
+####  ftyaid  
+##### 16042#       发表于 2025-5-28 01:57
+
+堕入了紫色老太婆的温柔乡，后面就不能”自由哒！“了
+
+*****
+
+####  赤黑的假面  
+##### 16043#       发表于 2025-5-28 01:58
+
+这说的有道理，那确实恶魔
+
+Screenshot_2025-05-28-01-56-41-051_com.baidu.tieba.jpg
+(617.72 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 01:58 上传
+
+<img src="https://img.stage1st.com/forum/202505/28/015806pootaoucl7k8t0tc.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  璇瑢子R  
+##### 16044#       发表于 2025-5-28 01:58
+
+感觉绿叔叔最后要被狠狠的乳了
+
+以为自己很能算计，结果完全不对
+
+*****
+
+####  patema  
+##### 16045#       发表于 2025-5-28 01:58
+
+因为g2号不是什么好东西吧
+
+*****
+
+####  YU_JI  
+##### 16046#       发表于 2025-5-28 02:01
+
+<blockquote>璇瑢子R 发表于 2025-5-28 01:58
+感觉绿叔叔最后要被狠狠的乳了
+
+以为自己很能算计，结果完全不对</blockquote>
+完美继承了正史鸭子的所有特质是吧
+
+
+*****
+
+####  Wiksy  
+##### 16047#       发表于 2025-5-28 02:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856895&amp;ptid=2209276" target="_blank">ヒトニナル 发表于 2025-5-28 00:36</a>
+
+紫婆自己做饭是为了防暗杀</blockquote>
+结合喵安那边做蛋糕暗杀，应该就是这个意思吧
+
+*****
+
+####  盐盐盐盐盐  
+##### 16048#       发表于 2025-5-28 02:03
+
+电视直播没有那句基连在开发克隆强化人而流媒版有，那应该不是特别重要的信息？为了塞进地上波长度可以删的话
+不过如果修司真是克隆强化人原型或者之一我还挺想看后面大战场十二个修司开卡碧尼和麻球打<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">对峙长得和与自己关系亲密的异性一模一样的敌人，此事在zz亦有记载，麻球，该爆发nt能力出40米大光剑了
+
+*****
+
+####  岸浪白野  
+##### 16049#       发表于 2025-5-28 02:04
+
+[X 上的 YY：“第8話ご視聴いただきありがとうございます！ 動画で参加しております！ 配信等でもお楽しみください！ #GQuuuuuuX #ジークアクス #ジフレド [url]https://t.co/Lom4wDGvAB](https://x.com/YY_shibata/status/1927393170481938724)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/28/011240wig44g1hs4h3htgw.png" referrerpolicy="no-referrer">
+
+<strong>TC@8@YPQD9M[3XB8%HUQ4RI.png</strong> (3.56 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 01:12 上传
+
+[X 上的 ヨドムラ：“8話ご視聴ありがとうございました！ 後半の「月に堕ちる」パートのキャラ作監で参加しました✍️ 配信も宜しくお願い致します。 9話も楽しみ…！ #GQuuuuuuX #ジークアクス [url]https://t.co/BSqapijWM1](https://x.com/dowagers/status/1927393767272693830)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/28/011258qy4f1k4epjwwzghj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.04 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 01:12 上传
+
+[X 上的 ルカ：“第8話、動画で参加しておりました！！ 本当にありがとうございました！ #GQuuuuuuX #ジークアクス [url]https://t.co/7YuvwlhkJ5](https://x.com/nkn_ruka/status/1927393616281923595)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/28/011313qgb2j6jw4tvgfyxo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.74 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 01:13 上传
+
+[X 上的 阿部 慎吾：“8話ご視聴ありがとうございます! 来週もお楽しみに!! [url]https://t.co/Hq0YAK48Di](https://x.com/church0620/status/1927395797345153402)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/28/020443vuuz2b8iwazc00uu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.99 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 02:04 上传
+
+[X 上的 善美：“スタッフの皆様お疲れ様でした 大変な話数でしたね… 視聴者の方々も遅い時間までありがとうございます！ 皆さんゆっくりお休み下さい コモリ少尉の子守歌〜 #GQuuuuuuX #ジークアクス [url]https://t.co/Rw2Qy7wN5T](https://x.com/yakumo_0624/status/1927393191793197215)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/28/020426tuov2x9xx3v33q95.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.28 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 02:04 上传
+
+[X 上的 toco：“『機動戦士Gundam GQuuuuuuX』 8話「月に堕ちる」演出を担当しました！ ご視聴ありがとうございました📺 配信もぜひよろしくお願いします🖥 #ジークアクス　#GQuuuuuuX [url]https://t.co/iTNNhlSItg](https://x.com/tocodot/status/1927393366032978088)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/28/020333v3z91pc49gzvg5vn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.91 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 02:03 上传
+
+[X 上的 コウダ：“ジフレドでてきた #GQuuuuuuX #ジークアクス [url]https://t.co/nAyJ6zXMIA](https://x.com/kouda_nyo/status/1927394134077145296)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/28/020345vsamszhso0aia0au.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.52 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 02:03 上传
+
+[X 上的 ゆーすめると：“ジークアクス8話ご視聴ありがとうございました！ 動画として微力ながら参加させていただきました！ 引き続きお楽しみいただければ嬉しいです！ #ジークアクス #GQuuuuuuX [url]https://t.co/85Kbskw4RJ](https://x.com/period_yoooou11/status/1927393663916580955)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/28/020405s0ji5fz7re06jsj1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.34 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 02:04 上传
+
