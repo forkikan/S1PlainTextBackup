@@ -12233,3 +12233,187 @@ wtf dude</blockquote>
 麻球下一集已经到地球看海了，已经赢了</blockquote>
 下集若能继续按这集part B的速度展开，那赢定了好吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ヒトニナル  
+##### 15902#       发表于 2025-5-28 00:36
+
+紫婆自己做饭是为了防暗杀
+
+*****
+
+####  ryanghj  
+##### 15903#       发表于 2025-5-28 00:36
+
+下集结尾会见到牢修吧，第10话开始解谜修司
+
+*****
+
+####  猪突猛进R  
+##### 15904#       发表于 2025-5-28 00:36
+
+阿姆罗的第6种结局的可能性更高了：
+
+[https://www.bilibili.com/video/BV17DVUzSEUX](https://www.bilibili.com/video/BV17DVUzSEUX)
+
+*****
+
+####  wolfwood  
+##### 15905#       发表于 2025-5-28 00:37
+
+最后那个刘海男是夏亚吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 15906#       发表于 2025-5-28 00:38
+
+看到有人说这里的拉拉说不定全名叫“拉拉·雷”<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oi99o  
+##### 15907#       发表于 2025-5-28 00:38
+
+最后那两个人聊的是高达弗雷德、伊欧玛格奴索和沙仑的玫瑰，明显是紫婆派的人吧。应该说鸭子又潜入紫婆那边伺机算计才对
+
+*****
+
+####  windtrack  
+##### 15908#       发表于 2025-5-28 00:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856897&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-28 00:36</a>
+
+阿姆罗的第6种结局的可能性更高了：
+
+https://www.bilibili.com/video/BV17DVUzSEUX</blockquote>
+这个系列超乐，今天爆这么多我已经等着作者更新骡子吐槽新一话了
+
+*****
+
+####  qiyu1234  
+##### 15909#       发表于 2025-5-28 00:39
+
+这个依欧马格努斯到底是什么东西啊，内山的角色说是恶魔兵器
+
+从鸭子对话里说能参与到建设现场很高兴
+
+
+*****
+
+####  zhongjie  
+##### 15910#       发表于 2025-5-28 00:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67854968&amp;ptid=2209276" target="_blank">左翼齐飞 发表于 2025-5-27 13:38</a>
+
+不是……所以这条线的卡尔玛到底这会儿在干嘛？我之前去搜了一下说是隐居了是什么鬼……？ ...</blockquote>
+我刚看了0079剧场版，说不定是抛下吉翁和那个女的结婚了
+
+*****
+
+####  YU_JI  
+##### 15911#       发表于 2025-5-28 00:41
+
+ 本帖最后由 YU_JI 于 2025-5-28 00:42 编辑 
+<blockquote>qiyu1234 发表于 2025-5-28 00:39
+这个依欧马格努斯到底是什么东西啊，内山的角色说是恶魔兵器
+
+从鸭子对话里说能参与到建设现场很高兴 ...</blockquote>
+
+应该是手电筒的代号，最近提到在建设的新东西只有手电筒了
+
+*****
+
+####  oi99o  
+##### 15912#       发表于 2025-5-28 00:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856906&amp;ptid=2209276" target="_blank">qiyu1234 发表于 2025-5-28 00:39</a>
+
+这个依欧马格努斯到底是什么东西啊，内山的角色说是恶魔兵器
+
+从鸭子对话里说能参与到建设现场很高兴 ...</blockquote>
+是这个，大概是手电筒
+
+<img src="https://img.stage1st.com/forum/202505/28/004132qq0wrozfoeitdf0o.png" referrerpolicy="no-referrer">
+
+<strong>[SweetSub&amp;LoliHouse] Mobile Suit Gundam GQuuuuuuX - 07 [WebRip 1080p HEVC-10bit .png</strong> (1.77 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 00:41 上传
+
+*****
+
+####  我聞如是  
+##### 15913#       发表于 2025-5-28 00:42
+
+可惡呀！
+
+我居然沒能夠初見就認出夏亞的變裝！
+
+*****
+
+####  whzfjd  
+##### 15914#       发表于 2025-5-28 00:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856906&amp;ptid=2209276" target="_blank">qiyu1234 发表于 2025-5-28 00:39</a>
+
+这个依欧马格努斯到底是什么东西啊，内山的角色说是恶魔兵器
+
+从鸭子对话里说能参与到建设现场很高兴 ...</blockquote>
+有种看EVA新剧场版又冒出个尼布甲尼撒之匙的感觉
+
+*****
+
+####  qiyu1234  
+##### 15915#       发表于 2025-5-28 00:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856909&amp;ptid=2209276" target="_blank">oi99o 发表于 2025-5-28 00:41</a>
+
+是这个，大概是手电筒</blockquote>
+应该就是了
+
+最终战致敬格里普斯战役的可能性在增加<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  八汰乌  
+##### 15916#       发表于 2025-5-28 00:44
+
+我没看过剧场版，剧场版的内容是不是TV都放过了？
+
+*****
+
+####  麻仓月轩  
+##### 15917#       发表于 2025-5-28 00:45
+
+我就说第六集的时候就要去地球了，但是剧情怎么都衔接不上高达最喜欢拍的单机突入大气层
+
+结果玩这一出，中间过程全跳过，直接抓起来再放出
+
+就像是机战移动距离不够，搭战舰移动了一回合，强行扔到地球上
+
+这后半集拍的是没有问题，但这个篇幅，应该只会几句话带过越狱的事情了吧，演员都就位了，干脆接下来都拍文戏，最后来段1号机2号机mav战术扫清外敌之后再1对1单挑泯恩仇
+
+*****
+
+####  Sliurus  
+##### 15918#       发表于 2025-5-28 00:45
+
+想到一件很搞笑的事，首席哥是不是因为启动不了塞克谬所以没被内鬼毒死
+
+*****
+
+####  windtrack  
+##### 15919#       发表于 2025-5-28 00:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">所以2号机到底是干啥用的，搞不好是启动手电筒用的？或者是激活手电筒把全人类照成NT？第三次冲击？
+
+*****
+
+####  希望之异热同心  
+##### 15920#       发表于 2025-5-28 00:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">虽然老太婆自己做饭是为了防暗杀，但是不是也有想给夏亚下厨的可能性呢！
+
