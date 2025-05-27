@@ -11226,3 +11226,387 @@ op画面总得加点新东西吧，这半集直接跟换了个片一样
 
 喵安和紫婆都看穿了内鬼，首席哥你的nt力又一次证明是垫底的了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 15794#       发表于 2025-5-28 00:06
+
+野史一定要够野，不够野就一定要够史
+
+*****
+
+####  猪突猛进R  
+##### 15795#       发表于 2025-5-28 00:06
+
+现在还有人在意村雨兔吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  风夏  
+##### 15796#       发表于 2025-5-28 00:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉半集演了一季度的剧情
+
+*****
+
+####  Sliurus  
+##### 15797#       发表于 2025-5-28 00:06
+
+话说同人野史成真了，紫婆真对夏亚有了奇妙的感情<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 15798#       发表于 2025-5-28 00:06
+
+我现在觉得这片去掉大机器人会精彩很多（）
+
+*****
+
+####  Gysumitka  
+##### 15799#       发表于 2025-5-28 00:06
+
+文戏质量太高了，这就是过山车体验吗<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  leommoo  
+##### 15800#       发表于 2025-5-28 00:06
+
+下集可别再水水又过去了哦，鹤卷哥哥<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  伊露伊道格拉斯  
+##### 15801#       发表于 2025-5-28 00:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856737&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-5-28 00:03</a>
+
+喵安说二号机像紫婆，那初号机又是像谁？</blockquote>
+说不定一号机对应基连（
+
+*****
+
+####  猪突猛进R  
+##### 15802#       发表于 2025-5-28 00:06
+
+文戏＞＞打戏
+
+*****
+
+####  m99999  
+##### 15803#       发表于 2025-5-28 00:07
+
+那其实有没有可能绿叔叔很早就和夏亚联系上了，追红高达本身才是目的
+
+*****
+
+####  cayon  
+##### 15804#       发表于 2025-5-28 00:07
+
+情报哥说后面还有爆点，感觉说了跟没说一样<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  woui003woui  
+##### 15805#       发表于 2025-5-28 00:07
+
+还是想吐槽一下喵安去了吉翁怎么变这么能干，你跟上集判若两人好吧<img src="https://static.stage1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">姐们到底怎么回事
+要是下集麻球单人突入地球也是自己手笔的话，我只能说修司疑似给这两人下降智功能了
+又及从这集来看喵安跟麻球肯定不存在任何严重的情绪问题，后面随便解决一下就完了（）
+
+*****
+
+####  Sliurus  
+##### 15806#       发表于 2025-5-28 00:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856761&amp;ptid=2209276" target="_blank">伊露伊道格拉斯 发表于 2025-5-28 00:06</a>
+
+说不定一号机对应基连（</blockquote>
+对应基连合理但是总感觉作为主角机不太合适
+
+*****
+
+####  Gysumitka  
+##### 15807#       发表于 2025-5-28 00:08
+
+这下真和op一样一群人追着麻球走主线了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 15808#       发表于 2025-5-28 00:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856764&amp;ptid=2209276" target="_blank">cayon 发表于 2025-5-28 00:07</a>
+情报哥说后面还有爆点，感觉说了跟没说一样</blockquote>
+就像当你看见一发殖民地落地的时候就肯定会有更多发 好劲啊<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  齿轮轴君  
+##### 15809#       发表于 2025-5-28 00:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以A part的0079完全可以再缩短篇幅啊，我现在就想看番茄越狱
+
+*****
+
+####  YU_JI  
+##### 15810#       发表于 2025-5-28 00:08
+
+我倒是觉得番茄越狱这段就是要留白才对味
+
+*****
+
+####  Evomenon  
+##### 15811#       发表于 2025-5-28 00:09
+
+这集也有打戏的好吧，不过是没上机直接开的浮游炮<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+致敬传奇护主机体一角驴<img src="https://static.stage1st.com/image/smiley/bundam2017/011.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sliurus  
+##### 15812#       发表于 2025-5-28 00:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856765&amp;ptid=2209276" target="_blank">woui003woui 发表于 2025-5-28 00:07</a>
+
+还是想吐槽一下喵安去了吉翁怎么变这么能干，你跟上集判若两人好吧姐们到底怎么回事
+
+要是下集麻球单人突入 ...</blockquote>
+可能是因为不再相信“同伴”所以察觉了自来熟的猫腻
+
+*****
+
+####  Toby_dak  
+##### 15813#       发表于 2025-5-28 00:09
+
+magnet:?xt=urn:btih:618a054ecc7ca41e4d183264dce14f631822a1ac&amp;dn=%5BNew-raws%5D%20Kidou%20Senshi%20Gundam%20GQuuuuuuX%20-%2008%20%5B1080p%5D%20%5BAMZN%5D.mkv&amp;tr=http%3A%2F%2Fnyaa.tracker.wf%3A7777%2Fannounce&amp;tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&amp;tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&amp;tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&amp;tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce
+
+继续扔磁链。
+
+*****
+
+####  洛克萨斯  
+##### 15814#       发表于 2025-5-28 00:09
+
+女鬼和鸭叔叔都出场了，骡叔叔不出场么<img src="https://static.stage1st.com/image/smiley/face2017/110.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猪突猛进R  
+##### 15815#       发表于 2025-5-28 00:09
+
+0079部分完全可以挤掉，反正剧场版有，这样大家都高兴。
+
+*****
+
+####  lunaticfool  
+##### 15816#       发表于 2025-5-28 00:09
+
+想看姐妹扯头花了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">驾驶员肉搏不得不品
+
+—— 来自 Xiaomi 2312DRA50C, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  zzy516232108  
+##### 15817#       发表于 2025-5-28 00:10
+
+这是裤袜脱落大尉吗（
+
+
+*****
+
+####  m99999  
+##### 15818#       发表于 2025-5-28 00:10
+
+其实这集里的表现也挺明显了，论天赋喵安是比马秋强了。
+
+*****
+
+####  欠陷制品  
+##### 15819#       发表于 2025-5-28 00:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这配色你说塞克缪里面塞了喵安的亲妈我都信了
+
+*****
+
+####  猪突猛进R  
+##### 15820#       发表于 2025-5-28 00:10
+
+初号机配色的贰号机<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  blackfyre2heads  
+##### 15821#       发表于 2025-5-28 00:11
+
+鹤卷哥哥我们敬爱您呀<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 15822#       发表于 2025-5-28 00:11
+
+一开始说的拿原创角色推剧情纯鹤卷gg逗大家玩的
+
+*****
+
+####  patema  
+##### 15823#       发表于 2025-5-28 00:11
+
+这话泽克诺瓦时空穿越说破产了吧，鸭子目前的状态明显不像一个消失了5年的人
+
+*****
+
+####  赤黑的假面  
+##### 15824#       发表于 2025-5-28 00:11
+
+<blockquote>m99999 发表于 2025-5-28 00:10
+其实这集里的表现也挺明显了，论天赋喵安是比马秋强了。</blockquote>
+未启动二号机直接操纵浮游炮恐怖如斯
+
+*****
+
+####  萨尤克  
+##### 15825#       发表于 2025-5-28 00:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">塑料兄弟鸭子啊，绿叔叔真可怜
+还剩四集这还能圆回来吗
+
+—— 来自 Xiaomi 25019PNF3C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  ティグル  
+##### 15826#       发表于 2025-5-28 00:12
+
+玻色子跳跃说再次加分
+
+*****
+
+####  windtrack  
+##### 15827#       发表于 2025-5-28 00:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856755&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-28 00:06</a>
+
+现在还有人在意村雨兔吗</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">手游玩家表示今天没送二妹送的喵安...
+
+*****
+
+####  猪突猛进R  
+##### 15828#       发表于 2025-5-28 00:12
+
+GQX没浮游炮比较吃亏呀。
+
+*****
+
+####  Sliurus  
+##### 15829#       发表于 2025-5-28 00:12
+
+前脚说完烤蛋糕，后脚就叫人去吃，总感觉这片的时间概念有点模糊
+
+*****
+
+####  冰寒之月  
+##### 15830#       发表于 2025-5-28 00:12
+
+内鬼直接被气化 有高达传统了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 15831#       发表于 2025-5-28 00:12
+
+鸭子一入局情况瞬间复杂起来了
+
+*****
+
+####  没取名啊  
+##### 15832#       发表于 2025-5-28 00:13
+
+这集继续强化喵安的塑造，几乎明牌告诉你喵安极度渴望伙伴但同时又有了很强的戒备心。虽然故事展开很迅猛但角色的连续性一直是在的
+
+*****
+
+####  patema  
+##### 15833#       发表于 2025-5-28 00:13
+
+而且还有台新高达？机翻没看清除
+
+*****
+
+####  猪突猛进R  
+##### 15834#       发表于 2025-5-28 00:13
+
+喵安的身体素质不输强化人，机架几次跳就上去了。
+
+*****
+
+####  洛克萨斯  
+##### 15835#       发表于 2025-5-28 00:13
+
+光枪点浮游才是技术的精髓，等一个完全武装gqx
+
+*****
+
+####  暗黑能乐  
+##### 15836#       发表于 2025-5-28 00:13
+
+我会怀疑这鸭不是真鸭是伪鸭主要还是因为这集被紫婆杀了的间谍CV是内山昂辉（
+
+*****
+
+####  Sliurus  
+##### 15837#       发表于 2025-5-28 00:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856800&amp;ptid=2209276" target="_blank">ティグル 发表于 2025-5-28 00:12</a>
+
+玻色子跳跃说再次加分</blockquote>
+我懂了，修司将化身解说哥<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kaion111  
+##### 15838#       发表于 2025-5-28 00:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856809&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-28 00:13</a>
+
+喵安的身体素质不输强化人，机架几次跳就上去了。</blockquote>
+月球重力
+
+*****
+
+####  patema  
+##### 15839#       发表于 2025-5-28 00:15
+
+而且迪亚波罗应该指的是原生新人类吧，已经被ot视作非同类了
+
+*****
+
+####  希望之异热同心  
+##### 15840#       发表于 2025-5-28 00:15
+
+老太婆这野史乐死我了，反过来说总帅79年算计了两个对他好感度拉满的扎比家的人<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  potenzh  
+##### 15841#       发表于 2025-5-28 00:15
+
+女主们间的距离有38万千米了
+
+*****
+
+####  猫兔同笼  
+##### 15842#       发表于 2025-5-28 00:15
+
+想你了，骡子叔叔
+

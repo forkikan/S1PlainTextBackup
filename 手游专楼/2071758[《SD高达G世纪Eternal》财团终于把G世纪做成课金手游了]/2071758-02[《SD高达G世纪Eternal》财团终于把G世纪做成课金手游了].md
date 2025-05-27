@@ -1889,3 +1889,13 @@ SEED：很不错的防御机，只是不能飞，没UR防御机的话可以优�
 
 —— 来自 samsung SM-F9460, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  光辉传递者  
+##### 1654#       发表于 2025-5-28 00:15
+
+给了？那不黑了。
+
+—— 来自 LENOVO TB321FU, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
