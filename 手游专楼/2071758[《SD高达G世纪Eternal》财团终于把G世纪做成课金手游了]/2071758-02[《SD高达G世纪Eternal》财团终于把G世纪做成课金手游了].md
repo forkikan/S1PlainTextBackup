@@ -1546,3 +1546,36 @@ theO少个盾，不能飞，加防要超强势；这次靠着劲敌词条20%，�
 
 阵容克制没想到把中间的突破了…
 
+
+*****
+
+####  chivalry  
+##### 1624#       发表于 2025-5-27 11:16
+
+<img src="https://img.stage1st.com/forum/202505/27/111622mlu6v7l81dvhhzxd.jpg" referrerpolicy="no-referrer">
+
+<strong>128F9F90-975A-4622-B94E-7480CABEF877.jpg</strong> (436.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-27 11:16 上传
+
+<img src="https://img.stage1st.com/forum/202505/27/111623hfzhe61hci1rpe63.jpg" referrerpolicy="no-referrer">
+
+<strong>7428E72B-3D1A-4A09-BF8D-CA647AE4825E.jpg</strong> (363.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-27 11:16 上传
+
+听了楼里的建议，双盾+3 支援是真好用
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  captoon  
+##### 1625#       发表于 2025-5-27 11:21
+
+0083活动来了，信息已更新
+
