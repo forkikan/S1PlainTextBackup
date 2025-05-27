@@ -1587,3 +1587,11 @@ theO少个盾，不能飞，加防要超强势；这次靠着劲敌词条20%，�
 
 元组系机体加成，3星除了送的斧王和红高，开发里的G3和鸡瘟号终于有用了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zksandy  
+##### 1627#       发表于 2025-5-27 11:58
+
+冰箱还没来啊
+

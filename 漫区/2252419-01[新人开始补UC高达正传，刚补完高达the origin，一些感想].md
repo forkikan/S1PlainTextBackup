@@ -1021,3 +1021,25 @@ gto漫画能给9分 动画只能给3分
 
 反而是多安之岛，漫画只是在GTO世界观的基础上，仿安彦风格的再拓展，结果剧场版安彦亲自上，我就是像看金星战记一样，各种处理抬安彦了，安彦把动画按照西式话剧歌剧那样拍他是改不过来了。
 
+
+*****
+
+####  大十字紅朔  
+##### 92#       发表于 2025-5-27 11:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67854596&amp;ptid=2252419" target="_blank">劳动改造归来 发表于 2025-5-27 11:17</a>
+
+0079TV虽然是集体创作，但富野是绝对的主导，安彦良和主要是人设和一部分集数的导演和编剧，话语权不算很 ...</blockquote>
+GTO我没看过，真夏亚是什么情况，高达W的多诺瓦吗……？
+
+*****
+
+####  syndrome2032  
+##### 93#       发表于 2025-5-27 12:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67854744&amp;ptid=2252419" target="_blank">大十字紅朔 发表于 2025-5-27 11:58</a>
+GTO我没看过，真夏亚是什么情况，高达W的多诺瓦吗……？</blockquote>
+就是收养鸭子兄妹家夫妇的孩子，真正的夏亚·阿兹纳布尔。
+
+鸭子顶了他的身份去读的军校，本人则是无自觉成为了凯斯巴尔·戴肯的替身死于扎比家的暗杀。
+
