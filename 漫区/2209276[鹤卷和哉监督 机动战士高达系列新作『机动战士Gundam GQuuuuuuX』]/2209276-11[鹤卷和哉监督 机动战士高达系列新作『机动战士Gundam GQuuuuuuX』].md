@@ -12806,3 +12806,257 @@ GQX世界线的手电筒可能是用泽克诺瓦进行攻击的NT兵器<img src=
 现在有紫婆基连叔叔联邦夏亚五方势力了，加上游离的番茄修斯，感觉真要一起爆起来要比 g 富国的混战还复杂 ...</blockquote>
 greco光地球都不止5派人
 
+
+*****
+
+####  依然荏苒  
+##### 15962#       发表于 2025-5-28 01:06
+
+我还以为会用手拍死呢，结果是浮游炮。这同学也是奇葩，说什么保护了他们纯洁的心然后杀了自己同学，被激光蒸发太便宜了。
+
+*****
+
+####  a85982313  
+##### 15963#       发表于 2025-5-28 01:06
+
+实时收视率约2.6
+
+<img src="https://img.stage1st.com/forum/202505/28/010558oqmfv75ljvviim5q.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20250521004205.png</strong> (138.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 01:05 上传
+
+*****
+
+####  windtrack  
+##### 15964#       发表于 2025-5-28 01:06
+
+有个想法，紫婆手电筒照地球的目的有没有可能不是为了消灭人类是而只是为了消灭拉拉？
+
+看紫婆79部分对话越看越有FF7R里爱丽丝那种多周目对话的味了...
+
+*****
+
+####  ArthurDent  
+##### 15965#       发表于 2025-5-28 01:06
+
+为啥说二号机像紫婆？
+
+—— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  ryanghj  
+##### 15966#       发表于 2025-5-28 01:07
+
+修司是被夏亚收留的孤儿之类的设定吧
+
+配合夏亚计划在寻找gqux和gfred的适格者
+
+现在应该回到地球大本营了
+
+所以夏亚所在的事例叫奥古吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ティグル  
+##### 15967#       发表于 2025-5-28 01:07
+
+那也太抽象了，什么女超人
+
+*****
+
+####  ryanghj  
+##### 15968#       发表于 2025-5-28 01:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856989&amp;ptid=2209276" target="_blank">ArthurDent 发表于 2025-5-28 01:06</a>
+
+为啥说二号机像紫婆？
+
+—— 来自 Xiaomi 2112123AC, Android 13, 鹅球 v3.5.99</blockquote>
+颜色，紫色
+
+*****
+
+####  战术核辣条  
+##### 15969#       发表于 2025-5-28 01:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856989&amp;ptid=2209276" target="_blank">ArthurDent 发表于 2025-5-28 01:06</a>
+
+为啥说二号机像紫婆？
+
+—— 来自 Xiaomi 2112123AC, Android 13, 鹅球 v3.5.99</blockquote>
+就是明说紫婆造机子动机不纯，二号机是为了用来给紫婆干坏事的
+
+*****
+
+####  希望之异热同心  
+##### 15970#       发表于 2025-5-28 01:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856972&amp;ptid=2209276" target="_blank">Earendil_C 发表于 2025-5-28 01:02</a>
+
+结局格里普斯战役概率大增，有木星来的男人，吉翁领导者，还有裤袜脱落） ...</blockquote>
+不得不说鹤卷的功力确实牛逼。。所有伏笔最后关键词都指向zeknova，新的手电筒看起来也是为了zeknove而造的，现在唯一不知道的是修斯的唯一愿望和zeknova有什么关系，但肯定有联系吧
+
+*****
+
+####  广告位  
+##### 15971#       发表于 2025-5-28 01:08
+
+顺了，修斯就是汤大基的克隆强化人，对应zz里的格雷米<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 LENOVO TB320FC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  盐盐盐盐盐  
+##### 15972#       发表于 2025-5-28 01:08
+
+这下给麻球发信息的可能是拉拉了
+
+*****
+
+####  qiyu1234  
+##### 15973#       发表于 2025-5-28 01:08
+
+所以回过头看，最奇怪的其实是第四集吧
+
+地球联邦魔女的故事总感觉只是个支线单元剧的程度
+
+跟魔女有关系的是红高达和鸭子而不是修司
+
+除非最后神交那里其实是被拉拉传送走了（
+
+*****
+
+####  YU_JI  
+##### 15974#       发表于 2025-5-28 01:08
+
+GFRED的名字有说法吗？
+
+*****
+
+####  ryanghj  
+##### 15975#       发表于 2025-5-28 01:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857000&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-28 01:08</a>
+
+GFRED的名字有说法吗？</blockquote>
+第十个占位符
+
+
+*****
+
+####  我聞如是  
+##### 15976#       发表于 2025-5-28 01:10
+
+GFred的編號是gMS-κ(kappa)
+
+塞可謬應該也是Kappa系統？
+
+<img src="https://img.stage1st.com/forum/202505/28/010908b2nz2nnnrxcw02il.jpg" referrerpolicy="no-referrer">
+
+<strong>1000028993.jpg</strong> (134.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 01:09 上传
+
+*****
+
+####  依然荏苒  
+##### 15977#       发表于 2025-5-28 01:10
+
+接下来怕是看不到红黑大战反而是一起私奔吧，最好再投奔联邦。30集浓缩成3集。
+
+*****
+
+####  大泽瑠璃乃  
+##### 15978#       发表于 2025-5-28 01:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856989&amp;ptid=2209276" target="_blank">ArthurDent 发表于 2025-5-28 01:06</a>
+
+为啥说二号机像紫婆？
+
+—— 来自 Xiaomi 2112123AC, Android 13, 鹅球 v3.5.99</blockquote>
+长得像
+
+而且喵安这么敏锐可能也嗅出了紫婆虽然在她面前是那样但也是会玩手电筒的狠人
+
+*****
+
+####  人形灾害  
+##### 15979#       发表于 2025-5-28 01:10
+
+G夸和G飞难道定位是平行世界的马克兔吗
+
+*****
+
+####  无念  
+##### 15980#       发表于 2025-5-28 01:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856999&amp;ptid=2209276" target="_blank">qiyu1234 发表于 2025-5-28 01:08</a>
+所以回过头看，最奇怪的其实是第四集吧
+
+地球联邦魔女的故事总感觉只是个支线单元剧的程度
+
+跟魔女有关系的是 ...</blockquote>
+可能只是给番茄开开眼界(
+外带这不是让联邦军开吉姆了嘛，老害的恶趣味也有可能哦
+卡哈：接下去要选一个人去死了，看看竹画的人设里最有人妻味的是谁<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  盐盐盐盐盐  
+##### 15981#       发表于 2025-5-28 01:11
+
+不过这人家的机子有机魂都是神神叨叨的只有喵安的机子被她自己认定像基西莉亚有点难蚌了，这算好词儿吗这<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 15982#       发表于 2025-5-28 01:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857006&amp;ptid=2209276" target="_blank">大泽瑠璃乃 发表于 2025-5-28 01:10</a>
+
+长得像
+
+而且喵安这么敏锐可能也嗅出了紫婆虽然在她面前是那样但也是会玩手电筒的狠人 ...</blockquote>
+而且会保护自己
+
+这集喵安内心说老太婆不讨厌自己，明显是和玛秋做比较了<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LOLITA  
+##### 15983#       发表于 2025-5-28 01:12
+
+在地球乡下和拉拉一起住的是阿姆罗就搞笑了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ヒトニナル  
+##### 15984#       发表于 2025-5-28 01:13
+
+如果玫瑰确实等于拉拉的话那么修司可能真的是在找妈妈<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这个妈不一定是生物意义上的妈
+
+*****
+
+####  ryanghj  
+##### 15985#       发表于 2025-5-28 01:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857015&amp;ptid=2209276" target="_blank">ヒトニナル 发表于 2025-5-28 01:13</a>
+
+如果玫瑰确实等于拉拉的话那么修司可能真的是在找妈妈
+
+这个妈不一定是生物意义上的妈 ...</blockquote>
+玫瑰基本可以确定是艾尔美斯了吧
+
+这个拉拉应该是gq本世界线的拉拉，因为艾尔美斯的缘故能够知晓正史，之类的设定吧
+
