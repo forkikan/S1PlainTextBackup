@@ -10042,3 +10042,25 @@ solar ray秒掉基连之后紫色老太婆反手被绿叔叔火箭筒爆头
 
 喵安不会给爆改成白皮吧 感觉有点政治不正确
 
+
+*****
+
+####  盐盐盐盐盐  
+##### 15680#       发表于 2025-5-27 19:53
+
+作为病态的表现皮肤变白挺合理的
+虽然这几年欧美的魔怔趋势来看真把褐色皮角色变白了估计又要被带节奏
+
+
+*****
+
+####  大十字紅朔  
+##### 15681#       发表于 2025-5-27 19:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856012&amp;ptid=2209276" target="_blank">盐盐盐盐盐 发表于 2025-5-27 19:53</a>
+
+作为病态的表现皮肤变白挺合理的
+
+虽然这几年欧美的魔怔趋势来看真把褐色皮角色变白了估计又要被带节奏 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/carton2017/085.png" referrerpolicy="no-referrer">变黑色就可以吗？（找了一下发现没有红A的表情）
+
