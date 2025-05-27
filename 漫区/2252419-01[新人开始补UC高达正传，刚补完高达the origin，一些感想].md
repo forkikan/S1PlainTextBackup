@@ -846,3 +846,35 @@ GTO无论漫画还是动画作为入坑选项都算是门槛很低的了  没�
 
 —— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  vorfeed  
+##### 80#       发表于 2025-5-27 09:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67854023&amp;ptid=2252419" target="_blank">太极八爪鱼 发表于 2025-5-27 06:11</a>
+这印象其实也没错，从0079就开始喜欢金发大马好吧，抛弃了自己的青梅竹马，跪舔死对头的妹妹！就因为对方 ...</blockquote>
+可是你说的0079跪舔死对头的妹妹本来就是小说版的印象  tv或者剧场版阿姆罗和塞拉并没有那么多交集的  
+
+如果只看0079和逆袭夏亚  根本没法推论出骡子金毛控  这个印象完全是把小说版0079、Z和贝托蒂嘉的子嗣三者混在一起得出的结论
+
+
+*****
+
+####  太极八爪鱼  
+##### 81#       发表于 2025-5-27 09:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67854179&amp;ptid=2252419" target="_blank">vorfeed 发表于 2025-5-26 17:04</a>
+
+可是你说的0079跪舔死对头的妹妹本来就是小说版的印象  tv或者剧场版阿姆罗和塞拉并没有那么多交集的  
+
+ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">衍生漫画！
+
+*****
+
+####  妄想系同盟  
+##### 82#       发表于 2025-5-27 09:07
+
+楼友只是提醒gto入坑的“这是平行世界”罢了，以免去其他论坛对线时吃亏呀<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

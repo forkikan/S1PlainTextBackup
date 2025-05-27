@@ -9335,3 +9335,21 @@ https://x.com/monolithTw/status/1925562179031638404
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  57042711  
+##### 15612#       发表于 2025-5-27 09:06
+
+复活也得等全剧终了吧，最后和盖茨推着坐轮椅的杜出场<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  闭挂锁人  
+##### 15613#       发表于 2025-5-27 09:10
+
+麻球这种不到绿叔叔打赢仗帮她洗罪名不然一辈子回不去side6吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
