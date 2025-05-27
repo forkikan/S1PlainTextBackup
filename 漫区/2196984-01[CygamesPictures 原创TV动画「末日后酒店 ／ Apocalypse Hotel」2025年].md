@@ -4030,3 +4030,11 @@ aiko，进攻性太强了吧
 就当八千代享受了一个5年长期假期吧。</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">考虑到地面上谁来管酒店这事还是不安desu的
 
+
+*****
+
+####  07579394  
+##### 350#       发表于 2025-5-27 09:48
+
+“Ground Control to Major 八千代”<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

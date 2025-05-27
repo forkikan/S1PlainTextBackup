@@ -1916,3 +1916,20 @@ psn现在不强制绑了
 还是说一定要找人才比较好</blockquote>
 我一直是随机匹配打的。肯定不如开黑乐呵，但是要玩的都能玩到。
 
+
+*****
+
+####  ParadiseMartyr  
+##### 6104#       发表于 2025-5-27 09:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67854008&amp;ptid=2170852" target="_blank">哈迪斯兜帽 发表于 2025-5-27 04:06</a>
+现在入坑来得及凑热闹吗
+
+有必要买豪华版吗
+
+要绑索尼账号吗</blockquote>
+【[HELLDIVERS2]万事开头难-当前10大债券的解锁升级顺序解析-哔哩哔哩】 https://b23.tv/EY9Kh7D
+不用买豪华版，按什么顺序解锁通行证看这个，
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
