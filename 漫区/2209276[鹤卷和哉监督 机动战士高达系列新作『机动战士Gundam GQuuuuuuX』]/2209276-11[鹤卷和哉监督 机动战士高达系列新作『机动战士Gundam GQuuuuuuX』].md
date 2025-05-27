@@ -9658,3 +9658,28 @@ solar ray秒掉基连之后紫色老太婆反手被绿叔叔火箭筒爆头
 那谁来带领之后的吉翁呢？ ...</blockquote>
 鸭子不肯参政，但是绿叔叔对政治看着还挺上心的
 
+
+*****
+
+####  cckuku  
+##### 15643#       发表于 2025-5-27 14:18
+
+小番茄能捞到出场吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jojonathan  
+##### 15644#       发表于 2025-5-27 14:23
+
+确实 想看这周的虐茄tv了<img src="https://static.stage1st.com/image/smiley/face2017/088.png" referrerpolicy="no-referrer">
+
+*****
+
+####  王留美  
+##### 15645#       发表于 2025-5-27 14:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67854688&amp;ptid=2209276" target="_blank">无念 发表于 2025-5-27 11:39</a>
+ 还是不一样的，吉姆是抢了高达后吉翁尼克造的，本质和他的名字一样，这条世界线的勇士罢了。 地球这边精 ...</blockquote>
+汉布拉比编号ORX-139，是奥古斯塔研究所制造的
+
