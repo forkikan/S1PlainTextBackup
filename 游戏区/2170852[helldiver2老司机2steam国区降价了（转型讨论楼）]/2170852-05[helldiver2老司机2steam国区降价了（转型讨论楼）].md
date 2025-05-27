@@ -1860,3 +1860,21 @@ QQ图片20250525184309.jpg
 
 有必要买豪华版吗
 
+
+*****
+
+####  MkChang  
+##### 6100#       发表于 2025-5-27 07:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67854008&amp;ptid=2170852" target="_blank">哈迪斯兜帽 发表于 2025-5-27 04:06</a>
+现在入坑来得及凑热闹吗
+
+有必要买豪华版吗
+
+要绑索尼账号吗</blockquote>
+凑热闹肯定来得及；
+豪华版多一把枪、一套没卵用的盔甲、一个披风、超级怨种称号、船上的小游戏机、铁血老兵债券，值不值看你个人了；
+psn现在不强制绑了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
