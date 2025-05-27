@@ -1141,3 +1141,14 @@ gto的这一段是对原作第41集的对仗。gto就想塑造出德金从 ...</
 
 我记得星一号作战后，基连类似打到底不怕联邦的台词吧
 
+
+*****
+
+####  江之岛右手  
+##### 102#       发表于 2025-5-27 16:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67855419&amp;ptid=2252419" target="_blank">syndrome2032 发表于 2025-5-27 16:07</a>
+
+我记得星一号作战后，基连类似打到底不怕联邦的台词吧</blockquote>
+马克贝熬德萨撤退后 看着升天的战舰说的 靠这些资源鸡瘟还能再战十年
+

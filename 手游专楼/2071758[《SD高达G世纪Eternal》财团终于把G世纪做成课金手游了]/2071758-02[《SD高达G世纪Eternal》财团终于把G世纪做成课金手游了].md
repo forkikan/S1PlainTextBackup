@@ -1626,3 +1626,11 @@ Z之前的好像都有79标签，现在卡池里0083的试作0号机也有79标�
 然后算动画推广的话UR小番茄+喵安的可能性也微存
 什么，居然是这个时段我最喜欢的BD系列！？
 
+
+*****
+
+####  windtrack  
+##### 1631#       发表于 2025-5-27 16:14
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">居然是gp01fb和红螃蟹，gp02都不舍得给吗
+
