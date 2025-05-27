@@ -10105,3 +10105,156 @@ solar ray秒掉基连之后紫色老太婆反手被绿叔叔火箭筒爆头
 
 那就先从最强战力绿叔叔下手吧<img src="https://static.stage1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  盐盐盐盐盐  
+##### 15686#       发表于 2025-5-27 20:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856014&amp;ptid=2209276" target="_blank">大十字紅朔 发表于 2025-5-27 19:55</a>
+ 变黑色就可以吗？（找了一下发现没有红A的表情）</blockquote>
+那确实可以<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+这几年欧美观众不知道为什么有一批人就很热衷把二刺螈普通皮（白皮）角色爆改黑人
+
+*****
+
+####  秋月孝三  
+##### 15687#       发表于 2025-5-27 20:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856030&amp;ptid=2209276" target="_blank">qixinno2 发表于 2025-5-27 19:59</a>
+
+结尾能不能看到某开着测试机的天然卷把这些人都给点了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">天趴还是和蓝毛美少年组团打重开的军团战去吧
+
+
+*****
+
+####  岸浪白野  
+##### 15688#       发表于 2025-5-27 20:13
+
+[X 上的 Edgar_syu：“「バイト(′゜ω。‵)」 #GQuuuuuuX #ジークアクス [url]https://t.co/PRHgfctzqg](https://x.com/Edgar_Syu/status/1925507003709104642)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/27/175704mf0slaf5atf7tf0l.png" referrerpolicy="no-referrer">
+
+<strong>TWQ86@W_4[)IG[KE2JRM4UP.png</strong> (3.63 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-27 17:57 上传
+
+[X 上的 ぜつよちまよ：“#GQuuuuuuX [url]https://t.co/5gHL7mHEgT](https://x.com/zetsuyochimayo/status/1926613945499992516)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/27/173320wdp6y4698boob8yo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.84 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-27 17:33 上传
+
+[X 上的 かにビーム：“マチュさん1話の時の印象からずいぶん遠くに行ってしまった。先の展開が読めなさすぎて目が離せない・・・ #ジークアクス [url]https://t.co/xAtogjM7i3](https://x.com/kani_biimu/status/1926549939460415577)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/27/173404ipygndy3xpvqzdsy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.33 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-27 17:34 上传
+
+[X 上的 あかねね：“このニャアンがめちゃくちゃ可愛かったんだけど、あんまり話題になってなくてあれ？ってなってる。 なので描いた。 #ジークアクス #GQuuuuuuX [url]https://t.co/mTLTSkABl0](https://x.com/akanene928/status/1925801461331448187)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/27/174947fdzl2vn4pshpnzt1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.21 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-27 17:49 上传
+
+[X 上的 sierra：“ニャアン [url]https://t.co/mzFB7dnD1H](https://x.com/senyanya_sierra/status/1926941514543800677)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/27/175136v404sb0r04nzzz64.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.83 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-27 17:51 上传
+
+[X 上的 🪐：“[url]https://t.co/M0ya4iZYQV](https://x.com/Ymmmkome/status/1925024579359285669)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/27/172241mmooi8oo5dod5m8i.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.3 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-27 17:22 上传
+
+[X 上的 ユキヒロ：“ﾏﾁｭおめでとう 君が欲しがってた非日常だよ [url]https://t.co/LEGbCten6J](https://x.com/ykhrotto/status/1925239790699782198)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/27/172548zfsz5p5p2jjshs2s.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.8 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-27 17:25 上传
+
+[X 上的 錆々【さびさび】：“もうどうなってもいいや [url]https://t.co/HC12EpSwHC](https://x.com/Sabi_Sabi1234/status/1926602938274783426)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/27/173245m0qgo0ohq08z1q8q.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.3 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-27 17:32 上传
+
+[양갈래 (@2wintail__) / X](https://x.com/2wintail__)
+
+<img src="https://img.stage1st.com/forum/202505/27/172436mrdl45vewzljz5qv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.82 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-27 17:24 上传
+
+<img src="https://img.stage1st.com/forum/202505/27/172443don3r2q2ocxlnlib.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.85 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-27 17:24 上传
+
+[X 上的 Ripley🐈‍⬛：“hang in there Nyaan #GQuuuuuuX #ジークアクス [url]https://t.co/l7gWZWZliY](https://x.com/ScarletKoito/status/1925360156965261434)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/27/172802uyu42vvj74f2dvfc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.94 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-27 17:28 上传
+
+[X 上的 𝕠𝕫：“もうどうなってもいいや [url]https://t.co/gx5UJ8s1Dw](https://x.com/oz_0w0/status/1926993053320896617)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/27/180427ottgieekkk9fvicc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.42 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-27 18:04 上传
+
+<img src="https://img.stage1st.com/forum/202505/27/201258q44jd2l8zsvx2lo7.png" referrerpolicy="no-referrer">
+
+<strong>W_N5MPO}8DS]$)[_0XV)@{R.png</strong> (3.4 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-27 20:12 上传
+
