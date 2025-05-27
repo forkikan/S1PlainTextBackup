@@ -113,3 +113,16 @@
 如果宝子哥 ...</blockquote>
 兔浮剧情里是孔子宝
 
+
+*****
+
+####  Jamaisvu  
+##### 1133#       发表于 2025-5-27 21:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856194&amp;ptid=2120922" target="_blank">ヒトニナル 发表于 2025-5-27 20:49</a>
+
+兔浮剧情里是孔子宝</blockquote>
+多谢，没细看三破剧情，那赛季人格应该是叫“鸿璐 绽放E.G.O::而立”。
+
+这种安排的话有点像第四章，冬柏是赛季人格而非东郎。不过也可能第八章part3会再决战一次孔子，毕竟子贡还没上场呢。
+
