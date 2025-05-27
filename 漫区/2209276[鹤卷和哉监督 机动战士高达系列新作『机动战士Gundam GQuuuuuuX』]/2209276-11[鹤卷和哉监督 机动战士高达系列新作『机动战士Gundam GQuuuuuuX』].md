@@ -10422,3 +10422,54 @@ G永恒送喵安
 
 2025-5-27 23:07 上传
 
+
+*****
+
+####  我聞如是  
+##### 15697#       发表于 2025-5-27 23:13
+
+難道杜真的沒死？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  某某某人  
+##### 15698#       发表于 2025-5-27 23:15
+
+因為這集喵安要變白皮，過去的黑皮喵安已經死了所以才送嗎(
+
+*****
+
+####  Concrete  
+##### 15699#       发表于 2025-5-27 23:16
+
+玛秋好棒
+
+*****
+
+####  岸浪白野  
+##### 15700#       发表于 2025-5-27 23:18
+
+想太多
+
+第4集死的魔女第6集播才送，第5集死的二连星第7集才送
+
+那送杜肯定第9集啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  二阶堂真琉  
+##### 15701#       发表于 2025-5-27 23:19
+
+喵安桑这里是英灵殿不能乱来的！<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/24/a7c13da83681f6e9398abc4e535d1ad0/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PKR110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  无念  
+##### 15702#       发表于 2025-5-27 23:19
+
+会不会白皮喵安其实是障眼法？黑皮白皮其实是两个人？白皮是格拉纳达造的复制人，类似于普露兹？
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

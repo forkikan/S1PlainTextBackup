@@ -1834,3 +1834,23 @@ SEED：很不错的防御机，只是不能飞，没UR防御机的话可以优�
 
 居然是喵安..................技能组也是抢gqx开的
 
+
+*****
+
+####  rockroxas  
+##### 1649#       发表于 2025-5-27 23:16
+
+能力抢不过小番茄，还是平均型的，感觉二号机要不下次送要不过两天SSR进卡池
+
+考虑到之前送的夏亚也是要到卡池捞白高达，我觉得是后者
+
+*****
+
+####  demon6666  
+##### 1650#       发表于 2025-5-27 23:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856449&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-5-27 22:32</a>
+
+79：UR化是强力输出，接下来的0083活动加成很高还有对79特攻；但是放到其他时代没什么亮点，主力武装命中9 ...</blockquote>
+输出目前有三个，那还是先弄防御了，可惜我多数是UC系的机子，却没有精神力框架的支援<img src="https://static.stage1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
