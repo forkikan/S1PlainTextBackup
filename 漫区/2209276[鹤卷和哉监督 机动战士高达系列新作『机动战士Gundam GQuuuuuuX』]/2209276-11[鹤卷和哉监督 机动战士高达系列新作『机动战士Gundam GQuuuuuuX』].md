@@ -9404,3 +9404,38 @@ SIDE6政府明显逐利的，绿叔叔只要能把好处给足了就行，不过
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  玖羽  
+##### 15619#       发表于 2025-5-27 11:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67854602&amp;ptid=2209276" target="_blank">无念 发表于 2025-5-27 11:18</a>
+
+其实挺简单的，只要提坦斯还是成立了，汉布拉比和精神病肯定是藏不住的，汉布拉比肯定会量产，精神病搞不好 ...</blockquote>
+不一定，提坦斯的主力机型是高扎古（正好有现成的扎古换皮），精神病这种特机只要不用没人知道，汉谟拉比在原作里也很少，更是没有量产的必要
+
+*****
+
+####  无念  
+##### 15620#       发表于 2025-5-27 11:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67854651&amp;ptid=2209276" target="_blank">玖羽 发表于 2025-5-27 11:29</a>
+不一定，提坦斯的主力机型是高扎古（正好有现成的扎古换皮），精神病这种特机只要不用没人知道，汉谟拉比 ...</blockquote>
+高扎古是ae吸了吉翁尼克和兹马达后造出来的，这个世界线还有没有难说哦
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  玖羽  
+##### 15621#       发表于 2025-5-27 11:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67854659&amp;ptid=2209276" target="_blank">无念 发表于 2025-5-27 11:31</a>
+
+高扎古是ae吸了吉翁尼克和兹马达后造出来的，这个世界线还有没有难说哦
+
+—— 来自 HONOR SDY-AN00, Andr ...</blockquote>
+有吉姆、汉谟拉比、精神病在前，科技线早就无所谓了
+
