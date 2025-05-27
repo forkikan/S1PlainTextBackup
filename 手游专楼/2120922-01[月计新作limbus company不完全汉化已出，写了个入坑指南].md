@@ -101,3 +101,15 @@
 
 感觉破裂队也可以单独分个呼破队出来，这样九协罗和黑兽巳罗都有用武之地，不至于迭代的太快。毕竟现在三星连发，养成压力有点大。
 
+
+*****
+
+####  ヒトニナル  
+##### 1132#       发表于 2025-5-27 20:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67855927&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2025-5-27 19:15</a>
+下一个池子是惜春玛丽，参考助战角色，应该是和西五默、黑兽巳二人组一样的破裂呼吸系人格。
+
+如果宝子哥 ...</blockquote>
+兔浮剧情里是孔子宝
+

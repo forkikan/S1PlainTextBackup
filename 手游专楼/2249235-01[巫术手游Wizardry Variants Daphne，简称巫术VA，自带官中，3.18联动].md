@@ -1289,3 +1289,23 @@ roll到13%攻和18攻就可以用+4-6攻击改掉防御，然后只强化第一�
 用人偶打法硬生生磨死了关底，闪避不掉被魅惑，然后不能防反</blockquote>
 其实闪避掉了也会概率被魅惑<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  电脑死机  
+##### 385#       发表于 2025-5-27 20:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67855928&amp;ptid=2249235" target="_blank">macshi 发表于 2025-5-27 19:16</a>
+
+其实闪避掉了也会概率被魅惑</blockquote>
+所以古城最后五层什么队伍比较靠谱？三前卫三法师，还是？
+
+*****
+
+####  Flechette  
+##### 386#       发表于 2025-5-27 20:56
+
+回头玩了一下巫术1重制，能感受到一种古老的恶意<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，相比之下手游虽然延续了这份恶意，但也人性化了很多
+
+第一层就有个隐藏门迷宫，跑迷宫的时候碰了一下某个小房间里的灯，召出两个murphy's ghost把我打团灭了，结果还得再准备一队人去捞尸体
+
