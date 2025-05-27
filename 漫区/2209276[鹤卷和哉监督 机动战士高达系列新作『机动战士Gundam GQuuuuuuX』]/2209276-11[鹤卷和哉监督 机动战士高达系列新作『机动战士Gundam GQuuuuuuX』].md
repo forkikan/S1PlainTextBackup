@@ -9695,3 +9695,33 @@ solar ray秒掉基连之后紫色老太婆反手被绿叔叔火箭筒爆头
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  某某某人  
+##### 15647#       发表于 2025-5-27 14:57
+
+<blockquote>jojonathan 发表于 2025-5-27 14:23
+确实 想看这周的虐茄tv了</blockquote>
+奶一口首席哥和喵安訓練後閒聊
+
+首席哥：說起來我一開始還以為妳那個紅髮JK朋友才是GQX駕駛員呢哈哈哈
+
+喵安：誰啊？不認識，那個才不是我的朋友
+
+
+*****
+
+####  秋月孝三  
+##### 15648#       发表于 2025-5-27 15:03
+
+说起来要是绿叔叔真的帮麻球解决了涉恐嫌疑，是不是就和下图差不多了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">：
+
+<img src="https://img.stage1st.com/forum/202505/27/150313c6t1styynt60zpk9.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1748329349289.png</strong> (605.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-27 15:03 上传
+
