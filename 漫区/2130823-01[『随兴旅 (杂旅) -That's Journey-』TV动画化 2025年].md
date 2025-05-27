@@ -33,3 +33,21 @@ ed好听
 
 第7集去伊势感觉都看过<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  renkan119  
+##### 51#       发表于 2025-5-27 21:55
+
+<img src="https://img.stage1st.com/forum/202505/27/215345afj85eu4ly4glycm.png" referrerpolicy="no-referrer">
+
+<strong>IMG_0073.png</strong> (856.56 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-27 21:53 上传
+
+这集的大鸟居 在漫画出的时间点还在维护 三人没能看到
+
+动画大概是因为现在现实已经维护好了吧 改成了学妹以前来的时候在维护 这次三人看到了
+
