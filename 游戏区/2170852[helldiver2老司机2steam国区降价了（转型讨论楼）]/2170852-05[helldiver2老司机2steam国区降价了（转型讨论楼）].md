@@ -1982,3 +1982,15 @@ psn现在不强制绑了
 
 2025-5-27 12:50 上传
 
+
+*****
+
+####  妄想系同盟  
+##### 6109#       发表于 2025-5-27 13:14
+
+<blockquote>The_Fool_ 发表于 2025-5-27 12:15
+这是网游啊，如果是全程solo的意思的话，我得说我这里移动宽带不开加速器连反作弊程序都过不去
+
+—— 来 ...</blockquote>
+感谢<img src="https://static.stage1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
