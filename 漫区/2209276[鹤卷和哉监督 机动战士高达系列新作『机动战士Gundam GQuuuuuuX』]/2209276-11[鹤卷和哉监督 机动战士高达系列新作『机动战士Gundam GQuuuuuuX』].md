@@ -14060,3 +14060,93 @@ Screenshot_2025-05-28-01-56-41-051_com.baidu.tieba.jpg
 这话末尾基西莉亚念叨夏亚时眼睛都闪着光，很难不是含情脉脉</blockquote>
 在基西莉亚的视点看来就是骑士夏亚为了保护她而自爆，少女心很难不KIRAKIRA啊
 
+
+*****
+
+####  YU_JI  
+##### 16077#       发表于 2025-5-28 02:37
+
+既然有奥古了，会有奥古工程师阿姆罗·雷吗？
+
+*****
+
+####  ティグル  
+##### 16078#       发表于 2025-5-28 02:38
+
+没有月面资本和布列克斯哪来的AEUG
+
+*****
+
+####  ryanghj  
+##### 16079#       发表于 2025-5-28 02:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857164&amp;ptid=2209276" target="_blank">ティグル 发表于 2025-5-28 02:38</a>
+
+没有月面资本和布列克斯哪来的AEUG</blockquote>
+
+<img src="https://img.stage1st.com/forum/202505/28/024031b4bccev7yvftkt77.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.75 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 02:40 上传
+
+欸，你别说，OP里牢修背后有一个大 大的吉翁尼克的LOGO<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xwz  
+##### 16080#       发表于 2025-5-28 02:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856924&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-28 00:46</a>
+
+是普露系列还是格雷米呢？</blockquote>
+弗尔·弗朗特，对紫婆特攻<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  YU_JI  
+##### 16081#       发表于 2025-5-28 02:43
+
+<blockquote>ティグル 发表于 2025-5-28 02:38
+没有月面资本和布列克斯哪来的AEUG</blockquote>
+不是说真是奥古，至少是对标奥古的，这是平行世界，目的、名字、组成乃至幕后资本有区别很正常，如果鸭子背后有组织的话，我觉得这个组织八九不离十就是对标奥古的，目前看鸭子的行动是针对手电筒和GFred，明显冲着吉翁，这次的组织怕不是AZUG
+
+*****
+
+####  nibugishi  
+##### 16082#       发表于 2025-5-28 02:43
+
+这节奏是真的崩，之前抠抠索索，现在一脚油门
+
+*****
+
+####  wasssf  
+##### 16083#       发表于 2025-5-28 02:43
+
+有哈罗说明这个世界骡子是哈罗大亨
+
+*****
+
+####  ティグル  
+##### 16084#       发表于 2025-5-28 02:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857165&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-28 02:40</a>
+
+欸，你别说，OP里牢修背后有一个大 大的吉翁尼克的LOGO</blockquote>
+由zeonic出资，鸡瘟军高层的人脉搭建，前鸡瘟军带着武器脱离军队后加入的AEUG，哦不对应该改名叫AZUG了
+
+听着怎么这么不靠谱呢
+
+*****
+
+####  wasssf  
+##### 16085#       发表于 2025-5-28 02:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857167&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-28 02:43</a>
+
+不是说真是奥古，至少是对标奥古的，这是平行世界，目的、名字、组成乃至幕后资本有区别很正常，如果鸭子 ...</blockquote>
+太别扭 叫neozeon算了
+
