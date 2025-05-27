@@ -9299,3 +9299,21 @@ khara的保密是不是该管管了，怎么经常被人泄密
 
 <img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  南朝Sonicbbs  
+##### 15609#       发表于 2025-5-27 08:15
+
+开播前再转一个假设杜活下来的同人图：
+
+https://x.com/monolithTw/status/1925562179031638404
+
+<img src="https://img.stage1st.com/forum/202505/27/081524ni7cu55557d5vxx7.jpg" referrerpolicy="no-referrer">
+
+<strong>逃走.jpg</strong> (129.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-27 08:15 上传
+
