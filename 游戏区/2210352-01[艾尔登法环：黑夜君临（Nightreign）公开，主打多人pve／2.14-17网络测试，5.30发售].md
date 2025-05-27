@@ -2891,3 +2891,13 @@ Xbox也开始疯狂断线了<img src="https://static.stage1st.com/image/smiley/f
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  斯库鲁多  
+##### 316#       发表于 2025-5-28 04:05
+
+别太期待就是了，就目前看来为了适配角色速度和探索节奏基本不可能给你整正经地牢的，做出来也无法给玩家造成压力。
+
+结合目前放出来的信息和泄露信息，内容量真的相当少，除了角色个人剧情被官方限制剧透外基本都给你在pv里展示完了，几个额外地形也疑似是固定关卡敌人组合，先猜一个7分往下<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

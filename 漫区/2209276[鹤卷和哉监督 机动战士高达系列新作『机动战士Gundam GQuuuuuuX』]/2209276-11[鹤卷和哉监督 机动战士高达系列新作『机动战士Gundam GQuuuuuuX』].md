@@ -14360,3 +14360,27 @@ gq世界线的赛可缪技术已经和独角兽差不多了，上集精神力高
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  岸浪白野  
+##### 16103#       发表于 2025-5-28 04:11
+
+还真是黑色高领对应白色高领，更别说遮眼元素对应墨镜还有名字那些了
+
+<img src="https://img.stage1st.com/forum/202505/28/040958x8hybkwggqxdxqzk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (188.74 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 04:09 上传
+
+<img src="https://img.stage1st.com/forum/202505/28/041045yd4f4ee4244n93e9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (195.34 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 04:10 上传
+
