@@ -14213,3 +14213,61 @@ Screenshot_2025-05-28-01-56-41-051_com.baidu.tieba.jpg
 不是麻球？修司捡到高达和神隐现在看应该和夏亚无关了，夏亚应该消失之后没有带着高达一起穿越，消失之后 ...</blockquote>
 修司明显是夏亚教出来的啊，估计早就是奥古（GQ）的成员了
 
+
+*****
+
+####  YU_JI  
+##### 16092#       发表于 2025-5-28 02:57
+
+ 本帖最后由 YU_JI 于 2025-5-28 02:59 编辑 
+
+搞不好康奇其实是鸭子的摄像头，这样即使机魂论破产也能解释康奇的鸭子特征了，修司之前和康奇交流其实也是和鸭子交流，他一直都是鸭子的人，而且还能解释为什么鸭子马上拿到了GFred的情报，因为喵安一直带着康奇，还有那句“世界在不停变化”，卧槽感觉全串起来了
+
+
+*****
+
+####  岸浪白野  
+##### 16093#       发表于 2025-5-28 03:02
+
+到头成了只有了玛秋独自去地球，这句地球在哪里也不是问看不看到的问题了
+
+<img src="https://img.stage1st.com/forum/202505/28/025943j0vooozvo9mkqm7z.png" referrerpolicy="no-referrer">
+
+<strong>97[8S{``EZEPP7(LEES[VE4.png</strong> (553.98 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 02:59 上传
+
+<img src="https://img.stage1st.com/forum/202505/28/025810oxtpapw5xz8lx2j8.png" referrerpolicy="no-referrer">
+
+<strong>XWYBM{@[H1LVOC01{V_6QWI.png</strong> (434.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 02:58 上传
+
+<img src="https://img.stage1st.com/forum/202505/28/025810tdle79hzlfux7k9a.png" referrerpolicy="no-referrer">
+
+<strong>2XAVRI(9T{)GFB62GZ%{CAW.png</strong> (529.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 02:58 上传
+
+<img src="https://img.stage1st.com/forum/202505/28/025811yp0dxq02dx91b00x.png" referrerpolicy="no-referrer">
+
+<strong>G3@_%[YWEH%D]BPKG]`{CKC.png</strong> (618.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 02:58 上传
+
+<img src="https://img.stage1st.com/forum/202505/28/025811izyy97r0azaa5leb.png" referrerpolicy="no-referrer">
+
+<strong>V({}Z6G3X_G}`X`J{[3PD)8.png</strong> (610.12 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 02:58 上传
+
