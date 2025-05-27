@@ -1279,3 +1279,13 @@ roll到13%攻和18攻就可以用+4-6攻击改掉防御，然后只强化第一�
 
 用人偶打法硬生生磨死了关底，闪避不掉被魅惑，然后不能防反<img src="https://static.stage1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  macshi  
+##### 384#       发表于 2025-5-27 19:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67855848&amp;ptid=2249235" target="_blank">toblkr 发表于 2025-5-27 18:37</a>
+用人偶打法硬生生磨死了关底，闪避不掉被魅惑，然后不能防反</blockquote>
+其实闪避掉了也会概率被魅惑<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

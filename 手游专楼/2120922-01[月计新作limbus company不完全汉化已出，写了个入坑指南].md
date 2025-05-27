@@ -80,3 +80,24 @@
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">因为环箱的时候说不会对未来新出的进行削弱吧
 哎，我削弱老的不就行了<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 1131#       发表于 2025-5-27 19:15
+
+<img src="https://img.stage1st.com/forum/202505/27/191550vfrebso4eodflo8e.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20250527_190405.jpg</strong> (297.54 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-5-27 19:15 上传
+
+下一个池子是惜春玛丽，参考助战角色，应该是和西五默、黑兽巳二人组一样的破裂呼吸系人格。
+
+如果宝子哥的赛季人格是孔子哥，就属于符咒破裂系。不过孔子的身形和锁子比较接近，给他也可以。宝子可以等第三阶段的最终BOSS出来再继承衣钵。
+
+感觉破裂队也可以单独分个呼破队出来，这样九协罗和黑兽巳罗都有用武之地，不至于迭代的太快。毕竟现在三星连发，养成压力有点大。
+
