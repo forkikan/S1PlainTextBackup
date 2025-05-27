@@ -878,3 +878,14 @@ GTO无论漫画还是动画作为入坑选项都算是门槛很低的了  没�
 
 楼友只是提醒gto入坑的“这是平行世界”罢了，以免去其他论坛对线时吃亏呀<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天地猫MKII  
+##### 83#       发表于 2025-5-27 09:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67854147&amp;ptid=2252419" target="_blank">劳动改造归来 发表于 2025-5-27 08:48</a>
+
+你这就太小看今西右棍了，也高估了普通人的政治敏感度，还有就是年轻人容易被忽悠，君不见即使是现在依然 ...</blockquote>
+最傻逼的莫过于此，一堆人拿着TTS干了来说，ZION带头的好吧，光头现在也是个有点反战败而不是反战争的味道。以前玩杂鱼一堆人在那ZICK ZION的，看着就想两核弹丢过去。
+

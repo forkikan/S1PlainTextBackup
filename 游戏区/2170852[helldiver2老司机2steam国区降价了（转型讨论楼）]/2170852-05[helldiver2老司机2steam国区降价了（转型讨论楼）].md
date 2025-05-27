@@ -1878,3 +1878,18 @@ psn现在不强制绑了
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  xinfengj  
+##### 6101#       发表于 2025-5-27 09:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67854008&amp;ptid=2170852" target="_blank">哈迪斯兜帽 发表于 2025-5-27 04:06</a>
+
+现在入坑来得及凑热闹吗
+
+有必要买豪华版吗
+
+要绑索尼账号吗</blockquote>
+我推荐经济能力支持的话入豪华版。豪华版里老兵债券的火喷前期打虫暴力实用，新号上来就去保卫上海也没蓝币解爆裂铳，肯定要先刷虫子。拿两个债券返的蓝币再随便捡点就够爆破债券了。
+
