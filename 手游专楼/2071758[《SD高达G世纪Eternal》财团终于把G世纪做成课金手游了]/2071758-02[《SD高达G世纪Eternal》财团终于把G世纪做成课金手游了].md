@@ -1739,3 +1739,18 @@ SR：自由，正义，禁断，ZZ，强化ZZ（除了自由其他PVP都不太�
 SSR ...</blockquote>
 卡池SSR都没有啊 凑活混吧
 
+
+*****
+
+####  alialex  
+##### 1642#       发表于 2025-5-27 21:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67855969&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-5-27 19:34</a>
+
+目前来看支援机不值得SP化，除非真爱
+
+SR：自由，正义，禁断，ZZ，强化ZZ（除了自由其他PVP都不太行）
+
+SSR ...</blockquote>
+别的好理解，为什么有扎古2改？单纯是吃得到这次PVP加成吗
+
