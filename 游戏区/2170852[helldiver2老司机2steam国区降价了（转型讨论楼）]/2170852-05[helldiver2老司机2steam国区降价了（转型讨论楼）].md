@@ -2118,3 +2118,11 @@ psn现在不强制绑了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  xinfengj  
+##### 6115#       发表于 2025-5-27 18:30
+
+修bug修出速搓球会被吞指令球的bug<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

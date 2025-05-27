@@ -1666,3 +1666,13 @@ gp02估计是卡池机，就是不知道卡池另一个是啥
 
 现在有啥值得SP化的机体？UR只有牛一台支援机，没有防御机的情况下
 
+
+*****
+
+####  里村紅葉  
+##### 1636#       发表于 2025-5-27 18:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67855735&amp;ptid=2071758" target="_blank">kulanyee 发表于 2025-5-27 17:55</a>
+所以将来是所有叫得上名号的都会有UR机是吧</blockquote>
+甚至同一台机体可能反复UR化<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

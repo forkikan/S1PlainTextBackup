@@ -10013,3 +10013,15 @@ solar ray秒掉基连之后紫色老太婆反手被绿叔叔火箭筒爆头
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  ftyaid  
+##### 15677#       发表于 2025-5-27 18:29
+
+ 本帖最后由 ftyaid 于 2025-5-27 18:33 编辑 
+
+话说弗拉纳冈是用什么手段强化强化人的来着，药物还是催眠？没印象了
+
+突然想起来好像是都用的，几家强化人机构应该都是这样<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

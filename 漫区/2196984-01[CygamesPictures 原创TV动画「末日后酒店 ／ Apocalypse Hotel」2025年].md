@@ -4038,3 +4038,15 @@ aiko，进攻性太强了吧
 
 “Ground Control to Major 八千代”<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  玻璃洋葱  
+##### 351#       发表于 2025-5-27 18:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67848784&amp;ptid=2196984" target="_blank">太极八爪鱼 发表于 2025-5-25 04:19</a>
+一舰两星啊……所以先放出去的那个不就是广告卫星么。</blockquote>
+重新看了下 是的<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
