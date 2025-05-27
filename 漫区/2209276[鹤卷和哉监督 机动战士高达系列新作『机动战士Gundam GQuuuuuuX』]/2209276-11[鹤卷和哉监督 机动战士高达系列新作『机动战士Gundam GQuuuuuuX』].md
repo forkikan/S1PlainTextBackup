@@ -9635,3 +9635,26 @@ Two活下来，然后这集被开二号机的喵安击坠，Two被基西莉亚�
 艹，卡尔玛上台那搞不好电影院里真的能看见夏亚和老太婆上演战争绝恋，等会，那炮毙了老太婆的绿叔叔不是 ...</blockquote>
 不是……所以这条线的卡尔玛到底这会儿在干嘛？我之前去搜了一下说是隐居了是什么鬼……？
 
+
+*****
+
+####  昆古尼尔  
+##### 15641#       发表于 2025-5-27 13:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67854968&amp;ptid=2209276" target="_blank">左翼齐飞 发表于 2025-5-27 13:38</a>
+不是……所以这条线的卡尔玛到底这会儿在干嘛？我之前去搜了一下说是隐居了是什么鬼……？ ...</blockquote>
+和市长千金私奔了吧
+
+—— 来自 Xiaomi 2311DRK48C, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  winda  
+##### 15642#       发表于 2025-5-27 13:58
+
+<blockquote>ftyaid 发表于 2025-5-27 12:44
+solar ray秒掉基连之后紫色老太婆反手被绿叔叔火箭筒爆头
+
+那谁来带领之后的吉翁呢？ ...</blockquote>
+鸭子不肯参政，但是绿叔叔对政治看着还挺上心的
+
