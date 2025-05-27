@@ -14400,3 +14400,29 @@ gq世界线的赛可缪技术已经和独角兽差不多了，上集精神力高
 
 2025-5-28 04:21 上传
 
+
+*****
+
+####  bbjajdd  
+##### 16105#       发表于 2025-5-28 05:24
+
+鸭子虽然没死，但红高达机魂还是有可能是鸭子
+
+就像虽然卡缪没死，用了z高达赛克缪装置的重高达里依然有卡缪机魂
+
+<img src="https://img.stage1st.com/forum/202505/28/052449ef924xfx6r6468fo.jpg" referrerpolicy="no-referrer">
+
+<strong>1000030723.jpg</strong> (249.37 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 05:24 上传
+
+<img src="https://img.stage1st.com/forum/202505/28/052449bex1hkyyc0mohlxx.jpg" referrerpolicy="no-referrer">
+
+<strong>1000030725.jpg</strong> (259.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 05:24 上传
+
