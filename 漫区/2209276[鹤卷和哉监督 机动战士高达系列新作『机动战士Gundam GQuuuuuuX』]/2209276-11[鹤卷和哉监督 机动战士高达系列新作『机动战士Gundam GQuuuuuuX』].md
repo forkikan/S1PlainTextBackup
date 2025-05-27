@@ -13060,3 +13060,199 @@ G夸和G飞难道定位是平行世界的马克兔吗
 
 这个拉拉应该是gq本世界线的拉拉，因为艾尔美斯的缘故能够知晓正史，之类的设定吧
 
+
+*****
+
+####  岸浪白野  
+##### 15986#       发表于 2025-5-28 01:16
+
+卡帕赛可缪
+
+*****
+
+####  LOLITA  
+##### 15987#       发表于 2025-5-28 01:16
+
+鹤卷哥哥，我要在剩下的集数里见到汤大基的阿姆罗复制人大队或者哈曼复制人大队，你做得到吧啊啊啊？
+
+*****
+
+####  windtrack  
+##### 15988#       发表于 2025-5-28 01:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857016&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-28 01:14</a>
+
+玫瑰基本可以确定是艾尔美斯了吧
+
+这个拉拉应该是gq本世界线的拉拉，因为艾尔美斯的缘故能够知晓正史，之 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">搞不好拉拉是多重宇宙奇点，所有宇宙的拉拉都是同一个拉拉
+
+*****
+
+####  猪突猛进R  
+##### 15989#       发表于 2025-5-28 01:18
+
+<img src="https://img.stage1st.com/forum/202505/28/011801b0s0p6mm6z0ay0hn.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQkl1-97qjK2pT3cSw9-xp.jpg</strong> (103.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 01:18 上传
+
+*****
+
+####  ryanghj  
+##### 15990#       发表于 2025-5-28 01:18
+
+复制人就是杜系列了吧，正好和金元说的话对的上
+
+所以给巴斯克情报的就是基连咯，那估计村雨研究所他也有投资
+
+*****
+
+####  Alphawalker  
+##### 15991#       发表于 2025-5-28 01:18
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">骡子叔叔不出现的可能性就剩1%了
+
+*****
+
+####  天手让叶  
+##### 15992#       发表于 2025-5-28 01:18
+
+终于能去地球了
+
+*****
+
+####  qiyu1234  
+##### 15993#       发表于 2025-5-28 01:19
+
+这个世界线的哈曼在干啥，照顾汤小美吗（
+
+*****
+
+####  zzf111  
+##### 15994#       发表于 2025-5-28 01:20
+
+这下半集信息量和转折冲突比上集好几倍
+
+线上能暂停了看0079部分，红高夏亚遇到塞拉脑门过电的时候第一帧藏了拉拉但是画面过的太快谁都没看出来<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ヒトニナル  
+##### 15995#       发表于 2025-5-28 01:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857016&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-28 01:14</a>
+玫瑰基本可以确定是艾尔美斯了吧
+
+这个拉拉应该是gq本世界线的拉拉，因为艾尔美斯的缘故能够知晓正史，之 ...</blockquote>
+那更合理了，比起拉拉来无机质物可能更像高达妖精的妈<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 15996#       发表于 2025-5-28 01:21
+
+<img src="https://img.stage1st.com/forum/202505/28/012133qi4zmbubb56476sh.png" referrerpolicy="no-referrer">
+
+<strong>X[%W]MGTYOPDB~XG4EO5``V.png</strong> (554.64 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 01:21 上传
+
+*****
+
+####  ftyaid  
+##### 15997#       发表于 2025-5-28 01:21
+
+拉拉不会拉着阿姆罗去地球谈恋爱去了吧
+
+
+*****
+
+####  岸浪白野  
+##### 15998#       发表于 2025-5-28 01:23
+
+[X 上的 錆々【さびさび】：“もしかして…マジで来ちゃった？ #GQuuuuuuX [url]https://t.co/HSRM9nols1](https://x.com/Sabi_Sabi1234/status/1927411776435429742)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/28/012303hu9dh0bdn0gnn8m0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.54 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 01:23 上传
+
+*****
+
+####  LOLITA  
+##### 15999#       发表于 2025-5-28 01:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857034&amp;ptid=2209276" target="_blank">ftyaid 发表于 2025-5-28 01:21</a>
+
+拉拉不会拉着阿姆罗去地球谈恋爱去了吧</blockquote>
+结果拉拉做这一切的目的都是为了拯救93骡就搞笑了，大佐真小丑<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ティグル  
+##### 16000#       发表于 2025-5-28 01:24
+
+那很元祖小说了
+
+说起来GQX的汤大基不会真的脸都没露过就被一手电筒照死了吧，哪也太路人了
+
+
+*****
+
+####  嘴瓢王者  
+##### 16001#       发表于 2025-5-28 01:24
+
+直接最后一集欢迎回家得了
+
+*****
+
+####  zzf111  
+##### 16002#       发表于 2025-5-28 01:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856871&amp;ptid=2209276" target="_blank">windtrack 发表于 2025-5-28 00:29</a>
+
+我艹，这一帧是影院版没放还是太快了没人发现？</blockquote>
+我的大脑告诉自己没看到过<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+但是放到tv上在看时还没暂停就已经看出来拉拉的影子了
+
+不知道是不是后面改的
+
+*****
+
+####  cckuku  
+##### 16003#       发表于 2025-5-28 01:25
+
+这个拉拉真的是有正史记忆的if拉的话，在开天眼的情况下她选择了骡却没有选择鸭那岂不是显得鸭更丢人了<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 16004#       发表于 2025-5-28 01:26
+
+<blockquote>zzf111 发表于 2025-5-28 01:24
+我的大脑告诉自己没看到过
+
+但是放到tv上在看时还没暂停就已经看出来拉拉的影子了
+
+不知道是不是后面改的 ...</blockquote>
+楼上说了，新加的，剧场版没有
+
+*****
+
+####  岸波白野  
+##### 16005#       发表于 2025-5-28 01:26
+
+不过这么一搞，下话有个回旋的余地就是看麻球和绿叔叔的大计会不会绑太死了，如果是绿叔叔想从麻球身上找红高和鸭的线索麻球转述修斯的话去地球进而放人，然后麻球的动线之后都跟着玫瑰走感觉反而比纯跟着军方塑造空间大点(当然这个得看绿究竟还有没有和鸭一腿，否则放人大概也是早计划好的一环）
+
+大信息量展开之余，篇幅不够对一些人物塑造产生的限制的确也挺明显的，要是还能维持二季或者年番长度喵安融入鸡瘟的描写应该能更细致一点吧，对首席哥这样的次要角色塑造应该是有利的，这次赶火车般地和同僚决裂一脸状况外，他身上才能和努力家的对立这样的关键字意向是勉强还能看出来，但不知道到最后的戏份时还能不能通顺的表达出来。包括喵安知道番茄去地球表达“她是真有才能的”那里，其实感觉也要在前期偏平缓的时候有更多的互动戏份才能更好传达（毕竟目前看喵安的NT能力就是在番茄之上，不是一种刻意的卑女人设感觉还是有点怪，当然这个怪本质上可能是从喵安上机番茄赌气开始这俩互动本来就少及上一集两人的落点问题，这集的确算拉回些观感）
+
