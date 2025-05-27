@@ -2126,3 +2126,11 @@ psn现在不强制绑了
 
 修bug修出速搓球会被吞指令球的bug<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FLZB  
+##### 6116#       发表于 2025-5-27 19:33
+
+搓得越快就搓得越慢<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
