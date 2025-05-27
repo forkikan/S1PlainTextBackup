@@ -13256,3 +13256,185 @@ G夸和G飞难道定位是平行世界的马克兔吗
 
 大信息量展开之余，篇幅不够对一些人物塑造产生的限制的确也挺明显的，要是还能维持二季或者年番长度喵安融入鸡瘟的描写应该能更细致一点吧，对首席哥这样的次要角色塑造应该是有利的，这次赶火车般地和同僚决裂一脸状况外，他身上才能和努力家的对立这样的关键字意向是勉强还能看出来，但不知道到最后的戏份时还能不能通顺的表达出来。包括喵安知道番茄去地球表达“她是真有才能的”那里，其实感觉也要在前期偏平缓的时候有更多的互动戏份才能更好传达（毕竟目前看喵安的NT能力就是在番茄之上，不是一种刻意的卑女人设感觉还是有点怪，当然这个怪本质上可能是从喵安上机番茄赌气开始这俩互动本来就少及上一集两人的落点问题，这集的确算拉回些观感）
 
+
+*****
+
+####  sauron.j  
+##### 16006#       发表于 2025-5-28 01:26
+
+光束武器蒸发肉身人是在致敬ZZ吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 16007#       发表于 2025-5-28 01:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857040&amp;ptid=2209276" target="_blank">zzf111 发表于 2025-5-28 01:24</a>
+
+我的大脑告诉自己没看到过
+
+但是放到tv上在看时还没暂停就已经看出来拉拉的影子了
+
+不知道是不是后面改的 ...</blockquote>
+前面不发过盗录那时的画面了吗............
+
+又不是没录和不能慢放，那时真有早就说了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 16008#       发表于 2025-5-28 01:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856916&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-5-28 00:45</a>
+想到一件很搞笑的事，首席哥是不是因为启动不了塞克谬所以没被内鬼毒死</blockquote>
+大概率是，蛋糕哥认为成为nt就是恶魔，首席哥nt能力一直很弱所以被判定为不是。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ftyaid  
+##### 16009#       发表于 2025-5-28 01:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857041&amp;ptid=2209276" target="_blank">cckuku 发表于 2025-5-28 01:25</a>
+
+这个拉拉真的是有正史记忆的if拉的话，在开天眼的情况下她选择了骡却没有选择鸭那岂不是显得鸭更丢人了
+
+ ...</blockquote>
+很合理嘛！骡拉是真爱，夏亚是意外<img src="https://static.stage1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+*****
+
+####  人形灾害  
+##### 16010#       发表于 2025-5-28 01:29
+
+喵安是被一次刻骨铭心的痛苦关系敲打过后彻底成熟了，也可以说是再一次退到更封闭的壳中
+
+麻球作为对位，感觉不会再走这种成长路线，而是叛逆到极致，遇到更多，冲撞更多之后达成觉悟
+
+*****
+
+####  普通哈尼  
+##### 16011#       发表于 2025-5-28 01:29
+
+果然玫瑰就是拉拉吧，就是这黑皮+姐姐大人都来了，鹤卷演都不演了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zzf111  
+##### 16012#       发表于 2025-5-28 01:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856953&amp;ptid=2209276" target="_blank">冰风血羽 发表于 2025-5-28 00:56</a>
+
+鸭子机魂说破灭
+
+下集大的要来了……吗？</blockquote>
+所以播了八集观众还是不能确定gqx世界里高达是否有机魂
+
+番茄可以说是塞可缪远程同步
+
+夏亚既没在红高也不在康奇蟹爪小机器人里面的话，修斯就真说不清了（要么他编的，要么是真丁真唐完了
+
+*****
+
+####  wasssf  
+##### 16013#       发表于 2025-5-28 01:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857048&amp;ptid=2209276" target="_blank">ads147147 发表于 2025-5-28 01:27</a>
+
+大概率是，蛋糕哥认为成为nt就是恶魔，首席哥nt能力一直很弱所以被判定为不是。。。
+
+—— 来自 鹅球 v3. ...</blockquote>
+吉翁那边nt在舆论上应该是反对不太多了，应该是能用那个系统的水平才算大菠萝
+
+*****
+
+####  cckuku  
+##### 16014#       发表于 2025-5-28 01:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857049&amp;ptid=2209276" target="_blank">ftyaid 发表于 2025-5-28 01:28</a>
+很合理嘛！骡拉是真爱，夏亚是意外</blockquote>
+制作组作为鸭子梦男应该不会做出让鸭子这么丢人的剧情<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  猪突猛进R  
+##### 16015#       发表于 2025-5-28 01:32
+
+这集的“堕”怎么理解？喵安也没被强化啊。启动贰号机就算“堕”了？
+
+*****
+
+####  ヒトニナル  
+##### 16016#       发表于 2025-5-28 01:32
+
+说到整个宇宙都是同一个拉拉我就想起来那个拥有记忆的拉拉阻止阿姆罗上机的同人搞笑动画，预言者可能性微存？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  windtrack  
+##### 16017#       发表于 2025-5-28 01:33
+
+搞不好基跨世界就是获得主世界记忆的拉拉创造的一个避免鸭骡相杀的if世界
+
+*****
+
+####  ryanghj  
+##### 16018#       发表于 2025-5-28 01:33
+
+喵安被老太婆拉拢了啊，她心里直接拿老太婆和玛秋作比较了，说老太婆好（不讨厌自己）
+
+*****
+
+####  albertfu  
+##### 16019#       发表于 2025-5-28 01:34
+
+拉拉鸭妹都出来了 + 鸭确认存活
+
+外加初号机 + “绝对要阻止 Third Impact” 那味
+
+真是每2话整个大活 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gammatau  
+##### 16020#       发表于 2025-5-28 01:34
+
+可能喵安认为不如番茄的地方是行动力之类的吧
+
+如果神棍一点，可能她觉得扎克诺瓦在眼前带走了修司是kirakira抛弃了她这个只想着逃跑和自保的人，而番茄是有行动力会救伙伴的人 之类的……
+
+说不定喵安是回避型NT
+
+*****
+
+####  qiyu1234  
+##### 16021#       发表于 2025-5-28 01:34
+
+基弗里德大概有影响驾驶员精神的负面作用？
+
+不过从首席哥表现来看他应该是见识过机体启动的，感觉可能这机实际没有传言中那么可怕
+
+*****
+
+####  wasssf  
+##### 16022#       发表于 2025-5-28 01:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857059&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-28 01:32</a>
+
+这集的“堕”怎么理解？喵安也没被强化啊。启动贰号机就算“堕”了？</blockquote>
+可能是，毕竟下车那有致敬夏亚葵丝的分镜，之前说番茄是葵丝的遗老这下满意了吧，葵丝讨厌小孩，番茄要说致敬也行，只是变成吼老妈改成讨厌大人了
+
+*****
+
+####  LOLITA  
+##### 16023#       发表于 2025-5-28 01:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857061&amp;ptid=2209276" target="_blank">windtrack 发表于 2025-5-28 01:33</a>
+
+搞不好基跨世界就是获得主世界记忆的拉拉创造的一个避免鸭骡相杀的if世界
+
+ ...</blockquote>
+拉拉：你们都是我的翅膀<img src="https://static.stage1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
