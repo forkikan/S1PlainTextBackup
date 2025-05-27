@@ -1605,3 +1605,13 @@ theO少个盾，不能飞，加防要超强势；这次靠着劲敌词条20%，�
 
 翻了一下，没一个卡池机是三星的，啧
 
+
+*****
+
+####  无念  
+##### 1629#       发表于 2025-5-27 12:20
+
+不知道卡池出啥，不会是UR版G3和鸭子专用勇士吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
