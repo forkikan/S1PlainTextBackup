@@ -1650,3 +1650,11 @@ gp02估计是卡池机，就是不知道卡池另一个是啥
 
 酸浆果和石斛兰一起当ur么？不对吧
 
+
+*****
+
+####  kulanyee  
+##### 1634#       发表于 2025-5-27 17:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">所以将来是所有叫得上名号的都会有UR机是吧
+
