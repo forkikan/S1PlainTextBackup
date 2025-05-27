@@ -10670,3 +10670,559 @@ woc，经典单机突破大气层
 
 这是真夏亚吗，难道这也能搞个伪鸭出来吗。并且这集还有巴纳吉（CV）
 
+
+*****
+
+####  a85982313  
+##### 15727#       发表于 2025-5-27 23:56
+
+完全看不出来这到底还有多少集
+
+*****
+
+####  m99999  
+##### 15728#       发表于 2025-5-27 23:56
+
+我就想问一句上集骂的，好坏都不说了，
+
+谁还觉得剩下四集演不完？？？
+
+*****
+
+####  huanzhi  
+##### 15729#       发表于 2025-5-27 23:56
+
+比正史还野<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  shqingda_  
+##### 15730#       发表于 2025-5-27 23:56
+
+这半集比上集一集爆的都多啊
+
+*****
+
+####  ftyaid  
+##### 15731#       发表于 2025-5-27 23:57
+
+短讯！？
+
+*****
+
+####  oi99o  
+##### 15732#       发表于 2025-5-27 23:57
+
+拉拉<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  燃烧的石头  
+##### 15733#       发表于 2025-5-27 23:57
+
+拉拉
+
+—— 来自 realme RMX3370, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  洛克萨斯  
+##### 15734#       发表于 2025-5-27 23:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">喵安真成吉翁公主了，二创居然是真的
+
+*****
+
+####  花達香奈  
+##### 15735#       发表于 2025-5-27 23:57
+
+印度女人！
+
+*****
+
+####  tjshibc21  
+##### 15736#       发表于 2025-5-27 23:57
+
+半集也能过山车
+
+*****
+
+####  猪突猛进R  
+##### 15737#       发表于 2025-5-27 23:57
+
+玫瑰=拉拉，石锤了。
+
+*****
+
+####  七七見奈波  
+##### 15738#       发表于 2025-5-27 23:57
+
+拉拉？？？？
+
+*****
+
+####  ティグル  
+##### 15739#       发表于 2025-5-27 23:57
+
+要做一辈子EVA哦
+
+*****
+
+####  a85982313  
+##### 15740#       发表于 2025-5-27 23:57
+
+拉拉=玫瑰？
+
+*****
+
+####  YU_JI  
+##### 15741#       发表于 2025-5-27 23:57
+
+这集最后五分钟爆点太多了
+
+*****
+
+####  ads147147  
+##### 15742#       发表于 2025-5-27 23:57
+
+拉拉真的来了，这个会是主世界的拉拉吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Sliurus  
+##### 15743#       发表于 2025-5-27 23:57
+
+沙伦的玫瑰果然是拉拉啊，所以夏亚是和拉拉跑到地球了？
+
+*****
+
+####  ヒトニナル  
+##### 15744#       发表于 2025-5-27 23:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大的真的要来了
+
+*****
+
+####  aliya  
+##### 15745#       发表于 2025-5-27 23:57
+
+回来了，一切都回来了
+
+*****
+
+####  huanzhi  
+##### 15746#       发表于 2025-5-27 23:57
+
+wc，拉拉都来了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mr1z  
+##### 15747#       发表于 2025-5-27 23:58
+
+我又重燃希望了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  猪突猛进R  
+##### 15748#       发表于 2025-5-27 23:58
+
+最后几分钟信息量远超上一集。
+
+*****
+
+####  Devola  
+##### 15749#       发表于 2025-5-27 23:58
+
+大型家庭连续剧之
+番茄与鸭子抢妈妈
+
+*****
+
+####  PascalLefèvre  
+##### 15750#       发表于 2025-5-27 23:58
+
+印度女人真来了我佛
+
+*****
+
+####  赤黑的假面  
+##### 15751#       发表于 2025-5-27 23:58
+
+莎伦的玫瑰真是拉拉啊
+
+*****
+
+####  windtrack  
+##### 15752#       发表于 2025-5-27 23:58
+
+拉拉的大手？
+
+*****
+
+####  黒鈴ミヲ  
+##### 15753#       发表于 2025-5-27 23:58
+
+我去，拉拉！
+
+*****
+
+####  屈江鸟  
+##### 15754#       发表于 2025-5-27 23:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">歪日，这半集爆的比前两集加起来都多，Side6闹麻了
+
+*****
+
+####  伊露伊道格拉斯  
+##### 15755#       发表于 2025-5-27 23:58
+
+爆爆爆！
+
+要上集也这水平我估计预期就不会拉到现在这么低了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猪突猛进R  
+##### 15756#       发表于 2025-5-27 23:59
+
+紫婆身边的内鬼有点多。
+
+*****
+
+####  秋月孝三  
+##### 15757#       发表于 2025-5-27 23:59
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大佐是OYW穿越来的话说明现在时间线上还有一个年龄+5的牢修？
+
+*****
+
+####  YU_JI  
+##### 15758#       发表于 2025-5-27 23:59
+
+爆爆爆！演员舞台全部就位，该演出大的了吧
+
+*****
+
+####  -SLSL-  
+##### 15759#       发表于 2025-5-27 23:59
+
+这集也太赶了吧<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 15760#       发表于 2025-5-27 23:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856698&amp;ptid=2209276" target="_blank">Devola 发表于 2025-5-27 23:58</a>
+大型家庭连续剧之
+番茄与鸭子抢妈妈</blockquote>
+个人一直觉得番茄不是缺母爱，是太被母爱溺爱了才变成这个德行。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  kenqqex  
+##### 15761#       发表于 2025-5-27 23:59
+
+我要骂人了
+
+这半集的内容塞了太多了，每一个地方都是跳跃的<img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 15762#       发表于 2025-5-27 23:59
+
+我这下是懂了，没有打戏的GQuuuuuux是概念神（）
+
+*****
+
+####  ftyaid  
+##### 15763#       发表于 2025-5-28 00:00
+
+演员舞台道具已经全部集齐了
+
+*****
+
+####  ryanghj  
+##### 15764#       发表于 2025-5-28 00:00
+
+爆了，hjgg我们信你啊
+
+
+*****
+
+####  cayon  
+##### 15765#       发表于 2025-5-28 00:00
+
+下集是马球视角了吧，10集再讲修司，11，12就直接决战了，基希利亚主要就起个送机子的作用吗原来
+
+*****
+
+####  Gaybird  
+##### 15766#       发表于 2025-5-28 00:00
+
+演员就位！舞台就位！野史到底能有多野，就让我见识一下吧！
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  大十字紅朔  
+##### 15767#       发表于 2025-5-28 00:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856651&amp;ptid=2209276" target="_blank">ftyaid 发表于 2025-5-27 23:52</a>
+
+沾染了Kirakira的就是恶魔？</blockquote>
+说的是迪亚波罗啊
+
+*****
+
+####  暗黑能乐  
+##### 15768#       发表于 2025-5-28 00:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有战斗反而正常了很多，但是指望后面没有战斗又不现实
+
+*****
+
+####  希望之异热同心  
+##### 15769#       发表于 2025-5-28 00:00
+
+那个是夏亚来的吧，这头发剪的确实像个儿子，看来是真认拉拉做妈妈了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 15770#       发表于 2025-5-28 00:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856706&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-27 23:59</a>
+紫婆身边的内鬼有点多。</blockquote>
+没内鬼才见鬼了，不过更像是第三方派而不是基连的手下。。。也或许是绿叔叔派。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  oi99o  
+##### 15771#       发表于 2025-5-28 00:01
+
+所以是小森少尉帮忙越狱的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  砂糖续香香  
+##### 15772#       发表于 2025-5-28 00:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">喵安这下有学历了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  gammatau  
+##### 15773#       发表于 2025-5-28 00:02
+
+绿叔叔肯定也想去找拉拉的，但是会放番茄一个人去吗，能放心让她办好吗
+
+还是说绿叔叔已经悟了，把NT们放出去命运自会指引大家相见（
+
+*****
+
+####  洛克萨斯  
+##### 15774#       发表于 2025-5-28 00:02
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+后半集爆点也太多了
+
+*****
+
+####  woui003woui  
+##### 15775#       发表于 2025-5-28 00:02
+
+不愧是鹤卷，好爆的半集，就说文戏水平没问题了<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  199april  
+##### 15776#       发表于 2025-5-28 00:02
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">所以紫色老太婆真的暗恋鸭子？
+
+不错 我喜欢
+
+*****
+
+####  岸浪白野  
+##### 15777#       发表于 2025-5-28 00:02
+
+拿发型遮眼也算要素<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202505/28/000141qqmzq8hhm509tn43.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (469.11 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 00:01 上传
+
+*****
+
+####  qiyu1234  
+##### 15778#       发表于 2025-5-28 00:02
+
+这么看应该是同时叙事
+
+下一集一开始就是讲番茄怎么从绿木马那里逃掉的故事
+
+这么看轮不到修正了，她还是那个我行我素跟着KIRAKIRA感觉走的精神小妹
+
+不过说实在的，基西莉亚侧是最终BOSS的可能性在加强，二号机显然有非常强大的实力，但也可能具备对驾驶员精神永久的破坏力
+
+番茄喵安打一架应该是跑不了了，就是不知道是不是最终战还是说再给紫婆安排一个决战兵器
+
+*****
+
+####  a85982313  
+##### 15779#       发表于 2025-5-28 00:02
+
+鸭拉都来了，骡子还会远吗
+
+*****
+
+####  清雨  
+##### 15780#       发表于 2025-5-28 00:03
+
+op画面总得加点新东西吧，这半集直接跟换了个片一样
+
+*****
+
+####  YU_JI  
+##### 15781#       发表于 2025-5-28 00:03
+
+最后月背那段的文戏真有意思，光是一个麻球单机逃跑的情节都是浮想联翩
+
+*****
+
+####  游蜓  
+##### 15782#       发表于 2025-5-28 00:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">半集这么爆啊
+
+*****
+
+####  Sliurus  
+##### 15783#       发表于 2025-5-28 00:03
+
+喵安说二号机像紫婆，那初号机又是像谁？
+
+*****
+
+####  Evomenon  
+##### 15784#       发表于 2025-5-28 00:03
+
+不是，这夏亚画风怎么这么美少男啊，你距离正史的裤袜脱落也就2年光景，能年轻这么多吗？<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+然后间谍也太多了吧，还都是唐突暴露，都非得跟急弗里德&amp;正在造的某机体扯上关系，这zekunova的坑怎么越挖越深啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还有所罗门除开剧场版部分，已经额外给了两三个镜头了，怎么看都会再一次被仍向格拉纳达吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  冰寒之月  
+##### 15785#       发表于 2025-5-28 00:03
+
+半集怒涛展开
+
+很期待下一集了
+
+*****
+
+####  yanghuangu  
+##### 15786#       发表于 2025-5-28 00:03
+
+一号机是齐格飞之剑，二号机是迪亚波罗  这是何意？
+
+*****
+
+####  ヒトニナル  
+##### 15787#       发表于 2025-5-28 00:04
+
+那俩内鬼说不定是第四势力，与政治斗争无关，为了保证人类的纯洁性捏<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Asukalangley33  
+##### 15788#       发表于 2025-5-28 00:04
+
+鹤卷哥哥再带咱们冲一次吧
+
+这个展开速度对味了
+
+*****
+
+####  YU_JI  
+##### 15789#       发表于 2025-5-28 00:04
+
+<blockquote>Evomenon 发表于 2025-5-28 00:03
+不是，这夏亚画风怎么这么美少男啊，你距离正史的裤袜脱落也就2年光景，能年轻这么多吗？
+
+然后间谍也太多了 ...</blockquote>
+本来鸭子这会就很年轻啊
+
+*****
+
+####  洛克萨斯  
+##### 15790#       发表于 2025-5-28 00:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+难民成了吉翁公主
+
+全员内鬼
+
+护国公和公主恋爱野史
+
+宇宙女鬼登场
+
+鸭叔叔现身
+
+番茄越狱
+
+这半集感觉碾压前面了
+
+*****
+
+####  奇幻梦境  
+##### 15791#       发表于 2025-5-28 00:05
+
+真怒涛展开了呀
+
+可惜还是太短了 各种地方都给人很赶的感觉
+
+而且为什么每次放剧场版画面我都觉得人的语速比正常快
+
+*****
+
+####  伊露伊道格拉斯  
+##### 15792#       发表于 2025-5-28 00:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856718&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-5-28 00:00</a>
+
+没有战斗反而正常了很多，但是指望后面没有战斗又不现实</blockquote>
+我已经在期待下次又会解锁什么秒杀姿势了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mika-S  
+##### 15793#       发表于 2025-5-28 00:05
+
+喵安和紫婆都看穿了内鬼，首席哥你的nt力又一次证明是垫底的了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
