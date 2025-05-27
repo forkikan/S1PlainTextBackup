@@ -9492,3 +9492,83 @@ SIDE6政府明显逐利的，绿叔叔只要能把好处给足了就行，不过
 <img src="https://p.sda1.dev/24/ab608577619617e3eaff41e5904a9871/image.jpg" referrerpolicy="no-referrer">
 下半部分应该是从尼娅安视角讲
 
+
+*****
+
+####  ykyin09  
+##### 15627#       发表于 2025-5-27 12:38
+
+“刚才试着计算了一下，solarray已经瞄准side3了，你们努力过头了！”
+
+*****
+
+####  玖羽  
+##### 15628#       发表于 2025-5-27 12:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67854829&amp;ptid=2209276" target="_blank">Gysumitka 发表于 2025-5-27 12:35</a>
+
+下半部分应该是从尼娅安视角讲</blockquote>
+原来坠和堕是两件事
+
+所罗门是坠，喵安是堕<img src="https://static.stage1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+*****
+
+####  久井路路  
+##### 15629#       发表于 2025-5-27 12:41
+
+“一年战争末期，为了阻止地球联邦军的所罗门要塞坠落作战，夏亚率领的索顿舰队出击了。这都是为了守护月面都市古拉那达。那之后过了五年，和基西莉亚在一起的尼娅安出现在古拉那达。”
+
+*****
+
+####  玖羽  
+##### 15630#       发表于 2025-5-27 12:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67854822&amp;ptid=2209276" target="_blank">冷静先找时光机 发表于 2025-5-27 12:32</a>
+
+大扎姆归大基管，现在紫婆又要造手电筒，最后不会要表演一排大扎姆推手电筒吧 ...</blockquote>
+我觉得很可能是致敬0079，把基连座舰连同大扎姆部队一手电照掉，基连都不一定登场
+
+
+*****
+
+####  ftyaid  
+##### 15631#       发表于 2025-5-27 12:44
+
+solar ray秒掉基连之后紫色老太婆反手被绿叔叔火箭筒爆头
+
+那谁来带领之后的吉翁呢？
+
+*****
+
+####  猪突猛进R  
+##### 15632#       发表于 2025-5-27 12:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67854835&amp;ptid=2209276" target="_blank">ykyin09 发表于 2025-5-27 12:38</a>
+
+“刚才试着计算了一下，solarray已经瞄准side3了，你们努力过头了！”</blockquote>
+不过是一个手电筒，就用高达把它推回去！
+
+GQUX可不是食素的！
+
+*****
+
+####  cayon  
+##### 15633#       发表于 2025-5-27 12:46
+
+ 本帖最后由 cayon 于 2025-5-27 12:47 编辑 
+
+封面看来是喵安开着新高达把什么东西干掉了，可能是拿联邦的炮灰来练手
+
+*****
+
+####  大十字紅朔  
+##### 15634#       发表于 2025-5-27 12:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67854853&amp;ptid=2209276" target="_blank">ftyaid 发表于 2025-5-27 12:44</a>
+
+solar ray秒掉基连之后紫色老太婆反手被绿叔叔火箭筒爆头
+
+那谁来带领之后的吉翁呢？ ...</blockquote>
+卡尔马是不是还没死
+
