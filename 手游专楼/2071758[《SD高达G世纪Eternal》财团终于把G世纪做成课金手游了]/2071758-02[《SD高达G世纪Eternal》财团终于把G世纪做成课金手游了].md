@@ -1807,3 +1807,22 @@ SSR ...</blockquote>
 
 开发的那些UR机体有哪个是值得优先制作的吗？
 
+
+*****
+
+####  rockroxas  
+##### 1647#       发表于 2025-5-27 22:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856383&amp;ptid=2071758" target="_blank">demon6666 发表于 2025-5-27 22:07</a>
+
+开发的那些UR机体有哪个是值得优先制作的吗？</blockquote>
+79：UR化是强力输出，接下来的0083活动加成很高还有对79特攻；但是放到其他时代没什么亮点，主力武装命中95基本就脱离PVP了
+
+Z：4格的特殊武装加伤是比较稀有的，UR化减防的武装射程多1格，而且SSR时不太值得投入技能材料
+
+ZZ：不值
+
+W：是个不错的支援机，迟早要拉，但除非急着打W永恒关不然优先度不高
+
+SEED：很不错的防御机，只是不能飞，没UR防御机的话可以优先考虑
+
