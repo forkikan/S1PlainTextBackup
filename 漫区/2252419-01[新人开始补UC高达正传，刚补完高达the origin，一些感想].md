@@ -1043,3 +1043,16 @@ GTO我没看过，真夏亚是什么情况，高达W的多诺瓦吗……？</bl
 
 鸭子顶了他的身份去读的军校，本人则是无自觉成为了凯斯巴尔·戴肯的替身死于扎比家的暗杀。
 
+
+*****
+
+####  Gaybird  
+##### 94#       发表于 2025-5-27 12:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67854731&amp;ptid=2252419" target="_blank">EFSF 发表于 2025-5-26 22:54</a>
+想太多，GTO整个是Gundam ACE的一个系列漫画企划的开头，就是原作人设+新解说。当然最开始诞生的时候估计 ...</blockquote>
+原来如此，GTO相关的材料我确实看得太少了，深感惭愧。
+事实上应该不会有什么人觉得安彦应该回来当动画导演吧，跟他天才的画工相比，舞台剧式的演出风格还是太庸才了。话虽如此，还是想看壮年时期的安彦多担任几部动画的人设和作监。
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+

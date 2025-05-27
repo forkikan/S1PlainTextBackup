@@ -1954,3 +1954,15 @@ psn现在不强制绑了
 
 单机需要加速器吗？
 
+
+*****
+
+####  The_Fool_  
+##### 6107#       发表于 2025-5-27 12:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67854747&amp;ptid=2170852" target="_blank">妄想系同盟 发表于 2025-5-27 11:58</a>
+单机需要加速器吗？</blockquote>
+这是网游啊，如果是全程solo的意思的话，我得说我这里移动宽带不开加速器连反作弊程序都过不去
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
