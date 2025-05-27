@@ -9683,3 +9683,15 @@ solar ray秒掉基连之后紫色老太婆反手被绿叔叔火箭筒爆头
  还是不一样的，吉姆是抢了高达后吉翁尼克造的，本质和他的名字一样，这条世界线的勇士罢了。 地球这边精 ...</blockquote>
 汉布拉比编号ORX-139，是奥古斯塔研究所制造的
 
+
+*****
+
+####  无念  
+##### 15646#       发表于 2025-5-27 14:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67855100&amp;ptid=2209276" target="_blank">王留美 发表于 2025-5-27 14:24</a>
+汉布拉比编号ORX-139，是奥古斯塔研究所制造的</blockquote>
+正史是rx，联邦军造的
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
