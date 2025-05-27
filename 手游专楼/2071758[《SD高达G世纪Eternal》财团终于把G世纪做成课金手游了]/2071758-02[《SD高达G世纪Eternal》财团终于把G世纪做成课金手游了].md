@@ -1522,3 +1522,27 @@ theO少个盾，不能飞，加防要超强势；这次靠着劲敌词条20%，�
 
 —— 来自 Xiaomi 22081212C, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  zksandy  
+##### 1623#       发表于 2025-5-27 10:53
+
+<img src="https://img.stage1st.com/forum/202505/27/105258fgw0f4n01hrfwfw5.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>55c6c6c58f782de7458476238402e3b8.jpeg</strong> (59.9 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-27 10:52 上传
+
+<img src="https://img.stage1st.com/forum/202505/27/105301msi557m4x8xei415.png" referrerpolicy="no-referrer">
+
+<strong>IMG_0764.png</strong> (960.41 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-27 10:53 上传
+
+阵容克制没想到把中间的突破了…
+
