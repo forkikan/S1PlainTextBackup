@@ -2134,3 +2134,13 @@ psn现在不强制绑了
 
 搓得越快就搓得越慢<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  哈迪斯兜帽  
+##### 6117#       发表于 2025-5-27 22:08
+
+快速匹配被老外拉去打纽约了
+
+纽约怎么只有30%多了
+
