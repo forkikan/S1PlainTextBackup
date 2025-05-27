@@ -9353,3 +9353,13 @@ https://x.com/monolithTw/status/1925562179031638404
 
 麻球这种不到绿叔叔打赢仗帮她洗罪名不然一辈子回不去side6吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  久井路路  
+##### 15614#       发表于 2025-5-27 10:37
+
+也不用非要回side6吧，换个殖民地或者干脆去地球住也行啊（
+
+反正只要爹妈搬走了，我看麻球对side6也没什么特别喜欢的（
+

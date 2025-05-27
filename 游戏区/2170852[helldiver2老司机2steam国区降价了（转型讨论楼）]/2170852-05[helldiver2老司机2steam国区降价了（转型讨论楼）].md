@@ -1933,3 +1933,16 @@ psn现在不强制绑了
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  九十九忍  
+##### 6105#       发表于 2025-5-27 10:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67854250&amp;ptid=2170852" target="_blank">zzy516232108 发表于 2025-5-27 09:33</a>
+
+没有人一起随机匹配能玩吗
+
+还是说一定要找人才比较好</blockquote>
+野队也很乐
+
