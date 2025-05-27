@@ -10473,3 +10473,36 @@ G永恒送喵安
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  ftyaid  
+##### 15703#       发表于 2025-5-27 23:24
+
+喵安成功的解决了三动斧王砍不死怪启动不了的问题，变成了暴击斧王
+
+但是我闪避呢，神技闪避在哪里
+
+*****
+
+####  妄想系同盟  
+##### 15704#       发表于 2025-5-27 23:24
+
+<img src="https://img.stage1st.com/forum/202505/27/232231s2ywakcppwz8jp2c.jpg" referrerpolicy="no-referrer">
+
+<strong>1000138236.jpg</strong> (101.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-27 23:22 上传
+
+<img src="https://img.stage1st.com/forum/202505/27/232231b3b8gbq3u7n333i3.png" referrerpolicy="no-referrer">
+
+<strong>1000138487.png</strong> (320.04 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-27 23:22 上传
+
+(ಡωಡ) 这两人正反都合适的样子
+

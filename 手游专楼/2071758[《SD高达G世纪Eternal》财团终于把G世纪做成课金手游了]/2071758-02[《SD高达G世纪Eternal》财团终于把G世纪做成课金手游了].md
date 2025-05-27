@@ -1854,3 +1854,17 @@ SEED：很不错的防御机，只是不能飞，没UR防御机的话可以优�
 79：UR化是强力输出，接下来的0083活动加成很高还有对79特攻；但是放到其他时代没什么亮点，主力武装命中9 ...</blockquote>
 输出目前有三个，那还是先弄防御了，可惜我多数是UC系的机子，却没有精神力框架的支援<img src="https://static.stage1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rockroxas  
+##### 1651#       发表于 2025-5-27 23:25
+
+ 本帖最后由 rockroxas 于 2025-5-27 23:30 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856576&amp;ptid=2071758" target="_blank">demon6666 发表于 2025-5-27 23:21</a>
+
+输出目前有三个，那还是先弄防御了，可惜我多数是UC系的机子，却没有精神力框架的支援 ...</blockquote>
+没有急着打PVP或者永恒需求的话其实是推荐为活动先搞的，因为伤害加成真的很高（当然再高打ex的额外boss还是有点精污）
+
+一个月除去强化之类的零碎差不多余下200w，够UR化两个机体，要开发61换SSR突破材料的话大概是1个，看你了
+
