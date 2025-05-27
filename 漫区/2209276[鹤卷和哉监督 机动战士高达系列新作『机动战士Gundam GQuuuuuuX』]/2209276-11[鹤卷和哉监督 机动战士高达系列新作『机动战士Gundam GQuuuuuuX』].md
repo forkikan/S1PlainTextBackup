@@ -9826,3 +9826,71 @@ solar ray秒掉基连之后紫色老太婆反手被绿叔叔火箭筒爆头
 可以来个番茄喵安擦肩而过形同陌路的镜头吗？</blockquote>
 泽哈特和阿瑟姆是吧
 
+
+*****
+
+####  猪突猛进R  
+##### 15659#       发表于 2025-5-27 16:43
+
+我还是觉得番茄和尼安能和解。
+
+要不然在最终决战前开个投票吧，看看民意。
+
+*****
+
+####  冷静先找时光机  
+##### 15660#       发表于 2025-5-27 16:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67855420&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-27 16:07</a>
+
+话说是不是该让马克杯在85刷个脸了</blockquote>
+会不会圆了组长的高达梦<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  某某某人  
+##### 15661#       发表于 2025-5-27 16:46
+
+<blockquote>冷静先找时光机 发表于 2025-5-27 16:45
+会不会圆了组长的高达梦</blockquote>
+強人算高達嗎(
+
+*****
+
+####  玖羽  
+##### 15662#       发表于 2025-5-27 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67855508&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-27 16:43</a>
+
+我还是觉得番茄和尼安能和解。
+
+要不然在最终决战前开个投票吧，看看民意。 ...</blockquote>
+这是当然的，我再说一遍，在鹤卷这里，各种“魔法般的能力”本质都是青春期综合症，实质上是青春期心理的一种影射，最后一定会落到角色和自己的青春期和解上
+
+*****
+
+####  YU_JI  
+##### 15663#       发表于 2025-5-27 16:49
+
+喵安搞不好真在紫婆那里找到归属感了，弗拉纳冈成了她一直在找的容身之所
+
+
+*****
+
+####  jojonathan  
+##### 15664#       发表于 2025-5-27 16:51
+
+唉 也不知道这集有没有爱猫tv看
+
+*****
+
+####  ryanghj  
+##### 15665#       发表于 2025-5-27 16:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67855508&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-27 16:43</a>
+
+我还是觉得番茄和尼安能和解。
+
+要不然在最终决战前开个投票吧，看看民意。 ...</blockquote>
+看你能不能把骡鸭最后定义成和解了<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
