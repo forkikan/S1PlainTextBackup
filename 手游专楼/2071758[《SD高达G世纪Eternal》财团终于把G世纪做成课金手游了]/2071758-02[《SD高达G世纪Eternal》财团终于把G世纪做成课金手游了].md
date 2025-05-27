@@ -1868,3 +1868,14 @@ SEED：很不错的防御机，只是不能飞，没UR防御机的话可以优�
 
 一个月除去强化之类的零碎差不多余下200w，够UR化两个机体，要开发61换SSR突破材料的话大概是1个，看你了
 
+
+*****
+
+####  demon6666  
+##### 1652#       发表于 2025-5-27 23:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856586&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-5-27 23:25</a>
+
+没有急着打PVP或者永恒需求的话其实是推荐为活动先搞的，因为伤害加成真的很高（当然再高打ex的额外boss还 ...</blockquote>
+多謝，等活動我看看打不打得過再決定了
+

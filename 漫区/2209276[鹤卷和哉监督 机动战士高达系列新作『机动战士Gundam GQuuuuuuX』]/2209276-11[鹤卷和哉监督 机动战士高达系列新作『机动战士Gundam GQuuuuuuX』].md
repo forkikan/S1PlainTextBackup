@@ -10528,3 +10528,145 @@ G永恒送喵安
 
 真来养女儿了啊，紫婆
 
+
+*****
+
+####  oi99o  
+##### 15708#       发表于 2025-5-27 23:46
+
+结果还是二号机<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  棍机凹升龙  
+##### 15709#       发表于 2025-5-27 23:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856571&amp;ptid=2209276" target="_blank">二阶堂真琉 发表于 2025-5-27 23:19</a>
+喵安桑这里是英灵殿不能乱来的！
+
+—— 来自 OnePlus PKR110, Android 15, 鹅球 v3.5.99 ...</blockquote>
+杜打赢复活赛了吗<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-F9460, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  ftyaid  
+##### 15710#       发表于 2025-5-27 23:52
+
+沾染了Kirakira的就是恶魔？
+
+*****
+
+####  洛克萨斯  
+##### 15711#       发表于 2025-5-27 23:54
+
+我草，爆了
+
+*****
+
+####  YU_JI  
+##### 15712#       发表于 2025-5-27 23:54
+
+野史是真的？？？？
+
+*****
+
+####  oi99o  
+##### 15713#       发表于 2025-5-27 23:54
+
+ガンダム フレド
+
+*****
+
+####  洛克萨斯  
+##### 15714#       发表于 2025-5-27 23:55
+
+居然是越狱？？？？？？？！
+
+*****
+
+####  YU_JI  
+##### 15715#       发表于 2025-5-27 23:55
+
+最后这段文戏有点意思的，挺喜欢的
+
+*****
+
+####  Sliurus  
+##### 15716#       发表于 2025-5-27 23:55
+
+woc，经典单机突破大气层
+
+*****
+
+####  猪突猛进R  
+##### 15717#       发表于 2025-5-27 23:55
+
+鸭子出现啦。
+
+*****
+
+####  Mika-S  
+##### 15718#       发表于 2025-5-27 23:55
+
+卧槽里的，野史感觉都成真的了啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  花達香奈  
+##### 15719#       发表于 2025-5-27 23:55
+
+单机大气圈突入！
+
+*****
+
+####  oi99o  
+##### 15720#       发表于 2025-5-27 23:55
+
+草，该不会是夏利亚故意放跑的吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ftyaid  
+##### 15721#       发表于 2025-5-27 23:55
+
+绿叔叔协助越狱了？
+
+*****
+
+####  七七見奈波  
+##### 15722#       发表于 2025-5-27 23:56
+
+那看来下集一开头就是讲麻球越狱？
+
+*****
+
+####  ku2154513  
+##### 15723#       发表于 2025-5-27 23:56
+
+突入地球了居然
+
+*****
+
+####  秋月孝三  
+##### 15724#       发表于 2025-5-27 23:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">复活赛了
+
+*****
+
+####  伊露伊道格拉斯  
+##### 15725#       发表于 2025-5-27 23:56
+
+感觉信息量远超上集<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  暗黑能乐  
+##### 15726#       发表于 2025-5-27 23:56
+
+这是真夏亚吗，难道这也能搞个伪鸭出来吗。并且这集还有巴纳吉（CV）
+

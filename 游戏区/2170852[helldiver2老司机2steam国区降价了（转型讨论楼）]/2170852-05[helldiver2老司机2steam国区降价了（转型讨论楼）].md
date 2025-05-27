@@ -2159,3 +2159,13 @@ https://www.bilibili.com/video/BV1pwQSYjE5M/
 </blockquote>
 也谢谢你，以前玩过两天1代，没想到2这就出一年了(눈_눈)
 
+
+*****
+
+####  风萧飒  
+##### 6119#       发表于 2025-5-27 23:48
+
+超级纽约现在进去都是中文id
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
