@@ -2028,3 +2028,11 @@ psn现在不强制绑了
 
 没玩这游戏，制作组好像很会玩梗，火出圈了这个超级上海<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Adrenaline!!!  
+##### 6112#       发表于 2025-5-27 17:14
+
+布拉施将军发力了，仪仗队甲额外加了近战伤害50%主武器装填30%
+

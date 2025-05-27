@@ -9952,3 +9952,64 @@ solar ray秒掉基连之后紫色老太婆反手被绿叔叔火箭筒爆头
 
 说到底她俩也就是以为和对方很熟其实不太熟、然后出了点误会而已，离需要烦恼能不能和解的地步还远着呢。
 
+
+*****
+
+####  cayon  
+##### 15672#       发表于 2025-5-27 17:04
+
+ 本帖最后由 cayon 于 2025-5-27 17:06 编辑 
+
+估计玛秋喵安到结局就是这种关系，总的来说就是“错位感”，但也不至于到不能互相理解的程度
+
+——玛秋眼中的尼娅安是？
+
+黑泽：两人的成长背景导致"常识"存在断层。有时刚觉得"啊此刻心意相通了"，下一秒就会因某个举动陷入"诶？刚才那是..."的困惑。双方都在嘀咕"我们不是相处得很好吗？"
+
+石川：永远差一拍呢（托腮笑）。
+
+黑泽：但矛盾的是，她们又很清楚自己喜欢和对方在一起。
+
+石川：尼娅安会想着"快看这边！只要我们努力就能互相理解！"而玛秋却认为"既然已经心灵相通就不用多说了"，结果一转头发现对方又跑偏了："这人怎么自说自话啊？"
+
+*****
+
+####  无念  
+##### 15673#       发表于 2025-5-27 17:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  洛克萨斯  
+##### 15674#       发表于 2025-5-27 17:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">奶茶和贼哈特的关系也行？这次是1号机还是2号机被10秒拆解体
+
+*****
+
+####  岸浪白野  
+##### 15675#       发表于 2025-5-27 17:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67855589&amp;ptid=2209276" target="_blank">cayon 发表于 2025-5-27 17:04</a>
+
+估计玛秋喵安到结局就是这种关系
+
+——玛秋眼中的尼娅安是？
+
+黑泽：两人的成长背景导致"常识"存在断层。有时 ...</blockquote>
+昨晚才在楼发过叫人回顾这个，不用再发了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无念  
+##### 15676#       发表于 2025-5-27 17:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67855372&amp;ptid=2209276" target="_blank">qiyu1234 发表于 2025-5-27 15:49</a>
+鸭子不是不想参政，他只是对涉及他原则的一些事情不想糊弄打哈哈，这也是为什么他在奥古和新吉翁都成不了事 ...</blockquote>
+联邦中间派，是个理想主义者都看不上好吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
