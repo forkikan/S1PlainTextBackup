@@ -1781,3 +1781,21 @@ SSR ...</blockquote>
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  rockroxas  
+##### 1645#       发表于 2025-5-27 21:57
+
+ 本帖最后由 rockroxas 于 2025-5-27 21:59 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856329&amp;ptid=2071758" target="_blank">一个陆仁贾 发表于 2025-5-27 21:45</a>
+
+1.5强在哪里呢？
+
+—— 来自 vivo V2419A, Android 15, 鹅球 v3.5.99</blockquote>
+这次PVP吃的词条多，有盾有降攻4格有降攻地图炮，驾驶虽然词条不适配但有HP恢复
+
+移动5跟地形打高难能用的地方也多
+
+我想过要不要加精神病，但是他没UR防御驾驶，单纯PVP光束减伤大部分时候不生效，也很难说值得SP化
+
