@@ -1684,3 +1684,33 @@ gp02估计是卡池机，就是不知道卡池另一个是啥
 
 手游随便出吧，现在是EX，过两年出完一轮换个标比如G啊V啊MAX之类的又能出。
 
+
+*****
+
+####  rockroxas  
+##### 1638#       发表于 2025-5-27 19:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67855780&amp;ptid=2071758" target="_blank">GameTheory 发表于 2025-5-27 18:11</a>
+
+现在有啥值得SP化的机体？UR只有牛一台支援机，没有防御机的情况下</blockquote>
+目前来看支援机不值得SP化，除非真爱
+
+SR：自由，正义，禁断，ZZ，强化ZZ（除了自由其他PVP都不太行）
+
+SSR只考虑刚需SP化的PVP，正常打图目前看起来没太大必要，卡池机必须三星
+
+卡池：S高达，高达杰姆纳斯01，1.5高达，白色高达（GQ），扎古2改
+
+开发/活动：风灵改修，盖马克
+
+除此之外送的GQX高面板三动也可以考虑；SR的高达X因为X系列开发图看起来很难期待，不打算抽卡池的话也可以考虑
+
+单纯缺盾最好其实是把SEED的ULT机UR化，一阶就够用
+
+*****
+
+####  dio999  
+##### 1639#       发表于 2025-5-27 19:36
+
+反正我等掉毛海牛OO，现在开始不抽<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
