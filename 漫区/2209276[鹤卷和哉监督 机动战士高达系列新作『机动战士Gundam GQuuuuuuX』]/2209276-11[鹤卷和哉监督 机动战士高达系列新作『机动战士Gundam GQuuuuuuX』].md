@@ -12663,3 +12663,146 @@ GQX世界线的手电筒可能是用泽克诺瓦进行攻击的NT兵器<img src=
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  windtrack  
+##### 15945#       发表于 2025-5-28 00:56
+
+我悟了
+
+キ是キシリア的キ，ラ是ララァ的ラ，キラキラ就是2人为了得到夏亚引发的奇迹之力<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之异热同心  
+##### 15946#       发表于 2025-5-28 00:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">后知后觉，喵安这集的远程感应能力其实上一集她和麻球两个人都展示过了，喵安估计就是瞬间意识到自己在殖民地的好日子完蛋了内心只剩下抱紧修斯大腿的念头，所以gqux才把她摔出机舱。麻球也在被军警用枪指着的时候直接远程操控了
+
+*****
+
+####  战术核辣条  
+##### 15947#       发表于 2025-5-28 00:57
+
+ 本帖最后由 战术核辣条 于 2025-5-28 00:58 编辑 
+
+红高达 GQX G弗里德都是可以被大能远程遥控启动的，根本不需要驾驶员好吧
+
+不知道塞克谬为什么非得操盘炸死人类，总不能塞克谬里真装的外神吧
+
+*****
+
+####  岸浪白野  
+##### 15948#       发表于 2025-5-28 00:57
+
+被叫去测试才会被毒死，之前首席就被派去开GQX，逃过一劫还差不多吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 15949#       发表于 2025-5-28 00:58
+
+想不到这么快就去地球
+
+*****
+
+####  Earendil_C  
+##### 15950#       发表于 2025-5-28 00:59
+
+现在有紫婆基连叔叔联邦夏亚五方势力了，加上游离的番茄修斯，感觉真要一起爆起来要比 g 富国的混战还复杂）
+
+
+*****
+
+####  当光停止  
+##### 15951#       发表于 2025-5-28 01:00
+
+深色衣服的妹子遥控高达，此事在z高达中亦有记载。
+快进到人类总是再重复同样的错误。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  人形灾害  
+##### 15952#       发表于 2025-5-28 01:00
+
+绿叔叔哈曼说
+
+*****
+
+####  patema  
+##### 15953#       发表于 2025-5-28 01:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">修斯有没有可能是大基那边逃出来的强化人，这下番茄喵安就能一人一个了
+
+*****
+
+####  希望之异热同心  
+##### 15954#       发表于 2025-5-28 01:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856964&amp;ptid=2209276" target="_blank">Earendil_C 发表于 2025-5-28 00:59</a>
+
+现在有紫婆基连叔叔联邦夏亚五方势力了，加上游离的番茄修斯，感觉真要一起爆起来要比 g 富国的混战还复杂 ...</blockquote>
+这集把矛盾收缩到手电筒和zeknova上了，要爆起来收尾也不难
+
+*****
+
+####  Earendil_C  
+##### 15955#       发表于 2025-5-28 01:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856971&amp;ptid=2209276" target="_blank">希望之异热同心 发表于 2025-5-28 01:01</a>
+ 这集把矛盾收缩到手电筒和zeknova上了，要爆起来收尾也不难</blockquote>
+结局格里普斯战役概率大增，有木星来的男人，吉翁领导者，还有裤袜脱落）
+
+*****
+
+####  赵姬  
+##### 15956#       发表于 2025-5-28 01:02
+
+汤大基搞克隆人不是NDS的SD高达剧情嘛<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qiyu1234  
+##### 15957#       发表于 2025-5-28 01:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856969&amp;ptid=2209276" target="_blank">patema 发表于 2025-5-28 01:01</a>
+
+修斯有没有可能是大基那边逃出来的强化人，这下番茄喵安就能一人一个了</blockquote>
+根据过往台词应该是拉拉侧的角色吧
+
+上集被泽科诺瓦叫回去了（
+
+*****
+
+####  保真花生大友切  
+##### 15958#       发表于 2025-5-28 01:03
+
+我觉得是不是有第二季可能性？
+
+*****
+
+####  Earendil_C  
+##### 15959#       发表于 2025-5-28 01:03
+
+我感觉还是一季，手电这件事这季度怎么也要处理掉吧
+
+*****
+
+####  猪突猛进R  
+##### 15960#       发表于 2025-5-28 01:03
+
+这么快的节奏不觉得有第二季。
+
+
+*****
+
+####  ku2154513  
+##### 15961#       发表于 2025-5-28 01:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856964&amp;ptid=2209276" target="_blank">Earendil_C 发表于 2025-5-28 00:59</a>
+现在有紫婆基连叔叔联邦夏亚五方势力了，加上游离的番茄修斯，感觉真要一起爆起来要比 g 富国的混战还复杂 ...</blockquote>
+greco光地球都不止5派人
+
