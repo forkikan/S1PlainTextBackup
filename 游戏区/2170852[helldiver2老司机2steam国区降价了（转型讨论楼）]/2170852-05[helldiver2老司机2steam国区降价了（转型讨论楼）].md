@@ -1903,3 +1903,16 @@ psn现在不强制绑了
 
 还是说一定要找人才比较好
 
+
+*****
+
+####  sloorz  
+##### 6103#       发表于 2025-5-27 09:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67854250&amp;ptid=2170852" target="_blank">zzy516232108 发表于 2025-5-27 09:33</a>
+
+没有人一起随机匹配能玩吗
+
+还是说一定要找人才比较好</blockquote>
+我一直是随机匹配打的。肯定不如开黑乐呵，但是要玩的都能玩到。
+
