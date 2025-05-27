@@ -1899,3 +1899,14 @@ SEED：很不错的防御机，只是不能飞，没UR防御机的话可以优�
 
 —— 来自 LENOVO TB321FU, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  棍机凹升龙  
+##### 1655#       发表于 2025-5-28 00:21
+
+<img src="https://p.sda1.dev/24/4d1c6ef19916ecc7617e5222b17ed5d7/image.jpg" referrerpolicy="no-referrer">
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">gn粒子也是kirakira没毛病
+
+—— 来自 samsung SM-F9460, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

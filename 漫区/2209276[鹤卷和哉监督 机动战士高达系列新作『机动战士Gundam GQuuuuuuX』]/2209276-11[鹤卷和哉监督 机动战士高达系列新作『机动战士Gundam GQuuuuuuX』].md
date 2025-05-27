@@ -11610,3 +11610,360 @@ GQX没浮游炮比较吃亏呀。
 
 想你了，骡子叔叔
 
+
+*****
+
+####  猪突猛进R  
+##### 15843#       发表于 2025-5-28 00:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856815&amp;ptid=2209276" target="_blank">希望之异热同心 发表于 2025-5-28 00:15</a>
+
+老太婆这野史乐死我了，反过来说总帅79年算计了两个对他好感度拉满的扎比家的人 ...</blockquote>
+野史当然要够野才行<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jojonathan  
+##### 15844#       发表于 2025-5-28 00:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856809&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-28 00:13</a>
+喵安的身体素质不输强化人，机架几次跳就上去了。</blockquote>
+月球重力低啦
+
+*****
+
+####  ヒトニナル  
+##### 15845#       发表于 2025-5-28 00:17
+
+下一话还是要拍玛秋越狱的呀，不是纯留白
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玛秋单人越狱不可能的，绿叔叔绝对掺和在里面，最低也是睁一只眼闭一只眼放跑玛秋
+
+*****
+
+####  ryanghj  
+##### 15846#       发表于 2025-5-28 00:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856807&amp;ptid=2209276" target="_blank">patema 发表于 2025-5-28 00:13</a>
+
+而且还有台新高达？机翻没看清除</blockquote>
+结尾说的就是gundam 弗雷德=G弗雷德=二号机
+
+*****
+
+####  风夏  
+##### 15847#       发表于 2025-5-28 00:17
+
+期待麻球表演斧子(トマホークブーメラン)砍喵安浮游炮的神迹<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ティグル  
+##### 15848#       发表于 2025-5-28 00:18
+
+裤袜脱落都王者归来了，梦男们会多安排些戏份吗
+
+*****
+
+####  seedees3  
+##### 15849#       发表于 2025-5-28 00:18
+
+ 本帖最后由 seedees3 于 2025-5-28 00:19 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856809&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-28 00:13</a>
+
+喵安的身体素质不输强化人，机架几次跳就上去了。</blockquote>
+月球低重力环境，不过那个军校毕业的竟然爬上来这么吃力，还不如难民
+
+*****
+
+####  Sliurus  
+##### 15850#       发表于 2025-5-28 00:18
+
+不过这集感觉又应验了我之前的推测，GQ的矛盾中心点是夏亚，紫婆造GQ系的目的也和夏亚有关
+
+*****
+
+####  猪突猛进R  
+##### 15851#       发表于 2025-5-28 00:18
+
+2号机的应该算猫耳浮游炮吧，对应喵安。
+
+*****
+
+####  盐盐盐盐盐  
+##### 15852#       发表于 2025-5-28 00:18
+
+明显是夏利亚故意放麻球跑的吧，话说这个预告麻球是在地球遇到拉拉了吗，已经开始期待9.10集解谜回了
+
+*****
+
+####  伊露伊道格拉斯  
+##### 15853#       发表于 2025-5-28 00:18
+
+ 本帖最后由 伊露伊道格拉斯 于 2025-5-28 00:20 编辑 
+
+紫色，有浮游炮，被称作“怪物”，会让驾驶员产生“非人”的转变。
+
+那不就是……
+
+EVA初号机：是……
+
+法芙娜 虚无：没错，正是在下<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+主要是，间谍哥那种说辞，“在他们变成非人前杀了，是对他们的仁慈”真的有点像法芙娜exodus的人类军那套(
+
+*****
+
+####  ryanghj  
+##### 15854#       发表于 2025-5-28 00:18
+
+老太婆和绿叔叔都是夏亚梦女/梦男
+
+这其实也是和主角团三人组对位的设置
+
+*****
+
+####  YU_JI  
+##### 15855#       发表于 2025-5-28 00:19
+
+至少这集留白搞插叙是对的，GQX单机突破的镜头背后能说道的太多了
+
+*****
+
+####  猪突猛进R  
+##### 15856#       发表于 2025-5-28 00:19
+
+没有阿姆罗的世界恐怖如斯。
+
+
+*****
+
+####  奇幻梦境  
+##### 15857#       发表于 2025-5-28 00:20
+
+<img src="https://img.stage1st.com/forum/202505/28/002023fqvqq28bvt958002.png" referrerpolicy="no-referrer">
+
+<strong>7396f1110e6d9313c009c4aa8af90fd6.png</strong> (125.11 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 00:20 上传
+
+越看越像
+
+*****
+
+####  暗黑能乐  
+##### 15858#       发表于 2025-5-28 00:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">击垮突破大气层有保鲜膜吗，没看清楚
+
+*****
+
+####  Toby_dak  
+##### 15859#       发表于 2025-5-28 00:20
+
+<img src="https://img.stage1st.com/forum/202505/28/011958iz5m8tf2huf38acu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (67.21 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 00:19 上传
+
+怎么连第三适格者也跑出来了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 15860#       发表于 2025-5-28 00:21
+
+夏亚变装
+
+<img src="https://img.stage1st.com/forum/202505/28/002117ufh1ar181ky1y098.jpg" referrerpolicy="no-referrer">
+
+<strong>HW]ZNV%DKNB7JP6Y4HQZ)`H_tmb.jpg</strong> (8.48 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 00:21 上传
+
+*****
+
+####  猪突猛进R  
+##### 15861#       发表于 2025-5-28 00:21
+
+喵安是第3个啊，前两个都被暗杀了。
+
+*****
+
+####  cayon  
+##### 15862#       发表于 2025-5-28 00:21
+
+猫耳好像是浮游炮还蛮有意思的，还有这配色真就初号机吧，比基夸克斯硬凹高达配色好看多了，期待这个机体的全身
+
+*****
+
+####  oi99o  
+##### 15863#       发表于 2025-5-28 00:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856803&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-5-28 00:12</a>
+
+前脚说完烤蛋糕，后脚就叫人去吃，总感觉这片的时间概念有点模糊</blockquote>
+因为要急着下毒呗，明天就要上机训练了再不动手就来不及了
+
+*****
+
+####  ティグル  
+##### 15864#       发表于 2025-5-28 00:21
+
+G社姨姥这辈子就是被EVA害了
+
+*****
+
+####  冰寒之月  
+##### 15865#       发表于 2025-5-28 00:21
+
+阿姆罗难道是去当富豪社长了 不知道后续有没有机会露脸
+
+*****
+
+####  只吃干拌面  
+##### 15866#       发表于 2025-5-28 00:22
+
+好评的4集6集8集都是文戏回，原来这部高达是去掉机战部分观感更好吗？按之前的尿性下一集不会又拉胯了吧
+
+*****
+
+####  猪突猛进R  
+##### 15867#       发表于 2025-5-28 00:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856844&amp;ptid=2209276" target="_blank">oi99o 发表于 2025-5-28 00:21</a>
+
+因为要急着下毒呗，明天就要上机训练了再不动手就来不及了</blockquote>
+首席哥如果回收的是番茄，估计就交代在这了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  m99999  
+##### 15868#       发表于 2025-5-28 00:22
+
+<blockquote>萨尤克 发表于 2025-5-28 00:12
+塑料兄弟鸭子啊，绿叔叔真可怜
+
+还剩四集这还能圆回来吗
+</blockquote>
+绿叔叔在鸭子失踪后还要搞毁吉翁动机满迷的
+
+考虑到船上可能也全是间谍，搞不好他早就和鸭子有联系了，演呢
+
+*****
+
+####  暗黑能乐  
+##### 15869#       发表于 2025-5-28 00:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那个吃蛋糕太突兀了，我第一反应就是下毒，意图过于明显
+
+*****
+
+####  a85982313  
+##### 15870#       发表于 2025-5-28 00:23
+
+反正gqux肯定不会落点在战争和平这一类的方向了
+
+紫婆的目的也不是这个，绿叔叔的也不是
+
+看看怎么解释前面修司说的改变世界改变历史了
+
+*****
+
+####  YU_JI  
+##### 15871#       发表于 2025-5-28 00:24
+
+说实话拉拉都出来了不把骡子拉出来溜溜吗？现在谁还管什么老角色喧宾夺主，一口气全端上来吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dafangwoo  
+##### 15872#       发表于 2025-5-28 00:24
+
+10分钟让我戒断
+
+*****
+
+####  ティグル  
+##### 15873#       发表于 2025-5-28 00:24
+
+最糟糕的情况也不过DC式的多元宇宙，这个从一开始就有人打预防针了其实也还好
+
+*****
+
+####  qiyu1234  
+##### 15874#       发表于 2025-5-28 00:24
+
+最后一话有艾美号确实是很关键的剧透
+
+不过不清楚这台机具体是谁开的就是了
+
+*****
+
+####  Flechette  
+##### 15875#       发表于 2025-5-28 00:24
+
+这个夏亚的发型也太难绷了
+
+不过这种盖住大半张脸的发型，感觉就是为了之后一个发胶手撇成大背头来一次shocking reveal准备的
+
+*****
+
+####  ヒトニナル  
+##### 15876#       发表于 2025-5-28 00:25
+
+下集打不起来吧，A part讲一下玛秋越狱，B part就该见拉拉了，要打应该要等到下下集
+
+*****
+
+####  57042711  
+##### 15877#       发表于 2025-5-28 00:25
+
+剧中大部分人都以为泽克诺瓦是某种大规模杀伤性武器吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+为了阻止第X次冲击
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  winda  
+##### 15878#       发表于 2025-5-28 00:25
+
+哦豁，因为基西莉亚独占了nt相关技术，基连在玩复制强化人啊。
+
+杜系列要出来了么，提坦斯和基连合作，看起来很离谱又有点合理。
+
+*****
+
+####  Toby_dak  
+##### 15879#       发表于 2025-5-28 00:25
+
+<img src="https://img.stage1st.com/forum/202505/28/012514jj9y9qjplq9de3tl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (43.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 00:25 上传
+
+玩EVA OP那套对吧？
+
+*****
+
+####  m99999  
+##### 15880#       发表于 2025-5-28 00:26
+
+<blockquote>Flechette 发表于 2025-5-28 00:24
+这个夏亚的发型也太难绷了
+
+不过这种盖住大半张脸的发型，感觉就是为了之后一个发胶手撇成大背头来一次shock ...</blockquote>
+一次性cos总帅和裤袜
+
+没有奥古我照样可以投入联邦势力
+
