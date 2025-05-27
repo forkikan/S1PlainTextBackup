@@ -1994,3 +1994,37 @@ psn现在不强制绑了
 —— 来 ...</blockquote>
 感谢<img src="https://static.stage1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  amazarashi  
+##### 6110#       发表于 2025-5-27 16:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67854917&amp;ptid=2170852" target="_blank">妄想系同盟 发表于 2025-5-27 13:14</a>
+
+感谢</blockquote>
+[https://www.bilibili.com/video/BV1pwQSYjE5M/](https://www.bilibili.com/video/BV1pwQSYjE5M/)
+
+   
+
+新手攻略
+
+债券解锁也可以看、楼友给的链接旧了
+
+  
+
+这游戏进图的基本任务：做完主次目标并撤退
+
+撤退失败无法获得地图中拾取的样本徽章...这些物资，新手开荒带不回样本、打一局跟没打一样
+
+  
+
+地图内基本思路：不主动开枪杀怪，被盯上了再清。奔着完全清除地图上的红区（其它目标）去，主要是巢穴运兵船这些，清的越多刷怪越少逛街越容易，还有经验货币奖励
+
+*****
+
+####  gaiden  
+##### 6111#       发表于 2025-5-27 16:05
+
+没玩这游戏，制作组好像很会玩梗，火出圈了这个超级上海<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
