@@ -14350,3 +14350,13 @@ gq世界线的赛可缪技术已经和独角兽差不多了，上集精神力高
 “姐姐大人？拉拉吗？”
 <img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dbyboy  
+##### 16102#       发表于 2025-5-28 04:00
+
+半集的背叛也太廉价了，信任都没有何来背叛，所以现在知道启动故事了那之前在tm干嘛，就这篇幅你第三集gqx就该进大气层了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
