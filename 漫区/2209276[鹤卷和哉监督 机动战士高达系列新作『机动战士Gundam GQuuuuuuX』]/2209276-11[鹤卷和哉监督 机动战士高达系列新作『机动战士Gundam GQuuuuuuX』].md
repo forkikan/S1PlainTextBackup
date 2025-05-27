@@ -9624,3 +9624,14 @@ Two活下来，然后这集被开二号机的喵安击坠，Two被基西莉亚�
 
 要是喵安跟紫婆回了月球，那是不是就该复刻莎拉潜入月面都市放炸弹了啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  左翼齐飞  
+##### 15640#       发表于 2025-5-27 13:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67854876&amp;ptid=2209276" target="_blank">无念 发表于 2025-5-27 12:53</a>
+
+艹，卡尔玛上台那搞不好电影院里真的能看见夏亚和老太婆上演战争绝恋，等会，那炮毙了老太婆的绿叔叔不是 ...</blockquote>
+不是……所以这条线的卡尔玛到底这会儿在干嘛？我之前去搜了一下说是隐居了是什么鬼……？
+
