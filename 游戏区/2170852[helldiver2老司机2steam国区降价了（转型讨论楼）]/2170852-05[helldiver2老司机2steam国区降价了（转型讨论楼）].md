@@ -2177,3 +2177,11 @@ https://www.bilibili.com/video/BV1pwQSYjE5M/
 
 上周玩一晚上连续崩溃4~5次。游戏重装，驱动更新，文件验证，改设置，验证驱动和内存，全捞了一遍，搞了整一周。周四一局难十清虫巢连续崩溃五次+黑屏重启。高贵的超级地球不需要我，沦陷就沦陷吧。抱着你搞崩溃的ntdll.dll死你臭水沟里去吧。
 
+
+*****
+
+####  FLZB  
+##### 6121#       发表于 2025-5-28 00:33
+
+乔尔玩不起，现在三城4.8，大家一起死<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+

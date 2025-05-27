@@ -11967,3 +11967,269 @@ G社姨姥这辈子就是被EVA害了
 
 没有奥古我照样可以投入联邦势力
 
+
+*****
+
+####  奇幻梦境  
+##### 15881#       发表于 2025-5-28 00:26
+
+<img src="https://img.stage1st.com/forum/202505/28/002611fy3pjzor9rqc9jn9.png" referrerpolicy="no-referrer">
+
+<strong>adae9f4acc0f24c8cd57f5b8e2cea18d.png</strong> (89.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 00:26 上传
+
+<img src="https://img.stage1st.com/forum/202505/28/002614pbotdd9dodddddzq.png" referrerpolicy="no-referrer">
+
+<strong>68a30b437f387e3e465c816b81c7d4b4.png</strong> (122.19 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 00:26 上传
+
+<img src="https://img.stage1st.com/forum/202505/28/002619s3ffkrz34b7zpbbb.png" referrerpolicy="no-referrer">
+
+<strong>d1d042c3d5bf0949efa12c59d5248aaa.png</strong> (162.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 00:26 上传
+
+<img src="https://img.stage1st.com/forum/202505/28/002624lt0bkkzrbxkm9kz9.png" referrerpolicy="no-referrer">
+
+<strong>3c49aeca497cf93951ebca15ac3a8b7d.png</strong> (125.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 00:26 上传
+
+*****
+
+####  赤黑的假面  
+##### 15882#       发表于 2025-5-28 00:26
+
+<blockquote>winda 发表于 2025-5-28 00:25
+哦豁，因为基西莉亚独占了nt相关技术，基连在玩复制强化人啊。
+
+杜系列要出来了么，提坦斯和基连合作，看起 ...</blockquote>
+基连x周锦华是吧
+
+*****
+
+####  Devola  
+##### 15883#       发表于 2025-5-28 00:28
+
+赶紧有多野搞多野
+
+别再复刻提坦斯的雷声大雨点小
+
+不然乐子都不够塞牙缝
+
+*****
+
+####  gammatau  
+##### 15884#       发表于 2025-5-28 00:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856849&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-28 00:22</a>
+
+首席哥如果回收的是番茄，估计就交代在这了</blockquote>
+可能靠体育生的身体能力扛过去了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qiyu1234  
+##### 15885#       发表于 2025-5-28 00:29
+
+绿叔叔跟鸭子对立的可能性感觉在增加
+
+鸭子缩那么久感觉不像是愿意去跟吉翁老战友联系的样子
+
+*****
+
+####  windtrack  
+##### 15886#       发表于 2025-5-28 00:29
+
+我艹，这一帧是影院版没放还是太快了没人发现？
+
+<img src="https://img.stage1st.com/forum/202505/28/002944pr8b36vzrd59vnrs.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (101.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 00:29 上传
+
+
+*****
+
+####  a85982313  
+##### 15887#       发表于 2025-5-28 00:30
+
+<img src="https://img.stage1st.com/forum/202505/28/003118xddddlgdgddpp70w.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250528003109.jpg</strong> (58.87 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 00:31 上传
+
+意思全是拉拉在搞事？
+
+*****
+
+####  dafangwoo  
+##### 15888#       发表于 2025-5-28 00:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856871&amp;ptid=2209276" target="_blank">windtrack 发表于 2025-5-28 00:29</a>
+
+我艹，这一帧是影院版没放还是太快了没人发现？</blockquote>
+wtf dude
+
+*****
+
+####  YU_JI  
+##### 15889#       发表于 2025-5-28 00:31
+
+鸭子明摆着有自己小算盘的
+
+*****
+
+####  希望之异热同心  
+##### 15890#       发表于 2025-5-28 00:31
+
+<img src="https://img.stage1st.com/forum/202505/28/003107g44eft3kwtbifjkb.png" referrerpolicy="no-referrer">
+
+<strong>4135A1A743B7F3C54799EFCC1EDCF350.png</strong> (1.64 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 00:31 上传
+
+这预告里面番茄已经到地球了啊，搞不好已经和拉拉搭上线了吧！
+
+*****
+
+####  xunit  
+##### 15891#       发表于 2025-5-28 00:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856850&amp;ptid=2209276" target="_blank">m99999 发表于 2025-5-28 00:22</a>
+绿叔叔在鸭子失踪后还要搞毁吉翁动机满迷的
+
+考虑到船上可能也全是间谍，搞不好他早就和鸭子有联系了，演 ...</blockquote>
+我觉得夏利亚应该是真的信夏亚的"把吉翁和联邦都干掉，引领人类走向新未来"的方案
+
+*****
+
+####  猪突猛进R  
+##### 15892#       发表于 2025-5-28 00:31
+
+鸭子是不是进联邦了？
+
+*****
+
+####  windtrack  
+##### 15893#       发表于 2025-5-28 00:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856875&amp;ptid=2209276" target="_blank">dafangwoo 发表于 2025-5-28 00:31</a>
+
+wtf dude</blockquote>
+就前面那楼说的，夏亚朝鸭妹开枪的瞬间NT闪电那几帧，AMAZON源大概在8分44秒左右
+
+*****
+
+####  你妈的为什么  
+##### 15894#       发表于 2025-5-28 00:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老太婆会做料理 的确很惊讶啊
+
+*****
+
+####  Evomenon  
+##### 15895#       发表于 2025-5-28 00:32
+
+虽然乐见各种超展开乐子越来越大，但感觉挖的坑指定填不完，这集最后5分钟抛出来多少新线索啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+能把塞克谬和zekunova的谜底讲清楚就算胜利（
+
+*****
+
+####  岸浪白野  
+##### 15896#       发表于 2025-5-28 00:33
+
+就是动画才新加的，电影没有
+
+<img src="https://img.stage1st.com/forum/202505/28/003239aaupnu5ukuau6uuu.png" referrerpolicy="no-referrer">
+
+<strong></strong> (430.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 00:32 上传
+
+<img src="https://img.stage1st.com/forum/202505/28/003244b8jkpfw8ojg0pgc0.png" referrerpolicy="no-referrer">
+
+<strong>9I0V6K8WRPK~EF_I0M_S.png</strong> (344.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 00:32 上传
+
+*****
+
+####  猪突猛进R  
+##### 15897#       发表于 2025-5-28 00:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856883&amp;ptid=2209276" target="_blank">Evomenon 发表于 2025-5-28 00:32</a>
+
+虽然乐见各种超展开乐子越来越大，但感觉挖的坑指定填不完，这集最后5分钟抛出来多少新线索啊
+
+能把塞克谬和 ...</blockquote>
+麻球下一集已经到地球看海了，已经赢了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dafangwoo  
+##### 15898#       发表于 2025-5-28 00:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856881&amp;ptid=2209276" target="_blank">windtrack 发表于 2025-5-28 00:32</a>
+
+就前面那楼说的，夏亚朝鸭妹开枪的瞬间NT闪电那几帧，AMAZON源大概在8分44秒左右 ...</blockquote>
+是的。这下更加夜不能寐了。
+
+算了算了，明天还得生活的
+
+*****
+
+####  m99999  
+##### 15899#       发表于 2025-5-28 00:33
+
+<blockquote>猪突猛进R 发表于 2025-5-28 00:31
+鸭子是不是进联邦了？</blockquote>
+裤袜也来了，最后一集大背头cos总帅，看我12集拍完三部曲！
+
+*****
+
+####  a85982313  
+##### 15900#       发表于 2025-5-28 00:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856883&amp;ptid=2209276" target="_blank">Evomenon 发表于 2025-5-28 00:32</a>
+
+虽然乐见各种超展开乐子越来越大，但感觉挖的坑指定填不完，这集最后5分钟抛出来多少新线索啊
+
+能把塞克谬和 ...</blockquote>
+没啥迷了，如果玫瑰=拉拉，那可以收束到拉拉搞事
+
+无非就是为什么要改变历史这种给观众看的理由能不能服众
+
+*****
+
+####  Evomenon  
+##### 15901#       发表于 2025-5-28 00:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856886&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-28 00:33</a>
+
+麻球下一集已经到地球看海了，已经赢了</blockquote>
+下集若能继续按这集part B的速度展开，那赢定了好吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
