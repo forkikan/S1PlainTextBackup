@@ -9439,3 +9439,40 @@ SIDE6政府明显逐利的，绿叔叔只要能把好处给足了就行，不过
 —— 来自 HONOR SDY-AN00, Andr ...</blockquote>
 有吉姆、汉谟拉比、精神病在前，科技线早就无所谓了
 
+
+*****
+
+####  猪突猛进R  
+##### 15622#       发表于 2025-5-27 11:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67854587&amp;ptid=2209276" target="_blank">上坂莲华 发表于 2025-5-27 11:14</a>
+
+SIDE6政府明显逐利的，绿叔叔只要能把好处给足了就行，不过按上次紫色老太婆那写法估计是要轻轻一笔带过了
+
+ ...</blockquote>
+胁迫别人的坏人怎可能不两头吃：
+
+夫人，您也不想麻球变成弗兰纳罕机关的小白鼠吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无念  
+##### 15623#       发表于 2025-5-27 11:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67854672&amp;ptid=2209276" target="_blank">玖羽 发表于 2025-5-27 11:34</a>
+有吉姆、汉谟拉比、精神病在前，科技线早就无所谓了</blockquote>
+还是不一样的，吉姆是抢了高达后吉翁尼克造的，本质和他的名字一样，这条世界线的勇士罢了。
+地球这边精神病是村雨研究所造的，汉布拉比哪怕是正史也是联邦军（提坦斯）自己研发的，他们都有合理的开发路线，但是高扎古...我还真不好说ae没吃到吉翁尼克和兹马达能交出什么ms来，说不定是四个眼睛的雷姆吧
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  无念  
+##### 15624#       发表于 2025-5-27 11:44
+
+话说ae在月球啊，联邦军敢问他们要ms，运输也是个大问题吧，搞不好联邦军现在机体全靠自研了
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
