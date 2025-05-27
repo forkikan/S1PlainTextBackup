@@ -1754,3 +1754,14 @@ SR：自由，正义，禁断，ZZ，强化ZZ（除了自由其他PVP都不太�
 SSR ...</blockquote>
 别的好理解，为什么有扎古2改？单纯是吃得到这次PVP加成吗
 
+
+*****
+
+####  rockroxas  
+##### 1643#       发表于 2025-5-27 21:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856267&amp;ptid=2071758" target="_blank">alialex 发表于 2025-5-27 21:20</a>
+
+别的好理解，为什么有扎古2改？单纯是吃得到这次PVP加成吗</blockquote>
+单纯是有盾，半血以下加防（中文版翻译成加攻是错译），吉翁公国加成的SSR机师多（马上还要送一个）
+
