@@ -1045,3 +1045,52 @@
 我这么非都是你们这些漏油吸光我的欧气</blockquote>
 今年最狗的不是你么
 
+
+*****
+
+####  希望之花  
+##### 16826#       发表于 2025-5-27 15:01
+
+刷完了想给劳苦功高的麻雀补个宝具
+
+结果彩圈金剑转过来呆毛<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+有病吧有病吧有病吧有病吧有病吧有病吧<img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 16827#       发表于 2025-5-27 15:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67855214&amp;ptid=2084912" target="_blank">希望之花 发表于 2025-5-27 15:01</a>
+
+刷完了想给劳苦功高的麻雀补个宝具
+
+结果彩圈金剑转过来呆毛
+
+有病吧有病吧有病吧有病吧有病吧有病吧 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">氪金的福报
+
+*****
+
+####  khxooo  
+##### 16828#       发表于 2025-5-27 21:24
+
+ 本帖最后由 khxooo 于 2025-5-27 21:37 编辑 
+
+查了查，狂阶好像最多就是20群冲或者20单冲的角色，那么除了水C呆和娄西外其他角色要带黑杯+换人服，摩根、水C呆、娄西必须要有其中2个<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">。那么要么抱好友的水C呆，或者自己上水C呆了。
+
+如果真的是B叔守门，那么CEO会是一个好的角色，既有灵衣，也是秩序善，更加可以给特攻<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  GameTheory  
+##### 16829#       发表于 2025-5-27 21:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856276&amp;ptid=2084912" target="_blank">khxooo 发表于 2025-5-27 21:24</a>
+
+查了查，狂阶好像最多就是20群冲或者20单冲的角色，那么除了水C呆和娄西外其他角色要带黑杯+换人服，摩根、 ...</blockquote>
+千利休 单冲30 
+
+金时 和 水C呆 有50自充（单体宝具）
+

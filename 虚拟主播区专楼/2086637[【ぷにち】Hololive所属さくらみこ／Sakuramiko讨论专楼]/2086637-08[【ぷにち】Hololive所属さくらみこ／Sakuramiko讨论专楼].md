@@ -127,3 +127,48 @@
 
 鲍鱼好吃
 
+
+*****
+
+####  holofan  
+##### 11042#       发表于 2025-5-26 15:56
+
+悲报
+
+geekjack又给补充了上百件elitespark卡牌包box的库存，这下真的库存充裕到没人买了
+
+越来越觉得当时怕买不到急着高价抢货的我是SB了
+
+<img src="https://img.stage1st.com/forum/202505/26/155641nh0ry8druzul0y0v.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (28.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-26 15:56 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| rs5621| + 1|惨哦|
+
+查看全部评分
+
+*****
+
+####  holofan  
+##### 11043#       发表于 2025-5-27 21:40
+
+<img src="https://img.stage1st.com/forum/202505/27/214036hvgt82vtrn8z5aw8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (157.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-27 21:40 上传
+
