@@ -13905,3 +13905,109 @@ Screenshot_2025-05-28-01-56-41-051_com.baidu.tieba.jpg
 
 谁再说这不是EVA的，这就是EVA
 
+
+*****
+
+####  大泽瑠璃乃  
+##### 16062#       发表于 2025-5-28 02:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857123&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-28 02:12</a>
+
+不过小森真要沦为100%的花瓶角色吗？本来以为麻球还要再木马待一段时间，会有小森戏份 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">小森大概有半集时间可以修正麻球，加油小森
+
+*****
+
+####  人形灾害  
+##### 16063#       发表于 2025-5-28 02:21
+
+虽然但是，吉翁的护国英雄变成反抗军领袖归来的话真的有点整蛊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 16064#       发表于 2025-5-28 02:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857060&amp;ptid=2209276" target="_blank">ヒトニナル 发表于 2025-5-28 01:32</a>
+说到整个宇宙都是同一个拉拉我就想起来那个拥有记忆的拉拉阻止阿姆罗上机的同人搞笑动画，预言者可能性微存 ...</blockquote>
+从拉拉飞升后的骚扰行为来看，现代化改造成同人那样的搞笑角色一点都不会违和，下一集要是真能成会很惊喜。
+
+*****
+
+####  岸浪白野  
+##### 16065#       发表于 2025-5-28 02:22
+
+[X 上的 STAR影法師：“[url]https://t.co/lAq2qczVac](https://x.com/starshadowmagic/status/1927419223782932737)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/28/022219wajz14nenljllxll.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (635.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 02:22 上传
+
+*****
+
+####  Steel.Haze  
+##### 16066#       发表于 2025-5-28 02:22
+
+然后另一方面，叙事跳跃是很有趣的风格，这集跳过了喵安适应环境、启动机体后的情况和番茄出逃前的行动等等。但是又不会让观看感觉不适。是很不错的尝试。非连续性叙事运用的比较好的例子。
+
+*****
+
+####  YU_JI  
+##### 16067#       发表于 2025-5-28 02:23
+
+这剧的留白处理一直不少，这集算是真正体现出了留白处理的魅力
+
+
+*****
+
+####  winda  
+##### 16068#       发表于 2025-5-28 02:26
+
+<blockquote>岸浪白野 发表于 2025-5-28 01:50
+首先基连的复制强化人是才在准备投入实战</blockquote>
+这边我觉着是让村雨那边借暗杀行动试运行杜系列后，基连这边再根据表现调整后投入实战。
+
+把提坦斯和基连派捏成一个势力，那现在大方向上就可以分成联邦和基连的仇视nt派，基西莉亚这边的无限制利用nt派，还有夏利亚的nt自己当老板派。
+
+*****
+
+####  Huiiii  
+##### 16069#       发表于 2025-5-28 02:26
+
+原本以为第七集是一段陡峭的长梯，一路疾驰之后会在第八集的大露台上小憩片刻，然后进入故事新的阶段，
+
+但没想到第八集的b part迎来了更陡峭的斜坡，更猛烈的急行，真是畅快。
+
+最后喵安对麻球的那句”因为她是货真价实的“真是有味道，让我对她俩的关系性有了新的感想。
+
+喵安和麻球就像上班时候会互相插科打诨的同事，看似无话不谈，但都互相提防着对方的业绩，嫉妒着上”司“对另一方的情感（虽然这个上司可能就没有情感）
+
+然后下班后一个去酒吧蹦迪回大别野睡觉，一个去便利店上夜班回出租屋学英语，
+
+等第二天上班，还乐呵呵傻乎乎得觉得对方和自己是一类人。
+
+如今看清一切的她跳槽到大公司后，听闻故友的近况时，冷冷淡淡的丢下一句“毕竟是她”，概况了那所有的回忆与关系。
+
+*****
+
+####  ftyaid  
+##### 16070#       发表于 2025-5-28 02:27
+
+<blockquote>人形灾害 发表于 2025-5-28 02:21
+虽然但是，吉翁的护国英雄变成反抗军领袖归来的话真的有点整蛊</blockquote>
+夏亚干整蛊（外人眼中）的事情还干的少吗
+
+*****
+
+####  xwz  
+##### 16071#       发表于 2025-5-28 02:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856729&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-28 00:02</a>
+
+拿发型遮眼也算要素</blockquote>
+果然没死啊，裤袜脱落把🐓拿大尉<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
