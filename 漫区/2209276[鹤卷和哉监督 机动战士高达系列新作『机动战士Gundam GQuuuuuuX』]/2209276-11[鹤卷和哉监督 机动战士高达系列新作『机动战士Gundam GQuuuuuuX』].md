@@ -12417,3 +12417,249 @@ https://www.bilibili.com/video/BV17DVUzSEUX</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">虽然老太婆自己做饭是为了防暗杀，但是不是也有想给夏亚下厨的可能性呢！
 
+
+*****
+
+####  YU_JI  
+##### 15921#       发表于 2025-5-28 00:46
+
+<blockquote>Sliurus 发表于 2025-5-28 00:45
+想到一件很搞笑的事，首席哥是不是因为启动不了塞克谬所以没被内鬼毒死</blockquote>
+草，还真可能是
+
+*****
+
+####  猪突猛进R  
+##### 15922#       发表于 2025-5-28 00:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856916&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-5-28 00:45</a>
+
+想到一件很搞笑的事，首席哥是不是因为启动不了塞克谬所以没被内鬼毒死</blockquote>
+别说，好像还真是。
+
+*****
+
+####  cayon  
+##### 15923#       发表于 2025-5-28 00:46
+
+1号机2号机合伙打boss啊，在独角兽中亦有记载
+
+*****
+
+####  猪突猛进R  
+##### 15924#       发表于 2025-5-28 00:46
+
+<img src="https://img.stage1st.com/forum/202505/28/004628qqmt9ddbt9id60t0.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (51.72 KB, 下载次数: 1)
+
+下载附件
+
+2025-5-28 00:46 上传
+
+<img src="https://img.stage1st.com/forum/202505/28/004628n7rr7zprn5cv7qiy.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (47.87 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 00:46 上传
+
+是普露系列还是格雷米呢？
+
+*****
+
+####  YU_JI  
+##### 15925#       发表于 2025-5-28 00:47
+
+频道又回到了爱首TV，看来确实是好转了（）
+
+*****
+
+####  ku2154513  
+##### 15926#       发表于 2025-5-28 00:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856916&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-5-28 00:45</a>
+想到一件很搞笑的事，首席哥是不是因为启动不了塞克谬所以没被内鬼毒死</blockquote>
+有点搞，没才能也有好处意思是<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pokemon最爱  
+##### 15927#       发表于 2025-5-28 00:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856917&amp;ptid=2209276" target="_blank">windtrack 发表于 2025-5-28 00:45</a>
+
+所以2号机到底是干啥用的，搞不好是启动手电筒用的？或者是激活手电筒把全人类照成NT？第三次冲击？ ...</blockquote>
+GQX世界线的手电筒可能是用泽克诺瓦进行攻击的NT兵器<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  你妈的为什么  
+##### 15928#       发表于 2025-5-28 00:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856891&amp;ptid=2209276" target="_blank">a85982313 发表于 2025-5-28 00:34</a>
+
+没啥迷了，如果玫瑰=拉拉，那可以收束到拉拉搞事
+
+无非就是为什么要改变历史这种给观众看的理由能不能服众 ...</blockquote>
+拉拉目睹正史的悲剧之后发功改变世界线
+
+算是最快收束的方式了吧
+
+*****
+
+####  猪突猛进R  
+##### 15929#       发表于 2025-5-28 00:47
+
+还有4集，怕不是真能演到CCA哦。
+
+*****
+
+####  你妈的为什么  
+##### 15930#       发表于 2025-5-28 00:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856914&amp;ptid=2209276" target="_blank">八汰乌 发表于 2025-5-28 00:44</a>
+
+我没看过剧场版，剧场版的内容是不是TV都放过了？</blockquote>
+全放了，一点都没留了
+
+*****
+
+####  ヒトニナル  
+##### 15931#       发表于 2025-5-28 00:48
+
+但说实话我看首席哥知道自己的两个亲友被另一个亲友毒死，然后这个叛徒亲友在自己眼前被气化之后的反应平静得不太像正常人<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xunit  
+##### 15932#       发表于 2025-5-28 00:49
+
+总感觉紫婆是想用手电筒系统作为能源引发超大规模的泽克诺瓦，炸掉汤大基和地球
+
+*****
+
+####  qiyu1234  
+##### 15933#       发表于 2025-5-28 00:49
+
+俩间谍应该就是基连侧的角色
+
+这么看基连还是要出场的呀
+
+手电现在在紫婆手里，鸭子搞不搞事情不说，基连不登场拿手电照谁呢
+
+而且还得有相关的战斗，也就是得有人阻止手电筒发射，这个也挺值得玩味
+
+*****
+
+####  windtrack  
+##### 15934#       发表于 2025-5-28 00:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在看剧场版是真小丑了，不仅内容全放了，TV版79部分甚至比剧场版内容还多几帧
+
+*****
+
+####  希望之异热同心  
+##### 15935#       发表于 2025-5-28 00:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">草还想到个很地狱的，番茄妈要番茄去读书，但喵安靠推荐信就能进吉工大了哈哈哈哈
+
+
+*****
+
+####  azbhg1  
+##### 15936#       发表于 2025-5-28 00:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856916&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-5-28 00:45</a>
+
+想到一件很搞笑的事，首席哥是不是因为启动不了塞克谬所以没被内鬼毒死</blockquote>
+一开始我也这么想，后面仔细一看感觉可能是二号机里塞了什么怪东西
+
+<img src="https://p.sda1.dev/24/f5ebcfc25838ecd4598177ffccb2ef0c/06def1455e6f56b5923cd998e3e49f5a.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/0f7bfd572f7817d08972289011845e12/c03395b7e0401c342e8f120fdefcbe81.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/027dd02112099e1d37c40917eef294d3/08d3ea2f279c1c5c3c9368f3fcf769ce.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/aab7ae9e17b1ca201c8cf2d580fc2277/79b2b9bb7f0003f56d7d9a7180014ab6.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猪突猛进R  
+##### 15937#       发表于 2025-5-28 00:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856935&amp;ptid=2209276" target="_blank">windtrack 发表于 2025-5-28 00:49</a>
+
+现在看剧场版是真小丑了，不仅内容全放了，TV版79部分甚至比剧场版内容还多几帧 ...</blockquote>
+剧场版不是有独占的悉尼吗。
+
+*****
+
+####  hosilly  
+##### 15938#       发表于 2025-5-28 00:52
+
+发现内鬼的逻辑还是在线的
+
+首席谈到内鬼会给大家做蛋糕——喵安下车问首席蛋糕味道——首席没吃过，于是察觉出不对（此处留白处理）——内鬼邀请喵安吃蛋糕，首席哥后援——内鬼暴露
+
+*****
+
+####  盐盐盐盐盐  
+##### 15939#       发表于 2025-5-28 00:52
+
+イオマグヌッソ感觉不止手电筒这么简单，猜一个强制引起zknv装置
+都说是毁灭吉翁和人类的东西了，不可能只是手电筒那个程度
+且反二号机这人说的恶魔≈NT（喵安能心控二号机时被称为已经成为恶魔了）
+二号机可能是イオマグヌッソ的插件或者控制台，最终目的是引起星球规模的zknv
+
+*****
+
+####  玻璃洋葱  
+##### 15940#       发表于 2025-5-28 00:53
+
+<img src="https://img.stage1st.com/forum/202505/28/005242uwwwiuuwb0iwup00.jpg" referrerpolicy="no-referrer">
+
+<strong>DB81891F-D5DE-48B2-9FD9-8FCCD46CB52D.jpg</strong> (152.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 00:52 上传
+
+史迪仔<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ティグル  
+##### 15941#       发表于 2025-5-28 00:53
+
+谁家天使之环，直接跳到153年是吧
+
+*****
+
+####  patema  
+##### 15942#       发表于 2025-5-28 00:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856934&amp;ptid=2209276" target="_blank">qiyu1234 发表于 2025-5-28 00:49</a>
+
+俩间谍应该就是基连侧的角色
+
+这么看基连还是要出场的呀</blockquote>
+蛋糕哥自称是警察部队那边的搞不好不一定是纯的大基派，这个世界观的宇宙居民可能对强nt和塞克缪是很忌惮的
+
+*****
+
+####  u2deack  
+##### 15943#       发表于 2025-5-28 00:55
+
+这下直接不进驾驶舱都能操控了这是什么脑电波
+
+*****
+
+####  冰风血羽  
+##### 15944#       发表于 2025-5-28 00:56
+
+鸭子机魂说破灭
+下集大的要来了……吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

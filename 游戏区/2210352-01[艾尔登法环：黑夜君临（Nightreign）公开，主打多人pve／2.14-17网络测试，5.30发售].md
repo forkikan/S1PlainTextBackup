@@ -2881,3 +2881,13 @@ Xbox也开始疯狂断线了<img src="https://static.stage1st.com/image/smiley/f
 
 《艾尔登法环 黑夜君临》公开上市宣传片，本作将于5月30日正式推出，登陆PC、PS、Xbox平台。 http://t.cn/A6grgpta ​​​
 
+
+*****
+
+####  usodakedo  
+##### 315#       发表于 2025-5-28 00:51
+
+预告里出现了大型城堡，如果不是单纯的地形变化的话，就还挺期待的。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
