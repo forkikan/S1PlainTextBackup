@@ -9594,3 +9594,33 @@ solar ray秒掉基连之后紫色老太婆反手被绿叔叔火箭筒爆头
 封面看来是喵安开着新高达把什么东西干掉了，可能是拿联邦的炮灰来练手</blockquote>
 说不定就是有人期待的村雨兔反场<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  YU_JI  
+##### 15637#       发表于 2025-5-27 12:58
+
+<blockquote>cayon 发表于 2025-5-27 12:46
+封面看来是喵安开着新高达把什么东西干掉了，可能是拿联邦的炮灰来练手</blockquote>
+或者是直接快进到扎比内战爆发前夕了，给绿叔叔那边上点压力，再不干活就打起来了
+
+*****
+
+####  久井路路  
+##### 15638#       发表于 2025-5-27 12:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67854877&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-27 12:54</a>
+
+说不定就是有人期待的村雨兔反场</blockquote>
+要不这样吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+Two活下来，然后这集被开二号机的喵安击坠，Two被基西莉亚俘虏，成为基西莉亚的人。然后过两集，超级麻球开着全装夸克斯击坠了守护基西莉亚的Two，夏利亚说那个驾驶员还有用，把Two回收过来当他们的战力。然后12集和麻球组mav，被变强的喵安击坠，麻球因为mav被击坠而暴怒，和喵安展开最后的对决（No
+
+
+*****
+
+####  ykyin09  
+##### 15639#       发表于 2025-5-27 13:07
+
+要是喵安跟紫婆回了月球，那是不是就该复刻莎拉潜入月面都市放炸弹了啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
