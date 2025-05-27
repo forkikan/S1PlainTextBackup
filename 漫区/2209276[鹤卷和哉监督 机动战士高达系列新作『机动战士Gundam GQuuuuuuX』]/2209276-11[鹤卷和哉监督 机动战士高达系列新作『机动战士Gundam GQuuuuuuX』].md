@@ -14150,3 +14150,66 @@ Screenshot_2025-05-28-01-56-41-051_com.baidu.tieba.jpg
 不是说真是奥古，至少是对标奥古的，这是平行世界，目的、名字、组成乃至幕后资本有区别很正常，如果鸭子 ...</blockquote>
 太别扭 叫neozeon算了
 
+
+*****
+
+####  ryanghj  
+##### 16086#       发表于 2025-5-28 02:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857170&amp;ptid=2209276" target="_blank">ティグル 发表于 2025-5-28 02:44</a>
+
+由zeonic出资，鸡瘟军高层的人脉搭建，前鸡瘟军带着武器脱离军队后加入的AEUG，哦不对应该改名叫AZUG了
+
+ ...</blockquote>
+吉翁内部应该有不少戴肯派，尤其是现在这种扎比家内斗的情况下
+
+我觉得真的和奥古成立时候的情况很相似
+
+*****
+
+####  ryanghj  
+##### 16087#       发表于 2025-5-28 02:48
+
+所以修司其实是卡缪的地位……（？）
+
+*****
+
+####  wasssf  
+##### 16088#       发表于 2025-5-28 02:49
+
+ 本帖最后由 wasssf 于 2025-5-28 02:51 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857173&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-28 02:48</a>
+
+所以修司其实是卡缪的地位……（？）</blockquote>
+不是麻球？修司捡到高达和神隐现在看应该和夏亚无关了，夏亚应该消失之后没有带着高达一起穿越，消失之后出现在不同地方
+
+*****
+
+####  ティグル  
+##### 16089#       发表于 2025-5-28 02:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857172&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-28 02:47</a>
+
+吉翁内部应该有不少戴肯派，尤其是现在这种扎比家内斗的情况下
+
+我觉得真的和奥古成立时候的情况很相似 ...</blockquote>
+布列克斯确实是改良戴肯主义者，但是鸡瘟好像确实没有类似的人物吧
+
+
+*****
+
+####  人形灾害  
+##### 16090#       发表于 2025-5-28 02:52
+
+旁边的妹子也说她爸（那个里奥博士？）很器重鸭子，如果真是组织上层的话跟布列克斯的情况也挺像的
+
+*****
+
+####  ryanghj  
+##### 16091#       发表于 2025-5-28 02:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857174&amp;ptid=2209276" target="_blank">wasssf 发表于 2025-5-28 02:49</a>
+
+不是麻球？修司捡到高达和神隐现在看应该和夏亚无关了，夏亚应该消失之后没有带着高达一起穿越，消失之后 ...</blockquote>
+修司明显是夏亚教出来的啊，估计早就是奥古（GQ）的成员了
+
