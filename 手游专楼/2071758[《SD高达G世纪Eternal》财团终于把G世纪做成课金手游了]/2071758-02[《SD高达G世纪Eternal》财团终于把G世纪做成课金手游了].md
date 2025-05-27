@@ -1676,3 +1676,11 @@ gp02估计是卡池机，就是不知道卡池另一个是啥
 所以将来是所有叫得上名号的都会有UR机是吧</blockquote>
 甚至同一台机体可能反复UR化<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  夜之光  
+##### 1637#       发表于 2025-5-27 18:38
+
+手游随便出吧，现在是EX，过两年出完一轮换个标比如G啊V啊MAX之类的又能出。
+
