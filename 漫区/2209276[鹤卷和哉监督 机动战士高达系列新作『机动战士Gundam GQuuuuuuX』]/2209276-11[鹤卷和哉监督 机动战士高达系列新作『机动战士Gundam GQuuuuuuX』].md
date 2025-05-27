@@ -14463,3 +14463,30 @@ gq世界线的赛可缪技术已经和独角兽差不多了，上集精神力高
 这二号机虽然够eva的，但尖耳朵尖鼻子通体黑总让我幻视长毛巨魔</blockquote>
 kmf的高文
 
+
+*****
+
+####  startea15  
+##### 16109#       发表于 2025-5-28 06:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857224&amp;ptid=2209276" target="_blank">bbjajdd 发表于 2025-5-27 14:24</a>
+鸭子虽然没死，但红高达机魂还是有可能是鸭子
+
+就像虽然卡缪没死，用了z高达赛克缪装置的重高达里依然有卡缪 ...</blockquote>
+这是什么漫画？
+
+*****
+
+####  璇瑢子R  
+##### 16110#       发表于 2025-5-28 06:30
+
+<img src="https://img.stage1st.com/forum/202505/28/063023dl0hdix2dlbi3g2t.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>-9lddQvciu-l4kjXbT3cS1e0-rb.webp</strong> (1.03 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 06:30 上传
+
+[https://bbs.nga.cn/read.php?tid=44196164](https://bbs.nga.cn/read.php?tid=44196164)
+
