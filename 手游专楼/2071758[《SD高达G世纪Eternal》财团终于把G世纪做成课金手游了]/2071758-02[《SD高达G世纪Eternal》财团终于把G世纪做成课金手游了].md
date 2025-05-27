@@ -1928,3 +1928,13 @@ SEED：很不错的防御机，只是不能飞，没UR防御机的话可以优�
 
 GQ主角队有歌了
 
+
+*****
+
+####  马桶3  
+##### 1658#       发表于 2025-5-28 07:36
+
+有歌，但期间限定<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2408A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

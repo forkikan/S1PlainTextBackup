@@ -14572,3 +14572,26 @@ kmf的高文
 
 本人此前从未诋毁过鹤卷和哉，他讲故事的能力简直强的可怕
 
+
+*****
+
+####  Toby_dak  
+##### 16119#       发表于 2025-5-28 07:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857168&amp;ptid=2209276" target="_blank">nibugishi 发表于 2025-5-28 03:43</a>
+
+这节奏是真的崩，之前抠抠索索，现在一脚油门</blockquote>
+TOP前2集还在冲绳海滩上朝着夕阳跑步呢。
+
+没看过GAINAX那帮人做的动画？转头就上歼星舰的情节第一次看？
+
+*****
+
+####  Toby_dak  
+##### 16120#       发表于 2025-5-28 07:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856871&amp;ptid=2209276" target="_blank">windtrack 发表于 2025-5-28 01:29</a>
+
+我艹，这一帧是影院版没放还是太快了没人发现？</blockquote>
+剧场版4刷的表示没有。而且上映了几个月，几百万人次看过，真有的话不会没人发现的。
+
