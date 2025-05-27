@@ -4110,3 +4110,26 @@ aiko，进攻性太强了吧
 
 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">更新换代也太快了，真就因为狸猫星人不知多少年寿命所以时间上可以这么着跳啊。不知道下一集又是多久以后，身体能不能以过了很久所以找到零件为理由变回来；但既然这集奶奶都快不行了，12集的时候不会狸猫一家全都该没了然后迎回地球人吧
 
+
+*****
+
+####  Asukalangley33  
+##### 357#       发表于 2025-5-28 02:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857111&amp;ptid=2196984" target="_blank">knmf 发表于 2025-5-28 02:04</a>
+
+不会后面一直都履带腿吧</blockquote>
+PV里猫猫头形态八千代还没回收的，后面肯定变回来
+
+猜一个下集又过了100年
+
+狸猫一家下线，老年嘭子技术已经修炼好了，给八千代修回了原来的身体
+
+之后酒店交给嘭子的孙子的孙子代理，八千代开始旅行
+
+但是不管怎样，我坚持认为最终结局一定是一个类似佐贺的终极糊逼结局
+
+比如酒店最终发展成了银河系知名酒店，各个外星物种也开始移民地球，地球逐渐恢复生机
+
+然后第六集的哈基米回来把地球给爆了兑现承诺<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

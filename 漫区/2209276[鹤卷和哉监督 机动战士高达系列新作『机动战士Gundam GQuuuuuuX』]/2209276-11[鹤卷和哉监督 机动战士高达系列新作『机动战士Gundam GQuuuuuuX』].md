@@ -14011,3 +14011,52 @@ Screenshot_2025-05-28-01-56-41-051_com.baidu.tieba.jpg
 拿发型遮眼也算要素</blockquote>
 果然没死啊，裤袜脱落把🐓拿大尉<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无念  
+##### 16072#       发表于 2025-5-28 02:31
+
+总不能红高达里的是骡子吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  默逍  
+##### 16073#       发表于 2025-5-28 02:31
+
+首席哥纯纯摄像头角色，这个篇幅真的还有机会完成配角的塑造吗
+
+*****
+
+####  YU_JI  
+##### 16074#       发表于 2025-5-28 02:32
+
+等等，突然反应过来，鸭子和他身边那妹子不会是在给这个世界的奥古办事吧？？？
+
+*****
+
+####  YU_JI  
+##### 16075#       发表于 2025-5-28 02:34
+
+被时代所需要的工作，正史奥古开始活跃就是在85年的tts毒气事件之后没多久，按这样算，这会奥古正是登上历史舞台的时间
+
+<img src="https://img.stage1st.com/forum/202505/28/023426x0kh0hpqh0s0qu2u.png" referrerpolicy="no-referrer">
+
+<strong>IMG_4979.png</strong> (257.68 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 02:34 上传
+
+*****
+
+####  瓦拉几亚之夜  
+##### 16076#       发表于 2025-5-28 02:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857083&amp;ptid=2209276" target="_blank">zzf111 发表于 2025-5-28 01:47</a>
+
+这话末尾基西莉亚念叨夏亚时眼睛都闪着光，很难不是含情脉脉</blockquote>
+在基西莉亚的视点看来就是骑士夏亚为了保护她而自爆，少女心很难不KIRAKIRA啊
+
