@@ -9894,3 +9894,61 @@ solar ray秒掉基连之后紫色老太婆反手被绿叔叔火箭筒爆头
 要不然在最终决战前开个投票吧，看看民意。 ...</blockquote>
 看你能不能把骡鸭最后定义成和解了<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ryanghj  
+##### 15666#       发表于 2025-5-27 16:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67855536&amp;ptid=2209276" target="_blank">jojonathan 发表于 2025-5-27 16:51</a>
+
+唉 也不知道这集有没有爱猫tv看</blockquote>
+都被洗白了，肯定有爱猫啊<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+不如说之前特意安排喵安被电击绝对是有深意的
+
+*****
+
+####  ftyaid  
+##### 15667#       发表于 2025-5-27 16:55
+
+<blockquote>ryanghj 发表于 2025-5-27 16:54
+看你能不能把骡鸭最后定义成和解了</blockquote>
+骡鸭当然是和解了，毕竟最后的最后阿姆罗终于明白夏亚到底在执着什么了
+
+*****
+
+####  猪突猛进R  
+##### 15668#       发表于 2025-5-27 16:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67855542&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-27 16:54</a>
+
+看你能不能把骡鸭最后定义成和解了</blockquote>
+不至于，骡鸭之间是有拉拉这个死结。
+
+番茄和尼安之间有什么深仇大恨吗，真要献祭牢修？
+
+*****
+
+####  YU_JI  
+##### 15669#       发表于 2025-5-27 16:58
+
+ 本帖最后由 YU_JI 于 2025-5-27 16:59 编辑 
+
+搞不好到时候是结局之前误会越走越深的be路线，大结局情绪大宣泄但是为时已晚，ed画面就是“在另外一个世界我们的结局会不会更好”<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  0aleph37  
+##### 15670#       发表于 2025-5-27 16:59
+
+麻球喵安和解可以献祭修司（合力打红高），不和解也可以献祭修司（麻球胜喵安后爆头修司致敬I can）
+
+
+*****
+
+####  久井路路  
+##### 15671#       发表于 2025-5-27 17:00
+
+说到底她俩也就是以为和对方很熟其实不太熟、然后出了点误会而已，离需要烦恼能不能和解的地步还远着呢。
+
