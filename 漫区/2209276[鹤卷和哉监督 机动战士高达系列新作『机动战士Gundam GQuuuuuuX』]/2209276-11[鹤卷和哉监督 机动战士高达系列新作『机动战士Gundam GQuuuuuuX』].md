@@ -10064,3 +10064,44 @@ solar ray秒掉基连之后紫色老太婆反手被绿叔叔火箭筒爆头
 虽然这几年欧美的魔怔趋势来看真把褐色皮角色变白了估计又要被带节奏 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/carton2017/085.png" referrerpolicy="no-referrer">变黑色就可以吗？（找了一下发现没有红A的表情）
 
+
+*****
+
+####  qixinno2  
+##### 15682#       发表于 2025-5-27 19:59
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">结尾能不能看到某开着测试机的天然卷把这些人都给点了
+
+*****
+
+####  银川智将Kuroky  
+##### 15683#       发表于 2025-5-27 20:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67854968&amp;ptid=2209276" target="_blank">左翼齐飞 发表于 2025-5-27 13:38</a>
+
+不是……所以这条线的卡尔玛到底这会儿在干嘛？我之前去搜了一下说是隐居了是什么鬼……？ ...</blockquote>
+去side6当搞笑艺人了
+
+
+*****
+
+####  灵魂收割机  
+##### 15684#       发表于 2025-5-27 20:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856014&amp;ptid=2209276" target="_blank">大十字紅朔 发表于 2025-5-27 19:55</a>
+
+变黑色就可以吗？（找了一下发现没有红A的表情）</blockquote>
+用这个代替吧<img src="https://static.stage1st.com/image/smiley/carton2017/276.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  psycho_Gadfly  
+##### 15685#       发表于 2025-5-27 20:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856030&amp;ptid=2209276" target="_blank">qixinno2 发表于 2025-5-27 19:59</a>
+
+结尾能不能看到某开着测试机的天然卷把这些人都给点了</blockquote>
+一边哇哇乱叫头顶流汗一边捅驾驶舱
+
+那就先从最强战力绿叔叔下手吧<img src="https://static.stage1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+

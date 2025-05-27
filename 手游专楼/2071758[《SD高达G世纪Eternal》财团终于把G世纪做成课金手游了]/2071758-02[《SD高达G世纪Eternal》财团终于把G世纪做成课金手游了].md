@@ -1714,3 +1714,13 @@ SSR只考虑刚需SP化的PVP，正常打图目前看起来没太大必要，卡
 
 反正我等掉毛海牛OO，现在开始不抽<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rockroxas  
+##### 1640#       发表于 2025-5-27 19:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">想要的有点多，BD1，EX-S，HWS牛，掉毛，带蒂法的DX，G跟尊者，00，完美背包
+
+不知道到时要开多少小号
+
