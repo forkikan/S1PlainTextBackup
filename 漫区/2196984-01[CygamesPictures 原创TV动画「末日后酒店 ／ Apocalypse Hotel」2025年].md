@@ -4133,3 +4133,13 @@ PV里猫猫头形态八千代还没回收的，后面肯定变回来
 
 然后第六集的哈基米回来把地球给爆了兑现承诺<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NBXX  
+##### 358#       发表于 2025-5-28 03:09
+
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAIVKmg2DfhC_xXiXTmZBP24ZzfAp9YPAALhFwACbM2wVUjlhFRCqv6oNgQ.jpg" referrerpolicy="no-referrer">
+
+「アポカリプスホテルぷすぷすぷす」#8 漫画汉化
+
