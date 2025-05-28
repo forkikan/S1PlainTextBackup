@@ -1630,3 +1630,13 @@ G高达如武斗传其名，机动圣斗士，反响算中规中矩。
 
 当前大红大紫的作品，也是UC的平行世界，非常野的野史，不野不看<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  葵  
+##### 128#       发表于 2025-5-28 14:44
+
+GTO漫画挺好的啊，我觉得在安彦自己的历史漫画里都算上乘水平，观感和流畅度上没得说，宇宙大河剧的感觉。<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+而且这书的台版单行本非常牛逼，用纸是雪白的木浆纸，彩图全部铜版纸还原，秒杀日版和角川其他台版书那种擦屁股草纸，实打实的收藏级配置<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
