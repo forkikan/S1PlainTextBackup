@@ -2304,3 +2304,21 @@ PS5能跟PC联机吗
 
 —— 来自 Xiaomi 2407FRK8EC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Jyions  
+##### 6134#       发表于 2025-5-28 15:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67859004&amp;ptid=2170852" target="_blank">Mikumiku831 发表于 2025-5-28 15:31</a>
+PS5能跟PC联机吗</blockquote>
+可以的，支持跨平台，好友代码互相加一下就行
+
+
+*****
+
+####  FLZB  
+##### 6135#       发表于 2025-5-28 15:43
+
+只要乔尔不瞎调数值，等新加坡无了就能开始反攻，今晚应该又是全力防守on sea，苟到明天没问题。DSS指令快完事了，目前也只剩下一个繁荣城分兵，还真不好说
+
