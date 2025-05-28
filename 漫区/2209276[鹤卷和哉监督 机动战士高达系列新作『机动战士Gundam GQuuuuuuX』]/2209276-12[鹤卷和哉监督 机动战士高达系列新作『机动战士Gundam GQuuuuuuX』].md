@@ -2759,3 +2759,31 @@ gqux里面对表情特别重视，尤其是玛秋的表情，之前红迪 ...</b
 
 这两集那些零散的内部资料都是哪里首发的<img src="https://static.stage1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">（精神力和汉布拉比的比例示意图、GFreD的线稿和23年设定图、夏亚身高数据……）
 
+
+*****
+
+####  woui003woui  
+##### 16531#       发表于 2025-5-28 21:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860337&amp;ptid=2209276" target="_blank">LOLITA 发表于 2025-5-28 21:06</a>
+
+圣母在上？</blockquote>
+飞跃巅峰2<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 16532#       发表于 2025-5-28 21:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860302&amp;ptid=2209276" target="_blank">uponutopia 发表于 2025-5-28 20:59</a>
+
+怎么可能是看见男人笑的，番茄和男人相关的只有花痴和磕嗨的表情，这都8集过去了都看不出来吗还有人对男人 ...</blockquote>
+修司明显是诺诺定位的啊，这都看不出来还说啥了<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 16533#       发表于 2025-5-28 21:27
+
+土屋是不是说第十话是修司回来着
+
