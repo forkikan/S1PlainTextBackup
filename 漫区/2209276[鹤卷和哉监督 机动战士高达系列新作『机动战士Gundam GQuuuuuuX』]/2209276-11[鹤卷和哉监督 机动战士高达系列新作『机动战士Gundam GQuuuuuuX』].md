@@ -15683,3 +15683,95 @@ z高达的精神感应装置被369拿出来安在新机体上给他养女用了
 
 牢骡出场概率&lt;骡爹出场概率&lt;阿尔黛西娅出场概率
 
+
+*****
+
+####  plok201  
+##### 16213#       发表于 2025-5-28 10:39
+
+就和第六集一样啊，舍弃或者说留白一部分描写，然后高速推进事件确实能令人high起来
+
+但是不好说这点时间的人物塑造和铺垫能不能支撑后面的情感爆发
+
+紫色老太婆的计划会不会是把地球直接炸了吧，二号机引发nova，新的太阳系统给射到地球，然后剧情为了怒涛，真炸成功了
+
+*****
+
+####  没取名啊  
+##### 16214#       发表于 2025-5-28 10:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857120&amp;ptid=2209276" target="_blank">saico 发表于 2025-5-28 02:10</a>
+夏亚的新假名Shirouzu=しろうず=白水，是什么意思呢？有没有人开脑洞？</blockquote>
+为什么不先往乃木坂那个方向想想呢（<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  妄想系同盟  
+##### 16215#       发表于 2025-5-28 10:41
+
+首席哥只要战死就可以完成塑造叻<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 16216#       发表于 2025-5-28 10:42
+
+说实话Z高达那时库瓦托罗CV表直接夏亚就是没装过的没错，但现在第8集这里刚好巧妙的前半的就是夏亚，所以CV表还是夏亚也没什么问题
+
+<img src="https://img.stage1st.com/forum/202505/28/103934bpjzln5jjm7prkjl.png" referrerpolicy="no-referrer">
+
+<strong>0PSFJ%3S`M$I~H96N3ED%]X.png</strong> (31.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 10:39 上传
+
+<img src="https://img.stage1st.com/forum/202505/28/103949rwd0dzb9oibi7g18.png" referrerpolicy="no-referrer">
+
+<strong>FPE2KW4R$R~)4XKCM(QR()7.png</strong> (16.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 10:39 上传
+
+
+*****
+
+####  YU_JI  
+##### 16217#       发表于 2025-5-28 10:45
+
+<blockquote>plok201 发表于 2025-5-28 10:39
+就和第六集一样啊，舍弃或者说留白一部分描写，然后高速推进事件确实能令人high起来
+
+但是不好说这点时间的 ...</blockquote>
+比第六集好就好在文戏对白是真有水平的，不是单靠爆爆爆推情节撑着
+
+*****
+
+####  秋月孝三  
+##### 16218#       发表于 2025-5-28 10:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857902&amp;ptid=2209276" target="_blank">没取名啊 发表于 2025-5-28 10:40</a>
+
+为什么不先往乃木坂那个方向想想呢（</blockquote>
+シロウズ=46's
+
+Q.E.D.
+
+*****
+
+####  洛克萨斯  
+##### 16219#       发表于 2025-5-28 10:46
+
+番茄这行动力在历代高达主角里面都算很变态那种了................<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猪突猛进R  
+##### 16220#       发表于 2025-5-28 10:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857661&amp;ptid=2209276" target="_blank">downnote 发表于 2025-5-28 09:53</a>
+
+所以拉拉的CV会找谁呢？坂本真绫？</blockquote>
+有现成的，她女儿。
+

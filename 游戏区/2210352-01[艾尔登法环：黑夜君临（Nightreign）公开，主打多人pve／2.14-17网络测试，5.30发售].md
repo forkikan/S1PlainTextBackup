@@ -2926,3 +2926,14 @@ Xbox也开始疯狂断线了<img src="https://static.stage1st.com/image/smiley/f
 两个组的 ...</blockquote>
 老贼在开发duskblood啊，ns2独占
 
+
+*****
+
+####  woshenc  
+##### 319#       发表于 2025-5-28 10:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857832&amp;ptid=2210352" target="_blank">医生狼多 发表于 2025-5-28 10:27</a>
+
+老贼在开发duskblood啊，ns2独占</blockquote>
+切，我都忘了！这很难评！！！
+

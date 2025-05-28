@@ -1342,3 +1342,20 @@ gto这个不光拉拉，夏亚也……经常很安彦良和，你看过安彦�
 
 都看不就行了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  LeonsCat  
+##### 120#       发表于 2025-5-28 10:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857654&amp;ptid=2252419" target="_blank">江之岛右手 发表于 2025-5-28 09:52</a>
+
+不止是泥潭 放哪里都会有人说你看个屁的gto
+
+你看楼上就有说nga也吵过
+
+就像有人到历史论坛说《说唐》好看  ...</blockquote>
+不，元祖一个县志级别的急就章玩意……
+
+我说真的，泥潭还真有那么多人信高达这个IP是一开始规划好的系列作么……我还以为大家都知道这玩意最开始就是个卖玩具的广告片，并且到现在也有很重的卖玩具的广告片的成分。
+
