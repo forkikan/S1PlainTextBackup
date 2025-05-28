@@ -15568,3 +15568,28 @@ z高达的精神感应装置被369拿出来安在新机体上给他养女用了
 
 还是泥潭劳保太多了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Steel.Haze  
+##### 16202#       发表于 2025-5-28 10:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857332&amp;ptid=2209276" target="_blank">南朝Sonicbbs 发表于 2025-5-28 08:22</a>
+
+为什么不两个都量产呢？</blockquote>
+如果完全按照正史来看，格雷米是基连安排的政治继承人，所以实际上只做了一个，然后估计如果出意外可以再造。绝大部分基因组来自基连，剩下的估计融合女方的颜值要素等。是个基连构建的宣传角度“完美的自己”，其实从这个有个很深的暗喻，就是基连觉得完美的吉翁领袖形象的基因选择上，其实也参考了卡斯巴尔。也就是他想要一个长得有点像夏亚的俊朗的自己。要卡斯巴尔风格的皮囊和自己的思想融合。而格雷米的NT素质并不高。
+
+普璐系列也有基连的基因，但是少的多了，这个系列就是全心全意搞得NT骑士团，未来的近卫军，血脉骑士。女方基因就来自哈曼的家系，所以她和小美与哈曼就是纯粹的表姐妹和侄女关系。这个系列不断量产的人型零件。
+
+如果完全按照基连思维构建的二代吉翁帝国，和届时UC95年左右这些人造人成年接班的年龄配属的NT机水平。将是一个非常可怕的存在。
+
+*****
+
+####  kk霖洞九  
+##### 16203#       发表于 2025-5-28 10:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857120&amp;ptid=2209276" target="_blank">saico 发表于 2025-5-28 02:10</a>
+夏亚的新假名Shirouzu=しろうず=白水，是什么意思呢？有没有人开脑洞？</blockquote>
+据说是鹤卷喜欢作品中角色名字
+[FLCLSM：向鹤卷导演提一百个问题](https://weibo.com/ttarticle/x/m/show/id/2309404527460678238275?_wb_client_=1)
+
