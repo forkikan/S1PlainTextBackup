@@ -2334,3 +2334,25 @@ PS5能跟PC联机吗</blockquote>
 
 只能全力保卫on sea了
 
+
+*****
+
+####  斯城恶魔  
+##### 6137#       发表于 2025-5-28 17:01
+
+箭头策划让三个城都守不住属于纯纯的烂活，又歧视上亚洲人了，反正就是见不得你们好
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  qratosones1337  
+##### 6138#       发表于 2025-5-28 17:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67859389&amp;ptid=2170852" target="_blank">斯城恶魔 发表于 2025-5-28 17:01</a>
+
+箭头策划让三个城都守不住属于纯纯的烂活，又歧视上亚洲人了，反正就是见不得你们好
+
+—— 来自 鹅球 v3.3. ...</blockquote>
+他们怕是连美爹都不放在眼里，纽约估计也得寄
+
