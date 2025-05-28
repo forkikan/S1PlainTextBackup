@@ -621,3 +621,73 @@ GTO里的山崎巧其实就接的很好，这次找名冢和杉田多少也是�
 
 gqux真有这么大力量的话紫色老太婆放任不管又很玄乎了，哪怕只是有三成阻碍的可能都不至于这么心大
 
+
+*****
+
+####  秋月孝三  
+##### 16343#       发表于 2025-5-28 14:18
+
+毒药是黑皮巴纳吉给的，他开始怀柔弗拉纳冈士官的时间本就不明，也有可能在首席当上一号机测试员之后大基派想确保拿下二号机才有动作
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Steel.Haze  
+##### 16344#       发表于 2025-5-28 14:20
+
+ 本帖最后由 Steel.Haze 于 2025-5-28 14:21 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67858627&amp;ptid=2209276" target="_blank">pmoe 发表于 2025-5-28 14:07</a>
+
+谁知道二号机Gfred额头那个锁孔是干嘛的</blockquote>
+我觉得二号机有三层开脸设计。（锁面、传感器面、碎掉后传感器覆面后面的颅骨型机械骨骼面部）
+
+另外钥匙？和锁孔？提示一下，飞越巅峰2倒数第二集还有印象吗？当然是解放能力的表现工具呀。
+
+*****
+
+####  Steel.Haze  
+##### 16345#       发表于 2025-5-28 14:20
+
+<img src="https://img.stage1st.com/forum/202505/28/142007ghn0ff0qn0f12hf1.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (80.16 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 14:20 上传
+
+
+*****
+
+####  Gaybird  
+##### 16346#       发表于 2025-5-28 14:23
+
+如果后面演到揭秘gqux鸭目的与立场的时候，绿叔叔还没和鸭子对接上，那很可能演变成两个人敌对阵营相见了。这是不是有点太虐绿叔叔了。
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  llysander  
+##### 16347#       发表于 2025-5-28 14:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857314&amp;ptid=2209276" target="_blank">mengsu 发表于 2025-5-28 08:05</a>
+
+这么看来，首席哥很可能是同届四人里一并被老太婆怀疑的，所以把他丢到绿叔叔身边去做忠诚度测验，确定没问 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer"> 大概没牌了，什么克隆替身投影义体个人版羊肉系统都不会出现在这作。
+
+自以为通透人心 迷之自信 死得随机 也是致敬原作结局
+
+*****
+
+####  ftyaid  
+##### 16348#       发表于 2025-5-28 14:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67858663&amp;ptid=2209276" target="_blank">rockroxas 发表于 2025-5-28 14:17</a>
+
+gqux真有这么大力量的话紫色老太婆放任不管又很玄乎了，哪怕只是有三成阻碍的可能都不至于这么心大 ...</blockquote>
+上集相信绿叔叔不是基连那边的，所以给他GQUX让他去干特殊任务了
+
+而且船上不是绿叔叔完全掌权
+
