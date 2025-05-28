@@ -3184,3 +3184,47 @@ FS的无双深渊<img src="https://static.stage1st.com/image/smiley/face2017/035
 
 就魂那个战斗竟然还敢出一个战斗爽的游戏，什么扬短避长
 
+
+*****
+
+####  鈴姉御肌  
+##### 346#       发表于 2025-5-28 22:58
+
+这是不是FS近十年媒体均分最低的游戏了。忘了之前小高给PSVR做的那个游戏几分来着
+
+*****
+
+####  雪菜碧池  
+##### 347#       发表于 2025-5-28 23:00
+
+暂时最低罢了，估计黄昏之血开分68
+
+*****
+
+####  budong  
+##### 348#       发表于 2025-5-28 23:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860775&amp;ptid=2210352" target="_blank">鈴姉御肌 发表于 2025-5-28 22:58</a>
+这是不是FS近十年媒体均分最低的游戏了。忘了之前小高给PSVR做的那个游戏几分来着 ...</blockquote>
+还是那个低
+
+*****
+
+####  雪菜碧池  
+##### 349#       发表于 2025-5-28 23:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860601&amp;ptid=2210352" target="_blank">crosz1985 发表于 2025-5-28 22:09</a>
+
+国内媒体评价不佳，a9直接不敢给分了还行
+
+论坛助手,iPhone</blockquote>
+之前黄金树幽影，A9的评测可谓客观中肯，被孝子冲了
+
+
+*****
+
+####  潘多拉  
+##### 350#       发表于 2025-5-28 23:04
+
+跌落神坛了
+
