@@ -15289,3 +15289,98 @@ yysy，入户只是要求本科就没有普通一点的本科读吗？反正喵�
 
 怕不是基连也跑去学做炒饭之类的了（No
 
+
+*****
+
+####  zoomegg  
+##### 16176#       发表于 2025-5-28 09:39
+
+感觉看片体验被剧场版毁了啊，明明是编排好进TV的内容就因为想多卖点票钱全透完
+
+资本你赢了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Libartas  
+##### 16177#       发表于 2025-5-28 09:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857574&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-28 09:34</a>
+yysy，入户只是要求本科就没有普通一点的本科读吗？反正喵也没心思读书，吉工大看样子是顶流学校啊 ...</blockquote>
+一眼neta东工大，不过谁能想到东工大这个名字也成为历史了呢
+
+*****
+
+####  北条早苗  
+##### 16178#       发表于 2025-5-28 09:42
+
+现代化改修裤袜大落一开始还没认出来<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus KB2000, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Toby_dak  
+##### 16179#       发表于 2025-5-28 09:42
+
+<blockquote>引用第16147楼失落之翼于2025-05-28 08:57发表的  :
+
+本帖最后由 失落之翼 于 2025-5-28 09:00 编辑 不要原皮这个拉拉，都能穿越了，能不能......</blockquote>
+完蛋，我感觉这是喵安+拉拉的融合体<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.46)
+
+
+*****
+
+####  a2532521  
+##### 16180#       发表于 2025-5-28 09:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857536&amp;ptid=2209276" target="_blank">洛克萨斯 发表于 2025-5-28 09:27</a>
+
+首席的nt能力真的很低吧..............没读心能力，又启动不了欧米茄赛克缪</blockquote>
+懂不懂 手操 GQX 高达打修司红高达的含金量 ，  里面都是努力与汗水<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  银川智将Kuroky  
+##### 16181#       发表于 2025-5-28 09:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857588&amp;ptid=2209276" target="_blank">久井路路 发表于 2025-5-28 09:37</a>
+
+先不说养家，警惕暗杀然后这集还出了个毒蛋糕，这饭确实还是自己做安心（
+
+怕不是基连也跑去学做炒饭之类 ...</blockquote>
+neeeeeeet大哥怎么会做饭的
+
+能泡个面都了不起了
+
+*****
+
+####  望江南  
+##### 16182#       发表于 2025-5-28 09:46
+
+本人从怀疑过对鹤卷和哉基于机动战士高达GQuuuuuuX剧本的把控能力，鹤卷的恩情还不完<img src="https://static.stage1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">
+
+这半话的内容赶得上前两集混起来的和了，那前两集精神力到底来干嘛的，真的就是拿来膜z的工具吗。
+
+喵安感觉自ep6嗦面以来感觉突然变可爱了好多，在这集直接达到颜值巅峰了，怎么回事鹤卷
+
+话说这拉拉夏亚全都出场了，某个天然卷真的不路过刷一下脸吗，不会在最关键（存疑）的地方反而故意不膜来让遗老们抓心挠肝吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+以及内个GFreD啊，你开个灯你看看说你是真实系（存疑）高达有人信吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202505/28/094522jjvxnvmburkjk8ce.png" referrerpolicy="no-referrer">
+
+<strong>55cf681e921f71d45ce154a742de4e8.png</strong> (118.69 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 09:45 上传
+
+*****
+
+####  行政裁定书  
+##### 16183#       发表于 2025-5-28 09:47
+
+不过说明多半有第二季了
+
