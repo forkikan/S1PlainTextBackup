@@ -510,3 +510,23 @@ Spotlight Star Day 2 Setlist (於17:01(UTC+9)開演)：
 
 国服的风声倒一直都有，但感觉国服没必要，反正开不开，万南凯子都会爆米的（
 
+
+*****
+
+####  cckuku  
+##### 7001#       发表于 2025-5-28 18:00
+
+开国服又找叔叔代理吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Unlight  
+##### 7002#         楼主| 发表于 2025-5-28 18:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67859663&amp;ptid=2130897" target="_blank">cckuku 发表于 2025-5-28 18:00</a>
+
+开国服又找叔叔代理吗？</blockquote>
+当初网易还是盛大来着，差点买了草菇烧笋<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过现在手游强制汉语配音，这咋玩啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
