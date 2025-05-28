@@ -3660,3 +3660,49 @@ krkr不是一个 ...</blockquote>
 
 非常逻辑化地解释三小只特别是修司的一些动机可以说会很不鹤卷或者说也很难做得有趣，现在看似动机逻辑非常现实明确的喵安其实也被一些形而上的要素笼罩不知道什么才是醋什么才是饺子（比如之后万一又和麻球修司互动，被面对“真物”的劣等感刺激，或者又kirakira上脑做一些行为把现在的逻辑否定了）。但既然披了UC皮且是在往不断揭秘各方动机暴露矛盾并收束的方向走，肯定又难免会要求角色的逻辑符合一套“UC”的框架（即便这个UC也是千人千面），这也是这作创作上不可调解的二律背反。
 
+
+*****
+
+####  猪突猛进R  
+##### 16604#       发表于 2025-5-28 23:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860880&amp;ptid=2209276" target="_blank">桜庭ななみ 发表于 2025-5-28 23:33</a>
+
+下一集终于到地球了，太空看不到的水产能不能随便来两个，魔蟹龟霸什么的。 ...</blockquote>
+地球是联邦势力范围，水中型轻加农给你安排上<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  盐盐盐盐盐  
+##### 16605#       发表于 2025-5-28 23:44
+
+才发现麻球在地球捆着绷带这图还带着她那对耳钉呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+怎么不给病人把首饰卸了
+
+*****
+
+####  woui003woui  
+##### 16606#       发表于 2025-5-28 23:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860885&amp;ptid=2209276" target="_blank">岸波白野 发表于 2025-5-28 23:34</a>
+非常逻辑化地解释三小只特别是修司的一些动机可以说会很不鹤卷或者说也很难做得有趣，现在看似动机逻辑非常 ...</blockquote>
+确实的，给修司设置一个背景并不难，但在短篇幅内写落地化的背景和动机解释会很容易让捉摸不定的角色变得非常无趣，喵安的后续发展则是根据题眼不同有无数可能性
+剩下的篇幅还是看鹤卷怎么揭盅吧
+
+*****
+
+####  没钱打不起酱油  
+##### 16607#       发表于 2025-5-28 23:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我还是觉得感情戏没什么说法，修司解完秘就可以滚了
+
+*****
+
+####  rockroxas  
+##### 16608#       发表于 2025-5-28 23:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860908&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-28 23:43</a>
+
+地球是联邦势力范围，水中型轻加农给你安排上</blockquote>
+按现在不管技术树应膜尽膜，就算是联邦范围也给你整上联邦配色俘虏的吉翁水产什么的
+
