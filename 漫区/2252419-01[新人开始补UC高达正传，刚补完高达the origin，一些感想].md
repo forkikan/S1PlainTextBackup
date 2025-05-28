@@ -1303,3 +1303,15 @@ gto这个不光拉拉，夏亚也……经常很安彦良和，你看过安彦�
 不止一次看到有新人说“哎呀夏亚怎么这么坏，把真夏亚给坑了”，直接把新人对夏亚形象的印象给带偏了，当 ...</blockquote>
 这么说吧，元祖夏亚一开始是个中boss，更不要说当时八竿子打不着的后续作品如z,cca什么的了，整个剧情是根据市场反馈搞出来的奇奇怪怪的43话。你要说夏亚的形象，倒退到80年富野自己都未必知道，不如干脆说是“我认为夏亚应该是什么样”比较好。
 
+
+*****
+
+####  Viteeee  
+##### 117#       发表于 2025-5-28 09:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857446&amp;ptid=2252419" target="_blank">江之岛右手 发表于 2025-5-28 09:03</a>
+不是这样的话玩什么论坛啊</blockquote>
+楼主原帖是在说“gto好看，接下来看什么？”
+
+正常人的回答一般是“看看Z/0083/MS08小队吧”，结果泥潭前排的回答是“你看个屁的gto啊”<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

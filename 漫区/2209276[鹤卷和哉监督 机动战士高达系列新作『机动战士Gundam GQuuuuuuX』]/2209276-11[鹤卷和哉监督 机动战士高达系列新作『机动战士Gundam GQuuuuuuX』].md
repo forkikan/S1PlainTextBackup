@@ -15036,3 +15036,32 @@ gainax倒闭是早就注定了，和他有什么关系。
 
 喵安这种身材就得穿黑色系，可惜这里是高达片场，黑丝出场率基本是个位数<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  吴怀在  
+##### 16158#       发表于 2025-5-28 09:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856916&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-5-28 00:45</a>
+想到一件很搞笑的事，首席哥是不是因为启动不了塞克谬所以没被内鬼毒死</blockquote>
+擦，太庄子了
+
+*****
+
+####  望江南  
+##### 16159#       发表于 2025-5-28 09:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856848&amp;ptid=2209276" target="_blank">只吃干拌面 发表于 2025-5-28 00:22</a>
+
+好评的4集6集8集都是文戏回，原来这部高达是去掉机战部分观感更好吗？按之前的尿性下一集不会又拉胯了吧 ...</blockquote>
+鹤神！鹤神！鹤神！（每回合翻面）
+
+鹤便！鹤便！鹤便！（每回合翻面）<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 16160#       发表于 2025-5-28 09:27
+
+首席的nt能力真的很低吧..............没读心能力，又启动不了欧米茄赛克缪<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
