@@ -2953,3 +2953,22 @@ Xbox也开始疯狂断线了<img src="https://static.stage1st.com/image/smiley/f
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Paradise  
+##### 321#       发表于 2025-5-28 18:23
+
+今晚是不是该出媒体评分了，这游戏能有mc80吗<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  YukariK  
+##### 322#       发表于 2025-5-28 18:24
+
+就靠这个过渡到剑星了，入了豪华版之后才发现首发好像一丁点豪华版额外内容都没有，等到更新后不知道还能不能拉够三人队了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
