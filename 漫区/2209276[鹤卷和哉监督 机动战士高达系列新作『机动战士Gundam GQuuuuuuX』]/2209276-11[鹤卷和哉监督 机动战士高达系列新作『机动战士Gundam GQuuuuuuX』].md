@@ -15978,3 +15978,24 @@ GQX基本上都没有选旧配过的声优，所以感觉小潘和早见都不�
 
 只能说观众的眼睛都是瞎的。
 
+
+*****
+
+####  YU_JI  
+##### 16241#       发表于 2025-5-28 11:09
+
+<blockquote>Evomenon 发表于 2025-5-28 11:06
+现在看这剧场版真的很没必要，也就是UC营销把老害们抓来、把新人骗进来，先把UC IF线这事情吹个风，省得大 ...</blockquote>
+确实，本来都骂为什么拿剧场版内容塞TV，现在看来纯纯是为了圈钱把TV内容拆出来做剧场版
+
+*****
+
+####  ryanghj  
+##### 16242#       发表于 2025-5-28 11:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67858018&amp;ptid=2209276" target="_blank">Evomenon 发表于 2025-5-28 11:06</a>
+现在看这剧场版真的很没必要，也就是UC营销把老害们抓来、把新人骗进来，先把UC IF线这事情吹个风，省得大 ...</blockquote>
+但是剧场版挣钱了啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">而且作为先行剧场版可是不得了的成绩
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
