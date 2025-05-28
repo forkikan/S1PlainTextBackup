@@ -4023,3 +4023,124 @@ krkr不是一个 ...</blockquote>
 
 能感觉到拉拉苏醒，显然是关系者，说不定是和她一起从弗拉纳冈逃出来的实验体，当然第八话也提了嘴汤大基的复制人计划，基于角色职业差分原则，喵安可能转强化人，番茄NT，修司匀到个复制人也并不意外，保不齐修司才是这个世界的普露，大基那边其实养了一大群修司的兄弟姐妹。。。然后就是喵安遇到修司·兹被牛这种定番展开
 
+
+*****
+
+####  stmule  
+##### 16635#       发表于 2025-5-29 01:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67858676&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-5-28 14:20</a></blockquote>
+gundam+缩退炉是吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+那对面怎么打
+
+—— 来自 samsung SM-S9110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  无念  
+##### 16636#       发表于 2025-5-29 01:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">人和人之间之间是无法理解的，每次看楼友对车都能感受到这一点
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  我聞如是  
+##### 16637#       发表于 2025-5-29 01:32
+
+<blockquote>ryanghj 发表于 2025-5-29 00:46
+这句话很多人都没懂
+
+玛秋从来没有自己应对过战斗，第一集第三集第四集都是她在修司帮忙下打赢的，修司在 ...</blockquote>
+對
+
+那段的演出其實是對比第三話瑪秋被閃瞎眼，修司拉她進krkr那裡，但是現在修司不在了
+
+英文字幕和配音裡瑪秋的台詞是without you, we can't experience/see the kirakira together
+
+在心裡直接對修司求救
+
+原文那個喊話的意思則是濃縮在「キラキラになんないよ」最後的「よ」上了(榎戶你這老賊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿刚  
+##### 16638#       发表于 2025-5-29 01:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67861048&amp;ptid=2209276" target="_blank">玖羽 发表于 2025-5-29 00:40</a>
+
+这里的重点是，修司强烈改变了两个女主角的人物弧光，但是他并没有（还没有）有意去做什么
+
+krkr不是一个 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">然后剧里给出的原因是krkr，跟现实世界一类比唯一能比的了得就是冰，这下更糟糕了
+
+*****
+
+####  ryanghj  
+##### 16639#       发表于 2025-5-29 02:14
+
+ 本帖最后由 ryanghj 于 2025-5-29 02:27 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67861124&amp;ptid=2209276" target="_blank">阿刚 发表于 2025-5-29 01:43</a>
+
+然后剧里给出的原因是krkr，跟现实世界一类比唯一能比的了得就是冰，这下更糟糕了 ...</blockquote>
+怎么说呢，我觉得更恰当的类比是现实中某些不能稳定挣钱的才能
+
+就比如用时下最时髦的少女乐队举例，玛秋结识了该溜子修司，修司玩音乐，和他交往过程中玛秋也觉醒了音乐的才能，但是公务员老妈觉得玩音乐这东西不能养活自己，于是玛秋一气之下离家出走了
+
+大概这种感觉
+
+*****
+
+####  Concrete  
+##### 16640#       发表于 2025-5-29 02:57
+
+怎么还有人觉得修司是人机呢。第三集修司在kirakira中对玛秋说的几句话反正让我一下子就get到他了。在玛秋认为其他人包括父母都不理解，只有修司一下子就点出:
+
+玛秋，不要慌张
+
+再自由一些吧，就像大海里畅游的鱼。
+
+加上那个口气，这对于迷茫的人根本就是特攻吧，一下子就被人说出自己愿望，而且对方还在鼓励你。
+
+<img src="https://img.stage1st.com/forum/202505/29/025425os3vvdp6ovd3vo0y.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1747378433983.jpeg</strong> (277.28 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-5-29 02:54 上传
+
+还有第六集与喵安的对话，很坦率的就直接说出:
+
+做自己就好，无论那个你我都喜欢
+
+当时喵安还在自我愧疚，修司也是鼓励她不要压抑自我，做自己就好。甚至这还是在喵安拿他当盾牌的情况下。
+
+修司在我看来像那种邻家大男孩，不过多出了一份神性
+
+
+*****
+
+####  Concrete  
+##### 16641#       发表于 2025-5-29 02:59
+
+就是修司说话能一下子抓住痛点。编剧才安排在6，7这两集不让玛秋与修司见面。
+
+*****
+
+####  kcalb  
+##### 16642#       发表于 2025-5-29 03:40
+
+能感觉到拉拉苏醒，显然是关系者，说不定是和她一起从弗拉纳冈逃出来的实验体，当然第八话也提了嘴汤大基的复制人计划，基于角色职业差分原则，喵安可能转强化人，番茄NT，修司匀到个复制人也并不意外，保不齐修司才是这个世界的普露，大基那边其实养了一大群修司的兄弟姐妹。。。然后就是喵安遇到修司·兹被牛这种定番展开
+
+*****
+
+####  kkl12355  
+##### 16643#       发表于 2025-5-29 05:39
+
+<blockquote>moudianzi 发表于 2025-5-28 14:09
+既然黄叔叔来了，那还在计划通的绿叔叔就可以准备等死了吧，当个boss被揍，然后释然杀青。麻球和喵安没准会 ...</blockquote>
+最可怕的是绿叔叔一厢情愿，但黄叔叔有自己色算计结果互相扯后腿，恭喜戴肯派不仅是废物还是彼此间不通气的草台班子。活该正史政客虫豸们被大基图图图，只有直接参与起义的残疾军人铁骨铮铮。
+
