@@ -14895,3 +14895,46 @@ gainax倒闭是早就注定了，和他有什么关系。
 所以这个世界是不是可能只有拉拉是来自旧时间线的穿越者，为了改变鸭子和骡子的命运操作了这一系列事情呢。 ...</blockquote>
 很有可能啊，而且只要改变这俩的命运之后一系列NT的悲剧都会跟着改变，虽然不知道是变好还是变得更惨<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  姬萩九郎  
+##### 16144#       发表于 2025-5-28 08:48
+
+喵安（二号机的人）：其实我是第三个
+
+下一话在夏亚藏身处的地下室里，发现了无数泡在培养液里的喵安。其实是以拉拉为原型的克隆人序列
+
+庵野桑，只要你拍，我们愿意看一辈子的EVA！（并不愿意）
+
+*****
+
+####  LadySaazbaum  
+##### 16145#       发表于 2025-5-28 08:50
+
+<blockquote>qbz95 发表于 2025-5-28 08:37
+</blockquote>
+笑死观众就等着小番茄被修正拳结果小番茄本周根本没出场，攒到下周可不是得加倍XD
+
+*****
+
+####  未来起航  
+##### 16146#       发表于 2025-5-28 08:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856931&amp;ptid=2209276" target="_blank">ヒトニナル 发表于 2025-5-28 00:48</a>
+但说实话我看首席哥知道自己的两个亲友被另一个亲友毒死，然后这个叛徒亲友在自己眼前被气化之后的反应平静 ...</blockquote>
+紫毛前脚刚说完自己没朋友，转头首席哥也没了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+当然比起抱团聊聊没朋友的事儿，我强烈建议首席哥立马申请调岗，远离性情阴晴不定的紫色杀人狂。否则我有充分理由相信日后紫毛跟基西利亚闹不和要造反时，首席哥会因为一句话没讨好直接被来一句“不要阻拦我呀”如同路边野狗一般被初号机一脚踹死<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23116PN5BC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  a2532521  
+##### 16147#       发表于 2025-5-28 08:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857182&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-28 03:02</a>
+
+到头成了只有了玛秋独自去地球，这句地球在哪里也不是问看不看到的问题了</blockquote>
+形同陌路了，（悲
+
