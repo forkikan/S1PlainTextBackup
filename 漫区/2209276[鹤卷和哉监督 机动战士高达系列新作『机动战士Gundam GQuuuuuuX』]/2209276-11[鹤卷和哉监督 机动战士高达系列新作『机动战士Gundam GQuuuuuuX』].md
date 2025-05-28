@@ -14884,3 +14884,14 @@ gainax倒闭是早就注定了，和他有什么关系。
 
 2025-5-28 08:37 上传
 
+
+*****
+
+####  LOLITA  
+##### 16143#       发表于 2025-5-28 08:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857343&amp;ptid=2209276" target="_blank">mengsu 发表于 2025-5-28 08:28</a>
+
+所以这个世界是不是可能只有拉拉是来自旧时间线的穿越者，为了改变鸭子和骡子的命运操作了这一系列事情呢。 ...</blockquote>
+很有可能啊，而且只要改变这俩的命运之后一系列NT的悲剧都会跟着改变，虽然不知道是变好还是变得更惨<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

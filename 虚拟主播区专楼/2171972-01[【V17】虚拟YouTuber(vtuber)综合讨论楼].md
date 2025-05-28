@@ -125,3 +125,11 @@ idios出碟也要开1on1在线活动和A店座谈活动的抽选力
 
 买两张尽人事支持下就行了（小並感
 
+
+*****
+
+####  艾特娜  
+##### 1168#       发表于 2025-5-28 08:36
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">发色和衣服颜色对比太小就不好看啊
+
