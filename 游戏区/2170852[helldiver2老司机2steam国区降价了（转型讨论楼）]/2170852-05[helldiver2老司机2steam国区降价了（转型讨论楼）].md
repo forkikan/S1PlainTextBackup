@@ -2538,3 +2538,26 @@ PS5能跟PC联机吗</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  jy000129  
+##### 6158#       发表于 2025-5-28 19:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">超级上海顶着6.8的入侵值打绿了
+
+*****
+
+####  哈迪斯兜帽  
+##### 6159#       发表于 2025-5-28 19:52
+
+上海寄了我就去打虫子，斯德哥尔摩埃及拔守不守
+
+超级地球是投注
+
+有个哥们想端午打的，可以让他不用买了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+打了一把路人局发现是保卫纽约
+
+5%<img src="https://static.stage1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
