@@ -370,3 +370,23 @@ yysy，入户只是要求本科就没有普通一点的本科读吗？反正喵�
 
 为什么成为首席：比他强的都死了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无念  
+##### 16317#       发表于 2025-5-28 13:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67858196&amp;ptid=2209276" target="_blank">盐盐盐盐盐 发表于 2025-5-28 11:52</a>
+话说基西莉亚作为少数知道玫瑰和zknv有强相关性且知道玫瑰是什么东西的人她为什么没去找玫瑰而是先找nt（） ...</blockquote>
+之前就有人猜可能她以为玫瑰是艾尔美斯，其实真正的玫瑰是提前跑掉的拉拉，吉翁可能到现在都不知道拉拉的存在(
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  王元姬无惨  
+##### 16318#       发表于 2025-5-28 13:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“我家哥哥就这么牛逼爱看看不看滚”
+这种粉丝也太傻逼了 难怪能惯出这么傻逼的作者来
+
