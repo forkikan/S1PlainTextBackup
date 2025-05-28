@@ -2951,3 +2951,89 @@ gqux里面对表情特别重视，尤其是玛秋的表情，之前红迪 ...</b
 
 修司这么个核心人物没塑造回才是在做梦吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按前半节奏第三集麻球回第四集魔女就是半个修司塑造回，第五集黑二是喵安回，第六集第七集主线，后半战把喵安回往前提到第八集了以后第九集麻球中心第十集修司回十一十二三人战场见和一群配角一起直接高速推进到结局就完事了
 
+
+*****
+
+####  玖羽  
+##### 16550#       发表于 2025-5-28 22:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860619&amp;ptid=2209276" target="_blank">盐盐盐盐盐 发表于 2025-5-28 22:13</a>
+
+修司这么个核心人物没塑造回才是在做梦吧按前半节奏第三集麻球回第四集魔女就是半个修司塑造回，第五集黑二 ...</blockquote>
+对修司的塑造一直没有回答一个问题，就是为什么这两个人对修司这么迷，要知道修司刚登场的时候在喵安这个难民眼里都是一个贫穷流浪汉
+
+硬要说的话，只能说是看到krkr之后就迷上了，但观众又不能体验到krkr，说难听的，那跟嗑药和SEX有什么区别
+
+我认为正确做法是将“实际存在的男性”反转，直接说这个人不存在，是一个抽象的象征性的符号，最好还是女性
+
+——那不就是拉拉吗<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 16551#       发表于 2025-5-28 22:23
+
+修司这周是不是没领工资呀（番茄也就是读了一个预告），其实如果把三人组关系撇开不谈，首席哥更像以往观众代入的“男主”，因为这角色更接近“现实生活”（不管最后是黑还是白）更“有血有肉”
+
+*****
+
+####  盐盐盐盐盐  
+##### 16552#       发表于 2025-5-28 22:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860644&amp;ptid=2209276" target="_blank">玖羽 发表于 2025-5-28 22:19</a>
+ 对修司的塑造一直没有回答一个问题，就是为什么这两个人对修司这么迷，要知道修司刚登场的时候在喵安这个 ...</blockquote>
+有什么不好理解的，动画里男主看天降美少女就走不动道的多了去了，女主角看天降帅哥走不动道也很正常<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 16553#       发表于 2025-5-28 22:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860644&amp;ptid=2209276" target="_blank">玖羽 发表于 2025-5-28 22:19</a>
+
+对修司的塑造一直没有回答一个问题，就是为什么这两个人对修司这么迷，要知道修司刚登场的时候在喵安这个 ...</blockquote>
+虽然GQ世界观已经很神棍了，但是我不觉得鹤卷真的会写这样的剧情
+
+这几集就已经说明问题了，一堆人以为红高有夏亚机魂，空奇有夏亚机魂，结果最后告诉你夏亚活得好好的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">制作组逗你玩
+
+*****
+
+####  YU_JI  
+##### 16554#       发表于 2025-5-28 22:24
+
+<blockquote>玖羽 发表于 2025-5-28 22:19
+对修司的塑造一直没有回答一个问题，就是为什么这两个人对修司这么迷，要知道修司刚登场的时候在喵安这个 ...</blockquote>
+其实第四集结尾那会真以为要让番茄回答了结果被安琪一句话打回起点了，之后这种只有概念的痴迷愈演愈烈还带上了喵安（
+
+*****
+
+####  woui003woui  
+##### 16555#       发表于 2025-5-28 22:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860604&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-28 22:10</a>
+
+未必要大，至少要充实，总不能真是“我不知道从哪开高达来，我来了，我走了”这么简单了事。修司是晴子位 ...</blockquote>
+截至目前可能有意义的文戏只有跟魔女那场的NT聊天室愿望，以及涂掉KIRAKIRA说要寻找新的那句台词，八集下来是一个非常不落地非常象征性非常没有根底的角色（和另外两个人，或者说和其他所有人形成鲜明对比），考虑到制作组很清楚自己在做什么，我个人是不觉得这个定位后续会有什么转变，或者说，如果要转变，更可能是变得更象征性，这样比让他变落地会更好让观众接受
+
+*****
+
+####  盐盐盐盐盐  
+##### 16556#       发表于 2025-5-28 22:26
+
+首席哥这集知道自己俩同学都被第三个同学杀了第三个同学还在自己面前被汽化，然后转头就是感叹喵安房子住的真好也挺不一般的了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+情绪稳定程度强得可怕，首席哥什么时候也能特林顿一下
+
+*****
+
+####  ryanghj  
+##### 16557#       发表于 2025-5-28 22:26
+
+ 本帖最后由 ryanghj 于 2025-5-28 22:27 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860664&amp;ptid=2209276" target="_blank">woui003woui 发表于 2025-5-28 22:25</a>
+
+截至目前可能有意义的文戏只有跟魔女那场的NT聊天室愿望，以及涂掉KIRAKIRA说要寻找新的那句台词，八集下 ...</blockquote>
+说实话，要解谜几分钟就够了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">哪有那么玄乎
+
+不如说玛秋就有根底了吗？很多人不批评她没有自己想法吗？现在看来她就是这么一个人设，一根筋走到死，只不过鹤卷是把这个当成正面来表现的
+

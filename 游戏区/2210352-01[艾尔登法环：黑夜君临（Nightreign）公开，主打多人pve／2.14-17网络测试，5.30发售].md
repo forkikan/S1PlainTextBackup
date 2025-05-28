@@ -3084,3 +3084,20 @@ mc开分78分，ign7，gs9鉴定为<img src="https://static.stage1st.com/image/s
 
 【《艾尔登法环 黑夜君临》评测：给爽十分 不爽负分】《黑夜君临》是From Software旗下最新的协力型动作游戏，以2022年的TGA年度游戏《艾尔登法环》为基础，对已经成熟的玩法进行了重新架构。本次我们提前获得了评测资格，将对这部作品进行一个大概的评测。 http://t.cn/A6gDykyG ​​​
 
+
+*****
+
+####  桥洞底下盖小被  
+##### 334#       发表于 2025-5-28 22:18
+
+a9连分都不敢打了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  usodakedo  
+##### 335#       发表于 2025-5-28 22:21
+
+评分好低，反而勾起兴趣了，买了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

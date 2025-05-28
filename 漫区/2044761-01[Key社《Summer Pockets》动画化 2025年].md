@@ -63,3 +63,14 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我在看女鬼collection吗
 
+
+*****
+
+####  南風森愛恋  
+##### 155#       发表于 2025-5-28 22:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857246&amp;ptid=2044761" target="_blank">terminator1990 发表于 2025-5-28 06:52</a>
+
+这作品到底几只女鬼啊，集齐了是不是打铁奥就稳赢了</blockquote>
+严格来说，带有人形的女鬼就一只，另有一只自称是鬼的，小金毛不算是女鬼，更像是clannad里的志麻🐱
+
