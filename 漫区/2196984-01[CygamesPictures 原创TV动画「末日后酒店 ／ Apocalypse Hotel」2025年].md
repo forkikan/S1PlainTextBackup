@@ -4400,3 +4400,18 @@ PV里猫猫头形态八千代还没回收的，后面肯定变回来</blockquote
 东大不是做过实验吗，与其花燃料送到轨道再扔下来，还不如直接一发东风直接。</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">因为彭子看的是伪科学杂志啊……类似奥秘的那种
 
+
+*****
+
+####  我是大鲨鱼1453  
+##### 385#       发表于 2025-5-28 19:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67858996&amp;ptid=2196984" target="_blank">wolf1997 发表于 2025-5-28 15:29</a>
+
+新的第8集评论区又提出了未来的一种新思路：从第7集结尾八千代宇宙漂浮开始，将来的集数将是描绘一个人类将 ...</blockquote>
+感觉可以直接把阿西莫夫《最后的问题》缝上去。
+
+伴随着一次又一次的历险，解锁了一个又一个隐藏功能，八千代一直等候着人类的归来，直到宇宙陷入热寂，最后一丝负熵在八千代的电子脑里激发出微弱的火花，解锁最后一项隐藏功能。
+
+“要有光！”<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+

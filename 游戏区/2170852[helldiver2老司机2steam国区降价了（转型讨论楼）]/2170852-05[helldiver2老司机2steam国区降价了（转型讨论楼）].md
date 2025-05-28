@@ -2519,3 +2519,22 @@ PS5能跟PC联机吗</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  RPMWT  
+##### 6156#       发表于 2025-5-28 19:39
+
+除了名字以外和现实没半点关系的上海纽约，还是处于一个邪恶政权统治下的地球，为什么感觉好些人有种保家卫国的代入感啊？
+
+*****
+
+####  ParadiseMartyr  
+##### 6157#       发表于 2025-5-28 19:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860046&amp;ptid=2170852" target="_blank">RPMWT 发表于 2025-5-28 19:39</a>
+除了名字以外和现实没半点关系的上海纽约，还是处于一个邪恶政权统治下的地球，为什么感觉好些人有种保家卫 ...</blockquote>
+谢谢你，独醒侠
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
