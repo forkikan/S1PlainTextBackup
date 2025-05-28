@@ -2785,3 +2785,69 @@ dss发力了，on sea正在以每小时7个点的速度快速回血<img src="htt
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  哈迪斯兜帽  
+##### 6183#       发表于 2025-5-29 00:26
+
+艹
+
+8%每小时了
+
+这决战兵器竟然不是内鬼<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  unsh  
+##### 6184#       发表于 2025-5-29 00:28
+
+DSS杀疯了，直接干到预测3h保卫成功
+
+*****
+
+####  拱猪  
+##### 6185#       发表于 2025-5-29 00:28
+
+今天才知道超级上海守卫战，之前在b站看到还以为是mod，回坑打了一把，也算尽力了
+
+*****
+
+####  新庄運切  
+##### 6186#       发表于 2025-5-29 00:30
+
+大反攻了！
+
+*****
+
+####  蓝色的眷念  
+##### 6187#       发表于 2025-5-29 00:31
+
+是DSS，我们有救了
+
+
+*****
+
+####  zifuhun  
+##### 6188#       发表于 2025-5-29 00:33
+
+DSS还真有用<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer"> 推回去！
+
+*****
+
+####  风萧飒  
+##### 6189#       发表于 2025-5-29 00:34
+
+dss太猛了，不亏我当时抽空去打了几把机器人
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  MkChang  
+##### 6190#       发表于 2025-5-29 00:36
+
+帝国の决战兵器<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
