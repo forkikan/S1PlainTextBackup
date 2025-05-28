@@ -3127,3 +3127,60 @@ Gs 9，我信了
 角色升级提升的数值是根据职业固定的，肉鸽游戏的随机BUFF只有简单的数值提升，没有特殊效果。
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那还肉鸽个什么劲啊
 
+
+*****
+
+####  卡拉德利姆  
+##### 339#       发表于 2025-5-28 22:46
+
+等steam喜提多半差评<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Ashice  
+##### 340#       发表于 2025-5-28 22:46
+
+fs需要一款大力宣发但是屎不二出的作品来证明自己<img src="https://static.stage1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+这次拼好魂大多数人应该都能早早认清屎的本质当乐子了吧
+
+应该是吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  INDIASH  
+##### 341#       发表于 2025-5-28 22:48
+
+笑嘻了，希望没有挽救回来的风险
+
+*****
+
+####  frankCC  
+##### 342#       发表于 2025-5-28 22:49
+
+FS的无双深渊<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑酒杯  
+##### 343#       发表于 2025-5-28 22:50
+
+等一个把夜王移植到本体的mod，冰龙放化圣雪原不要太合适<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说夜王有装备吗？
+
+
+*****
+
+####  屌丶哲  
+##### 344#       发表于 2025-5-28 22:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有具有特殊效果的BUFF，只有保守的数值提升，所以打起来可能还没有本体爽
+
+本体好歹还能拿到轮椅体验体验数值碾压呢，作为肉鸽游戏连爽局都打不出来，那完辣
+
+*****
+
+####  nancygreenlife  
+##### 345#       发表于 2025-5-28 22:53
+
+就魂那个战斗竟然还敢出一个战斗爽的游戏，什么扬短避长
+

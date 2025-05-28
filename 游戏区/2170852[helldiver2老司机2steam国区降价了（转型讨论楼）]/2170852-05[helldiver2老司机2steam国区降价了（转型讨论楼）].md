@@ -2740,3 +2740,18 @@ s1算比较和平了，其他地方的云玩家冒充有票者看着更高血压
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">本来想买来玩玩的，结果看到运营这样也不想买了
 
+
+*****
+
+####  哈迪斯兜帽  
+##### 6178#       发表于 2025-5-28 22:48
+
+定制冠军斯德哥尔摩<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DawnGuardian  
+##### 6179#       发表于 2025-5-28 22:49
+
+贱头是真不会运营，不如直接把运营部分外包给cn分部算了
+

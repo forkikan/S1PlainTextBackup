@@ -3320,3 +3320,90 @@ krkr不是一个能让观众共情的理由，开高达是因为“高达叫他�
 说白了传统定位女主只要是个美少女观众就放你过去 ...</blockquote>
 那到不至于，也许宽容度上有差别，但是如果假设修司是女的，另外两个是男的，也是这么神神叨叨，迟早也要激起起码老宅们的不满，<strong>因为说到底二次元的美少女是比三次元的狗还多的存在<strong></strong></strong><img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">，玲芽之旅在铃芽离开东京时男主就有一个救灾这种还能让观众代入朴素情感的现实目的（已经揭开），而这边去地球还是太有个人目的了，更不易引发共情
 
+
+*****
+
+####  Piano-Forest  
+##### 16572#         楼主| 发表于 2025-5-28 22:49
+
+[https://x.com/kodamazon_kdm/status/1927627989237583909](https://x.com/kodamazon_kdm/status/1927627989237583909)
+<img src="https://p.sda1.dev/24/7fc495b4084cae2c05eddd24c819235f/20250528_193644.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/gingatrain814/status/1927652022595223552](https://x.com/gingatrain814/status/1927652022595223552)
+<img src="https://p.sda1.dev/24/5452b8bbe0e9a389660f09d7715038ec/20250528_193650.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/muluo0128/status/1927554501227233554](https://x.com/muluo0128/status/1927554501227233554)
+<img src="https://p.sda1.dev/24/fcb4309546b79f06743f79f17a1057e8/20250528_224256.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/YoudeU/status/1927575664502378629](https://x.com/YoudeU/status/1927575664502378629)
+<img src="https://p.sda1.dev/24/f2dce11c384ca1e3c3abeb00751c2254/20250528_224259.jpg" referrerpolicy="no-referrer">
+
+[https://m.weibo.cn/detail/5171090590795229](https://m.weibo.cn/detail/5171090590795229)
+<img src="https://p.sda1.dev/24/1cc0a5d2b4943fd375406c1c91ae9326/20250528_193548.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/KNA_NJ330/status/1927701654083617000](https://x.com/KNA_NJ330/status/1927701654083617000)
+<img src="https://p.sda1.dev/24/5cfd112460670e8cf113bc8ee26b0cc0/20250528_224307.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  盐盐盐盐盐  
+##### 16573#       发表于 2025-5-28 22:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860730&amp;ptid=2209276" target="_blank">玖羽 发表于 2025-5-28 22:44</a>
+ 这里的重点是，修司强烈改变了两个女主角的人物弧光，但是他并没有（还没有）有意去做什么  krkr不是一个 ...</blockquote>
+他也没改变两个女孩的弧光啊，只能说是这俩女孩的性格暴露（？）了吧
+喵安又不是因为修司才变得为了自保口不择言抛下麻球的，她逃难的时候就没确认家人自己逃了，为了生存基西莉亚的道具她也当
+麻球更不用说了铁头番茄已经用她的铁头征服了观众，她这倔脾气又不是修司教的
+不如说如果有人会改变她们我觉得是对方，修司不会改变她们，只是他能包容她们
+
+*****
+
+####  aptx8285144  
+##### 16574#       发表于 2025-5-28 22:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860730&amp;ptid=2209276" target="_blank">玖羽 发表于 2025-5-28 22:44</a>
+
+这里的重点是，修司强烈改变了两个女主角的人物弧光，但是他并没有（还没有）有意去做什么
+
+krkr不是一个 ...</blockquote>
+有一说一，美马以前对于无名就是半个家人的存在，男主对她的意义反而不及美马，无名心智不成熟被骗站在上帝视角看确实愚蠢但是对她个人经历而言是“可以理解”的
+
+*****
+
+####  创始’’’天翔  
+##### 16575#       发表于 2025-5-28 22:51
+
+麻球痛恨日常就像奥古痛恨提坦斯，但是不给提坦斯负面描写
+
+
+*****
+
+####  ryanghj  
+##### 16576#       发表于 2025-5-28 22:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860730&amp;ptid=2209276" target="_blank">玖羽 发表于 2025-5-28 22:44</a>
+
+这里的重点是，修司强烈改变了两个女主角的人物弧光，但是他并没有（还没有）有意去做什么
+
+krkr不是一个 ...</blockquote>
+修司应该算是激发了玛秋和喵安的另一个自我吧
+
+只不过玛秋选择积极拥抱真实的自己，而喵安选择压制真实的自己
+
+他只是给了一个很简单的指引，“变得自由”
+
+*****
+
+####  没钱打不起酱油  
+##### 16577#       发表于 2025-5-28 22:54
+
+ 本帖最后由 没钱打不起酱油 于 2025-5-28 22:56 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860737&amp;ptid=2209276" target="_blank">aptx8285144 发表于 2025-5-28 22:46</a>
+
+那到不至于，也许宽容度上有差别，但是如果假设修司是女的，另外两个是男的，也是这么神神叨叨，迟早也要 ...</blockquote>
+宅宅对美少女真的可以很宽容。（前提， 她爱你，或者说的再露骨一点，给c）
+
+抛开多了一个人不谈，几位主角这感情戏模板就是很典型的世界系，传统世界系女主大抵都是这样的，伊里野从头神神叨叨到尾也没读者说女主干嘛来的，杀了之后还不是一把鼻涕一把泪。
+
+两男一女的宅向动画吗？太变态了我不要看。
+
