@@ -4485,3 +4485,15 @@ CygamesPictures在这片的打戏质量确实没得说，<strong>经常</strong>
 
 不过我本来就是被第六集最后两分钟吸引来看的，完结前再弄个差不多水平的煽情桥段让我爽一次就够了<img src="https://static.stage1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  pzk  
+##### 394#       发表于 2025-5-29 00:41
+
+太赶了，知道staff想展现什么，但是情节展开、转折得非常生硬。
+
+八千代的变化莫名品出了一点慕残+人体改造的性癖。还好是机器人，做得比较无害化<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+想到女仆战争里女主最后也坐了轮椅，不知道cy内部是不是真的有这种爱好者……
+
