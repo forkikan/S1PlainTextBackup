@@ -2645,3 +2645,29 @@ PS5能跟PC联机吗</blockquote>
 不是说代入感有问题啊，好歹来几个说上海话的平民NPC，或者大楼上挂几个中文广告牌什么的……这就一个名 ...</blockquote>
 大概就像玩山口山选了金色平原然后在公屏问为什么你们说话都这么奇怪
 
+
+*****
+
+####  xinfengj  
+##### 6168#       发表于 2025-5-28 21:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860100&amp;ptid=2170852" target="_blank">jy000129 发表于 2025-5-28 19:55</a>
+
+鹰都和2城失守后上海当了半天独苗，进攻度好像是10点几</blockquote>
+独苗的时候是箭头过周末没上班没开新城，直接反推到块光复了才赶紧开了纽约。现在7.8，理论上斯德哥尔摩开之前能再反推一波
+
+
+*****
+
+####  折岛睦月  
+##### 6169#       发表于 2025-5-28 22:01
+
+只能说太恶心了
+
+*****
+
+####  Yugao  
+##### 6170#       发表于 2025-5-28 22:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我麻了好吧，打了一晚上鱿鱼
+
