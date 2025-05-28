@@ -4152,3 +4152,32 @@ krkr不是一个 ...</blockquote>
 
 有紫色老太婆和夏亚的本子吗<img src="https://static.stage1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xwz  
+##### 16645#       发表于 2025-5-29 07:38
+
+找不到的话也可以试试议长和螃蟹舰长的
+
+*****
+
+####  wing130083  
+##### 16646#       发表于 2025-5-29 07:39
+
+ 本帖最后由 wing130083 于 2025-5-29 07:40 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860803&amp;ptid=2209276" target="_blank">盐盐盐盐盐 发表于 2025-5-28 23:07</a>
+
+所以说讨厌日常就是这样啊不能共感的人就是写了也不能接受的
+
+就补习班这事其实第一集就有描写麻球不想去 ...</blockquote>
+养过小孩的高达佬应该有感触
+
+现实世界中的小孩讨厌学习和卡缪讨厌tts
+
+这两件事你真不好说哪个更强烈一些<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+麻球这个表现考虑到她强nt我是觉得一点问题都没有的
+
+能养这么大没出事已经是奇迹了(
+

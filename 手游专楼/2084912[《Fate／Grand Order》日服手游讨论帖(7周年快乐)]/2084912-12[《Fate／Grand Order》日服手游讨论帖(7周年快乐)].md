@@ -1263,3 +1263,40 @@
 
 请务必把竖中指做进战斗演出
 
+
+*****
+
+####  ——啧  
+##### 16846#       发表于 2025-5-28 22:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67859510&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2025-5-28 17:26</a>
+新活动叫落泪之翼，预热卡池角色有使用月灵髓液的莱妮丝，机器人肯娘、源为朝，傀儡果心、段藏，希腊从者 ...</blockquote>
+什么？！是露娜sama，那不得不抽了<img src="https://static.stage1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之花  
+##### 16847#       发表于 2025-5-28 23:55
+
+是愿望单里前三名的代达螺丝
+
+但是已经没有钻了（血泪
+
+值得一提的是愿望单里前三名分别是代达罗斯，伊丽莎白japan，麻雀灵衣和泳装尼托alter
+
+*****
+
+####  克苏鲁系青骑士  
+##### 16848#       发表于 2025-5-29 07:21
+
+剪影里好像没有代达罗斯夫妇，4星存疑<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 16849#       发表于 2025-5-29 07:44
+
+<blockquote>克苏鲁系青骑士 发表于 2025-5-29 07:21
+剪影里好像没有代达罗斯夫妇，4星存疑</blockquote>
+剪影里不会放所有本年度要落地的的卫星，而且也不会限定星级
+
