@@ -256,3 +256,14 @@ wait我发现两个人首字母都是K.T.，嚯嚯，压力马斯内<img src="ht
 
 这周日就给你端上来+直接说追加战士了
 
+
+*****
+
+####  modedd  
+##### 896#       发表于 2025-5-29 07:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67861281&amp;ptid=2208663" target="_blank">kangkangsama 发表于 2025-5-29 07:00</a>
+
+这周日就给你端上来+直接说追加战士了</blockquote>
+动起来就好看了<img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
