@@ -14652,3 +14652,68 @@ TOP前2集还在冲绳海滩上朝着夕阳跑步呢。
 
 2025-5-28 07:54 上传
 
+
+*****
+
+####  Toby_dak  
+##### 16124#       发表于 2025-5-28 07:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857294&amp;ptid=2209276" target="_blank">nibugishi 发表于 2025-5-28 08:53</a>
+
+所以我说得有错吗，这节奏是不是参差不齐，前后不一</blockquote>
+人家做了快几十年的动画，节奏风格就是这样的，现在才知道？
+
+*****
+
+####  nibugishi  
+##### 16125#       发表于 2025-5-28 07:58
+
+ 本帖最后由 nibugishi 于 2025-5-28 08:00 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857300&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-5-28 07:56</a>
+
+人家做了快几十年的动画，节奏风格就是这样的，第一天才知道？</blockquote>
+节奏风格就是这样，所以不能吐槽，是这个意思吗
+
+*****
+
+####  Toby_dak  
+##### 16126#       发表于 2025-5-28 07:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857182&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-28 04:02</a>
+
+到头成了只有了玛秋独自去地球，这句地球在哪里也不是问看不看到的问题了</blockquote>
+吐个槽吧，格那拿达是在月球背面的。喵安这点都不知道，还是理科生吗<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qiyu1234  
+##### 16127#       发表于 2025-5-28 08:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857153&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-28 02:32</a>
+等等，突然反应过来，鸭子和他身边那妹子不会是在给这个世界的奥古办事吧？？？ ...</blockquote>
+鸭子明显是卧底，跟右边不是一路人
+
+*****
+
+####  mengsu  
+##### 16128#       发表于 2025-5-28 08:05
+
+这么看来，首席哥很可能是同届四人里一并被老太婆怀疑的，所以把他丢到绿叔叔身边去做忠诚度测验，确定没问题后老太婆才锁定了黑皮跟班。
+
+所以在side6遇袭时老太婆身边一个戴肯派绿叔叔，两个二五仔嫌疑犯，她还敢自己来浪肯定还有没揭开的底牌才对。
+
+*****
+
+####  秋枫叶  
+##### 16129#       发表于 2025-5-28 08:05
+
+大部分人都是抱怨剧场版内容拖主线，对于剧情文戏都说快，想不出有什么节奏慢的地方，几个配角换别的片场不至于才几句台词一集下线
+
+*****
+
+####  创始’’’天翔  
+##### 16130#       发表于 2025-5-28 08:06
+
+麻球没修正环节了？那看来确实是把麻球这叛逆当成正面了
+
