@@ -2741,3 +2741,21 @@ gqux里面对表情特别重视，尤其是玛秋的表情，之前红迪 ...</b
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  LOLITA  
+##### 16529#       发表于 2025-5-28 21:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860265&amp;ptid=2209276" target="_blank">psycho_Gadfly 发表于 2025-5-28 20:50</a>
+
+都姐姐大人了，下一步就该复刻经典了(</blockquote>
+圣母在上？
+
+*****
+
+####  灵魂收割机  
+##### 16530#       发表于 2025-5-28 21:08
+
+这两集那些零散的内部资料都是哪里首发的<img src="https://static.stage1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">（精神力和汉布拉比的比例示意图、GFreD的线稿和23年设定图、夏亚身高数据……）
+
