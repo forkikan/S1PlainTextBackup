@@ -775,3 +775,47 @@ gqux真有这么大力量的话紫色老太婆放任不管又很玄乎了，哪�
 呃，有没有一种可能，每次做蛋糕都是精准毒杀那个被选中当测试驾驶员的人，就说明毒杀并不是一整个蛋糕都有毒呢<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">首席哥当然吃过蛋糕，只不过人家又没准备毒他啊
 喵安问蛋糕好不好吃是对后面首席哥被信任的朋友背叛的一种讽刺映射罢了
 
+
+*****
+
+####  woui003woui  
+##### 16359#       发表于 2025-5-28 14:50
+
+现在看下来难道只能得出做这么几集黑拳是为了干掉妈妈魔女和黑色三连星的结论<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 16360#       发表于 2025-5-28 14:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67858535&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-28 13:35</a>
+
+看有人提到才意识到，紫婆请喵安吃派，本质上和安琪请玛秋吃甜甜圈一样
+
+背后都有利用的心思 ...</blockquote>
+你可能没看到前面的回帖，基西莉亚对夏亚示好就是亲自给他端吃的
+
+
+*****
+
+####  玖羽  
+##### 16361#       发表于 2025-5-28 14:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67858726&amp;ptid=2209276" target="_blank">瓦拉几亚之夜 发表于 2025-5-28 14:33</a>
+
+米格尔做了四份蛋糕，但泽维尔不知道蛋糕的味道，说明不是米格尔认为泽维尔没有毒杀的价值，而是泽维尔自己 ...</blockquote>
+不一定是在蛋糕里下毒，不然他自己吃不吃，自己不吃不是马上暴露了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 16362#       发表于 2025-5-28 14:54
+
+黑拳的几集都是重要的铺垫
+
+第三集是玛秋修司第一次mav战，玛秋被修司吸引
+
+第四集是玛秋见证修司捅人，一是得知修司的愿望“只有一个”，二是为之后玛秋彻底抛弃日常做铺垫（第七集玛秋会开枪的伏笔）
+
+第五集是喵安第一次上机，自然是为了gfred做的伏笔
+
