@@ -11375,3 +11375,16 @@ Good。
 
 —— 来自 Google Pixel 8 Pro, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  术士q  
+##### 18590#       发表于 2025-5-29 06:06
+
+ 本帖最后由 术士q 于 2025-5-29 06:09 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67861174&amp;ptid=2018830" target="_blank">shmilyhua 发表于 2025-5-29 03:47</a>
+44分的歌有什么渊源吗，录像被B退回了，只好静音掉。
+
+—— 来自 Google Pixel 8 Pro, Android 15, 鹅球  ...</blockquote>
+露露酱的紫砂配信，阿b这审核是这样的。记得在阿b上还有过命嫌下架这样的乌龙
+
