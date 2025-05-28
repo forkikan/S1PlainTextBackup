@@ -2643,3 +2643,34 @@ gqux里面对表情特别重视，尤其是玛秋的表情，之前红迪 ...</b
 三小只遨游了一下kirakira世界就这样了何况是紫色老太婆真的在 ...</blockquote>
 最后一话大决战应该会有戏份吧
 
+
+*****
+
+####  伊红美蓝  
+##### 16518#       发表于 2025-5-28 20:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860158&amp;ptid=2209276" target="_blank">windlikeman 发表于 2025-5-28 20:09</a>
+比起对鸭子有意思更像是kirakira中毒而已
+
+三小只遨游了一下kirakira世界就这样了何况是紫色老太婆真的在 ...</blockquote>
+马克贝算是彩蛋性质吧，提及只是为了给uc佬一个熟人会心一笑一下，在强人分给首席哥的大前提下本身对剧情没有推动作用就不必出场了<img src="https://static.stage1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  冷静先找时光机  
+##### 16519#       发表于 2025-5-28 20:35
+
+话说金米岛怎么就进绕月轨道了，本来都快砸格拉纳达脸上了，要是炸成两半改变了轨道还说得过去，只是缺块质量不影响轨道吧
+
+虽说是有最终的助推加速，但总不能因为重心变了就反而往远了飞吧，最多是砸歪了
+
+
+*****
+
+####  newise  
+##### 16520#       发表于 2025-5-28 20:41
+
+番茄笑了未必是找到牢修，她原以为要kirara需要牢修而已；都能见到拉拉了，拉拉的货不比牢修更纯，都不用上高达肉身发功的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

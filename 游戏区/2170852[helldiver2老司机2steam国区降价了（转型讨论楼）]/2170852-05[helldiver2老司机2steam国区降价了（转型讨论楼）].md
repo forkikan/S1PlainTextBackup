@@ -2604,3 +2604,13 @@ PS5能跟PC联机吗</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个b光能真有点无聊吧，打到现在感觉还是虫子＞机器人＞光能，跟一代反过来了
 
+
+*****
+
+####  朔方原的星  
+##### 6164#       发表于 2025-5-28 20:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860046&amp;ptid=2170852" target="_blank">RPMWT 发表于 2025-5-28 19:39</a>
+除了名字以外和现实没半点关系的上海纽约，还是处于一个邪恶政权统治下的地球，为什么感觉好些人有种保家卫 ...</blockquote>
+玩游戏有代入感也要管啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没代入感玩个刷怪游戏有什么意思？
+
