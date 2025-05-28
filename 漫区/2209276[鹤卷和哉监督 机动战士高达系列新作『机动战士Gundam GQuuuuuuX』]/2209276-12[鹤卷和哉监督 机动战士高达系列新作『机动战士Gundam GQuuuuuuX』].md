@@ -2406,3 +2406,40 @@ gqux里面对表情特别重视，尤其是玛秋的表情，之前红迪 ...</b
 
 这种突撃娘的性格，不是turn A二小姐吗
 
+
+*****
+
+####  ParadiseMartyr  
+##### 16506#       发表于 2025-5-28 19:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67859957&amp;ptid=2209276" target="_blank">康哥是我 发表于 2025-5-28 19:10</a>
+麻球行动力爆表又作又可爱。
+
+这种突撃娘的性格，不是turn A二小姐吗</blockquote>
+败犬不可避
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  王留美  
+##### 16507#       发表于 2025-5-28 19:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67859610&amp;ptid=2209276" target="_blank">woui003woui 发表于 2025-5-28 17:44</a>
+ 我不觉得详写部分给的是“他们”的“关系”，详写部分几乎都是给麻球和喵安单人的心境转变，而这种心境转 ...</blockquote>
+这又回到了那个老问题：“妈妈？拉拉吗？呜哇”是不是一种男男关系性？
+
+*****
+
+####  希望之异热同心  
+##### 16508#       发表于 2025-5-28 19:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67859826&amp;ptid=2209276" target="_blank">型月神话伊阿宋 发表于 2025-5-28 18:34</a>
+绿叔叔已经拉了个大的了——他一直没有找到鸭子
+
+看这集结尾，鸭子搞不好长期在参与2号机的研发，却一直没 ...</blockquote>
+可能害怕被吉翁的人发现自己活着把他抓去和基西莉亚结婚吧<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
