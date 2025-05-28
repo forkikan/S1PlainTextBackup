@@ -11363,3 +11363,15 @@ Good。
 应该能发吧大概。（</blockquote>
 要是你咩知道这个歌单就好了，要是这个歌单和之前的歌单能同步数据就好了，不过有记录就好
 
+
+*****
+
+####  shmilyhua  
+##### 18589#       发表于 2025-5-29 03:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860781&amp;ptid=2018830" target="_blank">术士q 发表于 2025-5-28 23:00</a>
+因为想着咩在youtube留的档是会随着时间的流逝删除的，而这样的话后面来不及看的财布是很难知道当天唱的歌 ...</blockquote>
+44分的歌有什么渊源吗，录像被B退回了，只好静音掉。
+
+—— 来自 Google Pixel 8 Pro, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
