@@ -1719,3 +1719,61 @@ gqx放任可能是因为不是手电筒系统核心吧，基西莉亚有gfrd就�
 
 以后两人打起来也是因为政治那边导致的随波逐流。前期铺垫的矛盾并不是关键因素。
 
+
+*****
+
+####  盐盐盐盐盐  
+##### 16440#       发表于 2025-5-28 17:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67859499&amp;ptid=2209276" target="_blank">woui003woui 发表于 2025-5-28 17:23</a>
+ 如果把三人组关系当作前半主线的话，那现在就可以说主线完全失败了吧 虽然大家对喵安和麻球的性格都能表 ...</blockquote>
+呃，实际上这片子所有详写的部分都给了三人组和他们的关系，背景故事都是略写的，要说缺少只是没有放什么日常回水时间而已………关系变化的节点一个都没少，麻球对修司的少女怀春，喵安下机后和修司的相处，麻球对自己生活的烦闷，喵安希望三个人在一起，麻球喵安因为“抢位置”发生隔阂，神社谈话没谈拢，所有这些都有了，除了修司的心境是在刻意隐藏外到底哪不够了，唯一占用时间稍长的非三人组故事只有魔女的角色刻画部分，但她也是麻球踏上觉悟路的重要推力
+就像第八集其实用来“搞爆点”的部分都是快速抛出信息，人均大嘴巴张口全是信息量，喵安的心境描写才是深入刻画的，喵安觉得基西莉亚不讨厌她觉得gfrd像基西莉亚说麻球是真实的，没有信息量但是刻画了她现在怎么看麻球的，这就是关系描写啊
+
+
+*****
+
+####  盐盐盐盐盐  
+##### 16441#       发表于 2025-5-28 17:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67859505&amp;ptid=2209276" target="_blank">芝村舞 发表于 2025-5-28 17:25</a>
+ 现在的剧情发展中，两人本人其实尚未完全对立，小番茄怎么知道喵安最后关头勾引修司远走高飞？看剧本？   ...</blockquote>
+麻球是不知道修司和喵安去哪了啊（虽然我不能确定下一集索顿会给她交待多少信息量），但是前半的友情和对隔阂的愧疚才给了她继续去地球的动力（她要去地球多半是觉得和玫瑰有关的话修司很可能带着喵安先走了去地球之类的，以她自己的动力已经没什么动力去地球了）
+提供立场对立也无非是提供一个麻球和喵安暂时分离，又在战场上打友情破颜拳的舞台
+这个剧其他配角和势力都是给三人组聚散离合制造事件的装置
+
+
+*****
+
+####  ryanghj  
+##### 16442#       发表于 2025-5-28 17:41
+
+现在的观众连主线和副线都看不出来了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  llysander  
+##### 16443#       发表于 2025-5-28 17:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67858194&amp;ptid=2209276" target="_blank">EFSF 发表于 2025-5-28 11:52</a>
+
+这集最大槽点，那俩浮游炮就那么点v字空间，塞的什么东西一发打穿钢板。
+
+—— 来自 Sony XQ-DQ72, Android ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer"> 这可是不需要推进剂在有重力/低重力机库里自己飞起来的 月钢精神病板子/幼女控框架飞盾同款，
+
+技术大跃进了，
+
+79年鸭的bit倒真是艾尔梅斯款，还特地占两句鸭的台词解释1要推进剂的！2最原始的bit设定，重力下飞不动/控制不好
+
+*****
+
+####  ryanghj  
+##### 16444#       发表于 2025-5-28 17:43
+
+感觉修司真有新机吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

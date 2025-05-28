@@ -1200,3 +1200,66 @@
 这就是欧皇的自信 卡多！</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">然而正是因为卡少 基本只能用那几个 所以造成了羁绊全在那几个身上 剩下都是吃灰的
 
+
+*****
+
+####  khxooo  
+##### 16842#       发表于 2025-5-28 15:20
+
+我也是很少羁绊礼装，也就是强度美、道满和几个大拐的羁绊礼装，连水总司、兰陵王、花嫁和小麻雀都是这次现刷的，也就兰陵王和小贝爆了次金币。
+
+*****
+
+####  Jamaisvu  
+##### 16843#       发表于 2025-5-28 17:26
+
+ 本帖最后由 Jamaisvu 于 2025-5-28 17:29 编辑 
+
+<img src="https://img.stage1st.com/forum/202505/28/171723omlmxd5e8mcmhm2x.jpg" referrerpolicy="no-referrer">
+
+<strong>1748423829334.jpg</strong> (88.4 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-5-28 17:17 上传
+
+新活动叫落泪之翼，预热卡池角色有使用月灵髓液的莱妮丝，机器人肯娘、源为朝，傀儡果心、段藏，希腊从者奥德修斯，飞天少年旅行者。如此推算新五星大概率就是代达罗斯/瑙克拉特：
+
+<img src="https://img.stage1st.com/forum/202505/28/172600gewsf6qyywiiil7y.png" referrerpolicy="no-referrer">
+
+<strong>1748424021120.png</strong> (216.03 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-5-28 17:26 上传
+
+去年矿工活动出场的卫星光速落地。
+落地好快啊，比伊卡洛斯落地的速度还快
+
+另外这位的CV已经有了，大桥步夕，樱小路露娜的声优：
+
+<img src="https://img.stage1st.com/forum/202505/28/172549hcxmsvqjzxmfll0m.jpg" referrerpolicy="no-referrer">
+
+<strong>3F825FB7CE94457AA3B766359B5905D2.jpg</strong> (108.51 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-5-28 17:25 上传
+
+*****
+
+####  khxooo  
+##### 16844#       发表于 2025-5-28 17:29
+
+奥德修斯宝具本，可以，还帮我完成强化290的特别任务<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  quanlix  
+##### 16845#       发表于 2025-5-28 17:44
+
+请务必把竖中指做进战斗演出
+
