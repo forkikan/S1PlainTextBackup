@@ -4516,3 +4516,11 @@ CygamesPictures在这片的打戏质量确实没得说，<strong>经常</strong>
 上一集搞了一集的上帝之杖结果这集还是换成用导弹了</blockquote>
 没错啊，上帝智障是对地攻击，导弹是防空的。防空导弹防不住的敌人落地就来一发上帝智障<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  太极八爪鱼  
+##### 397#       发表于 2025-5-29 05:34
+
+这个战斗台词，两个人都尽说些nt才说的话呢……<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
