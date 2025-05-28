@@ -3706,3 +3706,26 @@ krkr不是一个 ...</blockquote>
 地球是联邦势力范围，水中型轻加农给你安排上</blockquote>
 按现在不管技术树应膜尽膜，就算是联邦范围也给你整上联邦配色俘虏的吉翁水产什么的
 
+
+*****
+
+####  Sliurus  
+##### 16609#       发表于 2025-5-28 23:51
+
+反正这片完结前我都不打算过多评价，就像不划完最后一笔都不知道到底写了个什么字，分分钟被打脸
+
+
+*****
+
+####  jojonathan  
+##### 16610#       发表于 2025-5-28 23:54
+
+说是明年的高达tv是原创世界观的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该备战明年的高达了
+
+*****
+
+####  没钱打不起酱油  
+##### 16611#       发表于 2025-5-28 23:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是时候试试全南高达了
+
