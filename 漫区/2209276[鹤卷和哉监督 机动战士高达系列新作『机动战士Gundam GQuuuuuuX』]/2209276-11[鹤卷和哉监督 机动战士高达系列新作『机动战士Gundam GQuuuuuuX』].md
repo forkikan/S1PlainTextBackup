@@ -14740,3 +14740,94 @@ TOP前2集还在冲绳海滩上朝着夕阳跑步呢。
 
 锁定谁是卧底这块其实没必要细究，就这话的米格尔的行动来说他之前几次完全没被怀疑要么紫婆侧的人全是饭桶，要么就是格拉纳达早就被渗透完了，就这么火急火燎做蛋糕他就没想清楚可能洗不清自身怀疑的情况，你跟我说他前两次能一个人就完全准备不太可能
 
+
+*****
+
+####  南朝Sonicbbs  
+##### 16133#       发表于 2025-5-28 08:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856924&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-28 00:46</a>
+
+是普露系列还是格雷米呢？</blockquote>
+为什么不两个都量产呢？
+
+<img src="https://img.stage1st.com/forum/202505/28/082243mmmb4778zdweqqq8.jpg" referrerpolicy="no-referrer">
+
+<strong>复制人.jpg</strong> (154.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 08:22 上传
+
+*****
+
+####  透明马甲  
+##### 16134#       发表于 2025-5-28 08:23
+
+ 本帖最后由 透明马甲 于 2025-5-28 08:24 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857303&amp;ptid=2209276" target="_blank">nibugishi 发表于 2025-5-28 07:58</a>
+
+节奏风格就是这样，所以不能吐槽，是这个意思吗</blockquote>
+人家靠这个出名成名打出天下的。
+
+爱看看不看滚。
+
+质疑一个成功人士，并且现在还在继续成功的人士，也不是不可以。
+
+没人剥夺你逼逼的权利。
+
+但是您可以换个地方逼逼。
+
+*****
+
+####  nibugishi  
+##### 16135#       发表于 2025-5-28 08:24
+
+ 本帖最后由 nibugishi 于 2025-5-28 08:25 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857333&amp;ptid=2209276" target="_blank">透明马甲 发表于 2025-5-28 08:23</a>
+
+人家靠这个出名成名打出天下的。
+
+爱看看不看滚。</blockquote>
+靠这个成名是指gainax倒闭吗
+
+还爱看看不看滚 这是你的论坛还是你参与制作的动画啊 你谁啊
+
+*****
+
+####  透明马甲  
+##### 16136#       发表于 2025-5-28 08:25
+
+ 本帖最后由 透明马甲 于 2025-5-28 08:26 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857334&amp;ptid=2209276" target="_blank">nibugishi 发表于 2025-5-28 08:24</a>
+
+靠这个成名是指gainax倒闭吗
+
+还爱看看不看滚 这是你的论坛啊 你谁啊</blockquote>
+这是大家享受高达字母的转楼。
+gainax倒闭是早就注定了，和他有什么关系。
+
+怎么，这动画是你做的啊，你tama谁啊。
+
+是大家看你的言论不爽还是看我不爽啊。
+
+负好几十的玩意儿能不能滚啊。
+
+想抱怨能不能单独发个帖啊?
+
+这点逼胆识都没有吗?
+
+*****
+
+####  nibugishi  
+##### 16137#       发表于 2025-5-28 08:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857335&amp;ptid=2209276" target="_blank">透明马甲 发表于 2025-5-28 08:25</a>
+
+这是大家享受高达字母的转楼。
+
+怎么，这动画是你做的啊，**谁啊。</blockquote>
+这是大家讨论高达的转楼
+
+怎么，这楼是你盖的啊，你定义的啊，你**谁啊
+
