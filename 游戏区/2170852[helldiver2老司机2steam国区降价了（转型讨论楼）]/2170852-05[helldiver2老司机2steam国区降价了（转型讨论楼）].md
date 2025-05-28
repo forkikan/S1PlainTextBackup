@@ -2286,3 +2286,21 @@ https://www.bilibili.com/video/BV1pwQSYjE5M/
 
 真要守斯德哥尔摩箭头自己守去吧
 
+
+*****
+
+####  Mikumiku831  
+##### 6132#       发表于 2025-5-28 15:31
+
+PS5能跟PC联机吗
+
+*****
+
+####  烈焰舞阳  
+##### 6133#       发表于 2025-5-28 15:31
+
+<img src="https://p.sda1.dev/24/eab16f2192b28a981940fb1a60d456e5/image.jpg" referrerpolicy="no-referrer">
+大家别怕，神仙队来啦<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2407FRK8EC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

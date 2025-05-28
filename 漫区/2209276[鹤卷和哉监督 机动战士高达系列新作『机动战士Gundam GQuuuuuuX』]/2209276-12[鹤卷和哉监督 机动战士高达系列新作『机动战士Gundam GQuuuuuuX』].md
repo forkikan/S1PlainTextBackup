@@ -939,3 +939,61 @@ gqux真有这么大力量的话紫色老太婆放任不管又很玄乎了，哪�
 
 真正令喵安生疑的首席前脚才把人送回寝室，后脚就私信请喵安吃蛋糕这种猴急的迷惑行为。如果真的是要请人吃蛋糕是会在离开之前邀请留下，但是会顺带把首席毒死（无论蛋糕哥想不想），但这就违反了2号机的“”诅咒”了。所以蛋糕哥才会在暴露后说“没想到这么快找到了第三人”，留给他下手的时间太少了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TiHaru  
+##### 16375#       发表于 2025-5-28 15:27
+
+ 本帖最后由 TiHaru 于 2025-5-28 15:29 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67858871&amp;ptid=2209276" target="_blank">王元姬无惨 发表于 2025-5-28 15:03</a>
+
+其实剧里台词就透露了 看过0079的很容易明白
+
+德伦的台词“从被太阳系统照射的方向突入 那边防守薄弱”</blockquote>
+
+<img src="https://static.stage1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">意思是没有骡子，鸭妹成为了开白色ms的nt，还把大猩猩干掉了？！
+
+*****
+
+####  猪突猛进R  
+##### 16376#       发表于 2025-5-28 15:30
+
+这集其实明确了kirakira与NT不是一种东西，至少不完全是。
+
+首席哥无疑是NT，但内鬼是没打算杀他的。
+
+要杀的是能启动特殊塞克缪的人才，而且称他们为“恶魔”。
+
+其实说“恶魔”也不是完全没道理，牢修杀魔女，喵安杀黑双和内鬼时，是字面意义上的“杀人不眨眼”。
+
+在这点上，番茄至今手上没有沾血比较有意思。
+
+看看能不能维持到结束，或者看一血从谁那里拿。
+
+*****
+
+####  无念  
+##### 16377#       发表于 2025-5-28 15:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67858978&amp;ptid=2209276" target="_blank">只吃干拌面 发表于 2025-5-28 15:25</a>
+昨天我还特意倒回去看了一下回忆，确认了同期三人手里都拿着蛋糕哥做的蛋糕，说明首席是吃过蛋糕的，因此那 ...</blockquote>
+想的高端点，说不定这蛋糕只是加了一种催化剂，本身是无毒的，但是只要吃后启动了塞可缪了就会心脏过速<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  Steel.Haze  
+##### 16378#       发表于 2025-5-28 15:32
+
+然后吐槽一下夸克斯世界观下，因为战争少了，所以对NT的解析也落后，NT学院配样的都什么歪瓜裂枣，都是低NT级别的男性，还有个OT，根本启动不了系统，然后普遍对精神力感知的认知是必须要传精神力传导服。实际上这里的精神力系统还略好于UC正史87末-88的水平。
+
+*****
+
+####  洛克萨斯  
+##### 16379#       发表于 2025-5-28 15:34
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">首席搞不好开强人能和绿叔叔比划比划，开什么赛克缪机体，浪费机体载荷，不如增加机动性或者武装
+
