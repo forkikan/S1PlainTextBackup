@@ -14595,3 +14595,60 @@ TOP前2集还在冲绳海滩上朝着夕阳跑步呢。
 我艹，这一帧是影院版没放还是太快了没人发现？</blockquote>
 剧场版4刷的表示没有。而且上映了几个月，几百万人次看过，真有的话不会没人发现的。
 
+
+*****
+
+####  ahoge2004  
+##### 16121#       发表于 2025-5-28 07:51
+
+ 本帖最后由 ahoge2004 于 2025-5-28 07:53 编辑 
+
+这集给我的感觉
+
+紫婆=董明珠
+
+巴上帝/首席=王自如
+
+喵安=孟羽童
+
+掌握核心科技
+
+为了世界和平，不能让空调技术落入  的手中！
+
+*****
+
+####  nibugishi  
+##### 16122#       发表于 2025-5-28 07:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857279&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-5-28 07:41</a>
+
+TOP前2集还在冲绳海滩上朝着夕阳跑步呢。
+
+没看过GAINAX那帮人做的动画？转头就上歼星舰的情节第一次看？ ...</blockquote>
+所以我说得有错吗，这节奏是不是参差不齐，前后不一
+
+*****
+
+####  岸浪白野  
+##### 16123#       发表于 2025-5-28 07:55
+
+[X 上的 バンコレ！🔴バンダイファッション【公式】：“機動戦士Gundam GQuuuuuuX ニャアンのイヤーカフ [url]https://t.co/1nxNnqWYaQ](https://x.com/BANDAIFN/status/1927500437676065185) 作中でニャアンが着用しているイヤーカフをモデルにしたアクセサリーです。 内側に「NYAAN」の文字が入ります✨️ 本日2025年5月28日（水） 12時よりご注文受付開始！ #GQuuuuuuX #ジークアクス [https://t.co/raAgsNGIYM](https://t.co/raAgsNGIYM)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/28/075435gddahd5hawhzara6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.64 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 07:54 上传
+
+[X 上的 バンコレ！🔴バンダイファッション【公式】：“機動戦士Gundam GQuuuuuuX スタッドイヤーアクセサリー ポメラニアンズ [url]https://t.co/MnFsu3AmGr](https://x.com/BANDAIFN/status/1927500567833669951) マークだけのシンプルなデザインなので、さりげなくファッションに取り入れられるアイテムです。 ピアスタイプとイヤリングタイプの2種展開。 本日2025年5月28日（水） 12時よりご注文受付開始！ [https://t.co/eRhCs6oW0v](https://t.co/eRhCs6oW0v)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/28/075457mhzl4rz2rg4rbr8q.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.44 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 07:54 上传
+
