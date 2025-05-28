@@ -194,3 +194,29 @@ wait我发现两个人首字母都是K.T.，嚯嚯，压力马斯内<img src="ht
 
 好想来写キミプリ的剧本啊<img src="https://static.stage1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kangkangsama  
+##### 893#       发表于 2025-5-29 05:49
+
+<img src="https://img.stage1st.com/forum/202505/29/054901p973hm8qq70z79qv.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0819.jpeg</strong> (193.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-29 05:49 上传
+
+<img src="https://img.stage1st.com/forum/202505/29/054902snx5j5n5qmmtjtl7.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0817.jpeg</strong> (587.51 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-29 05:49 上传
+
+虽然知道你俩不可能没有人型的
+
+但是不光速度惊人，人设怎么还感觉完全不是一个画风的
+
