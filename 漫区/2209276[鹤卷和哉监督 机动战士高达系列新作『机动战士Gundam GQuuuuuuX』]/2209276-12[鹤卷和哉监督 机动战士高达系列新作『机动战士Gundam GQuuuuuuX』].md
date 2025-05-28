@@ -2803,3 +2803,61 @@ gqux里面对表情特别重视，尤其是玛秋的表情，之前红迪 ...</b
 
 我看楼友不知道多少年动画是白看了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ryanghj  
+##### 16536#       发表于 2025-5-28 21:39
+
+很明显gqux里面混了很多作品，不止top1 top2，khara疯狂玩自己作品的梗，飞跃巅峰，eva一个不少
+
+*****
+
+####  璇瑢子R  
+##### 16537#       发表于 2025-5-28 21:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67859448&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-28 17:13</a>
+别说，真对上了
+
+第八集夏亚马上要一刀干死塞拉的时候拉拉出来阻止，然后夏亚撤不出来的时候拉拉发功启动泽 ...</blockquote>
+一切都是拉拉的大手很容易些烂掉的
+后面但凡有什么不如意的情况都能怪到拉拉为什么不操作一下
+
+*****
+
+####  我聞如是  
+##### 16538#       发表于 2025-5-28 21:40
+
+<blockquote>YU_JI 发表于 2025-5-28 21:27
+土屋是不是说第十话是修司回来着</blockquote>
+土屋弟說到第十話會搞懂很多東西
+
+沒提過有修司回
+
+*****
+
+####  remediosOlOOOO  
+##### 16539#       发表于 2025-5-28 21:41
+
+麻球终于感受到货真价实的地球重力了，现在问题是你要怎么减速呢<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  YU_JI  
+##### 16540#       发表于 2025-5-28 21:45
+
+ 本帖最后由 YU_JI 于 2025-5-28 21:48 编辑 
+
+我觉得主要问题是作为一个三番位，修司现在剧本上明显是一个待完成的状态吧，镜头未必比首席哥多多少，明摆着后面有他的解密部分，要是连这个都意识不到，榎户的脚本真是白写了。何况鹤卷榎户还专门强调了这个角色是最难搞的，单纯的工具人定位的话费这个劲干嘛，不过肯定还是不影响这片双女主结构的主要框架
+
+*****
+
+####  ryanghj  
+##### 16541#       发表于 2025-5-28 21:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860499&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-28 21:45</a>
+
+我觉得主要问题是作为一个三番位，修司现在剧本上明显是一个待完成的状态吧，镜头未必比首席哥多多少，明摆 ...</blockquote>
+修司是女主位<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">玛秋和喵安是表里主角
+
