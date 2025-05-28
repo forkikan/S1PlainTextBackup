@@ -2966,3 +2966,12 @@ DSS来了 后半夜不愁了
 而且真想刷的话可以找个升旗任务无限刷<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 甚至我怀疑刷到一半强退说不定击杀数都能计入进来，同时对反攻度的分母的影响也最小
 
+
+*****
+
+####  希望之花  
+##### 6201#       发表于 2025-5-29 01:39
+
+郑重声明：本人从未诋毁过dss，dss一直是超级地球的超级决战兵器，分兵修复dss是史上最伟大的决策之一
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

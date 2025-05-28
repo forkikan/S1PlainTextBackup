@@ -3949,3 +3949,16 @@ gundam+缩退炉是吧<img src="https://static.stage1st.com/image/smiley/face201
 
 原文那個喊話的意思則是濃縮在「キラキラになんないよ」最後的「よ」上了(榎戶你這老賊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿刚  
+##### 16630#       发表于 2025-5-29 01:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67861048&amp;ptid=2209276" target="_blank">玖羽 发表于 2025-5-29 00:40</a>
+
+这里的重点是，修司强烈改变了两个女主角的人物弧光，但是他并没有（还没有）有意去做什么
+
+krkr不是一个 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">然后剧里给出的原因是krkr，跟现实世界一类比唯一能比的了得就是冰，这下更糟糕了
+
