@@ -2975,3 +2975,12 @@ DSS来了 后半夜不愁了
 郑重声明：本人从未诋毁过dss，dss一直是超级地球的超级决战兵器，分兵修复dss是史上最伟大的决策之一
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nekkihs2  
+##### 6202#       发表于 2025-5-29 03:28
+
+超级巡洋舰一声炮响，给矢头送来革命的号角
+<img src="https://p.sda1.dev/24/205507af909017d82e070024507ce731/1000031882.jpg" referrerpolicy="no-referrer">
+
