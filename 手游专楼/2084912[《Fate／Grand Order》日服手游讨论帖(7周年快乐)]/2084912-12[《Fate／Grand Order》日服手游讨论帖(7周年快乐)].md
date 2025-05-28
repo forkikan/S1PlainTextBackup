@@ -1130,3 +1130,34 @@
 
 狂已经说是6月开了，明天肯定不会开的，估计放个活动预告之后礼拜五开个21天的活动，然后开狂戴冠
 
+
+*****
+
+####  DARKGRAY  
+##### 16834#       发表于 2025-5-28 02:37
+
+还是老看法，我不信没有预热强化2周<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 16835#       发表于 2025-5-28 11:48
+
+有不艹的可能吗<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 16836#       发表于 2025-5-28 11:49
+
+另外这冠位战不会全是单体吧？ 那也太弱智了。。。
+
+*****
+
+####  里村紅葉  
+##### 16837#       发表于 2025-5-28 11:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67858179&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-5-28 11:49</a>
+另外这冠位战不会全是单体吧？ 那也太弱智了。。。</blockquote>
+非单体就以前茨木世界BOSS那种呗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
