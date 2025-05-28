@@ -220,3 +220,39 @@ wait我发现两个人首字母都是K.T.，嚯嚯，压力马斯内<img src="ht
 
 但是不光速度惊人，人设怎么还感觉完全不是一个画风的
 
+
+*****
+
+####  modedd  
+##### 894#       发表于 2025-5-29 06:56
+
+ 本帖最后由 modedd 于 2025-5-29 06:59 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67861259&amp;ptid=2208663" target="_blank">kangkangsama 发表于 2025-5-29 05:49</a>
+虽然知道你俩不可能没有人型的
+
+但是不光速度惊人，人设怎么还感觉完全不是一个画风的 ...</blockquote>
+有没有搞错，这人设不可能会在正片里原样端上来的对吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  kangkangsama  
+##### 895#       发表于 2025-5-29 07:00
+
+<blockquote>modedd 发表于 2025-5-29 06:56
+有没有搞错，这人设不可能会在正片里原样端上来的对吧
+
+—— 来自 鹅球 v3.5.99 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202505/29/065949ntf0amzctfbf8fdd.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0820.jpeg</strong> (129.72 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-29 06:59 上传
+
+这周日就给你端上来+直接说追加战士了
+
