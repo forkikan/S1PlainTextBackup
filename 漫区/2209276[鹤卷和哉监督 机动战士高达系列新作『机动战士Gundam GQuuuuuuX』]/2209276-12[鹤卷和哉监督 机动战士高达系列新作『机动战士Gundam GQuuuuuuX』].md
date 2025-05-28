@@ -2443,3 +2443,23 @@ gqux里面对表情特别重视，尤其是玛秋的表情，之前红迪 ...</b
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  cayon  
+##### 16509#       发表于 2025-5-28 19:28
+
+很好奇此时此刻的玛秋爹妈是什么情况<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Sliurus  
+##### 16510#       发表于 2025-5-28 19:32
+
+ 本帖最后由 Sliurus 于 2025-5-28 19:33 编辑 
+
+看直播的时候就觉得所罗门一直在月球上空漂很奇怪，看别人评论才意识到，该不会是紫婆故意要求留下来睹物思人的吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+也没有给所罗门近照说明基地恢复了功能，我觉得就是故意的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

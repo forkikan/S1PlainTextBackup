@@ -2505,3 +2505,17 @@ PS5能跟PC联机吗</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ParadiseMartyr  
+##### 6155#       发表于 2025-5-28 19:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67859949&amp;ptid=2170852" target="_blank">敏感词好多 发表于 2025-5-28 19:09</a>
+箭头要把上海送了好不容易起来的国区口碑又得炸了
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我就是为了这个噱头买的游戏，上海炸了我直接差评AFK
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
