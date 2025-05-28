@@ -1349,3 +1349,66 @@ boom
 
 不如说更像SEED的蓝色波斯菊，认为自然NT全部都是恶魔
 
+
+*****
+
+####  猪突猛进R  
+##### 16406#       发表于 2025-5-28 16:49
+
+这样基连派和TTS同流合污的可能性更高了，自然NT是恶魔，对应村雨兔说过他们是自己选择才成为NT的，因此是真正的NT。
+
+*****
+
+####  YU_JI  
+##### 16407#       发表于 2025-5-28 16:50
+
+和基连合作上了，唉，锦华你也堕落了啊（不是）
+
+*****
+
+####  ryanghj  
+##### 16408#       发表于 2025-5-28 16:52
+
+ 本帖最后由 ryanghj 于 2025-5-28 16:54 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67859340&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-28 16:49</a>
+
+这样基连派和TTS同流合污的可能性更高了，自然NT是恶魔，对应村雨兔说过他们是自己选择才成为NT的，因此是 ...</blockquote>
+强化人至上组织
+
+还挺新奇的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">但仔细想想现实中的LGBTQ+，以及九龙拉棺，不奇怪了
+
+这确实是21世纪20年代才写得出来的剧情
+
+*****
+
+####  岸浪白野  
+##### 16409#       发表于 2025-5-28 16:53
+
+继续 从レオ.レオニ的作品出发
+
+<img src="https://img.stage1st.com/forum/202505/28/165057cosliq62chqhbkyf.png" referrerpolicy="no-referrer">
+
+<strong>P)()1)KE]{GICF]J5ERM{KE.png</strong> (740.65 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 16:50 上传
+
+*****
+
+####  透明马甲  
+##### 16410#       发表于 2025-5-28 16:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67859306&amp;ptid=2209276" target="_blank">winda 发表于 2025-5-28 16:42</a>
+
+杰尼斯都能因下半身事情直接解散，古川彻现在还能接点活算是在丑闻后过得不错了 ...</blockquote>
+杰尼斯是因为老头没了。
+
+
+*****
+
+####  七七見奈波  
+##### 16411#       发表于 2025-5-28 16:56
+
+有没有可能GQX版手电筒除了手电筒本来的功能外，还是增幅器，紫婆对喵安说想让她再发动泽克诺瓦，并且通过增幅器达到更大规模杀伤目的，毕竟所罗门那时候泽克诺瓦是首先被认定是“爆炸”的。相对的，并不是什么喵安的NT能力比麻球强，而是GFred的赛克缪强化了某方面的功能，以与GQX版手电筒相配合，否则米凯尔和黑皮小哥也不会单独强调GFred，而五十GQX
+
