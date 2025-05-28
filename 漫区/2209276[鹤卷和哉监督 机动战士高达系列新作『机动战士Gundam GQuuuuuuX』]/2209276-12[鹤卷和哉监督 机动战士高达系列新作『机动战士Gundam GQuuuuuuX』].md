@@ -3907,3 +3907,15 @@ krkr不是一个能让观众共情的理由，开高达是因为“高达叫他�
 
 不过脱离低级趣味，不被重力束缚，又喜欢时尚挂件的NT观众，是我这种OT理解不了的
 
+
+*****
+
+####  stmule  
+##### 16627#       发表于 2025-5-29 01:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67858676&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-5-28 14:20</a></blockquote>
+gundam+缩退炉是吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+那对面怎么打
+
+—— 来自 samsung SM-S9110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
