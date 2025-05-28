@@ -3037,3 +3037,73 @@ gqux里面对表情特别重视，尤其是玛秋的表情，之前红迪 ...</b
 
 不如说玛秋就有根底了吗？很多人不批评她没有自己想法吗？现在看来她就是这么一个人设，一根筋走到死，只不过鹤卷是把这个当成正面来表现的
 
+
+*****
+
+####  ヒトニナル  
+##### 16558#       发表于 2025-5-28 22:28
+
+修司：我装的<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  woui003woui  
+##### 16559#       发表于 2025-5-28 22:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860670&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-28 22:26</a>
+说实话，要解谜几分钟就够了哪有那么玄乎</blockquote>
+这么比较认真的吗，麻球从出身背景到心态纠结、对话，各种细节塑造心理沟通文戏铺陈跟修司一个水平的？确实是三笔两笔勾勒就够了，然而问题不是八集下来基本没给他勾过吗。当然要是看不得对修司落地化塑造的负面预期的话就当我没说。
+
+*****
+
+####  盐盐盐盐盐  
+##### 16560#       发表于 2025-5-28 22:31
+
+从头到尾都没有认为过夏亚在红高或空奇里的我这集赢麻了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ryanghj  
+##### 16561#       发表于 2025-5-28 22:33
+
+ 本帖最后由 ryanghj 于 2025-5-28 22:35 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860688&amp;ptid=2209276" target="_blank">woui003woui 发表于 2025-5-28 22:31</a>
+
+这么比较认真的吗，麻球从出身背景到心态纠结、对话，各种细节塑造心理沟通文戏铺陈跟修司一个水平的？确 ...</blockquote>
+魔女是不是半集人设就立起来了？<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+杜是不是两句话就把所有信息都表达出来了？“我是精神力高达的心脏”“自己选择进化的我们才更适合当NT”<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+我都不知道你在担心啥，把修司经历讲一下直接就完事了
+
+*****
+
+####  没钱打不起酱油  
+##### 16562#       发表于 2025-5-28 22:34
+
+ 本帖最后由 没钱打不起酱油 于 2025-5-28 22:37 编辑 
+
+性转版本还是和传统那挂有本质区别的，社会期望就不一样
+
+说白了传统定位女主只要是个美少女观众就放你过去了，本身就是我们二刺螈独有的取巧之道。
+
+性转版本，男的光有脸蛋那可不行
+
+同样的问题玲芽之旅也有，那部片子也是第一部我觉得新海诚的片子没感情戏会更好
+
+*****
+
+####  盐盐盐盐盐  
+##### 16563#       发表于 2025-5-28 22:34
+
+到底对修司有什么期待啊，我一直觉得他就一个普通男孩子只不过nt能力有点太强而已
+至于为什么女主角喜欢他这少年少女喜欢一个人又不是相亲还得列个表打分，看对眼了就喜欢了呗
+
+*****
+
+####  最强惠酱  
+##### 16564#       发表于 2025-5-28 22:37
+
+这片丢掉神秘感情线和男人立马好看多了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">二号机丑得像蝙蝠怪人，不能接受
+
