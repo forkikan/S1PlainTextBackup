@@ -1376,3 +1376,14 @@ roll到13%攻和18攻就可以用+4-6攻击改掉防御，然后只强化第一�
 
 另外每层的最快纪录是单独计算的，所以17-19这三层可以选择每层投入一次最大资源，刷完记录就跑，能提高不少成绩。我最后是2900分数，排名500左右。
 
+
+*****
+
+####  toblkr  
+##### 391#       发表于 2025-5-28 14:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857354&amp;ptid=2249235" target="_blank">macshi 发表于 2025-5-28 08:31</a>
+
+我的队伍前排三个任意物理菜刀，武器全是冥钢剑/短剑+15，攻击270-300，回避命中140-150，上完回避buff蝎子 ...</blockquote>
+要是不让用退出大法我只能带满镇静卸武器打防反了，感觉有点难度<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
