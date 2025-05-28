@@ -16163,3 +16163,138 @@ GQX基本上都没有选旧配过的声优，所以感觉小潘和早见都不�
 怎么连第三适格者也跑出来了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">机库那段我以为我在看eva，一样的构图，说喵安是第三个驾驶员
 
+
+*****
+
+####  岸浪白野  
+##### 16249#       发表于 2025-5-28 11:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67858083&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-28 11:26</a></blockquote>
+
+GMS-K  GFreD
+
+<img src="https://img.stage1st.com/forum/202505/28/112838fw2cylr727n5pewy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.09 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 11:28 上传
+
+*****
+
+####  朋友费小号  
+##### 16250#       发表于 2025-5-28 11:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">nga又因为古谷彻的事吵起来了，我即世界的还是太多了
+
+老登草粉干我屁事啊，又不碍着我吃饭呼吸睡觉，他甚至是个外国艺人，我为什么要声讨他
+
+*****
+
+####  蛋头电玩  
+##### 16251#       发表于 2025-5-28 11:30
+
+扎比家除了老二都是二周目者吧，老大知道会被爆头不见紫色老太婆，卡尔马知道这家太危险早点跑路结婚
+
+*****
+
+####  岸浪白野  
+##### 16252#       发表于 2025-5-28 11:32
+
+[X 上的 日経エンタテインメント！：“【特装版・表紙解禁!!!】 6月4日発売の7月号、#機動戦士ガンダム の表紙ビジュアルを解禁！ 特集は #GQuuuuuuX から #鶴巻和哉 監督らが出演。ガンダムの歴代クリエーター、キャストが勢揃いした「永久保存版」。 富野由悠季総監督 のスペシャルインタビューも！ ◆ご予約は [url]https://t.co/mZKxdOamR5](https://x.com/nikkei_ent/status/1927564443736510931) [https://t.co/2IvNkfkvP0](https://t.co/2IvNkfkvP0)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/28/113158zxkhz6ku3h3p66nh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.38 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 11:31 上传
+
+*****
+
+####  kenqqex  
+##### 16253#       发表于 2025-5-28 11:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67858078&amp;ptid=2209276" target="_blank">AkaiSuisei 发表于 2025-5-28 11:23</a>
+
+上一话浪费了20分钟这话给你漏个一分半的ED和30秒下集预告就高潮了，现在的姨姥也太好伺候了。建议鹤卷GG再 ...</blockquote>
+我在我自己的朋友群里面已经从昨天晚上骂到现在了<img src="https://static.stage1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+*****
+
+####  EFSF  
+##### 16254#       发表于 2025-5-28 11:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67858032&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-28 11:09</a>
+确实，本来都骂为什么拿剧场版内容塞TV，现在看来纯纯是为了圈钱把TV内容拆出来做剧场版 ...</blockquote>
+不是，剧场本来就是tv内容先行上映啊...
+
+—— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  cayon  
+##### 16255#       发表于 2025-5-28 11:33
+
+gqx一系列的脚还是一如既往的那么丑，
+
+
+*****
+
+####  oi99o  
+##### 16256#       发表于 2025-5-28 11:34
+
+不过玛秋就这样单机脱离，不知道是不是还是没武器的状态<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  铁蛋28  
+##### 16257#       发表于 2025-5-28 11:35
+
+本周的乃木坂梗
+
+实锤<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+01.jpg
+(108.18 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 11:35 上传
+
+<img src="https://img.stage1st.com/forum/202505/27/193526v175x21x5wwj1gmg.jpg" referrerpolicy="no-referrer">
+
+02.jpg
+(71.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 11:35 上传
+
+<img src="https://img.stage1st.com/forum/202505/27/193533nskh4eckw66bhcwb.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  没取名啊  
+##### 16258#       发表于 2025-5-28 11:36
+
+上集哪里浪费了，喵安逃跑宣言，修司爆炸，麻球跌落谷底无法重回日常，绿叔叔大显神威，紫婆的手电筒，哪个不是重要桥段。有些人是不是觉得讲三人组就是浪费篇幅，讲扎比家内斗就是正经事
+
+*****
+
+####  eilot  
+##### 16259#       发表于 2025-5-28 11:37
+
+好像見到是直接以「大」字衝落大氣層，前面沒有用光/實盾來擋熱力，本身又沒有AT力場，QUX機身那麼硬實?
+
+感覺背後也沒帶甚麼武器
+
+*****
+
+####  ヒトニナル  
+##### 16260#       发表于 2025-5-28 11:37
+
+我甚至怀疑鸡夸断掉的左手都还没修好<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
