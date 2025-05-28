@@ -1938,3 +1938,11 @@ GQ主角队有歌了
 
 —— 来自 vivo V2408A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  洛克萨斯  
+##### 1659#       发表于 2025-5-28 09:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这台词，sr自由就决定给她开了！
+

@@ -15065,3 +15065,227 @@ gainax倒闭是早就注定了，和他有什么关系。
 
 首席的nt能力真的很低吧..............没读心能力，又启动不了欧米茄赛克缪<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  吴怀在  
+##### 16161#       发表于 2025-5-28 09:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857268&amp;ptid=2209276" target="_blank">kaion111 发表于 2025-5-28 07:29</a>
+再听一遍还是觉得夏亚的新cv真不行
+太没有感情了</blockquote>
+希望有人用ai换成以前的声优
+
+*****
+
+####  sliver1997  
+##### 16162#       发表于 2025-5-28 09:29
+
+那两间谍看得真是让人面无表情，工具人你谁啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  岸浪白野  
+##### 16163#       发表于 2025-5-28 09:29
+
+[X 上的 ちくわぶ☀️：“[url]https://t.co/rFdlWHevj4](https://x.com/tkrbkan/status/1927404690645332359)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/28/091825fclb8lljq0l6lhhc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (239.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 09:18 上传
+
+[X 上的 足立いまる🎨：“ふーん…シロウズくんって言うんだ…＾＾ ところで…なんか…声…シャアって人に似てるね… #GQuuuuuuX #ジークアクス [url]https://t.co/m926EdFUA4](https://x.com/adachi_imaru/status/1927411299610190280)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/28/091854is5ipttdprgerxge.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.67 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 09:18 上传
+
+[X 上的 左は原稿をします：“人の顔を覗きすぎるのは良くない [url]https://t.co/MAXd7ZbnId](https://x.com/NviG00/status/1927447407492563261)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/28/092207rmkg3gxxn1tn11vg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (755.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 09:22 上传
+
+[X 上的 宇虫人：“シロウズくん分かりません [url]https://t.co/LFH1lu7BLu](https://x.com/Z__poM/status/1927423871751274532)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/28/091933ki6jpqb6dtymqs3u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.52 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 09:19 上传
+
+[X 上的 𝐣𝐞𝐫𝐤𝐲：“シロウズ君完全にシャアですありがとうございました どうせならこんな格好で出てきてくれればよかったのに #GQuuuuuuX [url]https://t.co/f8dyQeghCU](https://x.com/jerky_illust/status/1927411378341511178)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/28/092126xb2shqfvqnbbhwnn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (424.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 09:21 上传
+
+[X 上的 난다이 밤코：“뉘쇼 [url]https://t.co/bY281f42FG](https://x.com/_ooooooNS/status/1927413104528257423)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/28/091912aq9nftlzttiwlten.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (432.48 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 09:19 上传
+
+[X 上的 干し丿：“シャリア・ブル、これをやっても許されると思う。 [url]https://t.co/UIhUDjYoHG](https://x.com/xhoshinox/status/1927431416284889437)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/28/092058nrkkxy5mywxnnw89.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (367.11 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 09:20 上传
+
+*****
+
+####  绞首浪漫派丶  
+##### 16164#       发表于 2025-5-28 09:30
+
+遗憾换声优了，想听到神秘金发路人男突然发出池田秀一的声音<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 16165#       发表于 2025-5-28 09:30
+
+[X 上的 沼地どろまる：“キシリア様、いっしょに餃子作ってくれそう #GQuuuuuuX #ジークアクス [url]https://t.co/d641cBrM9S](https://x.com/Ndoromaru/status/1927410392726171824)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/28/093006idpy19vhnp1pphp9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (745.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 09:30 上传
+
+[X 上的 ベネ：“[url]https://t.co/9rkZmGvkVC](https://x.com/be_ne_69/status/1927477644276158806)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/28/093024db0020ubuo5sbych.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.09 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 09:30 上传
+
+*****
+
+####  岸浪白野  
+##### 16166#       发表于 2025-5-28 09:30
+
+<img src="https://img.stage1st.com/forum/202505/28/093040qz3756b8tvs8h5j7.jpg" referrerpolicy="no-referrer">
+
+<strong>VLJ@_MTRA5[(O3BNWL][4.jpg</strong> (105.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 09:30 上传
+
+*****
+
+####  吴怀在  
+##### 16167#       发表于 2025-5-28 09:31
+
+所以堕向月球是指喵安加入zion阿，我还以为指的是所罗门砸月球
+
+*****
+
+####  Sliurus  
+##### 16168#       发表于 2025-5-28 09:31
+
+<blockquote>Toby_dak 发表于 2025-5-28 07:58
+吐个槽吧，格那拿达是在月球背面的。喵安这点都不知道，还是理科生吗</blockquote>
+这集特意提了喵安不喜欢读书，考大学是为了入户
+
+*****
+
+####  吴怀在  
+##### 16169#       发表于 2025-5-28 09:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857557&amp;ptid=2209276" target="_blank">Sliurus 发表于 2025-5-28 09:31</a>
+这集特意提了喵安不喜欢读书，考大学是为了入户</blockquote>
+那我看这大学考不上……
+
+*****
+
+####  岸浪白野  
+##### 16170#       发表于 2025-5-28 09:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857556&amp;ptid=2209276" target="_blank">吴怀在 发表于 2025-5-28 09:31</a>
+
+所以堕向月球是指喵安加入zion阿，我还以为指的是所罗门砸月球</blockquote>
+标题不早写着坠（堕），早在楼里讨论过是字的含义的双关了......
+
+*****
+
+####  希望之异热同心  
+##### 16171#       发表于 2025-5-28 09:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857444&amp;ptid=2209276" target="_blank">cfxiao 发表于 2025-5-28 09:02</a>
+
+哈哈哈，我昨晚看的时候也想到这个了。
+
+第一反应就是：“就你这样还想考大学？” ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">喵安有紫色老太婆的推荐信，其他人有么！
+
+番茄妈好好看好好学，补习班卷是卷不进吉工大的，参军复员才是捷径！
+
+
+*****
+
+####  银川智将Kuroky  
+##### 16172#       发表于 2025-5-28 09:34
+
+想想紫色老太婆一个人要养废物爹、neet大哥、无脑二哥、弱智小弟，确实家务能力得点满吧
+
+*****
+
+####  YU_JI  
+##### 16173#       发表于 2025-5-28 09:34
+
+ 本帖最后由 YU_JI 于 2025-5-28 09:36 编辑 
+
+yysy，入户只是要求本科就没有普通一点的本科读吗？反正喵也没心思读书，吉工大看样子是顶流学校啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  朋友费小号  
+##### 16174#       发表于 2025-5-28 09:35
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">话说这集喵安穿的是包臀裙，下身到底是紧身裤还是<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  久井路路  
+##### 16175#       发表于 2025-5-28 09:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857573&amp;ptid=2209276" target="_blank">银川智将Kuroky 发表于 2025-5-28 09:34</a>
+想想紫色老太婆一个人要养废物爹、neet大哥、无脑二哥、弱智小弟，确实家务能力得点满吧 ...</blockquote>
+先不说养家，警惕暗杀然后这集还出了个毒蛋糕，这饭确实还是自己做安心（
+
+怕不是基连也跑去学做炒饭之类的了（No
+

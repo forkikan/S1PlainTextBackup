@@ -4206,3 +4206,21 @@ PV里猫猫头形态八千代还没回收的，后面肯定变回来</blockquote
 
 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">无法预测的展开，居然还有暴走族形态的八千代哈哈哈哈
 
+
+*****
+
+####  屈江鸟  
+##### 365#       发表于 2025-5-28 09:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">这集暴走太快了，为了推进而推进，隐约有一股烂尾的味道
+
+
+*****
+
+####  adretyu67.  
+##### 366#       发表于 2025-5-28 09:35
+
+彭子最早登场是153岁，感觉对应人类年龄要除个10吧。
+
+现在得300多岁了。
+
