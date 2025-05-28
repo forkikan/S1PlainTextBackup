@@ -1956,3 +1956,52 @@ rnmd委托要夺取一台机子，系列关卡全扫荡一轮一台没出，你�
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  rockroxas  
+##### 1661#       发表于 2025-5-28 14:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67858582&amp;ptid=2071758" target="_blank">一个陆仁贾 发表于 2025-5-28 13:50</a>
+
+rnmd委托要夺取一台机子，系列关卡全扫荡一轮一台没出，你的委托我不接了，滚一边去
+
+—— 来自 vivo V2419 ...</blockquote>
+委托最省体力的是找一关能抓机体多的手动，没抓到就重试（
+
+一台的还好，到后边动不动三台才要命
+
+
+*****
+
+####  hayate0079  
+##### 1662#       发表于 2025-5-28 14:15
+
+最近把无限定的号打上15W发现AI的2个规律
+
+1是AI用必闪冲过来打人的时候我方AI基本是有用EX必然用EX
+
+2是当对面EX打我方伤害过于溢出时会用小招，然后调整船或者盾，来让特定输出不使用EX来打我方的盾，可以让我方盾存活
+
+<img src="https://img.stage1st.com/forum/202505/28/141401ck8ogj74n1fzkk17.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (108.12 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 14:14 上传
+
+<img src="https://img.stage1st.com/forum/202505/28/141402hl8zpf601fks4kmf.jpg" referrerpolicy="no-referrer">
+
+<strong>3.jpg</strong> (87.31 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 14:14 上传
+
+如上图对面是1星拉克丝+2星SF
+
+打我13W血的亥伯龙时会用EX打（伤害14W5），而面对11W血的拖2时AI选择用龙骑兵，只打了9W
+
+这样控制下血量可以出奇效
+
