@@ -1272,3 +1272,23 @@ gto这个不光拉拉，夏亚也……经常很安彦良和，你看过安彦�
 
 详细点的，高达我是断断续续看的，太乱了。
 
+
+*****
+
+####  江之岛右手  
+##### 114#       发表于 2025-5-28 09:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857326&amp;ptid=2252419" target="_blank">Viteeee 发表于 2025-5-28 08:17</a>
+
+泥潭坛友与其说看不起GTO，不如说是宅宅特有的“讨论作品时忍不住要卖弄学识”病犯了。
+
+就好比同事对你说 ...</blockquote>
+不是这样的话玩什么论坛啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 115#       发表于 2025-5-28 09:06
+
+骡子和鸭妹的关系更多是场外暗示。主要还是z里井上瑶来不了导致鸭妹下线被迫换成了贝嫂。
+
