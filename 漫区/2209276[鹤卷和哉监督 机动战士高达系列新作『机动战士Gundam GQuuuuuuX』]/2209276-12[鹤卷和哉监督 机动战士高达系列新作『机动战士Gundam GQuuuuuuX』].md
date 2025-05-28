@@ -237,3 +237,60 @@ Z上来直接看第一集观众也不知道这几年发生了啥怎么变成这�
 
 我要看血流成河，癫起来！
 
+
+*****
+
+####  ryanghj  
+##### 16304#       发表于 2025-5-28 12:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67858335&amp;ptid=2209276" target="_blank">久井路路 发表于 2025-5-28 12:33</a>
+
+不是因为喜欢学习、而是为了生活而去学习反而是更容易得到好感的要素
+
+只是不知道她具体学了多少，别那些书 ...</blockquote>
+从被一堆小物件挡住来看几乎没在学吧<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  57042711  
+##### 16305#       发表于 2025-5-28 12:38
+
+基连的秘密警察部门还是这么给力，到处都是他们的人吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+当初看那个基连暗杀计划就想吐槽了…
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  永远的春天  
+##### 16306#       发表于 2025-5-28 12:38
+
+这是奥干也出场了？
+
+
+*****
+
+####  ykyin09  
+##### 16307#       发表于 2025-5-28 12:41
+
+我一直以为被炸死的萨斯罗是gto的原创，原来以前就有这人的设定了吗
+
+*****
+
+####  ardente  
+##### 16308#       发表于 2025-5-28 12:42
+
+怎么基西莉亚身边堪用的全是少年兵是吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">倒没想到褐皮和姐姐大人还能放到拉拉身上回收的，有点变态
+
+*****
+
+####  ardente  
+##### 16309#       发表于 2025-5-28 12:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67858252&amp;ptid=2209276" target="_blank">透明马甲 发表于 2025-5-28 12:06</a>
+
+笑死，不知道的还以为古谷彻翻了什么惊天大罪。
+
+无非就欺负人家老，以及娱乐界是个垃圾罢了，日本更是垃 ...</blockquote>
+什么档次就什么待遇，当不了真的大佬就别蹭<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
