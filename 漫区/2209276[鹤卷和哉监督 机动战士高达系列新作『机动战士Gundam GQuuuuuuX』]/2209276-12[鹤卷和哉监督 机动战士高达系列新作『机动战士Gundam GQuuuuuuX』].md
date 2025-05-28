@@ -336,3 +336,37 @@ yysy，入户只是要求本科就没有普通一点的本科读吗？反正喵�
 
 预告念白特有的欢快语气吧，可能就是在预告玩玩top2的梗，正片就不这么喊
 
+
+*****
+
+####  ardente  
+##### 16314#       发表于 2025-5-28 12:57
+
+不就是鹤卷哥哥什么时候能从top2毕业的那破事吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+当然你麻球虽然是side6于北蓓，也不排除人家学校里可以那么叫
+
+*****
+
+####  ryanghj  
+##### 16315#       发表于 2025-5-28 12:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67858423&amp;ptid=2209276" target="_blank">盐盐盐盐盐 发表于 2025-5-28 12:51</a>
+
+你日因为下半身被搞倒的所谓娱乐圈大佬不少了，古谷彻有什么好喊冤的
+
+又看了一遍麻球为什么喊拉拉姐姐大人 ...</blockquote>
+可能是修司叫姐姐大人，所以玛秋问姐姐大人是谁
+
+*****
+
+####  玖羽  
+##### 16316#       发表于 2025-5-28 12:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857536&amp;ptid=2209276" target="_blank">洛克萨斯 发表于 2025-5-28 09:27</a>
+
+首席的nt能力真的很低吧..............没读心能力，又启动不了欧米茄赛克缪</blockquote>
+说起来有点地狱
+
+为什么成为首席：比他强的都死了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
