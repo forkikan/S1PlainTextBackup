@@ -2561,3 +2561,38 @@ PS5能跟PC联机吗</blockquote>
 
 5%<img src="https://static.stage1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jy000129  
+##### 6160#       发表于 2025-5-28 19:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67859946&amp;ptid=2170852" target="_blank">xinfengj 发表于 2025-5-28 19:09</a>
+
+按这个算法上海现在应该是9.6</blockquote>
+鹰都和2城失守后上海当了半天独苗，进攻度好像是10点几
+
+
+*****
+
+####  萨尤克  
+##### 6161#       发表于 2025-5-28 19:56
+
+箭畜非要按他那个斯德哥尔摩绝地反攻剧本走真的闹麻了，反正超级魔都倒了就差评然后玩别的去<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25019PNF3C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  jy000129  
+##### 6162#       发表于 2025-5-28 19:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860092&amp;ptid=2170852" target="_blank">哈迪斯兜帽 发表于 2025-5-28 19:52</a>
+
+上海寄了我就去打虫子，斯德哥尔摩埃及拔守不守
+
+超级地球是投注
+
+有个哥们想端午打的，可以让他不用买了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">保纽约也是保上海，没毛病
+
