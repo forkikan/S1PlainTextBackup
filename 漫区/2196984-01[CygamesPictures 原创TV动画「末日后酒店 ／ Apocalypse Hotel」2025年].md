@@ -4387,3 +4387,16 @@ PV里猫猫头形态八千代还没回收的，后面肯定变回来</blockquote
 
 用了七集的酒店十训标题在这一集八千代暴走并想给酒店留下新的遗产的故事下，换成了最后在墙上写下的新留言，这就是无法预知的舞台啊
 
+
+*****
+
+####  太极八爪鱼  
+##### 384#       发表于 2025-5-28 18:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67858322&amp;ptid=2196984" target="_blank">Toby_dak 发表于 2025-5-27 20:28</a>
+
+怎么是上帝智障
+
+东大不是做过实验吗，与其花燃料送到轨道再扔下来，还不如直接一发东风直接。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">因为彭子看的是伪科学杂志啊……类似奥秘的那种
+

@@ -2269,3 +2269,41 @@ gqux里面对表情特别重视，尤其是玛秋的表情，之前红迪 ...</b
 —— 来自 HONOR SDY-AN00, Android 14, 鹅球 v3.5.99</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">其实是都见到了吧（
 
+
+*****
+
+####  人形灾害  
+##### 16492#       发表于 2025-5-28 18:34
+
+这毛炸的有点吉卜力味了<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  型月神话伊阿宋  
+##### 16493#       发表于 2025-5-28 18:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67859802&amp;ptid=2209276" target="_blank">绿冰 发表于 2025-5-28 18:28</a>
+
+绿叔叔这种做事滴水不漏的人，怎么可能是被玛秋抢了高达跑了，肯定是他装的啊 ...</blockquote>
+绿叔叔已经拉了个大的了——他一直没有找到鸭子
+
+看这集结尾，鸭子搞不好长期在参与2号机的研发，却一直没有联络绿叔叔
+
+*****
+
+####  没取名啊  
+##### 16494#       发表于 2025-5-28 18:34
+
+真见了海会不会嫌弃海味道太大呢
+
+*****
+
+####  希望之异热同心  
+##### 16495#       发表于 2025-5-28 18:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67859827&amp;ptid=2209276" target="_blank">没取名啊 发表于 2025-5-28 18:34</a>
+真见了海会不会嫌弃海味道太大呢</blockquote>
+对宇宙居民来说地球的牛粪都是香的吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

@@ -2384,3 +2384,23 @@ PS5能跟PC联机吗</blockquote>
 
 陷落城市应该会有buff的，现在就有最后雨林被砍伐然后飞鹰提速。纽约陷落感觉会是黄石公园爆炸炸死一批鱿鱼？
 
+
+*****
+
+####  jy000129  
+##### 6142#       发表于 2025-5-28 18:38
+
+美国论坛那边决定大部队协防on sea，中美友好靠外星人<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  Adrenaline!!!  
+##### 6143#       发表于 2025-5-28 18:44
+
+6.6%了，进攻力度随便调逗逗你的啊，决战斯德哥尔摩才是剧本。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
