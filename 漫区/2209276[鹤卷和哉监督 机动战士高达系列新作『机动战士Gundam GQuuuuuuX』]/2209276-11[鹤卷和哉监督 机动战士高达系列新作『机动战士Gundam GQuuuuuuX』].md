@@ -15999,3 +15999,167 @@ GQX基本上都没有选旧配过的声优，所以感觉小潘和早见都不�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  巨馍蘸酱  
+##### 16243#       发表于 2025-5-28 11:20
+
+ 本帖最后由 巨馍蘸酱 于 2025-5-28 11:21 编辑 
+
+我还是觉得TV里塞的剧场版内容很生硬，剪辑也很烂，完全不流畅。感觉制作上0079IF就是单独制作的，一开始没考虑过插到TV里面吧。就该跟水魔那样单独弄个第0集。这样正片也能多点篇幅
+
+*****
+
+####  我聞如是  
+##### 16244#       发表于 2025-5-28 11:21
+
+他們也沒想過會爆紅成那樣子啦
+
+*****
+
+####  岸浪白野  
+##### 16245#       发表于 2025-5-28 11:21
+
+<img src="https://img.stage1st.com/forum/202505/28/111904d2ng85pggkkoobne.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (808.43 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 11:19 上传
+
+<img src="https://img.stage1st.com/forum/202505/28/111913b1xqfzk7rd7slr2r.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (650.31 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 11:19 上传
+
+<img src="https://img.stage1st.com/forum/202505/28/111919lugugg2h6u2538s8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (819.68 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 11:19 上传
+
+<img src="https://img.stage1st.com/forum/202505/28/111926bbqrgqhqzqsuvius.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (990.65 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 11:19 上传
+
+<img src="https://img.stage1st.com/forum/202505/28/111933grzpa5pooithopap.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (840.45 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 11:19 上传
+
+<img src="https://img.stage1st.com/forum/202505/28/112101ioq1tq3q8qs17w8s.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.15 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 11:21 上传
+
+<img src="https://img.stage1st.com/forum/202505/28/112112eq0ijffbqwqp39qp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.02 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 11:21 上传
+
+*****
+
+####  AkaiSuisei  
+##### 16246#       发表于 2025-5-28 11:23
+
+上一话浪费了20分钟这话给你漏个一分半的ED和30秒下集预告就高潮了，现在的姨姥也太好伺候了。建议鹤卷GG再接再厉，结局来个一分钟历代主角全家福直接封高父吧
+
+
+*****
+
+####  岸浪白野  
+##### 16247#       发表于 2025-5-28 11:26
+
+<img src="https://img.stage1st.com/forum/202505/28/112638pzc50yfzj6hthhhf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (892.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 11:26 上传
+
+<img src="https://img.stage1st.com/forum/202505/28/112645uco65wqrttp5ijhi.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (801.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 11:26 上传
+
+<img src="https://img.stage1st.com/forum/202505/28/112312b600t0ee6q6a0ie0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.11 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 11:23 上传
+
+<img src="https://img.stage1st.com/forum/202505/28/112319h1cs9pz218z2cn33.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.1 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 11:23 上传
+
+<img src="https://img.stage1st.com/forum/202505/28/112625hf1h2c7of977kd9h.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (973.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 11:26 上传
+
+<img src="https://img.stage1st.com/forum/202505/28/112325mgevuue3ae6tue2u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1021.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 11:23 上传
+
+<img src="https://img.stage1st.com/forum/202505/28/112607rk7nk9ktyykxbfxq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (995.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 11:26 上传
+
+<img src="https://img.stage1st.com/forum/202505/28/112614kgrzcc1rbxrfdcsz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.02 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 11:26 上传
+
+*****
+
+####  jpiajwopdm  
+##### 16248#       发表于 2025-5-28 11:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856837&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-5-28 00:20</a>
+怎么连第三适格者也跑出来了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">机库那段我以为我在看eva，一样的构图，说喵安是第三个驾驶员
+
