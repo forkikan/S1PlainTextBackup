@@ -3254,3 +3254,67 @@ FS的无双深渊<img src="https://static.stage1st.com/image/smiley/face2017/035
 暂时最低罢了，估计黄昏之血开分68</blockquote>
 黄昏之血体验再烂至少也不是那种单人没法玩的游戏类型 再加上任任的鞭子估计还是比代孙要硬 应该不会太烂吧
 
+
+*****
+
+####  zakki  
+##### 353#       发表于 2025-5-28 23:16
+
+就凭可以mod丝滑整合进本体这点，这游戏出来怎么都不亏吧，我相信很快就会有把8个boss放进本体的mod，就可以直接体验这个游戏最精华的新东西了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仓鼠吃火锅  
+##### 354#       发表于 2025-5-28 23:17
+
+看了两家评测都没在游戏影像里看到角色技能以外的新玩具，感觉就比测试版多了几个新boss<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  usodakedo  
+##### 355#       发表于 2025-5-28 23:19
+
+图一乐，不过这里面我更好奇的是euro，待会儿去看看，上次dlc的那篇文章就挺乐的
+
+5/5 - VG247
+
+9 - Gamespot
+
+9 - Game Rant
+
+9 - Shacknews
+
+8 - GamingBolt
+
+8 - Push Square
+
+7 - IGN
+
+7 - RPG Site
+
+7 - TheSixthAxis
+
+7 - Dualshockers
+
+6.5 - GamePro
+
+6 - PCGamesN
+
+4.5/5 - TheGamer
+
+4/5 - Eurogamer
+
+3/5 - VGC
+
+3/5 - Guardian
+
+
+*****
+
+####  shyso  
+##### 356#       发表于 2025-5-28 23:24
+
+好友里一个买的都没有<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+有没有同病相怜的坛友加好友一起玩？
+
