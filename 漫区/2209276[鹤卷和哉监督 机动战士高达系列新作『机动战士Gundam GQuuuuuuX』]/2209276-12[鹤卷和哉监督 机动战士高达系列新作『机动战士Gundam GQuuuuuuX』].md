@@ -2612,3 +2612,34 @@ gqux里面对表情特别重视，尤其是玛秋的表情，之前红迪 ...</b
 
 这能算野史吗？<img src="https://static.stage1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  windlikeman  
+##### 16516#       发表于 2025-5-28 20:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860114&amp;ptid=2209276" target="_blank">Ashice 发表于 2025-5-28 20:00</a>
+
+话说，紫老太婆怎么一副对鸭子有意思的样子
+
+这能算野史吗？</blockquote>
+比起对鸭子有意思更像是kirakira中毒而已
+
+三小只遨游了一下kirakira世界就这样了何况是紫色老太婆真的在眼前看到了zknv还被救了一命的
+
+说起来马克贝明明还有原作的关系在 又是军事法庭又是排挤黑三提了好多次 真的就打个酱油活在台词里么  
+
+组长高达开不上就算了连强人都不给开？<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  ryanghj  
+##### 16517#       发表于 2025-5-28 20:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860158&amp;ptid=2209276" target="_blank">windlikeman 发表于 2025-5-28 20:09</a>
+
+比起对鸭子有意思更像是kirakira中毒而已
+
+三小只遨游了一下kirakira世界就这样了何况是紫色老太婆真的在 ...</blockquote>
+最后一话大决战应该会有戏份吧
+

@@ -2596,3 +2596,11 @@ PS5能跟PC联机吗</blockquote>
 有个哥们想端午打的，可以让他不用买了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">保纽约也是保上海，没毛病
 
+
+*****
+
+####  qwased  
+##### 6163#       发表于 2025-5-28 20:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个b光能真有点无聊吧，打到现在感觉还是虫子＞机器人＞光能，跟一代反过来了
+
