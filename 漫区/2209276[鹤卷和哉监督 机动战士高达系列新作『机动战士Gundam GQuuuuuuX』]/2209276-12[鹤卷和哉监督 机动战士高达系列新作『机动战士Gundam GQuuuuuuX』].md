@@ -2135,3 +2135,137 @@ gqx放任可能是因为不是手电筒系统核心吧，基西莉亚有gfrd就�
 本日フォロワー数が【35万人】を突破しました！</blockquote>
 绷带都上了看来果然啥啥不带就搞单机突入大气层横竖得受点伤
 
+
+*****
+
+####  盐盐盐盐盐  
+##### 16477#       发表于 2025-5-28 18:24
+
+麻球多久没笑这么开心了，真怀念啊（
+
+*****
+
+####  没取名啊  
+##### 16478#       发表于 2025-5-28 18:26
+
+不用气球不用飞行甲板降下地球就是这个下场吗，小孩摔得不轻哦
+
+*****
+
+####  芝村舞  
+##### 16479#       发表于 2025-5-28 18:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67859772&amp;ptid=2209276" target="_blank">七七見奈波 发表于 2025-5-28 18:22</a>
+
+绷带都上了看来果然啥啥不带就搞单机突入大气层横竖得受点伤</blockquote>
+从第一话就体现出的恶魔一样的身体能力
+
+但是被剧本作家夏莉雅使用了“必晕”规则的BEAM炮
+
+*****
+
+####  jojonathan  
+##### 16480#       发表于 2025-5-28 18:26
+
+比较好奇side6上发生恐怖袭击的新闻地球会播吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说不定番茄已经在地球圈出道了
+
+
+*****
+
+####  芝村舞  
+##### 16481#       发表于 2025-5-28 18:27
+
+炸毛番茄至少不会变成卡珍蒂娜了
+
+*****
+
+####  ryanghj  
+##### 16482#       发表于 2025-5-28 18:27
+
+玛秋这表情真不错，这么开心果然是见到牢修本人了吧
+
+gqux里面对表情特别重视，尤其是玛秋的表情，之前红迪那个自称二原的人也说他主要负责表情，我估计有不少人在当表情监修
+
+*****
+
+####  无念  
+##### 16483#       发表于 2025-5-28 18:27
+
+看起来好像只是擦伤或者手臂受伤，估计突入阶段没啥大问题，进了大气层发现偏离目标或者不熟悉重力瞎摆弄导致坠机
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  猪突猛进R  
+##### 16484#       发表于 2025-5-28 18:27
+
+炸毛番茄可爱捏
+
+*****
+
+####  赤黑的假面  
+##### 16485#       发表于 2025-5-28 18:27
+
+<blockquote>oi99o 发表于 2025-5-28 18:15
+◤フォロワー数35万人◢
+
+本日フォロワー数が【35万人】を突破しました！
+</blockquote>
+战损machu还行
+
+*****
+
+####  ヒトニナル  
+##### 16486#       发表于 2025-5-28 18:28
+
+这表情真灵动呀
+也更像开鬼火结果摔了的精神小妹了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  绿冰  
+##### 16487#       发表于 2025-5-28 18:28
+
+绿叔叔这种做事滴水不漏的人，怎么可能是被玛秋抢了高达跑了，肯定是他装的啊
+
+*****
+
+####  cih  
+##### 16488#       发表于 2025-5-28 18:29
+
+太TM笑了，拍不了机战戏了就是大机器人没用，人设顶级是指开始来的都为了看宇宙厕妹历险记的？😂😂
+
+
+*****
+
+####  无念  
+##### 16489#       发表于 2025-5-28 18:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67859794&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-28 18:27</a>
+玛秋这表情真不错，这么开心果然是见到牢修本人了吧
+
+gqux里面对表情特别重视，尤其是玛秋的表情，之前红迪 ...</blockquote>
+也有可能是对面是大海<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  a85982313  
+##### 16490#       发表于 2025-5-28 18:31
+
+炸毛番茄可爱
+
+*****
+
+####  ryanghj  
+##### 16491#       发表于 2025-5-28 18:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67859813&amp;ptid=2209276" target="_blank">无念 发表于 2025-5-28 18:30</a>
+
+也有可能是对面是大海
+
+—— 来自 HONOR SDY-AN00, Android 14, 鹅球 v3.5.99</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">其实是都见到了吧（
+

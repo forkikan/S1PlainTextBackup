@@ -2972,3 +2972,41 @@ Xbox也开始疯狂断线了<img src="https://static.stage1st.com/image/smiley/f
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ParadiseMartyr  
+##### 323#       发表于 2025-5-28 18:30
+
+宫崎英高跌落神坛
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  usodakedo  
+##### 324#       发表于 2025-5-28 18:32
+
+这作和宫崎还真没啥关系，不如说是考察一下宫崎手下这帮人的水平吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ParadiseMartyr  
+##### 325#       发表于 2025-5-28 18:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">duskblood不和这玩意差不多
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  usodakedo  
+##### 326#       发表于 2025-5-28 18:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67859822&amp;ptid=2210352" target="_blank">ParadiseMartyr 发表于 2025-5-28 18:32</a>
+duskblood不和这玩意差不多
+
+—— 来自 鹅球 v3.3.96</blockquote>
+合作pve和pvpve还是差距很大的吧，而且那作看访谈可能是结合了对抗团元素，画的饼还挺多的，真能做好倒是挺有看头的
+
