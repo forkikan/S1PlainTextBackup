@@ -4341,3 +4341,13 @@ PV里猫猫头形态八千代还没回收的，后面肯定变回来</blockquote
 第八集结尾借八千代之口解释，迫切想要做到什么，以及反叛原有的使命，意味着青年的青春期和叛逆期。
 如果可以加上这样的解读，那将会十分有意思，前7集描绘人类集体的历史，后5集描绘人类个体的历史。
 
+
+*****
+
+####  白玫瑰之夜  
+##### 379#       发表于 2025-5-28 15:55
+
+精神小妹八千代的审美实际牙白<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2337A, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
