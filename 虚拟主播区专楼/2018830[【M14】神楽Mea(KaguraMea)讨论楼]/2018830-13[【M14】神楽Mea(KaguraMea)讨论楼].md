@@ -11329,3 +11329,13 @@ Good。
 
 至少直播频率不低
 
+
+*****
+
+####  sino__unnko3  
+##### 18586#       发表于 2025-5-29 01:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860781&amp;ptid=2018830" target="_blank">术士q 发表于 2025-5-28 23:00</a>
+因为想着咩在youtube留的档是会随着时间的流逝删除的，而这样的话后面来不及看的财布是很难知道当天唱的歌 ...</blockquote>
+要是那个不再更新的，你咩也在看的文档能继续更新就好了
+
