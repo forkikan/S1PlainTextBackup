@@ -2671,3 +2671,55 @@ PS5能跟PC联机吗</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我麻了好吧，打了一晚上鱿鱼
 
+
+*****
+
+####  plok201  
+##### 6171#       发表于 2025-5-28 22:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等一波公关烟火了，大伙也就装入戏来点角色扮演找乐子，你把戏台拆了说早点醒醒，那就别怪大伙咯
+
+*****
+
+####  Adrenaline!!!  
+##### 6172#       发表于 2025-5-28 22:09
+
+s1算比较和平了，其他地方的云玩家冒充有票者看着更高血压，游戏机制弄不明白活在自己臆想世界还指导起来了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  风萧飒  
+##### 6173#       发表于 2025-5-28 22:10
+
+单城7.8其实还可以，不算很高
+
+<img src="https://img.stage1st.com/forum/202505/28/221037ecctir1if0exneg7.jpg" referrerpolicy="no-referrer">
+
+<strong>2F9A42127074B95E8940AE2651999F1B84016421.jpg</strong> (731.54 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 22:10 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  RPMWT  
+##### 6174#       发表于 2025-5-28 22:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860527&amp;ptid=2170852" target="_blank">xinfengj 发表于 2025-5-28 21:53</a>
+
+大概就像玩山口山选了金色平原然后在公屏问为什么你们说话都这么奇怪</blockquote>
+哦，看来是我对管理式民主的学习不够深入<img src="https://static.stage1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狼影者瑞德克斯  
+##### 6175#       发表于 2025-5-28 22:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">如果箭头非要按着玩家头跟着他们那个B剧本走，我想不少潜兵也就能体会到33远征队队员的无奈了
+

@@ -3051,3 +3051,36 @@ pvpve不要搞成搜打撤就行
 
 就当成一个独立卖的法环版圣杯地牢就是了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  crosz1985  
+##### 332#       发表于 2025-5-28 22:09
+
+国内媒体评价不佳，a9直接不敢给分了还行
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  医生狼多  
+##### 333#         楼主| 发表于 2025-5-28 22:14
+
+ 本帖最后由 医生狼多 于 2025-5-28 22:15 编辑 
+
+mc开分78分，ign7，gs9鉴定为<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+【UCG】6.6丨跌落神坛《艾尔登法环 黑夜君临》评测
+
+——那你愿意跟我组一辈子的《艾尔登法环 黑夜君临》吗
+——不愿意（果断）
+
+策划/统筹/监制：德雷克
+文案：三日月
+素材：三日月/黑歌
+配音：DonST﻿
+剪辑：沧山
+合作联络：稀饭/白鲸/山茶/六段音速 http://t.cn/A6gDykIH ​​​
+
+【《艾尔登法环 黑夜君临》评测：给爽十分 不爽负分】《黑夜君临》是From Software旗下最新的协力型动作游戏，以2022年的TGA年度游戏《艾尔登法环》为基础，对已经成熟的玩法进行了重新架构。本次我们提前获得了评测资格，将对这部作品进行一个大概的评测。 http://t.cn/A6gDykyG ​​​
+
