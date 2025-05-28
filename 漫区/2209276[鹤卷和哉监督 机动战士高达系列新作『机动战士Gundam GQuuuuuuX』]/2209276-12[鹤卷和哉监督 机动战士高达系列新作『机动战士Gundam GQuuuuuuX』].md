@@ -3107,3 +3107,216 @@ gqux里面对表情特别重视，尤其是玛秋的表情，之前红迪 ...</b
 
 这片丢掉神秘感情线和男人立马好看多了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">二号机丑得像蝙蝠怪人，不能接受
 
+
+*****
+
+####  woui003woui  
+##### 16565#       发表于 2025-5-28 22:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860695&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-28 22:33</a>
+魔女是不是半集人设就立起来了？
+
+杜是不是两句话就把所有信息都表达出来了？“我是精神力高达的心脏”“ ...</blockquote>
+这就是问题所在，魔女只出场一集，修司出场几集？制作组截止目前前后塑造留了多少钩子多少回收，你看给修司设置了什么？其他两个人，或者说其他所有角色只要出场就有人物性格塑造/背景交代，修司没有啊。
+这点很明显是制作组有意为之的，要说前面特意不留钩子八集不做塑造是为了后面大反转，那我还宁愿信他会进一步抽象化，落地我是想不出来要怎么高格调落成前八集的红高机魂状态……
+
+*****
+
+####  Piano-Forest  
+##### 16566#         楼主| 发表于 2025-5-28 22:39
+
+<img src="https://p.sda1.dev/24/391a5bc7357e112df7fa5ab26de1d2e6/20250528_193431.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/e095e7ce20c6bf907f31c31d76a92823/20250528_193442.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/f923984713b15e852f526a7b75277267/20250528_193451.jpg" referrerpolicy="no-referrer">
+
+【特装版・表紙解禁!!!】
+
+6月4日発売の7月号、#機動戦士ガンダム の表紙ビジュアルを解禁！ 特集は #GQuuuuuuX から #鶴巻和哉 監督らが出演。ガンダムの歴代クリエーター、キャストが勢揃いした「永久保存版」。
+
+富野由悠季総監督 のスペシャルインタビューも！ 
+<img src="https://p.sda1.dev/24/1a0506fa35837a06a83ab9dcdc679e83/20250528_193500.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/24/d8a057bf4e73d3d8a1b3b604ab7183b1/20250528_193519.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/a1f2bf5ce85e97f184bd758f3795cd81/20250528_193520.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/1f4698c9e0b9267b83e8477052e0699b/20250528_193521.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/57dbe10943c6cf97b0f07bcc71d6b718/20250528_193522.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/24/2cf83faa48c8cb1595c72a8684e092a5/20250528_193526.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/675ce970cbf10ac652b0110d512b055f/20250528_193527.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/b6fb23c3869a1427eceb77fa3d6a8662/20250528_193528.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/ff4b652e139c87c215ad8c3095334017/20250528_193530.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/24/df721f2388128f8b2db68fe7cda66255/20250528_194231.jpg" referrerpolicy="no-referrer">
+
+[https://m.weibo.cn/detail/5171200500171055](https://m.weibo.cn/detail/5171200500171055)
+
+夏亚这个新马甲シロウズ，是以前在flcl关联的访谈里鹤卷说过对自己影响最大的sf作品之一《归于黄昏》的主角的名字
+
+[https://m.weibo.cn/detail/5171171903406249](https://m.weibo.cn/detail/5171171903406249)
+
+因为这次的新机名称已经确定是GFreD（ジフレド），对应可以知道这次高达的命名方式是采用了“元语法”中的占位符变量——依次对应是foo（1）、bar（2）2…qux（4）、quux（5）——按照这个顺序，quuuuuux对应9、fred对应10
+
+所以GQuuuuuuX=高达9号机、GfreD=高达10号机
+
+第八话末尾出现的博士姓名neta绘本作家レオ･レオニ（以及绘本アレクサンダとぜんまいねずみ中的一幕）
+[https://x.com/tarachine10000/status/1927540269861278015](https://x.com/tarachine10000/status/1927540269861278015)
+
+ニャアンはマチュを『本物』だと思ってるからの、唐突なレオ＝レオニ博士
+
+アレクサンダとぜんまいねずみ かしら？
+
+レオ＝レオニ原作の絵本では、
+
+『本物』になって自由を得た2人が
+
+『よあけまで おどりつづけた』んですよ。
+
+たのむよ。
+<img src="https://p.sda1.dev/24/087bc170fc08290297bece0f10ebb49c/IMG_20250528_194022.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 16567#         楼主| 发表于 2025-5-28 22:39
+
+[https://x.com/dowagers/status/1927393767272693830](https://x.com/dowagers/status/1927393767272693830)
+
+8話ご視聴ありがとうございました！
+
+後半の「月に堕ちる」パートのキャラ作監で参加しました✍️
+
+配信も宜しくお願い致します。
+
+9話も楽しみ…！
+<img src="https://p.sda1.dev/24/c47bfdee1e38161e38254dbc7693b401/20250528_193218.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/HideMatsubara/status/1927478273786654905](https://x.com/HideMatsubara/status/1927478273786654905)
+
+『機動戦士Gundam GQuuuuuuX』第8話、御鑑賞ありがとうございます。
+
+お楽しみいただけてるでしょうか。
+
+これからの各社放送、配信もよろしくお願いします。
+
+来週もお楽しみに。
+<img src="https://p.sda1.dev/24/de42e67cb78238659a7d0295ce2c2a4a/20250528_193315.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/daizenium/status/1927394492501410252](https://x.com/daizenium/status/1927394492501410252)
+
+『機動戦士Gundam GQuuuuuuX』
+
+第八話ご視聴ありがとうございました。
+
+「月に墜ちる」パートの演出を担当させていただきました。
+
+子供の頃から敬愛する人物たちの登場する話数に携われたのは、うれしくて震えます。
+
+記念に絵でもと思ったのですが、途中で力尽きました笑
+
+[https://x.com/tocodot/status/1927393366032978088](https://x.com/tocodot/status/1927393366032978088)
+
+『機動戦士Gundam GQuuuuuuX』
+
+8話「月に堕ちる」演出を担当しました！
+
+ご視聴ありがとうございました📺
+
+配信もぜひよろしくお願いします🖥
+<img src="https://p.sda1.dev/24/d24c7bfdae29d3d447fee920374fd3a9/20250528_193243.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/kouda_nyo/status/1927394134077145296](https://x.com/kouda_nyo/status/1927394134077145296)
+
+ジフレドでてきた
+<img src="https://p.sda1.dev/24/bbddb860e16fa58adaa5789ca0d3f08b/20250528_193239.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/YY_shibata/status/1927393170481938724](https://x.com/YY_shibata/status/1927393170481938724)
+
+第8話ご視聴いただきありがとうございます！
+
+動画で参加しております！
+
+配信等でもお楽しみください！
+<img src="https://p.sda1.dev/24/4ca3b6c0fdd8534cf3bf085367666c18/20250528_193228.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/de7413a005c0075c427f31a06005d9b9/20250528_193232.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/nkn_ruka/status/1927393616281923595](https://x.com/nkn_ruka/status/1927393616281923595)
+
+第8話、動画で参加しておりました！！
+
+本当にありがとうございました！
+<img src="https://p.sda1.dev/24/84f2f27282cad508aad8a27a499e7739/20250528_193204.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/f08aa5592be2119316154aa50cd955b6/20250528_193208.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/church0620/status/1927395797345153402](https://x.com/church0620/status/1927395797345153402)
+
+8話ご視聴ありがとうございます!
+
+来週もお楽しみに!!
+<img src="https://p.sda1.dev/24/390f8c5562915e15ae127f8dfa317581/20250528_193250.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/period_yoooou11/status/1927393663916580955](https://x.com/period_yoooou11/status/1927393663916580955)
+
+ジークアクス8話ご視聴ありがとうございました！
+
+動画として微力ながら参加させていただきました！
+
+引き続きお楽しみいただければ嬉しいです！
+<img src="https://p.sda1.dev/24/c2461ff5806e09dd88803bff2a81f223/20250528_193247.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/inadanuka/status/1927596804100571535](https://x.com/inadanuka/status/1927596804100571535)
+
+8話ありがとうございました〜〜　アップルパイおいしそうで最高です
+
+I joined GQuuuuuuX ep8 as genga
+<img src="https://p.sda1.dev/24/cfd292a029a77d3c3d680dacfa43f2c3/20250528_193348.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ryanghj  
+##### 16568#       发表于 2025-5-28 22:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860708&amp;ptid=2209276" target="_blank">woui003woui 发表于 2025-5-28 22:38</a>
+
+这就是问题所在，魔女只出场一集，修司出场几集？制作组截止目前前后塑造留了多少钩子多少回收，你看给修 ...</blockquote>
+很明显修司的钩子是和核心谜题挂钩的，要解密就一起解
+
+反正9 10两集就要解了，看看就知道了，我选择相信鹤卷和哉<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 16569#       发表于 2025-5-28 22:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860656&amp;ptid=2209276" target="_blank">盐盐盐盐盐 发表于 2025-5-28 22:23</a>
+
+有什么不好理解的，动画里男主看天降美少女就走不动道的多了去了，女主角看天降帅哥走不动道也很正常 ...</blockquote>
+这里的重点是，修司强烈改变了两个女主角的人物弧光，但是他并没有（还没有）有意去做什么
+
+krkr不是一个能让观众共情的理由，开高达是因为“高达叫他这么做”
+
+“男主角看天降美少女走不动道”一般只是给男主角提供行动的契机，或者是单纯的色狼描写，不涉及改变人物弧光（如果真的改变了，那同样是问题）
+
+而“女主角看天降帅哥走不动道”的问题都是，帅哥一出现，女主角的人物弧光马上大变，某甲铁城和某蒜都是这样
+
+所以这跟性别无关，强烈改变主角的人物弧光，必须对应一个同样强烈的行动和情节，否则一定会缺乏说服力，更不用说这里改变的是两个女主角
+
+*****
+
+####  conanlm  
+##### 16570#       发表于 2025-5-28 22:46
+
+所以决战是俩女主争斗时误杀修司，最终两人反目
+
+*****
+
+####  aptx8285144  
+##### 16571#       发表于 2025-5-28 22:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860696&amp;ptid=2209276" target="_blank">没钱打不起酱油 发表于 2025-5-28 22:34</a>
+
+性转版本还是和传统那挂有本质区别的，社会期望就不一样
+
+说白了传统定位女主只要是个美少女观众就放你过去 ...</blockquote>
+那到不至于，也许宽容度上有差别，但是如果假设修司是女的，另外两个是男的，也是这么神神叨叨，迟早也要激起起码老宅们的不满，<strong>因为说到底二次元的美少女是比三次元的狗还多的存在<strong></strong></strong><img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">，玲芽之旅在铃芽离开东京时男主就有一个救灾这种还能让观众代入朴素情感的现实目的（已经揭开），而这边去地球还是太有个人目的了，更不易引发共情
+

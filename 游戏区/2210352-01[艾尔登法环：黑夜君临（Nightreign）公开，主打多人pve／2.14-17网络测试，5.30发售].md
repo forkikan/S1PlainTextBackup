@@ -3101,3 +3101,29 @@ a9连分都不敢打了<img src="https://static.stage1st.com/image/smiley/face20
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  modkingr  
+##### 336#       发表于 2025-5-28 22:39
+
+媒体评价扑街了这是
+
+*****
+
+####  budong  
+##### 337#       发表于 2025-5-28 22:40
+
+Gs 9，我信了
+
+
+*****
+
+####  屌丶哲  
+##### 338#       发表于 2025-5-28 22:42
+
+基本都提到一点： “玩了半天不知道自己在玩肉鸽”
+
+角色升级提升的数值是根据职业固定的，肉鸽游戏的随机BUFF只有简单的数值提升，没有特殊效果。
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那还肉鸽个什么劲啊
+
