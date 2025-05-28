@@ -2473,3 +2473,25 @@ PS5能跟PC联机吗</blockquote>
 
 打机器人MO出来我就知道开始犯畜倒计时了，真不要期待这帮子人太多
 
+
+*****
+
+####  xinfengj  
+##### 6152#       发表于 2025-5-28 19:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67859936&amp;ptid=2170852" target="_blank">斯城恶魔 发表于 2025-5-28 19:06</a>
+
+直接投降吧，纽约倒了**直接6.6+4.8，全服的人加起来都守不住
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+按这个算法上海现在应该是9.6
+
+*****
+
+####  敏感词好多  
+##### 6153#       发表于 2025-5-28 19:09
+
+箭头要把上海送了好不容易起来的国区口碑又得炸了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
