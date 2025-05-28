@@ -4475,3 +4475,13 @@ CygamesPictures在这片的打戏质量确实没得说，<strong>经常</strong>
 
 2025年度最佳，翻车几率绝对的0%
 
+
+*****
+
+####  ayanamilin  
+##### 393#       发表于 2025-5-29 00:06
+
+这一集作画确实爽，剧情也是相当的无厘头。
+
+不过我本来就是被第六集最后两分钟吸引来看的，完结前再弄个差不多水平的煽情桥段让我爽一次就够了<img src="https://static.stage1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">。
+

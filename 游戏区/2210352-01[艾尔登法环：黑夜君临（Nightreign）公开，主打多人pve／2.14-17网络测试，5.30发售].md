@@ -3342,3 +3342,11 @@ FS的无双深渊<img src="https://static.stage1st.com/image/smiley/face2017/035
 
 我丝毫不关心评分，说实话组队pve就没有玩的欲望
 
+
+*****
+
+####  binggo12  
+##### 360#       发表于 2025-5-28 23:58
+
+gs这都能给9分,有点孝了
+
