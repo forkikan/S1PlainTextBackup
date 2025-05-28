@@ -2029,3 +2029,14 @@ rnmd委托要夺取一台机子，系列关卡全扫荡一轮一台没出，你�
 2是当对 ...</blockquote>
 你在45号位放够低血量的，强自会跑到4格距离用小水枪
 
+
+*****
+
+####  hayate0079  
+##### 1665#       发表于 2025-5-28 17:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67859381&amp;ptid=2071758" target="_blank">闲度朝夕 发表于 2025-5-28 16:59</a>
+
+你在45号位放够低血量的，强自会跑到4格距离用小水枪</blockquote>
+他应该是根据盾来的
+

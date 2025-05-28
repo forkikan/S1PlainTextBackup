@@ -2794,3 +2794,16 @@ anime corner上周又排名第三了，海外还是挺有受众的。
 
 目前在日本本季动画中热度如何？
 
+
+*****
+
+####  然后成为树洞  
+##### 248#       发表于 2025-5-28 17:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67859410&amp;ptid=2125794" target="_blank">行政裁定书 发表于 2025-5-28 17:05</a>
+
+anime corner上周又排名第三了，海外还是挺有受众的。
+
+目前在日本本季动画中热度如何？ ...</blockquote>
+在日本热度不如路边一条
+
