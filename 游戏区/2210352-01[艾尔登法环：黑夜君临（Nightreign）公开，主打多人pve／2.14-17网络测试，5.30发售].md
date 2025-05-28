@@ -2901,3 +2901,28 @@ Xbox也开始疯狂断线了<img src="https://static.stage1st.com/image/smiley/f
 
 结合目前放出来的信息和泄露信息，内容量真的相当少，除了角色个人剧情被官方限制剧透外基本都给你在pv里展示完了，几个额外地形也疑似是固定关卡敌人组合，先猜一个7分往下<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  woshenc  
+##### 317#       发表于 2025-5-28 10:27
+
+这个是fs社过渡作品，填充时间用的吧？
+
+宫崎小高在开发什么新作品呢？一点消息和传闻都没有的吗？
+
+两个组的话，黑魂组开发法环，另一个组只狼19年，机甲23年，别和我说之后就是在开发这个啊？<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  医生狼多  
+##### 318#         楼主| 发表于 2025-5-28 10:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857830&amp;ptid=2210352" target="_blank">woshenc 发表于 2025-5-28 10:27</a>
+这个是fs社过渡作品，填充时间用的吧？
+
+宫崎小高在开发什么新作品呢？一点消息和传闻都没有的吗？
+
+两个组的 ...</blockquote>
+老贼在开发duskblood啊，ns2独占
+
