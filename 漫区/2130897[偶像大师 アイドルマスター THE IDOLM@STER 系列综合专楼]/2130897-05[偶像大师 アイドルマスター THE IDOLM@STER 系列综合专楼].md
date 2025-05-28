@@ -478,3 +478,11 @@ Spotlight Star Day 2 Setlist (於17:01(UTC+9)開演)：
 
 不然也太奇怪了，突然就中国的制作人们你好<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  patema  
+##### 6997#       发表于 2025-5-28 14:32
+
+开国服是那里的消息
+

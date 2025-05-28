@@ -691,3 +691,64 @@ gqux真有这么大力量的话紫色老太婆放任不管又很玄乎了，哪�
 
 而且船上不是绿叔叔完全掌权
 
+
+*****
+
+####  ヒトニナル  
+##### 16349#       发表于 2025-5-28 14:29
+
+我觉得按GQX beginning这个塑造，绿叔叔是不会在意算到最后被夏亚算的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ykyin09  
+##### 16350#       发表于 2025-5-28 14:31
+
+最后一集ed直接放翻唱版beyond the time吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rockroxas  
+##### 16351#       发表于 2025-5-28 14:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67858696&amp;ptid=2209276" target="_blank">ftyaid 发表于 2025-5-28 14:24</a>
+
+上集相信绿叔叔不是基连那边的，所以给他GQUX让他去干特殊任务了
+
+而且船上不是绿叔叔完全掌权 ...</blockquote>
+问题是她对自己身边掌控力都这么差，就算这船绿叔叔不能掌权，对她来说区别也不大吧
+
+
+*****
+
+####  南朝Sonicbbs  
+##### 16352#       发表于 2025-5-28 14:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67858022&amp;ptid=2209276" target="_blank">透明马甲 发表于 2025-5-28 11:07</a>
+
+我回顾了一下前30页。
+
+再看现在。</blockquote>
+岂止，我是从第一页开始爬的，前100页的猜测全部没中！
+
+*****
+
+####  瓦拉几亚之夜  
+##### 16353#       发表于 2025-5-28 14:33
+
+米格尔做了四份蛋糕，但泽维尔不知道蛋糕的味道，说明不是米格尔认为泽维尔没有毒杀的价值，而是泽维尔自己没有去吃蛋糕。从这点看泽维尔的NT能力是强过那俩个死鬼的，也可能只是他心计更深。无论是哪条原因，他都没看上去的那么傻，首席是当之无愧。
+
+*****
+
+####  妄想系同盟  
+##### 16354#       发表于 2025-5-28 14:33
+
+这集的猜测总觉得在隔壁的野史二创贴里看到过<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 16355#       发表于 2025-5-28 14:34
+
+这集紫婆手下俩内鬼虽然有基连间谍这层背景在，但是给出来的形象都不像是纯粹的基连派，反而像是某些第三方势力
+

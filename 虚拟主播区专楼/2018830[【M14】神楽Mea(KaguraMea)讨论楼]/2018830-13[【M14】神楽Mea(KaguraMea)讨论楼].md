@@ -11265,3 +11265,13 @@ Good。
 
 跳脸跳到youtube是真的贱<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，惯不了一点
 
+
+*****
+
+####  TiHaru  
+##### 18581#       发表于 2025-5-28 14:32
+
+时隔几年体会到当初mixi的感受，也算是一种回旋镖了
+
+还不能在公开场合说，怕被主播点草
+
