@@ -3228,3 +3228,29 @@ FS的无双深渊<img src="https://static.stage1st.com/image/smiley/face2017/035
 
 跌落神坛了
 
+
+*****
+
+####  爱护动物抓根宝  
+##### 351#       发表于 2025-5-28 23:06
+
+机翻看了下GS也太孝了，尤其是最后的简评图，什么搜打撤最后回答，众多大厂苦苦追寻而不得的终极塔科夫居然被小高搓出来了可还行
+
+<img src="https://img.stage1st.com/forum/202505/28/230710stnvkvkcpykq6fkc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.03 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 23:07 上传
+
+*****
+
+####  鈴姉御肌  
+##### 352#       发表于 2025-5-28 23:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860783&amp;ptid=2210352" target="_blank">雪菜碧池 发表于 2025-5-28 23:00</a>
+
+暂时最低罢了，估计黄昏之血开分68</blockquote>
+黄昏之血体验再烂至少也不是那种单人没法玩的游戏类型 再加上任任的鞭子估计还是比代孙要硬 应该不会太烂吧
+

@@ -2755,3 +2755,15 @@ s1算比较和平了，其他地方的云玩家冒充有票者看着更高血压
 
 贱头是真不会运营，不如直接把运营部分外包给cn分部算了
 
+
+*****
+
+####  风萧飒  
+##### 6180#       发表于 2025-5-28 23:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860749&amp;ptid=2170852" target="_blank">DawnGuardian 发表于 2025-5-28 22:49</a>
+贱头是真不会运营，不如直接把运营部分外包给cn分部算了</blockquote>
+那个运营是索尼搞的，你可要想清楚，这游戏差评最多的一个阶段是因为什么<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
