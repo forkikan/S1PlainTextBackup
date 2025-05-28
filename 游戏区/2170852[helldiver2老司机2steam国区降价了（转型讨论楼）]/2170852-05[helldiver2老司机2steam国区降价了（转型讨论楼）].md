@@ -2911,3 +2911,34 @@ DSS来了 后半夜不愁了
 
 一场虚惊，白天再说
 
+
+*****
+
+####  chgzzl  
+##### 6196#       发表于 2025-5-29 01:01
+
+决战兵器太强了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
+
+*****
+
+####  风萧飒  
+##### 6197#       发表于 2025-5-29 01:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67861071&amp;ptid=2170852" target="_blank">穿越护城河 发表于 2025-5-29 00:54</a>
+不对劲，搞不好真要摁头
+
+不过刚刚进度又回来了，不排除是服务器问题</blockquote>
+这是民间接箭头api搞的网站，经常会卡的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  穿越护城河  
+##### 6198#       发表于 2025-5-29 01:02
+
+估计是箭头数据被干爆了，我错怪他了
+
