@@ -2775,3 +2775,13 @@ s1算比较和平了，其他地方的云玩家冒充有票者看着更高血压
 
 dss发力了，on sea正在以每小时7个点的速度快速回血<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fbman  
+##### 6182#       发表于 2025-5-29 00:20
+
+这决战兵器居然真的有用吗
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
