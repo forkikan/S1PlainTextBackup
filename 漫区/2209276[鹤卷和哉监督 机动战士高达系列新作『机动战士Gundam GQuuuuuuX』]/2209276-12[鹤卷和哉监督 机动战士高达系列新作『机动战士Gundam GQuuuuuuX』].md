@@ -514,3 +514,39 @@ yysy，入户只是要求本科就没有普通一点的本科读吗？反正喵�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Sliurus  
+##### 16332#       发表于 2025-5-28 13:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67858535&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-28 13:35</a>
+
+看有人提到才意识到，紫婆请喵安吃派，本质上和安琪请玛秋吃甜甜圈一样
+
+背后都有利用的心思 ...</blockquote>
+那不是三集内要反紫婆了？<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakufa782  
+##### 16333#       发表于 2025-5-28 13:44
+
+<blockquote>Sabbah 发表于 2025-5-28 13:28
+虽然盐泽兼人的确是万中无一，但让杉田智和替他玩cosplay也太勉强了
+
+很努力地模仿，然后被自己的声线无情 ...</blockquote>
+GTO里的山崎巧其实就接的很好，这次找名冢和杉田多少也是和正史做出区别
+
+*****
+
+####  Toby_dak  
+##### 16334#       发表于 2025-5-28 13:47
+
+个人感觉吧，喵安问地球那幕用独白自问自答可能更好，更突出落寞感。
+
+好比0083这幕。
+<img src="https://p.sda1.dev/24/9744d0bc8bede47b8755dfe7a8a333f8/1000113990.jpg" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.46)
+

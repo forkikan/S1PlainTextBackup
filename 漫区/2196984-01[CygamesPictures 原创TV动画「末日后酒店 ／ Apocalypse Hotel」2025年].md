@@ -4303,3 +4303,30 @@ PV里猫猫头形态八千代还没回收的，后面肯定变回来</blockquote
 
 上一集搞了一集的上帝之杖结果这集还是换成用导弹了
 
+
+*****
+
+####  aptx8285144  
+##### 375#       发表于 2025-5-28 13:43
+
+大为震撼，这是基拉大战阿斯兰还是朱雀大战鲁路修，写给机战的情书吗<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dqtql  
+##### 376#       发表于 2025-5-28 13:46
+
+这战斗桥段比隔壁高达好看多了
+
+*****
+
+####  aptx8285144  
+##### 377#       发表于 2025-5-28 13:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857981&amp;ptid=2196984" target="_blank">TOYSTORY 发表于 2025-5-28 10:59</a>
+
+后半段太胡逼了，前几话也就山寨妇联乱入有点这种感觉
+
+预告里棚子打的其实是变暴走族发癫的八千代这谁想得 ...</blockquote>
+披着复联外皮的萝卜片修正(拳)大战<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，最后拥抱那一下还挺感动的，虽然又吐水显得生草233
+
