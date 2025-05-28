@@ -2185,3 +2185,17 @@ https://www.bilibili.com/video/BV1pwQSYjE5M/
 
 乔尔玩不起，现在三城4.8，大家一起死<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jy000129  
+##### 6122#       发表于 2025-5-28 08:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856392&amp;ptid=2170852" target="_blank">哈迪斯兜帽 发表于 2025-5-27 22:08</a>
+快速匹配被老外拉去打纽约了
+
+纽约怎么只有30%多了</blockquote>
+昨天纽约的光能进攻度是6.8%，上海进攻度好像只有3.6%
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

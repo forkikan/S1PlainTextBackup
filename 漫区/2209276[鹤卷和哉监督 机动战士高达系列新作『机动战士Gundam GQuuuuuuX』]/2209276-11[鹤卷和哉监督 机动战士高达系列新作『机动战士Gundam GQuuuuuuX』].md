@@ -14831,3 +14831,56 @@ gainax倒闭是早就注定了，和他有什么关系。
 
 怎么，这楼是你盖的啊，你定义的啊，你**谁啊
 
+
+*****
+
+####  mengsu  
+##### 16138#       发表于 2025-5-28 08:28
+
+所以这个世界是不是可能只有拉拉是来自旧时间线的穿越者，为了改变鸭子和骡子的命运操作了这一系列事情呢。
+
+*****
+
+####  梦诗歌雪  
+##### 16139#       发表于 2025-5-28 08:28
+
+拉拉是夏亚的妈妈，现在又成了麻球的姐姐，所以麻球是夏亚的姨妈？
+
+
+*****
+
+####  qixinno2  
+##### 16140#       发表于 2025-5-28 08:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人和人是无法互相理解的 
+
+7RJ]`B5XSLCGUL~){%XG@T8.jpg
+(23.69 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 08:31 上传
+
+<img src="https://img.stage1st.com/forum/202505/28/083149dlcwueuac5iuyw8c.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Libartas  
+##### 16141#       发表于 2025-5-28 08:36
+
+<img src="https://p.sda1.dev/24/291ff75eb241ff380fcabf16389897a6/image.jpg" referrerpolicy="no-referrer">
+鸭子居然是从兹姆出发的，而且side3现在应该是基连的地盘吧，有意思了。z里的青色诺亚我记得是提坦斯主导的军工复合体吧，这个世界线换成吉翁尼克了吗？
+
+*****
+
+####  qbz95  
+##### 16142#       发表于 2025-5-28 08:37
+
+<img src="https://img.stage1st.com/forum/202505/28/083734bvtxata8ekmyx89u.jpg" referrerpolicy="no-referrer">
+
+<strong>1000043237.jpg</strong> (199 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 08:37 上传
+
