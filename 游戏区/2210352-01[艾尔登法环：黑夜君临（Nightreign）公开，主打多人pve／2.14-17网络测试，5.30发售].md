@@ -2937,3 +2937,19 @@ Xbox也开始疯狂断线了<img src="https://static.stage1st.com/image/smiley/f
 老贼在开发duskblood啊，ns2独占</blockquote>
 切，我都忘了！这很难评！！！
 
+
+*****
+
+####  serj005  
+##### 320#       发表于 2025-5-28 11:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857830&amp;ptid=2210352" target="_blank">woshenc 发表于 2025-5-28 10:27</a>
+这个是fs社过渡作品，填充时间用的吧？
+
+宫崎小高在开发什么新作品呢？一点消息和传闻都没有的吗？
+
+两个组的 ...</blockquote>
+还有装甲核心新作在做呢，去年官网在招机甲3d建模还有分镜设计，之前微博也有在招装甲核心的机甲建模外包的消息。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

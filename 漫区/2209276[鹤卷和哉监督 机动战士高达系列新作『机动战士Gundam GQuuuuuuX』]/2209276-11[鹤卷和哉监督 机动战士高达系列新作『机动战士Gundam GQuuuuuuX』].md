@@ -16298,3 +16298,66 @@ gqx一系列的脚还是一如既往的那么丑，
 
 我甚至怀疑鸡夸断掉的左手都还没修好<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  syndrome2032  
+##### 16261#       发表于 2025-5-28 11:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67858133&amp;ptid=2209276" target="_blank">eilot 发表于 2025-5-28 11:37</a>
+好像見到是直接以「大」字衝落大氣層，前面沒有用光/實盾來擋熱力，本身又沒有AT力場，QUX機身那麼硬實?
+
+感 ...</blockquote>
+元祖名物之黑科技保鲜膜
+
+*****
+
+####  a85982313  
+##### 16262#       发表于 2025-5-28 11:40
+
+全身图这也太eva了
+
+*****
+
+####  1096beam  
+##### 16263#       发表于 2025-5-28 11:42
+
+就那个宣发和馆数你和我说万代当初没想到会大爆特爆？
+
+*****
+
+####  我聞如是  
+##### 16264#       发表于 2025-5-28 11:42
+
+<blockquote>eilot 发表于 2025-5-28 11:37
+好像見到是直接以「大」字衝落大氣層，前面沒有用光/實盾來擋熱力，本身又沒有AT力場，QUX機身那麼硬實?
+
+感 ...</blockquote>
+有武器，GQ屁股掛著光束軍刀的把手
+
+*****
+
+####  九山节度使  
+##### 16265#       发表于 2025-5-28 11:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857573&amp;ptid=2209276" target="_blank">银川智将Kuroky 发表于 2025-5-28 09:34</a>
+想想紫色老太婆一个人要养废物爹、neet大哥、无脑二哥、弱智小弟，确实家务能力得点满吧 ...</blockquote>
+可怜的真二哥萨斯罗又被遗忘了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  盐盐盐盐盐  
+##### 16266#       发表于 2025-5-28 11:43
+
+看剧里光很暗没感觉，这个全身图gfrd身上的草绿配青色确实有点难看<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  创始’’’天翔  
+##### 16267#       发表于 2025-5-28 11:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67858078&amp;ptid=2209276" target="_blank">AkaiSuisei 发表于 2025-5-28 11:23</a>
+
+上一话浪费了20分钟这话给你漏个一分半的ED和30秒下集预告就高潮了，现在的姨姥也太好伺候了。建议鹤卷GG再 ...</blockquote>
+但不得不说，没有圆头玛耋后这集确实看着舒服多了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

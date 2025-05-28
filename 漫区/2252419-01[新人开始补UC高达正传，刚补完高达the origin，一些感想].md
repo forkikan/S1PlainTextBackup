@@ -1428,3 +1428,18 @@ UC设定完全定调要到CCA逆袭的夏亚了
 
 看现在这个ip的吊样子 日升被收购前（94前） 还能说说玩具商影响不大 现在日升万代是一家 你就很难说谁影响谁了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hsyg  
+##### 125#       发表于 2025-5-28 11:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67858103&amp;ptid=2252419" target="_blank">江之岛右手 发表于 2025-5-28 11:31</a>
+
+其实国内大部分喜欢UC都是因为3个8（08ms 0080 0083）的军武风
+
+3个8的创作就很聪明 就是不碰主线 关注一年 ...</blockquote>
+思路反了，日升为了让自己更值钱才会更不择手段去影响制作，要体现领导的作用就只能大手干预
+
+万代只要产品线没问题IP够火热本身内容是可以不管的，现在流量打法就已经和制作无关了。
+
