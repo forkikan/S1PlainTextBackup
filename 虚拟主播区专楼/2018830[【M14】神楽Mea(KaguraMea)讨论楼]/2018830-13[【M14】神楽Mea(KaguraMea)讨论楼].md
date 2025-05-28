@@ -11339,3 +11339,15 @@ Good。
 因为想着咩在youtube留的档是会随着时间的流逝删除的，而这样的话后面来不及看的财布是很难知道当天唱的歌 ...</blockquote>
 要是那个不再更新的，你咩也在看的文档能继续更新就好了
 
+
+*****
+
+####  shmilyhua  
+##### 18587#       发表于 2025-5-29 01:54
+
+ 本帖最后由 shmilyhua 于 2025-5-29 01:56 编辑 
+
+同好会1群有更新wyy电台的人自己维护的一个歌单。<blockquote>docs.qq.com/doc/DSllRYkZ3cWFveExO</blockquote>应该能发吧大概。（
+
+—— 来自 Google Pixel 8 Pro, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
