@@ -2005,3 +2005,13 @@ rnmd委托要夺取一台机子，系列关卡全扫荡一轮一台没出，你�
 
 这样控制下血量可以出奇效
 
+
+*****
+
+####  jackyhuang  
+##### 1663#       发表于 2025-5-28 15:14
+
+我每天的体力安排已经变成怎么应对刷出来的捕获任务了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
