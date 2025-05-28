@@ -3962,3 +3962,18 @@ gundam+缩退炉是吧<img src="https://static.stage1st.com/image/smiley/face201
 krkr不是一个 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">然后剧里给出的原因是krkr，跟现实世界一类比唯一能比的了得就是冰，这下更糟糕了
 
+
+*****
+
+####  ryanghj  
+##### 16631#       发表于 2025-5-29 02:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67861124&amp;ptid=2209276" target="_blank">阿刚 发表于 2025-5-29 01:43</a>
+
+然后剧里给出的原因是krkr，跟现实世界一类比唯一能比的了得就是冰，这下更糟糕了 ...</blockquote>
+怎么说呢，我觉得更恰当的类比是现实中某些不能稳定挣钱的才能
+
+就比如玩音乐，玛秋结识了该溜子修司，结果修司玩音乐，玛秋也觉醒了音乐的才能，但是公务员老妈觉得玩音乐这东西不能养活自己，于是玛秋一气之下离家出走了
+
+大概这种感觉
+

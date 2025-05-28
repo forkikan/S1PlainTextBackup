@@ -11351,3 +11351,15 @@ Good。
 
 —— 来自 Google Pixel 8 Pro, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  sino__unnko3  
+##### 18588#       发表于 2025-5-29 02:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67861132&amp;ptid=2018830" target="_blank">shmilyhua 发表于 2025-5-29 01:54</a>
+同好会1群有更新wyy电台的人自己维护的一个歌单。
+
+应该能发吧大概。（</blockquote>
+要是你咩知道这个歌单就好了，要是这个歌单和之前的歌单能同步数据就好了，不过有记录就好
+
