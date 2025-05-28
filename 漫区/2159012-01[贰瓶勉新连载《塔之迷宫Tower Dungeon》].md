@@ -1132,3 +1132,12 @@ dmzj章末吐槽怎么一群人说公主和龙融合了，最后一页这是公�
 
 妈宝老王<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">....奇怪的爱好不会和莱欧斯一档吧
 
+
+*****
+
+####  zzf111  
+##### 127#       发表于 2025-5-29 02:21
+
+自汉化截至第18话为止的4ch网友整体的关系表
+<img src="https://p.sda1.dev/24/93be003192dc615add0d3a7e378982a1/1748195659875982.jpg" referrerpolicy="no-referrer">
+
