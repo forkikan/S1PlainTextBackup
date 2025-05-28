@@ -1315,3 +1315,22 @@ gto这个不光拉拉，夏亚也……经常很安彦良和，你看过安彦�
 
 正常人的回答一般是“看看Z/0083/MS08小队吧”，结果泥潭前排的回答是“你看个屁的gto啊”<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江之岛右手  
+##### 118#       发表于 2025-5-28 09:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857535&amp;ptid=2252419" target="_blank">Viteeee 发表于 2025-5-28 09:27</a>
+
+楼主原帖是在说“gto好看，接下来看什么？”
+
+正常人的回答一般是“看看Z/0083/MS08小队吧”，结果泥潭前 ...</blockquote>
+不止是泥潭 放哪里都会有人说你看个屁的gto
+
+你看楼上就有说nga也吵过
+
+就像有人到历史论坛说《说唐》好看 我接下来该看《二十四史》里哪本
+
+一个系列时间长了肯定会出现原教旨和现代派 本来高达搞不同世界观动画其实挺好 有效避免了这些问题 奈何你们小形p是个傻X 从一角驴吃到uc甜头就想围绕着uc搞事 雷霆宙域 gto 这次gqux 现在uc系列有四个平行世界了
+
