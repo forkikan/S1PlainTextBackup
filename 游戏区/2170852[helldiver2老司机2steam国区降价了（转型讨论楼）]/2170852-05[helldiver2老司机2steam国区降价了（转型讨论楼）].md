@@ -2404,3 +2404,72 @@ PS5能跟PC联机吗</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  unsh  
+##### 6144#       发表于 2025-5-28 18:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67859620&amp;ptid=2170852" target="_blank">xinfengj 发表于 2025-5-28 17:46</a>
+陷落城市应该会有buff的，现在就有最后雨林被砍伐然后飞鹰提速。纽约陷落感觉会是黄石公园爆炸炸死一批鱿鱼 ...</blockquote>
+新加坡炸了没事发生）
+
+*****
+
+####  ko1p  
+##### 6145#       发表于 2025-5-28 19:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67859620&amp;ptid=2170852" target="_blank">xinfengj 发表于 2025-5-28 17:46</a>
+
+陷落城市应该会有buff的，现在就有最后雨林被砍伐然后飞鹰提速。纽约陷落感觉会是黄石公园爆炸炸死一批鱿鱼 ...</blockquote>
+结果是debuff 哈哈
+
+
+*****
+
+####  Ashice  
+##### 6146#       发表于 2025-5-28 19:01
+
+等一个上海炸了玩家弃守超级地球<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xinfengj  
+##### 6147#       发表于 2025-5-28 19:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67859896&amp;ptid=2170852" target="_blank">unsh 发表于 2025-5-28 18:54</a>
+
+新加坡炸了没事发生）</blockquote>
+有的 钻石协议
+
+*****
+
+####  真红眼教授  
+##### 6148#       发表于 2025-5-28 19:06
+
+现在这些守卫超级城市的玩家几乎是透支游戏热情在玩，非要推他那个守卫斯德哥尔摩的话打完这次主线游戏可以关服了
+
+*****
+
+####  斯城恶魔  
+##### 6149#       发表于 2025-5-28 19:06
+
+直接投降吧，纽约倒了**直接6.6+4.8，全服的人加起来都守不住
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  新庄運切  
+##### 6150#       发表于 2025-5-28 19:06
+
+上海炸了就去打虫子机器人，箭头老家谁爱守谁守反正没我<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  九十九忍  
+##### 6151#       发表于 2025-5-28 19:07
+
+打机器人MO出来我就知道开始犯畜倒计时了，真不要期待这帮子人太多
+

@@ -2371,3 +2371,28 @@ gqux里面对表情特别重视，尤其是玛秋的表情，之前红迪 ...</b
 
 未有背心才是王道
 
+
+*****
+
+####  Gysumitka  
+##### 16502#       发表于 2025-5-28 18:54
+
+这麻球也太可爱了<img src="https://static.stage1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  无念  
+##### 16503#       发表于 2025-5-28 19:01
+
+等一个泳装回固定台词：是海哒
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  ヒトニナル  
+##### 16504#       发表于 2025-5-28 19:03
+
+玛秋希罗说 ←new!!
+

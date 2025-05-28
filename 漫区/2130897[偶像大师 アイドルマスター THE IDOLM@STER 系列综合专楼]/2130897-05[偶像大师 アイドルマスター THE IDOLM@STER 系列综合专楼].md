@@ -530,3 +530,11 @@ Spotlight Star Day 2 Setlist (於17:01(UTC+9)開演)：
 
 不过现在手游强制汉语配音，这咋玩啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  koodooliz  
+##### 7003#       发表于 2025-5-28 18:59
+
+赛马娘也没国服配音的吧，引进游戏应该没这个要求。
+
