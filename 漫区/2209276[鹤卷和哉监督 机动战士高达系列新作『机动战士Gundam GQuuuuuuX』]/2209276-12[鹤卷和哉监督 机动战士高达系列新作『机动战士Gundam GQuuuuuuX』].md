@@ -2307,3 +2307,67 @@ gqux里面对表情特别重视，尤其是玛秋的表情，之前红迪 ...</b
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  ftyaid  
+##### 16496#       发表于 2025-5-28 18:44
+
+应该是体验重力了“可恶的重力！”
+
+*****
+
+####  pokemon最爱  
+##### 16497#       发表于 2025-5-28 18:45
+
+说起来从这集的信息看代号Alphacide的GQX的omega塞可谬是为什么而制造又有什么特殊功能呢……<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  桜庭ななみ  
+##### 16498#       发表于 2025-5-28 18:46
+
+这鸭妹轻加农就是纯换色啊，一点特装都没有的，连特殊标志都没有一个太掉价了。
+
+*****
+
+####  无念  
+##### 16499#       发表于 2025-5-28 18:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67859862&amp;ptid=2209276" target="_blank">桜庭ななみ 发表于 2025-5-28 18:46</a>
+这鸭妹轻加农就是纯换色啊，一点特装都没有的，连特殊标志都没有一个太掉价了。 ...</blockquote>
+有特殊武装破碎球<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  xwz  
+##### 16500#       发表于 2025-5-28 18:53
+
+战损版麻球，可口<img src="https://static.stage1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
+
+*****
+
+####  透明马甲  
+##### 16501#       发表于 2025-5-28 18:54
+
+<img src="https://img.stage1st.com/forum/202505/28/185324jj16hqkh2r4bjbbo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (684.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 18:53 上传
+
+<img src="https://img.stage1st.com/forum/202505/28/185351n894ywmpm97s7ymy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (220.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 18:53 上传
+
+未有背心才是王道
+
