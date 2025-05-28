@@ -1154,3 +1154,97 @@ boom
 
 首席第一时间就能知道GQUX被玛秋开走，说明这绿木马上的事情一点都没有瞒着基西利亚侧的意思吧
 
+
+*****
+
+####  Toby_dak  
+##### 16392#       发表于 2025-5-28 16:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67858720&amp;ptid=2209276" target="_blank">南朝Sonicbbs 发表于 2025-5-28 15:32</a>
+
+岂止，我是从第一页开始爬的，前100页的猜测全部没中！</blockquote>
+<img src="https://p.sda1.dev/24/0127f284ce2afa8175de5eddd267f6a4/1000114021.png" referrerpolicy="no-referrer">
+
+剧场版上映时候就已经猜玫瑰跟宇宙女鬼有关了。
+
+
+*****
+
+####  未来起航  
+##### 16393#       发表于 2025-5-28 16:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67858978&amp;ptid=2209276" target="_blank">只吃干拌面 发表于 2025-5-28 15:25</a>
+
+昨天我还特意倒回去看了一下回忆，确认了同期三人手里都拿着蛋糕哥做的蛋糕，说明首席是吃过蛋糕的，因此那 ...</blockquote>
+不知道他在急什么，欢迎宴晚两天再上很奇怪吗？还是贰号机驾驶员即插即用一旦上机就立马飞外太空跑任务压根找不着人？
+
+*****
+
+####  Geyorkias  
+##### 16394#       发表于 2025-5-28 16:24
+
+ 本帖最后由 Geyorkias 于 2025-5-28 16:26 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67859070&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-28 15:46</a>
+
+野史里的鸭妹武德爆棚
+
+而且还有一点，她是留下来守株待鸭的。</blockquote>
+鸭妹又不知道夏亚·阿兹纳布尔是卡斯巴尔·戴肯....
+
+正史是上了白木马之后两面有交流，IF又没交流过，哪怕是战后吉翁的军人都不相信夏亚是卡斯巴尔，也就老太婆知道，绿叔叔这种心腹知道罢了。
+
+*****
+
+####  YU_JI  
+##### 16395#       发表于 2025-5-28 16:24
+
+<blockquote>qiyu1234 发表于 2025-5-28 16:13
+首席第一时间就能知道GQUX被玛秋开走，说明这绿木马上的事情一点都没有瞒着基西利亚侧的意思吧
+
+</blockquote>
+估计绿叔叔这头也就拉拢一个小森了，不知道舵手哥之前的表现是不是伏笔，下一集是不是要告诉大伙他也是基连的人
+
+*****
+
+####  Toby_dak  
+##### 16396#       发表于 2025-5-28 16:24
+
+<blockquote>引用第16378楼洛克萨斯于2025-05-28 15:34发表的  :
+
+首席搞不好开强人能和绿叔叔比划比划，开什么赛克缪机体，浪费机体载荷，不如增加机动性或者武装</blockquote>
+问题来了，如果强人是北宋之壶的专用机呢？
+
+所以杉田究竟能不能开上<img src="https://static.stage1st.com/image/smiley/bundam2017/018.png" referrerpolicy="no-referrer">。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.46)
+
+*****
+
+####  pmoe  
+##### 16397#       发表于 2025-5-28 16:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67858676&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-5-28 14:20</a></blockquote>
+懂了，那是以后要用到的妙妙工具。（三冲的朗基奴斯枪<img src="https://static.stage1st.com/image/smiley/carton2017/042.png" referrerpolicy="no-referrer">）
+
+*****
+
+####  松狮酱  
+##### 16398#       发表于 2025-5-28 16:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67858240&amp;ptid=2209276" target="_blank">Devola 发表于 2025-5-28 12:02</a>
+
+三人组聚是一坨，还是拆开走单线强
+
+剩下所有机战压缩到半集，能少看一点站桩和爬大楼绝不多看</blockquote>
+也不一定真看不出来，只不过基连大帅叫他们看不出来
+
+*****
+
+####  ryanghj  
+##### 16399#       发表于 2025-5-28 16:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67859181&amp;ptid=2209276" target="_blank">qiyu1234 发表于 2025-5-28 16:13</a>
+
+首席第一时间就能知道GQUX被玛秋开走，说明这绿木马上的事情一点都没有瞒着基西利亚侧的意思吧</blockquote>
+因为首席哥亲眼看过玛秋开gqux啊，他以为之后军团战的都是喵安而已
+
