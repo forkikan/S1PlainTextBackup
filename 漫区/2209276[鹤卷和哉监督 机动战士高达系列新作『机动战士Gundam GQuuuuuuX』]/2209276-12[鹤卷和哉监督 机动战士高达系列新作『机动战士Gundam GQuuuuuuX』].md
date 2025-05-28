@@ -3919,3 +3919,33 @@ gundam+缩退炉是吧<img src="https://static.stage1st.com/image/smiley/face201
 
 —— 来自 samsung SM-S9110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  无念  
+##### 16628#       发表于 2025-5-29 01:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">人和人之间之间是无法理解的，每次看楼友对车都能感受到这一点
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  我聞如是  
+##### 16629#       发表于 2025-5-29 01:32
+
+<blockquote>ryanghj 发表于 2025-5-29 00:46
+这句话很多人都没懂
+
+玛秋从来没有自己应对过战斗，第一集第三集第四集都是她在修司帮忙下打赢的，修司在 ...</blockquote>
+對
+
+那段的演出其實是對比第三話瑪秋被閃瞎眼，修司拉她進krkr那裡，但是現在修司不在了
+
+英文字幕和配音裡瑪秋的台詞是without you, we can't experience/see the kirakira together
+
+在心裡直接對修司求救
+
+原文那個喊話的意思則是濃縮在「キラキラになんないよ」最後的「よ」上了(榎戶你這老賊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
