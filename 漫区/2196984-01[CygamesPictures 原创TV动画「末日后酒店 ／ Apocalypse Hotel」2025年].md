@@ -4505,3 +4505,14 @@ CygamesPictures在这片的打戏质量确实没得说，<strong>经常</strong>
 
 狸猫代理的时候同时居住人数竟然突破两位数了。<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  太极八爪鱼  
+##### 396#       发表于 2025-5-29 05:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67858493&amp;ptid=2196984" target="_blank">吉吉国王 发表于 2025-5-27 21:17</a>
+
+上一集搞了一集的上帝之杖结果这集还是换成用导弹了</blockquote>
+没错啊，上帝智障是对地攻击，导弹是防空的。防空导弹防不住的敌人落地就来一发上帝智障<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
