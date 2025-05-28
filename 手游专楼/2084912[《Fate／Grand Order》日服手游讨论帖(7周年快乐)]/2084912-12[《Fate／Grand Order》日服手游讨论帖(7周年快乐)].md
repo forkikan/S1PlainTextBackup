@@ -1161,3 +1161,42 @@
 另外这冠位战不会全是单体吧？ 那也太弱智了。。。</blockquote>
 非单体就以前茨木世界BOSS那种呗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 16838#       发表于 2025-5-28 12:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">反正我没几个满绊的 全都带不了羁绊礼装
+
+*****
+
+####  alucardcz  
+##### 16839#       发表于 2025-5-28 12:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67858221&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2025-5-28 11:59</a>
+
+非单体就以前茨木世界BOSS那种呗</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我看了眼已经准备好的冠位 就师匠和荚膜是单体 这游戏能玩？ 看来只能靠好友了
+
+*****
+
+####  alucardcz  
+##### 16840#       发表于 2025-5-28 12:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67858235&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-5-28 12:01</a>
+
+反正我没几个满绊的 全都带不了羁绊礼装</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">这就是欧皇的自信 卡多！
+
+
+*****
+
+####  qixinno2  
+##### 16841#       发表于 2025-5-28 12:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67858259&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-5-28 12:09</a>
+
+这就是欧皇的自信 卡多！</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">然而正是因为卡少 基本只能用那几个 所以造成了羁绊全在那几个身上 剩下都是吃灰的
+

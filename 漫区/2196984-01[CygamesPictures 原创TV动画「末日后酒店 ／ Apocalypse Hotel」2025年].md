@@ -4268,3 +4268,14 @@ PV里猫猫头形态八千代还没回收的，后面肯定变回来</blockquote
 
 另外中间八千代那句“我是酒店机器人，只能在酒店工作，我必须履行自己的使命”我听起来觉得可太有横山智佐的味儿了，幻视真宫寺樱……
 
+
+*****
+
+####  Toby_dak  
+##### 371#       发表于 2025-5-28 12:28
+
+怎么是上帝智障<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+东大不是做过实验吗，与其花燃料送到轨道再扔下来，还不如直接一发东风直接。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.46)
+

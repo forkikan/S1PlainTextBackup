@@ -125,3 +125,115 @@ gfrd头雕有点涩的。<img src="https://static.stage1st.com/image/smiley/face
 之前有一集喵安书柜上有教辅书，大家都觉得喵安日子这么艰难还是学霸好感动。然后这集直接说根本不喜欢读 ...</blockquote>
 参加了很多次研究生复试给我的感觉就是，为了考研而读书的人有不少确实谈不上喜欢学习<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jojonathan  
+##### 16293#       发表于 2025-5-28 12:24
+
+只能说恋爱使人智力下降<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">俩女主离了男人又行起来了.以及看预告小森真是基连派吧 要不然想不出放走邪恶番茄要干啥
+
+*****
+
+####  Gaybird  
+##### 16294#       发表于 2025-5-28 12:24
+
+别关心隔壁论坛不就得了，发言的都是年轻气盛的人，为了已经盖棺定论的艺人旧闻吵了几十楼，就是不成熟的体现啊
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 朋友费小号| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  ArthurDent  
+##### 16295#       发表于 2025-5-28 12:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67858228&amp;ptid=2209276" target="_blank">璇瑢子R 发表于 2025-5-28 12:00</a>
+之前有一集喵安书柜上有教辅书，大家都觉得喵安日子这么艰难还是学霸好感动。然后这集直接说根本不喜欢读 ...</blockquote>
+但这么个解释确实要比单纯学霸合理不少<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  azbhg1  
+##### 16296#       发表于 2025-5-28 12:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67858068&amp;ptid=2209276" target="_blank">巨馍蘸酱 发表于 2025-5-28 11:20</a>
+我还是觉得TV里塞的剧场版内容很生硬，剪辑也很烂，完全不流畅。感觉制作上0079IF就是单独制作的，一开始没 ...</blockquote>
+79和Z也这样的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+Z上来直接看第一集观众也不知道这几年发生了啥怎么变成这个吊样子，后面才说明的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  弹匣与花窗  
+##### 16297#       发表于 2025-5-28 12:30
+
+用声线泡脑残角色粉这职业精神为纯负数的，已经不是个人生活层面的事了，话说回来人都换了，汴他罪不至此作甚<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  woui003woui  
+##### 16298#       发表于 2025-5-28 12:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67858228&amp;ptid=2209276" target="_blank">璇瑢子R 发表于 2025-5-28 12:00</a>
+之前有一集喵安书柜上有教辅书，大家都觉得喵安日子这么艰难还是学霸好感动。然后这集直接说根本不喜欢读 ...</blockquote>
+不喜欢学习但是为了改善生活努力学习不是更励志了<img src="https://static.stage1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hsyg  
+##### 16299#       发表于 2025-5-28 12:32
+
+你就告诉我秘密机库，是可以随便野餐的地方吗。为啥还有餐桌。
+
+*****
+
+####  银川智将Kuroky  
+##### 16300#       发表于 2025-5-28 12:33
+
+别把弱智动画的粉圈思路带过来啊，你们单独开个弱智小学生楼行不行
+
+*****
+
+####  久井路路  
+##### 16301#       发表于 2025-5-28 12:33
+
+不是因为喜欢学习、而是为了生活而去学习反而是更容易得到好感的要素
+
+只是不知道她具体学了多少，别那些书只是摆在书架上好看的那就尴尬了（
+
+*****
+
+####  m99999  
+##### 16302#       发表于 2025-5-28 12:33
+
+<blockquote>朋友费小号 发表于 2025-5-28 12:15
+算了，NGA回来，古谷彻这事我甚至觉得只要你别强制绑架别人要一起喷古谷彻那就算是很纯良了
+
+那边“失去基 ...</blockquote>
+讲真a子真的很大啊
+
+*****
+
+####  m99999  
+##### 16303#       发表于 2025-5-28 12:35
+
+<blockquote>jojonathan 发表于 2025-5-28 12:24
+只能说恋爱使人智力下降俩女主离了男人又行起来了.以及看预告小森真是基连派吧 要不然想不出放走邪恶番茄要 ...</blockquote>
+番茄这两集跟喵安一比简直太正常了
+
+我要看血流成河，癫起来！
+
