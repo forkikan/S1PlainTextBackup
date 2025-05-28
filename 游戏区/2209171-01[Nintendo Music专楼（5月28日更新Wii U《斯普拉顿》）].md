@@ -553,3 +553,11 @@ Nintendo Music今日新增《俄罗斯方块》(Game Boy)、《俄罗斯方块�
 
 今日更新Wii U《斯普拉顿》，系列十周年
 
+
+*****
+
+####  doraemonmilmil  
+##### 54#       发表于 2025-5-28 12:20
+
+十年了啊，我也有一个玩了10年的游戏了<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">1代的bgm是真的神。
+
