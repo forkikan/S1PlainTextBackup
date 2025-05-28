@@ -2807,3 +2807,19 @@ anime corner上周又排名第三了，海外还是挺有受众的。
 目前在日本本季动画中热度如何？ ...</blockquote>
 在日本热度不如路边一条
 
+
+*****
+
+####  新HGCG  
+##### 249#       发表于 2025-5-28 20:55
+
+哇 新高
+
+<img src="https://img.stage1st.com/forum/202505/28/205457d8fki8loiiqklojs.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (233.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 20:54 上传
+

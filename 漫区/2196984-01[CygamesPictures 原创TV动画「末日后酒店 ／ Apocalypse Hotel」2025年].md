@@ -4439,3 +4439,21 @@ PV里猫猫头形态八千代还没回收的，后面肯定变回来</blockquote
 
 CygamesPictures在这片的打戏质量确实没得说，<strong>经常</strong>让人恍惚是不是走错了片场<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Totokei  
+##### 389#       发表于 2025-5-28 21:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">我都看了些什么
+
+*****
+
+####  aptx8285144  
+##### 390#       发表于 2025-5-28 21:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860087&amp;ptid=2196984" target="_blank">tpsg 发表于 2025-5-28 19:50</a>
+
+感觉机战做的比GQuuuuuuX好</blockquote>
+大战虫子，猫机器人，双人对打，这片的打斗确实不错
+

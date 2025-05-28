@@ -3026,3 +3026,20 @@ pvpve不要搞成搜打撤就行
 
 看steam预载开了，才20G。
 
+
+*****
+
+####  xiaosayang  
+##### 329#       发表于 2025-5-28 21:01
+
+甚至没有mc投票帖吗 这卖相能有80分都谢天谢地了<img src="https://static.stage1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  budong  
+##### 330#       发表于 2025-5-28 21:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67859983&amp;ptid=2210352" target="_blank">h122h 发表于 2025-5-28 19:19</a>
+看steam预载开了，才20G。</blockquote>
+接近本体一半了
+
