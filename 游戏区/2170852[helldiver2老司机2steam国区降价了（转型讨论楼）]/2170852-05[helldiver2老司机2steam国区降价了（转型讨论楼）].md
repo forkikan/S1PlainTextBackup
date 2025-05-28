@@ -2622,3 +2622,26 @@ PS5能跟PC联机吗</blockquote>
 
 纽约沦陷了
 
+
+*****
+
+####  RPMWT  
+##### 6166#       发表于 2025-5-28 21:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860235&amp;ptid=2170852" target="_blank">朔方原的星 发表于 2025-5-28 20:36</a>
+
+玩游戏有代入感也要管啊没代入感玩个刷怪游戏有什么意思？</blockquote>
+不是说代入感有问题啊，好歹来几个说上海话的平民NPC，或者大楼上挂几个中文广告牌什么的……这就一个名字（还不是原名是个外号），你们到底是怎么产生代入感的啊？<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+还是说只是玩MEME而已，是我不会读空气？
+
+*****
+
+####  xinfengj  
+##### 6167#       发表于 2025-5-28 21:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860517&amp;ptid=2170852" target="_blank">RPMWT 发表于 2025-5-28 21:50</a>
+
+不是说代入感有问题啊，好歹来几个说上海话的平民NPC，或者大楼上挂几个中文广告牌什么的……这就一个名 ...</blockquote>
+大概就像玩山口山选了金色平原然后在公屏问为什么你们说话都这么奇怪
+

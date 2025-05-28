@@ -2861,3 +2861,51 @@ gqux里面对表情特别重视，尤其是玛秋的表情，之前红迪 ...</b
 我觉得主要问题是作为一个三番位，修司现在剧本上明显是一个待完成的状态吧，镜头未必比首席哥多多少，明摆 ...</blockquote>
 修司是女主位<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">玛秋和喵安是表里主角
 
+
+*****
+
+####  ryanghj  
+##### 16542#       发表于 2025-5-28 21:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860474&amp;ptid=2209276" target="_blank">璇瑢子R 发表于 2025-5-28 21:39</a>
+
+一切都是拉拉的大手很容易些烂掉的
+
+后面但凡有什么不如意的情况都能怪到拉拉为什么不操作一下 ...</blockquote>
+加上限制不就完事了，比如CD很久才能发动一次
+
+
+*****
+
+####  玖羽  
+##### 16543#       发表于 2025-5-28 21:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860499&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-28 21:45</a>
+
+我觉得主要问题是作为一个三番位，修司现在剧本上明显是一个待完成的状态吧，镜头未必比首席哥多多少，明摆 ...</blockquote>
+这也是我在前面说过的本片最大的问题
+
+想表达“不满压抑生活找刺激改变现状”不是不行，但是它把这个主题过度锚定在修司这个实际存在的男性个体身上，就导致给人的观感很像“精神小妹争抢男人”
+
+*****
+
+####  woui003woui  
+##### 16544#       发表于 2025-5-28 21:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大十字紅朔  
+##### 16545#       发表于 2025-5-28 21:55
+
+怎么改图还没出
+
+<img src="https://img.stage1st.com/forum/202505/28/215545nebef8kqx3hhfmf3.jpg" referrerpolicy="no-referrer">
+
+<strong>GsCRC1Ub0AAIrHg.jpg</strong> (130.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 21:55 上传
+
