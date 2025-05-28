@@ -11388,3 +11388,16 @@ Good。
 —— 来自 Google Pixel 8 Pro, Android 15, 鹅球  ...</blockquote>
 露露酱的紫砂配信，阿b这审核是这样的。记得在阿b上还有过命嫌下架这样的乌龙
 
+
+*****
+
+####  术士q  
+##### 18591#       发表于 2025-5-29 06:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67861095&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2025-5-29 01:10</a>
+要是那个不再更新的，你咩也在看的文档能继续更新就好了</blockquote>
+因为大家一直以来的不懈努力（电台+录播），那个歌单可以更新的话或许集中做几个小时应该就能够追上现在的进度了。
+
+只是这不是更新的难度是否大的问题就是了...而是滥觞于去年那件事所代表的各种事情以及那个歌单恢复更新所代表的事情，唉。
+现在mea的b站公告上只有一个工作联络地址了。
+
