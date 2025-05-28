@@ -1248,3 +1248,82 @@ boom
 首席第一时间就能知道GQUX被玛秋开走，说明这绿木马上的事情一点都没有瞒着基西利亚侧的意思吧</blockquote>
 因为首席哥亲眼看过玛秋开gqux啊，他以为之后军团战的都是喵安而已
 
+
+*****
+
+####  LOLITA  
+##### 16400#       发表于 2025-5-28 16:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67858999&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-28 15:30</a>
+
+这集其实明确了kirakira与NT不是一种东西，至少不完全是。
+
+首席哥无疑是NT，但内鬼是没打算杀他的。</blockquote>
+不用想那么复杂，kirakira第一次出现是在元祖动画里，按当时的表现手法来看只有达到骡和拉拉这个等级的NT才能看到，启动不了这些什么什么塞可谬无非就是NT能力差而已。
+
+
+*****
+
+####  ftyaid  
+##### 16401#       发表于 2025-5-28 16:29
+
+可能真的是绿叔叔和紫色老太婆商量好的，为了用GQUX把玛丘留给自己了
+
+*****
+
+####  岸浪白野  
+##### 16402#       发表于 2025-5-28 16:31
+
+[X 上的 森キノコ★5/18スパコミ大阪さ32ab★6/1歌姫庭園★6/1コミティア：“#GQuuuuuuX #ジークアクス](https://x.com/morikinoko8888/status/1927595719738687836)[https://t.co/9f2XJGEHZ0](https://t.co/9f2XJGEHZ0)” / X
+
+<img src="https://img.stage1st.com/forum/202505/28/162243iu408zubrh86m2xh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.07 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 16:22 上传
+
+[X 上的 양갈래：“](https://x.com/2wintail__/status/1927540382406951001)[https://t.co/JjimhwPZDB](https://t.co/JjimhwPZDB)” / X
+
+<img src="https://img.stage1st.com/forum/202505/28/162411bsd2sm5z2zadqeba.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.62 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 16:24 上传
+
+[X 上的 えんぎよし：“とりあえず一発](https://x.com/ENGIYOSI/status/1927608598047453328)[https://t.co/LuzLOqyAdI](https://t.co/LuzLOqyAdI)” / X
+
+<img src="https://img.stage1st.com/forum/202505/28/162434tcjiwd2wkjdmjk2j.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.26 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 16:24 上传
+
+[X 上的 하여：“赤̷͓い̸̐彗̴星̵͚](https://x.com/LY_Howe/status/1927558696869241002)[https://t.co/iqIwAZKYfp](https://t.co/iqIwAZKYfp)” / X
+
+<img src="https://img.stage1st.com/forum/202505/28/162354yz5k9yc07z793lc0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (977.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-28 16:23 上传
+
+
+*****
+
+####  猪突猛进R  
+##### 16403#       发表于 2025-5-28 16:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67859218&amp;ptid=2209276" target="_blank">未来起航 发表于 2025-5-28 16:23</a>
+
+不知道他在急什么，欢迎宴晚两天再上很奇怪吗？还是贰号机驾驶员即插即用一旦上机就立马飞外太空跑任务压 ...</blockquote>
+他说过上机后会变“恶魔”，提前在他们还是“人类”时弄死是一种慈悲。
+
+没想到喵安已经体验过kirakira早就变成“恶魔”了。
+
