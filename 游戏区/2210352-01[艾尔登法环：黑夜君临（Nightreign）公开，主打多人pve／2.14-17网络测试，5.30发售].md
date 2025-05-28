@@ -3350,3 +3350,23 @@ FS的无双深渊<img src="https://static.stage1st.com/image/smiley/face2017/035
 
 gs这都能给9分,有点孝了
 
+
+*****
+
+####  爱护动物抓根宝  
+##### 361#       发表于 2025-5-29 00:10
+
+国内评测有一个算一个全在狂喷数值问题，不过要我说FS的游戏数值本来一直就是一坨吧，只能说联网和单机确实是两个不同的领域，而且还是肉鸽吃鸡这种本身就数值敏感的类型，稍微上点强度FS就顶不住了，再练练吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rainsheep  
+##### 362#       发表于 2025-5-29 00:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860813&amp;ptid=2210352" target="_blank">鈴姉御肌 发表于 2025-5-28 23:11</a>
+黄昏之血体验再烂至少也不是那种单人没法玩的游戏类型 再加上任任的鞭子估计还是比代孙要硬 应该不会太烂 ...</blockquote>
+黄昏之血ip在fs自己手上吧，又不是白金那样的打工仔，真能抽鞭子吗？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

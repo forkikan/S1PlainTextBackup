@@ -186,3 +186,11 @@ bg方面凯特桑更是神隐，豚豚厨厨停火和平，主打一个安心。
 
 wait我发现两个人首字母都是K.T.，嚯嚯，压力马斯内<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  成田良美  
+##### 892#       发表于 2025-5-29 00:15
+
+好想来写キミプリ的剧本啊<img src="https://static.stage1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
