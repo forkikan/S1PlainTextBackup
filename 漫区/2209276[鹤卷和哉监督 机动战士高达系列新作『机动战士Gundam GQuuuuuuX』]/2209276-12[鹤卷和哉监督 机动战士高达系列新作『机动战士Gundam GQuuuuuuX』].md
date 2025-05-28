@@ -1607,3 +1607,98 @@ gqx放任可能是因为不是手电筒系统核心吧，基西莉亚有gfrd就�
 
 一切都是拉拉的大手
 
+
+*****
+
+####  芝村舞  
+##### 16431#       发表于 2025-5-28 17:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67858831&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-28 14:54</a>
+
+黑拳的几集都是重要的铺垫
+
+第三集是玛秋修司第一次mav战，玛秋被修司吸引</blockquote>
+这种算不上伏笔，充其量是前期描写
+
+黑圈不能说没有用，但是出现割裂
+
+如果到头来还是吉翁内部的阴谋是主线，黑拳就有点喧宾夺主
+
+*****
+
+####  ryanghj  
+##### 16432#       发表于 2025-5-28 17:15
+
+那ED的“不管怎样最后都是Happy Ending”的原因也明白了，就是拉导计算好的结局？
+
+让修司去SIDE6找到玛秋和喵安也是拉导的指示吧
+
+*****
+
+####  芝村舞  
+##### 16433#       发表于 2025-5-28 17:17
+
+8看完一堆人叫好我也是看不懂
+
+只能说至少烂尾可能性可以消失了
+
+两个女主角也没有变成公式化的黑化发展
+
+差强人意吧。至少没崩，就是主轴如果是吉翁的阴谋，真的和之前的黑拳与青春割裂很大
+
+不过也期待后续的翻转，能转回来鹤卷就是神
+
+*****
+
+####  ryanghj  
+##### 16434#       发表于 2025-5-28 17:17
+
+我倒觉得剧情最后会是玛秋一头创飞所有大人的阴谋
+
+*****
+
+####  盐盐盐盐盐  
+##### 16435#       发表于 2025-5-28 17:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67859452&amp;ptid=2209276" target="_blank">芝村舞 发表于 2025-5-28 17:14</a>
+ 这种算不上伏笔，充其量是前期描写  黑圈不能说没有用，但是出现割裂 </blockquote>
+主线是三人组关系，一切大背景都是推动三人关系转变的道具而已
+前半的军团赛是推动三人认识熟络产生感情又产生隔阂（还有修司的愿望喵安的nt觉醒等前置剧情），后半的吉翁内斗是提供对立立场
+
+*****
+
+####  无念  
+##### 16436#       发表于 2025-5-28 17:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67859444&amp;ptid=2209276" target="_blank">盐盐盐盐盐 发表于 2025-5-28 17:13</a>
+gqx放任可能是因为不是手电筒系统核心吧，基西莉亚有gfrd就够了，一号是拿来找红高的（代号α杀手），通过 ...</blockquote>
+所以我一直觉得G夸和番茄还能待在木马其实是基西莉亚拉拢绿叔叔的人情攻势<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  无念  
+##### 16437#       发表于 2025-5-28 17:21
+
+真要参考Z，那黑拳死人还有个用途：给最终决战提供背后灵<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  woui003woui  
+##### 16438#       发表于 2025-5-28 17:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67859471&amp;ptid=2209276" target="_blank">盐盐盐盐盐 发表于 2025-5-28 17:18</a>
+
+主线是三人组关系，一切大背景都是推动三人关系转变的道具而已
+
+前半的军团赛是推动三人认识熟络产生感情 ...</blockquote>
+如果把三人组关系当作前半主线的话，那现在就可以说主线完全失败了吧
+
+虽然大家对喵安和麻球的性格都能表示理解，但是那是单人性格描写
+
+三人组的关系呢，纯塑料，相处部分几乎全是留白，给观众留的共情抓手几乎没有，而且三个人之间的互相理解也是乏善可陈，这也算产生了感情吗。很难说一个不存在的东西发生了转变……
+

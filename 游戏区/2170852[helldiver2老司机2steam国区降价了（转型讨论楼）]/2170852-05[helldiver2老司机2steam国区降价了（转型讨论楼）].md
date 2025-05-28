@@ -2364,3 +2364,15 @@ PS5能跟PC联机吗</blockquote>
 
 只是游戏罢了，没那么多有的没的，倒是新的战备卡手bug搞得大家很不爽
 
+
+*****
+
+####  春哥亲自  
+##### 6140#       发表于 2025-5-28 17:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67859008&amp;ptid=2170852" target="_blank">烈焰舞阳 发表于 2025-5-28 15:31</a>
+大家别怕，神仙队来啦
+
+—— 来自 Xiaomi 2407FRK8EC, Android 14, 鹅球 v3.5.99</blockquote>
+最正义的一集
+
