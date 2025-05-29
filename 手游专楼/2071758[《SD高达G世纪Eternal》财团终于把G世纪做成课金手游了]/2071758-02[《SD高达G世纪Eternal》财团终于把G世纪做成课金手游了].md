@@ -2227,3 +2227,16 @@ HP低於一定程度時
 
 限定卡缪怎么样，能抽吗
 
+
+*****
+
+####  rockroxas  
+##### 1677#       发表于 2025-5-29 13:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67862436&amp;ptid=2071758" target="_blank">zzy516232108 发表于 2025-5-29 12:55</a>
+
+限定卡缪怎么样，能抽吗</blockquote>
+当前最高觉醒面板，理论最高伤害（超一击下爆伤很可观）
+
+但是几乎达不成，用Z要超一击75%以上血量才能出伤，没有鼓气必闪，加血精神难用，其他暴击机如海盗实际也不太强，当前最多去永恒的Z关虐菜
+
