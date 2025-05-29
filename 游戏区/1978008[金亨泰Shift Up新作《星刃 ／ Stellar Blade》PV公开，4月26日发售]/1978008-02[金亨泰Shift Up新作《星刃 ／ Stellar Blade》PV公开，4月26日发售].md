@@ -416,3 +416,11 @@ Nikke角色“红莲”将作为BOSS出现在剑星中，击败她后可以获�
 我倒是想出，游戏还没解锁看不到</blockquote>
 解锁了找你<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 2055#       发表于 2025-5-29 17:50
+
+你们就不怕国区cdkey只给企鹅服用
+
