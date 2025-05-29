@@ -2206,3 +2206,16 @@ HP低於一定程度時
 
 休闲玩家钻就留着抽限定机和船
 
+
+*****
+
+####  猫执事  
+##### 1675#       发表于 2025-5-29 12:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67861965&amp;ptid=2071758" target="_blank">windtrack 发表于 2025-5-29 10:56</a>
+
+不值，都是普池货，玩下去早晚能出的东西
+
+休闲玩家钻就留着抽限定机和船 ...</blockquote>
+哦哦 我还以为开了双卡池  
+

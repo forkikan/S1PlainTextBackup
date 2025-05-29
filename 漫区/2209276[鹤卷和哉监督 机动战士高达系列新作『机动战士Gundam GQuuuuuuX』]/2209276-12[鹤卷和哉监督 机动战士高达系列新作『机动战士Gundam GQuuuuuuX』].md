@@ -4694,3 +4694,14 @@ kirakira指nt我最早觉得是nt看宇宙里群星发光的闪亮kirakira
 
 你一想g一串u其实也是个kuso片是不是就观感好很多了
 
+
+*****
+
+####  银川智将Kuroky  
+##### 16698#       发表于 2025-5-29 12:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67862076&amp;ptid=2209276" target="_blank">plok201 发表于 2025-5-29 11:17</a>
+
+最简单的包饺子不就我们的UC才刚刚开始，结局给几个定格画面，里面出现夏亚总帅视察青之诺亚与知名哈罗企业 ...</blockquote>
+再加个黄毛女医师刚收了一个蓝毛规培生
+

@@ -1684,3 +1684,16 @@ gto动画不就是鸭子吹搞出来的东西 其实最早79的鸭子还真是�
 
 看完origin我的感觉是夏亚没有正全是邪，只为了复仇而来，奥黛丽也就是命好不然也得死
 
+
+*****
+
+####  wasssf  
+##### 133#       发表于 2025-5-29 12:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857326&amp;ptid=2252419" target="_blank">Viteeee 发表于 2025-5-28 08:17</a>
+
+泥潭坛友与其说看不起GTO，不如说是宅宅特有的“讨论作品时忍不住要卖弄学识”病犯了。
+
+就好比同事对你说 ...</blockquote>
+虽然有点跑题了，这不是真正的粉丝，只是社群人云亦云，真正的粉丝会复读庵野的证言只看TV版就行了
+
