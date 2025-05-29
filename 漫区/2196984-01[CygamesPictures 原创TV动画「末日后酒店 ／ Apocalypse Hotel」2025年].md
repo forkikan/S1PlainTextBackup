@@ -4654,3 +4654,11 @@ CygamesPictures在这片的打戏质量确实没得说，<strong>经常</strong>
 那个还是人身下半坦克，这个把机器人下半身改成坦克底盘不是更合理。 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 他这个决战更像是装甲核心6吧……坦克底盘轮椅
 
+
+*****
+
+####  有钱多买小人  
+##### 410#       发表于 2025-5-29 14:40
+
+让八千代自己掉下来还不如说14年后狸猫上去回收回来。反正那么喜欢eva，也不差这一点吧。
+

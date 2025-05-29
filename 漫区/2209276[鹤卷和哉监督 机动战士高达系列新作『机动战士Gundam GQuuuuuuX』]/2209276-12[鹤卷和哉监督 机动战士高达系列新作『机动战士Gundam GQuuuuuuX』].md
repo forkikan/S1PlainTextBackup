@@ -4730,3 +4730,14 @@ kirakira指nt我最早觉得是nt看宇宙里群星发光的闪亮kirakira
 
 鸭叔叔能不能分到新机，还是说让他再上一把自己心心念念的红高达
 
+
+*****
+
+####  猪突猛进R  
+##### 16702#       发表于 2025-5-29 14:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67862569&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-29 13:50</a>
+
+鸭叔叔能不能分到新机，还是说让他再上一把自己心心念念的红高达</blockquote>
+吉翁号、红螳螂、理科迪亚士、百式、零式，选择有很多。
+

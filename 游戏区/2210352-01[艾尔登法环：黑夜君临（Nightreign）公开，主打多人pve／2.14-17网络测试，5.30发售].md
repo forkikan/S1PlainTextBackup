@@ -3647,3 +3647,14 @@ fs看来是要在pvp的道上一条路走到黑，像黑魂血源这样的正统
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  usodakedo  
+##### 392#       发表于 2025-5-29 14:36
+
+ 本帖最后由 usodakedo 于 2025-5-29 14:39 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67862656&amp;ptid=2210352" target="_blank">budong 发表于 2025-5-29 14:19</a>
+听说只有四十人开发</blockquote>
+具体有哪篇采访说人数吗？如果是这个开发人数还算有点情有可原，但也只是有点，目前评测看下来主要问题还是肉鸽部分太保守了
+
