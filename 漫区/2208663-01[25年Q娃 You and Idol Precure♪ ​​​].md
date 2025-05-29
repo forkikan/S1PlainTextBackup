@@ -485,3 +485,16 @@ ace变化差不多吧，被大伙从头到尾吐槽小学生bba的，倒是felic
 
 2025-5-29 21:14 上传
 
+
+*****
+
+####  ΣPRC  
+##### 919#       发表于 2025-5-30 03:32
+
+隔壁豚楼还有人搬图，这楼啥都没有，门可罗雀了都
+
+上推特随便捡了点
+<img src="https://p.sda1.dev/24/04abf739aa60387ec727354b5a9cc311/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI JER-AN20, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
