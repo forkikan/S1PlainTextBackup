@@ -443,3 +443,11 @@ Nikke角色“红莲”将作为BOSS出现在剑星中，击败她后可以获�
 
 —— 来自 HUAWEI NOH-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  muderx  
+##### 2058#       发表于 2025-5-29 19:57
+
+皮肤是付费dlc还是免费更新？
+

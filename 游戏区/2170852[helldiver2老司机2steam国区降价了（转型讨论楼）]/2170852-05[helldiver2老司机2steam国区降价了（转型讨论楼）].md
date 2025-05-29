@@ -4345,3 +4345,24 @@ dm撒泼打滚还能怪pl不按dm剧本来了，真够贱的
 
 跟着mo回去打虫子了，漫山遍野的花蚊子让我觉得南线还是南线，加了拼好人利维坦几个单位还是压力小
 
+
+*****
+
+####  UNICORN00  
+##### 6338#       发表于 2025-5-29 19:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67863841&amp;ptid=2170852" target="_blank">redwolfwlm 发表于 2025-5-29 19:53</a>
+
+你无法解放一座城市！
+
+这个事件的机制是，城市里的鱿鱼(指敌人)越少，地狱潜兵就越难找到它们。想象一下在 ...</blockquote>
+难绷超级年度运营
+
+
+*****
+
+####  白昼梦DD  
+##### 6339#       发表于 2025-5-29 20:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">只能说永远都是那副嘴脸
+
