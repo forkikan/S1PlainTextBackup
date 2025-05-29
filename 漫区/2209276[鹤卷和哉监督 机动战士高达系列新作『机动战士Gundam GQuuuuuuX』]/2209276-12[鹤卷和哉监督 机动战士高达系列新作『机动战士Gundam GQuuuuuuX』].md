@@ -5325,3 +5325,16 @@ GQ的编剧肯定看了雷霆宙域而且看到了很后面，雷霆宙域里AE�
 我觉得喵安的萌点在于酷姐外表下是个软糯小动物，软糯小动物被踢几脚后又应激变成野蛮癫婆的多重反差，结果 ...</blockquote>
 这集喵安已经是心死状态了，唯一的情绪波动反而是得知麻球去地球的时候
 
+
+*****
+
+####  LOLITA  
+##### 16753#       发表于 2025-5-30 00:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67862006&amp;ptid=2209276" target="_blank">吴怀在 发表于 2025-5-29 11:05</a>
+
+所以怎么包饺子？修斯挂掉，两个女主上同一所大学，夏亚和拉拉结婚？</blockquote>
+肯定是骡和拉拉结婚，夏亚和紫婆联姻共建新吉恩，收喵安为养女。
+
+番茄实现了人生理想之后大彻大悟回side6坐牢（无期徒刑）<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
