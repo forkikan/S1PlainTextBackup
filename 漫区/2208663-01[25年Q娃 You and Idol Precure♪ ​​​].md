@@ -439,3 +439,11 @@ ace变化差不多吧，被大伙从头到尾吐槽小学生bba的，倒是felic
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67862116&amp;ptid=2208663" target="_blank">新HGCG 发表于 2025-5-29 11:25</a></blockquote>
 正常 这几年卖破铁皮塑料板的策划师 满脑子就想各种卖男人谷<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  それは奇跡です  
+##### 914#       发表于 2025-5-29 12:01
+
+卧槽，这俩妖精变人的人设是认真的吗<img src="https://static.stage1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">
+
