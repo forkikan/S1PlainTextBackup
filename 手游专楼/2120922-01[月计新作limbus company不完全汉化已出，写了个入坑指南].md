@@ -126,3 +126,11 @@
 
 这种安排的话有点像第四章，冬柏是赛季人格而非东郎。不过也可能第八章part3会再决战一次孔子，毕竟子贡还没上场呢。
 
+
+*****
+
+####  丢人居士  
+##### 1134#       发表于 2025-5-29 12:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">来了，是鳊鱼巴适特有的npc全部活暗暗
+

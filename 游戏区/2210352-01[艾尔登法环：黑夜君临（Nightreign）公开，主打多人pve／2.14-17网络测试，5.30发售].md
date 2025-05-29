@@ -3531,3 +3531,17 @@ GS竟然才是最孝顺的那个
 
 这游戏宫崎英高没参与，全权放手给手下人做的 制作人 总监是石崎淳也，所以可以甩锅，隔壁黄昏之血宫崎英高挂的总监和制作人，这游戏拉了 就没办法甩锅了，据小高说黄昏之血这游戏灵感和初衷来源于跑团 想象不到做成什么样子。
 
+
+*****
+
+####  pzk  
+##### 381#       发表于 2025-5-29 12:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860759&amp;ptid=2210352" target="_blank">屌丶哲 发表于 2025-5-28 22:52</a>
+没有具有特殊效果的BUFF，只有保守的数值提升，所以打起来可能还没有本体爽
+
+本体好歹还能拿到轮椅体验体验 ...</blockquote>
+其实试玩的时候是有一些动作后触发技能的被动的，比如闪避后触发创星雨。也有局外成长可以改变动作，我打到一个钩爪后可以派生火焰刀的宝石。
+
+但试玩版开放的池子非常小，看评测说正式版的内容也不多<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

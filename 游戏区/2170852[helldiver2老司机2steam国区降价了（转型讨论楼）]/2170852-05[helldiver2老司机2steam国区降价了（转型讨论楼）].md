@@ -3231,3 +3231,30 @@ DSS来了 后半夜不愁了
 
 现在的进度是多少啊？
 
+
+*****
+
+####  FLZB  
+##### 6226#       发表于 2025-5-29 12:04
+
+乔尔再不发力on sea下午就要解放了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mikimk3  
+##### 6227#       发表于 2025-5-29 12:09
+
+狗日乔尔还不敢开荣都 开了分分钟让它送给鱿鱼炸
+
+*****
+
+####  xinfengj  
+##### 6228#       发表于 2025-5-29 12:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67862244&amp;ptid=2170852" target="_blank">折岛睦月 发表于 2025-5-29 11:58</a>
+
+现在的进度是多少啊？</blockquote>
+84% 每小时+4%左右
+
+差不多正好下午五点左右能完全解放
+
