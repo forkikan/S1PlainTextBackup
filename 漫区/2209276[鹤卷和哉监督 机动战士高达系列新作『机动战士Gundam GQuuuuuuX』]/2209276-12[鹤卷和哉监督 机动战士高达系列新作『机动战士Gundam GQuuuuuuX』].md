@@ -4661,3 +4661,36 @@ kirakira元祖动画里就有了</blockquote>
 —— 来自 HO ...</blockquote>
 搞什么事？弱化人和站桩精神病和不能变形的魔鬼鱼？这部剧最大的问题就是设定和表现不符。看看喵安的大house有半点要破产的样子吗？side3描写有萧条的感觉吗？哪怕NPC或新闻里提到物价又涨了也行啊。重灾区就kirakira。作为观众的你觉得kirakira了吗？要知道，哪怕是强调不可名状的克苏鲁题材游戏，也要通过优秀的视听表现来传达。kirakira的动画表现可以说毫无波澜，动态炫彩蓝底PPT，很难让人共情。我一直喜欢京阿尼的冰菓第一次“我很好奇”的表达，吃蛋挞美若天仙，看的男主和观众都心动，自然与角色共情。
 
+
+*****
+
+####  syndrome2032  
+##### 16695#       发表于 2025-5-29 12:21
+
+kirakira指nt我最早觉得是nt看宇宙里群星发光的闪亮kirakira 
+
+结果一通操作下来怎么是海里?
+虽然宇宙(天空)某种程度上也是海没错。
+
+*****
+
+####  wing130083  
+##### 16696#       发表于 2025-5-29 12:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67862076&amp;ptid=2209276" target="_blank">plok201 发表于 2025-5-29 11:17</a>
+
+最简单的包饺子不就我们的UC才刚刚开始，结局给几个定格画面，里面出现夏亚总帅视察青之诺亚与知名哈罗企业 ...</blockquote>
+总帅和哈罗企业家真的不是互相使用空手道嘛(
+
+*****
+
+####  银川智将Kuroky  
+##### 16697#       发表于 2025-5-29 12:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67862000&amp;ptid=2209276" target="_blank">未来起航 发表于 2025-5-29 11:03</a>
+
+还是要说，修司目前写得属实是看了就犯困。宇宙巡警露露子虽然是搞刻板恋爱戏码的喜剧，但nova作为欲望投射 ...</blockquote>
+怎么说呢，这弱智配置加弱智男主让我感觉和Excel Saga的搭配差不多
+
+你一想g一串u其实也是个kuso片是不是就观感好很多了
+
