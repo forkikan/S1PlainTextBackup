@@ -5103,3 +5103,20 @@ X 上的 機動戦士Gundam GQuuuuuuX×東急歌舞伎町タワー：“📢情�
 这个画各种商品绘以及官网人设/机设图的画师，我早就想说能不能请他不要再画了，整个片场最菜的就是他，上 ...</blockquote>
 同意，这浴衣番茄看着像红色奶龙
 
+
+*****
+
+####  无念  
+##### 16733#       发表于 2025-5-29 19:32
+
+官网人设和永恒游戏里半身像看起来也是这位画的，估计是卡哈/万代的新晋社内画师吧
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  武川日玄  
+##### 16734#       发表于 2025-5-29 19:33
+
+快进了一下看到初号机配色的MS<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+

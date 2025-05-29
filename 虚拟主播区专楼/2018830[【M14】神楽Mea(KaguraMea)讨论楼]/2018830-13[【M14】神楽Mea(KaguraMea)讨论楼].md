@@ -11435,3 +11435,14 @@ aoshima关注主播是2024年9月1日，就是夏露杯引流来的，正好那�
 
 错觉吗，感觉这场的气氛不是很令人舒服啊，还是说霓虹那边的节目效果就是这样的（
 
+
+*****
+
+####  秋游刃  
+##### 18596#       发表于 2025-5-29 19:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67863582&amp;ptid=2018830" target="_blank">TiHaru 发表于 2025-5-29 18:40</a>
+
+aoshima关注主播是2024年9月1日，就是夏露杯引流来的，正好那段时间imp3也在看，还发了推支持的 ...</blockquote>
+可以看看“宇江城な”这个主播，也是你咩的LOL小姐妹，虽然明面上没互动过。aoshima在那边高强度互动。
+
