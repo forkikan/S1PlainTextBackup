@@ -4557,3 +4557,16 @@ steam差评又刷起来了，难评。虽然箭头过去劣迹斑斑，这次剧
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  FLZB  
+##### 6359#       发表于 2025-5-29 22:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67864387&amp;ptid=2170852" target="_blank">ddy2811 发表于 2025-5-29 22:15</a>
+
+把人动员起来然后稳不住安抚不好，那就是会营啸的</blockquote>
+问题on sea已经守住了啊，不懂还想要什么。这次从头到尾on sea是占了两次便宜大回血最终坚守下来的，按道理国人应该是最没话说的，但现在仅仅是因为打满后没锁城就暴走了我真无法理解。
+
+最后保下荣都和on sea，一方面满足箭头的自嗨，另一方面也肯定了玩家的付出，也是之前预想的好结局了，没想到事情还是发展成了这样<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
