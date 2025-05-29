@@ -4914,3 +4914,24 @@ TVアニメ「アポカリプスホテル」第9話 Web予告｜ 2025年6月3日
 
 そしてその瞬間は、私たちにとっても――『銀河楼』にとっても、大切な節目となるのです。
 
+
+*****
+
+####  pzk  
+##### 430#       发表于 2025-5-29 23:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67862496&amp;ptid=2196984" target="_blank">syndrome2032 发表于 2025-5-29 13:18</a>
+
+不是cps2游戏惩罚者第二关boss吗。
+
+那个还是人身下半坦克，这个把机器人下半身改成坦克底盘不是更合理。 ...</blockquote>
+半人半坦克的起源可能更早（例如钢坦克），但CY的手游里确实有个和这集的八千代元素几乎完全一致的角色……
+
+<img src="https://img.stage1st.com/forum/202505/29/235409f0izaii4zra4xfli.jpg" referrerpolicy="no-referrer">
+
+<strong>04B54D5E01627A3EBE168BBD2AD528B0.jpg</strong> (421.69 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-29 23:54 上传
+
