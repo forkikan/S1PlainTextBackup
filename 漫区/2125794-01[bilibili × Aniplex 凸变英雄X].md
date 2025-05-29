@@ -2823,3 +2823,16 @@ anime corner上周又排名第三了，海外还是挺有受众的。
 
 2025-5-28 20:54 上传
 
+
+*****
+
+####  行政裁定书  
+##### 250#       发表于 2025-5-29 08:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860287&amp;ptid=2125794" target="_blank">新HGCG 发表于 2025-5-28 20:55</a>
+
+哇 新高</blockquote>
+我看海外评价，这集评价还行，但不是最高的。
+
+这集在日本怎么就评价最高了呢？日本人的看点是什么？<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

@@ -4212,3 +4212,15 @@ krkr不是一个 ...</blockquote>
 我居然沒能夠初見就認出夏亞的變裝！</blockquote>
 声优的问题吧，是原来的声优的话肯定马上认出来了
 
+
+*****
+
+####  无念  
+##### 16650#       发表于 2025-5-29 08:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67861371&amp;ptid=2209276" target="_blank">kkl12355 发表于 2025-5-29 08:26</a>
+蛋糕哥搞错了，恶魔不是nt而是kirakira人，魔女拒绝kirakira，所以人死了。等喵安kirakira起来，就该蛋糕 ...</blockquote>
+吉翁都快破产了，联邦还缩在地球准备搞事，你觉得她不够冷静，基连肯定觉得老太婆不够极端<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

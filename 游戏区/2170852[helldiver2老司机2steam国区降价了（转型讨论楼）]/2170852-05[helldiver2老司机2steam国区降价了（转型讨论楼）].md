@@ -3047,3 +3047,14 @@ DSS来了 后半夜不愁了
 —— 来自 HUAWEI ALN-AL00, Android 12, 鹅球 v3.5.99</blockquote>
 德味烟熏鱿鱼，传统艺能<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhwpjy  
+##### 6209#       发表于 2025-5-29 08:40
+
+<blockquote>RPMWT 发表于 2025-5-28 21:50
+不是说代入感有问题啊，好歹来几个说上海话的平民NPC，或者大楼上挂几个中文广告牌什么的……这就一个名 ...</blockquote>
+
+本来就是玩个代入 有种使命感  我倒是没啥反对的 最后真守荣都 也会守 贴吧里面上海丢了不守的 也能理解 但是为了自己剧本吹挂哥也来拯救上海 我是感觉真恶心
+
