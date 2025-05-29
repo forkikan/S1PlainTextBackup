@@ -4725,3 +4725,29 @@ steam差评又刷起来了，难评。虽然箭头过去劣迹斑斑，这次剧
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  灰色骑士  
+##### 6375#       发表于 2025-5-30 00:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67864564&amp;ptid=2170852" target="_blank">FLZB 发表于 2025-5-29 23:17</a>
+守住是指全球玩家一起把on sea从死亡线上拖了回来并且按目前的进度基本确定能存活到最后。100%没有任何意 ...</blockquote>
+没有任何意义，那为啥不给呢？你不觉得自己说的自相矛盾吗。
+
+—— 来自 vivo V2115A, Android 11, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  赤井稻妻  
+##### 6376#       发表于 2025-5-30 00:32
+
+ 本帖最后由 赤井稻妻 于 2025-5-30 00:33 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67864515&amp;ptid=2170852" target="_blank">qxs 发表于 2025-5-29 23:01</a>
+
+守住了不给100％进度？贱头不认100％所谓守住又从何说起，无非是被逼下跪捏着鼻子把抵抗度和入侵度从后台 ...</blockquote>
+中文翻译的是防守成功，英文用的held，没有任何暗示防守会成功的意思，只是表示该区域有百分之多少处于超级地球的控制，导致只有中国玩家会认为到了100%会防守成功
+
+真正的防守成功指的是在时间结束后，城市依然未被攻陷
+
