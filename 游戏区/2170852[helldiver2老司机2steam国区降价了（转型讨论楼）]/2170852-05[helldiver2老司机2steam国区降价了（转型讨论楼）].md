@@ -4751,3 +4751,23 @@ steam差评又刷起来了，难评。虽然箭头过去劣迹斑斑，这次剧
 
 真正的防守成功指的是在时间结束后，城市依然未被攻陷
 
+
+*****
+
+####  一之江瑞江  
+##### 6377#       发表于 2025-5-30 00:39
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不说了 等早上东线做完任务看看有没有什么动静吧
+
+*****
+
+####  赤井稻妻  
+##### 6378#       发表于 2025-5-30 00:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67864700&amp;ptid=2170852" target="_blank">风萧飒 发表于 2025-5-30 00:07</a>
+
+开服是单纯打不过，麦河那地型还不好打，两把能有一把过都算高手了
+
+—— 来自 S1Fun ...</blockquote>
+麦河当时是因为没有补给线导致的吧，早期对星际战争机制根本不了解，只能瞎打
+
