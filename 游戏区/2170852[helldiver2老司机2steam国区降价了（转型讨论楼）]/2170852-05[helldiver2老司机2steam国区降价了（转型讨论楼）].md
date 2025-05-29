@@ -4771,3 +4771,15 @@ steam差评又刷起来了，难评。虽然箭头过去劣迹斑斑，这次剧
 —— 来自 S1Fun ...</blockquote>
 麦河当时是因为没有补给线导致的吧，早期对星际战争机制根本不了解，只能瞎打
 
+
+*****
+
+####  风萧飒  
+##### 6379#       发表于 2025-5-30 00:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67864767&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2025-5-30 00:40</a>
+麦河当时是因为没有补给线导致的吧，早期对星际战争机制根本不了解，只能瞎打 ...</blockquote>
+那时候大伙装备也不好打机器人，主手只有一把焦土好用，很多人还没解锁。三号位唯一选择是机炮，当时哨戒炮我记得也没加强过，不像现在有这么多选择。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
