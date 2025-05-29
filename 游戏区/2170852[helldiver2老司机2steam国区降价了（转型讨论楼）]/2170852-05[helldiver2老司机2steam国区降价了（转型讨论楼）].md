@@ -3443,3 +3443,43 @@ dss昨晚火线救场拉回一波风评要是没几天就被光能干沉了估�
 这荣都真的幽默啊，4座城市闹了半天都不肯开，全世界都知道这是一座胆 ...</blockquote>
 最好能提前结束超级地球防卫战，打光能者太无聊了
 
+
+*****
+
+####  rainknine  
+##### 6247#       发表于 2025-5-29 15:49
+
+关于挂哥
+最近群里的冒充有票者已经开始说什么
+“都是挂守的”
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+牙痒痒
+
+*****
+
+####  全装甲夏亚  
+##### 6248#       发表于 2025-5-29 15:49
+
+至少还应该有收复失地的战役环节吧，把城市一个一个打回来
+
+*****
+
+####  新庄運切  
+##### 6249#       发表于 2025-5-29 15:49
+
+马上解放了，最后不到一小时<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Waldeinsamkeit  
+##### 6250#       发表于 2025-5-29 15:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67862812&amp;ptid=2170852" target="_blank">plok201 发表于 2025-5-29 15:20</a>
+说起来解包有说这100%后会发生啥么
+
+这荣都真的幽默啊，4座城市闹了半天都不肯开，全世界都知道这是一座胆 ...</blockquote>
+我在隔壁看到的，上海纽约有胜利/沦陷图，斯德哥尔摩只有胜利图，其他城市图都没有<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

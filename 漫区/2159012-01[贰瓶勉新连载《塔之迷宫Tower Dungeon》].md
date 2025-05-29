@@ -1157,3 +1157,14 @@ dmzj章末吐槽怎么一群人说公主和龙融合了，最后一页这是公�
 
 日本的神巫六六
 
+
+*****
+
+####  albertfu  
+##### 130#       发表于 2025-5-29 15:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67861067&amp;ptid=2159012" target="_blank">zzf111 发表于 2025-5-29 00:52</a>
+
+妈宝老王....奇怪的爱好不会和莱欧斯一档吧</blockquote>
+这一格当时看了半天，敢情这国王一辈子没断奶是吧
+
