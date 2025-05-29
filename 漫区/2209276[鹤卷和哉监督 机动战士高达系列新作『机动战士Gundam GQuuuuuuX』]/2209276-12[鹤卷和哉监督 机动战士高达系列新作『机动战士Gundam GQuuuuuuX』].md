@@ -4309,3 +4309,24 @@ NT在聊天室里神交需要理由吗？
 newtype的事情不用你们搞那么清楚.jpg明白吗</blockquote>
 历代NT哪来的这种吸嗨了的神经病，每个角色你都看得懂为啥要发癫的好吧
 
+
+*****
+
+####  yichengyu  
+##### 16660#       发表于 2025-5-29 09:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67861538&amp;ptid=2209276" target="_blank">Rhantolk 发表于 2025-5-29 09:29</a>
+
+独角兽也做不到人在外面就能操作吧</blockquote>
+巴垃圾不止一次这么做了
+
+
+*****
+
+####  psycho_Gadfly  
+##### 16661#       发表于 2025-5-29 09:51
+
+个人觉得……这片目前最大的问题就是KrKR的表现太像磕嗨了，而且目前只有麻球和杜表现得很不正常
+
+当然如果鹤卷最后能解释那也行吧
+
