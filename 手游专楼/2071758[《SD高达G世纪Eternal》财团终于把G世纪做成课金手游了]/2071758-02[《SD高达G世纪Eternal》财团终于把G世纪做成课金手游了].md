@@ -2240,3 +2240,27 @@ HP低於一定程度時
 
 但是几乎达不成，用Z要超一击75%以上血量才能出伤，没有鼓气必闪，加血精神难用，其他暴击机如海盗实际也不太强，当前最多去永恒的Z关虐菜
 
+
+*****
+
+####  胖达君  
+##### 1678#       发表于 2025-5-29 14:14
+
+PVP相对平民的打法<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202505/29/141348lk8xnriwrslw8wqw.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (458.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-29 14:13 上传
+
+<img src="https://img.stage1st.com/forum/202505/29/141348w5wu5e8j02c4e004.png" referrerpolicy="no-referrer">
+
+<strong>wechat_2025-05-29_140410_428.png</strong> (444.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-29 14:13 上传
+

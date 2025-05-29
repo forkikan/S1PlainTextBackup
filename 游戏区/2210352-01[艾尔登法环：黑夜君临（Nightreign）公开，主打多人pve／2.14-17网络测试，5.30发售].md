@@ -3607,3 +3607,21 @@ GS竟然才是最孝顺的那个
 问题这个也是万代发行啊
 企划应该是bn那边主导想搞的
 
+
+*****
+
+####  budong  
+##### 388#       发表于 2025-5-29 14:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67862627&amp;ptid=2210352" target="_blank">usodakedo 发表于 2025-5-29 14:11</a>
+答案很简单，就是为了多赚钱，你整合成一个dlc，卖的再好评价再高也是万代赚大头，没准不如打工两次来的 ...</blockquote>
+听说只有四十人开发
+
+
+*****
+
+####  siansian  
+##### 389#       发表于 2025-5-29 14:23
+
+fs看来是要在pvp的道上一条路走到黑，像黑魂血源这样的正统魂游恐怕又要遥遥无期了
+

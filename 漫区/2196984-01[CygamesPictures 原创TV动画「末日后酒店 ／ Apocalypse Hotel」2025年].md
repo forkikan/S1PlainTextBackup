@@ -4641,3 +4641,16 @@ CygamesPictures在这片的打戏质量确实没得说，<strong>经常</strong>
 
 那个还是人身下半坦克，这个把机器人下半身改成坦克底盘不是更合理。
 
+
+*****
+
+####  太极八爪鱼  
+##### 409#       发表于 2025-5-29 14:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67862496&amp;ptid=2196984" target="_blank">syndrome2032 发表于 2025-5-28 21:18</a>
+
+不是cps2游戏惩罚者第二关boss吗。
+
+那个还是人身下半坦克，这个把机器人下半身改成坦克底盘不是更合理。 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 他这个决战更像是装甲核心6吧……坦克底盘轮椅
+
