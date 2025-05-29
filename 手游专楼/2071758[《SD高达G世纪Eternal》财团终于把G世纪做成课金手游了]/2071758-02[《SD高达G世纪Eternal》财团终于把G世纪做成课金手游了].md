@@ -2193,3 +2193,16 @@ HP低於一定程度時
 
 休闲玩家问问，UR的牛和独角兽值得抽吗，已有Z EXIA和自由的UR
 
+
+*****
+
+####  windtrack  
+##### 1674#       发表于 2025-5-29 10:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67861830&amp;ptid=2071758" target="_blank">猫执事 发表于 2025-5-29 10:26</a>
+
+休闲玩家问问，UR的牛和独角兽值得抽吗，已有Z EXIA和自由的UR</blockquote>
+不值，都是普池货，玩下去早晚能出的东西
+
+休闲玩家钻就留着抽限定机和船
+
