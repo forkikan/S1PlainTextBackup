@@ -4769,3 +4769,19 @@ CygamesPictures在这片的打戏质量确实没得说，<strong>经常</strong>
 
 至少在大战虫子回合后，嘭子是作品里起到“是生物文明”视角定位的感觉就很明显了<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jacket  
+##### 421#       发表于 2025-5-29 17:30
+
+姐姐变大了弟弟怎么还是小孩形态
+
+
+*****
+
+####  Renes  
+##### 422#       发表于 2025-5-29 17:36
+
+姐姐刚来54岁，花了快150-200年才变大人，弟弟可能还得过个50年再说
+

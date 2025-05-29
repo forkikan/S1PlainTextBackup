@@ -3998,3 +3998,24 @@ glory of mankind<img src="https://static.stage1st.com/image/smiley/face2017/025.
 
 —— 来自 samsung SM-G7810, Android 11, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  UNICORN00  
+##### 6304#       发表于 2025-5-29 17:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67863147&amp;ptid=2170852" target="_blank">zhwpjy 发表于 2025-5-29 16:41</a>
+瑞典制作人 对自己老家有私心不是很正常  他有这个想法 但是现在战局变化的情况 起码都比较合理  空间站 ...</blockquote>
+玩家想守自己喜欢守的地方也很正常
+
+—— 来自 Xiaomi 22041211AC, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  ddy2811  
+##### 6305#       发表于 2025-5-29 17:28
+
+“防御战”就只能是在城里挨打是真的搞笑<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+来个游击队光复沦陷区、反攻切后路迫使回援、配合DSS奇袭光能舰队之类不行吗？
+

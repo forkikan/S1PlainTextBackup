@@ -5006,3 +5006,29 @@ X 上的 機動戦士Gundam GQuuuuuuX×東急歌舞伎町タワー：“📢情�
 
 这作的周边出太多了吧，卖得完吗？<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  YU_JI  
+##### 16724#       发表于 2025-5-29 17:30
+
+<blockquote>shinoverse 发表于 2025-5-29 17:14
+这是疑似手电筒的尤玛恩托
+
+这是尤玛恩托（克苏鲁神话-外神）的形象</blockquote>
+这么看怎么都不可能是普普通通的手电筒，高低是沾了点玄乎的东西
+
+
+*****
+
+####  57042711  
+##### 16725#       发表于 2025-5-29 17:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67863277&amp;ptid=2209276" target="_blank">shinoverse 发表于 2025-5-29 17:14</a>
+这是疑似手电筒的尤玛恩托
+
+这是尤玛恩托（克苏鲁神话-外神）的形象</blockquote>
+这个标志挺有意思啊，莫非需要献祭三个krkr人才能启动吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
