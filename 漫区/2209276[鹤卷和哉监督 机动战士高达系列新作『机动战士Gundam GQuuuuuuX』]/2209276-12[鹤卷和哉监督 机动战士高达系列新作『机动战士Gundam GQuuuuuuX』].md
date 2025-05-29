@@ -4892,3 +4892,55 @@ kirakira指nt我最早觉得是nt看宇宙里群星发光的闪亮kirakira
 
 大文豪小说版和ova版第四章开始就不是一个东西了..........除了那个盒子还是一样搞笑之外对驸马爷的塑造小说版比动画版强多了，动画版删了很多戏份搞得太舔狗太空洞了，战斗部分最后决战也是很简单的超大出力光剑致敬z和zz一刀砍了新安洲，ova都严重魔改了
 
+
+*****
+
+####  岸浪白野  
+##### 16717#       发表于 2025-5-29 16:37
+
+ 本帖最后由 岸浪白野 于 2025-5-29 16:40 编辑 
+
+[X 上的 機動戦士Gundam GQuuuuuuX×東急歌舞伎町タワー：“📢情報解禁!! ／ 機動戦士Gundam GQuuuuuuX × 東急歌舞伎町タワー 　クライマックスコラボレーション開催決定！ ＼ オリジナルグッズ販売やテナントフードコラボを開催！ 歌舞伎町タワーを背景にした描き下ろしビジュアルも公開します！👀✨ 詳細はこちら☑️](https://x.com/GQ_KABUKICHO/status/1927998353700454491)[https://t.co/3GanMR5f2w](https://t.co/3GanMR5f2w) #GQuuuuuuX [https://t.co/QTfN8HoLh9](https://t.co/QTfN8HoLh9)” / X
+
+[戦士Gundam GQuuuuuuX×東急歌舞伎町タワー CLIMAX COLLABORATION](https://www.tokyu-kabukicho-tower.jp/gundam_gquuuuuux/)
+
+<img src="https://img.stage1st.com/forum/202505/29/163608ocanjal0wkpm4lmy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1014.64 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-29 16:36 上传
+
+<img src="https://img.stage1st.com/forum/202505/29/163642by43dwxvqpvrp3zf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.32 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-29 16:36 上传
+
+<img src="https://img.stage1st.com/forum/202505/29/163850y6adzdt8fvnkqepd.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250529163807.jpg</strong> (767.5 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-29 16:38 上传
+
+<img src="https://img.stage1st.com/forum/202505/29/164027f9ctjwc5tfnmw9yy.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250529163955.jpg</strong> (852.44 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-29 16:40 上传
+
+
+*****
+
+####  Rhantolk  
+##### 16718#       发表于 2025-5-29 16:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这和X是一回事吗，卡罗德原先是什么身份，上了机之后是什么身份，有没有承担责任有没有为世界做出贡献，蒂法是不是充当了引导卡罗德的这个角色。蒂法和卡罗德是双向救赎，但是鸡胯这几个人似乎没有展现出太多这方面意思吧，不是反而一股子滑向深渊的味道吗
+

@@ -2280,3 +2280,11 @@ PVP相对平民的打法<img src="https://static.stage1st.com/image/smiley/face2
 
 gto扎古和酸浆果一起出？这俩也没关系啊
 
+
+*****
+
+####  windtrack  
+##### 1681#       发表于 2025-5-29 16:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是你这GTO夏亚是怎么出来的，也太自由了
+

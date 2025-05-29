@@ -3744,3 +3744,82 @@ dss昨晚火线救场拉回一波风评要是没几天就被光能干沉了估�
 
 这次太恶心了直接锁血。
 
+
+*****
+
+####  Sevenzerofive  
+##### 6277#       发表于 2025-5-29 16:38
+
+锁了，99.9783
+
+—— 来自 samsung SM-G7810, Android 11, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  敏感词好多  
+##### 6278#       发表于 2025-5-29 16:39
+
+哇，箭畜演都不演了，想吃超级差评了属于是
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ChrisSnake  
+##### 6279#       发表于 2025-5-29 16:40
+
+虽然人奸城开了 但光能使者开了次元武器 onsea解放度被锁 解放增长值一直降
+
+估计最后会比人奸城先沦陷 人奸win
+
+
+*****
+
+####  FLZB  
+##### 6280#       发表于 2025-5-29 16:41
+
+不过锁血也是意料之中的，这次入侵有总兵力值，打回100%也不过是在这个瞬间夺回了所有领土，并不代表光能的进攻就会停止<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zhwpjy  
+##### 6281#       发表于 2025-5-29 16:41
+
+<blockquote>Ashice 发表于 2025-5-29 16:21
+又要和现实地名对应拉玩家上线
+
+又要卡着荣城直到现在才开就是最大的私心 ...</blockquote>
+瑞典制作人 对自己老家有私心不是很正常  他有这个想法 但是现在战局变化的情况 起码都比较合理  空间站修好给也给了强力buff 开一个城市就说 分兵逼迫 真没必要
+
+*****
+
+####  哈迪斯兜帽  
+##### 6282#       发表于 2025-5-29 16:42
+
+无语，典型的欧盟思维
+
+<img src="https://img.stage1st.com/forum/202505/29/164207gagoby3ig26dt38a.jpg" referrerpolicy="no-referrer">
+
+<strong>E31EFAC1C6C2A2D76470B093D77B06AD.jpg</strong> (15.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-29 16:42 上传
+
+*****
+
+####  内拉祖里  
+##### 6283#       发表于 2025-5-29 16:44
+
+光能大人，this way<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+这一波原来棒子在大气层<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  unsh  
+##### 6284#       发表于 2025-5-29 16:45
+
+就算是瞬间也没问题，大家打那么久就想要那么一个反馈，你直接给锁了就别怪被人喷了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
