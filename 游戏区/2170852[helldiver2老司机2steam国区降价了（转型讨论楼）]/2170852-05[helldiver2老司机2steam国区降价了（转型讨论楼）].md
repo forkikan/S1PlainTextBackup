@@ -3611,3 +3611,74 @@ dss昨晚火线救场拉回一波风评要是没几天就被光能干沉了估�
 
 —— 来自 Xiaomi 24129PN74C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  折岛睦月  
+##### 6263#       发表于 2025-5-29 16:16
+
+终于开荣城了？
+
+*****
+
+####  ykyin09  
+##### 6264#       发表于 2025-5-29 16:17
+
+上海现在的解放度甚至比荣都还高，没绷住<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  风萧飒  
+##### 6265#       发表于 2025-5-29 16:19
+
+刚开的城市没解放度正常，毕竟做任务还要时间。感觉欧洲人应该无所谓守上海还是斯德哥尔摩，美国佬说不定更倾向上海一点
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Ashice  
+##### 6266#       发表于 2025-5-29 16:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67863012&amp;ptid=2170852" target="_blank">zhwpjy 发表于 2025-5-29 16:13</a>
+
+我就感觉有些人玩魔怔了 虽然箭头打算在荣都打决战 但是这几天下来操作也都在合理范围内 只要战事不利 就骂 ...</blockquote>
+又要和现实地名对应拉玩家上线
+
+又要卡着荣城直到现在才开就是最大的私心
+
+*****
+
+####  xinfengj  
+##### 6267#       发表于 2025-5-29 16:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67863040&amp;ptid=2170852" target="_blank">风萧飒 发表于 2025-5-29 16:19</a>
+
+刚开的城市没解放度正常，毕竟做任务还要时间。感觉欧洲人应该无所谓守上海还是斯德哥尔摩，美国佬说不定更 ...</blockquote>
+但是上海要承受7.8的进攻压力，被分流几分钟最后推不到100%就恶心了
+
+*****
+
+####  风萧飒  
+##### 6268#       发表于 2025-5-29 16:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67863049&amp;ptid=2170852" target="_blank">xinfengj 发表于 2025-5-29 16:21</a>
+但是上海要承受7.8的进攻压力，被分流几分钟最后推不到100%就恶心了</blockquote>
+现在反攻度有dss加成的（我估计应该在50%左右），7.8说实话随便守，本来光能族兵力也撑不了两天了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  哈迪斯兜帽  
+##### 6269#       发表于 2025-5-29 16:24
+
+我超
+
+还有4分钟
+
+赶紧凑个热闹
+
+刚刚看荣城只有零点几<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

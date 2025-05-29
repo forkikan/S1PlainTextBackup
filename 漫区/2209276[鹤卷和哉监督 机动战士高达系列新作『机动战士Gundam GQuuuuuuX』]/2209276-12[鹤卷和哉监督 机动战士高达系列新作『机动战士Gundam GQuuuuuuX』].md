@@ -4869,3 +4869,18 @@ kirakira指nt我最早觉得是nt看宇宙里群星发光的闪亮kirakira
 
 9分吧，1分留给没填坑
 
+
+*****
+
+####  llysander  
+##### 16715#       发表于 2025-5-29 16:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67861538&amp;ptid=2209276" target="_blank">Rhantolk 发表于 2025-5-29 09:29</a>
+
+独角兽也做不到人在外面就能操作吧</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer"> 硬要说的话，无工质飞盾是动画原创的，对波是原创的，意念撷取是原创的，armed arama塞克缪拐弯炮是原创的
+
+大文豪没写过，大文豪的战斗更土味真实系一点，所以最后夹了机械飞升内容也更唐突
+
+近年nt变成念力系绝地似乎已经是标准了...
+

@@ -3678,3 +3678,11 @@ fs看来是要在pvp的道上一条路走到黑，像黑魂血源这样的正统
 
 宫崎英高自己说的很想做吃鸡，只能说他采访时说的很多看起来像口嗨的东西都是真的，最近一次说想做jrpg，那大概真的已经在做了。
 
+
+*****
+
+####  xiaosayang  
+##### 395#       发表于 2025-5-29 16:18
+
+法环找鸟bro提款的坐牢感倒是继承jrpg刷刷刷精髓了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
