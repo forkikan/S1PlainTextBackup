@@ -2507,3 +2507,16 @@ snapshsnapot.jpg
 普通ur船加成从25提高到36
 机体可以靠sp化ssr机体拉平差距，只要有ur驾驶员，也就是少个ur技能，但是船只能靠氪…
 
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 1705#       发表于 2025-5-30 02:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67863312&amp;ptid=2071758" target="_blank">plok201 发表于 2025-5-29 17:22</a>
+
+按理说绿螳螂应该也是UR，突然好奇同人物同出处的角色要怎么分
+
+夏亚可以标个出处和年代，家兔这种，出一个 ...</blockquote>
+煌大和不就是么
+
