@@ -4570,3 +4570,28 @@ steam差评又刷起来了，难评。虽然箭头过去劣迹斑斑，这次剧
 
 最后保下荣都和on sea，一方面满足箭头的自嗨，另一方面也肯定了玩家的付出，也是之前预想的好结局了，没想到事情还是发展成了这样<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  白昼梦DD  
+##### 6360#       发表于 2025-5-29 22:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67864463&amp;ptid=2170852" target="_blank">FLZB 发表于 2025-5-29 22:38</a>
+
+问题on sea已经守住了啊，不懂还想要什么。这次从头到尾on sea是占了两次便宜大回血最终坚守下来的，按道 ...</blockquote>
+是啊，为什么打都打完了还要让所有人等着看箭头撸完射出来才能宣布游戏结束呢
+
+
+*****
+
+####  nekkihs2  
+##### 6361#       发表于 2025-5-29 22:53
+
+箭批们急了，让老中别不识抬举
+
+<img src="https://p.sda1.dev/24/4f7bd49cd41f3134f7afebf7e88118ba/1000031891.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/f1a4ae02e2539335ef3eb47f045d9c38/1000031890.jpg" referrerpolicy="no-referrer">
+
+硬要把超级上海的战功分给荣都
+<img src="https://p.sda1.dev/24/54f9e924a7a94e942bc3e705f59aca96/1000031892.jpg" referrerpolicy="no-referrer">
+
