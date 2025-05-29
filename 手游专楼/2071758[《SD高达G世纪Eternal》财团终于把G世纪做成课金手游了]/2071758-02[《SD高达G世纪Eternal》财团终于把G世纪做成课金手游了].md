@@ -2426,3 +2426,11 @@ gto扎古和酸浆果一起出？这俩也没关系啊
 这GP02怎么还带狙击枪，就为了EX乱舞开远程格子是吧，有点过于自由</blockquote>
 就是核弹那个发射筒吧，机战跟以前的G世纪里时不时拿来发各种奇奇怪怪的东西，物理光束都有
 
+
+*****
+
+####  xiongxingyu  
+##### 1697#       发表于 2025-5-29 21:56
+
+人物啥的不用担心，反正也没有建模，就和隔壁engage一样换件衣服甚至换个角度就能再出一个了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

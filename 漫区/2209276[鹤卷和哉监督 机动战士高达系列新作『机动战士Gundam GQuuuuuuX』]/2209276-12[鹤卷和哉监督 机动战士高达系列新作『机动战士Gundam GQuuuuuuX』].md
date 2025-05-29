@@ -5173,3 +5173,20 @@ X 上的 極楽湯/RAKU SPA(公式)：“6/19(木) より 『機動戦士Gundam 
 
 这么看，殖民卫星激光炮是不是在基连手上，结尾能不能看到两个大杀器对轰
 
+
+*****
+
+####  猪突猛进R  
+##### 16740#       发表于 2025-5-29 21:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67864124&amp;ptid=2209276" target="_blank">Renes 发表于 2025-5-29 20:58</a>
+
+这么看，殖民卫星激光炮是不是在基连手上，结尾能不能看到两个大杀器对轰 ...</blockquote>
+吉翁在0079的资源去搞量产大扎姆了，手电筒没搞完。
+
+所以紫婆才要去SIDE6低头请求捐钱，来完成项目。
+
+（不过按GQ的传统这个手电筒可能还要加点料。）
+
+GQ的编剧肯定看了雷霆宙域而且看到了很后面，雷霆宙域里AE建国，量产大扎姆和手电筒对轰<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
