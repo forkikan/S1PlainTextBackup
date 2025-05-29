@@ -5032,3 +5032,19 @@ X 上的 機動戦士Gundam GQuuuuuuX×東急歌舞伎町タワー：“📢情�
 
 —— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  岸浪白野  
+##### 16726#       发表于 2025-5-29 18:03
+
+[X 上的 極楽湯/RAKU SPA(公式)：“6/19(木) より 『機動戦士Gundam GQuuuuuuX ジークアクス)』 × 極楽湯 RAKU SPA コラボ開催決定！ 新規描き下ろしイラストを使用したグッズやメニュー販売の他、コラボ風呂や館内装飾など内容盛りだくさん！ イベント詳細は後日公開！ #GQuuuuuuX #ジークアクス #お風呂って自由ですか [url]https://t.co/O4sc53OlO7](https://x.com/gokurakuyu_spa/status/1928015744479940783)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/29/180302hhjw7pepjeadbzb0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.8 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-29 18:03 上传
+

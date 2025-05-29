@@ -4096,3 +4096,52 @@ glory of mankind<img src="https://static.stage1st.com/image/smiley/face2017/025.
 
 而且很多战场动向也不合理，如果说防御战在理论上确实做不到100%，那为什么可以降到0%？如果鱿鱼在这个地方被打的这么惨，为什么还有这么高的进攻度？那是不是说明这个地方比首都更重要？
 
+
+*****
+
+####  kemyes  
+##### 6315#       发表于 2025-5-29 17:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67863424&amp;ptid=2170852" target="_blank">rainknine 发表于 2025-5-29 17:52</a>
+
+感觉箭头还是被自己的程序水平坑害了
+
+如果换成锁血100%是不是节奏就能少个一半（
+
+ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">肯定的，玩家守这么久不就是要个争取来的胜利，再好一点锁了之后加个简单的捷报还能多加点好评。也不完全是程序水平问题，更多是策划水平问题。
+
+*****
+
+####  plok201  
+##### 6316#       发表于 2025-5-29 17:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">100%停了然后发公告说光能全去瑞典拼死一搏了，再来点鼓动性的话语，大伙全去开开心心守荣都，再反攻光复，哪有那么多有的没的
+
+骂玩家有点好笑了，又不是没花钱，厂商烂活不就得骂
+
+*****
+
+####  mousy55555  
+##### 6317#       发表于 2025-5-29 18:00
+
+这真心看不懂了，ONSEA给你锁99.97后突然开荣都，然后又唐突跳出一个任务叫你去打虫族，箭头是完全没想过玩家能平推到100%解放率是吧
+
+
+*****
+
+####  frankCC  
+##### 6318#       发表于 2025-5-29 18:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67863446&amp;ptid=2170852" target="_blank">plok201 发表于 2025-5-29 17:58</a>
+
+100%停了然后发公告说光能全去瑞典拼死一搏了，再来点鼓动性的话语，大伙全去开开心心守荣都，再反攻光复， ...</blockquote>
+应该找三哥写一份赢学公告的。
+
+*****
+
+####  kakul  
+##### 6319#       发表于 2025-5-29 18:03
+
+其实已经100%了，但是进度条被MOSS锁住了。
+
