@@ -4354,3 +4354,23 @@ kirakira本质上就是nt聊天室，把他和做自己喜欢做的事时无我�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要是以泥潭的平均年龄，很多用户应该已经忘记这种感觉很久了
 
+
+*****
+
+####  Evomenon  
+##### 16664#       发表于 2025-5-29 10:09
+
+krkr主要还是优先度的问题，年轻人喜欢点新奇的东西很正常，但是大敌当前、生死存亡的时候还在念叨krkr，这krkr还和她心心念念的男人纠缠到了一起，明显是有些不对吧
+
+当然，鹤卷和櫌户能把喵安的“私奔宣言”都找补回来，krkr估计也能有些说法吧
+
+*****
+
+####  Rhantolk  
+##### 16665#       发表于 2025-5-29 10:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67861612&amp;ptid=2209276" target="_blank">yichengyu 发表于 2025-5-29 09:44</a>
+
+巴垃圾不止一次这么做了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可能太久没看，没啥印象这些画面了
+
