@@ -2848,3 +2848,16 @@ anime corner上周又排名第三了，海外还是挺有受众的。
 这集在日本怎么就评价最高了呢？日本人的看点是什么？ ...</blockquote>
 全集二维作画还有美少女主角吧大概
 
+
+*****
+
+####  新HGCG  
+##### 252#       发表于 2025-5-29 21:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67861391&amp;ptid=2125794" target="_blank">行政裁定书 发表于 2025-5-29 08:39</a>
+
+我看海外评价，这集评价还行，但不是最高的。
+
+这集在日本怎么就评价最高了呢？日本人的看点是什么？ ...</blockquote>
+日本人很多都是被第一集到第七集的3D劝退的
+
