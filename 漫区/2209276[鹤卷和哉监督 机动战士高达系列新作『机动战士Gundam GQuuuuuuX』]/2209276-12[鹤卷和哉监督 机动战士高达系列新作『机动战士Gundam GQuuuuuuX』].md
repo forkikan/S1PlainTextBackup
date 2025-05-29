@@ -5508,3 +5508,229 @@ GQ的编剧肯定看了雷霆宙域而且看到了很后面，雷霆宙域里AE�
 
 2025-5-30 05:20 上传
 
+
+*****
+
+####  白色池塘  
+##### 16759#       发表于 2025-5-30 00:06
+
+我觉得喵安的萌点在于酷姐外表下是个软糯小动物，软糯小动物被踢几脚后又应激变成野蛮癫婆的多重反差，结果现在进了吉翁后成了表里如一的扑克脸酷姐了，萌萌的味儿都消失了（悲<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+甚至最初面对送货大叔会露出反抗表情的喵安都比如今的吉翁喵安要可爱口呀
+
+*****
+
+####  希望之异热同心  
+##### 16760#       发表于 2025-5-30 00:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67864699&amp;ptid=2209276" target="_blank">白色池塘 发表于 2025-5-30 00:06</a>
+
+我觉得喵安的萌点在于酷姐外表下是个软糯小动物，软糯小动物被踢几脚后又应激变成野蛮癫婆的多重反差，结果 ...</blockquote>
+这集喵安已经是心死状态了，唯一的情绪波动反而是得知麻球去地球的时候
+
+
+*****
+
+####  LOLITA  
+##### 16761#       发表于 2025-5-30 00:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67862006&amp;ptid=2209276" target="_blank">吴怀在 发表于 2025-5-29 11:05</a>
+
+所以怎么包饺子？修斯挂掉，两个女主上同一所大学，夏亚和拉拉结婚？</blockquote>
+肯定是骡和拉拉结婚，夏亚和紫婆联姻共建新吉恩，收喵安为养女。
+
+番茄实现了人生理想之后大彻大悟回side6坐牢（无期徒刑）<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 吴怀在| + 1|好|
+| 璇瑢子R| + 2|我要看这个！|
+
+查看全部评分
+
+*****
+
+####  巨馍蘸酱  
+##### 16762#       发表于 2025-5-30 01:42
+
+ 本帖最后由 巨馍蘸酱 于 2025-5-30 01:45 编辑 
+
+感觉紫婆的手电筒可能是类似天使之轮的大型精神兵器，效果可能是促进全人类进化成NT之类？基连派目前来看是反NT的，尤其是那些能力特别强的天然NT被他们称为迪亚波罗，如果紫婆的目的是全人类的NT化的话，那么在基连派看来确实就是毁灭人类了
+
+其实基本可以猜到就剩最后四集的发展了，接下来解密一下蔷薇和泽克诺瓦这些核心谜题，最后紫婆用手电筒整个大活，各方势力来场大战，就差不多可以收尾了。受篇幅所限，基连和联邦那边估计不会正面展开了，两边高层脸都没露过。最后的大矛盾应该就是紫婆整的这个大活了。最大的悬念除了鸭子等老人准备做什么，就是主角团三人最后的结局了
+
+*****
+
+####  ftyaid  
+##### 16763#       发表于 2025-5-30 02:25
+
+如果真是类似天使之轮的东西的话，就能骗新人去看V高达了
+
+这就是鹤卷gg的给新人的补番计划，让高达再次伟大！<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  太极八爪鱼  
+##### 16764#       发表于 2025-5-30 04:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67864015&amp;ptid=2209276" target="_blank">永远的春天 发表于 2025-5-29 04:38</a>
+
+看你把不把外传当作正史，Msv-r里，塞了卡谬灵魂的Z原版电脑被拆了下来换到别的机子里，和夏亚打的时候被 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 赛博灵魂塞机体这事，更早的F90漫画和V外传漫画都画过吧。
+
+*****
+
+####  太极八爪鱼  
+##### 16765#       发表于 2025-5-30 04:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67864897&amp;ptid=2209276" target="_blank">ftyaid 发表于 2025-5-29 10:25</a>
+
+如果真是类似天使之轮的东西的话，就能骗新人去看V高达了
+
+这就是鹤卷gg的给新人的补番计划，让高达再次伟大 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer"> 这个好，快去看，子供欢乐向
+
+*****
+
+####  岸浪白野  
+##### 16766#       发表于 2025-5-30 05:23
+
+ 本帖最后由 岸浪白野 于 2025-5-30 05:27 编辑 
+
+[X 上的 DHANAE：“ｱﾙﾃｲｼｱ!?](https://x.com/usavivi777/status/1928022621347795424)[https://t.co/dgAuArcVNc](https://t.co/dgAuArcVNc)” / X
+
+<img src="https://img.stage1st.com/forum/202505/30/045846huiay1fsu8usifji.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.19 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-30 04:58 上传
+
+[X 上的 kagaminori：“誰？#ジークアクス](https://x.com/kagaminLM/status/1927598506274922757)[https://t.co/5dfys9Fjwt](https://t.co/5dfys9Fjwt)” / X
+
+<img src="https://img.stage1st.com/forum/202505/30/045343ywyx71f0eqoeaxxq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (914.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-30 04:53 上传
+
+[X 上的 フジモリ@にじそ東4や63-64：“シロウズ　#GQuuuuuX](https://x.com/fujimori_cmyk/status/1927641893510468075)[https://t.co/zfgTlW474Z](https://t.co/zfgTlW474Z)” / X
+
+<img src="https://img.stage1st.com/forum/202505/30/050113ix7ptzqpgbo7wztt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (878.53 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-30 05:01 上传
+
+[X 上的 末日预报：“君の名は？](https://x.com/sonnambulo777/status/1927911062784950713)[https://t.co/oxlUVxHE2S](https://t.co/oxlUVxHE2S)” / X
+
+<img src="https://img.stage1st.com/forum/202505/30/045644anz6tg4fwoedof56.png" referrerpolicy="no-referrer">
+
+<strong>N%E(8@X~8LETHGIOQ_ZM5XJ.png</strong> (3.52 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-30 04:56 上传
+
+[X 上的 kare：“今まだ何やってもいいや！](https://x.com/0621utak/status/1928052467834540415)[https://t.co/fSyGTt9VEk](https://t.co/fSyGTt9VEk)” / X
+
+<img src="https://img.stage1st.com/forum/202505/30/051252jwce6gzgwws0w8gv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.42 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-30 05:12 上传
+
+[X 上的 天満 月(あまみ つき)：“ドゥーちゃん再登場求む #GQuuuuuuX #ジークアクス #ドゥー・ムラサメ](https://x.com/amamitsuki_0809/status/1927724641897910595)[https://t.co/Dqp9lJdRma](https://t.co/Dqp9lJdRma)” / X
+
+<img src="https://img.stage1st.com/forum/202505/30/051123p09rgib428k2vrs2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.52 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-30 05:11 上传
+
+[X 上的 オルフィー：“ドゥー・ムラサメ　水着　＃ジークアクス　#GQuuuuuuX](https://x.com/the_olphy/status/1927818920830063022)[https://t.co/lswIS66akD](https://t.co/lswIS66akD)” / X
+
+<img src="https://img.stage1st.com/forum/202505/30/050937bm6850mltp4cqcow.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.88 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-30 05:09 上传
+
+[X 上的 鬼輝@ウコチャヌプコロ…：“ミゲル君がニャアンにやられる時のあのシーン、 初見アレで刺してくるかと思った #GQuuuuuuX #ジークアクス](https://x.com/Oniki7876/status/1927672652543791471)[https://t.co/2qBjX9bpSV](https://t.co/2qBjX9bpSV)” / X
+
+<img src="https://img.stage1st.com/forum/202505/30/051904u159v6tt1q9hdd8c.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.72 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-30 05:19 上传
+
+[X 上的 逢摩文七郎：“餃子パーティーにご参加なさるキシリア様](https://x.com/OOMBSTR/status/1927999028517617843)[https://t.co/n8DDxl7F68](https://t.co/n8DDxl7F68)” / X
+
+<img src="https://img.stage1st.com/forum/202505/30/052014sepe8mpdgkde8pse.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.38 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-30 05:20 上传
+
+[X 上的 しづきみちる：“『機動戦士Gundam GQuuuuuuX』第9話「大気圏突入」 [url]https://t.co/JFMVndnpQF](https://x.com/michirushiduki/status/1927690370395066386)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/30/052756lyaxdtj5r32rlgws.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.24 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-30 05:27 上传
+
+[X 上的 づだぐん@お絵描きマン：“来週のジークアクスくん](https://x.com/gggcn9a/status/1927678643809235083)[https://t.co/OMs6HMnQ6N](https://t.co/OMs6HMnQ6N)” / X
+
+<img src="https://img.stage1st.com/forum/202505/30/051928baahpikhhaho5fa1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.42 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-30 05:19 上传
+
+[X 上的 まんさき：“お姉様、お姉様、なるほどわかった… #GQuuuuuuX](https://x.com/mansaki_ddb/status/1927916699451318483)[https://t.co/JMT1lDFZMj](https://t.co/JMT1lDFZMj)” / X
+
+<img src="https://img.stage1st.com/forum/202505/30/052054lqrsrssqbs0bvb2k.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (881.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-30 05:20 上传
+
+*****
+
+####  吴怀在  
+##### 16767#       发表于 2025-5-30 06:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67864735&amp;ptid=2209276" target="_blank">LOLITA 发表于 2025-5-30 00:25</a>
+肯定是骡和拉拉结婚，夏亚和紫婆联姻共建新吉恩，收喵安为养女。
+
+番茄实现了人生理想之后大彻大悟回side ...</blockquote>
+太棒，我也想看这个
+
