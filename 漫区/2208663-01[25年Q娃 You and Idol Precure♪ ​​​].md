@@ -455,3 +455,11 @@ ace变化差不多吧，被大伙从头到尾吐槽小学生bba的，倒是felic
 
 因为田中也是叔叔的原因吗？
 
+
+*****
+
+####  sheshiro  
+##### 916#       发表于 2025-5-29 12:41
+
+我不能接受啊！我不能接受啊！<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
