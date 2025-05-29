@@ -5152,3 +5152,24 @@ X 上的 極楽湯/RAKU SPA(公式)：“6/19(木) より 『機動戦士Gundam 
 有一个最简单的想法，就是泽克诺瓦=时空转移，那么发动泽克诺瓦把总帅府直接转移到手电筒的靶点上不就行了 ...</blockquote>
 天上天下一击必中炮<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wing130083  
+##### 16738#       发表于 2025-5-29 20:58
+
+ 本帖最后由 wing130083 于 2025-5-29 21:00 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67863166&amp;ptid=2209276" target="_blank">Rhantolk 发表于 2025-5-29 16:46</a>
+
+这和X是一回事吗，卡罗德原先是什么身份，上了机之后是什么身份，有没有承担责任有没有为世界做出贡献，蒂 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">卡罗德和蒂法没长歪那是因为舰长大叔（和船上的前辈们）靠谱啊。又不是靠他俩自己的
+
+反观这边，黑拳俱乐部的老哥老姐们一群虫豸，绿叔叔和紫公主两位长辈不说心怀鬼胎吧，第七集才正式把人拿到手，哪有时间养成
+
+*****
+
+####  Renes  
+##### 16739#       发表于 2025-5-29 20:58
+
+这么看，殖民卫星激光炮是不是在基连手上，结尾能不能看到两个大杀器对轰
+
