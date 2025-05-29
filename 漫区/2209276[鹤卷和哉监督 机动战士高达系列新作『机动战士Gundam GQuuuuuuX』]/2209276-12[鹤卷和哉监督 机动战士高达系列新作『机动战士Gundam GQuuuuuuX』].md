@@ -5380,3 +5380,131 @@ GQ的编剧肯定看了雷霆宙域而且看到了很后面，雷霆宙域里AE�
 这就是鹤卷gg的给新人的补番计划，让高达再次伟大 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer"> 这个好，快去看，子供欢乐向
 
+
+*****
+
+####  岸浪白野  
+##### 16758#       发表于 2025-5-30 05:23
+
+ 本帖最后由 岸浪白野 于 2025-5-30 05:27 编辑 
+
+[X 上的 DHANAE：“ｱﾙﾃｲｼｱ!?](https://x.com/usavivi777/status/1928022621347795424)[https://t.co/dgAuArcVNc](https://t.co/dgAuArcVNc)” / X
+
+<img src="https://img.stage1st.com/forum/202505/30/045846huiay1fsu8usifji.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.19 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-30 04:58 上传
+
+[X 上的 kagaminori：“誰？#ジークアクス](https://x.com/kagaminLM/status/1927598506274922757)[https://t.co/5dfys9Fjwt](https://t.co/5dfys9Fjwt)” / X
+
+<img src="https://img.stage1st.com/forum/202505/30/045343ywyx71f0eqoeaxxq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (914.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-30 04:53 上传
+
+[X 上的 フジモリ@にじそ東4や63-64：“シロウズ　#GQuuuuuX](https://x.com/fujimori_cmyk/status/1927641893510468075)[https://t.co/zfgTlW474Z](https://t.co/zfgTlW474Z)” / X
+
+<img src="https://img.stage1st.com/forum/202505/30/050113ix7ptzqpgbo7wztt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (878.53 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-30 05:01 上传
+
+[X 上的 末日预报：“君の名は？](https://x.com/sonnambulo777/status/1927911062784950713)[https://t.co/oxlUVxHE2S](https://t.co/oxlUVxHE2S)” / X
+
+<img src="https://img.stage1st.com/forum/202505/30/045644anz6tg4fwoedof56.png" referrerpolicy="no-referrer">
+
+<strong>N%E(8@X~8LETHGIOQ_ZM5XJ.png</strong> (3.52 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-30 04:56 上传
+
+[X 上的 kare：“今まだ何やってもいいや！](https://x.com/0621utak/status/1928052467834540415)[https://t.co/fSyGTt9VEk](https://t.co/fSyGTt9VEk)” / X
+
+<img src="https://img.stage1st.com/forum/202505/30/051252jwce6gzgwws0w8gv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.42 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-30 05:12 上传
+
+[X 上的 天満 月(あまみ つき)：“ドゥーちゃん再登場求む #GQuuuuuuX #ジークアクス #ドゥー・ムラサメ](https://x.com/amamitsuki_0809/status/1927724641897910595)[https://t.co/Dqp9lJdRma](https://t.co/Dqp9lJdRma)” / X
+
+<img src="https://img.stage1st.com/forum/202505/30/051123p09rgib428k2vrs2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.52 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-30 05:11 上传
+
+[X 上的 オルフィー：“ドゥー・ムラサメ　水着　＃ジークアクス　#GQuuuuuuX](https://x.com/the_olphy/status/1927818920830063022)[https://t.co/lswIS66akD](https://t.co/lswIS66akD)” / X
+
+<img src="https://img.stage1st.com/forum/202505/30/050937bm6850mltp4cqcow.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.88 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-30 05:09 上传
+
+[X 上的 鬼輝@ウコチャヌプコロ…：“ミゲル君がニャアンにやられる時のあのシーン、 初見アレで刺してくるかと思った #GQuuuuuuX #ジークアクス](https://x.com/Oniki7876/status/1927672652543791471)[https://t.co/2qBjX9bpSV](https://t.co/2qBjX9bpSV)” / X
+
+<img src="https://img.stage1st.com/forum/202505/30/051904u159v6tt1q9hdd8c.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.72 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-30 05:19 上传
+
+[X 上的 逢摩文七郎：“餃子パーティーにご参加なさるキシリア様](https://x.com/OOMBSTR/status/1927999028517617843)[https://t.co/n8DDxl7F68](https://t.co/n8DDxl7F68)” / X
+
+<img src="https://img.stage1st.com/forum/202505/30/052014sepe8mpdgkde8pse.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.38 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-30 05:20 上传
+
+[X 上的 しづきみちる：“『機動戦士Gundam GQuuuuuuX』第9話「大気圏突入」 [url]https://t.co/JFMVndnpQF](https://x.com/michirushiduki/status/1927690370395066386)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202505/30/052756lyaxdtj5r32rlgws.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.24 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-30 05:27 上传
+
+[X 上的 づだぐん@お絵描きマン：“来週のジークアクスくん](https://x.com/gggcn9a/status/1927678643809235083)[https://t.co/OMs6HMnQ6N](https://t.co/OMs6HMnQ6N)” / X
+
+<img src="https://img.stage1st.com/forum/202505/30/051928baahpikhhaho5fa1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.42 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-30 05:19 上传
+
+[X 上的 まんさき：“お姉様、お姉様、なるほどわかった… #GQuuuuuuX](https://x.com/mansaki_ddb/status/1927916699451318483)[https://t.co/JMT1lDFZMj](https://t.co/JMT1lDFZMj)” / X
+
+<img src="https://img.stage1st.com/forum/202505/30/052054lqrsrssqbs0bvb2k.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (881.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-30 05:20 上传
+
