@@ -4473,3 +4473,29 @@ steam差评又刷起来了，难评。虽然箭头过去劣迹斑斑，这次剧
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  qwased  
+##### 6351#       发表于 2025-5-29 22:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想煽动社区就要有承受社区反噬的觉悟
+
+
+*****
+
+####  ddy2811  
+##### 6352#       发表于 2025-5-29 22:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67864355&amp;ptid=2170852" target="_blank">FLZB 发表于 2025-5-29 22:06</a>
+
+steam差评又刷起来了，难评。虽然箭头过去劣迹斑斑，这次剧本安排也确实少智，但远没到要骂街刷差评的程度 ...</blockquote>
+把人动员起来然后稳不住安抚不好，那就是会营啸的<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rainknine  
+##### 6353#       发表于 2025-5-29 22:17
+
+只能说别想太多，拒绝内耗，享受游戏<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
