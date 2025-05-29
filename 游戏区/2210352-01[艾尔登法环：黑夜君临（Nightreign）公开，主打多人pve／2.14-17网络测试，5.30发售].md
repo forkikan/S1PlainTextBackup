@@ -3545,3 +3545,11 @@ GS竟然才是最孝顺的那个
 
 但试玩版开放的池子非常小，看评测说正式版的内容也不多<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nancygreenlife  
+##### 382#       发表于 2025-5-29 13:14
+
+讲道理喷喷3秩序篇也比这玩意强吧<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

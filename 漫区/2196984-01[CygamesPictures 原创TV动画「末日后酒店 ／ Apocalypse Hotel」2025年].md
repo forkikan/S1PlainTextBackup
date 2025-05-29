@@ -4629,3 +4629,15 @@ CygamesPictures在这片的打戏质量确实没得说，<strong>经常</strong>
 这不就是gbf的机械卡姐嘛，笑点为第一驱动力</blockquote>
 还真是，你不说我都没想到
 
+
+*****
+
+####  syndrome2032  
+##### 408#       发表于 2025-5-29 13:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67862456&amp;ptid=2196984" target="_blank">pzk 发表于 2025-5-29 13:03</a>
+还真是，你不说我都没想到</blockquote>
+不是cps2游戏惩罚者第二关boss吗。
+
+那个还是人身下半坦克，这个把机器人下半身改成坦克底盘不是更合理。
+
