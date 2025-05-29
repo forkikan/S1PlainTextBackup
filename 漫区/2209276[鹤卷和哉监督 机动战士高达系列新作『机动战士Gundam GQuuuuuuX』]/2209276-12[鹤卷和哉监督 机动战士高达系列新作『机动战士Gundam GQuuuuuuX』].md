@@ -4374,3 +4374,42 @@ krkr主要还是优先度的问题，年轻人喜欢点新奇的东西很正常�
 巴垃圾不止一次这么做了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可能太久没看，没啥印象这些画面了
 
+
+*****
+
+####  无念  
+##### 16666#       发表于 2025-5-29 10:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67861538&amp;ptid=2209276" target="_blank">Rhantolk 发表于 2025-5-29 09:29</a>
+独角兽也做不到人在外面就能操作吧</blockquote>
+能啊，罚你重看一遍
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  rockroxas  
+##### 16667#       发表于 2025-5-29 10:17
+
+不说独角兽，Z的精神病就有机师在外部操控吧，印象还挺深的
+
+
+*****
+
+####  盐盐盐盐盐  
+##### 16668#       发表于 2025-5-29 10:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67861737&amp;ptid=2209276" target="_blank">Evomenon 发表于 2025-5-29 10:09</a>
+ krkr主要还是优先度的问题，年轻人喜欢点新奇的东西很正常，但是大敌当前、生死存亡的时候还在念叨krkr，这 ...</blockquote>
+那是因为麻球之前军团战遇到危险有修司开krkr救她啊，所以她下意识就会需要修司和krkr来解围，麻球第三集就说过她觉得和那个红色的家伙一起打军团战就不害怕了（这时候她甚至还没认识修司），第一集第三集两次麻球初开gqx不会打都是krkr帮了她，平时都是两人配合现在危机了就想喊队友怎么就被歪曲成想男人了
+
+*****
+
+####  夜留歌  
+##### 16669#       发表于 2025-5-29 10:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67861538&amp;ptid=2209276" target="_blank">Rhantolk 发表于 2025-5-29 09:29</a>
+
+独角兽也做不到人在外面就能操作吧</blockquote>
+这么一说，gquuuuuux的高达比起工具定位的传统高达(精神感应放大器)，某种程度上倒是更像具备神性的EVA。
+
