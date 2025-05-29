@@ -5120,3 +5120,14 @@ X 上的 機動戦士Gundam GQuuuuuuX×東急歌舞伎町タワー：“📢情�
 
 快进了一下看到初号机配色的MS<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xwz  
+##### 16735#       发表于 2025-5-29 20:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67863456&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-29 18:03</a>
+
+X 上的 極楽湯/RAKU SPA(公式)：“6/19(木) より 『機動戦士Gundam GQuuuuuuX ジークアクス)』 × 極楽湯 R ...</blockquote>
+好矮……
+

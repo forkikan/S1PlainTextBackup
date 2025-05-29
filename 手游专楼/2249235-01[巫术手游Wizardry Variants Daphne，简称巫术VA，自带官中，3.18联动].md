@@ -1395,3 +1395,11 @@ roll到13%攻和18攻就可以用+4-6攻击改掉防御，然后只强化第一�
 
 退出大法还是能用，不过记分方式好像有点变动。整体速度慢了好多。重跑了一把现在7000分。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UnknownRei  
+##### 393#       发表于 2025-5-29 20:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">根本没有修好BUG，还是有人一步登天，有点搞，打一次六连万血还挺累的，想冲榜的可以停手观望了，看看官方怎么大变申
+
