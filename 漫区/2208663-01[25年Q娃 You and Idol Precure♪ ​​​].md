@@ -315,3 +315,36 @@ wait我发现两个人首字母都是K.T.，嚯嚯，压力马斯内<img src="ht
 6月1日（日）の放送を要チェック！！
 <img src="https://p.sda1.dev/24/f51511bb94fffdd27887e93f999e692b/20250529_081454.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 901#       发表于 2025-5-29 08:29
+
+虽然说本周这集追加出场完全预料之中（前期合体技吃瘪时你Q娃典中典的追加导入前置），但这人设，你俩谁啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">连ace和felice都没有这么大的气质变化吧（确信）
+
+*****
+
+####  starring  
+##### 902#       发表于 2025-5-29 08:31
+
+这人设将平均年龄拔高了10岁那样老成<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Blackson  
+##### 903#       发表于 2025-5-29 08:32
+
+估计本周还不是正式出场（可能只有黑影状态说一句台词），下周在三人面前才算正式出场。
+本来估计是古贺葵小公主类型，结果实际出来完全比初始三人大一轮。上一个3+2的组合还是拥抱
+
+*****
+
+####  noneoneone  
+##### 904#       发表于 2025-5-29 08:33
+
+咋弄出来这俩大妈脸...
+
+—— 来自 Xiaomi 2410DPN6CC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

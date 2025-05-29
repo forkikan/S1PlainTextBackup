@@ -4199,3 +4199,16 @@ krkr不是一个 ...</blockquote>
 有没有可能kirakira人跟nt根本不是一种生物 只不过恰好展示了有点相似的能力呢 ...</blockquote>
 蛋糕哥搞错了，恶魔不是nt而是kirakira人，魔女拒绝kirakira，所以人死了。等喵安kirakira起来，就该蛋糕哥千古了。还有紫婆似乎已经是无症状或轻度感染者了，不顾一切追求boom不像冷酷理性的紫婆会干的事。
 
+
+*****
+
+####  2296506  
+##### 16649#       发表于 2025-5-29 08:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67856910&amp;ptid=2209276" target="_blank">我聞如是 发表于 2025-5-28 00:42</a>
+
+可惡呀！
+
+我居然沒能夠初見就認出夏亞的變裝！</blockquote>
+声优的问题吧，是原来的声优的话肯定马上认出来了
+
