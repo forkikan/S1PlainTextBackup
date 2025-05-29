@@ -2389,3 +2389,11 @@ gto扎古和酸浆果一起出？这俩也没关系啊
 
 <img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">氪佬加油 再登顶个十连助力我存钻等本命机卡池
 
+
+*****
+
+####  captoon  
+##### 1693#       发表于 2025-5-29 18:28
+
+英文版官方公告里是写GP02A，应该是有核弹
+
