@@ -4185,3 +4185,15 @@ dm撒泼打滚还能怪pl不按dm剧本来了，真够贱的
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67863537&amp;ptid=2170852" target="_blank">AP0rt_ 发表于 2025-5-29 18:24</a></blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">国服这专注整活，估计也在阴阳瑞典那边
 
+
+*****
+
+####  zhwpjy  
+##### 6324#       发表于 2025-5-29 18:48
+
+<blockquote>UNICORN00 发表于 2025-5-29 18:10
+额，玩家有啥剧本？
+
+—— 来自 Xiaomi 22041211AC, Android 12, 鹅球 v3.5.99</blockquote>
+号召去荣城搞破坏的刷失败 还有开荣都骂瑞典贱民 不就是想按照他们剧本走吗 在哪打都算打 有必要那么魔怔吗
+

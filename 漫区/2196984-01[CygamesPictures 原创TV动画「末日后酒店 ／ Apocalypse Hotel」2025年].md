@@ -4793,3 +4793,25 @@ CygamesPictures在这片的打戏质量确实没得说，<strong>经常</strong>
 
 感觉会看到八千代送老年嘭子去世
 
+
+*****
+
+####  Totokei  
+##### 424#       发表于 2025-5-29 18:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860333&amp;ptid=2196984" target="_blank">Totokei 发表于 2025-5-28 21:05</a>
+
+我都看了些什么</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了第九话的预告也还是这个感想
+
+
+*****
+
+####  太极八爪鱼  
+##### 425#       发表于 2025-5-29 18:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67863341&amp;ptid=2196984" target="_blank">jacket 发表于 2025-5-29 01:30</a>
+
+姐姐变大了弟弟怎么还是小孩形态</blockquote>
+第八集狸猫弟，爹，妈都没出现吧？我又过了一遍没看到画面啊
+
