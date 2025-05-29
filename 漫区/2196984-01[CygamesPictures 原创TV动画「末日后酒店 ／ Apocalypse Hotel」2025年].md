@@ -4955,3 +4955,16 @@ TVアニメ「アポカリプスホテル」第9話 Web予告｜ 2025年6月3日
 
 还有狸猫一家之后帮忙把银河楼变成宇宙范围连锁酒店之类的
 
+
+*****
+
+####  太极八爪鱼  
+##### 433#       发表于 2025-5-30 04:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67864230&amp;ptid=2196984" target="_blank">TOYSTORY 发表于 2025-5-29 05:26</a>
+
+https://www.bilibili.com/video/BV1md7Gz5E4s
+
+第9話「お客様の人生に、今日という栞を」</blockquote>
+这是8千代回来了所以从狸猫保养变回了8千代保养么，机器人的外表感觉有闪亮了
+

@@ -5356,3 +5356,27 @@ GQ的编剧肯定看了雷霆宙域而且看到了很后面，雷霆宙域里AE�
 
 这就是鹤卷gg的给新人的补番计划，让高达再次伟大！<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  太极八爪鱼  
+##### 16756#       发表于 2025-5-30 04:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67864015&amp;ptid=2209276" target="_blank">永远的春天 发表于 2025-5-29 04:38</a>
+
+看你把不把外传当作正史，Msv-r里，塞了卡谬灵魂的Z原版电脑被拆了下来换到别的机子里，和夏亚打的时候被 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 赛博灵魂塞机体这事，更早的F90漫画和V外传漫画都画过吧。
+
+
+*****
+
+####  太极八爪鱼  
+##### 16757#       发表于 2025-5-30 04:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67864897&amp;ptid=2209276" target="_blank">ftyaid 发表于 2025-5-29 10:25</a>
+
+如果真是类似天使之轮的东西的话，就能骗新人去看V高达了
+
+这就是鹤卷gg的给新人的补番计划，让高达再次伟大 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer"> 这个好，快去看，子供欢乐向
+
