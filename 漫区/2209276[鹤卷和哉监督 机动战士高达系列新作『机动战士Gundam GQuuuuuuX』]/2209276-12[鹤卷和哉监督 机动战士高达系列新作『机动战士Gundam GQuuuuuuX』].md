@@ -4763,3 +4763,42 @@ kirakira指nt我最早觉得是nt看宇宙里群星发光的闪亮kirakira
 
 让爷想去地球看海喜欢水母，不会到时候后继机是水母型吧<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Evomenon  
+##### 16705#       发表于 2025-5-29 15:17
+
+<blockquote>YU_JI 发表于 2025-5-29 13:50
+鸭叔叔能不能分到新机，还是说让他再上一把自己心心念念的红高达</blockquote>
+现在0079里还没被膜过的精英机，就老虎、（原版）勇士、魔蟹、艾尔梅斯、吉翁号了吧
+
+艾尔梅斯已确定出场，剩下的里面最高概率的还得是吉翁号
+
+*****
+
+####  mishidexieyu  
+##### 16706#       发表于 2025-5-29 15:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67861838&amp;ptid=2209276" target="_blank">eyeego 发表于 2025-5-29 10:28</a>
+无论几几年的nt眼睛也不会变色的啊 
+当然鹤卷这种为了演出不讲逻辑的也可能只是演出效果 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">演出效果的话还是可以理解的，z和zz时代的nt还能有背后灵呢
+
+
+*****
+
+####  没取名啊  
+##### 16707#       发表于 2025-5-29 15:20
+
+<img src="https://p.sda1.dev/24/046de4277de81a40e7bcf0b941ebc06d/image.jpg" referrerpolicy="no-referrer">
+痞子：孩子们，不是我干的
+播完之后能不能来个私货大认领环节，主要staff们坐一排边看动画边指认哪一块儿是自己加的<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 16708#       发表于 2025-5-29 15:21
+
+庵野不早表态了自己只做了79if部分，剩下全是鹤卷的
+
