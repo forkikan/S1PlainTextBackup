@@ -3552,3 +3552,62 @@ dss昨晚火线救场拉回一波风评要是没几天就被光能干沉了估�
 不会等魔都100%了发公告说荣都已经是鱿鱼窝了吧，就丫没被打很不对劲啊（</blockquote>
 没准真是超级地球上层有叛徒，要各地潜兵上京肃清民主之敌呢
 
+
+*****
+
+####  穿越护城河  
+##### 6257#       发表于 2025-5-29 16:07
+
+<img src="https://img.stage1st.com/forum/202505/29/160732ji1izhmcm1xfotnf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2025-05-29-16-06-45-27_df198e732186825c8df26e3c5a10d7cd.jpg</strong> (222.14 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-5-29 16:07 上传
+
+笑死
+
+*****
+
+####  ykyin09  
+##### 6258#       发表于 2025-5-29 16:09
+
+感觉100之后会停掉上海让所有人去荣都<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cody198879  
+##### 6259#       发表于 2025-5-29 16:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67862998&amp;ptid=2170852" target="_blank">ykyin09 发表于 2025-5-29 16:09</a>
+感觉100之后会停掉上海让所有人去荣都</blockquote>
+能到100%停了给个buffer大家转战斯德哥尔摩也能接受只能说
+
+—— 来自 HONOR PTP-AN70, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  FLZB  
+##### 6260#       发表于 2025-5-29 16:10
+
+乔尔还是没憋住，该狠狠放生了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhwpjy  
+##### 6261#       发表于 2025-5-29 16:13
+
+我就感觉有些人玩魔怔了 虽然箭头打算在荣都打决战 但是这几天下来操作也都在合理范围内 只要战事不利 就骂箭头针对中国玩家  真现在开荣都 我都怀疑有人会骂臭瑞典来摘取胜利果实了
+
+*****
+
+####  苇原雪道  
+##### 6262#       发表于 2025-5-29 16:15
+
+纯路人，这活整得真不错，策划应该笑死了吧，扩圈了，引了这么多新人进来。。
+
+—— 来自 Xiaomi 24129PN74C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
