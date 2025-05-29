@@ -4447,3 +4447,29 @@ dm撒泼打滚还能怪pl不按dm剧本来了，真够贱的
 
 ‌2024年TGA（The Game Awards）年度最佳运营奖由《绝地潜兵2》（Helldivers 2）获得‌，该奖项旨在表彰游戏在长期内容更新、社区互动和玩家体验优化方面的卓越表现。
 
+
+*****
+
+####  qratosones1337  
+##### 6348#       发表于 2025-5-29 22:05
+
+现在这个趋势明天荣都就没了
+
+*****
+
+####  FLZB  
+##### 6349#       发表于 2025-5-29 22:06
+
+steam差评又刷起来了，难评。虽然箭头过去劣迹斑斑，这次剧本安排也确实少智，但远没到要骂街刷差评的程度啊，声讨也要有个度。贴吧各种搬屎造谣带节奏起哄，很多发言那股狂热的怨念都要溢出屏幕了，看着有点恐怖<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  风萧飒  
+##### 6350#       发表于 2025-5-29 22:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67864347&amp;ptid=2170852" target="_blank">qratosones1337 发表于 2025-5-29 22:05</a>
+现在这个趋势明天荣都就没了</blockquote>
+光能可能在荣都沦陷前就似了，大伙打虫子还挺卖力的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

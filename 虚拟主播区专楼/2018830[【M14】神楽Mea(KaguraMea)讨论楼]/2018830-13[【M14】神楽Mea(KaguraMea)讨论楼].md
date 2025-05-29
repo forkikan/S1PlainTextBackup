@@ -11464,3 +11464,25 @@ aoshima关注主播是2024年9月1日，就是夏露杯引流来的，正好那�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">T台的新表情有提取了的吗【他力本愿
 
+
+*****
+
+####  术士q  
+##### 18599#       发表于 2025-5-29 22:05
+
+5.29歌单 等会联动结束后再根据Jimmy佬完善剩余内容(
+1.透明质女孩/ヒアルロンリーガール/ZOC
+2.亲吻大头贴/チュープリ/ZOC
+3.惊喜之泪/涙サプライズ！/AKB48
+4.Fans/ファンサ/夏川椎菜
+5.盛夏好声音!/真夏のSounds good!/AKB48
+6.爱的剧本/アイのシナリ/CHiCO
+7.自尊心革命/プライド革命/CHiCO
+8.明日夜空的哨戒班/アスノヨゾラ哨戒班/orangestar
+9.Melt/メルト/supercell
+10.Hero/ヒーロー/supercell
+11.咬住秒针/秒針を噛む/ずっと真夜中でい
+12.单相思/カタオモイ/Aimer
+13.丸之内虐待狂/丸の内サディスティック/椎名林檎
+14.stay alive/stay alive/高桥李依
+

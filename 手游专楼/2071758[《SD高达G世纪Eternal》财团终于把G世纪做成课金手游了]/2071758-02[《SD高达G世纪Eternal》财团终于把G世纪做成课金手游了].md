@@ -2434,3 +2434,23 @@ gto扎古和酸浆果一起出？这俩也没关系啊
 
 人物啥的不用担心，反正也没有建模，就和隔壁engage一样换件衣服甚至换个角度就能再出一个了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  真炮灰  
+##### 1698#       发表于 2025-5-29 22:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67864150&amp;ptid=2071758" target="_blank">夜之光 发表于 2025-5-29 21:06</a>
+
+这GP02怎么还带狙击枪，就为了EX乱舞开远程格子是吧，有点过于自由</blockquote>
+2016年发售的《机动战士高达0083》Blu-ray Box特典新作配图广播剧《宇宙的蜉蝣2》里家兔返回太空后遭遇联邦拦截部队时用的MS用反舰步枪，而且这把就是沿用的GTO动画红扎的ASR-78的设计——这就是这俩的关联性。
+
+snapshsnapot.jpg
+(277.49 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-29 21:51 上传
+
+<img src="https://img.stage1st.com/forum/202505/29/215139du53skix5urmiimb.jpg" referrerpolicy="no-referrer">
+

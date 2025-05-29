@@ -5190,3 +5190,51 @@ X 上的 極楽湯/RAKU SPA(公式)：“6/19(木) より 『機動戦士Gundam 
 
 GQ的编剧肯定看了雷霆宙域而且看到了很后面，雷霆宙域里AE建国，量产大扎姆和手电筒对轰<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大十字紅朔  
+##### 16741#       发表于 2025-5-29 21:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67861538&amp;ptid=2209276" target="_blank">Rhantolk 发表于 2025-5-29 09:29</a>
+
+独角兽也做不到人在外面就能操作吧</blockquote>
+4在香港远距离召唤过精神高达
+
+*****
+
+####  ardente  
+##### 16742#       发表于 2025-5-29 22:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">麻球这有一米五吗
+
+*****
+
+####  YU_JI  
+##### 16743#       发表于 2025-5-29 22:04
+
+尤玛恩托
+
+尤玛恩托(Yomagn'tho)是外神之一，别号“星之贪食者”。这位外神居住在小熊座δ星（勾陈二），它的外表和能力与克图格亚相似，但其力量远在克图格亚之上，据说它产生的火焰连空间都为之沸腾。它的形象为一团巨大的火焰，身体中央有三片燃烧的花瓣图案。当被召唤至地球时，尤玛恩托会以一团小型火球出现，随后逐渐变大成为一团带有燃烧花瓣图案的巨型火球。尤玛恩托没有人类崇拜者，它的信徒和仆从种族是名为“Rhygntu”的爬行动物穴居人。
+
+这位外神用五芒星印记就能轻易召唤。在奥古斯特·威廉·德雷斯的短篇小说《黑暗住民》(The Dweller in Darkness)中，主角曾召唤克图格亚以对抗奈亚拉托提普的化身，但也有人认为他们召唤出来的是尤玛恩托。 
+
+<img src="https://img.stage1st.com/forum/202505/29/220442e6ss2j8ebvi8zlx8.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5024.jpeg</strong> (45.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-29 22:04 上传
+
+*****
+
+####  我聞如是  
+##### 16744#       发表于 2025-5-29 22:05
+
+<blockquote>ardente 发表于 2025-5-29 22:01
+麻球这有一米五吗</blockquote>
+麻球147
+
+修司170
+
