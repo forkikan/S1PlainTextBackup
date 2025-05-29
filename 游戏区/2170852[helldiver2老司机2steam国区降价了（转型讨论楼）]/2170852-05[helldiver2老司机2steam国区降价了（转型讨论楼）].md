@@ -4715,3 +4715,13 @@ steam差评又刷起来了，难评。虽然箭头过去劣迹斑斑，这次剧
 
 开服那个破装备打麦河那个破图的机器人就是白给，失败的多自然打不下来<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风萧飒  
+##### 6374#       发表于 2025-5-30 00:07
+
+开服是单纯打不过，麦河那地型还不好打，两把能有一把过都算高手了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
