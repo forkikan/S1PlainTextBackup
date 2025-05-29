@@ -2415,3 +2415,14 @@ gto扎古和酸浆果一起出？这俩也没关系啊
 
 这GP02怎么还带狙击枪，就为了EX乱舞开远程格子是吧，有点过于自由
 
+
+*****
+
+####  rockroxas  
+##### 1696#       发表于 2025-5-29 21:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67864150&amp;ptid=2071758" target="_blank">夜之光 发表于 2025-5-29 21:06</a>
+
+这GP02怎么还带狙击枪，就为了EX乱舞开远程格子是吧，有点过于自由</blockquote>
+就是核弹那个发射筒吧，机战跟以前的G世纪里时不时拿来发各种奇奇怪怪的东西，物理光束都有
+
