@@ -405,3 +405,17 @@ ace变化差不多吧，被大伙从头到尾吐槽小学生bba的，倒是felic
 跟初始三人造型风格相比差异很大。
 不知道是不是好了伤疤忘了痛，这次感觉是走Ace的塑造路线（先Q娃态登场，后才显露本体，最后谐星化）
 
+
+*****
+
+####  新HGCG  
+##### 911#       发表于 2025-5-29 11:25
+
+<img src="https://img.stage1st.com/forum/202505/29/112523tx83lbw2lbxlgl2d.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (247.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-29 11:25 上传
+

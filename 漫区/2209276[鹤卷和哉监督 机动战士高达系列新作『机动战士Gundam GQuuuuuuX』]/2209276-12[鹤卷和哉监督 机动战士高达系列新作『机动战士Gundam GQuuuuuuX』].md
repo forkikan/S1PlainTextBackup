@@ -4565,3 +4565,21 @@ kirakira元祖动画里就有了</blockquote>
 
 然后三人组在看海<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  吴怀在  
+##### 16685#       发表于 2025-5-29 11:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67862049&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-29 11:13</a>
+对番茄来说，下集已经能到地球看海达成心愿了，剩下都是后日谈的垃圾时间。 ...</blockquote>
+说不定变成了和修斯一起看海
+或者，三个人一起看海
+
+*****
+
+####  没钱打不起酱油  
+##### 16686#       发表于 2025-5-29 11:29
+
+海的那边是敌人，海的这边也是敌人<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

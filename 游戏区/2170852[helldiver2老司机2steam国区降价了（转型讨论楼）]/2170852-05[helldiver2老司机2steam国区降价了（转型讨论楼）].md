@@ -3177,3 +3177,39 @@ DSS来了 后半夜不愁了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有人尊敬挂笔吗？不都是拿来调侃箭头而已吗。
 
+
+*****
+
+####  kyonkoism  
+##### 6223#       发表于 2025-5-29 11:32
+
+<img src="https://img.stage1st.com/forum/202505/29/113131fyigc8scebl5xbii.jpg" referrerpolicy="no-referrer">
+
+<strong>MP`(P7N(M3LYY56~KD4YPD3_tmb.jpg</strong> (71.6 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-29 11:31 上传
+
+<img src="https://img.stage1st.com/forum/202505/29/113137aspxpo6fdwdfzym6.jpg" referrerpolicy="no-referrer">
+
+<strong>_6U80OV40W8[K9@TSNN60R3_tmb.jpg</strong> (19.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-29 11:31 上传
+
+<img src="https://img.stage1st.com/forum/202505/29/113146lvfvlmglv72ti3bi.jpg" referrerpolicy="no-referrer">
+
+<strong>PYSY~WZEM6TFV4158S2ASKJ_tmb.jpg</strong> (127.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-29 11:31 上传
+
+2300年前，第一位绝地潜兵超级屈原在没有使用绝地喷射仓的情况下dive into进了汨罗江，但公民们发现他忘记带战备球了，于是公民们把所有就把战备球都扔到汨罗江里了，这就是粽子的由来。
+
+值得一提的是，超级屈原在2300年前dive into的汨mi罗luo江其实就是Malevelon Creek的音译，所以超级屈原也是第一位麦河潜兵。
+
+这史也太野了bro<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
