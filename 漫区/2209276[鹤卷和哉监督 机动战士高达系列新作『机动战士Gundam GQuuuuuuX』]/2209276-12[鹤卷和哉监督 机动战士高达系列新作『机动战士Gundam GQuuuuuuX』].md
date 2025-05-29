@@ -4467,3 +4467,19 @@ kirakira元祖动画里就有了</blockquote>
 
 沉迷忘我没什么，关键是音乐可以直接感染观众，片里机战不精彩，金钱感觉对于小番茄的影响也只是只言片语（尤其跟最近重翻的漫画fx战士对比，同样沉迷金钱观异常，区别很明显），krkr跟修司强相关还整了一出闺蜜抢krkr，就变成现在这样子了
 
+
+*****
+
+####  EFSF  
+##### 16675#       发表于 2025-5-29 10:40
+
+ 本帖最后由 EFSF 于 2025-5-29 10:41 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67859595&amp;ptid=2209276" target="_blank">llysander 发表于 2025-5-28 17:42</a>
+
+这可是不需要推进剂在有重力/低重力机库里自己飞起来的 月钢精神病板子/幼女控框架飞盾同款，
+
+技术大跃 ...</blockquote>
+不要推进剂，高性能BEAM炮也超小型化了是吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+算了，这片儿所有的东西都是道具利用的，没背后设定逻辑的，反正有人擦屁股。
+
