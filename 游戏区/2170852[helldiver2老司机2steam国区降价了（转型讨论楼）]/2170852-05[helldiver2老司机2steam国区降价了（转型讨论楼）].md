@@ -3213,3 +3213,13 @@ DSS来了 后半夜不愁了
 
 这史也太野了bro<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Fake_news  
+##### 6224#       发表于 2025-5-29 11:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67862143&amp;ptid=2170852" target="_blank">kyonkoism 发表于 2025-5-29 11:32</a>
+2300年前，第一位绝地潜兵超级屈原在没有使用绝地喷射仓的情况下dive into进了汨罗江，但公民们发现他忘 ...</blockquote>
+妈的好野的史，还贼地狱，不愧是地狱潜兵<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
