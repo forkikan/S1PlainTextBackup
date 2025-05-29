@@ -2462,3 +2462,19 @@ snapshsnapot.jpg
 
 倒不是那个发射筒，这枪好像是之前0083出的特典宇宙的蜉蝣2，里面GP02用这枪射了一发，这制作团队的对高达的深挖真的很神奇<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  chivalry  
+##### 1700#       发表于 2025-5-29 22:28
+
+但是你都限定池 gp02 了还不给核弹，难道 gp02 也要弄出两个吗
+
+
+*****
+
+####  12481632  
+##### 1701#       发表于 2025-5-29 22:34
+
+还有麻辣肉丝装备能出呢，只能说别急<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

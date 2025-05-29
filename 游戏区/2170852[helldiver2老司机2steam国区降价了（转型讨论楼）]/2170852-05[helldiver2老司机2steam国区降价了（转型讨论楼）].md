@@ -4531,3 +4531,29 @@ steam差评又刷起来了，难评。虽然箭头过去劣迹斑斑，这次剧
 
 你是说社区战争跟玩家对着干的还要好评如潮，荣都最后开这个骚操作之后还能睁眼说瞎话相信贱头哥哥？
 
+
+*****
+
+####  qxs  
+##### 6357#       发表于 2025-5-29 22:28
+
+<img src="https://img.stage1st.com/forum/202505/29/222751nzizuzikj3dou353.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>f0b99aaa7256ed3b1dc6cb337065919a.jpeg</strong> (193.59 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-29 22:27 上传
+
+超级歧视已就位<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  风萧飒  
+##### 6358#       发表于 2025-5-29 22:35
+
+今晚玩家水平这么次吗，两把进去都只剩三四次救援次数了，搞毛<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

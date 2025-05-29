@@ -143,3 +143,13 @@
 除了雷横都没死，子路酱都捏回来了，包的最完美的一场饺子
 贾母都不能算死了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  丢人居士  
+##### 1136#       发表于 2025-5-29 22:31
+
+看完了，惊了，居然包饺子了<img src="https://static.stage1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+既然子路都已经确认缝没遮拦了，夫子这实力应该真是玉麒麟吧
+
