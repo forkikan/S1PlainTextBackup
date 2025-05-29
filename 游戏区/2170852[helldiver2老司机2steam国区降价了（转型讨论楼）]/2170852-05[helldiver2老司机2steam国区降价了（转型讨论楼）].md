@@ -3012,3 +3012,15 @@ DSS来了 后半夜不愁了
 
 —— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  哈迪斯兜帽  
+##### 6206#       发表于 2025-5-29 07:56
+
+66％了
+开始超级睡觉
+不会睡醒打赢了吧<img src="https://static.stage1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9980, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
