@@ -374,3 +374,14 @@ wait我发现两个人首字母都是K.T.，嚯嚯，压力马斯内<img src="ht
 
 <img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">你们谁啊卧槽，完全不像一个片场的
 
+
+*****
+
+####  粉儿alice  
+##### 908#       发表于 2025-5-29 09:28
+
+这两位妖精几岁<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这人设还不如之前同人画的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+问题是这两位一个害兽 一个病娇 不讨喜 现在又整这人设 又不知道人间体怎么样 又来两个火烧萝莉变大妈<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+

@@ -4268,3 +4268,14 @@ krkr不是一个 ...</blockquote>
 
 下集其实是库库鲁斯·多安的岛
 
+
+*****
+
+####  Rhantolk  
+##### 16656#       发表于 2025-5-29 09:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67861353&amp;ptid=2209276" target="_blank">jojonathan 发表于 2025-5-29 08:13</a>
+
+说起来精神感应高达的反射镜外甲和10号机的猫耳浮游炮都没有喷口的样子难道是独角兽同款念动力 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">独角兽也做不到人在外面就能操作吧
+
