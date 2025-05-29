@@ -3939,3 +3939,35 @@ glory of mankind<img src="https://static.stage1st.com/image/smiley/face2017/025.
 
 没绷住
 
+
+*****
+
+####  kyonko15  
+##### 6297#       发表于 2025-5-29 17:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67863145&amp;ptid=2170852" target="_blank">FLZB 发表于 2025-5-29 16:41</a>
+
+不过锁血也是意料之中的，这次入侵有总兵力值，打回100%也不过是在这个瞬间夺回了所有领土，并不代表光能的 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">说是这么说，但是更现实的原因估计就是根本没做上海守卫成功相关的东西
+
+*****
+
+####  一之江瑞江  
+##### 6298#       发表于 2025-5-29 17:09
+
+最新剧本 要守虫子星球一天
+
+*****
+
+####  ykyin09  
+##### 6299#       发表于 2025-5-29 17:09
+
+之前解包只有地球保卫胜利的真理部新闻，应该要打完整个活动才有事件
+
+*****
+
+####  爱吃冻鳗的猫  
+##### 6300#       发表于 2025-5-29 17:09
+
+6666，直接锁进度还行
+

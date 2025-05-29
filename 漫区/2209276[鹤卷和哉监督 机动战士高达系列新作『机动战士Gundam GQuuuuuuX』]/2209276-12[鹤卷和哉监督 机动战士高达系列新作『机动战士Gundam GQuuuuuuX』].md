@@ -4955,3 +4955,39 @@ kirakira指nt我最早觉得是nt看宇宙里群星发光的闪亮kirakira
 X 上的 機動戦士Gundam GQuuuuuuX×東急歌舞伎町タワー：“📢情報解禁!! ／ 機動戦士Gundam GQuuuuuuX ×  ...</blockquote>
 杜好可爱
 
+
+*****
+
+####  我聞如是  
+##### 16720#       发表于 2025-5-29 17:07
+
+<blockquote>岸浪白野 发表于 2025-5-29 16:37
+X 上的 機動戦士Gundam GQuuuuuuX×東急歌舞伎町タワー：“📢情報解禁!! ／ 機動戦士Gundam GQuuuuuuX ×  ...</blockquote>
+草 戰斧牛扒
+
+
+*****
+
+####  shinoverse  
+##### 16721#       发表于 2025-5-29 17:14
+
+这是疑似手电筒的尤玛恩托<img src="https://img.stage1st.com/forum/202505/28/004132qq0wrozfoeitdf0o.png" referrerpolicy="no-referrer">
+
+这是尤玛恩托（克苏鲁神话-外神）的形象
+
+<img src="https://img.stage1st.com/forum/202505/29/171405myq49vpcntfy4pyl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (120.55 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-29 17:14 上传
+
+<img src="https://img.stage1st.com/forum/202505/29/171415z9qyz8azyqspb109.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (527.54 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-29 17:14 上传
+

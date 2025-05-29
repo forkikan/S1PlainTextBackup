@@ -4738,3 +4738,26 @@ CygamesPictures在这片的打戏质量确实没得说，<strong>经常</strong>
 上面我也说了， ...</blockquote>
 真不好说是因为导弹打得还是掉下来摔的，毕竟那个导弹不是直击<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sauron.j  
+##### 418#       发表于 2025-5-29 17:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67863185&amp;ptid=2196984" target="_blank">朋友费小号 发表于 2025-5-29 16:49</a>
+
+有啥好感叹的，这片子有明显时间轴在跑，而且前后故事联系的也算紧密，不太能算单元喜剧吧
+
+上面我也说了， ...</blockquote>
+所以一登场就用拉粑粑给观众定调了狸猫一家是什么形象，后面都是基于这个展开
+
+
+*****
+
+####  aptx8285144  
+##### 419#       发表于 2025-5-29 17:14
+
+<blockquote>wolf1997 发表于 2025-5-29 14:57
+在第8集里，八千代最大的变化莫过于她与酒店脱钩了，酒店不在她的掌控下依然经营得越来越好，酒店的模样被 ...</blockquote>
+所以昨天我还有一种科幻版的菲伦和芙莉莲的奇妙感觉(菲伦:但是芙莉莲大人这样懒散的人你觉得会为一个酒店一丝不苟吗jpg)
+

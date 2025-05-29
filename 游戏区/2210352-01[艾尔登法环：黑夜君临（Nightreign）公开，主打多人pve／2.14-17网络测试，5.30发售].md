@@ -3694,3 +3694,13 @@ fs看来是要在pvp的道上一条路走到黑，像黑魂血源这样的正统
 
 都说赚奶粉钱，fs缺钱到了这么无所谓砸口碑的程度了么
 
+
+*****
+
+####  budong  
+##### 397#       发表于 2025-5-29 17:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67863116&amp;ptid=2210352" target="_blank">wwmmddqqbbpp 发表于 2025-5-29 16:34</a>
+都说赚奶粉钱，fs缺钱到了这么无所谓砸口碑的程度了么</blockquote>
+法环没你们想象中赚那么多，不然不会明说以后不会再出这么大规模游戏了
+
