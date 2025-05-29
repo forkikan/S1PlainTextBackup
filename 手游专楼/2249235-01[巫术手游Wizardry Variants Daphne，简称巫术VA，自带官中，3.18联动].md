@@ -1403,3 +1403,23 @@ roll到13%攻和18攻就可以用+4-6攻击改掉防御，然后只强化第一�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">根本没有修好BUG，还是有人一步登天，有点搞，打一次六连万血还挺累的，想冲榜的可以停手观望了，看看官方怎么大变申
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 394#         楼主| 发表于 2025-5-29 20:26
+
+ 本帖最后由 风浦可符香(P.N) 于 2025-5-29 20:28 编辑 
+
+<img src="https://img.stage1st.com/forum/202505/29/202531yw8sii8znlltgttb.jpg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" width="800" zoomfile="https://img.stage1st.com/forum/202505/29/202531yw8sii8znlltgttb.jpg">
+
+<strong>2025-05-29_202640.jpg</strong> (20.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-29 20:25 上传
+
+草，昨天还没有，现在总榜和每个区间第一都是他XD
+
+我觉得这次staff思路没啥问题啊，加障碍物和强制回入口，是不是祖传屎山代码从根上没救<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
