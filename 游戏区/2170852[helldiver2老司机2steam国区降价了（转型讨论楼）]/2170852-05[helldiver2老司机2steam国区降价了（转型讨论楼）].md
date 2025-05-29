@@ -3971,3 +3971,30 @@ glory of mankind<img src="https://static.stage1st.com/image/smiley/face2017/025.
 
 6666，直接锁进度还行
 
+
+*****
+
+####  kalavinka  
+##### 6301#         楼主| 发表于 2025-5-29 17:15
+
+先是阴兵，再是锁进度，果然还是那个箭÷<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhwpjy  
+##### 6302#       发表于 2025-5-29 17:18
+
+<blockquote>kyonko15 发表于 2025-5-29 17:08
+说是这么说，但是更现实的原因估计就是根本没做上海守卫成功相关的东西 ...</blockquote>
+都没做吧 就是做了最终胜利和失败
+
+
+*****
+
+####  Sevenzerofive  
+##### 6303#       发表于 2025-5-29 17:23
+
+压根没有多预案改剧本的能力<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是箭头
+
+—— 来自 samsung SM-G7810, Android 11, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
