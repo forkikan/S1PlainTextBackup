@@ -4224,3 +4224,22 @@ krkr不是一个 ...</blockquote>
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  tonberry  
+##### 16651#       发表于 2025-5-29 08:54
+
+在地球接番茄的有没有可能是兰巴啊，说不定已经偷偷和绿叔叔结盟了
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  Evomenon  
+##### 16652#       发表于 2025-5-29 08:56
+
+【无违和！高达GQuuuuuuX第七话 整集都替换成Z的BGM-哔哩哔哩】 https://b23.tv/04o53QL
+
+刷到个这个，带感hhhhh
+

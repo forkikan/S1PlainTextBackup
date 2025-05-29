@@ -4524,3 +4524,11 @@ CygamesPictures在这片的打戏质量确实没得说，<strong>经常</strong>
 
 这个战斗台词，两个人都尽说些nt才说的话呢……<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hibike!  
+##### 398#       发表于 2025-5-29 08:54
+
+太有意思了，笑出声了好几次
+
