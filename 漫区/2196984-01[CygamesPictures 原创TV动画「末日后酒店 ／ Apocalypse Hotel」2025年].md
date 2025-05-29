@@ -4856,3 +4856,61 @@ TVアニメ「アポカリプスホテル」第9話 Web予告｜ 2025年6月3日
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就结婚了啊，整挺好
 
+
+*****
+
+####  TOYSTORY  
+##### 429#       发表于 2025-5-29 21:26
+
+<img src="https://img.stage1st.com/forum/202505/29/212708kmllx977k22l72d9.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (149.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-29 21:27 上传
+
+<img src="https://img.stage1st.com/forum/202505/29/212708gtlx1kzd41r12mft.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (125.19 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-29 21:27 上传
+
+<img src="https://img.stage1st.com/forum/202505/29/212709oci5kii4kqew6i6g.jpg" referrerpolicy="no-referrer">
+
+<strong>3.jpg</strong> (138.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-29 21:27 上传
+
+<img src="https://img.stage1st.com/forum/202505/29/212710uikfm8riafhv81mr.jpg" referrerpolicy="no-referrer">
+
+<strong>4.jpg</strong> (163.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-29 21:27 上传
+
+<img src="https://img.stage1st.com/forum/202505/29/212710kzuw00eh1we1x5xw.jpg" referrerpolicy="no-referrer">
+
+<strong>5.jpg</strong> (75.77 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-29 21:27 上传
+
+[https://www.bilibili.com/video/BV1md7Gz5E4s](https://www.bilibili.com/video/BV1md7Gz5E4s)
+
+第9話「お客様の人生に、今日という栞を」
+
+ホテリエロボットのヤチヨです。
+
+私たちは日頃から、お客様が『銀河楼』でお過ごしになられる時間が特別なものとなるよう心掛けております。
+
+その中で時折、お客様の人生の節目に立ち会うこともございます。
+
+そしてその瞬間は、私たちにとっても――『銀河楼』にとっても、大切な節目となるのです。
+
