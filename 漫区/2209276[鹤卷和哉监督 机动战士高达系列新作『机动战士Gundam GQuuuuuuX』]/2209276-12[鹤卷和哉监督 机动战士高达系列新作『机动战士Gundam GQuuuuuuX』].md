@@ -5141,3 +5141,14 @@ X 上的 極楽湯/RAKU SPA(公式)：“6/19(木) より 『機動戦士Gundam 
 独角兽也做不到人在外面就能操作吧</blockquote>
 看你把不把外传当作正史，Msv-r里，塞了卡谬灵魂的Z原版电脑被拆了下来换到别的机子里，和夏亚打的时候被双方发现了身份，机子就自己行动起来了。
 
+
+*****
+
+####  武川日玄  
+##### 16737#       发表于 2025-5-29 20:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67859372&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-5-28 16:58</a>
+
+有一个最简单的想法，就是泽克诺瓦=时空转移，那么发动泽克诺瓦把总帅府直接转移到手电筒的靶点上不就行了 ...</blockquote>
+天上天下一击必中炮<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
