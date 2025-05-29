@@ -3586,3 +3586,24 @@ GS竟然才是最孝顺的那个
 不过说回来这个游戏从一开始就看不懂出出来的意义是什么，想作为新的独立游戏吧，不舍得投成本，高度素材复用新武器都没几个，但这么高度复用还不如干脆就做成环dlc，但又不是。感觉只可能是给黄昏之血玩法试水的试做品。
 反正我是觉得做这个还不如做个法环黄金版，几个黑夜王整合进去做成条新大支线，再补个废案支线啥的，稳赚不亏的事<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  usodakedo  
+##### 386#       发表于 2025-5-29 14:11
+
+ 本帖最后由 usodakedo 于 2025-5-29 14:15 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67862535&amp;ptid=2210352" target="_blank">zakki 发表于 2025-5-29 13:36</a>
+不过说回来这个游戏从一开始就看不懂出出来的意义是什么，想作为新的独立游戏吧，不舍得投成本，高度素材复 ...</blockquote>
+答案很简单，就是为了多赚钱，你整合成一个dlc，卖的再好评价再高也是万代赚大头，没准不如打工两次来的划算，fs拿到的是法环周边授权权而不是误传买回了整个ip。另外想法本身其实没太大问题的，但有这么好的机会，工期也够，小石还整的这么保守，目前看来作为监督还不如山村胜。
+
+*****
+
+####  医生狼多  
+##### 387#         楼主| 发表于 2025-5-29 14:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67862627&amp;ptid=2210352" target="_blank">usodakedo 发表于 2025-5-29 14:11</a>
+答案很简单，就是为了多赚钱，你整合成一个dlc，卖的再好评价再高也是万代赚大头，没准不如打工两次来的 ...</blockquote>
+问题这个也是万代发行啊
+企划应该是bn那边主导想搞的
+

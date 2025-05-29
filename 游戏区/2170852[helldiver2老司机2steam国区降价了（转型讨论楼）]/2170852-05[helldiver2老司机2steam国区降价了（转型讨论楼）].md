@@ -3299,3 +3299,17 @@ DSS来了 后半夜不愁了
 
 接下来就看3小时后是超级解放还是超级差评了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风萧飒  
+##### 6234#       发表于 2025-5-29 14:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67861933&amp;ptid=2170852" target="_blank">outerish 发表于 2025-5-29 10:49</a>
+怎么可能最终决战
+
+就箭头这产能，这波超级地球守卫战怕是要拖个半年</blockquote>
+结局早做好了，应该不用多久了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
