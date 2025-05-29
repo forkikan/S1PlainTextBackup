@@ -4497,3 +4497,46 @@ kirakira元祖动画里就有了</blockquote>
 
 这群老害加起来写情书能力都不如大和田秀树一根**毛
 
+
+*****
+
+####  otaku21126  
+##### 16677#       发表于 2025-5-29 10:56
+
+感觉包饺子味还是挺浓的
+按理说，包饺子故事容易出新登反派BOSS
+
+感觉GQX结局是不是打一下福山润配音的基连大BOSS就散伙和和美美包饺子了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  没钱打不起酱油  
+##### 16678#       发表于 2025-5-29 10:57
+
+三角恋包饺子吗，那很好看了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  未来起航  
+##### 16679#       发表于 2025-5-29 11:03
+
+还是要说，修司目前写得属实是看了就犯困。宇宙巡警露露子虽然是搞刻板恋爱戏码的喜剧，但nova作为欲望投射对象的神必抛媚眼池面是相当合格，修司则一直是不及格水平，只是一个劲的搁那神必微笑说我以后角色塑造肯定有大的你等着吧<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+反正我是不喜欢这种压缩时间只提一两笔给一两个镜头和表情特写就说这段角色弧光已经完成啦自己脑补关系性去吧的“浓缩”写法。我要的情绪调动呢？<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  吴怀在  
+##### 16680#       发表于 2025-5-29 11:05
+
+所以怎么包饺子？修斯挂掉，两个女主上同一所大学，夏亚和拉拉结婚？
+
+
+*****
+
+####  ヒトニナル  
+##### 16681#       发表于 2025-5-29 11:05
+
+说难听点大局跟我让叶天手有个屁关系，又没有哪个NT发功跟我说紫婆要整个大的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
