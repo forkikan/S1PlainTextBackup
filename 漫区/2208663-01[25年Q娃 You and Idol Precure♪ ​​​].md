@@ -419,3 +419,23 @@ ace变化差不多吧，被大伙从头到尾吐槽小学生bba的，倒是felic
 
 2025-5-29 11:25 上传
 
+
+*****
+
+####  粉儿alice  
+##### 912#       发表于 2025-5-29 11:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67861778&amp;ptid=2208663" target="_blank">Blackson 发表于 2025-5-29 10:16</a>
+想了想，这两追加用的是手麦，初始三人用的是耳麦。
+跟初始三人造型风格相比差异很大。
+不知道是不是好了伤 ...</blockquote>
+也有可能学奶玫瑰 新手保护期装逼几集 然后打回原形了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  粉儿alice  
+##### 913#       发表于 2025-5-29 11:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67862116&amp;ptid=2208663" target="_blank">新HGCG 发表于 2025-5-29 11:25</a></blockquote>
+正常 这几年卖破铁皮塑料板的策划师 满脑子就想各种卖男人谷<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
