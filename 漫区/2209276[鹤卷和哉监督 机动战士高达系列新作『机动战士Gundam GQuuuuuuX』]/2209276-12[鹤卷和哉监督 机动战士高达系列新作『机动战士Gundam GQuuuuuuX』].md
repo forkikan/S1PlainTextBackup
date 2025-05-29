@@ -4189,3 +4189,13 @@ krkr不是一个 ...</blockquote>
 
 说起来精神感应高达的反射镜外甲和10号机的猫耳浮游炮都没有喷口的样子<img src="https://static.stage1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">难道是独角兽同款念动力
 
+
+*****
+
+####  kkl12355  
+##### 16648#       发表于 2025-5-29 08:26
+
+<blockquote>eyeego 发表于 2025-5-29 07:12
+有没有可能kirakira人跟nt根本不是一种生物 只不过恰好展示了有点相似的能力呢 ...</blockquote>
+蛋糕哥搞错了，恶魔不是nt而是kirakira人，魔女拒绝kirakira，所以人死了。等喵安kirakira起来，就该蛋糕哥千古了。还有紫婆似乎已经是无症状或轻度感染者了，不顾一切追求boom不像冷酷理性的紫婆会干的事。
+
