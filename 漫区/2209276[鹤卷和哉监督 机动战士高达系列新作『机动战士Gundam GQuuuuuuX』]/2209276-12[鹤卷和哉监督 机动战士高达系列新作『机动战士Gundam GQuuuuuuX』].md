@@ -5077,3 +5077,19 @@ X 上的 機動戦士Gundam GQuuuuuuX×東急歌舞伎町タワー：“📢情�
 
 有个在OP跑的路人没在联动图里<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  YU_JI  
+##### 16730#       发表于 2025-5-29 18:39
+
+小森：喂我花生！
+
+
+*****
+
+####  某某某人  
+##### 16731#       发表于 2025-5-29 18:45
+
+連op都在玩真物假物的屑鶴卷
+
