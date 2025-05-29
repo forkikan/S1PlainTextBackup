@@ -2158,3 +2158,30 @@ HP低於一定程度時
 
 用就用吧pvp居然吃不到加成，咱G世纪的主人公怎么就不是主人公了
 
+
+*****
+
+####  hayate0079  
+##### 1671#       发表于 2025-5-29 09:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860218&amp;ptid=2071758" target="_blank">闲度朝夕 发表于 2025-5-28 20:27</a>
+
+就是看攻击范围内最低血的，低到能被光枪秒的程度就会用光枪
+
+结果是打在援防上，然后吃到三个人的反击 ...</blockquote>
+这个我以为你们都知道的，所以没说，我说的是防御时用的盾，用低血量的可以骗AI用小招，让盾存活，用EX盾就直接死了
+
+*****
+
+####  hayate0079  
+##### 1672#       发表于 2025-5-29 09:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67861302&amp;ptid=2071758" target="_blank">wing130083 发表于 2025-5-29 07:28</a>
+
+脑壳痛，觉得玩G世纪有点仪式感自选ur刷了个凤凰
+
+然后卡池连蹦两台凤凰……
+
+用就用吧pvp居然吃不到加成，咱 ...</blockquote>
+我有个小号也是这样，然后28J又出了个凤凰，成功满破
+
