@@ -5250,3 +5250,27 @@ GQ的编剧肯定看了雷霆宙域而且看到了很后面，雷霆宙域里AE�
 
 这层关系有没有可能也是“真物”“伪物”的指代？GQ世界和正史世界的关系就是克图格亚和尤玛恩托？紫婆是不是已经拿到高堡奇人剧本了？
 
+
+*****
+
+####  暗黑能乐  
+##### 16746#       发表于 2025-5-29 22:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67864117&amp;ptid=2209276" target="_blank">wing130083 发表于 2025-5-29 20:58</a>
+
+卡罗德和蒂法没长歪那是因为舰长大叔（和船上的前辈们）靠谱啊。又不是靠他俩自己的
+
+反观这边，黑拳俱乐部 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">那不就压根不一样吗，环境就不一样，情况不一样，过程不一样，那到底哪里像了。。总不能说是个恋情就像吧
+
+
+*****
+
+####  wing130083  
+##### 16747#       发表于 2025-5-29 22:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67864393&amp;ptid=2209276" target="_blank">暗黑能乐 发表于 2025-5-29 22:17</a>
+
+那不就压根不一样吗，环境就不一样，情况不一样，过程不一样，那到底哪里像了。。总不能说是个恋情就像吧 ...</blockquote>
+就是修司像蒂法啊<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

@@ -4499,3 +4499,35 @@ steam差评又刷起来了，难评。虽然箭头过去劣迹斑斑，这次剧
 
 只能说别想太多，拒绝内耗，享受游戏<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dnc  
+##### 6354#       发表于 2025-5-29 22:18
+
+ 本帖最后由 dnc 于 2025-5-29 22:20 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67864372&amp;ptid=2170852" target="_blank">qwased 发表于 2025-5-29 22:11</a>
+
+想煽动社区就要有承受社区反噬的觉悟</blockquote>
+
+炒作起流量又接不住流量被玩家群体反噬本来就是活该<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UNICORN00  
+##### 6355#       发表于 2025-5-29 22:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67864355&amp;ptid=2170852" target="_blank">FLZB 发表于 2025-5-29 22:06</a>
+steam差评又刷起来了，难评。虽然箭头过去劣迹斑斑，这次剧本安排也确实少智，但远没到要骂街刷差评的程度 ...</blockquote>
+箭处它玩不起就别玩
+
+—— 来自 Xiaomi 22041211AC, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  qxs  
+##### 6356#       发表于 2025-5-29 22:26
+
+你是说社区战争跟玩家对着干的还要好评如潮，荣都最后开这个骚操作之后还能睁眼说瞎话相信贱头哥哥？
+
