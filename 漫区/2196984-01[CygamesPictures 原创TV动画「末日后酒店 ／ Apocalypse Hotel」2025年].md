@@ -4611,3 +4611,21 @@ CygamesPictures在这片的打戏质量确实没得说，<strong>经常</strong>
 
 属于让人推荐可能只推荐前6集的水平，还好我没有抱太高的期望值。
 
+
+*****
+
+####  ggby  
+##### 406#       发表于 2025-5-29 12:58
+
+第七八两集有种为做而做的感觉<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  pzk  
+##### 407#       发表于 2025-5-29 13:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67861601&amp;ptid=2196984" target="_blank">gammatau 发表于 2025-5-29 09:42</a>
+这不就是gbf的机械卡姐嘛，笑点为第一驱动力</blockquote>
+还真是，你不说我都没想到
+
