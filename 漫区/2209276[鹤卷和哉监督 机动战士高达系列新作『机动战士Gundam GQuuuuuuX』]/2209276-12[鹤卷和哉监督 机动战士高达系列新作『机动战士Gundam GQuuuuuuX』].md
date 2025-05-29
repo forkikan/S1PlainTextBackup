@@ -4279,3 +4279,33 @@ krkr不是一个 ...</blockquote>
 说起来精神感应高达的反射镜外甲和10号机的猫耳浮游炮都没有喷口的样子难道是独角兽同款念动力 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">独角兽也做不到人在外面就能操作吧
 
+
+*****
+
+####  mhss  
+##### 16657#       发表于 2025-5-29 09:40
+
+罚楼上回去重看，肥鸭卫星里打光头巴纳吉就是声控独角兽出来救场的。
+
+*****
+
+####  Toby_dak  
+##### 16658#       发表于 2025-5-29 09:40
+
+NT在聊天室里神交需要理由吗？
+这不是0079就已经谈论烂的事情？
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.46)
+
+*****
+
+####  银川智将Kuroky  
+##### 16659#       发表于 2025-5-29 09:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67861262&amp;ptid=2209276" target="_blank">scorbian 发表于 2025-5-29 05:59</a>
+
+怎么楼里一个个跟第一次看高达一样
+
+newtype的事情不用你们搞那么清楚.jpg明白吗</blockquote>
+历代NT哪来的这种吸嗨了的神经病，每个角色你都看得懂为啥要发癫的好吧
+
