@@ -4366,3 +4366,49 @@ dm撒泼打滚还能怪pl不按dm剧本来了，真够贱的
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">只能说永远都是那副嘴脸
 
+
+*****
+
+####  rainknine  
+##### 6340#       发表于 2025-5-29 20:09
+
+那段话隔壁论坛好像证实不是官方人员发的了？
+不过想婊箭头我也没意见就是了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+——————
+虽然荣都沦陷条跑的很快
+但考虑到这次MO限时24小时，估计又是个荣都沦陷在即突然机械降神的戏码（
+
+*****
+
+####  FLZB  
+##### 6341#       发表于 2025-5-29 20:09
+
+难绷，乔尔才反应过来要把7.8调到荣都那边，现在集中兵力干碎联合堡就行了，再给光能扣一波血基本就稳了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  风萧飒  
+##### 6342#       发表于 2025-5-29 20:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67863896&amp;ptid=2170852" target="_blank">rainknine 发表于 2025-5-29 20:09</a>
+那段话隔壁论坛好像证实不是官方人员发的了？
+不过想婊箭头我也没意见就是了
+——————</blockquote>
+那个就是类似贴吧黄牌的人发的，确实没官方标志
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  银川智将Kuroky  
+##### 6343#       发表于 2025-5-29 20:12
+
+<img src="https://img.stage1st.com/forum/202505/29/201218isf86fif763ueh7f.jpg" referrerpolicy="no-referrer">
+
+<strong>{KIUJJ4XTBH_197$(GX(WKF.jpg</strong> (259.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-29 20:12 上传
+
