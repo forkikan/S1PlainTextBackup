@@ -3784,3 +3784,14 @@ ost已出，音乐水平仍然在线
 法环火，但是大头还是发行商万代的，虽然fs这些年顺风顺水，但目前本质还只是高级母猪打工仔，和那些有自 ...</blockquote>
 只狼你fs一个人占了ip也没见做续作啊，显然fs完全不介意跟代哥这个老伙伴有钱一起赚
 
+
+*****
+
+####  usodakedo  
+##### 406#       发表于 2025-5-29 19:25
+
+ 本帖最后由 usodakedo 于 2025-5-29 19:26 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67863664&amp;ptid=2210352" target="_blank">HATENA 发表于 2025-5-29 19:07</a>
+只狼你fs一个人占了ip也没见做续作啊，显然fs完全不介意跟代哥这个老伙伴有钱一起赚 ...</blockquote>
+只狼一个是很难出续作，本身就带点实验性质，另一个就是发行商是动视吧，其实那次合作还挺好的，就是不知道被收购后双方现在咋样了
+

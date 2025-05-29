@@ -4823,3 +4823,28 @@ CygamesPictures在这片的打戏质量确实没得说，<strong>经常</strong>
 
 八千代还有可能修好吗，战车形态实在太不优雅了<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NBXX  
+##### 427#       发表于 2025-5-29 19:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67863630&amp;ptid=2196984" target="_blank">太极八爪鱼 发表于 2025-5-29 18:56</a>
+
+第八集狸猫弟，爹，妈都没出现吧？我又过了一遍没看到画面啊</blockquote>
+[https://www.youtube.com/watch?v=YN2aYczaEUs](https://www.youtube.com/watch?v=YN2aYczaEUs)
+
+TVアニメ「アポカリプスホテル」第9話 Web予告｜ 2025年6月3日 日本テレビ他にて放送
+
+说的是第九集预告，嘭子结婚典礼（？）的部分。
+
+不过看这个八千代又不太好确定时间线，这片预告诈骗是惯犯。
+
+<img src="https://img.stage1st.com/forum/202505/29/192424s6kbpb8o3rkzd0y4.jpg" referrerpolicy="no-referrer">
+
+<strong>image.png.jpg</strong> (653.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-29 19:24 上传
+
