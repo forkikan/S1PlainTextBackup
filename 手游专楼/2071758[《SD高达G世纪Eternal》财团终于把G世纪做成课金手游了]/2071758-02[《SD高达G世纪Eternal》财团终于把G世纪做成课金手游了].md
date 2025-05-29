@@ -2478,3 +2478,13 @@ snapshsnapot.jpg
 
 还有麻辣肉丝装备能出呢，只能说别急<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DRAGONBLEAPIECE  
+##### 1702#       发表于 2025-5-29 23:41
+
+目前这游戏满命强度如何？大概是0命几倍强度？
+
+能跨属性执法吗？
+
