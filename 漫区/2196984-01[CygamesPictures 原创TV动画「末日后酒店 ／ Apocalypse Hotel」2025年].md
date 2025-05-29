@@ -4571,3 +4571,25 @@ CygamesPictures在这片的打戏质量确实没得说，<strong>经常</strong>
 男狸猫是弟弟?真要搞骨科?</blockquote>
 应该不是，如果是的话不会对见到8k代没反应的
 
+
+*****
+
+####  TOYSTORY  
+##### 403#       发表于 2025-5-29 10:25
+
+ 本帖最后由 TOYSTORY 于 2025-5-29 10:26 编辑 
+<blockquote>彌珠 发表于 2025-5-29 09:46
+男狸猫是弟弟?真要搞骨科?</blockquote>
+
+<img src="https://img.stage1st.com/forum/202505/29/102612yq6000tpt4060kfu.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>hanaenatsuki.webp</strong> (86.54 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-29 10:26 上传
+
+怎么可能，是新角色啦。人物介绍说的职业是医生，所以跟棚子一起照顾快不行的奶奶。
+
+不过感觉专门弄这么一个男友角色没啥意义，除非也要搞寿命论，说棚子结婚生子后又过了几百几千年，他们这批最早的狸猫星人也不在了，八千代帮着带棚子的子孙什么的
+

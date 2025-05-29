@@ -4413,3 +4413,57 @@ krkr主要还是优先度的问题，年轻人喜欢点新奇的东西很正常�
 独角兽也做不到人在外面就能操作吧</blockquote>
 这么一说，gquuuuuux的高达比起工具定位的传统高达(精神感应放大器)，某种程度上倒是更像具备神性的EVA。
 
+
+*****
+
+####  未来起航  
+##### 16670#       发表于 2025-5-29 10:25
+
+krkr就是一层让你能做主角的buff，但是故事的主角要有自己坚定的意志和明确的目标。玛秋是迷茫，修斯是装神弄鬼，nya倒是明确但只为苟活目光太短浅显得很不高大上。白毛更是说白了一个配角的命靠机器改造硬装主角的伪物/陪衬。
+结果krkr就成了这种除了让人变成鲨人狂骇人精以外没带来啥好处的东西。但krkr本身无罪，是运用的角色有问题<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23116PN5BC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Rhantolk  
+##### 16671#       发表于 2025-5-29 10:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67861777&amp;ptid=2209276" target="_blank">无念 发表于 2025-5-29 10:16</a>
+
+能啊，罚你重看一遍
+
+—— 来自 HONOR SDY-AN00, Android 14, 鹅球 v3.5.99</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">看两遍了已经，反正再怎么看结论都是后面不如前面的（
+
+*****
+
+####  Evomenon  
+##### 16672#       发表于 2025-5-29 10:28
+
+<blockquote>盐盐盐盐盐 发表于 2025-5-29 10:20
+那是因为麻球之前军团战遇到危险有修司开krkr救她啊，所以她下意识就会需要修司和krkr来解围，麻球第三集 ...</blockquote>
+所以其实是台词设计问题，就像“私奔宣言”的重点其实是“一起逃走”，甚至只有“逃走”——实在不行一人逃走也可以（喵安也确实这么做了）
+
+麻球这句按你这个解读，完整的表述是“没有修斯，没有krkr的话，会被干掉……！”，重点是她实际上没有说的“会被干掉”。没有最后这句，再加上前头刚死一个满口krkr的神志不清强化人，无怪观众会误解啊
+
+*****
+
+####  eyeego  
+##### 16673#       发表于 2025-5-29 10:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67861287&amp;ptid=2209276" target="_blank">LOLITA 发表于 2025-5-29 07:14</a>
+不可能
+
+kirakira元祖动画里就有了</blockquote>
+无论几几年的nt眼睛也不会变色的啊 
+当然鹤卷这种为了演出不讲逻辑的也可能只是演出效果<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rockroxas  
+##### 16674#       发表于 2025-5-29 10:33
+
+沉迷忘我没什么，关键是音乐可以直接感染观众，片里机战不精彩，金钱感觉对于小番茄的影响也只是只言片语（尤其跟最近重翻的漫画fx战士对比，同样沉迷金钱观异常，区别很明显），krkr跟修司强相关还整了一出闺蜜抢krkr，就变成现在这样子了
+
