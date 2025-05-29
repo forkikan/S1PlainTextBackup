@@ -4944,3 +4944,14 @@ kirakira指nt我最早觉得是nt看宇宙里群星发光的闪亮kirakira
 
 <img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这和X是一回事吗，卡罗德原先是什么身份，上了机之后是什么身份，有没有承担责任有没有为世界做出贡献，蒂法是不是充当了引导卡罗德的这个角色。蒂法和卡罗德是双向救赎，但是鸡胯这几个人似乎没有展现出太多这方面意思吧，不是反而一股子滑向深渊的味道吗
 
+
+*****
+
+####  中野梓  
+##### 16719#       发表于 2025-5-29 16:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67863130&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-29 16:37</a>
+
+X 上的 機動戦士Gundam GQuuuuuuX×東急歌舞伎町タワー：“📢情報解禁!! ／ 機動戦士Gundam GQuuuuuuX ×  ...</blockquote>
+杜好可爱
+

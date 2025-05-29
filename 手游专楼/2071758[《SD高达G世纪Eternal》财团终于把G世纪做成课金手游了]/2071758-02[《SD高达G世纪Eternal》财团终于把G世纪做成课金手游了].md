@@ -2303,3 +2303,51 @@ gto扎古和酸浆果一起出？这俩也没关系啊
 
 6月下可能是ur无正吗？纠结抽不抽gp02
 
+
+*****
+
+####  无念  
+##### 1684#       发表于 2025-5-29 16:56
+
+你哪怕出个URGP00或者04也好啊
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  胖达君  
+##### 1685#       发表于 2025-5-29 16:59
+
+继续囤钻等掉毛机或者蛋蛋
+
+*****
+
+####  demon6666  
+##### 1686#       发表于 2025-5-29 16:59
+
+一点钻没有了，安安心心<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+感觉还是重开得了<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  captoon  
+##### 1687#       发表于 2025-5-29 17:01
+
+这几次下来基本可以确定，卡池和活动有一定关联
+
+至少是标签或者系列是要符合的
+
+这次83活动 加成是 元祖系列....GTO带加成
+
+*****
+
+####  captoon  
+##### 1688#       发表于 2025-5-29 17:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67863176&amp;ptid=2071758" target="_blank">阿特洛玻丝 发表于 2025-5-29 16:48</a>
+
+6月下可能是ur无正吗？纠结抽不抽gp02</blockquote>
+6月下有可能是ZZ
+

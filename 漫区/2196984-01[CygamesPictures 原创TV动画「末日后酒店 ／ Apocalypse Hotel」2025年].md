@@ -4725,3 +4725,16 @@ CygamesPictures在这片的打戏质量确实没得说，<strong>经常</strong>
 
 我能get到编剧想讲个什么故事，但是观感确实不好
 
+
+*****
+
+####  太极八爪鱼  
+##### 417#       发表于 2025-5-29 17:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67863185&amp;ptid=2196984" target="_blank">朋友费小号 发表于 2025-5-29 00:49</a>
+
+有啥好感叹的，这片子有明显时间轴在跑，而且前后故事联系的也算紧密，不太能算单元喜剧吧
+
+上面我也说了， ...</blockquote>
+真不好说是因为导弹打得还是掉下来摔的，毕竟那个导弹不是直击<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
