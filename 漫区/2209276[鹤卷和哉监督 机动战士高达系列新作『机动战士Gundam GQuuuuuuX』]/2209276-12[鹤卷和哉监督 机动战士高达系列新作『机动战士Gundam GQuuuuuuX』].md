@@ -4330,3 +4330,27 @@ newtype的事情不用你们搞那么清楚.jpg明白吗</blockquote>
 
 当然如果鹤卷最后能解释那也行吧
 
+
+*****
+
+####  ryanghj  
+##### 16662#       发表于 2025-5-29 09:55
+
+ 本帖最后由 ryanghj 于 2025-5-29 09:56 编辑 
+
+解构剧情解构到自己都不理解了
+
+非得说是嗑嗨了我觉得可以不用看这片了
+
+kirakira本质上就是nt聊天室，把他和做自己喜欢做的事时无我的状态做比较我才认为是合适的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  没钱打不起酱油  
+##### 16663#       发表于 2025-5-29 10:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要是以泥潭的平均年龄，很多用户应该已经忘记这种感觉很久了
+
