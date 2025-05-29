@@ -3024,3 +3024,15 @@ DSS来了 后半夜不愁了
 
 —— 来自 samsung SM-G9980, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  UNICORN00  
+##### 6207#       发表于 2025-5-29 08:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860617&amp;ptid=2170852" target="_blank">RPMWT 发表于 2025-5-28 22:12</a>
+哦，看来是我对管理式民主的学习不够深入</blockquote>
+可能玩家就想要个选择城市的自由而不想强行走原剧本，所以产生不满罢了。至于为什么选onsea可能是在地图上这片区域恰好对应了半个中国吧
+
+—— 来自 Xiaomi 22041211AC, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
