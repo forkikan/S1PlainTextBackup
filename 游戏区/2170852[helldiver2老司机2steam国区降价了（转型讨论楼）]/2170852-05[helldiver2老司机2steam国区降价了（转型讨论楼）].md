@@ -3058,3 +3058,50 @@ DSS来了 后半夜不愁了
 
 本来就是玩个代入 有种使命感  我倒是没啥反对的 最后真守荣都 也会守 贴吧里面上海丢了不守的 也能理解 但是为了自己剧本吹挂哥也来拯救上海 我是感觉真恶心
 
+
+*****
+
+####  真红眼教授  
+##### 6210#       发表于 2025-5-29 08:58
+
+<blockquote>斯卡文分则能成 发表于 2025-5-29 07:23
+—— 来自 HUAWEI ALN-AL00, Android 12, 鹅球 v3.5.99</blockquote>
+粉色的是隆美尔是吧
+
+*****
+
+####  春哥亲自  
+##### 6211#       发表于 2025-5-29 08:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67861298&amp;ptid=2170852" target="_blank">斯卡文分则能成 发表于 2025-5-29 07:23</a>
+—— 来自 HUAWEI ALN-AL00, Android 12, 鹅球 v3.5.99</blockquote>
+很地狱<img src="https://static.stage1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  风萧飒  
+##### 6212#       发表于 2025-5-29 09:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67861393&amp;ptid=2170852" target="_blank">zhwpjy 发表于 2025-5-29 08:40</a>
+本来就是玩个代入 有种使命感  我倒是没啥反对的 最后真守荣都 也会守 贴吧里面上海丢了不守的 也能理解  ...</blockquote>
+昨晚贴吧还有挂钩造谣箭头紧急更新了反作弊系统针对他们的，倒是很符合这个群体的精神状态<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  赤井稻妻  
+##### 6213#       发表于 2025-5-29 09:01
+
+机器人得了MVP！终结虫族就是躺赢狗！
+
+不过游戏嘛，还是玩得开心最重要，绝地战兵1和2在本身的游玩内容之外套了一层“我们似乎在做什么更伟大的事”的皮，就像合金装备5的无核结局一样，DSS这次甚至让之前备受争议的西线战兵成了最受尊敬的玩家，只有东线战兵受伤的世界达成了！
+
+
+*****
+
+####  透明马甲  
+##### 6214#       发表于 2025-5-29 09:03
+
+一款用外挂会受到尊敬的联机多人游戏
+

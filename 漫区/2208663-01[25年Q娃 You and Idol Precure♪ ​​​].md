@@ -348,3 +348,13 @@ wait我发现两个人首字母都是K.T.，嚯嚯，压力马斯内<img src="ht
 
 —— 来自 Xiaomi 2410DPN6CC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  leleq  
+##### 905#       发表于 2025-5-29 09:06
+
+这感觉怎么像管人<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NOH-AN00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
