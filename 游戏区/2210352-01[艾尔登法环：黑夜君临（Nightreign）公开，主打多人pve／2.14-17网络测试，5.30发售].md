@@ -3836,3 +3836,26 @@ fs是角川的子公司，角川和万代有交叉持股，这里只怕不是“
 
 单人模式积累的东西跟三人模式分开吗？
 
+
+*****
+
+####  pgain2004  
+##### 411#       发表于 2025-5-29 21:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67862531&amp;ptid=2210352" target="_blank">christiny 发表于 2025-5-29 13:35</a>
+肉鸽和吃鸡的坑踩了个遍。
+
+媒体测试版本，极度依赖路线规划和开黑指挥调度。 路人联机可以判死刑了。</blockquote>
+倒不至于，看了一下几个魂系主播的反馈，随机局有人到第三天Boss居然只有6级，还是过了，前面也有第三天掉线一个两人成功过了的
+用对打法之后最终Boss难度会下降很多，例如说选Boss时会直接展示弱点，而流程中稍微注意一下很容易找到对应属性武器，也很容易把武器升到次顶级（紫色），属性对的紫武要比最高级普通橙武要强很多
+
+*****
+
+####  pgain2004  
+##### 412#       发表于 2025-5-29 21:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67864060&amp;ptid=2210352" target="_blank">jacket 发表于 2025-5-29 20:47</a>
+单人模式积累的东西跟三人模式分开吗？</blockquote>
+应该不分，至少每个角色的故事进度继承
+本来单人就比较坐牢，也没必要分
+
