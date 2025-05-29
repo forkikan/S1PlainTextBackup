@@ -3625,3 +3625,25 @@ GS竟然才是最孝顺的那个
 
 fs看来是要在pvp的道上一条路走到黑，像黑魂血源这样的正统魂游恐怕又要遥遥无期了
 
+
+*****
+
+####  budong  
+##### 390#       发表于 2025-5-29 14:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67862661&amp;ptid=2210352" target="_blank">siansian 发表于 2025-5-29 14:23</a>
+fs看来是要在pvp的道上一条路走到黑，像黑魂血源这样的正统魂游恐怕又要遥遥无期了 ...</blockquote>
+27年应该就有了，现在fs高产似母猪，年年有新作
+
+
+*****
+
+####  usodakedo  
+##### 391#       发表于 2025-5-29 14:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67862661&amp;ptid=2210352" target="_blank">siansian 发表于 2025-5-29 14:23</a>
+fs看来是要在pvp的道上一条路走到黑，像黑魂血源这样的正统魂游恐怕又要遥遥无期了 ...</blockquote>
+虽然但是，上次宫崎英高说过未来还是致力于单机，黄昏之血是本来作为的小项目开发，但后来想法越来越多才到ns2上发售，另外时至今日都没搞懂“正统魂游”这个词
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
