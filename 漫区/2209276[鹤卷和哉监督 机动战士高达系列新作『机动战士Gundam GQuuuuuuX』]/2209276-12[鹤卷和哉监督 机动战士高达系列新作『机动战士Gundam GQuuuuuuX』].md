@@ -4741,3 +4741,25 @@ kirakira指nt我最早觉得是nt看宇宙里群星发光的闪亮kirakira
 鸭叔叔能不能分到新机，还是说让他再上一把自己心心念念的红高达</blockquote>
 吉翁号、红螳螂、理科迪亚士、百式、零式，选择有很多。
 
+
+*****
+
+####  blood_iron  
+##### 16703#       发表于 2025-5-29 15:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67843767&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-23 11:07</a>
+
+高达打戏很好看的有独角兽里杰刚队长打12妹那一幕。（估计很难超越了）
+
+先是两台新兵杰刚瞬间被秒，反衬出 ...</blockquote>
+我觉得是利迪开报丧出场对铃铛队三老兵更精彩
+
+双方没下死手，但是三老兵的战术应用十分默契配合，虽然最后在报丧的碾压级性能面前输了
+
+*****
+
+####  失落之翼  
+##### 16704#       发表于 2025-5-29 15:11
+
+让爷想去地球看海喜欢水母，不会到时候后继机是水母型吧<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

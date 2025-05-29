@@ -3402,3 +3402,21 @@ PVE游戏开挂本身也不影响其它人的体验吧
 不用非得打超级地球的城市图，这几张城市图其实资源特别特别少，打半天没啥收益，光能者也不好玩，建议直 ...</blockquote>
 东线虫子，西线机器人<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FLZB  
+##### 6243#       发表于 2025-5-29 15:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67862744&amp;ptid=2170852" target="_blank">Sevenzerofive 发表于 2025-5-29 14:56</a>
+
+总感觉以箭头的尿性，最后还是会搞失守这操作</blockquote>
+光能超级战舰进入战场，击坠DSS爆破on sea，开启繁荣城大决战<img src="https://static.stage1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ykyin09  
+##### 6244#       发表于 2025-5-29 15:11
+
+dss昨晚火线救场拉回一波风评要是没几天就被光能干沉了估计要复现一波去年的psn风波
+
