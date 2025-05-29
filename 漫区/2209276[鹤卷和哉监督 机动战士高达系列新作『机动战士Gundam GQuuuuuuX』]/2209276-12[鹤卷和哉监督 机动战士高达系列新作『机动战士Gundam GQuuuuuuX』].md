@@ -5048,3 +5048,14 @@ X 上的 機動戦士Gundam GQuuuuuuX×東急歌舞伎町タワー：“📢情�
 
 2025-5-29 18:03 上传
 
+
+*****
+
+####  patema  
+##### 16727#       发表于 2025-5-29 18:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67863130&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-29 16:37</a>
+
+X 上的 機動戦士Gundam GQuuuuuuX×東急歌舞伎町タワー：“📢情報解禁!! ／ 機動戦士Gundam GQuuuuuuX ×  ...</blockquote>
+周边有2号没有魔女？
+

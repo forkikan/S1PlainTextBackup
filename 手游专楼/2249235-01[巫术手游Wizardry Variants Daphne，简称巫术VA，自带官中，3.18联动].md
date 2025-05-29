@@ -1387,3 +1387,11 @@ roll到13%攻和18攻就可以用+4-6攻击改掉防御，然后只强化第一�
 我的队伍前排三个任意物理菜刀，武器全是冥钢剑/短剑+15，攻击270-300，回避命中140-150，上完回避buff蝎子 ...</blockquote>
 要是不让用退出大法我只能带满镇静卸武器打防反了，感觉有点难度<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  macshi  
+##### 392#       发表于 2025-5-29 18:10
+
+退出大法还是能用，不过记分方式好像有点变动。整体速度慢了好多。重跑了一把现在7000分。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

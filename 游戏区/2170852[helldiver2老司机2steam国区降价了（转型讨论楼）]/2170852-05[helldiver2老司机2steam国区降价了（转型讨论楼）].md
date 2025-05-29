@@ -4145,3 +4145,15 @@ glory of mankind<img src="https://static.stage1st.com/image/smiley/face2017/025.
 
 其实已经100%了，但是进度条被MOSS锁住了。
 
+
+*****
+
+####  UNICORN00  
+##### 6320#       发表于 2025-5-29 18:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67863403&amp;ptid=2170852" target="_blank">zhwpjy 发表于 2025-5-29 17:46</a>
+守住了啊 箭头也没真吧上海拉到20侵略度 也没有空间站修好给你就加成一点   贴吧里面一堆骂瑞典的 他们不 ...</blockquote>
+额，玩家有啥剧本？
+
+—— 来自 Xiaomi 22041211AC, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

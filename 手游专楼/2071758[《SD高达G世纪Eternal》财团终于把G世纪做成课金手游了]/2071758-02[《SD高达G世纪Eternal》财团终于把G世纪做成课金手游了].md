@@ -2381,3 +2381,11 @@ gto扎古和酸浆果一起出？这俩也没关系啊
 
 同人物同时代做成不同衣服的就好了，例如骡子卡缪基拉这种再雇佣的sr里都已经有了
 
+
+*****
+
+####  arthes  
+##### 1692#       发表于 2025-5-29 18:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">氪佬加油 再登顶个十连助力我存钻等本命机卡池
+

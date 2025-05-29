@@ -424,3 +424,22 @@ Nikke角色“红莲”将作为BOSS出现在剑星中，击败她后可以获�
 
 你们就不怕国区cdkey只给企鹅服用
 
+
+*****
+
+####  Andariel  
+##### 2056#       发表于 2025-5-29 18:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只给企鹅用那就卖给国服玩家再买一个外服key就好了，很简单
+
+*****
+
+####  水边井  
+##### 2057#       发表于 2025-5-29 18:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67863332&amp;ptid=1978008" target="_blank">heseran 发表于 2025-5-29 17:28</a>
+解锁了找你</blockquote>
+好，到时我私信你闲鱼<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NOH-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
