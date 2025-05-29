@@ -4595,3 +4595,72 @@ steam差评又刷起来了，难评。虽然箭头过去劣迹斑斑，这次剧
 硬要把超级上海的战功分给荣都
 <img src="https://p.sda1.dev/24/54f9e924a7a94e942bc3e705f59aca96/1000031892.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Adrenaline!!!  
+##### 6362#       发表于 2025-5-29 22:58
+
+【【熟肉】【绝地潜兵2】玩家真的能影响星球解放吗？-哔哩哔哩】 https://b23.tv/phkk7j2
+
+不要打架<img src="https://static.stage1st.com/image/smiley/face2017/183.png" referrerpolicy="no-referrer">，对箭头有足够认知后免疫情报部的虚假宣传，因为不存在的东西使身体或精神陷入内耗就不好了，打完个人指令随他去吧。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  FLZB  
+##### 6363#       发表于 2025-5-29 22:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67864488&amp;ptid=2170852" target="_blank">白昼梦DD 发表于 2025-5-29 22:47</a>
+
+是啊，为什么打都打完了还要让所有人等着看箭头撸完射出来才能宣布游戏结束呢 ...</blockquote>
+因为这次是特殊入侵事件，从一开始入侵寡妇港就亮血条了，也说了胜利条件是要把光能兵力打光，无论从逻辑还是机制设计的合理性来看都不会指望把防守进度打满就直接结束战斗
+
+*****
+
+####  三谷歩夢  
+##### 6364#       发表于 2025-5-29 23:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67864499&amp;ptid=2170852" target="_blank">nekkihs2 发表于 2025-5-29 22:53</a>
+
+箭批们急了，让老中别不识抬举</blockquote>
+上面那个也不是官方人员
+
+*****
+
+####  qxs  
+##### 6365#       发表于 2025-5-29 23:01
+
+<blockquote>FLZB 发表于 2025-5-29 22:38
+问题on sea已经守住了啊，不懂还想要什么。这次从头到尾on sea是占了两次便宜大回血最终坚守下来的，按道 ...</blockquote>
+守住了不给100％进度？贱头不认100％所谓守住又从何说起，无非是被逼下跪捏着鼻子把抵抗度和入侵度从后台调了调
+
+*****
+
+####  qxs  
+##### 6366#       发表于 2025-5-29 23:01
+
+<blockquote>FLZB 发表于 2025-5-29 22:58
+因为这次是特殊入侵事件，从一开始入侵寡妇港就亮血条了，也说了胜利条件是要把光能兵力打光，无论从逻辑 ...</blockquote>
+那怎么强制不给100％？
+
+*****
+
+####  风萧飒  
+##### 6367#       发表于 2025-5-29 23:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67864499&amp;ptid=2170852" target="_blank">nekkihs2 发表于 2025-5-29 22:53</a>
+箭批们急了，让老中别不识抬举</blockquote>
+那啥，这一个不是官方人员，另外一个也不是官推
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  IWS2000  
+##### 6368#       发表于 2025-5-29 23:05
+
+再怎么地动山摇，我还是在打虫子，就自由升级和绑定psn打了差评
+
