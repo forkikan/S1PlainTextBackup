@@ -4836,3 +4836,28 @@ kirakira指nt我最早觉得是nt看宇宙里群星发光的闪亮kirakira
 
 山下是唯一一個想反抗的
 
+
+*****
+
+####  llysander  
+##### 16712#       发表于 2025-5-29 15:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67860962&amp;ptid=2209276" target="_blank">巨馍蘸酱 发表于 2025-5-29 00:04</a>
+
+卡罗德当年也是一见蒂法误终生，纯为了泡妹开高达的主角也是仅此一例，最终传为一段佳话。我看牢修感觉跟蒂 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer"> 高达观众看不上简单粗暴下半身荷尔蒙动机自古以来
+
+香格里拉垃圾屋和卡罗德性格最接近的主角，但驱动朱德的是用今天的话来说伐木累价值观，就从来没见说这主角有什么大毛病的
+
+
+*****
+
+####  hahah  
+##### 16713#       发表于 2025-5-29 16:03
+
+<blockquote>吴怀在 发表于 2025-5-29 11:26
+说不定变成了和修斯一起看海
+
+或者，三个人一起看海</blockquote>
+巨人如果结束在看海，满分10分你能打几分?
+

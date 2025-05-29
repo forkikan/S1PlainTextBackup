@@ -3483,3 +3483,72 @@ dss昨晚火线救场拉回一波风评要是没几天就被光能干沉了估�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Jabeck  
+##### 6251#       发表于 2025-5-29 15:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67862923&amp;ptid=2170852" target="_blank">Waldeinsamkeit 发表于 2025-5-29 15:51</a>
+
+我在隔壁看到的，上海纽约有胜利/沦陷图，斯德哥尔摩只有胜利图，其他城市图都没有
+
+—— 来自 S1Fun ...</blockquote>
+据说是AI做的，不可信。
+
+*****
+
+####  风萧飒  
+##### 6252#       发表于 2025-5-29 15:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67862923&amp;ptid=2170852" target="_blank">Waldeinsamkeit 发表于 2025-5-29 15:51</a>
+我在隔壁看到的，上海纽约有胜利/沦陷图，斯德哥尔摩只有胜利图，其他城市图都没有
+
+—— 来自 S1Fun ...</blockquote>
+那是ai图，解包箭头只做了地球沦陷和胜利两个结局
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Adrenaline!!!  
+##### 6253#       发表于 2025-5-29 16:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67862923&amp;ptid=2170852" target="_blank">Waldeinsamkeit 发表于 2025-5-29 15:51</a>
+我在隔壁看到的，上海纽约有胜利/沦陷图，斯德哥尔摩只有胜利图，其他城市图都没有
+
+—— 来自 S1Fun ...</blockquote>
+超级地球只有超石公园和民主长城，没有自由女神像和东方明珠。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  madcow  
+##### 6254#       发表于 2025-5-29 16:03
+
+不会等魔都100%了发公告说荣都已经是鱿鱼窝了吧，就丫没被打很不对劲啊（
+
+*****
+
+####  qratosones1337  
+##### 6255#       发表于 2025-5-29 16:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67862923&amp;ptid=2170852" target="_blank">Waldeinsamkeit 发表于 2025-5-29 15:51</a>
+
+我在隔壁看到的，上海纽约有胜利/沦陷图，斯德哥尔摩只有胜利图，其他城市图都没有
+
+—— 来自 S1Fun ...</blockquote>
+斯德哥尔摩如果失败的话那超级地球就战败了，也就不需要沦陷图了
+
+*****
+
+####  qratosones1337  
+##### 6256#       发表于 2025-5-29 16:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67862966&amp;ptid=2170852" target="_blank">madcow 发表于 2025-5-29 16:03</a>
+
+不会等魔都100%了发公告说荣都已经是鱿鱼窝了吧，就丫没被打很不对劲啊（</blockquote>
+没准真是超级地球上层有叛徒，要各地潜兵上京肃清民主之敌呢
+
