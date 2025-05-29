@@ -3682,3 +3682,65 @@ dss昨晚火线救场拉回一波风评要是没几天就被光能干沉了估�
 
 刚刚看荣城只有零点几<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  内拉祖里  
+##### 6270#       发表于 2025-5-29 16:29
+
+99.9783锁血是没想到的
+
+*****
+
+####  chris1987  
+##### 6271#       发表于 2025-5-29 16:29
+
+这游戏现在入坑应该是什么姿势？ps玩家可以随便组野队吗？
+
+
+*****
+
+####  zeush  
+##### 6272#       发表于 2025-5-29 16:30
+
+卡住了 99.9783
+
+*****
+
+####  风萧飒  
+##### 6273#       发表于 2025-5-29 16:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67863092&amp;ptid=2170852" target="_blank">chris1987 发表于 2025-5-29 16:29</a>
+这游戏现在入坑应该是什么姿势？ps玩家可以随便组野队吗？</blockquote>
+可以跨平台匹配的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  琴酒  
+##### 6274#       发表于 2025-5-29 16:30
+
+99.9783 卡了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zzy516232108  
+##### 6275#       发表于 2025-5-29 16:35
+
+是不是锁血了
+
+而且我看了眼，抵抗度在十几分钟内从2.2掉到1.0
+
+*****
+
+####  内拉祖里  
+##### 6276#       发表于 2025-5-29 16:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67863092&amp;ptid=2170852" target="_blank">chris1987 发表于 2025-5-29 16:29</a>
+
+这游戏现在入坑应该是什么姿势？ps玩家可以随便组野队吗？</blockquote>
+入毛，说不定箭头就要去陪屈原过节了
+
+这次太恶心了直接锁血。
+
