@@ -4664,3 +4664,25 @@ steam差评又刷起来了，难评。虽然箭头过去劣迹斑斑，这次剧
 
 再怎么地动山摇，我还是在打虫子，就自由升级和绑定psn打了差评
 
+
+*****
+
+####  ddy2811  
+##### 6369#       发表于 2025-5-29 23:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67864463&amp;ptid=2170852" target="_blank">FLZB 发表于 2025-5-29 22:38</a>
+
+问题on sea已经守住了啊，不懂还想要什么。这次从头到尾on sea是占了两次便宜大回血最终坚守下来的，按道 ...</blockquote>
+所以为什么要满足箭头的自嗨啊？就这些天前方浴血奋战后方不动如山的战况，多少人一肚子的火呢
+
+
+*****
+
+####  FLZB  
+##### 6370#       发表于 2025-5-29 23:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67864515&amp;ptid=2170852" target="_blank">qxs 发表于 2025-5-29 23:01</a>
+
+守住了不给100％进度？贱头不认100％所谓守住又从何说起，无非是被逼下跪捏着鼻子把抵抗度和入侵度从后台 ...</blockquote>
+守住是指全球玩家一起把on sea从死亡线上拖了回来并且按目前的进度基本确定能存活到最后。100%没有任何意义，因为光能血条掉光之前进攻不会停止，无非也只是进度卡在100%直到开荣都兵力转移为止
+
