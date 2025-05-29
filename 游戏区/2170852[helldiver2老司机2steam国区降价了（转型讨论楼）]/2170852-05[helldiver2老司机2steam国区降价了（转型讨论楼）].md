@@ -3344,3 +3344,61 @@ PVE游戏开挂本身也不影响其它人的体验吧
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  jy000129  
+##### 6238#       发表于 2025-5-29 14:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67862689&amp;ptid=2170852" target="_blank">faithlifer 发表于 2025-5-29 14:35</a>
+刚买游戏 萌新可以蹭上末班车吗，晚上回去才能下载</blockquote>
+光能兵力还要几天才能耗光，上海不一定赶得及，其他城市应该还有几天打
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| faithlifer| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  ykyin09  
+##### 6239#       发表于 2025-5-29 14:55
+
+已经94了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">箭头什么时候开荣都
+
+*****
+
+####  Sevenzerofive  
+##### 6240#       发表于 2025-5-29 14:56
+
+总感觉以箭头的尿性，最后还是会搞失守这操作<img src="https://static.stage1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  赤井稻妻  
+##### 6241#       发表于 2025-5-29 15:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67862689&amp;ptid=2170852" target="_blank">faithlifer 发表于 2025-5-29 14:35</a>
+
+刚买游戏 萌新可以蹭上末班车吗，晚上回去才能下载</blockquote>
+不用非得打超级地球的城市图，这几张城市图其实资源特别特别少，打半天没啥收益，光能者也不好玩，建议直接西线打虫子
+
+*****
+
+####  Fake_news  
+##### 6242#       发表于 2025-5-29 15:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67862764&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2025-5-29 15:03</a>
+不用非得打超级地球的城市图，这几张城市图其实资源特别特别少，打半天没啥收益，光能者也不好玩，建议直 ...</blockquote>
+东线虫子，西线机器人<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
