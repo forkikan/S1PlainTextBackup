@@ -5004,10 +5004,10 @@
     "update": false
   },
   "2123779": {
-    "totalreply": 62168,
+    "totalreply": 62169,
     "title": "[2023.04 新作TV动画『机动战士高达 水星的魔女』③号专楼]",
     "newtitle": "[2023.04 新作TV动画『机动战士高达 水星的魔女』③号专楼]",
-    "lastedit": 1748505979,
+    "lastedit": 1748567167,
     "category": "漫区",
     "active": true,
     "update": false
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 14991,
+    "totalreply": 14992,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》5.22 夏日周年庆]",
-    "lastedit": 1748565495,
+    "lastedit": 1748566808,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -6921,10 +6921,10 @@
     "update": false
   },
   "2163117": {
-    "totalreply": 10116,
+    "totalreply": 10117,
     "title": "[NIKKE胜利女神，你喜欢射击嘛？2号楼！]",
     "newtitle": "[NIKKE胜利女神，你喜欢射击嘛？2号楼！]",
-    "lastedit": 1748529851,
+    "lastedit": 1748567054,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -7524,10 +7524,10 @@
     "update": false
   },
   "2170852": {
-    "totalreply": 6396,
+    "totalreply": 6397,
     "title": "[helldiver2老司机2steam国区降价了（转型讨论楼）]",
     "newtitle": "[helldiver2老司机2steam国区降价了（转型讨论楼）]",
-    "lastedit": 1748566689,
+    "lastedit": 1748567290,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 167952,
+    "totalreply": 167955,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1748566448,
+    "lastedit": 1748567053,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -11327,7 +11327,7 @@
     "newtitle": "[魔神英雄传 新系列TV动画『魔神创造伝ワタル』制作决定]",
     "lastedit": 1748307967,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2251034": {
@@ -12003,15 +12003,6 @@
     "lastedit": 1748334254,
     "category": "漫区",
     "active": true,
-    "update": false
-  },
-  "2252014": {
-    "totalreply": 165,
-    "title": "[卡普空财报：steam玩家比主机多30%，但消费力仅有其53.3%]",
-    "newtitle": "[卡普空财报：steam玩家比主机多30%，但消费力仅有其53.3%]",
-    "lastedit": 1747357091,
-    "category": "游戏区",
-    "active": false,
     "update": false
   },
   "2252003": {
@@ -13104,10 +13095,10 @@
     "update": false
   },
   "2252573": {
-    "totalreply": 80,
+    "totalreply": 82,
     "title": "[有ns1还没买ns2坛友，要什么游戏出了才买]",
     "newtitle": "[有ns1还没买ns2坛友，要什么游戏出了才买]",
-    "lastedit": 1748566095,
+    "lastedit": 1748567288,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13140,19 +13131,19 @@
     "update": false
   },
   "2252589": {
-    "totalreply": 96,
+    "totalreply": 99,
     "title": "[没人聊上海保卫战么]",
     "newtitle": "[没人聊上海保卫战么]",
-    "lastedit": 1748566447,
+    "lastedit": 1748567290,
     "category": "游戏区",
     "active": true,
     "update": false
   },
   "2252574": {
-    "totalreply": 54,
+    "totalreply": 55,
     "title": "[关于德国作画巨魔与二次元湿婆的一些事]",
     "newtitle": "[关于德国作画巨魔与二次元湿婆的一些事]",
-    "lastedit": 1748561528,
+    "lastedit": 1748567168,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13172,6 +13163,15 @@
     "newtitle": "[你推的孩子你认为+你支持的CP投票]",
     "lastedit": 1748548571,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2252500": {
+    "totalreply": 41,
+    "title": "[dq1+2hd2d重制版10月30日登录全平台]",
+    "newtitle": "[dq1+2hd2d重制版10月30日登录全平台]",
+    "lastedit": 1748567054,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
