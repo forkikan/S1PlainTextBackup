@@ -7078,3 +7078,11 @@ X 上的 きさらぎじゅん＠YZF-R6：“何かを手に入れるために�
 
 当然如果和精神病滋水枪一样看剧情需要就另当别论了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adretyu67.  
+##### 16868#       发表于 2025-5-31 01:16
+
+精神病已经爆甲了，高达系列什么时候张嘴开啃别的机体。
+
