@@ -4934,3 +4934,13 @@ PS5昨晚还能匹配到人，今天完全匹配不到任何人，固定队友�
 
 等补丁再玩咯，现在单人玩负反馈非常大，复活药1万一个还占格子<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ParadiseMartyr  
+##### 518#       发表于 2025-5-31 02:44
+
+纠结半天，还是爬起来买了。不是喜欢这作，单纯是想吃屎了。最近实在没啥感兴趣的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
