@@ -2647,3 +2647,13 @@ snapshsnapot.jpg
 
 游戏里商店能对上就行了，然后电脑上开梯子登网页，我日服国际服都有
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 1716#       发表于 2025-5-30 14:32
+
+您所登录注册的所在国家/地区信息无法正常登录此服务
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">挂了全局
+
