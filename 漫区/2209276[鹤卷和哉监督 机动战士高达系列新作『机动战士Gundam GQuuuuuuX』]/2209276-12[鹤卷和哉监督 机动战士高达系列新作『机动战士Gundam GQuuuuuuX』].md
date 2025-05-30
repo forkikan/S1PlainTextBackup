@@ -5829,3 +5829,15 @@ GQ的编剧肯定看了雷霆宙域而且看到了很后面，雷霆宙域里AE�
 鹤卷：这部分还包含了稍有不同的主题性思考。修司驾驶的那台红色高达是否真实？所谓NewType及其能力是否真 ...</blockquote>
 这个就要看修司是怎么得到红高达的了，这个世界线就是由于高达的异动引起的
 
+
+*****
+
+####  yamato gun  
+##### 16778#       发表于 2025-5-30 10:30
+
+所以说麻球宇宙厕妹就很发泥，厕妹在哪？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+厕妹除了在sns抱团发癫无病呻吟外哪来的麻球的意志和行动力
+
+倒是抱团黑屁取诨名有厕妹内味了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
