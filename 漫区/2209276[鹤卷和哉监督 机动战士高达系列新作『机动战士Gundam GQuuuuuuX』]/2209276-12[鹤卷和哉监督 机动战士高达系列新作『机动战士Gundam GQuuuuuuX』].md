@@ -6545,3 +6545,46 @@ kirakira中毒怎么治？答：用更猛的货。下集拉拉就上线啦<img s
 
 喵安說不定在side2逃難的時候就開過殺戒了
 
+
+*****
+
+####  Sabbah  
+##### 16840#       发表于 2025-5-30 17:59
+
+<img src="https://static.stage1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">喵安这种贫民窟孤儿摸爬滚打活命的角色出于自我保护干掉个袭击者真的需要去和文明区正常人玛秋一样考虑什么扣动扳机的觉悟吗。
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">何况我寻思后者在魔女那话看着别人殒命似乎也没考虑太多。
+
+
+*****
+
+####  llysander  
+##### 16841#       发表于 2025-5-30 18:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67867071&amp;ptid=2209276" target="_blank">look900822 发表于 2025-5-30 16:18</a>
+
+别的不说，就哈撒韦反补队友就已经没比洗嗨好到哪里去吧</blockquote>
+哈撒韦表现倒像“凡人”而不是nt，身边成吨的爆炸，人不停在死，然后你被纱布队友搞了，应激了
+
+
+*****
+
+####  猪突猛进R  
+##### 16842#       发表于 2025-5-30 18:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67867452&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-5-30 17:47</a>
+
+你看，开扎古就不会死，不开扎古用更高端机体的都死了。</blockquote>
+巴尼：俺寻思当年俺开的也是扎古鸭。
+
+*****
+
+####  无念  
+##### 16843#       发表于 2025-5-30 18:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67867439&amp;ptid=2209276" target="_blank">zzxzz1019 发表于 2025-5-30 17:45</a>
+没有吧，首席哥开鸡夸的时候说是他初阵来着，而且一年战争打都打完了，有什么地方给他刷战绩啊。首席哥包 ...</blockquote>
+主要是看他开强人这么溜...不过你说的也对，他基本没有太强的进攻性，甚至面对爬楼的精神病都不放黑枪，你看人家绿叔叔直接点手掌的
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

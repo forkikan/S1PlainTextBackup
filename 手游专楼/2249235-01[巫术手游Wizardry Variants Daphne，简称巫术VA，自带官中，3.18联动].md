@@ -1466,3 +1466,19 @@ roll到13%攻和18攻就可以用+4-6攻击改掉防御，然后只强化第一�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太菜了，能不搞这种竞速了吗
 
+
+*****
+
+####  toblkr  
+##### 400#       发表于 2025-5-30 17:59
+
+好了，不想刷装备了，开摆<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  琉歌  
+##### 401#       发表于 2025-5-30 18:02
+
+还好我就打了一层，回去推要塞三周目了，看这样子估计也修不好了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
