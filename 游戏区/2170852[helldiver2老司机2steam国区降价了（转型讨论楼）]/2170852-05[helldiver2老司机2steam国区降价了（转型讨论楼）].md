@@ -4858,3 +4858,20 @@ steam差评又刷起来了，难评。虽然箭头过去劣迹斑斑，这次剧
 
 已经结束了，进攻度大降两边都绿了，现在就等着耗光最后一点兵力
 
+
+*****
+
+####  xinfengj  
+##### 6388#       发表于 2025-5-30 07:57
+
+永远怀念超级地球总统，国防部长万寿无疆<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  风萧飒  
+##### 6389#       发表于 2025-5-30 08:00
+
+诶，总统你怎么似了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
