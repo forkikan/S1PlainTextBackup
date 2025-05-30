@@ -5364,3 +5364,32 @@ dss任务是从周二凌晨0点30分左右开始的
 
 突然更新几百兆，还以为被注入超级阴谋了，原来是修复补丁
 
+
+*****
+
+####  风萧飒  
+##### 6434#       发表于 2025-5-30 17:32
+
+遇到这种硬套现实背景的真是难绷。
+光能：我是印第安人吗？
+
+<img src="https://img.stage1st.com/forum/202505/30/173118nghswsn0l13nssgg.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250530_173037_gov_pianzong_androidnga_ArticleDetailActivity.png</strong> (236.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-30 17:31 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  kyonko15  
+##### 6435#       发表于 2025-5-30 17:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67867384&amp;ptid=2170852" target="_blank">风萧飒 发表于 2025-5-30 17:32</a>
+遇到这种硬套现实背景的真是难绷。
+光能：我是印第安人吗？</blockquote>
+光能族是中国人，被欧洲人偷了永乐大典
+
