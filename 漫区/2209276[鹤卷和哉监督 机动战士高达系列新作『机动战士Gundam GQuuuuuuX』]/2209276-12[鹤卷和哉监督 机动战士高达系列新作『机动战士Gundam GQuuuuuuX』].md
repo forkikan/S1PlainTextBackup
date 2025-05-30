@@ -6984,3 +6984,13 @@ X 上的 きさらぎじゅん＠YZF-R6：“何かを手に入れるために�
 还真是，厕妹不就是喜欢发癫攻击她们看不顺眼的人</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也就是你和楼上正在干的事对吗？ 宇宙厕妹果然是会互相吸引的啊 要不说远离毒品呢
 
+
+*****
+
+####  我聞如是  
+##### 16860#       发表于 2025-5-30 22:29
+
+<blockquote>蕾洁之风 发表于 2025-5-30 21:04
+草，意思能在地上踩出RX78的印子吗</blockquote>
+草 SD三國傳
+
