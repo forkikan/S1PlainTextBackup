@@ -4907,3 +4907,22 @@ PS5昨晚还能匹配到人，今天完全匹配不到任何人，固定队友�
 
 单人铁眼打了几个小时结果最接近过三狗的一次只有7级<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">，最顺利进三狗的那次分裂之后三狗无限连招直接死了<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">  感觉单人刷到自动刷剑阵就好打很多。比想象中的有趣那么一些
 
+
+*****
+
+####  jy000129  
+##### 515#       发表于 2025-5-31 02:09
+
+还好啊，野排第二局就过三头狗了，不知道那些主播怎么卡的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ParadiseMartyr  
+##### 516#       发表于 2025-5-31 02:10
+
+话说给法环本体移植暗夜君临这种操作官方应该会很快出手的吧…
+还想玩不限时直接打boss那样的。
+现在这游戏超快缩圈玩不了一点吧，死了还掉等级来的?
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
