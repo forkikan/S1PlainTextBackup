@@ -508,3 +508,11 @@ Nikke角色“红莲”将作为BOSS出现在剑星中，击败她后可以获�
 
 demo要是和ps5同款那我怎么觉得会有一波退款潮啊
 
+
+*****
+
+####  桥洞底下盖小被  
+##### 2065#       发表于 2025-5-30 11:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我当初也是被那demo劝退的
+

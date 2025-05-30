@@ -5895,3 +5895,28 @@ GQ的编剧肯定看了雷霆宙域而且看到了很后面，雷霆宙域里AE�
 
 —— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  psycho_Gadfly  
+##### 16785#       发表于 2025-5-30 11:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67865592&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-30 10:18</a>
+
+不觉得紫婆是正面形象，所以不认为她能和加斯巴尔boy幸终。
+
+之前我也请教过“堕”怎么解释，既然大多数人认 ...</blockquote>
+这就是我感觉微妙的点，紫婆到底是想塑造成什么形象？她和鸭子幸终那的确是最恶心人的结局了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+还有鸭子隐姓埋名假装帮忙研发，实际参与二号机制造的目的又是什么，在GQX里拉拉和他是不是认识。。都还挺想知道的（这次不要拉出来又闪退了啊鹤卷
+
+
+*****
+
+####  newise  
+##### 16786#       发表于 2025-5-30 11:12
+
+客官是您点的厕妹吗？
+
+喵安除了得到合法身份，有2号机可以**，有首席哥当护花使者(并不是)，还有不普通的紫婆老干妈，番茄可不可以说“是你偷了我的人生”？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -4215,3 +4215,14 @@ https://www.bilibili.com/opus/340900243003214204
 
 以撒自己埋头一个月说不定死寂和死妈见都没见过...
 
+
+*****
+
+####  汪达  
+##### 449#       发表于 2025-5-30 11:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67865771&amp;ptid=2210352" target="_blank">Geraltwang 发表于 2025-5-30 10:57</a>
+
+举个例子吧，我反正没听说过，最原教旨的肉鸽以撒打一个月见不到妈腿简直不可想象 ...</blockquote>
+妈腿对应的不应该是B三狼吗
+
