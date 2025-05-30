@@ -538,3 +538,52 @@ Spotlight Star Day 2 Setlist (於17:01(UTC+9)開演)：
 
 赛马娘也没国服配音的吧，引进游戏应该没这个要求。
 
+
+*****
+
+####  qqqwwwyyy  
+##### 7004#       发表于 2025-5-28 17:46
+
+国服的风声倒一直都有，但感觉国服没必要，反正开不开，万南凯子都会爆米的（
+
+*****
+
+####  cckuku  
+##### 7005#       发表于 2025-5-28 18:00
+
+开国服又找叔叔代理吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Unlight  
+##### 7006#         楼主| 发表于 2025-5-28 18:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67859663&amp;ptid=2130897" target="_blank">cckuku 发表于 2025-5-28 18:00</a>
+
+开国服又找叔叔代理吗？</blockquote>
+当初网易还是盛大来着，差点买了草菇烧笋<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过现在手游强制汉语配音，这咋玩啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  koodooliz  
+##### 7007#       发表于 2025-5-28 18:59
+
+赛马娘也没国服配音的吧，引进游戏应该没这个要求。
+
+*****
+
+####  Alicest  
+##### 7008#       发表于 2025-5-30 23:56
+
+啥子哦
+
+<img src="https://img.stage1st.com/forum/202505/30/235604xkjwzur3e3ees1we.jpg" referrerpolicy="no-referrer">
+
+<strong>PPE03UQNQHER{H`AQVFF{3D.jpg</strong> (27.52 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-30 23:56 上传
+

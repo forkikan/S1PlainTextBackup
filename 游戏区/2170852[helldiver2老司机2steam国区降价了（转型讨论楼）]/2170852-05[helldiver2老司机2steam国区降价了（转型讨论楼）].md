@@ -5810,3 +5810,15 @@ this is managed democracy
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  xinfengj  
+##### 6472#       发表于 2025-5-31 00:06
+
+ 本帖最后由 xinfengj 于 2025-5-31 00:07 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67868644&amp;ptid=2170852" target="_blank">qwased 发表于 2025-5-30 23:25</a>
+战报里面写的已经当选了啊</blockquote>
+那就是投票系统没做好<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+选总统那个事件有一个完整流程的
+
