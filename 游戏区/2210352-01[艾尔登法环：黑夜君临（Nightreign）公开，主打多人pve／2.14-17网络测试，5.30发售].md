@@ -4300,3 +4300,11 @@ https://www.bilibili.com/opus/340900243003214204
 
 感觉尤其体感第一天 缩圈特别快 ，第二天感觉还好
 
+
+*****
+
+####  卡拉德利姆  
+##### 456#       发表于 2025-5-30 11:39
+
+小弟：我只是把速通、联机mod、随机mod这几个大受欢迎的要素组合在一起罢了，我又能有什么错<img src="https://static.stage1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+

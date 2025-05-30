@@ -2544,3 +2544,23 @@ snapshsnapot.jpg
 
 <img src="https://static.stage1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">啊哈，偷鸡成功
 
+
+*****
+
+####  rockroxas  
+##### 1707#       发表于 2025-5-30 11:40
+
+新永恒出了，标签主角 劲敌
+
+我这劲敌要打永恒ex感觉有点抽象……母舰也是个问题
+
+<img src="https://img.stage1st.com/forum/202505/30/114024r48a2l5l9sy851s0.png" referrerpolicy="no-referrer">
+
+<strong>劲敌.png</strong> (398.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-30 11:40 上传
+
+78你这浓眉大眼的也是劲敌，一看原来是GTO的，这么说这次卡池的鸭子还是主角词条？
+
