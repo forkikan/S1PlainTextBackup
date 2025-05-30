@@ -6846,3 +6846,22 @@ kirakira中毒怎么治？答：用更猛的货。下集拉拉就上线啦<img s
 
 2025-5-30 19:01 上传
 
+
+*****
+
+####  mintslime  
+##### 16849#       发表于 2025-5-30 19:09
+
+想到机战时主世界的骡鸭锐评这个世界就好笑
+<img src="https://static.stage1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">：你觉得GQUX的世界怎样？
+<img src="https://static.stage1st.com/image/smiley/carton2017/022.png" referrerpolicy="no-referrer">：挺好的，我爹没傻也没死，我没上高达没当兵，在地球卖哈罗爽躺平，比主世界爽太多了
+<img src="https://static.stage1st.com/image/smiley/carton2017/022.png" referrerpolicy="no-referrer">，绝对不可能让扎比家统治宇宙了还被传和紫色老女人的黄谣，自己还在一边算计一边潜伏在吉翁当马仔吧？
+<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  seedees3  
+##### 16850#       发表于 2025-5-30 19:11
+
+话说魔女那集的搭档没死吧，只是推进背包过载炸了而已
+
