@@ -542,3 +542,16 @@ demo要是和ps5同款那我怎么觉得会有一波退款潮啊
 
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">初期pv脸是这个？感觉没现在的好看啊
 
+
+*****
+
+####  Elicasa  
+##### 2069#       发表于 2025-5-30 12:09
+
+<blockquote>引用第2067楼寂长无星夜于2025-05-30 11:36发表的  :
+
+初期pv脸是这个？感觉没现在的好看啊</blockquote>
+现在的齐刘海太丑了
+
+----发送自 [Sony XQ-AT72,Android 12](http://stage1.5j4m.com/?1.46)
+

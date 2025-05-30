@@ -6056,3 +6056,23 @@ GQ紫婆给我的感觉就是人没正史那么坏，但是似乎正在筹备比
 
 “能死在喜欢的人手上，也是一种幸运吧。加斯巴尔，你是我的……”（爆炸声）
 
+
+*****
+
+####  Sliurus  
+##### 16799#       发表于 2025-5-30 12:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67866112&amp;ptid=2209276" target="_blank">七七見奈波 发表于 2025-5-30 11:58</a>
+
+我有个问题，这么多集了，喵安笑过几次？来格拉纳达笑过吗？</blockquote>
+简单回想了一下，好像只在ed里笑过，平时都是苦瓜脸<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 16800#       发表于 2025-5-30 12:15
+
+<blockquote>Sliurus 发表于 2025-5-30 12:14
+简单回想了一下，好像只在ed里笑过，平时都是苦瓜脸</blockquote>
+Kirakira的时候不是笑的挺开心的，癫笑也是笑
+
