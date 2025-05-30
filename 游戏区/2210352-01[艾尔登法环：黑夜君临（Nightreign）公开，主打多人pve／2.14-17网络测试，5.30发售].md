@@ -4713,3 +4713,20 @@ solo熟悉了一下开图路线，玩了3小时一直死在第二天夜晚，1�
 
 明明知道老头环独狼玩家多，黑魂一直以来都是BOSS门口招一堆大哥进去正义群殴，为什么不肯给独狼玩家带2个NPC大哥玩呢
 
+
+*****
+
+####  xiaosayang  
+##### 494#       发表于 2025-5-30 23:06
+
+单日200w 万代计策大成功<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yyf1940  
+##### 495#       发表于 2025-5-30 23:09
+
+骂完记得买<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

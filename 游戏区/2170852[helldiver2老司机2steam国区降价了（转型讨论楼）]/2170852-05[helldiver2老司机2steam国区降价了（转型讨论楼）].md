@@ -5702,3 +5702,50 @@ this is managed democracy
 
 合砍81分<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风萧飒  
+##### 6463#       发表于 2025-5-30 23:06
+
+所以为什么新总统都演讲了我们还不知道是选选上了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202505/30/230537kso62y6sxvzb9600.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250530_230527_tv_danmaku_bili_ComposeActivity.jpg</strong> (818.77 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-30 23:05 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  plok201  
+##### 6464#       发表于 2025-5-30 23:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">早点开，再来点大手改数据都没那么小丑，现在真成那个躺赢的了
+
+*****
+
+####  qxs  
+##### 6465#       发表于 2025-5-30 23:08
+
+<img src="https://img.stage1st.com/forum/202505/30/230808y64w8u2zm7uu23w0.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>2bdfd5df0a2bf1baff2761ada654d1cf.jpeg</strong> (91.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-30 23:08 上传
+
+*****
+
+####  qwased  
+##### 6466#       发表于 2025-5-30 23:11
+
+啊？还以为是游戏内有选项可以选总统呢
+
+所以是发什么战备
+
