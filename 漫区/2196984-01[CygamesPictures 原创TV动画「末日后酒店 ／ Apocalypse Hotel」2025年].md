@@ -4977,3 +4977,11 @@ https://www.bilibili.com/video/BV1md7Gz5E4s
 【skirt】aiko亲自解说「末日后酒店」OP主题曲
 [https://www.bilibili.com/video/BV1oU7jzvEek/](https://www.bilibili.com/video/BV1oU7jzvEek/)
 
+
+*****
+
+####  爱吃冻鳗的猫  
+##### 435#       发表于 2025-5-30 19:55
+
+丢，竟然是装甲核心
+

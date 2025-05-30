@@ -5523,3 +5523,17 @@ dss任务是从周二凌晨0点30分左右开始的
 
 赶在超级地球解放前打了个50舰单通，一下午被飞鹰风暴tk了至少5次，这索敌逻辑真该改改了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ParadiseMartyr  
+##### 6449#       发表于 2025-5-30 20:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67867866&amp;ptid=2170852" target="_blank">风萧飒 发表于 2025-5-30 19:49</a>
+新人确实挺多的，很多人在奇怪奖章怎么还没发了
+
+—— 来自 S1Fun</blockquote>
+所以为什么没发
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
