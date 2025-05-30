@@ -5613,3 +5613,27 @@ dss任务是从周二凌晨0点30分左右开始的
 
 2025-5-30 20:47 上传
 
+
+*****
+
+####  outerish  
+##### 6455#       发表于 2025-5-30 20:53
+
+荣都躺赢狗
+
+DSS 13-0 carry局
+
+
+*****
+
+####  zero33333  
+##### 6456#       发表于 2025-5-30 21:02
+
+<img src="https://img.stage1st.com/forum/202505/30/210210lhoh9mhios9hthzw.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250530210207.jpg</strong> (94.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-30 21:02 上传
+
