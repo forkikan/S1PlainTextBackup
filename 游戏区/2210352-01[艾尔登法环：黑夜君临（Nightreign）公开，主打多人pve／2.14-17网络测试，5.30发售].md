@@ -4471,3 +4471,14 @@ PS5版 到睡前只成功攻略了顺序的前两只 当时玩家不多 第二�
 疯狗b三狼的场上躺了2个对剩下一个压力太大了 ...</blockquote>
 如果这样不就陷入BUG了吗？怪把你打死，（然后队友把怪往你尸体拉）怪再把你打活？
 
+
+*****
+
+####  xiaosayang  
+##### 470#       发表于 2025-5-30 15:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67866675&amp;ptid=2210352" target="_blank">hirro 发表于 2025-5-30 14:54</a>
+
+如果这样不就陷入BUG了吗？怪把你打死，（然后队友把怪往你尸体拉）怪再把你打活？ ...</blockquote>
+当时看到觉得还算一个比较有意思的机制的，难道是我记错了 现在纯靠队友救对重武器太不友好
+
