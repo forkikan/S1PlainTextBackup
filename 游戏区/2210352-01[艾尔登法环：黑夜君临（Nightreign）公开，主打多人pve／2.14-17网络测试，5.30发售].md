@@ -4561,3 +4561,33 @@ PS5版 到睡前只成功攻略了顺序的前两只 当时玩家不多 第二�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Bieaeml  
+##### 478#       发表于 2025-5-30 16:11
+
+ 本帖最后由 Bieaeml 于 2025-5-30 16:15 编辑 
+
+看了看拼好魂的关底夜王，演出一如既往还行（一阶段的夜晚沙漠老头三元素直接梦回盖尔），甚至比米塔恩好，但是魂游做个共斗缩圈就很怪，所以压根就没买直接看人受苦了（玩了隔壁亚瑟王老滚）<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  u2deack  
+##### 479#       发表于 2025-5-30 16:14
+
+这明显赚麻了啊都知道这是压榨ip价值的边角料还这么多人付钱，差评也影响不到下一个正作
+当然ns2那个就不好说了
+
+*****
+
+####  captoon  
+##### 480#       发表于 2025-5-30 16:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67866974&amp;ptid=2210352" target="_blank">serj005 发表于 2025-5-30 15:59</a>
+
+那这流程比缩圈还要固定了。
+
+本来缩圈就是看玩家规划能力的一环，你规划能力越强拿到资源越多，玩家自身 ...</blockquote>
+现在缩圈也固定啊，但时刻保持着高速状态，其实挺吃力的
+
