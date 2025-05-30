@@ -6167,3 +6167,23 @@ a part开始不播op，直接从麻球被小森放出来开始播，然后夏利
 
 黑富野变成白富野最重要的标志就是从杀爹杀妈变成与爹妈和解
 
+
+*****
+
+####  大十字紅朔  
+##### 16808#       发表于 2025-5-30 13:28
+
+ほんもの又不是一个褒义词
+
+石川由依就那么随口一说，怎么都在做逐字解读了……<img src="https://static.stage1st.com/image/smiley/carton2017/438.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Steel.Haze  
+##### 16809#       发表于 2025-5-30 13:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67866398&amp;ptid=2209276" target="_blank">玖羽 发表于 2025-5-30 13:22</a>
+
+你想多了，黑富野塑造主角最根本的推动力是：爹不像爹，妈不像妈，主角的回应则是杀爹杀妈，“把力量转化 ...</blockquote>
+是的，不过这只是他怨念的一部分，他喜欢把个人怨念和政治及社会思考杂糅在一起，非常性格使然。
+

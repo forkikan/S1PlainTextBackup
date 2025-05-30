@@ -518,3 +518,11 @@ ace变化差不多吧，被大伙从头到尾吐槽小学生bba的，倒是felic
 
 —— 来自 HUAWEI JER-AN20, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
 
+
+*****
+
+####  bilibilius  
+##### 922#       发表于 2025-5-30 13:29
+
+大人的面孔体型配上洗衣板，对比有点强烈
+
