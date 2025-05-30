@@ -4926,3 +4926,11 @@ PS5昨晚还能匹配到人，今天完全匹配不到任何人，固定队友�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  RUANHYC  
+##### 517#       发表于 2025-5-31 02:36
+
+等补丁再玩咯，现在单人玩负反馈非常大，复活药1万一个还占格子<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
