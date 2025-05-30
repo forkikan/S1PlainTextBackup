@@ -5284,3 +5284,13 @@ dss任务是从周二凌晨0点30分左右开始的
 
 确实不知天高地厚的小白变多了，十几级来打N10，等飞机撤离的时候往台下扔380
 
+
+*****
+
+####  WGTCorp  
+##### 6425#       发表于 2025-5-30 16:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67866796&amp;ptid=2170852" target="_blank">Vora 发表于 2025-5-30 15:22</a>
+确实不知天高地厚的小白变多了，十几级来打N10，等飞机撤离的时候往台下扔380 ...</blockquote>
+十几级打难10，肯定是车队带进去的。
+
