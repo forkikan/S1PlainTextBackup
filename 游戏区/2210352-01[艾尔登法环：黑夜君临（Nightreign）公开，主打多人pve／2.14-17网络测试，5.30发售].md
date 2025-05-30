@@ -4115,3 +4115,42 @@ https://www.bilibili.com/opus/340900243003214204
 你玩过肉鸽吗？玩点lite或者开无限命闹麻了 带点元素倒反天罡定义肉鸽？</blockquote>
 笑了  你来说说什么肉鸽 大部分死一个月连boss都见不到的 给大家开开眼
 
+
+*****
+
+####  Headless  
+##### 438#       发表于 2025-5-30 10:19
+
+那么烂么？血源的肉鸽不是评价还可以的么
+
+—— 来自 vivo V2243A, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  laputah  
+##### 439#       发表于 2025-5-30 10:19
+
+<blockquote>alucardcz 发表于 2025-5-30 10:15
+笑了  你来说说什么肉鸽 大部分死一个月连boss都见不到的 给大家开开眼</blockquote>
+你会中文吗？
+
+*****
+
+####  Lisylfn  
+##### 440#       发表于 2025-5-30 10:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67865339&amp;ptid=2210352" target="_blank">Geraltwang 发表于 2025-5-30 09:29</a>
+
+你一个肉鸽死一个月见不到最终BOSS得被骂上天</blockquote>
+原教旨主义rogue
+
+
+*****
+
+####  leafS  
+##### 441#       发表于 2025-5-30 10:25
+
+我自己玩测试以及昨天看球魂直播的感觉，还是觉得每次缩圈的时间还是太紧了，导致整个流程都在很紧绷的时间里度过，错过一次精英的奖励感觉就巨亏，爽感太少了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
