@@ -6953,3 +6953,14 @@ cloverreset.png
 X 上的 きさらぎじゅん＠YZF-R6：“何かを手に入れるために、何かを諦めなきゃいけないなんて、そんなの理 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下集拉拉是拉拉.雷是吧，这画的
 
+
+*****
+
+####  蕾洁之风  
+##### 16857#       发表于 2025-5-30 21:04
+
+ 本帖最后由 蕾洁之风 于 2025-5-30 21:06 编辑 
+
+草，意思能在地上踩出RX78的印子吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/eaec07e8d47e0808b5673f6a99b5270d/image.jpg" referrerpolicy="no-referrer">
+
