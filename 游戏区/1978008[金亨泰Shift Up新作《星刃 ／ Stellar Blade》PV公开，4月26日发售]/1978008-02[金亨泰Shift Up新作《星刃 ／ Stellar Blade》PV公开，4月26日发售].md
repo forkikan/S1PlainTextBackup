@@ -620,3 +620,13 @@ demo要是和ps5同款那我怎么觉得会有一波退款潮啊
 
 demo能下了
 
+
+*****
+
+####  11116等  
+##### 2077#       发表于 2025-5-31 02:17
+
+优化还可以
+
+—— 来自 OPPO PKB110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
