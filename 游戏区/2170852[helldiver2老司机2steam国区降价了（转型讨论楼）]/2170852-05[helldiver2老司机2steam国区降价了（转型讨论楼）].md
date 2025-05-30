@@ -4888,3 +4888,24 @@ steam差评又刷起来了，难评。虽然箭头过去劣迹斑斑，这次剧
 
 箭头的叙事跟鱿鱼那些能在天上飞的东西一样蛆，我看真正的幕后猪脑怕不是蒋委员长或者赵构<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风萧飒  
+##### 6391#       发表于 2025-5-30 08:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67865156&amp;ptid=2170852" target="_blank">ronac 发表于 2025-5-30 08:16</a>
+我怀疑总统在超级地球也就是个宣传部长的定位，真要是重要职务还能拿个小手枪当bunker boy？
+
+箭头的叙事 ...</blockquote>
+总统是有权利的，很早前有三个总统候选人的解包，不同候选人有不同执政理念，估计对应不同的buff
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  outerish  
+##### 6392#       发表于 2025-5-30 08:23
+
+话说打了那么多守城，没有见过白天的，是特定时段玩才会遇到吗？
+

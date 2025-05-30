@@ -3982,3 +3982,13 @@ https://www.bilibili.com/opus/340900243003214204
 
 这个时间点单一个steam就有31W峰值，小高数钱笑开了花<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ohi.02  
+##### 424#       发表于 2025-5-30 08:20
+
+这个游戏可以双排再匹配一个野人吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
