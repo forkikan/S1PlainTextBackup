@@ -4040,3 +4040,25 @@ https://www.bilibili.com/opus/340900243003214204
 
 本来想着PS平台作弊的少就买了PS5的，结果不能跨平台好友组队都组不起来，这就有点牢了
 
+
+*****
+
+####  alucardcz  
+##### 430#       发表于 2025-5-30 09:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67865063&amp;ptid=2210352" target="_blank">laputah 发表于 2025-5-30 07:19</a>
+
+肉鸽本来就是死一个月可能连最终boss都没见到的类型...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">你玩过肉鸽吗 哪个肉鸽死一个月还能见不到boss? 故意的不算
+
+
+*****
+
+####  wthall  
+##### 431#       发表于 2025-5-30 09:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67865063&amp;ptid=2210352" target="_blank">laputah 发表于 2025-5-30 07:19</a>
+
+肉鸽本来就是死一个月可能连最终boss都没见到的类型...</blockquote>
+一个肉鸽肉鸽头10个小时见不到最终boss就说明这破游戏设计有问题
+

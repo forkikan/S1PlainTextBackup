@@ -5077,3 +5077,26 @@ DSS任务一直都有2万多人在做，我自己没打，但是那几天我朋�
 2亿机器人，平均20000+人在打，一人每小时杀400个一天就打下来了。本身不算离谱。何况还有多人游戏时打一 ...</blockquote>
 多人加倍结算的bug已经修复了吧，不过现在有了新的大本营战报雷，可以多倍计算击杀数，如果当时有人发现这个bug然后不停刷歼灭战和防守战的话效率会更高
 
+
+*****
+
+####  赤井稻妻  
+##### 6407#       发表于 2025-5-30 09:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67865390&amp;ptid=2170852" target="_blank">xinfengj 发表于 2025-5-30 09:41</a>
+
+防御战结束，然后开始超级地球选总统，医疗托拉斯候选人给治疗背包，军火大亨给机甲，商业大亨给导弹发射 ...</blockquote>
+超级地球又要分裂了
+
+
+*****
+
+####  风萧飒  
+##### 6408#       发表于 2025-5-30 09:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67865390&amp;ptid=2170852" target="_blank">xinfengj 发表于 2025-5-30 09:41</a>
+防御战结束，然后开始超级地球选总统，医疗托拉斯候选人给治疗背包，军火大亨给机甲，商业大亨给导弹发射 ...</blockquote>
+医疗包pass，这代针太好用了，轮不到这包上场
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
