@@ -12650,3 +12650,22 @@ WADA 同情禁止！
 
 <img src="https://static.stage1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">又怎么了
 
+
+*****
+
+####  TiHaru  
+##### 18605#       发表于 2025-5-30 17:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67867050&amp;ptid=2018830" target="_blank">术士q 发表于 2025-5-30 16:14</a>
+幸せにしてね、幸せにするよ。</blockquote>
+这个是好久前改的了
+
+プロフィール那个第一个丨前面原来应该是还有东西的，现在删掉了
+
+*****
+
+####  TiHaru  
+##### 18606#       发表于 2025-5-30 17:21
+
+下午问vspo键盘的推也删掉了
+

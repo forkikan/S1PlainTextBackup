@@ -6471,3 +6471,32 @@ kirakira中毒怎么治？答：用更猛的货。下集拉拉就上线啦<img s
 
 第八集之后西红柿的罪名又多了一条非法入境，奖池仍在累计
 
+
+*****
+
+####  psycho_Gadfly  
+##### 16834#       发表于 2025-5-30 17:21
+
+<blockquote>ryanghj 发表于 2025-5-30 16:55
+下一帧还能看到喵安微微脸红的表情
+
+是不是又感受到了第五集那种爽感了
+</blockquote>
+这里杀人只是纯自卫而已吧
+
+与之对比的是首席哥拿个枪手都在抖……这就是胜似ot的nt吗(这人普通得有点不对劲了都
+
+
+*****
+
+####  无念  
+##### 16835#       发表于 2025-5-30 17:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67867338&amp;ptid=2209276" target="_blank">psycho_Gadfly 发表于 2025-5-30 17:21</a>
+这里杀人只是纯自卫而已吧
+
+与之对比的是首席哥拿个枪手都在抖……这就是胜似ot的nt吗(这人普通得有点不对 ...</blockquote>
+首席是学院派的军人吧，估计开ms有战绩，但是亲手开枪杀个人还没有
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
