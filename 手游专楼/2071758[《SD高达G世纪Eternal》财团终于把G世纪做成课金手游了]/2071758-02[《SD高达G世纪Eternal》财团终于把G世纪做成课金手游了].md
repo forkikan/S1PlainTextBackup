@@ -2657,3 +2657,17 @@ snapshsnapot.jpg
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">挂了全局
 
+
+*****
+
+####  格雷殿下  
+##### 1717#       发表于 2025-5-30 15:00
+
+撒意思，只要游戏是美区的，代孙账号是美区的，再用美区的提子就行了吗
+
+领取的时候不需要开游戏的吗
+
+难不成我的代孙账号地区选错了吗，
+
+有空我再搞搞
+

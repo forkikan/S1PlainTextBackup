@@ -1442,3 +1442,11 @@ roll到13%攻和18攻就可以用+4-6攻击改掉防御，然后只强化第一�
 草，昨天还没有，现在总榜和每个区间第一都是他XD</blockquote>
 这个人估计不是利用bug了，是开挂了
 
+
+*****
+
+####  macshi  
+##### 397#       发表于 2025-5-30 15:03
+
+日本程序员无力对抗挂哥，大变申+补偿再度放送。直接把榜单显示都给ban了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
