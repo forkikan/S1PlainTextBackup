@@ -4899,3 +4899,11 @@ PS5昨晚还能匹配到人，今天完全匹配不到任何人，固定队友�
 还以为 ...</blockquote>
 好快，solo过的吗？夜之王打起来咋样？之前看泄露视频感觉有点太滥用冲击力了，虽然大概率是因为原本考虑三人从而面多了加水水多了加面
 
+
+*****
+
+####  darkfall  
+##### 514#       发表于 2025-5-31 02:05
+
+单人铁眼打了几个小时结果最接近过三狗的一次只有7级<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">，最顺利进三狗的那次分裂之后三狗无限连招直接死了<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">  感觉单人刷到自动刷剑阵就好打很多。比想象中的有趣那么一些
+
