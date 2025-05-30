@@ -555,3 +555,15 @@ demo要是和ps5同款那我怎么觉得会有一波退款潮啊
 
 ----发送自 [Sony XQ-AT72,Android 12](http://stage1.5j4m.com/?1.46)
 
+
+*****
+
+####  十六夜pad长  
+##### 2070#       发表于 2025-5-30 12:44
+
+不可能换的，我感觉金亨泰对现在这张脸和齐刘海发型是有点执念在的。
+
+也可能是是她老婆指定的，也可能是他的白月光<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PHB110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

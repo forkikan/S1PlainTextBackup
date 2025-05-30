@@ -4387,3 +4387,35 @@ PS5版 到睡前只成功攻略了顺序的前两只 当时玩家不多 第二�
 
 下一局又得40分钟，这体验不是恶魂以来任何一作单机开荒可以比较的
 
+
+*****
+
+####  hirro  
+##### 463#       发表于 2025-5-30 12:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67865594&amp;ptid=2210352" target="_blank">Headless 发表于 2025-5-30 10:19</a>
+
+那么烂么？血源的肉鸽不是评价还可以的么
+
+—— 来自 vivo V2243A, Android 15上的 S1Next-鹅版 v2.1.2 ...</blockquote>
+垃圾。
+
+我就是2025正在血缘刷铭文的，组合少，画面瞎眼，规则奇葩，人没进去就知道能预期什么报酬了，就是无脑刷
+
+
+*****
+
+####  syndrome2032  
+##### 464#       发表于 2025-5-30 12:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67865594&amp;ptid=2210352" target="_blank">Headless 发表于 2025-5-30 10:19</a>
+那么烂么？血源的肉鸽不是评价还可以的么
+
+—— 来自 vivo V2243A, Android 15上的 S1Next-鹅版 v2.1.2 ...</blockquote>
+血源的地宫是靠魔改地宫和27.2受污染的最优质掉落搞出来的。
+
+不然原版随机地牢生成码随机，你进去几层什么怪什么boss都不知道。怎么快速定向刷宝石。
+
+后面就是大家共享优质地牢码，可以方便刷。
+再后面是直接魔改，这个才是最效率的。
+

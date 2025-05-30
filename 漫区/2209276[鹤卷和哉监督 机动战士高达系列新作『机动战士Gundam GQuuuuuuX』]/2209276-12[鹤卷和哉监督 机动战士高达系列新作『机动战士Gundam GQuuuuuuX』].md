@@ -6096,3 +6096,14 @@ Kirakira的时候不是笑的挺开心的，癫笑也是笑</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  格林达姆  
+##### 16803#       发表于 2025-5-30 12:37
+
+ 本帖最后由 格林达姆 于 2025-5-30 12:39 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真物是吧
+<img src="https://p.sda1.dev/24/d69aa07324f59a67c241c5afe723d577/image.jpg" referrerpolicy="no-referrer">
+
