@@ -2592,3 +2592,25 @@ snapshsnapot.jpg
 我的谷歌是日本的，是不是因为这个影响到我领不到，我现在连钻石页面都打不开了 ...</blockquote>
 谷歌商店是日服，玩国际服就会有问题，最好统一下
 
+
+*****
+
+####  胖达君  
+##### 1711#       发表于 2025-5-30 14:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67866435&amp;ptid=2071758" target="_blank">马桶3 发表于 2025-5-30 13:35</a>
+
+谷歌商店是日服，玩国际服就会有问题，最好统一下</blockquote>
+其实没问题，我一台手机日服和国际服都有玩，谷歌商店是日服，两个服兑换码都能领
+
+*****
+
+####  胖达君  
+##### 1712#       发表于 2025-5-30 14:04
+
+国际服兑换码用这个地址登录：[https://ww.gget-promo.jp/sc/login](https://ww.gget-promo.jp/sc/login)
+
+日服兑换码用这个地址登录：[https://jp.gget-promo.jp/](https://jp.gget-promo.jp/)
+
+直接在电脑端登录，然后输入对应的BN ID登录就行了，不用管什么谷歌商店
+
