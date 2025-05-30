@@ -7039,3 +7039,21 @@ X 上的 きさらぎじゅん＠YZF-R6：“何かを手に入れるために�
 
 —— 来自 Xiaomi 25019PNF3C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Sabbah  
+##### 16864#       发表于 2025-5-31 00:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">很期待这片完结的那一天，尤其是封个没法拍第二季后续的那种。
+
+*****
+
+####  瓦拉几亚之夜  
+##### 16865#       发表于 2025-5-31 00:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67868768&amp;ptid=2209276" target="_blank">白色池塘 发表于 2025-5-31 00:10</a>
+
+回头想想二号机头上那俩浮游炮不仅尺寸小，而且数量只有两个，感觉在战斗中起不了太大作用，只能在近距离缠 ...</blockquote>
+既然是特摄迷做的高达，那头上的一定是头镖，用来砍人的<img src="https://static.stage1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
