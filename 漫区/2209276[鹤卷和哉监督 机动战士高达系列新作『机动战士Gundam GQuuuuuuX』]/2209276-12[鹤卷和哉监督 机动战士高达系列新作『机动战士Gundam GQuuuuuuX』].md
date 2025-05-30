@@ -6107,3 +6107,15 @@ Kirakira的时候不是笑的挺开心的，癫笑也是笑</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真物是吧
 <img src="https://p.sda1.dev/24/d69aa07324f59a67c241c5afe723d577/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  希望之异热同心  
+##### 16804#       发表于 2025-5-30 13:04
+
+不知道下一集麻球上机会不会再复刻第一集的飞跃分镜呢
+
+a part开始不播op，直接从麻球被小森放出来开始播，然后夏利亚放麻球出去让她自己想办法夺机，接着开始复刻第一集，在其他船员的追捕下一个飞跃跳进高达里，op响起撞出格纳库往地球突入！
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
