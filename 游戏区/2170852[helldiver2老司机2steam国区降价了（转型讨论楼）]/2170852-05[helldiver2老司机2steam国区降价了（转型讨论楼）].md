@@ -5506,3 +5506,20 @@ dss任务是从周二凌晨0点30分左右开始的
 
 坐等几个月后机器人来打超级地球了，虫子也行
 
+
+*****
+
+####  风萧飒  
+##### 6447#       发表于 2025-5-30 19:49
+
+新人确实挺多的，很多人在奇怪奖章怎么还没发了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Mokou1207  
+##### 6448#       发表于 2025-5-30 19:50
+
+赶在超级地球解放前打了个50舰单通，一下午被飞鹰风暴tk了至少5次，这索敌逻辑真该改改了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
