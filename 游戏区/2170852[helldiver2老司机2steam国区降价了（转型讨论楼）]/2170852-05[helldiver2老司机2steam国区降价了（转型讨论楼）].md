@@ -5471,3 +5471,30 @@ dss任务是从周二凌晨0点30分左右开始的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  保科智子  
+##### 6444#       发表于 2025-5-30 19:21
+
+不会21小时后才有动作吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR FLC-AN00, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  afer  
+##### 6445#       发表于 2025-5-30 19:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67865962&amp;ptid=2170852" target="_blank">rainknine 发表于 2025-5-30 11:27</a>
+
+翻了下聊天记录
+
+dss任务是从周二凌晨0点30分左右开始的
+
+完成是周四凌晨0点20分左右</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">多人游戏开挂就是人品问题，不管pve还是pvp，都是对普通玩家不公平
+
+只能说国内有些傻逼急于洗自己那点捉急的素质了，还有利益相关
+
