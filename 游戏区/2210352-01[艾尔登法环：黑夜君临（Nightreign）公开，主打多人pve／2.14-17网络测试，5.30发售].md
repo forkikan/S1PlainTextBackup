@@ -4458,3 +4458,16 @@ PS5版 到睡前只成功攻略了顺序的前两只 当时玩家不多 第二�
 疯狗b三狼的场上躺了2个对剩下一个压力太大了 ...</blockquote>
 体感组野队不如自己单人solo
 
+
+*****
+
+####  hirro  
+##### 469#       发表于 2025-5-30 14:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67866601&amp;ptid=2210352" target="_blank">xiaosayang 发表于 2025-5-30 14:37</a>
+
+我记得网测版时有说怪物攻击也能涨急救条的，上线就没有了吗
+
+疯狗b三狼的场上躺了2个对剩下一个压力太大了 ...</blockquote>
+如果这样不就陷入BUG了吗？怪把你打死，（然后队友把怪往你尸体拉）怪再把你打活？
+
