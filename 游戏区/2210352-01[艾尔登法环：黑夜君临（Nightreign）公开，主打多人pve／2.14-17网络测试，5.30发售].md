@@ -4000,3 +4000,21 @@ https://www.bilibili.com/opus/340900243003214204
 
 有试过solo的吗说下难度如何  
 
+
+*****
+
+####  Geraltwang  
+##### 426#       发表于 2025-5-30 09:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67865063&amp;ptid=2210352" target="_blank">laputah 发表于 2025-5-30 07:19</a>
+
+肉鸽本来就是死一个月可能连最终boss都没见到的类型...</blockquote>
+你一个肉鸽死一个月见不到最终BOSS得被骂上天
+
+*****
+
+####  gogoneogg  
+##### 427#       发表于 2025-5-30 09:33
+
+看有个UP截的各种跳出 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，笑死了
+

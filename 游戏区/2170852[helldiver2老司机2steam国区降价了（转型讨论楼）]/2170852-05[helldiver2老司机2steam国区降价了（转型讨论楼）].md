@@ -5011,3 +5011,32 @@ steam差评又刷起来了，难评。虽然箭头过去劣迹斑斑，这次剧
 steam差评又刷起来了，难评。虽然箭头过去劣迹斑斑，这次剧本安排也确实少智，但远没到要骂街刷差评的程度 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">我在psn那会儿就刷了差评了，根本无所谓
 
+
+*****
+
+####  保科智子  
+##### 6401#       发表于 2025-5-30 09:28
+
+光能兵力坚持不到超级端午了，看今晚箭头玩啥花样。<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR FLC-AN00, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  银月术士329  
+##### 6402#       发表于 2025-5-30 09:29
+
+他最后差不多200万（约1%）的机器人杀敌数要求确实一个小时就打完了
+
+*****
+
+####  xinfengj  
+##### 6403#       发表于 2025-5-30 09:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67865298&amp;ptid=2170852" target="_blank">新人马甲2 发表于 2025-5-30 09:18</a>
+
+但其实英文社区比如红迪也有人在期待条满了可以反推其他城市就是了
+
+另外抵抗条推满无特殊演出其实只是个爆 ...</blockquote>
+2亿机器人，平均20000+人在打，一人每小时杀400个一天就打下来了。本身不算离谱。何况还有多人游戏时打一局结算翻倍bug
+
