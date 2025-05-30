@@ -524,3 +524,21 @@ demo要是和ps5同款那我怎么觉得会有一波退款潮啊
 
 能不能把女主脸换成初期pv脸啊，那个是真好看。
 
+
+*****
+
+####  医生狼多  
+##### 2067#       发表于 2025-5-30 11:29
+
+前期残疾人战斗体验确实挺劝退
+
+
+*****
+
+####  寂长无星夜  
+##### 2068#       发表于 2025-5-30 11:36
+
+<img src="https://p.sda1.dev/24/5908ead3b27c5fea2f9e1af9c669e551/image.jpg" referrerpolicy="no-referrer">
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">初期pv脸是这个？感觉没现在的好看啊
+

@@ -507,3 +507,14 @@ ace变化差不多吧，被大伙从头到尾吐槽小学生bba的，倒是felic
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67864189&amp;ptid=2208663" target="_blank">新HGCG 发表于 2025-5-29 21:15</a></blockquote>
 这张看着还挺可爱的。
 
+
+*****
+
+####  ΣPRC  
+##### 921#       发表于 2025-5-30 11:26
+
+一哥在二十一年后等到了下一位黑Q后辈
+<img src="https://p.sda1.dev/24/baf34286520194b178bda4d34718a19c/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI JER-AN20, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
