@@ -6588,3 +6588,14 @@ kirakira中毒怎么治？答：用更猛的货。下集拉拉就上线啦<img s
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  猪突猛进R  
+##### 16844#       发表于 2025-5-30 18:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67867294&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-30 17:07</a>
+
+第八集之后西红柿的罪名又多了一条非法入境，奖池仍在累计</blockquote>
+还有逃狱啊，以及可能还有破坏军用设备（MS脚手架，战舰外壁等）。
+
