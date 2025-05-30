@@ -2614,3 +2614,36 @@ snapshsnapot.jpg
 
 直接在电脑端登录，然后输入对应的BN ID登录就行了，不用管什么谷歌商店
 
+
+*****
+
+####  马桶3  
+##### 1713#       发表于 2025-5-30 14:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67866494&amp;ptid=2071758" target="_blank">胖达君 发表于 2025-5-30 14:03</a>
+
+其实没问题，我一台手机日服和国际服都有玩，谷歌商店是日服，两个服兑换码都能领 ...</blockquote>
+你觉得没问题，那是因为还没谈到万代南梦宫账号属地问题<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+要领兑换码可是要过三重认证的，不然也不会有那么多人每次都问怎么领不了
+
+
+*****
+
+####  胖达君  
+##### 1714#       发表于 2025-5-30 14:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67866504&amp;ptid=2071758" target="_blank">马桶3 发表于 2025-5-30 14:06</a>
+
+你觉得没问题，那是因为还没谈到万代南梦宫账号属地问题
+
+要领兑换码可是要过三重认证的，不然也不会有那么 ...</blockquote>
+看我下面的帖子就行了，我也是经历过开服N重验证的老玩家<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  hayate0079  
+##### 1715#       发表于 2025-5-30 14:13
+
+游戏里商店能对上就行了，然后电脑上开梯子登网页，我日服国际服都有
+

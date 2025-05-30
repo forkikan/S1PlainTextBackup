@@ -567,3 +567,14 @@ demo要是和ps5同款那我怎么觉得会有一波退款潮啊
 
 —— 来自 OnePlus PHB110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Anonymous_User  
+##### 2071#       发表于 2025-5-30 14:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67866015&amp;ptid=1978008" target="_blank">寂长无星夜 发表于 2025-5-30 11:36</a>
+
+初期pv脸是这个？感觉没现在的好看啊</blockquote>
+[https://stage1st.com/2b/thread-1821906-1-1.html](https://stage1st.com/2b/thread-1821906-1-1.html)
+
