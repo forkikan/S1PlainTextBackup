@@ -6338,3 +6338,41 @@ kirakira中毒怎么治？答：用更猛的货。下集拉拉就上线啦<img s
  ...</blockquote>
 但是有卡尔玛变男娘啊<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  未来起航  
+##### 16822#       发表于 2025-5-30 16:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67866370&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-5-30 13:14</a>
+
+还真没错，葵斯就是番茄的原型参考之一。
+
+当然，作为负面例子是干劲儿有了，人生思考和经验太薄，在一个 ...</blockquote>
+往简单点论，鲨人还是要慎重<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">最好先想想自己手上为何要沾血的理由。
+
+玛秋懵了几集，但结果无非是家里老妈差点社死，不管做什么都还有余地。nya就是鲨得太狠太快，眼瞅着已经要回不去了（而且这种理由不那么坚实的连续杀人也让她有点面目可憎<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">鲨完人搁那看着融化的钢铁陶醉感伤的画面真的很莫名其妙
+
+*****
+
+####  look900822  
+##### 16823#       发表于 2025-5-30 16:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67861605&amp;ptid=2209276" target="_blank">银川智将Kuroky 发表于 2025-5-29 09:43</a>
+
+历代NT哪来的这种吸嗨了的神经病，每个角色你都看得懂为啥要发癫的好吧</blockquote>
+别的不说，就哈撒韦反补队友就已经没比洗嗨好到哪里去吧
+
+*****
+
+####  galgamesh11  
+##### 16824#       发表于 2025-5-30 16:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67867055&amp;ptid=2209276" target="_blank">未来起航 发表于 2025-5-30 16:14</a>
+
+往简单点论，鲨人还是要慎重最好先想想自己手上为何要沾血的理由。
+
+玛秋懵了几集，但结果无非是家里老妈 ...</blockquote>
+
+也就三连星那个有待商榷，蛋糕哥无非是拿浮游炮砸死还是蒸发的区别罢了，不然呆在那里被蛋糕哥枪毙吗
+
