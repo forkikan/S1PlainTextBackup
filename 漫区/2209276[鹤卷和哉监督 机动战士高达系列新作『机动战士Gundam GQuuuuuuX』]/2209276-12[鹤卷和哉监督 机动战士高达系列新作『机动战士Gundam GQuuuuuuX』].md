@@ -5841,3 +5841,17 @@ GQ的编剧肯定看了雷霆宙域而且看到了很后面，雷霆宙域里AE�
 
 倒是抱团黑屁取诨名有厕妹内味了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Concrete  
+##### 16779#       发表于 2025-5-30 10:43
+
+<blockquote>yamato gun 发表于 2025-5-30 10:30
+所以说麻球宇宙厕妹就很发泥，厕妹在哪？
+
+厕妹除了在sns抱团发癫无病呻吟外哪来的麻球的意志和行动力
+
+倒是 ...</blockquote>
+还真是，厕妹不就是喜欢发癫攻击她们看不顺眼的人
+
