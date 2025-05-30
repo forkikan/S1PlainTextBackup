@@ -5451,3 +5451,13 @@ dss任务是从周二凌晨0点30分左右开始的
 
 奖励大部分是老东西，怎么给？限时的？<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KOBI  
+##### 6442#       发表于 2025-5-30 19:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这架子和治疗包是不是有点太蠢了。。。只能补针的补给和给别人补针的包？虽然应该还没做完
+
+不过这总统之赏是怎么运作的？跟活动武器一样的额外战备？
+
