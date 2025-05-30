@@ -2719,3 +2719,13 @@ snapshsnapot.jpg
 
 yysy,这pvp的en消耗翻3倍不过分吧
 
+
+*****
+
+####  希望之花  
+##### 1722#       发表于 2025-5-30 17:38
+
+发现你游主界面左上角的那行字是 wellcom to eternal base
+
+这个wellcom是有什么梗吗，Google了一下什么也没告诉我
+

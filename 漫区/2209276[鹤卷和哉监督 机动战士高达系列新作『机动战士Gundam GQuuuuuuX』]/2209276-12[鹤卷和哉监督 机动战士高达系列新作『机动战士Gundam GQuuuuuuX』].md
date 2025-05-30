@@ -6500,3 +6500,40 @@ kirakira中毒怎么治？答：用更猛的货。下集拉拉就上线啦<img s
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  zzxzz1019  
+##### 16836#       发表于 2025-5-30 17:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67867350&amp;ptid=2209276" target="_blank">无念 发表于 2025-5-30 17:24</a>
+
+首席是学院派的军人吧，估计开ms有战绩，但是亲手开枪杀个人还没有
+
+—— 来自 HONOR SDY-AN00, Android  ...</blockquote>
+没有吧，首席哥开鸡夸的时候说是他初阵来着，而且一年战争打都打完了，有什么地方给他刷战绩啊。首席哥包手上没沾血的，不然也不会在第四集吐槽打个游戏为什么要杀人了。
+
+*****
+
+####  Steel.Haze  
+##### 16837#       发表于 2025-5-30 17:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67867055&amp;ptid=2209276" target="_blank">未来起航 发表于 2025-5-30 16:14</a>
+
+往简单点论，鲨人还是要慎重最好先想想自己手上为何要沾血的理由。
+
+玛秋懵了几集，但结果无非是家里老妈 ...</blockquote>
+是的，富野在剧场版还暗示她这种心态，“不能改变这种世界就不能得到救赎”她是个明白自己越陷越深，但是越挣扎就越是滑入。行动力成了她深入深渊的负重石。
+
+*****
+
+####  Steel.Haze  
+##### 16838#       发表于 2025-5-30 17:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67867119&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-30 16:27</a>
+
+之前有人说俩开扎古的应该感谢麻球不杀之恩，确实没错。
+
+打黑拳对上博美犬队，那就是九死一生。</blockquote>
+你看，开扎古就不会死，不开扎古用更高端机体的都死了。
+

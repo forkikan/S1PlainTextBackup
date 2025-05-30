@@ -5393,3 +5393,32 @@ dss任务是从周二凌晨0点30分左右开始的
 光能：我是印第安人吗？</blockquote>
 光能族是中国人，被欧洲人偷了永乐大典
 
+
+*****
+
+####  xinfengj  
+##### 6436#       发表于 2025-5-30 17:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67867225&amp;ptid=2170852" target="_blank">DawnGuardian 发表于 2025-5-30 16:51</a>
+飞鹰风暴真该改了，西线还不错，但是南线东线误伤率高的惊人，学学光能飞鹰加个攻击区域提示不行吗 ...</blockquote>
+不好说，按箭头的尿性战备不加指示区域就是为了增加互相TK概率。
+
+
+*****
+
+####  风萧飒  
+##### 6437#       发表于 2025-5-30 17:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67867408&amp;ptid=2170852" target="_blank">kyonko15 发表于 2025-5-30 17:37</a>
+光能族是中国人，被欧洲人偷了永乐大典</blockquote>
+超级地球图图光能者是抄袭东郭先生，这下真对上了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  qwased  
+##### 6438#       发表于 2025-5-30 17:43
+
+飞鹰风暴最大的问题是会扫射地底的bug杂兵，在空地上走着突然屏幕出现了变暗的被攻击提示就是地下有怪，如果这时候正好刷飞鹰了就死了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
