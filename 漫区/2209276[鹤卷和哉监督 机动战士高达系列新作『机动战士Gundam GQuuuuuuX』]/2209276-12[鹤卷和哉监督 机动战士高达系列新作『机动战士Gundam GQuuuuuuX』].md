@@ -7094,3 +7094,78 @@ X 上的 きさらぎじゅん＠YZF-R6：“何かを手に入れるために�
 
 刚看见个新闻 第八集amazon源和tv首席哥台词有改动？有人对比过改哪了嘛<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  白色池塘  
+##### 16870#       发表于 2025-5-31 00:10
+
+回头想想二号机头上那俩浮游炮不仅尺寸小，而且数量只有两个，感觉在战斗中起不了太大作用，只能在近距离缠斗时当个初见杀的暗器<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  萨尤克  
+##### 16871#       发表于 2025-5-31 00:35
+
+<img src="https://p.sda1.dev/24/99a6eb201fa44dfd99a96fa6214049f5/image.jpg" referrerpolicy="no-referrer">
+确实想在下一集最后看到这一幕<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25019PNF3C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Sabbah  
+##### 16872#       发表于 2025-5-31 00:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">很期待这片完结的那一天，尤其是封个没法拍第二季后续的那种。
+
+*****
+
+####  瓦拉几亚之夜  
+##### 16873#       发表于 2025-5-31 00:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67868768&amp;ptid=2209276" target="_blank">白色池塘 发表于 2025-5-31 00:10</a>
+
+回头想想二号机头上那俩浮游炮不仅尺寸小，而且数量只有两个，感觉在战斗中起不了太大作用，只能在近距离缠 ...</blockquote>
+既然是特摄迷做的高达，那头上的一定是头镖，用来砍人的<img src="https://static.stage1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
+*****
+
+####  创始’’’天翔  
+##### 16874#       发表于 2025-5-31 00:55
+
+麻球想的有打的字这么多吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猪突猛进R  
+##### 16875#       发表于 2025-5-31 01:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67868768&amp;ptid=2209276" target="_blank">白色池塘 发表于 2025-5-31 00:10</a>
+
+回头想想二号机头上那俩浮游炮不仅尺寸小，而且数量只有两个，感觉在战斗中起不了太大作用，只能在近距离缠 ...</blockquote>
+你看威力啊，格纳库大爆炸啊。
+
+当然如果和精神病滋水枪一样看剧情需要就另当别论了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 16876#       发表于 2025-5-31 01:16
+
+精神病已经爆甲了，高达系列什么时候张嘴开啃别的机体。
+
+*****
+
+####  wilkyway  
+##### 16877#       发表于 2025-5-31 01:34
+
+刚看见个新闻 第八集amazon源和tv首席哥台词有改动？有人对比过改哪了嘛<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  AkaiSuisei  
+##### 16878#       发表于 2025-5-31 05:29
+
+改的就是说基连也在搞复制强化人那两句吧，TV说的啥忘了
+
