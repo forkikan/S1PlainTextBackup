@@ -6875,3 +6875,32 @@ kirakira中毒怎么治？答：用更猛的货。下集拉拉就上线啦<img s
 话说魔女那集的搭档没死吧，只是推进背包过载炸了而已</blockquote>
 背包被魔女点炸了而已，魔女再癫也不至于直接把队友点死
 
+
+*****
+
+####  llysander  
+##### 16852#       发表于 2025-5-30 19:25
+
+发错
+
+cloverreset.png
+(1.32 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-30 19:16 上传
+
+<img src="https://img.stage1st.com/forum/202505/30/191607uz5dt5v3593788l4.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灵魂收割机  
+##### 16853#       发表于 2025-5-30 19:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67867119&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-30 16:27</a>
+
+之前有人说俩开扎古的应该感谢麻球不杀之恩，确实没错。
+
+打黑拳对上博美犬队，那就是九死一生。</blockquote>
+魔女队友感觉更像没死。
+
