@@ -169,3 +169,11 @@ idios出碟也要开1on1在线活动和A店座谈活动的抽选力
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">你是节前上班多无聊才会去刷好嫌这种地方
 
+
+*****
+
+####  poipanchao  
+##### 1173#       发表于 2025-5-30 20:11
+
+虽然是底边，但是3D这个动作设计还挺不错啊，这种大斧打戏感觉就算在电影里也比较少见了
+

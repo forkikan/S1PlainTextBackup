@@ -5537,3 +5537,17 @@ dss任务是从周二凌晨0点30分左右开始的
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  风萧飒  
+##### 6450#       发表于 2025-5-30 20:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67867946&amp;ptid=2170852" target="_blank">ParadiseMartyr 发表于 2025-5-30 20:06</a>
+所以为什么没发
+
+—— 来自 鹅球 v3.3.96</blockquote>
+这种重要指令发的奖章都有延迟，一般一两天内会发的。反正多打几次就习惯了。超级地球可能会拖延发薪水但不会欠薪
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
