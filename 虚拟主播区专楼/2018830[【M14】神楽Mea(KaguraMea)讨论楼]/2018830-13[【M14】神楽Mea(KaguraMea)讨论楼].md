@@ -12691,3 +12691,18 @@ WADA 同情禁止！
 
 这样突击<img src="https://static.stage1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TiHaru  
+##### 18609#       发表于 2025-5-30 21:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67867531&amp;ptid=2018830" target="_blank">术士q 发表于 2025-5-30 18:07</a>
+
+翻了一下相册，找到了今年年初截的图，对比了一下...好像没什么变化来着（）
+
+还是说是更早之前的变化?</blockquote>
+プロフィール这个可能是我记错了，下意识觉得丨前面应该也会有东西
+
+键盘是下午就问了一个键程设置的问题然后过一会删了
+
