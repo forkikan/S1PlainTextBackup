@@ -7028,3 +7028,14 @@ X 上的 きさらぎじゅん＠YZF-R6：“何かを手に入れるために�
 
 回头想想二号机头上那俩浮游炮不仅尺寸小，而且数量只有两个，感觉在战斗中起不了太大作用，只能在近距离缠斗时当个初见杀的暗器<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  萨尤克  
+##### 16863#       发表于 2025-5-31 00:35
+
+<img src="https://p.sda1.dev/24/99a6eb201fa44dfd99a96fa6214049f5/image.jpg" referrerpolicy="no-referrer">
+确实想在下一集最后看到这一幕<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25019PNF3C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
