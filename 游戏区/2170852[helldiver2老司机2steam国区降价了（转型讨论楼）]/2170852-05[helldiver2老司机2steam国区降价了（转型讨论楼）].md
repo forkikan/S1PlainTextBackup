@@ -5647,3 +5647,17 @@ DSS 13-0 carry局
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  保科智子  
+##### 6458#       发表于 2025-5-30 22:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67868254&amp;ptid=2170852" target="_blank">风萧飒 发表于 2025-5-30 21:18</a>
+总统这就选好了，所以什么时候发新装备
+
+—— 来自 S1Fun</blockquote>
+无票者竟是我自己<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR FLC-AN00, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
