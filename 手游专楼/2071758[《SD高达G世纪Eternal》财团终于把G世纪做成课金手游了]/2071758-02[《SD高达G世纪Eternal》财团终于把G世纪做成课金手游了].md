@@ -2564,3 +2564,20 @@ snapshsnapot.jpg
 
 78你这浓眉大眼的也是劲敌，一看原来是GTO的，这么说这次卡池的鸭子还是主角词条？
 
+
+*****
+
+####  ddlsyo  
+##### 1708#       发表于 2025-5-30 12:14
+
+新的有奖问卷调查来了。
+
+300钻优惠码：GGETSURVEY2
+
+*****
+
+####  格雷殿下  
+##### 1709#       发表于 2025-5-30 12:20
+
+我的谷歌是日本的，是不是因为这个影响到我领不到，我现在连钻石页面都打不开了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

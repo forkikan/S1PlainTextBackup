@@ -6076,3 +6076,23 @@ GQ紫婆给我的感觉就是人没正史那么坏，但是似乎正在筹备比
 简单回想了一下，好像只在ed里笑过，平时都是苦瓜脸</blockquote>
 Kirakira的时候不是笑的挺开心的，癫笑也是笑
 
+
+*****
+
+####  Sliurus  
+##### 16801#       发表于 2025-5-30 12:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67866185&amp;ptid=2209276" target="_blank">YU_JI 发表于 2025-5-30 12:15</a>
+
+Kirakira的时候不是笑的挺开心的，癫笑也是笑</blockquote>
+刚出机舱被马秋喷前好像也在笑来着，笑得确实有点少<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhzij111  
+##### 16802#       发表于 2025-5-30 12:21
+
+当难民干黑活没事还要挨顿打，能笑得出来也是神人了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
