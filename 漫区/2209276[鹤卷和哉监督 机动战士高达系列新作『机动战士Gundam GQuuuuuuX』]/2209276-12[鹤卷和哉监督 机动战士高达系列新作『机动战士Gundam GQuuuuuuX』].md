@@ -6298,3 +6298,43 @@ a part开始不播op，直接从麻球被小森放出来开始播，然后夏利
 有使命感的成熟战士番茄真的会出现吗</blockquote>
 我觉得不会，那是大人的事情，年轻人只是为了自己目的冲进大人勾心斗角的场所搅局的
 
+
+*****
+
+####  猪突猛进R  
+##### 16818#       发表于 2025-5-30 15:48
+
+不会有成熟的番茄，估计连有些人期待的有德大回旋都不会有。
+
+kirakira中毒怎么治？答：用更猛的货。下集拉拉就上线啦<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 16819#       发表于 2025-5-30 15:48
+
+我是怀疑鹤卷选了尤玛恩托做名字是因为它和克图格亚的相似性
+
+*****
+
+####  吴怀在  
+##### 16820#       发表于 2025-5-30 15:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67866542&amp;ptid=2209276" target="_blank">民工业 发表于 2025-5-30 14:16</a>
+—— 来自 鹅球 v3.5.99</blockquote>
+擦，所以喵安转圈时候拿的是啥？
+
+*****
+
+####  LadySaazbaum  
+##### 16821#       发表于 2025-5-30 15:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67866629&amp;ptid=2209276" target="_blank">llysander 发表于 2025-5-30 14:43</a>
+
+那就显得鸭更小丑了，忙乎一圈只制造了一个又一个be
+
+没那一筒子，紫婆婆也是拥立戴肯锅退位幕后去了
+
+ ...</blockquote>
+但是有卡尔玛变男娘啊<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
