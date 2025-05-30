@@ -7086,3 +7086,11 @@ X 上的 きさらぎじゅん＠YZF-R6：“何かを手に入れるために�
 
 精神病已经爆甲了，高达系列什么时候张嘴开啃别的机体。
 
+
+*****
+
+####  wilkyway  
+##### 16869#       发表于 2025-5-31 01:34
+
+刚看见个新闻 第八集amazon源和tv首席哥台词有改动？有人对比过改哪了嘛<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
