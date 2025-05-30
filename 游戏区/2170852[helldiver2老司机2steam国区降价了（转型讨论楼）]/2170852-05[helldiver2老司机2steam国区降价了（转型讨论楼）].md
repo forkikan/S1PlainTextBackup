@@ -5124,3 +5124,61 @@ DSS任务一直都有2万多人在做，我自己没打，但是那几天我朋�
 
 光能族兵都逃走了是吧
 
+
+*****
+
+####  赤井稻妻  
+##### 6411#       发表于 2025-5-30 10:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67865502&amp;ptid=2170852" target="_blank">ChrisSnake 发表于 2025-5-30 10:02</a>
+
+好家伙 光能族兵力昨晚还有500万 早上起来只剩100万了 
+
+保卫上海的时候10+%的解放值 一天也没打掉100w</blockquote>
+昨晚完成了支线任务，上传了360全家桶到光能族舰队的电脑，打掉了5%的舰队兵力（200万），同时降低了进攻增长
+
+
+*****
+
+####  sloorz  
+##### 6412#       发表于 2025-5-30 10:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67865536&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2025-5-30 10:09</a>
+
+昨晚完成了支线任务，上传了360全家桶到光能族舰队的电脑，打掉了5%的舰队兵力（200万），同时降低了进攻 ...</blockquote>
+说明箭头加了个班，写了下反攻倒算的剧本。今早发新闻就是说hold the line剧本好了，你们造吧。
+
+怀疑之前加强度就是给迭代留点时间。
+
+*****
+
+####  风萧飒  
+##### 6413#       发表于 2025-5-30 10:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67865487&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2025-5-30 09:59</a>
+但假如只要有这包，你就可以一直用双刃镰开火，同时在毒气里洗澡呢</blockquote>
+双刃镰解锁了一直没用过，不过我一直对这东西反重不太看好。我个人喜欢的反重还是无后座那种一发秒的效果，重甲单位不能秒威胁太大了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  xinfengj  
+##### 6414#       发表于 2025-5-30 10:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67865385&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2025-5-30 09:40</a>
+到100%可以解放城市从逻辑上就说不通，因为城市是从100%往下降的，如果在入侵开始的时候就全力抵抗岂不是 ...</blockquote>
+箭头不惩罚是因为封号系统绑的psn，不绑没法惩罚，之前皮莱斯特说漏嘴透露过。异常数据一查后台就看出来了，怎么会不知道。
+
+*****
+
+####  赤井稻妻  
+##### 6415#       发表于 2025-5-30 10:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67865561&amp;ptid=2170852" target="_blank">sloorz 发表于 2025-5-30 10:12</a>
+
+说明箭头加了个班，写了下反攻倒算的剧本。今早发新闻就是说hold the line剧本好了，你们造吧。
+
+怀疑之前 ...</blockquote>
+其实是社区完成这几个mo才换来的胜利，说白了防卫战的选项就是这几个mo能否成功，这次是4个完成了3个好像，如果当时完全不分兵，死守超级地球可能就真的战败了
+

@@ -4072,3 +4072,46 @@ https://www.bilibili.com/opus/340900243003214204
 
 昨晚有点牢
 
+
+*****
+
+####  林无德  
+##### 433#       发表于 2025-5-30 10:05
+
+死一个月可还行，谁家的肉鸽做得这么“本来”，给大家开开眼<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  laputah  
+##### 434#       发表于 2025-5-30 10:08
+
+<blockquote>alucardcz 发表于 2025-5-30 09:45
+你玩过肉鸽吗 哪个肉鸽死一个月还能见不到boss? 故意的不算</blockquote>
+你玩过肉鸽吗？玩点lite或者开无限命闹麻了 带点元素倒反天罡定义肉鸽？
+
+
+*****
+
+####  卡拉德利姆  
+##### 435#       发表于 2025-5-30 10:10
+
+原来黑夜君临是原教旨rouge啊，他和原教旨rouge有一毛钱关系？
+
+
+*****
+
+####  quanlix  
+##### 436#       发表于 2025-5-30 10:14
+
+看了个最终boss战的视频，一法一弓一近战，近战主视角，80%的时间在追boss，追上了也摸不出什么伤害，有点搞笑
+
+*****
+
+####  alucardcz  
+##### 437#       发表于 2025-5-30 10:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67865525&amp;ptid=2210352" target="_blank">laputah 发表于 2025-5-30 10:08</a>
+
+你玩过肉鸽吗？玩点lite或者开无限命闹麻了 带点元素倒反天罡定义肉鸽？</blockquote>
+笑了  你来说说什么肉鸽 大部分死一个月连boss都见不到的 给大家开开眼
+
