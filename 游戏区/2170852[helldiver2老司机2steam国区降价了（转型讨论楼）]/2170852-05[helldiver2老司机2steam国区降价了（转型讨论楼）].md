@@ -5235,3 +5235,14 @@ dss任务是从周二凌晨0点30分左右开始的
 
 意思是超级上海是挂哥守的，dss是挂哥修的，奋战一线的普通一线潜兵没有他妈两手一摊去淘宝买挂就是傻逼是吧<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赤井稻妻  
+##### 6420#       发表于 2025-5-30 11:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67865748&amp;ptid=2170852" target="_blank">我不知道3_3 发表于 2025-5-30 10:51</a>
+
+箭头大概是连夜改完了代码，现在不管打哪个城都能让光能掉舰队条了，现在的速度大概是下午就打完了 ...</blockquote>
+本来舰队血量就是在一直减少的，只是把超过100%的影响力转化成了对舰队的额外伤害，所以在超级上海条满的时候能到达每小时13万的减少速度，现在只有11万
+
