@@ -6419,3 +6419,36 @@ kirakira中毒怎么治？答：用更猛的货。下集拉拉就上线啦<img s
 
 有陶醉吗 我怎么感觉是抱着铁奥幼年体抑郁<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猪突猛进R  
+##### 16829#       发表于 2025-5-30 16:44
+
+<img src="https://img.stage1st.com/forum/202505/30/164405i6gb3lbrrgyrozg8.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQkl1-cqtdK1nT3cSsg-g0.jpg</strong> (46.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-30 16:44 上传
+
+*****
+
+####  0aleph37  
+##### 16830#       发表于 2025-5-30 16:44
+
+开播前还以为麻球人设接近零崎舞织竹才给了针织帽的…
+
+*****
+
+####  银川智将Kuroky  
+##### 16831#       发表于 2025-5-30 16:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67867071&amp;ptid=2209276" target="_blank">look900822 发表于 2025-5-30 16:18</a>
+
+别的不说，就哈撒韦反补队友就已经没比洗嗨好到哪里去吧</blockquote>
+反补队友你也看得出来哈撒韦的行为逻辑啊
+
+眼睛还变色的蓝毛有个行为逻辑可言吗
+

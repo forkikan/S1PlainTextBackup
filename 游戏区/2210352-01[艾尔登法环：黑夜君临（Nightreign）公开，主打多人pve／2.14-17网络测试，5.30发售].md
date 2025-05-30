@@ -4601,3 +4601,13 @@ PS5版 到睡前只成功攻略了顺序的前两只 当时玩家不多 第二�
 
 因为野组就是这样的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天剑流星  
+##### 482#       发表于 2025-5-30 16:53
+
+单人solo感觉压力太大了，清图效率上不去，还在清战点或者打野生BOSS呢，毒圈就来了，打是打不了，尤其是BOSS剩个血皮的时候贼恶心，而且单刷寄了可就真完蛋了
+
+—— 来自 Xiaomi 2407FRK8EC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+

@@ -2679,3 +2679,43 @@ snapshsnapot.jpg
 
 02有核弹 感觉逼氪的厉害....
 
+
+*****
+
+####  洛克萨斯  
+##### 1719#       发表于 2025-5-30 16:47
+
+<img src="https://img.stage1st.com/forum/202505/30/164659wfbw08bf0xdfjb8g.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (52.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-30 16:46 上传
+
+<img src="https://img.stage1st.com/forum/202505/30/164707yzfhu9satn9lo8wq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (42.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-30 16:47 上传
+
+核弹这威力别第三台限定就是pvp人权了吧.............
+
+
+*****
+
+####  胖达君  
+##### 1720#       发表于 2025-5-30 16:52
+
+知道了，下一赛季大师联盟氪金大佬人手一台满破GP02A<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  格雷殿下  
+##### 1721#       发表于 2025-5-30 16:54
+
+yysy,这pvp的en消耗翻3倍不过分吧
+
