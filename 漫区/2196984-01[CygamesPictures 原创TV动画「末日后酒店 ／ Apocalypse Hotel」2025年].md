@@ -4968,3 +4968,12 @@ https://www.bilibili.com/video/BV1md7Gz5E4s
 第9話「お客様の人生に、今日という栞を」</blockquote>
 这是8千代回来了所以从狸猫保养变回了8千代保养么，机器人的外表感觉有闪亮了
 
+
+*****
+
+####  NBXX  
+##### 434#       发表于 2025-5-30 14:20
+
+【skirt】aiko亲自解说「末日后酒店」OP主题曲
+[https://www.bilibili.com/video/BV1oU7jzvEek/](https://www.bilibili.com/video/BV1oU7jzvEek/)
+

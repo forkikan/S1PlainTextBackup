@@ -5266,3 +5266,13 @@ dss任务是从周二凌晨0点30分左右开始的
 
 照这个进度，光能族兵力撑不到超级端午了吧
 
+
+*****
+
+####  银月术士329  
+##### 6423#       发表于 2025-5-30 14:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67866358&amp;ptid=2170852" target="_blank">outerish 发表于 2025-5-30 13:09</a>
+照这个进度，光能族兵力撑不到超级端午了吧</blockquote>
+今天黄金时间段光能就没气了
+
