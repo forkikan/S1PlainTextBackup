@@ -4185,3 +4185,21 @@ https://www.bilibili.com/opus/340900243003214204
 
 一个月见不到最终boss，还是肉鸽，啥游戏啊这么变态
 
+
+*****
+
+####  星の守  
+##### 446#       发表于 2025-5-30 10:55
+
+看直播看了一会就无聊了，魂类本来一个人开荒探险养成的乐趣完全没了，变成无尽战斗循环，看着就累<img src="https://static.stage1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Geraltwang  
+##### 447#       发表于 2025-5-30 10:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67865609&amp;ptid=2210352" target="_blank">Lisylfn 发表于 2025-5-30 10:21</a>
+
+原教旨主义rogue</blockquote>
+举个例子吧，我反正没听说过，最原教旨的肉鸽以撒打一个月见不到妈腿简直不可想象
+
