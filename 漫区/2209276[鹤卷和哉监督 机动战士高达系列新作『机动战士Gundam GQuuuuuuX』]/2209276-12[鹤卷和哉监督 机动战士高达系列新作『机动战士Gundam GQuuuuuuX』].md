@@ -6917,3 +6917,39 @@ cloverreset.png
 
 不过主要是扎古系头部的管线不易引擎火工问题，引擎在右胸，夸克斯扎古的动力和燃料都放到大腿位置了。头部被砍实际上殉爆可能很低。
 
+
+*****
+
+####  Sliurus  
+##### 16855#       发表于 2025-5-30 20:33
+
+[https://x.com/engiyosi/status/19 ... 1CbxXPkTOlk4NTqE-Ag](https://x.com/engiyosi/status/1928224828609417379?s=46&amp;t=XH91CbxXPkTOlk4NTqE-Ag)
+
+<img src="https://img.stage1st.com/forum/202505/30/203118qbki6w4lka61a5aa.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_8007.JPG</strong> (274.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-30 20:31 上传
+
+[https://x.com/enono/status/19280 ... 1CbxXPkTOlk4NTqE-Ag](https://x.com/enono/status/1928084646421745970?s=46&amp;t=XH91CbxXPkTOlk4NTqE-Ag)
+
+<img src="https://img.stage1st.com/forum/202505/30/203119rnqirdhjd00qhfgg.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_8016.JPG</strong> (226.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-30 20:31 上传
+
+*****
+
+####  洛克萨斯  
+##### 16856#       发表于 2025-5-30 20:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67867692&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-5-30 19:03</a>
+
+X 上的 きさらぎじゅん＠YZF-R6：“何かを手に入れるために、何かを諦めなきゃいけないなんて、そんなの理 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下集拉拉是拉拉.雷是吧，这画的
+

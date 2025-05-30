@@ -5563,3 +5563,31 @@ dss任务是从周二凌晨0点30分左右开始的
 —— 来自 鹅球 v3.3.96</blockquote>
 剪头的土豆服务器太拉了，开服的时候有一次就是mo完成，一堆人上线领奖励，结果服务器直接崩了，之后剪头遇到这种情况都是分批发
 
+
+*****
+
+####  qwased  
+##### 6452#       发表于 2025-5-30 20:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67867696&amp;ptid=2170852" target="_blank">KOBI 发表于 2025-5-30 19:04</a>
+
+治疗包是不是有点太蠢了。。。给别人补针的包？虽然应该还没做完
+
+架子有限定次数有点蛋痛，如果没限制我都 ...</blockquote>
+治疗无人机配近战重甲能不能一直在怪堆里面砍<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LrGsite  
+##### 6453#       发表于 2025-5-30 20:40
+
+<img src="https://img.stage1st.com/forum/202505/30/204016h4teezwuwffxt38p.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (383 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-30 20:40 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">解放了
+
