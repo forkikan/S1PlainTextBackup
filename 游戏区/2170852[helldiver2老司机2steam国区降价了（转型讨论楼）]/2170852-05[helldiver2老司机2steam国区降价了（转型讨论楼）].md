@@ -5749,3 +5749,28 @@ this is managed democracy
 
 所以是发什么战备
 
+
+*****
+
+####  xinfengj  
+##### 6467#       发表于 2025-5-30 23:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67868609&amp;ptid=2170852" target="_blank">qwased 发表于 2025-5-30 23:11</a>
+啊？还以为是游戏内有选项可以选总统呢
+
+所以是发什么战备</blockquote>
+就是投票选总统吧，选谁就有谁的buff
+不过现在都是解包泄露数据就是了
+
+*****
+
+####  风萧飒  
+##### 6468#       发表于 2025-5-30 23:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67868629&amp;ptid=2170852" target="_blank">xinfengj 发表于 2025-5-30 23:20</a>
+就是投票选总统吧，选谁就有谁的buff
+不过现在都是解包泄露数据就是了</blockquote>
+总统已经自动选完了，都发表任职演讲了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有点没搞懂，这个竞选解包完成度好像挺高的，应该不至于变废案了吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
