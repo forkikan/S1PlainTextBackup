@@ -4932,3 +4932,16 @@ steam差评又刷起来了，难评。虽然箭头过去劣迹斑斑，这次剧
 
 箭头这两个支线一定程度上也是鼓励玩家玩自己想玩的内容，还有DSS神兵天降（然后飞鹰扫射疯狂TK被票走）
 
+
+*****
+
+####  战略核水饺  
+##### 6395#       发表于 2025-5-30 08:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67864564&amp;ptid=2170852" target="_blank">FLZB 发表于 2025-5-29 23:17</a>
+
+守住是指全球玩家一起把on sea从死亡线上拖了回来并且按目前的进度基本确定能存活到最后。100%没有任何意 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">玩家社群热情太高所以产生了一些超出预料的反应导致炎上倒是蛮正常的，炎上过程中产出一些奇怪的流言和误导性信息也正常，哪怕一些内容很难绷。
+
+毕竟箭头还是有义务响应掏了钱的用户的需要的吗（
+
