@@ -630,3 +630,11 @@ demo能下了
 
 —— 来自 OPPO PKB110, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  laosai13  
+##### 2078#       发表于 2025-5-31 02:57
+
+还在玩ps的demo，话说这个闪避弹反手感好怪，之后有提升吗？
+
