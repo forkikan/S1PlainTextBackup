@@ -6904,3 +6904,16 @@ cloverreset.png
 打黑拳对上博美犬队，那就是九死一生。</blockquote>
 魔女队友感觉更像没死。
 
+
+*****
+
+####  Steel.Haze  
+##### 16854#       发表于 2025-5-30 20:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67867528&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-5-30 18:05</a>
+
+巴尼：俺寻思当年俺开的也是扎古鸭。</blockquote>
+扎古FZ的内核上已经统合整备后的加里波第α体系的前置过程中统一零件换皮量产机了。实际上纯79扎古的血统是到扎古2R2为止。
+
+不过主要是扎古系头部的管线不易引擎火工问题，引擎在右胸，夸克斯扎古的动力和燃料都放到大腿位置了。头部被砍实际上殉爆可能很低。
+
