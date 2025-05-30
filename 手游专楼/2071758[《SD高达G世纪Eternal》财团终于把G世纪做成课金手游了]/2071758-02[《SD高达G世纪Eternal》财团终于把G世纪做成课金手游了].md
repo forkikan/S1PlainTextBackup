@@ -2581,3 +2581,14 @@ snapshsnapot.jpg
 
 我的谷歌是日本的，是不是因为这个影响到我领不到，我现在连钻石页面都打不开了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  马桶3  
+##### 1710#       发表于 2025-5-30 13:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67866208&amp;ptid=2071758" target="_blank">格雷殿下 发表于 2025-5-30 12:20</a>
+
+我的谷歌是日本的，是不是因为这个影响到我领不到，我现在连钻石页面都打不开了 ...</blockquote>
+谷歌商店是日服，玩国际服就会有问题，最好统一下
+

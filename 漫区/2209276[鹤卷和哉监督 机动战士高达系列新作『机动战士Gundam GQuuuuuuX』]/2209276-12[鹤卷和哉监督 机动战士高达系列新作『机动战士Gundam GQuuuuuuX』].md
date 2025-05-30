@@ -6187,3 +6187,46 @@ a part开始不播op，直接从麻球被小森放出来开始播，然后夏利
 你想多了，黑富野塑造主角最根本的推动力是：爹不像爹，妈不像妈，主角的回应则是杀爹杀妈，“把力量转化 ...</blockquote>
 是的，不过这只是他怨念的一部分，他喜欢把个人怨念和政治及社会思考杂糅在一起，非常性格使然。
 
+
+*****
+
+####  ryanghj  
+##### 16810#       发表于 2025-5-30 13:38
+
+就这几次吧
+
+一次是理解修司，一次是理解自己，一次是理解玛秋？<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202505/30/133621lk0lnjd3cn2lnx3x.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (158.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-30 13:36 上传
+
+<img src="https://img.stage1st.com/forum/202505/30/133630gsaf0aszfeao8n41.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (167.13 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-30 13:36 上传
+
+<img src="https://img.stage1st.com/forum/202505/30/133742d7djazbrvjyvjjaa.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (121.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-30 13:37 上传
+
+*****
+
+####  Concrete  
+##### 16811#       发表于 2025-5-30 13:38
+
+<blockquote>Sliurus 发表于 2025-5-30 12:18
+刚出机舱被马秋喷前好像也在笑来着，笑得确实有点少</blockquote>
+脱衣服躺红高达上的时候也笑了吧
+
