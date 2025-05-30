@@ -4308,3 +4308,30 @@ https://www.bilibili.com/opus/340900243003214204
 
 小弟：我只是把速通、联机mod、随机mod这几个大受欢迎的要素组合在一起罢了，我又能有什么错<img src="https://static.stage1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  captoon  
+##### 457#       发表于 2025-5-30 11:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67865971&amp;ptid=2210352" target="_blank">ddsdsdsdf 发表于 2025-5-30 11:29</a>
+
+打了10个小时了
+
+结论，这游戏野人开荒几乎不可能
+
+必须3个好朋友全程当面或是语音交流才能玩下去。</blockquote>
+杂兵收益未必低
+
+看你装备从哪里来，是自己敲上去还是 顺路摸一把强敌。
+
+主要还是时间太赶了....
+
+
+*****
+
+####  爱护动物抓根宝  
+##### 458#       发表于 2025-5-30 12:02
+
+我还是等modder反向移植回法环了
+
