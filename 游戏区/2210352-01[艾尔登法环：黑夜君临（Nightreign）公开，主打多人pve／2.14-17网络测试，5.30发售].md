@@ -4018,3 +4018,25 @@ https://www.bilibili.com/opus/340900243003214204
 
 看有个UP截的各种跳出 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，笑死了
 
+
+*****
+
+####  windhawind2  
+##### 428#       发表于 2025-5-30 09:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67865063&amp;ptid=2210352" target="_blank">laputah 发表于 2025-5-30 07:19</a>
+
+肉鸽本来就是死一个月可能连最终boss都没见到的类型...</blockquote>
+你这是哪种肉鸽。。。肉鸽反而是见最终boss比一般游戏要简单的 因为一般游戏最终boss完了就通关了 肉鸽“通关”后要反复刷N次
+
+*****
+
+####  hirro  
+##### 429#       发表于 2025-5-30 09:44
+
+昨晚一晚上只有两把队友是正常的，有一把见到3头没打过，打了一大半，一个10级2个9级
+
+地图上不知道怎么发育都是见到什么打什么，装备也不知道拿什么，看来还是要先拿瓶子再发育
+
+本来想着PS平台作弊的少就买了PS5的，结果不能跨平台好友组队都组不起来，这就有点牢了
+
