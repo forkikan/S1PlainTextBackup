@@ -4875,3 +4875,16 @@ steam差评又刷起来了，难评。虽然箭头过去劣迹斑斑，这次剧
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ronac  
+##### 6390#       发表于 2025-5-30 08:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67865128&amp;ptid=2170852" target="_blank">xinfengj 发表于 2025-5-30 07:57</a>
+
+永远怀念超级地球总统，国防部长万寿无疆</blockquote>
+我怀疑总统在超级地球也就是个宣传部长的定位，真要是重要职务还能拿个小手枪当bunker boy？
+
+箭头的叙事跟鱿鱼那些能在天上飞的东西一样蛆，我看真正的幕后猪脑怕不是蒋委员长或者赵构<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
