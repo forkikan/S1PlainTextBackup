@@ -4509,3 +4509,18 @@ PS5版 到睡前只成功攻略了顺序的前两只 当时玩家不多 第二�
 
 虽然我上面说单人反而比野排好一些，但也好的有限，我现在觉得比起肉鸽设计的问题，最大的问题是这游戏快变成纯压力游戏了。法环当初一堆人抱怨难，但其实我开荒很惬意，因为打不过就跑嘛，没膝盖的时候又不是没跑酷过，被很多人瞧不上的大地图反而很大程度上缓解了压力。但是这游戏不行，几乎没有任何让你喘息的设计，要是做成爽游可以让人随时随地来一局也就罢了，偏偏有很多地方还是无休止给你上压力
 
+
+*****
+
+####  hirro  
+##### 474#       发表于 2025-5-30 15:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67866783&amp;ptid=2210352" target="_blank">Jabeck 发表于 2025-5-30 15:21</a>
+
+30W+在线，估计赚翻了。
+
+本来游戏荒还想买的，看看评价算了。</blockquote>
+没事的，起码29万野组在坐牢<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+没多久差评就上来了
+
