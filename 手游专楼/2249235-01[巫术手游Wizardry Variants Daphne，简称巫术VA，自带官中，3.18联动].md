@@ -1431,3 +1431,14 @@ roll到13%攻和18攻就可以用+4-6攻击改掉防御，然后只强化第一�
 
 能再清一次成绩再发一遍补偿吗？<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  elven119  
+##### 396#       发表于 2025-5-30 11:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67863949&amp;ptid=2249235" target="_blank">风浦可符香(P.N) 发表于 2025-5-29 20:26</a>
+
+草，昨天还没有，现在总榜和每个区间第一都是他XD</blockquote>
+这个人估计不是利用bug了，是开挂了
+

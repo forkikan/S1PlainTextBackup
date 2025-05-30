@@ -5920,3 +5920,30 @@ GQ的编剧肯定看了雷霆宙域而且看到了很后面，雷霆宙域里AE�
 
 喵安除了得到合法身份，有2号机可以**，有首席哥当护花使者(并不是)，还有不普通的紫婆老干妈，番茄可不可以说“是你偷了我的人生”？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  YU_JI  
+##### 16787#       发表于 2025-5-30 11:21
+
+GQ紫婆给我的感觉就是人没正史那么坏，但是似乎正在筹备比正史干的坏的多的事情
+
+*****
+
+####  ardente  
+##### 16788#       发表于 2025-5-30 11:25
+
+你还别说，这部非常贴心的把联邦扔陨石联邦放毒气联邦kbfz一个个拉出来给观众念稿，真给扎比人挽一挽尊也未必不可能嘛<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灵魂收割机  
+##### 16789#       发表于 2025-5-30 11:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67865858&amp;ptid=2209276" target="_blank">newise 发表于 2025-5-30 11:12</a>
+
+客官是您点的厕妹吗？
+
+喵安除了得到合法身份，有2号机可以**，有首席哥当护花使者(并不是)，还有不普通的紫 ...</blockquote>
+番茄又不追求那些东西。
+

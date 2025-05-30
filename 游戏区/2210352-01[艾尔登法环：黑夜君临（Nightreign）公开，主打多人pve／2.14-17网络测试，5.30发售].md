@@ -4226,3 +4226,36 @@ https://www.bilibili.com/opus/340900243003214204
 举个例子吧，我反正没听说过，最原教旨的肉鸽以撒打一个月见不到妈腿简直不可想象 ...</blockquote>
 妈腿对应的不应该是B三狼吗
 
+
+*****
+
+####  Geraltwang  
+##### 450#       发表于 2025-5-30 11:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67865805&amp;ptid=2210352" target="_blank">はちたや 发表于 2025-5-30 11:03</a>
+
+说啥呢妈腿就是个道中又不是真boss
+
+以撒自己埋头一个月说不定死寂和死妈见都没见过... ...</blockquote>
+注意，最终BOSS和真结局BOSS不是一码事，妈腿就是以撒的一周目最终BOSS，甚至结算也要看你打没打过妈腿才开放子宫的。
+
+
+*****
+
+####  Geraltwang  
+##### 451#       发表于 2025-5-30 11:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67865881&amp;ptid=2210352" target="_blank">汪达 发表于 2025-5-30 11:16</a>
+
+妈腿对应的不应该是B三狼吗</blockquote>
+也对，我还是想错了
+
+*****
+
+####  はちたや  
+##### 452#       发表于 2025-5-30 11:28
+
+<blockquote>Geraltwang 发表于 2025-5-30 11:22
+注意，最终BOSS和真结局BOSS不是一码事，妈腿就是以撒的一周目最终BOSS，甚至结算也要看你打没打过妈腿才 ...</blockquote>
+不懂你想表达什么，也没人想和你玩无聊的文字游戏。但是你把妈腿当以撒的最终boss但凡玩过的都想笑，你不会以为打过妈腿才能打妈心是什么只有你知道的里知识吧
+
