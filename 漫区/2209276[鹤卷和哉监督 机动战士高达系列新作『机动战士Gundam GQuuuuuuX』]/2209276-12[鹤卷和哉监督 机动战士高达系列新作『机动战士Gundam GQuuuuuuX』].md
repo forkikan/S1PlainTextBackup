@@ -7065,3 +7065,16 @@ X 上的 きさらぎじゅん＠YZF-R6：“何かを手に入れるために�
 
 麻球想的有打的字这么多吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猪突猛进R  
+##### 16867#       发表于 2025-5-31 01:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67868768&amp;ptid=2209276" target="_blank">白色池塘 发表于 2025-5-31 00:10</a>
+
+回头想想二号机头上那俩浮游炮不仅尺寸小，而且数量只有两个，感觉在战斗中起不了太大作用，只能在近距离缠 ...</blockquote>
+你看威力啊，格纳库大爆炸啊。
+
+当然如果和精神病滋水枪一样看剧情需要就另当别论了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
