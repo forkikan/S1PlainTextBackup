@@ -5339,3 +5339,20 @@ dss任务是从周二凌晨0点30分左右开始的
 但是总统怎么会一个卫兵也没有，一个人一把手枪在地堡里被光能族打死呢？怎么按顺位总统职权不是给更常见的 ...</blockquote>
 总统搓错球了掏出了核弹手枪
 
+
+*****
+
+####  ykyin09  
+##### 6431#       发表于 2025-5-30 17:09
+
+总统似了是不是打完这次活动就该选举了
+
+*****
+
+####  kyonko15  
+##### 6432#       发表于 2025-5-30 17:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67867125&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2025-5-30 16:28</a>
+这次dss还有个很乐的地方我看dc上都在说，就是飞鹰风暴这个东西，实际上还是和飞鹰扫射一样，会沿着街道扫 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">说真的已经被tk麻了，尤其是在小巷子里你正在打无票者，突然一梭子过来完美覆盖小巷
+
