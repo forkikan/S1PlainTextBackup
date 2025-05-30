@@ -5774,3 +5774,39 @@ this is managed democracy
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  qwased  
+##### 6469#       发表于 2025-5-30 23:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67868629&amp;ptid=2170852" target="_blank">xinfengj 发表于 2025-5-30 23:20</a>
+
+就是投票选总统吧，选谁就有谁的buff
+
+不过现在都是解包泄露数据就是了</blockquote>
+战报里面写的已经当选了啊
+
+*****
+
+####  Adrenaline!!!  
+##### 6470#       发表于 2025-5-30 23:27
+
+答案是管理式民主已经帮大家投好票了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  风萧飒  
+##### 6471#       发表于 2025-5-30 23:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67868650&amp;ptid=2170852" target="_blank">Adrenaline!!! 发表于 2025-5-30 23:27</a>
+答案是管理式民主已经帮大家投好票了
+
+—— 来自 鹅球 v3.4.98</blockquote>
+确实是帮你选了，设定里管理式民主选举就是让你做问卷，再通过算法帮你直接做出选择<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过我还以为会发布三个任务让潜兵去做，最后根据任务完成度决定总统呢
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
