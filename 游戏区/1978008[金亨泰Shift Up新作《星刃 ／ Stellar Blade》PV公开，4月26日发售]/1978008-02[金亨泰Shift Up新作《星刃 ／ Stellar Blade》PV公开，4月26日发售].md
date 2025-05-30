@@ -578,3 +578,11 @@ demo要是和ps5同款那我怎么觉得会有一波退款潮啊
 初期pv脸是这个？感觉没现在的好看啊</blockquote>
 [https://stage1st.com/2b/thread-1821906-1-1.html](https://stage1st.com/2b/thread-1821906-1-1.html)
 
+
+*****
+
+####  霧砂  
+##### 2072#       发表于 2025-5-30 16:41
+
+比起合体，男主更像是被炼化吸收吧<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
