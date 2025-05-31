@@ -1074,3 +1074,32 @@ demo玩着好不舒服....前几十分钟动不动就是爆炸或者新怪出场
 感觉可以，找代购265买个豪华版，就是那个手游码有没有人要啊？</blockquote>
 265的豪华版有点危险吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lighttt  
+##### 2123#       发表于 2025-5-31 17:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67870269&amp;ptid=1978008" target="_blank">寂长无星夜 发表于 2025-5-31 17:31</a>
+
+265的豪华版有点危险吧</blockquote>
+也还好把，前段时间比例好，能到7折
+
+*****
+
+####  monolithsoft  
+##### 2124#       发表于 2025-5-31 17:42
+
+游戏默认是不开自动拾取
+
+试了半天也不知道怎么手动拾取
+
+是试玩版不让拾取还是根本没有手动拾取啊<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  heseran  
+##### 2125#       发表于 2025-5-31 17:42
+
+妮姬和剑星真是一个公司做的？这优化程度简直天壤之别啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">手游组能不能学习下啊。
+
