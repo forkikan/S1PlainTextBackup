@@ -32,3 +32,13 @@
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Totokei  
+##### 1916#       发表于 2025-5-31 18:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67870257&amp;ptid=2027972" target="_blank">洛克萨斯 发表于 2025-5-31 17:21</a>
+su7u大战泰坎tgt和model3p还有艾尼氪5n的日子快到了吧</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">taycan和model3都是老款完全不是对手
+
