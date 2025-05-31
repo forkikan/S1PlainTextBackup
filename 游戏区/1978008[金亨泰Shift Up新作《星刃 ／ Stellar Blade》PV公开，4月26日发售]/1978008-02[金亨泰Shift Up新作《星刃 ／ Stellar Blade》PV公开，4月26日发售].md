@@ -727,3 +727,19 @@ demo差不多一个半小时打完，停车场那个boss落雷有点难躲，嗑
 
 另外主界面这侧面有点幻视王俊凯了，绷不住
 
+
+*****
+
+####  医生狼多  
+##### 2088#       发表于 2025-5-31 11:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67869340&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-5-31 10:18</a>
+通了，boas挑战也过了
+
+还挺好玩的
+
+有点难度但是又不是特别难，非常适合我这种手残党</blockquote>
+后面还有紫光
+都有能对应处理的方式，向前闪向后闪之类的
+不过中后期技能循环上来就不用管什么光，霸体怼回去就是了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
