@@ -5107,3 +5107,15 @@ PS5昨晚还能匹配到人，今天完全匹配不到任何人，固定队友�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  budong  
+##### 536#       发表于 2025-5-31 18:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67870364&amp;ptid=2210352" target="_blank">我就再氪一单 发表于 2025-5-31 18:09</a>
+升级石和四格背包，让我一瞬间以为自己在玩生化危机。
+今天一整天有关升级武器的情况无非以下几种：
+1.有石 ...</blockquote>
+打火山吧，打完土龙能无条件把武器升级成传说品质
+
