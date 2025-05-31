@@ -7185,3 +7185,18 @@ X 上的 きさらぎじゅん＠YZF-R6：“何かを手に入れるために�
 
 塞拉不算弱吧，起码一年战争作品群里只有主角才能同框的合照，她可是挤进去了。
 
+
+*****
+
+####  ftyaid  
+##### 16880#       发表于 2025-5-31 13:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67869741&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-5-31 13:01</a>
+
+塞拉不算弱吧，起码一年战争作品群里只有主角才能同框的合照，她可是挤进去了。
+
+ ...</blockquote>
+克莉斯都在这，真强吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+（虽然NT1也不是OT能开的就是了）
+
