@@ -751,3 +751,11 @@ demo差不多一个半小时打完，停车场那个boss落雷有点难躲，嗑
 
 这个试玩有什么奖励吗（steam） 没有我就不下了 直接等正式版<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bm7号  
+##### 2090#       发表于 2025-5-31 11:39
+
+眉毛颜色不能变，浅发色的时候太村儿了，等mod改。
+

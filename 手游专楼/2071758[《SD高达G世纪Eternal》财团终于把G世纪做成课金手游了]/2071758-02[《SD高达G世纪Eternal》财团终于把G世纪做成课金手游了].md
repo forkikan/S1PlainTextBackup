@@ -2763,3 +2763,11 @@ yysy,这pvp的en消耗翻3倍不过分吧
 
 满级核弹7200攻击<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xiongxingyu  
+##### 1727#       发表于 2025-5-31 11:44
+
+目前看来反而是红扎比较强，对比同时常驻的ez8，大招同款特效，面板伤害少500不到，射程多一格，机体移动多一格而且在宇宙不会断腿。被动二要求血全满，但是效果翻倍。GTO鸭的技能也比天田士郎好点，作为一年战争tag的射击输出机，ez8可以说是被完爆了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
