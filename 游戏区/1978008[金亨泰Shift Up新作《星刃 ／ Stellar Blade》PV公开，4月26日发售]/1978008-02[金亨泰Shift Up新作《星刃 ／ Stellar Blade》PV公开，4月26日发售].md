@@ -1296,3 +1296,14 @@ demo玩着好不舒服....前几十分钟动不动就是爆炸或者新怪出场
 弹 ...</blockquote>
 四个颜色光，你懒得记的话个都可以回避，正确应对可以给点输出时间
 
+
+*****
+
+####  ATRO  
+##### 2143#       发表于 2025-5-31 21:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67870763&amp;ptid=1978008" target="_blank">盾墙 发表于 2025-5-31 20:36</a>
+
+完美闪避后的长按轻攻击很难按出来，是有什么我不知道的机制吗？完美格挡后的反击倒是很容易按出来 ...</blockquote>
+红光后一直按住方块，要按很久，人就飞出去了
+

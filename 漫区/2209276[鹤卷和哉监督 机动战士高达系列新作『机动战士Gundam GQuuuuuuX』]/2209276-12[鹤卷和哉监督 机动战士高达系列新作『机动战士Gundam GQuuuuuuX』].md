@@ -7339,3 +7339,14 @@ SEED早期也說抗BEAM實體盾本身就不耐用，PS裝甲又會做成金屬�
 
 之前忘了在哪看到说马克贝是吉翁国宝帮给我笑吐了
 
+
+*****
+
+####  大十字紅朔  
+##### 16891#       发表于 2025-5-31 21:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67870351&amp;ptid=2209276" target="_blank">参考消息 发表于 2025-5-31 18:02</a>
+
+马克杯那壶不是说也是新的么，uc0079按公历算是2123年，到时候谁的新还不好说呢。 ...</blockquote>
+其实只是有这种说法，官方设定没说是真的假的
+
