@@ -706,3 +706,14 @@ demo差不多一个半小时打完，停车场那个boss落雷有点难躲，嗑
 
 之后解锁挑战模式看到几件新衣服情绪价值拉满，怎么还不发售啊，小半个月好难熬
 
+
+*****
+
+####  Andariel  
+##### 2086#       发表于 2025-5-31 10:18
+
+通了，boas挑战也过了
+还挺好玩的
+有点难度但是又不是特别难，非常适合我这种手残党<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+就是探索没有地图真的难顶
+
