@@ -839,3 +839,11 @@ demo通关后的boss挑战模式里面就可以射击了，可以去体验一下
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 2099#       发表于 2025-5-31 12:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">3070是战不动了
+
