@@ -2771,3 +2771,25 @@ yysy,这pvp的en消耗翻3倍不过分吧
 
 目前看来反而是红扎比较强，对比同时常驻的ez8，大招同款特效，面板伤害少500不到，射程多一格，机体移动多一格而且在宇宙不会断腿。被动二要求血全满，但是效果翻倍。GTO鸭的技能也比天田士郎好点，作为一年战争tag的射击输出机，ez8可以说是被完爆了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jackyhuang  
+##### 1728#       发表于 2025-5-31 11:52
+
+但是好像GP02A面板太垃圾<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  chivalry  
+##### 1729#       发表于 2025-5-31 11:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67869564&amp;ptid=2071758" target="_blank">jackyhuang 发表于 2025-5-31 11:52</a>
+但是好像GP02A面板太垃圾
+
+—— 来自 Sony XQ-AT72, Android 12, 鹅球 v3.5.99</blockquote>
+面板垃圾，核弹只有一次，唯一有用的反而是卡多<img src="https://static.stage1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">
+

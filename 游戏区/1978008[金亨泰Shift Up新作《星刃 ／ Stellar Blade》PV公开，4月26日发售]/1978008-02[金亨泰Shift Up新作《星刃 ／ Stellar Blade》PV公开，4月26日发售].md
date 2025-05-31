@@ -759,3 +759,24 @@ demo差不多一个半小时打完，停车场那个boss落雷有点难躲，嗑
 
 眉毛颜色不能变，浅发色的时候太村儿了，等mod改。
 
+
+*****
+
+####  lighttt  
+##### 2091#       发表于 2025-5-31 11:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67869497&amp;ptid=1978008" target="_blank">alucardcz 发表于 2025-5-31 11:19</a>
+
+这个试玩有什么奖励吗（steam） 没有我就不下了 直接等正式版</blockquote>
+就继承下打第一个小BOSS进度
+
+*****
+
+####  alucardcz  
+##### 2092#       发表于 2025-5-31 11:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67869554&amp;ptid=1978008" target="_blank">lighttt 发表于 2025-5-31 11:48</a>
+
+就继承下打第一个小BOSS进度</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">谢了 那不下了 直接等正式版了
+
