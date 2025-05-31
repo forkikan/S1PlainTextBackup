@@ -1398,3 +1398,14 @@ demo打完，感觉体验真不如无限机兵，手感非常僵硬，受击和�
 
 看你们说优化挺好，我试了一下1080p 4060开不了高，只有中才能维持60帧
 
+
+*****
+
+####  qwased  
+##### 2153#       发表于 2025-6-1 01:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67871341&amp;ptid=1978008" target="_blank">盐星 发表于 2025-5-31 23:00</a>
+
+优化很强但是为啥拉到差不多满头发还是有纱布质感虚虚的</blockquote>
+要开DLAA
+

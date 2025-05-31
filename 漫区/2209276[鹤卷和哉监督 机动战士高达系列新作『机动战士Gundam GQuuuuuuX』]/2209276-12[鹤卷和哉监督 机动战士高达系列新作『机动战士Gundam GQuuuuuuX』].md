@@ -7419,3 +7419,27 @@ SEED早期也說抗BEAM實體盾本身就不耐用，PS裝甲又會做成金屬�
 就只是說紋章掉色而已</blockquote>
 讲道理机体完全不掉漆盾反而掉了，我觉得只是没事就拿来擦地板搞得，还不如说高达兴趣之一是滑雪（）
 
+
+*****
+
+####  ryanghj  
+##### 16895#       发表于 2025-6-1 01:42
+
+这片真的是各种前后呼应
+
+<img src="https://img.stage1st.com/forum/202506/01/014150m542im20hfz1h42m.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (202.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-1 01:41 上传
+
+<img src="https://img.stage1st.com/forum/202506/01/014203m1126o1zbb1og41t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (187.55 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-1 01:42 上传
+
