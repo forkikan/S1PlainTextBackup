@@ -5004,3 +5004,41 @@ https://www.bilibili.com/video/BV1md7Gz5E4s
 
 我倒是认同主线是“人类社会和一个人的诞生”这个话题的，如果真能按照这个讲完故事，可以直接进殿堂了。
 
+
+*****
+
+####  TOYSTORY  
+##### 438#       发表于 2025-5-31 13:25
+
+ 本帖最后由 TOYSTORY 于 2025-5-31 13:27 编辑 
+
+<img src="https://img.stage1st.com/forum/202505/31/132550xz2m46vql522g40b.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (79.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-31 13:25 上传
+
+<img src="https://img.stage1st.com/forum/202505/31/132550x8glgsx88og2lsg6.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (133.05 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-31 13:25 上传
+
+<img src="https://img.stage1st.com/forum/202505/31/132551sad4bzekgakjyze5.jpg" referrerpolicy="no-referrer">
+
+<strong>3.jpg</strong> (118.79 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-31 13:25 上传
+
+看到个考察，下话预告里八千代恢复人形，是因为狸猫奶奶将死的时候，写信把变身辅助装置托付给她<img src="https://static.stage1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+这样预告里才会同时存在战车形态和恢复人形的八千代，奶奶的葬礼和棚子的婚礼（？）可能也是同时举行的
+
+不过这个装置只是辅助用的，就算没有狸猫一家也能变身，但只有15分钟。八千代作为机器人能不能用也是个问题
+
