@@ -1048,3 +1048,29 @@ demo玩着好不舒服....前几十分钟动不动就是爆炸或者新怪出场
 
 这个中配是什么情况啊，迅驰的声优是中国人吗？怎么听着这么怪啊
 
+
+*****
+
+####  johnkamsar  
+##### 2120#       发表于 2025-5-31 17:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">试着修改下，改钱没问题，但是改技能点不知道是选择的字节有问题还是怎么打，改了几次直接闪退，不会技能点上挂了反作弊吧？经验理论上能改，但是模糊搜寻要花不少时间搜
+
+
+*****
+
+####  HellMaster  
+##### 2121#       发表于 2025-5-31 17:27
+
+这游戏修改一点卵用都没有，技能是锁阶段的，一部分二周目才开。
+
+
+*****
+
+####  寂长无星夜  
+##### 2122#       发表于 2025-5-31 17:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67870036&amp;ptid=1978008" target="_blank">Nosgoth 发表于 2025-5-31 15:37</a>
+感觉可以，找代购265买个豪华版，就是那个手游码有没有人要啊？</blockquote>
+265的豪华版有点危险吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
