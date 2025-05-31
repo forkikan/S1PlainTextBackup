@@ -743,3 +743,11 @@ demo差不多一个半小时打完，停车场那个boss落雷有点难躲，嗑
 都有能对应处理的方式，向前闪向后闪之类的
 不过中后期技能循环上来就不用管什么光，霸体怼回去就是了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 2089#       发表于 2025-5-31 11:19
+
+这个试玩有什么奖励吗（steam） 没有我就不下了 直接等正式版<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
