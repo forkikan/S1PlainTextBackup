@@ -54,3 +54,20 @@
 
 去活动试玩了，分支就是蓄力后就能打出大回环了，但普通砍只有平砍也没下A派生啥的了。
 
+
+*****
+
+####  madcow  
+##### 1469#       发表于 2025-5-31 19:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">五十票出了个FA阿唯，这个刀派生我玩不明白（（
+
+*****
+
+####  冰风血羽  
+##### 1470#       发表于 2025-5-31 19:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">啥都没抽到
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
