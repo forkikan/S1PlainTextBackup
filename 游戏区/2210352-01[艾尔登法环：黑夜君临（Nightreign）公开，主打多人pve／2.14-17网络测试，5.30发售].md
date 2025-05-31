@@ -5002,3 +5002,13 @@ PS5昨晚还能匹配到人，今天完全匹配不到任何人，固定队友�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  pgain2004  
+##### 525#       发表于 2025-5-31 09:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67868936&amp;ptid=2210352" target="_blank">usodakedo 发表于 2025-5-31 01:52</a>
+好快，solo过的吗？夜之王打起来咋样？之前看泄露视频感觉有点太滥用冲击力了，虽然大概率是因为原本考虑 ...</blockquote>
+大哥是MVP，我就是个躺赢狗
+
