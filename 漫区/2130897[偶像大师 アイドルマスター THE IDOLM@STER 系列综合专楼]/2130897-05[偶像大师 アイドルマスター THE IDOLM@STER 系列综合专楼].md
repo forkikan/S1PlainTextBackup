@@ -587,3 +587,13 @@ Spotlight Star Day 2 Setlist (於17:01(UTC+9)開演)：
 
 2025-5-30 23:56 上传
 
+
+*****
+
+####  kykawaiii  
+##### 7009#       发表于 2025-5-31 16:46
+
+这次中华炮还加大力度了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 14, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
