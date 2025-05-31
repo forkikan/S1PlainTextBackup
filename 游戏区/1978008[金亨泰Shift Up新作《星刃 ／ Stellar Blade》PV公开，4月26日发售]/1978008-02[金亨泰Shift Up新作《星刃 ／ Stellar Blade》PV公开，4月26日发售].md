@@ -780,3 +780,44 @@ demo差不多一个半小时打完，停车场那个boss落雷有点难躲，嗑
 就继承下打第一个小BOSS进度</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">谢了 那不下了 直接等正式版了
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 2093#       发表于 2025-5-31 11:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67868985&amp;ptid=1978008" target="_blank">laosai13 发表于 2025-5-31 02:57</a>
+还在玩ps的demo，话说这个闪避弹反手感好怪，之后有提升吗？</blockquote>
+后面有装备提升精防精闪容错时间的
+
+*****
+
+####  oyss  
+##### 2094#       发表于 2025-5-31 12:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67869340&amp;ptid=1978008" target="_blank">Andariel 发表于 2025-5-31 10:18</a>
+
+通了，boas挑战也过了
+
+还挺好玩的
+
+有点难度但是又不是特别难，非常适合我这种手残党</blockquote>
+闪光就是只狼的危,一共有三种颜色三套解法
+
+
+*****
+
+####  Chenlh  
+##### 2095#       发表于 2025-5-31 12:03
+
+话说这游戏ps5版自适应扳机表现怎么样，我用ps5的手柄接pc，好像没感觉到有自适应扳机，但设置里有这个选项
+
+*****
+
+####  袄_偶滴小乔  
+##### 2096#       发表于 2025-5-31 12:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67869597&amp;ptid=1978008" target="_blank">Chenlh 发表于 2025-5-31 12:03</a>
+话说这游戏ps5版自适应扳机表现怎么样，我用ps5的手柄接pc，好像没感觉到有自适应扳机，但设置里有这个选项 ...</blockquote>
+钓鱼和射击用的，射击到xion主城才解锁
+
