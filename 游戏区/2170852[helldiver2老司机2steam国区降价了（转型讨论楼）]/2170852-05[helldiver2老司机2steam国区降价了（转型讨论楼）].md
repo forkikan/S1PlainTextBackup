@@ -5967,3 +5967,13 @@ this is managed democracy
 
 刷超级币去无水平坦星球n1找有高等级玩家的速刷队，基本一小时上下一个债卷，债卷一般会返还300超级币，所以之后刷够下一个债卷的时间还能进一步缩减
 
+
+*****
+
+####  IWS2000  
+##### 6486#       发表于 2025-5-31 23:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67869918&amp;ptid=2170852" target="_blank">FLZB 发表于 2025-5-31 14:32</a>
+刷超级币去无水平坦星球n1找有高等级玩家的速刷队，基本一小时上下一个债卷，债卷一般会返还300超级币，所 ...</blockquote>
+虽然刷起来很快，但一般有需要再去刷，超过一千就去n7逛街了
+
