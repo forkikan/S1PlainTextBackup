@@ -829,3 +829,13 @@ demo差不多一个半小时打完，停车场那个boss落雷有点难躲，嗑
 
 demo通关后的boss挑战模式里面就可以射击了，可以去体验一下
 
+
+*****
+
+####  l⑨th_Knight  
+##### 2098#       发表于 2025-5-31 12:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">女主现在偏向写实的人设更像是整个韩国游戏界审美的变化吧，想想近几年的3d网游全是更偏欧美写实系了，而2d则更偏日系，以前那种独特的美日杂糅的棒系人设都很难看到了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

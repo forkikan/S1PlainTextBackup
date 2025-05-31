@@ -5892,3 +5892,15 @@ this is managed democracy
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  风萧飒  
+##### 6479#       发表于 2025-5-31 12:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67869250&amp;ptid=2170852" target="_blank">faithlifer 发表于 2025-5-31 09:47</a>
+萌新应该买个债券当启动资金吗？现在主要去大虫子，漏油能推荐哪个债券合适些 ...</blockquote>
+一律优先民主爆破。另外解锁完民主爆破把免费债券最后一页的焦土也解锁了，这把枪是三线t0的强度
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
