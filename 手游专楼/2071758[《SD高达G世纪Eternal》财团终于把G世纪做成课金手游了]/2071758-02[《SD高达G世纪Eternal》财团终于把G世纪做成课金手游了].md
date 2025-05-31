@@ -2835,3 +2835,11 @@ GP02感觉没啥用，满破9K攻打啥输出，EX没想到带了狙还能短成
 
 坚固这几台组不齐好的队伍，GP02的属性撑不起一发核弹扭转战局，结论是安心跳
 
+
+*****
+
+####  dio999  
+##### 1735#       发表于 2025-5-31 12:59
+
+果然面板下毒了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
