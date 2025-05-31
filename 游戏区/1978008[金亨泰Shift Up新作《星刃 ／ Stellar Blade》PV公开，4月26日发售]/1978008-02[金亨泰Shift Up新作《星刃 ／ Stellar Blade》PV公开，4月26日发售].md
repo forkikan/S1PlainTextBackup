@@ -665,3 +665,32 @@ PS5可以扔了，5070ti本子4K拉满纵享丝滑<img src="https://static.stage
 
 —— 来自 samsung SM-S9280, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  纱布光环  
+##### 2082#       发表于 2025-5-31 08:35
+
+优化很不错，5070ti不开帧生成4k最高画质都能稳160帧<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  宛若青空  
+##### 2083#       发表于 2025-5-31 08:37
+
+看来剑星无论是主机还是PC都优化很好啊
+
+
+*****
+
+####  ATRO  
+##### 2084#       发表于 2025-5-31 08:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67869035&amp;ptid=1978008" target="_blank">laputah 发表于 2025-5-31 06:08</a>
+这...差2b太多了啊 各个方面</blockquote>
+画面还是碾压的，手感上主要前期给你个残疾人，格挡闪避的反应时间加长以及技能派生都要技能点解锁，要打几关才能变正常人，所以初期得当黑魂玩。
+
+动作编排不如2B优美顺滑确实
+
+—— 来自 samsung SM-S9280, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
