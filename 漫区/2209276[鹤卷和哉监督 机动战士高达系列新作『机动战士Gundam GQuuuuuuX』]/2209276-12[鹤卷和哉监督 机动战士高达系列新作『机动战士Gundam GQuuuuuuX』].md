@@ -7281,3 +7281,19 @@ SEED早期也說抗BEAM實體盾本身就不耐用，PS裝甲又會做成金屬�
 
 所以盾老化導致耐久不足也不出奇
 
+
+*****
+
+####  我聞如是  
+##### 16887#       发表于 2025-5-31 15:24
+
+就只是說紋章掉色而已
+
+<img src="https://img.stage1st.com/forum/202505/31/152446qjx9dwfrdf99dr7f.png" referrerpolicy="no-referrer">
+
+<strong>1000029084.png</strong> (152.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-31 15:24 上传
+
