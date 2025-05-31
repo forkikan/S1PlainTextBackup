@@ -1030,3 +1030,13 @@ demo玩着好不舒服....前几十分钟动不动就是爆炸或者新怪出场
 感觉可以，找代购265买个豪华版，就是那个手游码有没有人要啊？</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">送我，我玩nikke
 
+
+*****
+
+####  leommoo  
+##### 2118#       发表于 2025-5-31 16:23
+
+优化真好，买了，nikkie我也一直在玩，boss挑战可以体验一下换衣服<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
