@@ -1214,3 +1214,16 @@ demo玩着好不舒服....前几十分钟动不动就是爆炸或者新怪出场
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  寺胖  
+##### 2136#       发表于 2025-5-31 19:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67870261&amp;ptid=1978008" target="_blank">johnkamsar 发表于 2025-5-31 17:25</a>
+
+试着修改下，改钱没问题，但是改技能点不知道是选择的字节有问题还是怎么打，改了几次直接闪退，不会技能点 ...</blockquote>
+我躺平等风灵月影开HP不减玩
+
+试着录了50分钟HDR视频，结果死得不要不要的，丢人
+
