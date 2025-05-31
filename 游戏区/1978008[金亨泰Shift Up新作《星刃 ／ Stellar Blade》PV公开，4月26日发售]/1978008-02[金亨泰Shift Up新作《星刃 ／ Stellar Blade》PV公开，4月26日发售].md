@@ -1459,3 +1459,11 @@ demo打完，感觉体验真不如无限机兵，手感非常僵硬，受击和�
 是试玩版不让拾取还是根本没有手动拾取啊 ...</blockquote>
 手柄的话按rt捡东西<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  acropolis  
+##### 2157#       发表于 2025-6-1 05:40
+
+唯一问题是这个身材这个脸它讲什么故事我都很难认真听
+
