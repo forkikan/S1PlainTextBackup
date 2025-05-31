@@ -5191,3 +5191,15 @@ Solo能力非常强，技能朴实无华（简单无脑）可以做到0依赖队
 
 如果有人死了这把基本就没了，这时候感觉又缺个投票按钮了，直接投了还更省时间。
 
+
+*****
+
+####  budong  
+##### 544#       发表于 2025-5-31 21:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67870963&amp;ptid=2210352" target="_blank">serj005 发表于 2025-5-31 21:35</a>
+死亡掉级是哪个天才想出来的，掉魂的惩罚已经够重了还掉一个等级。
+
+法环本体都只会掉魂，感觉这个掉级的操 ...</blockquote>
+可以捡回来
+
