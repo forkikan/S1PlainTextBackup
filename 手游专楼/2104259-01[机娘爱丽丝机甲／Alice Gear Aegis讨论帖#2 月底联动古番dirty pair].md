@@ -71,3 +71,24 @@
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  杂灰  
+##### 1471#       发表于 2025-5-31 19:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67869482&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2025-5-31 11:11</a>
+
+原版未罗电锯就是打出2次下A后再按近战就能出高伤的大回环，不用管有没打中人。最短时间就是砍1刀下A再砍1 ...</blockquote>
+原版就是有时候是有时候是有特效移动快的回旋，有时是移动慢的失败回旋，前置动作缺乏特效提示搞不清这判定机制，分支实质优化
+
+*****
+
+####  杂灰  
+##### 1472#       发表于 2025-5-31 20:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67870521&amp;ptid=2104259" target="_blank">madcow 发表于 2025-5-31 19:12</a>
+
+五十票出了个FA阿唯，这个刀派生我玩不明白（（</blockquote>
+没什么东西玩，平砍蓄能，下a后会进入一套追击性能不错的连续突刺动作里，在这个阶段再下a可以打出一个大二连砍，如果这时候蓄能满了会强化这个大二连
+
