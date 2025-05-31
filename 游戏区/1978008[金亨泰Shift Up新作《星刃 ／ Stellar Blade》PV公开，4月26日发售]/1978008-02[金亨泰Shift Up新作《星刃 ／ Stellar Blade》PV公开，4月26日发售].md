@@ -1444,3 +1444,18 @@ demo打完，感觉体验真不如无限机兵，手感非常僵硬，受击和�
 
 其中技能build成型后可以赖死boss，轻度玩家也能保底通关。
 
+
+*****
+
+####  tmmd  
+##### 2156#       发表于 2025-6-1 04:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67870290&amp;ptid=1978008" target="_blank">monolithsoft 发表于 2025-5-31 17:42</a>
+
+游戏默认是不开自动拾取
+
+试了半天也不知道怎么手动拾取
+
+是试玩版不让拾取还是根本没有手动拾取啊 ...</blockquote>
+手柄的话按rt捡东西<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
