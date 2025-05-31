@@ -2933,3 +2933,11 @@ boss关有的只是伤害加成，没有掉落加成，支援机跟高突攻击�
 
 看来这次3000钻危了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lighttt  
+##### 1746#       发表于 2025-5-31 18:50
+
+大师赛赛季奖励点进一次大师赛页面能拿到，虽然是黑的但是能点，看NGA说能点，真服了，这都不提示<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+

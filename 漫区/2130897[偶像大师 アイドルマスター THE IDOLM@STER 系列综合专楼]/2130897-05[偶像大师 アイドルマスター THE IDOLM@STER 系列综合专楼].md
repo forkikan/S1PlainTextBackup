@@ -605,3 +605,35 @@ Spotlight Star Day 2 Setlist (於17:01(UTC+9)開演)：
 
 竟然还有新歌
 
+
+*****
+
+####  wfhtony  
+##### 7011#       发表于 2025-5-31 18:53
+
+ 本帖最后由 wfhtony 于 2025-5-31 18:57 编辑 
+
+Day 1 業務聯絡環節：
+<img src="https://tc2.wfhtony.space/images/2025/05/31/505d7c677f6293b9ebb7732665a67df1.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2025/05/31/c0a64d2238c3818227934b8df8b5299c.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2025/05/31/cb1444368a79bb53a57edd6a7393f7ef.jpg" referrerpolicy="no-referrer">
+
+還有復仇公演的欸。
+
+7/4（週五），[新宿ReNY](https://ruido.org/reny/index.html)，只開一天（晝夜兩場）。
+
+<img src="https://tc2.wfhtony.space/images/2025/05/31/e9d669654f9270adfe422305e2e6762b.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2025/05/31/0082789da070ce46f4e98d28c438a3af.jpg" referrerpolicy="no-referrer">
+
+<img src="https://tc2.wfhtony.space/images/2025/05/31/822ffca91de3dd866ca82cf435d8ea16.jpg" referrerpolicy="no-referrer">
+
+月票升級。
+
+=====
+
+生日曲第二輪，啓動？
+<img src="https://tc2.wfhtony.space/images/2025/05/31/bbbe311b6fb9df9b2d43ff75411afb79.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2025/05/31/714518527ecc59957c636302b4fda5d3.jpg" referrerpolicy="no-referrer">
+
+具體[將在6/3公開](https://www.youtube.com/watch?v=G_Hf9yBdPfw)（SOLO1的重新演繹？）。
+

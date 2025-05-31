@@ -5127,3 +5127,13 @@ PS5昨晚还能匹配到人，今天完全匹配不到任何人，固定队友�
 
 目前看这作算不上边骂边买，实为消耗法环的IP换来的首发销量
 
+
+*****
+
+####  budong  
+##### 538#       发表于 2025-5-31 18:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67870420&amp;ptid=2210352" target="_blank">simonroam 发表于 2025-5-31 18:32</a>
+目前看这作算不上边骂边买，实为消耗法环的IP换来的首发销量</blockquote>
+也就是国内要求严格，欧美那种啥都吃得下的认为还是可以的
+

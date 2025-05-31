@@ -169,3 +169,12 @@
 
 居然是包饺子结局，人死的最少得一次<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ヒトニナル  
+##### 1139#       发表于 2025-5-31 18:53
+
+这章从宝子哥的设定上来说就基本死不了人，稍微死多点刚开机的宝玉马上就会恢复人机状态<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有就是H巢的生命保险的确有点东西
+不过鸿园八成是要陨落的，炼狱篇（如果能做到的话<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">）鸿园可能就没了
+
