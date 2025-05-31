@@ -993,3 +993,23 @@ demo玩着好不舒服....前几十分钟动不动就是爆炸或者新怪出场
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这优化有点太好了感觉显卡白买了虽然不是只为了 这个买的显卡
 
+
+*****
+
+####  梦诗歌雪  
+##### 2114#       发表于 2025-5-31 15:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67869806&amp;ptid=1978008" target="_blank">水边井 发表于 2025-5-31 13:36</a>
+
+试玩那几个单向门都打不开吗？拿了密码发现回不去了</blockquote>
+在主线最后一个篇章之前都可以传送回之前的地图拿错过的东西，做支线也要求你反复回到之前的地图。到了不能返回的剧情节点NPC会有提示
+
+不过第一章没地图，哪怕后面解锁地图功能了回到这里还是没有地图，所以后面回来做支线会比较难受
+
+*****
+
+####  Nosgoth  
+##### 2115#       发表于 2025-5-31 15:37
+
+感觉可以，找代购265买个豪华版，就是那个手游码有没有人要啊？
+
