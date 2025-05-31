@@ -2793,3 +2793,11 @@ yysy,这pvp的en消耗翻3倍不过分吧
 —— 来自 Sony XQ-AT72, Android 12, 鹅球 v3.5.99</blockquote>
 面板垃圾，核弹只有一次，唯一有用的反而是卡多<img src="https://static.stage1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  夜之光  
+##### 1730#       发表于 2025-5-31 12:18
+
+GP02感觉没啥用，满破9K攻打啥输出，EX没想到带了狙还能短成这样。常驻鸭子就挺好，浑身一发男带热血必闪，就是手短了点少了一格。
+
