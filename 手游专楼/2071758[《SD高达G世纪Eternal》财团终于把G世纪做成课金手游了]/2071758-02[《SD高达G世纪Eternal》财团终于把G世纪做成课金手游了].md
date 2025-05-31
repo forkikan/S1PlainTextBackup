@@ -2809,3 +2809,14 @@ GP02感觉没啥用，满破9K攻打啥输出，EX没想到带了狙还能短成
 
 这次普通boss是不是没有ex关啊
 
+
+*****
+
+####  二阶堂真琉  
+##### 1732#       发表于 2025-5-31 12:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67869660&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-5-31 12:29</a>
+
+这次普通boss是不是没有ex关啊</blockquote>
+有的有的，乔巴姆GP01
+
