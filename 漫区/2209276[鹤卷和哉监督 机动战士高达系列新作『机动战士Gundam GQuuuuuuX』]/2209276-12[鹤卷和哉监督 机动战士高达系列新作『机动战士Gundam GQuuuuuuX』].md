@@ -7234,3 +7234,23 @@ bit好歹也叫塞可缪兵器，总不能是风灵把姐姐塞进去那种自�
 
 话说红高达的盾在和黑色二连星打的时候也被打烂了吧，真的只剩两根筷子了
 
+
+*****
+
+####  大十字紅朔  
+##### 16885#       发表于 2025-5-31 14:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67867648&amp;ptid=2209276" target="_blank">参考消息 发表于 2025-5-30 18:51</a>
+
+看了第八话，买了个好东西</blockquote>
+
+<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">新的，纯新的
+
+<img src="https://img.stage1st.com/forum/202505/31/140900yxxst4sqquslgss5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (262.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-31 14:09 上传
+

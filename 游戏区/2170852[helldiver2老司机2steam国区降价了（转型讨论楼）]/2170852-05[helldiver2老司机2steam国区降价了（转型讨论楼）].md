@@ -5938,3 +5938,17 @@ this is managed democracy
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  ParadiseMartyr  
+##### 6483#       发表于 2025-5-31 14:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67869861&amp;ptid=2170852" target="_blank">demongear 发表于 2025-5-31 14:05</a>
+前几天跟朋友研究过，大概40分钟可以刷1000的
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+无所谓了，自己一个人玩。也懒得刷，感觉纯垃圾时间
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
