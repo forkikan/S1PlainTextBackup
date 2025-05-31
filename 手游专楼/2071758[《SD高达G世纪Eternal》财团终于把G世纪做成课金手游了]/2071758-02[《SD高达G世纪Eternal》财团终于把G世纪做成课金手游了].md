@@ -2907,3 +2907,21 @@ GP02感觉没啥用，满破9K攻打啥输出，EX没想到带了狙还能短成
 ..........ex关强行用0079的机体好难打啊，其他世界观又没加成</blockquote>
 boss关有的只是伤害加成，没有掉落加成，支援机跟高突攻击机还是正常用
 
+
+*****
+
+####  岸波白野  
+##### 1743#       发表于 2025-5-31 17:20
+
+卡池塞了SSR乔巴姆GP01倒有点意思，虽然也是战斗动画除了那个大头cutin之外啥都没有的东西，和之前活动那个奥博隆感觉挺像的，UR再出天鹅妖刀那样的外传机不知道等到什么时候了
+
+*****
+
+####  洛克萨斯  
+##### 1744#       发表于 2025-5-31 17:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67870223&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-5-31 17:04</a>
+
+boss关有的只是伤害加成，没有掉落加成，支援机跟高突攻击机还是正常用</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我以为那个加成很高，硬着头皮打过了，换了一台sr自由刚好过
+
