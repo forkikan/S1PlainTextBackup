@@ -1103,3 +1103,30 @@ demo玩着好不舒服....前几十分钟动不动就是爆炸或者新怪出场
 
 妮姬和剑星真是一个公司做的？这优化程度简直天壤之别啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">手游组能不能学习下啊。
 
+
+*****
+
+####  SaitoYuki  
+##### 2126#       发表于 2025-5-31 17:46
+
+挺好的，试玩打通直接买了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  ATRO  
+##### 2127#       发表于 2025-5-31 17:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67870290&amp;ptid=1978008" target="_blank">monolithsoft 发表于 2025-5-31 17:42</a>
+游戏默认是不开自动拾取
+
+试了半天也不知道怎么手动拾取
+
+是试玩版不让拾取还是根本没有手动拾取啊 ...</blockquote>
+系统设置里有拾取开关
+手动拾取好像是点R2
+
+—— 来自 samsung SM-S9280, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
