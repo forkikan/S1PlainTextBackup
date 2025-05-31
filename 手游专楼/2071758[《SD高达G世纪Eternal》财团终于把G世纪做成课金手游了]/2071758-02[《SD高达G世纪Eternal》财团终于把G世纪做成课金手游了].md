@@ -2755,3 +2755,11 @@ yysy,这pvp的en消耗翻3倍不过分吧
 
 <img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">一想到对面人手一台满破核弹马上就萎了
 
+
+*****
+
+####  dio999  
+##### 1726#       发表于 2025-5-31 11:35
+
+满级核弹7200攻击<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
