@@ -5012,3 +5012,11 @@ PS5昨晚还能匹配到人，今天完全匹配不到任何人，固定队友�
 好快，solo过的吗？夜之王打起来咋样？之前看泄露视频感觉有点太滥用冲击力了，虽然大概率是因为原本考虑 ...</blockquote>
 大哥是MVP，我就是个躺赢狗
 
+
+*****
+
+####  blz436  
+##### 526#       发表于 2025-5-31 09:40
+
+飘了进solo然后上来被中央城堡据点扔壶山妖3角互防教育了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
