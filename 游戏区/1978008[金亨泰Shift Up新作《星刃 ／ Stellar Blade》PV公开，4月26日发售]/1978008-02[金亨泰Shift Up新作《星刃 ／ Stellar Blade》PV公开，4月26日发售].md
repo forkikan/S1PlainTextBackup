@@ -892,3 +892,14 @@ demo通关后的boss挑战模式里面就可以射击了，可以去体验一下
 
 图像设置那里显存差一点点,直接玩会有问题么?
 
+
+*****
+
+####  heseran  
+##### 2105#       发表于 2025-5-31 13:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67869830&amp;ptid=1978008" target="_blank">oyss 发表于 2025-5-31 13:48</a>
+
+图像设置那里显存差一点点,直接玩会有问题么?</blockquote>
+差一点点应该没事吧，调低点设置呗
+
