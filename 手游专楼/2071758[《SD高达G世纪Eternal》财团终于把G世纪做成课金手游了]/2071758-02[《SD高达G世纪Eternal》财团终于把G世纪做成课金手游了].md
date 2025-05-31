@@ -2957,3 +2957,15 @@ boss关有的只是伤害加成，没有掉落加成，支援机跟高突攻击�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">这次的隐藏关可以扫荡了吗
 
+
+*****
+
+####  blue321  
+##### 1749#       发表于 2025-5-31 19:51
+
+ 本帖最后由 blue321 于 2025-5-31 19:53 编辑 
+
+什么时候才能隐藏关扫荡啊，每次都在那耗时间真难顶<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+初见还一堆援防在那里硬耗你
+
