@@ -42,3 +42,24 @@
 su7u大战泰坎tgt和model3p还有艾尼氪5n的日子快到了吧</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">taycan和model3都是老款完全不是对手
 
+
+*****
+
+####  洛克萨斯  
+##### 1917#       发表于 2025-5-31 22:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67870297&amp;ptid=2027972" target="_blank">a2042312 发表于 2025-5-31 17:45</a>
+
+加了SU7国行审批会不会容易点</blockquote>
+gt7要全程连网玩的，应该不行吧
+
+*****
+
+####  洛克萨斯  
+##### 1918#       发表于 2025-5-31 22:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67870413&amp;ptid=2027972" target="_blank">Totokei 发表于 2025-5-31 18:29</a>
+
+taycan和model3都是老款完全不是对手</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不是正好一起更新，最好把rimac也一起拉进来搞电车大战
+

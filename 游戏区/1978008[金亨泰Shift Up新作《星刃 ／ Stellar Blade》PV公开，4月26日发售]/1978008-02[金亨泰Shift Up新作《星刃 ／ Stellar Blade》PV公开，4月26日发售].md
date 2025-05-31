@@ -1358,3 +1358,35 @@ demo打完，感觉体验真不如无限机兵，手感非常僵硬，受击和�
 
 剑星的4K画质真顶啊，5600居然还差不多玩，优化不错<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Andariel  
+##### 2149#       发表于 2025-5-31 22:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">好玩，又打了几遍那个boss挑战
+这个boss挑战进去看看技能很多都加满了
+所以角色性能还是有保障的
+觉得主线节奏忒慢可以玩这个试试
+
+*****
+
+####  ArthurDent  
+##### 2150#       发表于 2025-5-31 22:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67870843&amp;ptid=1978008" target="_blank">mirari 发表于 2025-5-31 20:57</a>
+玩了1小时，感觉比艾尔登法环好玩。
+
+有尼尔的色气和场景，魂系的拐角蹲、单向门与休息怪重生，还有神海与 ...</blockquote>
+发型后面可以换
+
+—— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  盐星  
+##### 2151#       发表于 2025-5-31 23:00
+
+优化很强但是为啥拉到差不多满头发还是有纱布质感虚虚的
+
