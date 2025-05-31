@@ -37,3 +37,11 @@
 
 话说真托被假托掏了核心融合，我现在召唤列表里那张托是哪来的啊。
 
+
+*****
+
+####  leeskies  
+##### 18228#       发表于 2025-6-1 07:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">真飞哥落地！
+
