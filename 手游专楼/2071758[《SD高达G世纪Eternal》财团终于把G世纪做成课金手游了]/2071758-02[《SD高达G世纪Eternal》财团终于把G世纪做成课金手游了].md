@@ -2747,3 +2747,11 @@ yysy,这pvp的en消耗翻3倍不过分吧
 
 词条没有一击必杀的话，大佬不一定看得上<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wing130083  
+##### 1725#       发表于 2025-5-31 07:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">一想到对面人手一台满破核弹马上就萎了
+
