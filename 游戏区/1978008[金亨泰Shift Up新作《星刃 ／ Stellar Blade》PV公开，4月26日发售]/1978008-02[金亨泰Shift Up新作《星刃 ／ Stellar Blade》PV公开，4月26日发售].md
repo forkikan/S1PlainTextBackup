@@ -952,3 +952,15 @@ demo玩着好不舒服....前几十分钟动不动就是爆炸或者新怪出场
 
 感觉战斗手感很怪，速度有点太慢了
 
+
+*****
+
+####  lpzhg  
+##### 2111#       发表于 2025-5-31 14:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67869854&amp;ptid=1978008" target="_blank">壳壳牛 发表于 2025-5-31 14:00</a>
+我的超了点也不影响，demo全程没卡顿</blockquote>
+不会闪退么？
+
+—— 来自 OnePlus PJZ110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
