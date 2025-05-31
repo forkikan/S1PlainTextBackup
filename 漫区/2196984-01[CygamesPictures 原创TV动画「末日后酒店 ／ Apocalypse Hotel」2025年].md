@@ -4985,3 +4985,14 @@ https://www.bilibili.com/video/BV1md7Gz5E4s
 
 丢，竟然是装甲核心
 
+
+*****
+
+####  天青色的西风  
+##### 436#       发表于 2025-5-31 10:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67845046&amp;ptid=2196984" target="_blank">starfisher 发表于 2025-5-23 17:10</a>
+
+现在酒店老板的样子，脸上那颗五角星，怎么都觉得他也是AI机器人。看看最后收尾的时候怎么解题吧。 ...</blockquote>
+老板是乔斯达家族的末裔！
+
