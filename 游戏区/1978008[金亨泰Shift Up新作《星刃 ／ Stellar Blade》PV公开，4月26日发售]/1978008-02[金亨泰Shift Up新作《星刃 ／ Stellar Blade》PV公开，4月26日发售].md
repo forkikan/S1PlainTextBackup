@@ -964,3 +964,32 @@ demo玩着好不舒服....前几十分钟动不动就是爆炸或者新怪出场
 
 —— 来自 OnePlus PJZ110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  壳壳牛  
+##### 2112#       发表于 2025-5-31 15:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67869940&amp;ptid=1978008" target="_blank">lpzhg 发表于 2025-5-31 14:43</a>
+
+不会闪退么？
+
+—— 来自 OnePlus PJZ110, Android 15, 鹅球 v3.5.99-alpha</blockquote>
+全程稳定的
+
+<img src="https://img.stage1st.com/forum/202505/31/150625kfnfedfo0afzygw7.png" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 001 - Sb Screenshot 2025.05.31 - 15.00.21.02.png (3840×2160) - [].png</strong> (449.04 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-31 15:06 上传
+
+
+*****
+
+####  fallout  
+##### 2113#       发表于 2025-5-31 15:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这优化有点太好了感觉显卡白买了虽然不是只为了 这个买的显卡
+
