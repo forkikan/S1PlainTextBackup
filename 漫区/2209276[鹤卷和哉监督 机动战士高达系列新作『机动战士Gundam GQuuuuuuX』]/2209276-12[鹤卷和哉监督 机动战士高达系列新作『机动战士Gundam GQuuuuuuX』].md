@@ -7297,3 +7297,27 @@ SEED早期也說抗BEAM實體盾本身就不耐用，PS裝甲又會做成金屬�
 
 2025-5-31 15:24 上传
 
+
+*****
+
+####  岸浪白野  
+##### 16888#       发表于 2025-5-31 15:58
+
+说明书昨天就已经能看了吧，也是忘说了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202505/31/155803usn87rrnap8rpa8l.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.2 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-31 15:58 上传
+
+<img src="https://img.stage1st.com/forum/202505/31/155831s6fgt3of6wurfgl1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (364.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-31 15:58 上传
+
