@@ -847,3 +847,14 @@ demo通关后的boss挑战模式里面就可以射击了，可以去体验一下
 
 <img src="https://static.stage1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">3070是战不动了
 
+
+*****
+
+####  11116等  
+##### 2100#       发表于 2025-5-31 13:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67869728&amp;ptid=1978008" target="_blank">螺旋的小夜曲 发表于 2025-5-31 12:56</a>
+
+3070是战不动了</blockquote>
+2k 全高还能稳60吧，就是爆显存
+
