@@ -1130,3 +1130,25 @@ demo玩着好不舒服....前几十分钟动不动就是爆炸或者新怪出场
 
 —— 来自 samsung SM-S9280, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Nosgoth  
+##### 2128#       发表于 2025-5-31 17:58
+
+<blockquote>寂长无星夜 发表于 2025-5-31 17:31
+265的豪华版有点危险吧</blockquote>
+用了几年的代购，稳得很。
+
+
+*****
+
+####  Andariel  
+##### 2129#       发表于 2025-5-31 18:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67870317&amp;ptid=1978008" target="_blank">ATRO 发表于 2025-5-31 17:52</a>
+系统设置里有拾取开关
+手动拾取好像是点R2</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">原来有自动拾取么
+想不明白这个游戏为啥不默认自动拾取，难道有负重?
+

@@ -2925,3 +2925,11 @@ boss关有的只是伤害加成，没有掉落加成，支援机跟高突攻击�
 boss关有的只是伤害加成，没有掉落加成，支援机跟高突攻击机还是正常用</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我以为那个加成很高，硬着头皮打过了，换了一台sr自由刚好过
 
+
+*****
+
+####  dio999  
+##### 1745#       发表于 2025-5-31 18:00
+
+看来这次3000钻危了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

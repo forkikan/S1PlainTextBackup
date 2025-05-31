@@ -7321,3 +7321,13 @@ SEED早期也說抗BEAM實體盾本身就不耐用，PS裝甲又會做成金屬�
 
 2025-5-31 15:58 上传
 
+
+*****
+
+####  参考消息  
+##### 16889#       发表于 2025-5-31 18:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67869870&amp;ptid=2209276" target="_blank">大十字紅朔 发表于 2025-5-31 14:09</a>
+新的，纯新的</blockquote>
+马克杯那壶不是说也是新的么，uc0079按公历算是2123年，到时候谁的新还不好说呢。
+
