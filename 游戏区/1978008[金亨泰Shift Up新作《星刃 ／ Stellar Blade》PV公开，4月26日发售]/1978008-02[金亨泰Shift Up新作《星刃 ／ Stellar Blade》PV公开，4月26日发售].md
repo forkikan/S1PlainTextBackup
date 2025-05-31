@@ -717,3 +717,13 @@ demo差不多一个半小时打完，停车场那个boss落雷有点难躲，嗑
 有点难度但是又不是特别难，非常适合我这种手残党<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 就是探索没有地图真的难顶
 
+
+*****
+
+####  TonyKnight  
+##### 2087#       发表于 2025-5-31 11:02
+
+首领模式换装后，注意力基本都不在boss身上了，甚至想被处决，笑死。
+
+另外主界面这侧面有点幻视王俊凯了，绷不住
+
