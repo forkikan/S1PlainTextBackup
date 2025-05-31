@@ -2843,3 +2843,11 @@ GP02感觉没啥用，满破9K攻打啥输出，EX没想到带了狙还能短成
 
 果然面板下毒了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lighttt  
+##### 1736#       发表于 2025-5-31 13:53
+
+满破9000的攻击力，怎么这么低<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

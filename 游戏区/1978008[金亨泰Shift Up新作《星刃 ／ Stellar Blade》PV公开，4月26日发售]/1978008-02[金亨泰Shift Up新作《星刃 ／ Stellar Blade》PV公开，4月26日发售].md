@@ -903,3 +903,44 @@ demo通关后的boss挑战模式里面就可以射击了，可以去体验一下
 图像设置那里显存差一点点,直接玩会有问题么?</blockquote>
 差一点点应该没事吧，调低点设置呗
 
+
+*****
+
+####  液体显微隧道  
+##### 2106#       发表于 2025-5-31 13:57
+
+ 本帖最后由 液体显微隧道 于 2025-5-31 13:58 编辑 
+
+优化是真好，手感是真烂，弹反有前后摇，僵硬得不行，习惯性按住防御再闪避了固定挨揍，连招机会也比较少，战斗基本就是弹反闪避偷两刀等放技能。还有这地图扫描持续时间不能长点么，看两秒就没了，还有cd<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  纱布光环  
+##### 2107#       发表于 2025-5-31 13:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67869822&amp;ptid=1978008" target="_blank">当光停止 发表于 2025-5-31 13:44</a>
+
+demo玩着好不舒服....前几十分钟动不动就是爆炸或者新怪出场拉你镜头，大量不可跳的剧情cg，强制你必须走的 ...</blockquote>
+这个游戏就是那种典中典的正常人砍成残疾人，再通过技能加点和装备回到该有的性能，后期都是通过技能循环直接灌死boss不交互的
+
+*****
+
+####  lpzhg  
+##### 2108#       发表于 2025-5-31 13:58
+
+笔记本3070显存不够，打完boss就自动退出
+
+—— 来自 OnePlus PJZ110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  壳壳牛  
+##### 2109#       发表于 2025-5-31 14:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67869830&amp;ptid=1978008" target="_blank">oyss 发表于 2025-5-31 13:48</a>
+
+图像设置那里显存差一点点,直接玩会有问题么?</blockquote>
+我的超了点也不影响，demo全程没卡顿
+

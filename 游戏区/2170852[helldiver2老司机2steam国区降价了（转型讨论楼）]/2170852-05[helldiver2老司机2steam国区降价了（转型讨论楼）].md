@@ -5924,3 +5924,17 @@ this is managed democracy
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  demongear  
+##### 6482#       发表于 2025-5-31 14:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67869837&amp;ptid=2170852" target="_blank">ParadiseMartyr 发表于 2025-5-31 13:51</a>
+一个债券不就四十来块有啥不能氪的。刷蓝币刷三四个小时麻烦死了，
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">前几天跟朋友研究过，大概40分钟可以刷1000的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
