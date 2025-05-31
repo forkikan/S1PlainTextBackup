@@ -1168,3 +1168,16 @@ demo玩着好不舒服....前几十分钟动不动就是爆炸或者新怪出场
 
 豪华版的nikke码多少能出
 
+
+*****
+
+####  oyss  
+##### 2132#       发表于 2025-5-31 18:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67870395&amp;ptid=1978008" target="_blank">水边井 发表于 2025-5-31 18:23</a>
+
+这游戏轻重派生有什么功能上的差别吗，感觉只是打得花哨一些</blockquote>
+时间有差别,boss从硬直恢复开始打你,往往不给最长那套能打完的时间.
+
+还有一些连招的最后一下能把boss打出硬直.
+
