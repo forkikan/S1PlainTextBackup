@@ -654,3 +654,14 @@ demo能下了
 
 这...差2b太多了啊 各个方面
 
+
+*****
+
+####  ATRO  
+##### 2081#       发表于 2025-5-31 08:33
+
+PS5可以扔了，5070ti本子4K拉满纵享丝滑<img src="https://static.stage1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/552e3d4674e3e186f9a8f7dc18c59d5d/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9280, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
