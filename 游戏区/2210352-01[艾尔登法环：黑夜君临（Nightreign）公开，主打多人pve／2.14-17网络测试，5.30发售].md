@@ -5327,3 +5327,14 @@ Solo能力非常强，技能朴实无华（简单无脑）可以做到0依赖队
 
 <img src="https://p.sda1.dev/24/e8c30ca3186f6a3e57adffeaba114695/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Steel.Haze  
+##### 559#       发表于 2025-6-1 16:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67869657&amp;ptid=2210352" target="_blank">哈尔路尼亚 发表于 2025-5-31 12:28</a>
+
+夜王这表现力，直接平移到幽影树当最终boss多好，估计能减少一半差评</blockquote>
+夜王直接改成米凯拉拼出来弗兰肯斯坦-葛德文，然后三只手分别拿着米凯拉骑士剑、律法大剑、和新的完美黄金巨剑。然后招数就是夜王这套。基本估计幽影树的评价会极高。
+
