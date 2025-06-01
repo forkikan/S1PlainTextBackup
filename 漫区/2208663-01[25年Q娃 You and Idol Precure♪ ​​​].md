@@ -926,3 +926,21 @@ zq和kyss追加双人组有点像q娃版轰雷者兄弟。
 
 接下来两只妖精暂时“下线”，不过三人组应该很快察觉妖精消失跟新Q娃的关系
 
+
+*****
+
+####  leleq  
+##### 955#       发表于 2025-6-1 18:39
+
+哈哈哈<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这剧情真会来事啊
+
+我还说怎么处理梅洛和噗哩伦的感情戏呢直接来个封印<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+然后我想了想原来噗哩伦第二位是梅洛，梅洛的第二位可能是小歌，在看小歌的表现，如果只封印最重要的感情那这下直接来了个三角反转啊<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+原本的三角：梅洛→噗哩伦→小歌
+
+记忆封印后的三角：小歌→噗哩伦→梅洛→小歌
+
+如果在加上回复记忆真贵圈真乱了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
