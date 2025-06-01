@@ -1023,3 +1023,20 @@ q娃形态实际感觉，居然还行但人设图怎么看怎么不行<img src="
 
 ZQ的声音感觉有点太成熟了，像二十岁往上<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  noneoneone  
+##### 963#       发表于 2025-6-1 20:30
+
+动画里比早先那个设定图好多了，能接受。
+
+—— 来自 Xiaomi 2410DPN6CC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  粉儿alice  
+##### 964#       发表于 2025-6-1 20:30
+
+这算是这几年最标准的王道追加登场回了
+

@@ -1684,3 +1684,11 @@ demo还是挺简单的，点了延长精防判定当只狼玩，demo全程+boss�
 
 俩boss也太弱了。明明觉得自己打的不好，但莫名其妙就是能过，这游戏一周目有困难难度吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oyss  
+##### 2177#       发表于 2025-6-1 20:33
+
+不用技能就算是困难难度吧
+

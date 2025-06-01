@@ -281,3 +281,19 @@ vspo和杏倒是吃到不少好处
 
 杏的话除了aki吃到了ark红利之外百鬼拉普towa其实也没啥加成吧
 
+
+*****
+
+####  艾特娜  
+##### 1182#       发表于 2025-6-1 20:29
+
+ 本帖最后由 艾特娜 于 2025-6-1 20:35 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67873515&amp;ptid=2171972" target="_blank">poipanchao 发表于 2025-6-1 18:00</a>
+
+突然发现虹女去玩gta真是死路一条吧，至今为止有虹女从历届gta受益吗（包括stgr）
+
+vspo和杏倒是吃到不少好 ...</blockquote>
+莉莉姆算吧
+
+以线上PVP游戏直播为主的应该会比较合适，GTA以外也常联动的话就会有受益
+
