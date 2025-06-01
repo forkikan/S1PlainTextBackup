@@ -7622,3 +7622,16 @@ ED本来就是骗你的啊的啊喵安要一条路走到黑了</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">希望是79决战骡 鸭子当BOSS太多了 什么时候来个真正的天花板骡子当BOSS阿 我要看血流成河
 
+
+*****
+
+####  ryanghj  
+##### 16908#       发表于 2025-6-1 16:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67873186&amp;ptid=2209276" target="_blank">psycho_Gadfly 发表于 2025-6-1 15:34</a>
+
+肯定和解啊，至于合不合体打boss就不知道了
+
+可能麻球先和拉拉合体打喵安紫婆 再和喵安合体打boss (话说本 ...</blockquote>
+我感觉鹤卷不会搞饺子结局<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
