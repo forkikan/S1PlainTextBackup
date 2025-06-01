@@ -1564,3 +1564,20 @@ demo试了30分钟，开头的演出很好，实际砍起来动作表演还缺�
 
 有一个分支结局的boss记得也带点
 
+
+*****
+
+####  沧兰殇  
+##### 2166#       发表于 2025-6-1 12:31
+
+昨天中午过了一章boss，之后打挑战boss没过，晚上换了配件，换成容易弹刀和闪避的配件，一次过
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  寂长无星夜  
+##### 2167#       发表于 2025-6-1 12:35
+
+只有韩配是软妹，听韩配吧<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+

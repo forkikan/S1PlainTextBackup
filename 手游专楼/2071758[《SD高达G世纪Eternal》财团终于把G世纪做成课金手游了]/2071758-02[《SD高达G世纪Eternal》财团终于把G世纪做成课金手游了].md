@@ -3057,3 +3057,17 @@ SR版本的盾机02在剧情开发线</blockquote>
 
 金异端，一台流星正义都能地图炮，所以现在问题是要不要再造两台流星正义，或者三星师尊凑一个？狗粮根本不够啊
 
+
+*****
+
+####  马桶3  
+##### 1758#       发表于 2025-6-1 12:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67872753&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-6-1 12:08</a>
+看了一眼劲敌ex，全杂兵无条件双动，顶着SSR亥伯龙的seed特攻能一下半血，好可怕……
+
+金异端，一台流星正义 ...</blockquote>
+东方不败有个问题是map带位移用完下回合大概率暴毙，而且覆盖范围不如流星，我现在想法是等无正流星能开发了再打，就怕到时候无正不给劲敌标签，反正愿意砸资源做4台流星正义洗地是肯定能过的
+
+—— 来自 vivo V2408A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
