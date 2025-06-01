@@ -5409,3 +5409,16 @@ Solo能力非常强，技能朴实无华（简单无脑）可以做到0依赖队
 独狼体验怎么样？</blockquote>
 要你很熟悉各种东西，最好还是先组组队练练手，动作高手那就当我没说
 
+
+*****
+
+####  usodakedo  
+##### 566#       发表于 2025-6-1 20:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67873951&amp;ptid=2210352" target="_blank">当光停止 发表于 2025-6-1 20:42</a>
+
+看着这八个夜王眼馋。
+
+独狼体验怎么样？</blockquote>
+推荐等下星期补丁，或者等mod移植
+
