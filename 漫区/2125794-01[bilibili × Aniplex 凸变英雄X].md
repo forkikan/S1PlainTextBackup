@@ -2889,3 +2889,24 @@ anime corner上周又排名第三了，海外还是挺有受众的。
 
 第一个给青打赏的是X？
 
+
+*****
+
+####  budong  
+##### 256#       发表于 2025-6-1 14:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67865067&amp;ptid=2125794" target="_blank">真忘私绵 发表于 2025-5-30 07:22</a>
+可能和x的能力有关
+
+比如2d部分是虚构的现实</blockquote>
+靠画风引流一波大的，也确实成功了，欧美爱看这种画风
+
+*****
+
+####  budong  
+##### 257#       发表于 2025-6-1 14:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67857193&amp;ptid=2125794" target="_blank">萝卜迷 发表于 2025-5-28 03:23</a>
+还是想不通为啥前两个篇章要用3D</blockquote>
+靠画风引流一波大的，也确实成功了，欧美爱看这种画风
+
