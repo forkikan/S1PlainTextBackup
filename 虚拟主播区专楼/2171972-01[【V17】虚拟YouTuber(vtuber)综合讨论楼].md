@@ -271,3 +271,13 @@ Screenshot_20250601_165623_com_microsoft_emmx_ChromeTabbedActivity.jpg
 
 vspo和杏倒是吃到不少好处
 
+
+*****
+
+####  Harunoharu  
+##### 1181#       发表于 2025-6-1 18:30
+
+虹女受众和steamer压根就没有搭边的地方，进vcr能创造的效果比较少，vspo相比之下就好很多了
+
+杏的话除了aki吃到了ark红利之外百鬼拉普towa其实也没啥加成吧
+

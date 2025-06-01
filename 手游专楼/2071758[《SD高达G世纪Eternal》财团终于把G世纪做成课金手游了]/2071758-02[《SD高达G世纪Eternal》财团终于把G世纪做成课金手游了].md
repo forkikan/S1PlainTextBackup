@@ -3179,3 +3179,16 @@ SR版本的盾机02在剧情开发线</blockquote>
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  rockroxas  
+##### 1767#       发表于 2025-6-1 18:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67872818&amp;ptid=2071758" target="_blank">马桶3 发表于 2025-6-1 12:37</a>
+
+东方不败有个问题是map带位移用完下回合大概率暴毙，而且覆盖范围不如流星，我现在想法是等无正流星能开 ...</blockquote>
+[https://www.bilibili.com/video/BV1wW7gzbEor/](https://www.bilibili.com/video/BV1wW7gzbEor/)
+
+看到个通关记录，好像还凑合
+
