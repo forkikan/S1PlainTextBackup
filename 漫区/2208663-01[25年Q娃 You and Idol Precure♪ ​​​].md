@@ -831,3 +831,15 @@ ace变化差不多吧，被大伙从头到尾吐槽小学生bba的，倒是felic
 
 不然以这俩平时的表现。。。。
 
+
+*****
+
+####  codezwei  
+##### 945#       发表于 2025-6-1 11:58
+
+痛，实在是太痛啦<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+变成人形后没有噗哩伦卖萌的内容谁给我补啊
+
+—— 来自 HUAWEI FOA-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
