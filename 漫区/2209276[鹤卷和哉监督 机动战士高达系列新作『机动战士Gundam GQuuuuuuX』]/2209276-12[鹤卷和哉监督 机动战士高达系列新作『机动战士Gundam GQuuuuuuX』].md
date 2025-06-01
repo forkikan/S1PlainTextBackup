@@ -7690,3 +7690,16 @@ GTO里面还吐槽过这事，不过GTO里面马克贝知道自己的很多藏�
  ...</blockquote>
 有个元素可能被忽略了，红高达和格鲁咕咕（吉翁吉姆）都是旧框架设计，没有线性座椅，高机动下G力很大。夸克斯开始时全周天和有线性座椅了。真正含金量爆炸的其实是魔女。但凡有个新时代的更好的机体，战力发挥还能上一个档次。
 
+
+*****
+
+####  大十字紅朔  
+##### 16914#       发表于 2025-6-1 17:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67873325&amp;ptid=2209276" target="_blank">Steel.Haze 发表于 2025-6-1 16:39</a>
+
+GTO里面还吐槽过这事，不过GTO里面马克贝知道自己的很多藏品不正宗（就这水平已经吊打吉翁的地球历史博物 ...</blockquote>
+GTO不一样，安彦良和在GTO里把马克贝魔改成 智将+武神+热爱历史文化的学者了<img src="https://static.stage1st.com/image/smiley/carton2017/424.png" referrerpolicy="no-referrer">
+
+<img src="https://static.stage1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">基本上是韩信+吕布+司马迁的感觉，而且官职也改成了中将，和那个嫉妒夏亚的旧版马克贝不能当成同一个角色
+
