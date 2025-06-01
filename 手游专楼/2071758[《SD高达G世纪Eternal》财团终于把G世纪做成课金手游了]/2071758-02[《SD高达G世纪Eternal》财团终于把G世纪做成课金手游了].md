@@ -3071,3 +3071,19 @@ SR版本的盾机02在剧情开发线</blockquote>
 
 —— 来自 vivo V2408A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  rockroxas  
+##### 1759#       发表于 2025-6-1 13:30
+
+ 本帖最后由 rockroxas 于 2025-6-1 13:33 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67872818&amp;ptid=2071758" target="_blank">马桶3 发表于 2025-6-1 12:37</a>
+
+东方不败有个问题是map带位移用完下回合大概率暴毙，而且覆盖范围不如流星，我现在想法是等无正流星能开 ...</blockquote>
+必闪+防御，只要不是自由那边勉强能活？但是尊者不是开发表终端，我还想着以后抽UR开发这个就放着，G系列的碎片少要三星也很蛋痛
+
+无正多半有劲敌吧，但有没有流星，是不是攻击型，有没有一击必杀凑母舰，想得到的下毒点太多了……
+
+还能想到的就是SP化SR的GP02？但是武装超差，只有一个核弹能凑合用用，不值啊
+
