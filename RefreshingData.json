@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 168533,
+    "totalreply": 168535,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1748761209,
+    "lastedit": 1748762047,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 142926,
+    "totalreply": 142928,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1748761566,
+    "lastedit": 1748762168,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11232,10 +11232,10 @@
     "update": false
   },
   "2192378": {
-    "totalreply": 218,
+    "totalreply": 219,
     "title": "[摇滚乃淑女之嗜好 TV动画化 2025年]",
     "newtitle": "[摇滚乃淑女之嗜好 TV动画化 2025年]",
-    "lastedit": 1748760371,
+    "lastedit": 1748762170,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11628,10 +11628,10 @@
     "update": false
   },
   "2251486": {
-    "totalreply": 901,
+    "totalreply": 902,
     "title": "[【纯良向】米哈游百合讨论楼2]",
     "newtitle": "[【纯良向】米哈游百合讨论楼2]",
-    "lastedit": 1748751373,
+    "lastedit": 1748762170,
     "category": "手游战斗",
     "active": true,
     "update": false
@@ -12713,7 +12713,7 @@
     "newtitle": "[大家如何判断什么时候放弃一个游戏？]",
     "lastedit": 1748502733,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2173536": {
@@ -13243,6 +13243,15 @@
     "title": "[6月1日起任天堂香港发行的Switch软件下载版价格下调(大多数降价100港币)]",
     "newtitle": "[6月1日起任天堂香港发行的Switch软件下载版价格下调(大多数降价100港币)]",
     "lastedit": 1748750769,
+    "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2252668": {
+    "totalreply": 41,
+    "title": "[组了台5080不知道玩什么]",
+    "newtitle": "[组了台5080不知道玩什么]",
+    "lastedit": 1748762049,
     "category": "游戏区",
     "active": true,
     "update": false
