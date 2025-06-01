@@ -6102,3 +6102,13 @@ N3以上就推荐组队了
 
 感觉掠食变种不如隔壁机器人的喷火旅<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">队里带把轻机枪也能压一下
 
+
+*****
+
+####  Adrenaline!!!  
+##### 6498#       发表于 2025-6-2 02:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">东西线谁难有争议，但贪吃旅最难没争议吧，喷火能利用射程和趴针偷鸡，掠食就只能考验玩家水平特别是房主了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
