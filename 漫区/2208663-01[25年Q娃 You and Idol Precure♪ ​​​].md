@@ -1094,3 +1094,14 @@ LO原画担当しました、、！
 スタッフの皆様、ありがとうございます！！
 <img src="https://p.sda1.dev/24/1730a0abd51df9a32114681e3b49f2c3/20250601_213841.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  梦诗歌雪  
+##### 968#       发表于 2025-6-1 22:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67874152&amp;ptid=2208663" target="_blank">1096beam 发表于 2025-6-1 21:32</a>
+
+这集猝不及防的扭起来了，还打不打算卖男人了</blockquote>
+男偶像目前就是个导师定位吧，感觉没啥机会跟粉色擦出火花了
+
