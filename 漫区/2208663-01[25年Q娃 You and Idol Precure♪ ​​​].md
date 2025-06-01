@@ -956,3 +956,26 @@ zq和kyss追加双人组有点像q娃版轰雷者兄弟。
 
 这年头干部洗白能有个土下座已经算好的了，也不指望其他代价了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  凡人  
+##### 957#       发表于 2025-6-1 18:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67873623&amp;ptid=2208663" target="_blank">leleq 发表于 2025-6-1 18:46</a>
+再说这集作为追加登场回作画一般好在不是正式追加后面还应该有作画回
+
+2害兽通过失去记忆的代价来变身既挽 ...</blockquote>
+要卖毛绒玩具的，感觉能拉扯到暑假顶天了（
+
+
+*****
+
+####  leleq  
+##### 958#       发表于 2025-6-1 19:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67873641&amp;ptid=2208663" target="_blank">凡人 发表于 2025-6-1 18:55</a>
+
+要卖毛绒玩具的，感觉能拉扯到暑假顶天了（</blockquote>
+变回害兽（不对）就2-3集但记忆可以不着急回复啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
