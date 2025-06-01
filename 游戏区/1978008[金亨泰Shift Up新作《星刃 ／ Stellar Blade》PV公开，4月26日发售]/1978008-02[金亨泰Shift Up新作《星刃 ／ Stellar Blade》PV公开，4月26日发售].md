@@ -1596,3 +1596,21 @@ demo试了30分钟，开头的演出很好，实际砍起来动作表演还缺�
 
 玩家有道具、技能、大招用于打断包括boss在内的一切攻击，所以想练就练，不想练随时可以掀桌。
 
+
+*****
+
+####  LrGsite  
+##### 2169#       发表于 2025-6-1 15:50
+
+<img src="https://img.stage1st.com/forum/202506/01/154912a7fqf6qv7pa7f1q8.png" referrerpolicy="no-referrer">
+
+<strong></strong> (283.81 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-1 15:49 上传
+
+挂了半天了，根本不想动<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+另外感觉伊芙奈子没有预想中大啊，下半身很完美。Demo就boss挑战几套伊芙能换啊，正式版还要再等十天真的急
+
