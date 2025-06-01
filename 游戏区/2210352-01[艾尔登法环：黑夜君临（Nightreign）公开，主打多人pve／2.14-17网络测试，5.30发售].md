@@ -5280,3 +5280,16 @@ Solo能力非常强，技能朴实无华（简单无脑）可以做到0依赖队
 
 进游戏2分钟就闪退，然后无限闪退，怎么办啊<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">昨天也闪退过，莫名其妙好了，今天又开始了
 
+
+*****
+
+####  serj005  
+##### 554#       发表于 2025-6-1 12:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67872058&amp;ptid=2210352" target="_blank">在海岸 发表于 2025-6-1 06:29</a>
+目前感觉比较sb的是掉级惩罚，甚至断线重连都要掉级，还有单排除了标点没有任何沟通机制导致语音组队和单排 ...</blockquote>
+掉级不知道咋想的，本来死亡时的等待时间在这种时间就是一切的机制下已经是惩罚手段了，还要再掉一级完全陷入恶性循环了。
+下个平衡补丁建议直接把掉级给删了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
