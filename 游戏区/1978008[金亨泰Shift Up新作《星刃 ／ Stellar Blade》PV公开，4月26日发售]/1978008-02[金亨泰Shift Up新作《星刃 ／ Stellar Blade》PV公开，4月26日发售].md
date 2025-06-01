@@ -1581,3 +1581,18 @@ demo试了30分钟，开头的演出很好，实际砍起来动作表演还缺�
 
 只有韩配是软妹，听韩配吧<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jacket  
+##### 2168#       发表于 2025-6-1 13:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67872712&amp;ptid=1978008" target="_blank">Ashice 发表于 2025-6-1 11:47</a>
+
+抱歉，我的意思是敌人有超长连段/连段中变速吗
+
+卡赞是一个路边一条野狗都恨不得能出变速六连的游戏 ...</blockquote>
+印象中只有个别boss专门设计了长连段让你练弹刀，其余没什么特别印象。
+
+玩家有道具、技能、大招用于打断包括boss在内的一切攻击，所以想练就练，不想练随时可以掀桌。
+
