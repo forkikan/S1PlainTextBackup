@@ -5371,3 +5371,19 @@ Solo能力非常强，技能朴实无华（简单无脑）可以做到0依赖队
 八王过了，五六七三个不想打了。打下来感觉真就是第一个最难。转阶段变三个怪的就它一个，太考验玩家每个 ...</blockquote>
 处刑者一开始我以为大招变狼共用血条很幽默，后来发现这招其实可以当做一个回血技，并且弹刀意外的几乎啥都能弹，用它打了两次第八夜王还是挺爽的。
 
+
+*****
+
+####  火红之眼  
+##### 563#       发表于 2025-6-1 19:28
+
+<img src="https://img.stage1st.com/forum/202506/01/192758uls5u7z68bj33h7j.jpg" referrerpolicy="no-referrer">
+
+<strong>ELDEN RING NIGHTREIGN_20250601191815.jpg</strong> (490.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-1 19:27 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">白金了，最终boss两弓一近，3个都带喝血互相补，全员圣属性，无脑过了.....最后发现灭得最多的还是羊，癫火武器不好找....
+

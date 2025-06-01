@@ -990,3 +990,14 @@ zq和kyss追加双人组有点像q娃版轰雷者兄弟。
 严重怀疑如果不是妖精态而是人类态的话此时Meroron的表情是六花同款</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 960#       发表于 2025-6-1 19:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67873680&amp;ptid=2208663" target="_blank">梦诗歌雪 发表于 2025-6-1 19:06</a>
+
+而且这里璞丽伦几乎是一心只想着保护Q娃，到了最后一刻才想起来地雷妹也要付出代价，问完之后也是毫不犹 ...</blockquote>
+然后有人怀疑Meroron付出的代价是Purirun的整个存在所以Purirun才性格大变<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -3192,3 +3192,18 @@ SR版本的盾机02在剧情开发线</blockquote>
 
 看到个通关记录，好像还凑合
 
+
+*****
+
+####  马桶3  
+##### 1768#       发表于 2025-6-1 19:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67873584&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-6-1 18:27</a>
+
+https://www.bilibili.com/video/BV1wW7gzbEor/
+
+看到个通关记录，好像还凑合</blockquote>
+这个打的不错，小队长BUFF我自己打的时候没发现，向他这样处理一下队长机确实是学到了
+
+就是我不想做第二台流星正义，先憋一憋吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

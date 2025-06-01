@@ -1656,3 +1656,11 @@ demo试了30分钟，开头的演出很好，实际砍起来动作表演还缺�
 —— 来自 HUAWEI NOH-AL10, Android 12, 鹅球 v3.5.99 ...</blockquote>
 可用在设置里开启辅助功能，高亮敌人和可互动物品<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kalavinka  
+##### 2174#       发表于 2025-6-1 19:29
+
+demo还是挺简单的，点了延长精防判定当只狼玩，demo全程+boss挑战都是一遍过<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">感觉没有网上说的前期没技能点打起来会很难受那么严重
+
