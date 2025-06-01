@@ -5422,3 +5422,15 @@ Solo能力非常强，技能朴实无华（简单无脑）可以做到0依赖队
 独狼体验怎么样？</blockquote>
 推荐等下星期补丁，或者等mod移植
 
+
+*****
+
+####  violettor  
+##### 567#       发表于 2025-6-1 21:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67873951&amp;ptid=2210352" target="_blank">当光停止 发表于 2025-6-1 20:42</a>
+看着这八个夜王眼馋。
+
+独狼体验怎么样？</blockquote>
+如果接受叮的话，一个人玩用风灵月影改下伤害倍率还是可以玩的。角色性能比环本体高很多。
+
