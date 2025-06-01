@@ -5977,3 +5977,15 @@ this is managed democracy
 刷超级币去无水平坦星球n1找有高等级玩家的速刷队，基本一小时上下一个债卷，债卷一般会返还300超级币，所 ...</blockquote>
 虽然刷起来很快，但一般有需要再去刷，超过一千就去n7逛街了
 
+
+*****
+
+####  艾诺琳  
+##### 6487#       发表于 2025-6-1 19:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67869861&amp;ptid=2170852" target="_blank">demongear 发表于 2025-5-31 14:05</a>
+前几天跟朋友研究过，大概40分钟可以刷1000的
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+也就是说时薪60？
+

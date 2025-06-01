@@ -1664,3 +1664,13 @@ demo试了30分钟，开头的演出很好，实际砍起来动作表演还缺�
 
 demo还是挺简单的，点了延长精防判定当只狼玩，demo全程+boss挑战都是一遍过<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">感觉没有网上说的前期没技能点打起来会很难受那么严重
 
+
+*****
+
+####  zhzij111  
+##### 2175#       发表于 2025-6-1 19:54
+
+感觉这demo还不如别上，本来挺期待，体验完demo发现除了软涩情就是路边水平，直接没兴趣了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
