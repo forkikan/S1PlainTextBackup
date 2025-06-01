@@ -1614,3 +1614,22 @@ demo试了30分钟，开头的演出很好，实际砍起来动作表演还缺�
 
 另外感觉伊芙奈子没有预想中大啊，下半身很完美。Demo就boss挑战几套伊芙能换啊，正式版还要再等十天真的急
 
+
+*****
+
+####  永远的访客  
+##### 2170#       发表于 2025-6-1 16:24
+
+打完demo了，比老头环的视觉污染无限连死得少多了，这难度对我是正好，不需要劳什子进门先拣尸体手忙脚乱又是磕药又是切换上去莽就是了
+
+豪华版已下单不纠结了，现在好奇的是正式版能捏脸细节吗，锥子脸实在太网红风了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zqqwe  
+##### 2171#       发表于 2025-6-1 16:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67873289&amp;ptid=1978008" target="_blank">永远的访客 发表于 2025-6-1 16:24</a>
+打完demo了，比老头环的视觉污染无限连死得少多了，这难度对我是正好，不需要劳什子进门先拣尸体手忙脚乱又 ...</blockquote>
+做了理发店支线可以换发型但不能换脸，不过pc版以后有换头mod吧
+
