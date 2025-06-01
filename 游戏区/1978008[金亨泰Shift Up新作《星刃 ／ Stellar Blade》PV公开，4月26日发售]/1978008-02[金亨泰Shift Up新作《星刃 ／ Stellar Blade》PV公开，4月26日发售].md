@@ -1744,3 +1744,16 @@ ps5目前是92套【【剑星】全服装一览（截至1.010圣诞版本）-哔
 pc又加了 ...</blockquote>
 应该问这个30套是豪华版专属的吗？还是普通版也有追加，因为看商店感觉就是两个联动+一些饰品类<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  水边井  
+##### 2183#       发表于 2025-6-2 00:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67875007&amp;ptid=1978008" target="_blank">silversor 发表于 2025-6-2 00:21</a>
+
+应该问这个30套是豪华版专属的吗？还是普通版也有追加，因为看商店感觉就是两个联动+一些饰品类 ...</blockquote>
+不是，普通版就有，豪华版专属是两个联动dlc
+
+【【盘点】剑星6月即将更新的24件纳米服】 [https://www.bilibili.com/video/B ... 5dc821bf95f0f112e8b](https://www.bilibili.com/video/BV16Ljrz3Ee4/?share_source=copy_web&amp;vd_source=402b6913c4d755dc821bf95f0f112e8b)
+
