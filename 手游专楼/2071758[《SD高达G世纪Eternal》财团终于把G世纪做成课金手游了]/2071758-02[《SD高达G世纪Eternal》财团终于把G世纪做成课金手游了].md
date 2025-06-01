@@ -3116,3 +3116,50 @@ SR版本的盾机02在剧情开发线</blockquote>
 
 照前两个EX设计难度不行吗，非要逼氪
 
+
+*****
+
+####  rockroxas  
+##### 1763#       发表于 2025-6-1 17:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67873201&amp;ptid=2071758" target="_blank">格雷殿下 发表于 2025-6-1 15:44</a>
+
+看到说s高达很厉害，有什么讲究吗</blockquote>
+能搭拉克丝的一击必杀词条
+
+满血条件下总共加攻30%的被动
+
+5移动，有5射程的武器
+
+虽然超强势才能用且射程短，但有超过5000的武器
+
+虽然不太重要，但能飞可以全关卡出场也算个优势
+
+驾驶可以用浦木宏、奶奶头这种能开局鼓气的
+
+最大问题是作为卡池SSR三星困难，三星SP化之后只比三星山楂饼少个EX
+
+*****
+
+####  rockroxas  
+##### 1764#       发表于 2025-6-1 17:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67873462&amp;ptid=2071758" target="_blank">windtrack 发表于 2025-6-1 17:38</a>
+
+万南可是真恶臭，本来无氪玩家搞点高级ULT币还能做做机体，现在把这高级ULT也搞成一般玩家不配打只有氪金玩 ...</blockquote>
+不存在的，这两ex关甚至没有高级ULT币
+
+劲敌也没有加攻OP，为什么呢，好难猜啊
+
+*****
+
+####  windtrack  
+##### 1765#       发表于 2025-6-1 17:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67873481&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-6-1 17:48</a>
+
+不存在的，这两ex关甚至没有高级ULT币
+
+劲敌也没有加攻OP，为什么呢，好难猜啊 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">啊，之前没细看，还真是，居然不是高级ULT币
+
