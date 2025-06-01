@@ -875,3 +875,14 @@ ace变化差不多吧，被大伙从头到尾吐槽小学生bba的，倒是felic
 
 zq和kyss追加双人组有点像q娃版轰雷者兄弟。
 
+
+*****
+
+####  jaewoongh_  
+##### 950#       发表于 2025-6-1 14:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67872923&amp;ptid=2208663" target="_blank">达达葱2 发表于 2025-6-1 13:30</a>
+
+是不是说因为小友的大脑思维没有发育好，所以就算追加的两个配色和那两只一样也无法联想到一起？ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">看日推上有家长说自己家女儿被吓哭了，因为不知道噗哩伦去了哪里
+
