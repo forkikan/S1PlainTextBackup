@@ -3095,3 +3095,14 @@ SR版本的盾机02在剧情开发线</blockquote>
 
 看到说s高达很厉害，有什么讲究吗
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 1761#       发表于 2025-6-1 17:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67873201&amp;ptid=2071758" target="_blank">格雷殿下 发表于 2025-6-1 15:44</a>
+
+看到说s高达很厉害，有什么讲究吗</blockquote>
+就是数值高，技能搭配好
+
