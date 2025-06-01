@@ -5997,3 +5997,34 @@ this is managed democracy
 
 慕名而来。这个游戏当单机玩的话好玩吗…… ？
 
+
+*****
+
+####  dxx9665  
+##### 6489#       发表于 2025-6-1 20:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67873828&amp;ptid=2170852" target="_blank">fat 发表于 2025-6-1 20:05</a>
+
+慕名而来。这个游戏当单机玩的话好玩吗…… ？</blockquote>
+单机的话后面高难度不太行
+
+或者你自己练练手法可以偷鸡
+
+这个毕竟主打是联机体验
+
+N1N2难度单人打没啥问题
+
+N3以上就推荐组队了
+
+*****
+
+####  zerofree0000  
+##### 6490#       发表于 2025-6-1 20:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67873828&amp;ptid=2170852" target="_blank">fat 发表于 2025-6-1 20:05</a>
+
+慕名而来。这个游戏当单机玩的话好玩吗…… ？</blockquote>
+好玩，野排一般也没问题。但最近出圈后可能会迎来一批玩家素质下降。等到2到3万人左右在线的时候，玩家素质会提高很多。
+
+自己打的话，要单通难度9或10还是比较难的。
+

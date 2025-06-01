@@ -7755,3 +7755,14 @@ GTO版马克贝就在敖德萨驾驶强人掩护部下回宇宙战死的勇武�
 
 “抱歉了麻球，吉翁奖学金真的很重要”<img src="https://static.stage1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王元姬无惨  
+##### 16920#       发表于 2025-6-1 20:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67873512&amp;ptid=2209276" target="_blank">gundammarkⅡ 发表于 2025-6-1 18:00</a>
+GTO版马克贝就在敖德萨驾驶强人掩护部下回宇宙战死的勇武这条就完全是往个“正面”的反派来写
+但沿用GTO ...</blockquote>
+多安岛最后的形象也不是气急败坏的小物啊 反而369一种提前就任议长的尽在掌握感
+

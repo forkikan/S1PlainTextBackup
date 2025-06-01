@@ -1674,3 +1674,13 @@ demo还是挺简单的，点了延长精防判定当只狼玩，demo全程+boss�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  死神香蕉  
+##### 2176#       发表于 2025-6-1 20:15
+
+ 本帖最后由 死神香蕉 于 2025-6-1 20:18 编辑 
+
+俩boss也太弱了。明明觉得自己打的不好，但莫名其妙就是能过，这游戏一周目有困难难度吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
