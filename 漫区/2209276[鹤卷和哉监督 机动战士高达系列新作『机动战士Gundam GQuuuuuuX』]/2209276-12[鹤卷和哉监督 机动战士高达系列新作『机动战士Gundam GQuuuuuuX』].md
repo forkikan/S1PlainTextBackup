@@ -7650,3 +7650,21 @@ ED本来就是骗你的啊的啊喵安要一条路走到黑了</blockquote>
 
 GFred，动啊！GFred，为什么不动？！
 
+
+*****
+
+####  秋月孝三  
+##### 16910#       发表于 2025-6-1 16:36
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能来个天草就不错了。大成骡现在的定位就是除了夏亚没人有资格和他1V1，而鸡夸的鸭子最后做不做队友都难说
+
+*****
+
+####  Steel.Haze  
+##### 16911#       发表于 2025-6-1 16:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67870551&amp;ptid=2209276" target="_blank">ykyin09 发表于 2025-5-31 19:25</a>
+
+之前忘了在哪看到说马克贝是吉翁国宝帮给我笑吐了</blockquote>
+GTO里面还吐槽过这事，不过GTO里面马克贝知道自己的很多藏品不正宗（就这水平已经吊打吉翁的地球历史博物馆馆长了），79TV的更自负一些。当然，无论哪个，他都觉得那个壶是确实的真品。所以非常珍惜。当然壶有两款，北宋壶有原型，好东西壶没有，估计至少后者肯定不是真货。大概率两个都不是。
+
