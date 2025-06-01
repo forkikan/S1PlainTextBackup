@@ -5442,3 +5442,15 @@ Solo能力非常强，技能朴实无华（简单无脑）可以做到0依赖队
 
 野队匹配不到人了吗。
 
+
+*****
+
+####  thealoneer  
+##### 569#       发表于 2025-6-1 21:56
+
+独狼相当于速通跑图无邪道无轮椅最终面对一个十倍于正常血量的boss，相比下来米塔恩都算菜鸡一个了。
+
+【单人solo“黑夜之魔”利普拉  全程录像【艾尔登法环：黑夜君临】】 [https://www.bilibili.com/video/B ... 42640632aad34343623](https://www.bilibili.com/video/BV1h37cz1Epq/?share_source=copy_web&amp;vd_source=60dfd260828ef42640632aad34343623)
+
+看主播打是真的丝滑，问题主播可以1级无伤拉塔恩，你行吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
