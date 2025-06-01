@@ -253,3 +253,11 @@ Screenshot_20250601_165623_com_microsoft_emmx_ChromeTabbedActivity.jpg
 
 <img src="https://img.stage1st.com/forum/202506/01/165636e8c3u9t30900bz30.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aritaatsu222  
+##### 1179#       发表于 2025-6-1 17:44
+
+票務抽象和活動內容抽象又不是一回事，咋不拿樂天發癲來比
+
