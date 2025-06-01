@@ -45,3 +45,13 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">真飞哥落地！
 
+
+*****
+
+####  jxzeroga0  
+##### 18229#       发表于 2025-6-1 10:14
+
+落地直接引领live 2D，伟大
+
+—— 来自 Xiaomi 2410DPN6CC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
