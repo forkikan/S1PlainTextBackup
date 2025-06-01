@@ -2999,3 +2999,24 @@ EX04被我凹着凹着过了<img src="https://static.stage1st.com/image/smiley/f
 
 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">还是香港区给力 朋友费有了 
 
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 1753#       发表于 2025-6-1 11:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67870209&amp;ptid=2071758" target="_blank">马桶3 发表于 2025-5-31 16:58</a>
+
+凹了一下午，目前永恒之路EX4的GP02可以看作是官方骗氪陷阱，最稳定的解法是三星Z带3支援1护盾，3支援1护盾 ...</blockquote>
+破盾后给他上减攻核弹就不足为惧了，可以放一个回合走位削弱下杂兵
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 1754#       发表于 2025-6-1 11:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67864435&amp;ptid=2071758" target="_blank">chivalry 发表于 2025-5-29 22:28</a>
+
+但是你都限定池 gp02 了还不给核弹，难道 gp02 也要弄出两个吗</blockquote>
+SR版本的盾机02在剧情开发线
+

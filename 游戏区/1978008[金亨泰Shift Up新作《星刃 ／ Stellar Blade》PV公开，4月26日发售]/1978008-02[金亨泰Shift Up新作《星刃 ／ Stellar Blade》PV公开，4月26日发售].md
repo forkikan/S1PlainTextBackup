@@ -1481,3 +1481,17 @@ demo打完，感觉体验真不如无限机兵，手感非常僵硬，受击和�
 
 —— 来自 Xiaomi 2210132C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  conanoysq  
+##### 2159#       发表于 2025-6-1 11:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67872614&amp;ptid=1978008" target="_blank">罐子 发表于 2025-6-1 11:11</a>
+玩了一下demo，这感觉不错啊
+不过这打起来也是不能贪刀，该躲还是得躲，有点老头环boss的既视感
+角色确实色 ...</blockquote>
+豪华多将近30套衣服，外加新boss，直接入豪华不错。小黑盒有95折。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
