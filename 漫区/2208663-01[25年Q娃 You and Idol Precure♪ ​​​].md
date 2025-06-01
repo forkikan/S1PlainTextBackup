@@ -944,3 +944,15 @@ zq和kyss追加双人组有点像q娃版轰雷者兄弟。
 
 如果在加上回复记忆真贵圈真乱了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leleq  
+##### 956#       发表于 2025-6-1 18:46
+
+再说这集作为追加登场回作画一般好在不是正式追加后面还应该有作画回
+
+2害兽通过失去记忆的代价来变身既挽回风评也扩展了剧情很好希望能保持个十几二十集
+
+这年头干部洗白能有个土下座已经算好的了，也不指望其他代价了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

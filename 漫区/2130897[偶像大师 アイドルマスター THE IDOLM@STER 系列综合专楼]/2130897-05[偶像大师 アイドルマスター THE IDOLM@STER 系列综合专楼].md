@@ -637,3 +637,172 @@ Day 1 業務聯絡環節：
 
 具體[將在6/3公開](https://www.youtube.com/watch?v=G_Hf9yBdPfw)（SOLO1的重新演繹？）。
 
+
+*****
+
+####  darkangel0224  
+##### 7012#       发表于 2025-5-31 11:36
+
+ 本帖最后由 darkangel0224 于 2025-5-31 11:42 编辑 
+
+自从韩国和台湾省大撤退后，就一直龟在自家没出来过。你说他这国服手游能开起来？Cygames如日中天的时候都没办到，就大B现在自己当倒爷的熊样，还是不要有什么期望了吧。怕不是把百万繁中，繁转简一下就丢过来哦
+
+*****
+
+####  kykawaiii  
+##### 7013#       发表于 2025-5-31 16:46
+
+这次中华炮还加大力度了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 14, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  index  
+##### 7014#       发表于 2025-5-31 16:50
+
+竟然还有新歌
+
+*****
+
+####  wfhtony  
+##### 7015#       发表于 2025-5-31 18:53
+
+ 本帖最后由 wfhtony 于 2025-5-31 19:12 编辑 
+
+Day 1 業務聯絡環節：
+<img src="https://tc2.wfhtony.space/images/2025/05/31/505d7c677f6293b9ebb7732665a67df1.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2025/05/31/c0a64d2238c3818227934b8df8b5299c.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2025/05/31/cb1444368a79bb53a57edd6a7393f7ef.jpg" referrerpolicy="no-referrer">
+
+還有復仇公演的欸。
+
+7/4（週五），[新宿ReNY](https://ruido.org/reny/index.html)，只開一天（晝夜兩場）。
+
+<img src="https://tc2.wfhtony.space/images/2025/05/31/e9d669654f9270adfe422305e2e6762b.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2025/05/31/0082789da070ce46f4e98d28c438a3af.jpg" referrerpolicy="no-referrer">
+
+<img src="https://tc2.wfhtony.space/images/2025/05/31/822ffca91de3dd866ca82cf435d8ea16.jpg" referrerpolicy="no-referrer">
+
+月票升級。
+
+=====
+
+生日曲第二輪，啓動？
+<img src="https://tc2.wfhtony.space/images/2025/05/31/bbbe311b6fb9df9b2d43ff75411afb79.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2025/05/31/714518527ecc59957c636302b4fda5d3.jpg" referrerpolicy="no-referrer">
+
+具體[將在6/3公開](https://www.youtube.com/watch?v=G_Hf9yBdPfw)（SOLO1的重新演繹？）。
+
+・Overture<blockquote>[開演前注意事項 // 十王邦夫（CV.大塚明夫）、根緒亜紗里（CV.古賀葵）]
+
+[Overture]</blockquote>
+・1st block<blockquote><img src="https://tc2.wfhtony.space/images/2025/05/31/a351865e842abe6a0f2b2b7d64223089.jpg" referrerpolicy="no-referrer">
+
+01. 雨上がりのアイリス // Re;IRIS (長月あおい、小鹿なお、飯田ヒカル)
+
+02. キミとセミブルー // 薄井友里、湊みや、七瀬つむぎ
+
+03. アイヴイ // 小鹿なお、陽高真白（＊Long Intro ver.，陽高真白 於本曲演出中途參與演唱）
+
+04. 光景 // 川村玲奈
+
+05. 世界一可愛い私 // 飯田ヒカル
+
+→ 開場MC（MC①）</blockquote>
+・2nd block<blockquote>06. White Night! White Wish! // 飯田ヒカル、花岩香奈、花海佑芽
+<img src="https://tc2.wfhtony.space/images/2025/05/31/11b5e7233e2fef9dfaebf5774207a064.png" referrerpolicy="no-referrer">
+
+07. みちなるひろがる // 伊藤舞音、川村玲奈（＊新曲）
+
+08. clumsy trick // 薄井友里（＊Long Intro ver.）
+
+09. Yellow Big Bang! // 飯田ヒカル、伊藤舞音、薄井友里（＊Long Intro ver.，伊藤舞音、薄井友里 於本曲演出中途參與演唱）
+
+10. ENDLESS DANCE // 長月あおい、陽高真白、春咲暖
+
+→ MC②</blockquote>
+・3rd block<blockquote>11. 小さな野望 // 陽高真白
+
+12. Feel Jewel Dream // 七瀬つむぎ、春咲暖（＊春咲暖 於本曲演出中途參與演唱）
+
+13. ツキノカメ // 春咲暖
+<img src="https://tc2.wfhtony.space/images/2025/05/31/7fc79af097924e0cc596313b4be986d5.jpg" referrerpolicy="no-referrer">
+
+14. SUGAR FLAVOUR // 七瀬つむぎ、薄井友里（＊新曲）
+
+→ MC③</blockquote>
+・4th block<blockquote>15. 白線 // 花岩香奈
+
+16. Wonder Scale // 伊藤舞音
+
+17. グースーピー // 松田彩音
+
+18. Boom Boom Pow // 長月あおい、湊みや（＊湊みや 於本曲演出中途參與演唱）
+
+19. Fluorite // 七瀬つむぎ
+
+20. Tame-Lie-One-Step // 湊みや（＊Long Intro ver.）
+
+→ MC④</blockquote>
+・5th block<blockquote>21. コントラスト // 川村玲奈、花岩香奈（＊花岩香奈 於本曲演出中途參與演唱）
+<img src="https://tc2.wfhtony.space/images/2025/05/31/df19aa379935e427fc00e0536568ac63.jpg" referrerpolicy="no-referrer">
+
+22. The Rolling Riceball // 松田彩音
+<img src="https://tc2.wfhtony.space/images/2025/05/31/96eb48531a424765bd3c47153ae033f7.jpg" referrerpolicy="no-referrer">
+
+23. Fighting My Way // 長月あおい
+
+24. Luna say maybe // 小鹿なお
+
+25. Star-mine // Begrazia (陽高真白、春咲暖、松田彩音)
+
+26. 仮装狂騒曲 // 伊藤舞音、川村玲奈、小鹿なお
+
+27. 標 // 全員
+<img src="https://tc2.wfhtony.space/images/2025/05/31/effccac5d3826b16ce04203861817a93.jpg" referrerpolicy="no-referrer">
+
+（今天校歌最後的高音部分由春咲暖擔當。）
+
+→ 安可前MC
+
+28. 初 // 全員
+
+[安可前致辭+業務聯絡環節 // 十王邦夫（CV.大塚明夫）、根緒亜紗里（CV.古賀葵）]</blockquote>
+==業務聯絡環節==
+
+・安可<blockquote>29. 冠菊 // 花岩香奈、長月あおい、飯田ヒカル
+
+30. ミラクルナナウ(ﾟ∀ﾟ)！ // 全員
+
+→ 安可MC
+
+31. Campus mode!! // 全員
+<img src="https://tc2.wfhtony.space/images/2025/05/31/0b934466cbbdeb1715893763f75b488b.jpg" referrerpolicy="no-referrer">
+
+（「啊，膝蓋...」）
+
+[終演後致辭 // 十王邦夫（CV.大塚明夫）、根緒亜紗里（CV.古賀葵）]</blockquote>
+
+*****
+
+####  wfhtony  
+##### 7016#       发表于 2025-6-1 18:50
+
+<img src="https://tc1.wfhtony.space/images/2025/06/01/1db7e1f589ce1c64f1dc4d9d17d21536.png" referrerpolicy="no-referrer">
+
+1st的藍光BOX在Live結束後開放預約。
+
+<img src="https://tc1.wfhtony.space/images/2025/06/01/4bc31d3fb116813935ab4f684456397a.png" referrerpolicy="no-referrer">
+<img src="https://tc1.wfhtony.space/images/2025/06/01/1c059445bf1d381b093218d463778b88.png" referrerpolicy="no-referrer">
+<img src="https://tc1.wfhtony.space/images/2025/06/01/28bd95fc9e23f8dbaad0684c6794a0cd.png" referrerpolicy="no-referrer">
+<img src="https://tc1.wfhtony.space/images/2025/06/01/50d315f6614df73a886a0053f9f964e8.png" referrerpolicy="no-referrer">
+
+你們真搞运動會啊w
+
+副會長和廣播部部長都會參演，應該是fmt性質的活動。
+
+<img src="https://tc1.wfhtony.space/images/2025/06/01/90339e655eee6e8e45a6c462c6191fe8.png" referrerpolicy="no-referrer">
+
+清夏的STEP3，6/17有專場生放送。
+
