@@ -3163,3 +3163,19 @@ SR版本的盾机02在剧情开发线</blockquote>
 劲敌也没有加攻OP，为什么呢，好难猜啊 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">啊，之前没细看，还真是，居然不是高级ULT币
 
+
+*****
+
+####  无念  
+##### 1766#       发表于 2025-6-1 18:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67872695&amp;ptid=2071758" target="_blank">格雷殿下 发表于 2025-6-1 11:42</a>
+我研究了下，
+
+我很肯定是谷歌商店的锅
+
+我连美区线路，商店钻石还是显示JP</blockquote>
+你这个听起来像是梯子没架好
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

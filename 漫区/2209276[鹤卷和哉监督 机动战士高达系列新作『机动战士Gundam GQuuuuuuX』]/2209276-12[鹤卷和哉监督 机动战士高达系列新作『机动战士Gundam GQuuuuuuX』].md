@@ -7711,3 +7711,19 @@ GTO不一样，安彦良和在GTO里把马克贝魔改成 智将+武神+热爱�
 
 GQX里马克杯因为打下月神2的功绩，现在也是中将了。
 
+
+*****
+
+####  gundammarkⅡ  
+##### 16916#       发表于 2025-6-1 18:00
+
+ 本帖最后由 gundammarkⅡ 于 2025-6-1 18:01 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67873398&amp;ptid=2209276" target="_blank">大十字紅朔 发表于 2025-6-1 17:14</a>
+GTO不一样，安彦良和在GTO里把马克贝魔改成 智将+武神+热爱历史文化的学者了
+
+基本上是韩信+吕布+司马迁 ...</blockquote>
+GTO版马克贝就在敖德萨驾驶强人掩护部下回宇宙战死的勇武这条就完全是往个“正面”的反派来写
+但沿用GTO版很多设定的多安的岛里又改回了个卑鄙的傻子了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
