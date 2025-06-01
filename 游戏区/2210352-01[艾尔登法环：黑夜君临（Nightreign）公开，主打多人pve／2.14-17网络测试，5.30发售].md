@@ -5647,3 +5647,16 @@ Solo能力非常强，技能朴实无华（简单无脑）可以做到0依赖队
 顺便问一下有些法师塔要3个机关的怎么搞，外面一个开门，里面一个，第三个无论如何找不到了，进去几次又浪 ...</blockquote>
 你看看这个视频，大部分情况都概括了，评论区也有一些补充https://b23.tv/3LaSTaS
 
+
+*****
+
+####  在海岸  
+##### 587#       发表于 2025-6-2 02:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67875186&amp;ptid=2210352" target="_blank">usodakedo 发表于 2025-6-2 02:34</a>
+
+你看下这个视频，大部分情况都概括了，评论区也有一些补充[https://b23.tv/3LaSTaS](https://b23.tv/3LaSTaS)
+
+ ...</blockquote>
+假墙，假树，假木板……这也太缺德了以后不会去法师塔了，这种设计真是脑干缺失才做得出来……
+
