@@ -7778,3 +7778,17 @@ GTO版马克贝就在敖德萨驾驶强人掩护部下回宇宙战死的勇武�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  gundammarkⅡ  
+##### 16922#       发表于 2025-6-1 21:43
+
+ 本帖最后由 gundammarkⅡ 于 2025-6-1 21:44 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67873847&amp;ptid=2209276" target="_blank">王元姬无惨 发表于 2025-6-1 20:10</a>
+多安岛最后的形象也不是气急败坏的小物啊 反而369一种提前就任议长的尽在掌握感 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">如果前面他提出的威胁不是那么傻逼的话，配合最后大烟花后的反应还好
+提出的核威胁太傻逼，画面演出也太猥琐了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

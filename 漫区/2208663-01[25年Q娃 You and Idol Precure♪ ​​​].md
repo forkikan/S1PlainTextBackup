@@ -1055,3 +1055,42 @@ ZQ的声音感觉有点太成熟了，像二十岁往上<img src="https://static
 
 zq的声音也太成熟了
 
+
+*****
+
+####  Piano-Forest  
+##### 967#         楼主| 发表于 2025-6-1 21:40
+
+[https://x.com/sugimoto_mi_ho_/status/1928967218106122732](https://x.com/sugimoto_mi_ho_/status/1928967218106122732)
+
+キミとアイドルプリキュア♪
+
+17話
+
+ご視聴ありがとうございました。
+
+カッティーさん…！
+
+プリルン、メロロン……
+
+そして謎の2人。
+<img src="https://p.sda1.dev/24/80f68f9397068c2076514f2378b781dd/20250601_213832.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/kuubyo/status/1928967155497742383](https://x.com/kuubyo/status/1928967155497742383)
+
+『キミとアイドルプリキュア♪』17話、ふたりの初名乗り担当させていただきました♪♫
+
+歌もかっこいい…美し眩し…！！
+<img src="https://p.sda1.dev/24/79fd58c962cedf4df9766984fd23c347/20250601_213838.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/bbunyuchan0000/status/1928970991356563524](https://x.com/bbunyuchan0000/status/1928970991356563524)
+
+キミとアイドルプリキュア♪
+
+ズキューンキッスデスティニーの
+
+LO原画担当しました、、！
+
+スタッフの皆様、ありがとうございます！！
+<img src="https://p.sda1.dev/24/1730a0abd51df9a32114681e3b49f2c3/20250601_213841.jpg" referrerpolicy="no-referrer">
+
