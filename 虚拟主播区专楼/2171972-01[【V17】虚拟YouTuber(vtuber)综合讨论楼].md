@@ -223,3 +223,33 @@ idios出碟也要开1on1在线活动和A店座谈活动的抽选力
 
 怎么跟虹扯上关系了？专门提了？
 
+
+*****
+
+####  Harunoharu  
+##### 1178#       发表于 2025-6-1 16:57
+
+<blockquote>poipanchao 发表于 2025-6-1 16:52
+怎么跟虹扯上关系了？专门提了？</blockquote>
+
+<img src="https://img.stage1st.com/forum/202506/01/165723mhytoajylhjoaj1n.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250601_165623_com_microsoft_emmx_ChromeTabbedActivity.jpg</strong> (52.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-1 16:57 上传
+
+甚至repo人单独把这条列出来了
+
+Screenshot_20250601_165623_com_microsoft_emmx_ChromeTabbedActivity.jpg
+(61.55 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-1 16:56 上传
+
+由手机上传
+
+<img src="https://img.stage1st.com/forum/202506/01/165636e8c3u9t30900bz30.jpg" referrerpolicy="no-referrer">
+
