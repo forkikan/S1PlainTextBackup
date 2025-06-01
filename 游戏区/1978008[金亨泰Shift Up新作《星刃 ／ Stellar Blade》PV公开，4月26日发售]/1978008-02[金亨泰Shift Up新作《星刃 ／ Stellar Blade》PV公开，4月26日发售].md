@@ -1536,3 +1536,31 @@ demo试了30分钟，开头的演出很好，实际砍起来动作表演还缺�
 
 优化还可以,就是这手感也太漂了反馈太差
 
+
+*****
+
+####  Rainwedell  
+##### 2164#       发表于 2025-6-1 12:06
+
+放了一年回来 pc 试试 demo，全是完美弹刀和完美闪，只能说已经完全习惯了<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+人物弹刀和闪避性能都是做进流程的，后面会好不少，手感这个就这样了
+
+这游戏后续机体性能给的很高，资源够全程压着打，没啥难度的
+
+
+*****
+
+####  袄_偶滴小乔  
+##### 2165#       发表于 2025-6-1 12:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67872712&amp;ptid=1978008" target="_blank">Ashice 发表于 2025-6-1 11:47</a>
+抱歉，我的意思是敌人有超长连段/连段中变速吗
+
+卡赞是一个路边一条野狗都恨不得能出变速六连的游戏 ...</blockquote>
+有两个人形打7连还是9连带快慢刀，而且还得一套全部精防才能处决(差一个大概能技能补)
+
+兽形boss没啥特别印象了。
+
+有一个分支结局的boss记得也带点
+

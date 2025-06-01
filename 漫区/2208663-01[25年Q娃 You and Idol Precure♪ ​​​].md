@@ -843,3 +843,11 @@ ace变化差不多吧，被大伙从头到尾吐槽小学生bba的，倒是felic
 
 —— 来自 HUAWEI FOA-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  himfsz  
+##### 946#       发表于 2025-6-1 12:13
+
+以后银兽役要交给田中叔叔了吗？
+
