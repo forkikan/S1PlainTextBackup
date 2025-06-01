@@ -979,3 +979,14 @@ zq和kyss追加双人组有点像q娃版轰雷者兄弟。
 要卖毛绒玩具的，感觉能拉扯到暑假顶天了（</blockquote>
 变回害兽（不对）就2-3集但记忆可以不着急回复啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  梦诗歌雪  
+##### 959#       发表于 2025-6-1 19:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67872419&amp;ptid=2208663" target="_blank">pokemon最爱 发表于 2025-6-1 09:56</a>
+
+严重怀疑如果不是妖精态而是人类态的话此时Meroron的表情是六花同款</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+

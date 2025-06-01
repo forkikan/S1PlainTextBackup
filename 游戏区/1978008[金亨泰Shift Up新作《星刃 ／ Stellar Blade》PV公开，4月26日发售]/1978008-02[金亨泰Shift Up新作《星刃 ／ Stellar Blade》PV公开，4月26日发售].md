@@ -1643,3 +1643,16 @@ demo试了30分钟，开头的演出很好，实际砍起来动作表演还缺�
 
 —— 来自 HUAWEI NOH-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  纱布光环  
+##### 2173#       发表于 2025-6-1 19:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67873653&amp;ptid=1978008" target="_blank">水边井 发表于 2025-6-1 18:58</a>
+
+小怪是真看不见，不知道为什么和背景区分度这么低
+
+—— 来自 HUAWEI NOH-AL10, Android 12, 鹅球 v3.5.99 ...</blockquote>
+可用在设置里开启辅助功能，高亮敌人和可互动物品<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
