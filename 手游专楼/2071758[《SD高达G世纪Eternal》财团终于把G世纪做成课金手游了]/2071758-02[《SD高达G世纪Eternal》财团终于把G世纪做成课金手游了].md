@@ -3020,3 +3020,30 @@ EX04被我凹着凹着过了<img src="https://static.stage1st.com/image/smiley/f
 但是你都限定池 gp02 了还不给核弹，难道 gp02 也要弄出两个吗</blockquote>
 SR版本的盾机02在剧情开发线
 
+
+*****
+
+####  格雷殿下  
+##### 1755#       发表于 2025-6-1 11:42
+
+我研究了下，
+
+我很肯定是谷歌商店的锅
+
+我连美区线路，商店钻石还是显示JP
+
+无绑的万代账号能登陆进兑换的网站，绑了游戏以后进兑换网站就不行
+<img src="https://static.stage1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">现在弄个新的谷歌号，1天不到就会被拿下
+
+*****
+
+####  rockroxas  
+##### 1756#       发表于 2025-6-1 11:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67872677&amp;ptid=2071758" target="_blank">卡奥斯·克斯拉 发表于 2025-6-1 11:34</a>
+
+SR版本的盾机02在剧情开发线</blockquote>
+至少还有个肯定能出UR的mlrs装备
+
+就是79标签里设定只能陆地/宇宙，射程不太行的机有点多，代哥又爱下毒，放卡池大家都不爱抽
+

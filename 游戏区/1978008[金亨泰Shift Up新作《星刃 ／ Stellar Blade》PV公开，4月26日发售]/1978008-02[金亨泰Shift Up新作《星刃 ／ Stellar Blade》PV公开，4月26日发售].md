@@ -1495,3 +1495,21 @@ demo打完，感觉体验真不如无限机兵，手感非常僵硬，受击和�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  永远的访客  
+##### 2160#       发表于 2025-6-1 11:37
+
+demo试了30分钟，开头的演出很好，实际砍起来动作表演还缺口气，砍中人的反馈不明显，动作也缺少招式感更像是无章法乱砸一气，连招速度虽快却又砍中人反馈不明显就像全员霸体一样，运动性比老头环是强但也没流畅到哪里去（不确定是不是开局原始人的关系），序章的教学BOSS战也演出不够（明明有强力队友兜底可以放心设计的，BOSS招数炫酷点，把队友也设计成完全体双方都各种杂技让主角打不过也能摸鱼看戏不就行了吗）
+
+不过色气度拉满以上以上都不是问题<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 2161#       发表于 2025-6-1 11:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">杉果318买的完整版 但还没发key
+
