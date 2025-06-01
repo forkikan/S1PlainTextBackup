@@ -1710,3 +1710,17 @@ demo还是挺简单的，点了延长精防判定当只狼玩，demo全程+boss�
 完整版有多30套衣服这么多吗，商店页面好像看不出来</blockquote>
 估计把首饰，两个队友还有无人机的衣服也算进去了？单女主衣服可能就10件出头
 
+
+*****
+
+####  水边井  
+##### 2180#       发表于 2025-6-1 22:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67874038&amp;ptid=1978008" target="_blank">silversor 发表于 2025-6-1 21:08</a>
+完整版有多30套衣服这么多吗，商店页面好像看不出来</blockquote>
+ps5目前是92套【【剑星】全服装一览（截至1.010圣诞版本）-哔哩哔哩】 https://b23.tv/oBqc5qP
+
+pc又加了24套，不算nikke联动
+
+—— 来自 HUAWEI NOH-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

@@ -5454,3 +5454,29 @@ Solo能力非常强，技能朴实无华（简单无脑）可以做到0依赖队
 
 看主播打是真的丝滑，问题主播可以1级无伤拉塔恩，你行吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  serj005  
+##### 570#       发表于 2025-6-1 22:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67874256&amp;ptid=2210352" target="_blank">mikimk3 发表于 2025-6-1 21:44</a>
+
+野队匹配不到人了吗。</blockquote>
+体感从发售第二天开始野队基本打不过红狼了，第一天据说老玩家特别多随便排都能打过。
+
+我第一天没怎么打，然后从第二天一直打到现在，野排一直卡在红狼，总时长已经12个小时了还没打过红狼，感觉会玩的全都在打其他的boss了。
+
+最后还是网上群里的pro哥二缺一，开语音带队把红狼带过了。
+
+其他新人不知道该怎么办，过关率实在太低了。
+
+*****
+
+####  usodakedo  
+##### 571#       发表于 2025-6-1 22:03
+
+其实单人打夜王没想象的难，但是怎么到达夜王面前才是一个坎
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

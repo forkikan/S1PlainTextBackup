@@ -2932,3 +2932,11 @@ anime corner上周又排名第三了，海外还是挺有受众的。
 
 2025-6-1 18:21 上传
 
+
+*****
+
+####  バーチャルS1er  
+##### 259#       发表于 2025-6-1 22:06
+
+这青的信赖值没信者得时候就很高了，然后只是跑出孤儿院就没了，编剧能用心点吗<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
