@@ -5387,3 +5387,25 @@ Solo能力非常强，技能朴实无华（简单无脑）可以做到0依赖队
 
 <img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">白金了，最终boss两弓一近，3个都带喝血互相补，全员圣属性，无脑过了.....最后发现灭得最多的还是羊，癫火武器不好找....
 
+
+*****
+
+####  当光停止  
+##### 564#       发表于 2025-6-1 20:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">看着这八个夜王眼馋。
+
+独狼体验怎么样？
+
+*****
+
+####  wasian  
+##### 565#       发表于 2025-6-1 20:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67873951&amp;ptid=2210352" target="_blank">当光停止 发表于 2025-6-1 20:42</a>
+
+看着这八个夜王眼馋。
+
+独狼体验怎么样？</blockquote>
+要你很熟悉各种东西，最好还是先组组队练练手，动作高手那就当我没说
+

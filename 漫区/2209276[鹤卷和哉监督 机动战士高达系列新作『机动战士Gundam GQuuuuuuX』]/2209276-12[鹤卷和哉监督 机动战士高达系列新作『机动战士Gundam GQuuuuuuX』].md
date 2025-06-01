@@ -7766,3 +7766,15 @@ GTO版马克贝就在敖德萨驾驶强人掩护部下回宇宙战死的勇武�
 但沿用GTO ...</blockquote>
 多安岛最后的形象也不是气急败坏的小物啊 反而369一种提前就任议长的尽在掌握感
 
+
+*****
+
+####  希望之异热同心  
+##### 16921#       发表于 2025-6-1 20:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67873702&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-1 19:16</a>
+喵安第二次上gqux，因为之前一次上机被玛秋痛骂+这次对决的精神力高达太可怕+军警追击赶不到回合地点，直接 ...</blockquote>
+现在看第七集也是个对照，喵安懦了被gqx吐出来，麻球莽了gqx主动接走
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
