@@ -694,3 +694,19 @@ ace变化差不多吧，被大伙从头到尾吐槽小学生bba的，倒是felic
 
 感觉针对失去的回忆还有失去的爱（梅洛伦对噗哩伦的）还能有很多东西写
 
+
+*****
+
+####  新HGCG  
+##### 935#       发表于 2025-6-1 08:21
+
+だが害獣だ
+
+<img src="https://img.stage1st.com/forum/202506/01/082132izl012k2fidkuele.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (162.21 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-1 08:21 上传
+
