@@ -7792,3 +7792,14 @@ GTO版马克贝就在敖德萨驾驶强人掩护部下回宇宙战死的勇武�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  王元姬无惨  
+##### 16923#       发表于 2025-6-1 22:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67874252&amp;ptid=2209276" target="_blank">gundammarkⅡ 发表于 2025-6-1 21:43</a>
+如果前面他提出的威胁不是那么傻逼的话，配合最后大烟花后的反应还好
+提出的核威胁太傻逼，画面演出也太 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">毕竟丢大杀器是原作就有的丢人场面了
+

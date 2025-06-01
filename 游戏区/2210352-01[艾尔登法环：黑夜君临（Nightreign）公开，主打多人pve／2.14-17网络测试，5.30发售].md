@@ -5503,3 +5503,24 @@ Solo能力非常强，技能朴实无华（简单无脑）可以做到0依赖队
 
 掉下来的核弹暂时不知道除了远程还能怎么处理。
 
+
+*****
+
+####  时雨五渡  
+##### 574#       发表于 2025-6-1 22:51
+
+怎么这游戏有种有种又香又臭的感觉。
+
+单人无赖是真的无赖吧，摁抗黑夜王没有一点压力。
+
+单人中心城第一次清完。15级+两复活<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ohi.02  
+##### 575#       发表于 2025-6-1 22:51
+
+第一次打人马，刚开始被几个失乡骑士团灭，一个队友直接退游戏了，剩下两人竟然一路过关斩将，最后人马剩下不到十分之一血，资源耗尽不敢输出，还是被团灭了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
