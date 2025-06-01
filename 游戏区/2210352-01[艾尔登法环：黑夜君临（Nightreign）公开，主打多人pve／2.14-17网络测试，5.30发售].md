@@ -5544,3 +5544,16 @@ Solo能力非常强，技能朴实无华（简单无脑）可以做到0依赖队
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  RUANHYC  
+##### 578#       发表于 2025-6-2 00:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67873951&amp;ptid=2210352" target="_blank">当光停止 发表于 2025-6-1 20:42</a>
+
+看着这八个夜王眼馋。
+
+独狼体验怎么样？</blockquote>
+单人现在纯折磨，必须规划好路线一点时间都不能浪费，还是等下周的补丁出来再玩吧
+
