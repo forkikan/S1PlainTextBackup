@@ -1732,3 +1732,15 @@ pc又加了24套，不算nikke联动
 
 这游戏都没啥死亡惩罚，主线剧情我一般多死几遍是为了换衣服拍照。今天玩到准备去轨道电梯，不知道多少进度。我只觉得支线好多，收集也不少，大地图赶路有时候挺累
 
+
+*****
+
+####  silversor  
+##### 2182#       发表于 2025-6-2 00:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67874400&amp;ptid=1978008" target="_blank">水边井 发表于 2025-6-1 22:00</a>
+ps5目前是92套【【剑星】全服装一览（截至1.010圣诞版本）-哔哩哔哩】 https://b23.tv/oBqc5qP
+
+pc又加了 ...</blockquote>
+应该问这个30套是豪华版专属的吗？还是普通版也有追加，因为看商店感觉就是两个联动+一些饰品类<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
