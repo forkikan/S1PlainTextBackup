@@ -811,3 +811,23 @@ ace变化差不多吧，被大伙从头到尾吐槽小学生bba的，倒是felic
 
 地雷妹突然就变得这么成熟，还没变大姐姐就已经有点魅了<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 943#       发表于 2025-6-1 09:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67872406&amp;ptid=2208663" target="_blank">梦诗歌雪 发表于 2025-6-1 09:50</a>
+
+地雷妹突然就变得这么成熟，还没变大姐姐就已经有点魅了</blockquote>
+严重怀疑如果不是妖精态而是人类态的话此时Meroron的表情是六花同款<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bbjajdd  
+##### 944#       发表于 2025-6-1 09:58
+
+只能说幸好是记忆封印了
+
+不然以这俩平时的表现。。。。
+
