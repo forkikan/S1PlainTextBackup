@@ -1001,3 +1001,17 @@ zq和kyss追加双人组有点像q娃版轰雷者兄弟。
 而且这里璞丽伦几乎是一心只想着保护Q娃，到了最后一刻才想起来地雷妹也要付出代价，问完之后也是毫不犹 ...</blockquote>
 然后有人怀疑Meroron付出的代价是Purirun的整个存在所以Purirun才性格大变<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  我吃诗人  
+##### 961#       发表于 2025-6-1 19:44
+
+这集确实可以，感觉上是虽然前面都翻车了但凭这一集力挽狂澜回归正轨了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+早就猜到银兽的人设反转其实只需要一个发生在现在的主观能动性，所以别管前几集不三不四塑造鉴兽的过程了，至少现在路给走通了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+q娃形态实际感觉，居然还行但人设图怎么看怎么不行<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但这次的光速放大招说服力太好了简直无话可说
+
+失忆梗法q2才演了一遍<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我只能祝偶q好运
+

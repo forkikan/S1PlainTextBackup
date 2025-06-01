@@ -63,3 +63,24 @@ gt7要全程连网玩的，应该不行吧
 taycan和model3都是老款完全不是对手</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不是正好一起更新，最好把rimac也一起拉进来搞电车大战
 
+
+*****
+
+####  Totokei  
+##### 1919#       发表于 2025-6-1 19:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67871315&amp;ptid=2027972" target="_blank">洛克萨斯 发表于 2025-5-31 22:56</a>
+这不是正好一起更新，最好把rimac也一起拉进来搞电车大战</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">山内能干这事他就不是山内了，现在只希望雷总钞能力能在今年把su7u搞定上线
+
+
+*****
+
+####  洛克萨斯  
+##### 1920#       发表于 2025-6-1 19:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67873763&amp;ptid=2027972" target="_blank">Totokei 发表于 2025-6-1 19:41</a>
+
+山内能干这事他就不是山内了，现在只希望雷总钞能力能在今年把su7u搞定上线 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">天天惦记更他那个破货车
+
