@@ -5480,3 +5480,11 @@ Solo能力非常强，技能朴实无华（简单无脑）可以做到0依赖队
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  thealoneer  
+##### 572#       发表于 2025-6-1 22:10
+
+刚才第一次打海豚，两个神鹰哥+我一个无赖。完美开局落地两个原素瓶，三个近战各种莽穿，第二天人手神器+13级，我心想难道这回能一次过？结果进boss房喜提飞天马拉松，人直接麻了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
