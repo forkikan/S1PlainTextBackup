@@ -7635,3 +7635,18 @@ ED本来就是骗你的啊的啊喵安要一条路走到黑了</blockquote>
 可能麻球先和拉拉合体打喵安紫婆 再和喵安合体打boss (话说本 ...</blockquote>
 我感觉鹤卷不会搞饺子结局<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冷静先找时光机  
+##### 16909#       发表于 2025-6-1 16:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67873173&amp;ptid=2209276" target="_blank">ftyaid 发表于 2025-6-1 15:27</a>
+
+都自动挡了，靠自己强大的NT能力和意识压过去！</blockquote>
+喵安：难道Gquuuuuux内藏了什么我不知道的武器吗？
+
+嗯？男人的声音？
+
+GFred，动啊！GFred，为什么不动？！
+
