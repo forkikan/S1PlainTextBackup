@@ -7443,3 +7443,152 @@ SEED早期也說抗BEAM實體盾本身就不耐用，PS裝甲又會做成金屬�
 
 2025-6-1 01:42 上传
 
+
+*****
+
+####  岸浪白野  
+##### 16896#       发表于 2025-5-31 15:58
+
+说明书昨天就已经能看了吧，也是忘说了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202505/31/155803usn87rrnap8rpa8l.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.2 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-31 15:58 上传
+
+<img src="https://img.stage1st.com/forum/202505/31/155831s6fgt3of6wurfgl1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (364.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-31 15:58 上传
+
+*****
+
+####  参考消息  
+##### 16897#       发表于 2025-5-31 18:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67869870&amp;ptid=2209276" target="_blank">大十字紅朔 发表于 2025-5-31 14:09</a>
+新的，纯新的</blockquote>
+马克杯那壶不是说也是新的么，uc0079按公历算是2123年，到时候谁的新还不好说呢。
+
+*****
+
+####  ykyin09  
+##### 16898#       发表于 2025-5-31 19:25
+
+之前忘了在哪看到说马克贝是吉翁国宝帮给我笑吐了
+
+*****
+
+####  大十字紅朔  
+##### 16899#       发表于 2025-5-31 21:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67870351&amp;ptid=2209276" target="_blank">参考消息 发表于 2025-5-31 18:02</a>
+
+马克杯那壶不是说也是新的么，uc0079按公历算是2123年，到时候谁的新还不好说呢。 ...</blockquote>
+其实只是有这种说法，官方设定没说是真的假的
+
+*****
+
+####  秋月孝三  
+##### 16900#       发表于 2025-5-31 21:43
+
+都是微波炉专用
+
+*****
+
+####  Piano-Forest  
+##### 16901#         楼主| 发表于 2025-5-31 22:54
+
+ 本帖最后由 Piano-Forest 于 2025-5-31 22:58 编辑 
+
+[https://x.com/oz_0w0/status/1927700855911833903](https://x.com/oz_0w0/status/1927700855911833903)
+<img src="https://p.sda1.dev/24/f8a846573238d7f008c4421d95d747d0/20250531_223642.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/pineapOOOu/status/1927753315925827867](https://x.com/pineapOOOu/status/1927753315925827867)
+
+おだんごヘアーのニャアン好き
+<img src="https://p.sda1.dev/24/f0bbf7b5fbd792059528a7b2a9745612/20250531_223543.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/Aomo_Mew2/status/1927694592519868593](https://x.com/Aomo_Mew2/status/1927694592519868593)
+
+軍服ニャアンよかった
+<img src="https://p.sda1.dev/24/d8dd11b4742cce69225d7aee3a09d75d/20250531_223632.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/corndogtw/status/1928492051466957152](https://x.com/corndogtw/status/1928492051466957152)
+<img src="https://p.sda1.dev/24/472972c65ade56bc71c05fce569c7e22/20250531_223319.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/esc1_2d/status/1927693126015070550](https://x.com/esc1_2d/status/1927693126015070550)
+
+マチュ　ニャアン
+
+もう最後は誤解なく解りあって仲直りして
+<img src="https://p.sda1.dev/24/4f9831036827b3740c7bac8897896b52/20250531_223637.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/9037299b2dd21276878700866781142e/20250531_223639.jpg" referrerpolicy="no-referrer">
+
+松原秀典 绘
+[https://x.com/HideMatsubara/status/1928350145814376944](https://x.com/HideMatsubara/status/1928350145814376944)
+
+『機動戦士Gundam GQuuuuuuX』毎度ご視聴ありがとうございます。
+
+こんなんで出てきたら描いてみたくなるやん？…ねえ…。
+
+おれほら、昔の戦場疲れの顔(？)しか描いてないから…。
+
+作品内ファンアート…
+
+安彦さんの方向から描いてるんじゃなくてジークアクス0085の方向から描いてます…落書きだから似てないのは御容赦を…
+<img src="https://p.sda1.dev/24/75c9fdab89ff981b8e75e53a6877b99d/20250531_223447.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/syatey_12/status/1928346393808163110](https://x.com/syatey_12/status/1928346393808163110)
+
+コモリ少尉はｲｲｿﾞ…の幻覚5
+<img src="https://p.sda1.dev/24/689f91c48be2c936fc92f6bceff26cea/20250531_223514.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/xing_20/status/1927422841697309100](https://x.com/xing_20/status/1927422841697309100)
+<img src="https://p.sda1.dev/24/841f34de8552e52a63fd6b4abc4a206d/20250531_223700.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  hsyg  
+##### 16902#       发表于 2025-6-1 00:15
+
+<blockquote>我聞如是 发表于 2025-5-31 15:24
+就只是說紋章掉色而已</blockquote>
+讲道理机体完全不掉漆盾反而掉了，我觉得只是没事就拿来擦地板搞得，还不如说高达兴趣之一是滑雪（）
+
+*****
+
+####  ryanghj  
+##### 16903#       发表于 2025-6-1 01:42
+
+这片真的是各种前后呼应
+
+<img src="https://img.stage1st.com/forum/202506/01/014150m542im20hfz1h42m.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (202.33 KB, 下载次数: 1)
+
+下载附件
+
+2025-6-1 01:41 上传
+
+<img src="https://img.stage1st.com/forum/202506/01/014203m1126o1zbb1og41t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (187.55 KB, 下载次数: 1)
+
+下载附件
+
+2025-6-1 01:42 上传
+
+*****
+
+####  宵神乐  
+##### 16904#       发表于 2025-6-1 11:10
+
+结局是塑料姐妹花互捅驾驶舱
+

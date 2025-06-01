@@ -1467,3 +1467,17 @@ demo打完，感觉体验真不如无限机兵，手感非常僵硬，受击和�
 
 唯一问题是这个身材这个脸它讲什么故事我都很难认真听
 
+
+*****
+
+####  罐子  
+##### 2158#       发表于 2025-6-1 11:11
+
+玩了一下demo，这感觉不错啊
+不过这打起来也是不能贪刀，该躲还是得躲，有点老头环boss的既视感
+角色确实色<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">喜欢
+
+话说有哪里便宜点的入手方法吗？另外有没有必要买豪华版？
+
+—— 来自 Xiaomi 2210132C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
