@@ -6215,3 +6215,11 @@ boss也做得很出色，目前打过的三狼和冰龙都各有特色，和朋�
 
 单人优化之后舒服太多了，发售两天就过了两个boss，今晚3小时就过了三个<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">数值压制嗯啊
 
+
+*****
+
+####  wasian  
+##### 626#       发表于 2025-6-3 05:57
+
+执行者打夜王简直是享受中的享受，乱弹
+
