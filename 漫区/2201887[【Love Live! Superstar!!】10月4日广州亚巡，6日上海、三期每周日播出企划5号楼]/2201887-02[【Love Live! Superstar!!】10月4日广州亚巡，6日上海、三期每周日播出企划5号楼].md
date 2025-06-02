@@ -121,3 +121,13 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  离心  
+##### 1619#       发表于 2025-6-2 12:14
+
+学院偶像毁灭的原因找到了<img src="https://static.stage1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24129RT7CC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
