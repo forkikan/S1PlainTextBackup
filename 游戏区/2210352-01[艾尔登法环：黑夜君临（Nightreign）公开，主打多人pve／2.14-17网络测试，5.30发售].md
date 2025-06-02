@@ -5697,3 +5697,15 @@ Solo能力非常强，技能朴实无华（简单无脑）可以做到0依赖队
 野队匹配不到人了吗。</blockquote>
 可能和网络有关？我挂着香港的节点基本上秒匹
 
+
+*****
+
+####  ohi.02  
+##### 592#       发表于 2025-6-2 10:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67875396&amp;ptid=2210352" target="_blank">晨汐听雨 发表于 2025-6-2 09:05</a>
+可能和网络有关？我挂着香港的节点基本上秒匹</blockquote>
+我挂香港很难匹到人，开了跨区域后秒匹，问题就是老是会掉线
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
