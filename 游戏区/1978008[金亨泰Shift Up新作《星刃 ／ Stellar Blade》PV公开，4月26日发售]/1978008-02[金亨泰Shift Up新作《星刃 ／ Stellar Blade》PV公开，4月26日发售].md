@@ -1902,3 +1902,11 @@ pc又加了 ...</blockquote>
 最近同时在玩三国无双起源。就觉得demo还是差了一口气，不如起源流畅。是我的错觉么。 ...</blockquote>
 别小看起源啊<img src="https://static.stage1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pandaman7777  
+##### 2197#       发表于 2025-6-2 23:38
+
+demo玩到第一个存档点，给我直观感受就是太tm尼尔了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer"> 设定，氛围，表现，各种
+

@@ -5068,3 +5068,25 @@ https://www.bilibili.com/video/BV1md7Gz5E4s
 
 割裂的机战戏 就当看个乐了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  失忆的香槟  
+##### 442#       发表于 2025-6-2 23:42
+
+那群消波块星人太醒目了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，大厅中间的鱼缸里应该是之前第二集的外星人送给八千代的种子，还有八千代迫降时记忆紊乱的场景做的真好。
+
+之前看一个监督访谈里说想把酒店随时间推移的老化程度表现出来，这集看来应该是选择折中在机器人员工身上表现了
+
+<img src="https://img.stage1st.com/forum/202506/02/234002fz7yszgrzxe0x6pl.png" referrerpolicy="no-referrer">
+
+<strong>IMG_0233.PNG</strong> (529.12 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-2 23:40 上传
+
+。
+
+下集看预告应该是狸猫一家的红白喜事，八千代的身份正在从故事的创造者往记录者转变。
+
