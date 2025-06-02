@@ -7890,3 +7890,16 @@ GTO版马克贝就在敖德萨驾驶强人掩护部下回宇宙战死的勇武�
 
 这第8集也过于EVA了  打戏比起前面好多了 果然最好看的还是0079IF的部分
 
+
+*****
+
+####  南朝Sonicbbs  
+##### 16933#       发表于 2025-6-2 13:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67861305&amp;ptid=2209276" target="_blank">conanlm 发表于 2025-5-29 07:30</a>
+
+有紫色老太婆和夏亚的本子吗</blockquote>
+看了后面几页确认没人回你我才回复：
+
+有的，兄弟有的。叫“[Psy-Walken (大槻涼樹)] U.C.0069 (機動戦士ガンダム)”。
+

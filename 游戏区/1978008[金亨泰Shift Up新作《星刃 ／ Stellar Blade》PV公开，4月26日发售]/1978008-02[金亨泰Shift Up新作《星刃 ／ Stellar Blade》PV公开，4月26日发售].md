@@ -1794,3 +1794,11 @@ pc又加了 ...</blockquote>
 
 至于RTX4060这些8G显存的卡，基本被判了个死缓，RTX5060这个RTX3070 refresh还有RX9060 (8G)属于出师未捷身先死了
 
+
+*****
+
+####  黑酒杯  
+##### 2187#       发表于 2025-6-2 13:32
+
+哎呦我去这闪避和跳y的手感太幽默了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
