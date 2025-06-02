@@ -6007,3 +6007,11 @@ PlayStation 5 / PlayStation 4 / Xbox Series X|S / Xbox One / Steam
 
 黑夜君临好评率已超越DLC
 
+
+*****
+
+####  市松椿  
+##### 611#       发表于 2025-6-2 23:33
+
+属性攻击力和攻击力词条对法师有没有用啊
+
