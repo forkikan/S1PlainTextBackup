@@ -1881,3 +1881,24 @@ pc又加了 ...</blockquote>
 
 糅杂了很多游戏的一部分就是既要又要了。搞的整个战斗系统过于复杂了
 
+
+*****
+
+####  姐霓姐霓  
+##### 2195#       发表于 2025-6-2 23:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67876926&amp;ptid=1978008" target="_blank">razielzyc 发表于 2025-6-2 20:28</a>
+
+最近同时在玩三国无双起源。就觉得demo还是差了一口气，不如起源流畅。是我的错觉么。 ...</blockquote>
+那不是肯定的吗，无双这割草还不流畅那就没得玩了
+
+
+*****
+
+####  桥洞底下盖小被  
+##### 2196#       发表于 2025-6-2 23:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67876926&amp;ptid=1978008" target="_blank">razielzyc 发表于 2025-6-2 20:28</a>
+最近同时在玩三国无双起源。就觉得demo还是差了一口气，不如起源流畅。是我的错觉么。 ...</blockquote>
+别小看起源啊<img src="https://static.stage1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
