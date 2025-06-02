@@ -5966,3 +5966,11 @@ PlayStation 5 / PlayStation 4 / Xbox Series X|S / Xbox One / Steam
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  kraxia  
+##### 607#       发表于 2025-6-2 21:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">我觉得问题是缩圈太快了，对我等路痴很不友好，一个boss都找不到就得跑圈了。要是能更新成 打x个boss后开始缩圈 就好了
+
