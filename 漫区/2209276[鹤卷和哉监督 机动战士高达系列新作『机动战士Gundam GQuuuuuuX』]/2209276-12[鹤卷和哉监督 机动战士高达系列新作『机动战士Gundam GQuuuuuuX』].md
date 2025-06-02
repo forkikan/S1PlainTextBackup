@@ -8131,3 +8131,29 @@ X 上的 アニメディア編集部：“📢アニメディア7月号の表紙
 
 今晚还有亚马逊的剧透图吗<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mishidexieyu  
+##### 16949#       发表于 2025-6-2 19:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67875453&amp;ptid=2209276" target="_blank">人生如戏 发表于 2025-6-2 09:38</a>
+刚看了第八话，这话真不是eva吗？庵野秀明又说不关他事，分镜，表现都一个模了。
+然后向吐槽一下夏亚的新配 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">b站有人ai训练了一集池田秀一版本的第八集
+
+*****
+
+####  大十字紅朔  
+##### 16950#       发表于 2025-6-2 19:07
+
+我想说是令和三部，但是团长不是令和啊……
+
+<img src="https://img.stage1st.com/forum/202506/02/190641u9o9gk9ap6f9mibe.jpg" referrerpolicy="no-referrer">
+
+<strong>1748771673830.jpg</strong> (201.54 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-2 19:06 上传
+
