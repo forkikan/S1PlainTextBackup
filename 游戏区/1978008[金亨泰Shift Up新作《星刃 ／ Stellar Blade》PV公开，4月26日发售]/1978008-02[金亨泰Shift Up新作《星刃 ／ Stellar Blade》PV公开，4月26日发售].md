@@ -1829,3 +1829,16 @@ pc又加了 ...</blockquote>
 
 还有楼上提的，闪避成功后，长按 Y / 三角键的突进按不出来，只会傻站。训练模式里倒是可以
 
+
+*****
+
+####  纱布光环  
+##### 2190#       发表于 2025-6-2 14:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67876180&amp;ptid=1978008" target="_blank">darkangel0224 发表于 2025-6-2 14:44</a>
+
+过完试玩，那个头目战是比较完全的机体性能。剧情模式就是网游常见的开篇残疾人模式，有点路径依赖了
+
+但 ...</blockquote>
+长按突进的招式是有cd的，在右下角技能图标的上面，那一个小三角形图标<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
