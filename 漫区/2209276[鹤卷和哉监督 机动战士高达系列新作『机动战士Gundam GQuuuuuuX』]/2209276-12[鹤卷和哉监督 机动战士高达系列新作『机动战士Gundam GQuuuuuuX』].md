@@ -7919,3 +7919,15 @@ GTO版马克贝就在敖德萨驾驶强人掩护部下回宇宙战死的勇武�
 
 老美那边现在就喜欢战斗爽，一来作画就喊cinema，我觉得日升下一部武斗传可以提上日程了，比什么网飞高达，真人高达有用多了
 
+
+*****
+
+####  ykyin09  
+##### 16936#       发表于 2025-6-2 14:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67876008&amp;ptid=2209276" target="_blank">南朝Sonicbbs 发表于 2025-6-2 13:31</a>
+看了后面几页确认没人回你我才回复：
+
+有的，兄弟有的。叫“[Psy-Walken (大槻涼樹)] U.C.0069 (機動戦士 ...</blockquote>
+0069夏亚才10岁吧<img src="https://static.stage1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
+
