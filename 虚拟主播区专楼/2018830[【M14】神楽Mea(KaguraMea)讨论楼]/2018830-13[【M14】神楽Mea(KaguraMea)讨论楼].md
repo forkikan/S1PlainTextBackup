@@ -18235,3 +18235,14 @@ OK。  
 是好害怕
 心情真的好恶心
 
+
+*****
+
+####  术士q  
+##### 18632#       发表于 2025-6-2 21:09
+
+单杀🕷️!
+<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">虽然有些不厚道，但是那段的咩很真实也很可爱
+
+再就是后面在直播时单人捕获蜘蛛的勇气也很了不起<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
