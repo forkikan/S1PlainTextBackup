@@ -1359,3 +1359,17 @@ f517c8f801569c187783111f7dde3b28.png
 
 [https://x.com/blossom394/status/1929099144334897529](https://x.com/blossom394/status/1929099144334897529)
 
+
+*****
+
+####  新HGCG  
+##### 980#       发表于 2025-6-3 07:16
+
+<img src="https://img.stage1st.com/forum/202506/03/071640k9cocqq2qcxdn2vv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (47.57 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-3 07:16 上传
+
