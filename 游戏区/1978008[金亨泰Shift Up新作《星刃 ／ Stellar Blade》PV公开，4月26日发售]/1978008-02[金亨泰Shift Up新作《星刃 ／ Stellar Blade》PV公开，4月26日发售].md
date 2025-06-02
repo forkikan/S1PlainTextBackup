@@ -1757,3 +1757,24 @@ pc又加了 ...</blockquote>
 
 【【盘点】剑星6月即将更新的24件纳米服】 [https://www.bilibili.com/video/B ... 5dc821bf95f0f112e8b](https://www.bilibili.com/video/BV16Ljrz3Ee4/?share_source=copy_web&amp;vd_source=402b6913c4d755dc821bf95f0f112e8b)
 
+
+*****
+
+####  darkangel0224  
+##### 2184#       发表于 2025-6-2 12:30
+
+<blockquote>fallout 发表于 2025-5-31 15:10
+这优化有点太好了感觉显卡白买了虽然不是只为了 这个买的显卡</blockquote>
+这是虚幻4引擎，MOD开发环境挺成熟的
+
+最大的疑问还是D加密会拖多少性能的后腿吧
+
+*****
+
+####  darkangel0224  
+##### 2185#       发表于 2025-6-2 12:31
+
+<blockquote>请问有猪扒饭吗 发表于 2025-5-31 16:26
+这个中配是什么情况啊，迅驰的声优是中国人吗？怎么听着这么怪啊</blockquote>
+我觉着是台词的锅，翻译的很怪，估计配音的都找不到感觉
+
