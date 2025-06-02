@@ -6121,3 +6121,60 @@ N3以上就推荐组队了
 喷火旅削了喷子不会一下秒杀了，其实针对一下配装没那么难
 掠食虫是真不想当房主，黑跳虫三连击太难顶
 
+
+*****
+
+####  狭义文具爱好者  
+##### 6500#       发表于 2025-6-1 23:11
+
+ 本帖最后由 狭义文具爱好者 于 2025-6-1 23:56 编辑 
+<blockquote>The_Fool_ 发表于 2025-6-1 22:51
+这改枪系统看了半天，感觉通用思路是有大弹夹的出大弹夹，没大弹夹的就尽可能堆高人体工学性能 ...</blockquote>
+几个喷子都是大小弹匣都可以，大弹鼓喷的爽，短弹匣配换弹甲基本也无缝了
+
+泰雷克解放了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好了，现在引流来的新玩家要直面掠食旅了
+
+*****
+
+####  FLZB  
+##### 6501#       发表于 2025-6-1 23:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67874710&amp;ptid=2170852" target="_blank">The_Fool_ 发表于 2025-6-1 22:51</a>
+
+这改枪系统看了半天，感觉通用思路是有大弹夹的出大弹夹，没大弹夹的就尽可能堆高人体工学性能 ...</blockquote>
+每个武器的改造方向都不同，根据特性着重强化某一方面会产生质变，比如训斥降垂直后坐力，爆裂铳提升人机。弹匣反而更多是看喜好，像有人喜欢破裂者系上短弹匣，因为不打空可以做到秒换弹
+
+*****
+
+####  ykyin09  
+##### 6502#       发表于 2025-6-2 00:46
+
+感觉掠食变种不如隔壁机器人的喷火旅<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">队里带把轻机枪也能压一下
+
+*****
+
+####  Adrenaline!!!  
+##### 6503#       发表于 2025-6-2 02:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">东西线谁难有争议，但贪吃旅最难没争议吧，喷火能利用射程和趴针偷鸡，掠食就只能考验玩家水平特别是房主了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  qwased  
+##### 6504#       发表于 2025-6-2 02:43
+
+喷火旅削了喷子不会一下秒杀了，其实针对一下配装没那么难
+掠食虫是真不想当房主，黑跳虫三连击太难顶
+
+*****
+
+####  赤井稻妻  
+##### 6505#       发表于 2025-6-2 08:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67868462&amp;ptid=2170852" target="_blank">qxs 发表于 2025-5-30 22:25</a>
+
+剧本还是唯有荣都幸存，小视频懒得改了直接发</blockquote>
+虽然这短片大概率也是提前做好的，不过在胜利的时候，EOS已经没有光能者了，只有PC还在被入侵状态
+
