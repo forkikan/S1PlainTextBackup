@@ -5974,3 +5974,17 @@ PlayStation 5 / PlayStation 4 / Xbox Series X|S / Xbox One / Steam
 
 <img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">我觉得问题是缩圈太快了，对我等路痴很不友好，一个boss都找不到就得跑圈了。要是能更新成 打x个boss后开始缩圈 就好了
 
+
+*****
+
+####  ohi.02  
+##### 608#       发表于 2025-6-2 21:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67876921&amp;ptid=2210352" target="_blank">usodakedo 发表于 2025-6-2 20:26</a>
+9分过了，有太多问题需要解决，很多新人是真的只能收获到负反馈，我觉得ign的7分算是难得的合理，之后如 ...</blockquote>
+这游戏难得的让我没日没夜的连续玩下去，个人评价9.5分一点不过，唯一的遗憾就是内容太少了。
+比起本体的延迟攻击，这作游戏内网络质量出奇的好（虽然昨天开跨服匹配老是掉线，但是今天跨服匹配没出现这个问题）。
+野队能否通关关键还是看阵容，今天晚上第一把组了三个追踪者打夜王狼狈收场，第二把组了追踪者+守护者+弓箭手的阵容，带着队友一路舔图把能舔的基本都舔了，虽然一件紫色武器都没有但好在全都拿到了圣属性武器和大盾牌，虽说不算轻松但相比前一场真的轻松太多。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
