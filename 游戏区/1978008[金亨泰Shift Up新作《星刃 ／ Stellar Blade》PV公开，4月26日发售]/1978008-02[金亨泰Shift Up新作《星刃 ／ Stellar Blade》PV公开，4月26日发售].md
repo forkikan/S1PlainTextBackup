@@ -1922,3 +1922,17 @@ demo玩到第一个存档点，给我直观感受就是太tm尼尔了<img src="h
 
 远距离机器人加近战机器人也很恶心
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 2199#       发表于 2025-6-3 02:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67877604&amp;ptid=1978008" target="_blank">ladiesman802 发表于 2025-6-3 01:07</a>
+支线是不是都可以打多次主线boss？我已经打了受伤版金刚，禁地双锤怪，潜地怪和天台的亚巴顿
+
+我发现主线bos ...</blockquote>
+主线boss亚种的话除了这四个，应该只剩一个拿第一个电池后面那个怪了。
+
+通关一周目有挑战模式可以打所有boss的
+
