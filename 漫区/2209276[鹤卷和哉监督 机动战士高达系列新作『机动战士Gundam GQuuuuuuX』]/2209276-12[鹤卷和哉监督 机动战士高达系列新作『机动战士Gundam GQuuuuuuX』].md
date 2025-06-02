@@ -7947,3 +7947,36 @@ GTO版马克贝就在敖德萨驾驶强人掩护部下回宇宙战死的勇武�
 
 2025-6-2 16:01 上传
 
+
+*****
+
+####  岸浪白野  
+##### 16938#       发表于 2025-6-2 16:13
+
+[X 上的 みきまりあ：“- おしらせ - NOMELON NOLEMON『HALO - EP 』 7月2日（水）に発売決定！ 「機動戦士Gundam GQuuuuuuX」挿入歌を収録したCDになってます💿 最新のノーメロを堪能できる１枚です。 ぜひゲットして欲しい！！よろしくね！ ▶︎[url]https://t.co/bejTjf2NPS](https://x.com/_M_panda/status/1929450134141833249) #ジークアクス #GQuuuuuuX [https://t.co/WOsvBvQvUc](https://t.co/WOsvBvQvUc)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/02/161242sxzlg3n5bsm883z8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.96 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-2 16:12 上传
+
+[X 上的 メガハウスとり子：“【#GQuuuuuuX】 ◤デザイン初公開◢ ◆━◇━━━━━━━━◆━◇ 　ぷらっとこれくしょん 　機動戦士Gundam GQuuuuuuX ◆━◇━━━━━━━━◆━◇ ぷらっとこれくしょんに『機動戦士Gundam GQuuuuuuX』が登場メガ！ ⏰予約開始は6月5日(木) 予約情報は当アカでお知らせメガ！ [url]https://t.co/qn32jqXQC9](https://x.com/megahouse_tori/status/1929448951603925230)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/02/161312oj36osqhtbktvtjp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.68 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-2 16:13 上传
+
+*****
+
+####  赤黑的假面  
+##### 16939#       发表于 2025-6-2 16:16
+
+现在感觉紫婆要是真想夏亚战争英雄身份利益最大化，应该在吉翁首都整个战争英雄红色彗星博物馆
+
