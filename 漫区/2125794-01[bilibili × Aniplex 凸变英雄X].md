@@ -2951,3 +2951,14 @@ anime corner上周又排名第三了，海外还是挺有受众的。
 这青的信赖值没信者得时候就很高了，然后只是跑出孤儿院就没了，编剧能用心点吗 ...</blockquote>
 青是当了圣女后才第一次展示信赖值的吧
 
+
+*****
+
+####  バーチャルS1er  
+##### 261#       发表于 2025-6-2 09:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67875283&amp;ptid=2125794" target="_blank">新HGCG 发表于 2025-6-2 07:25</a>
+
+青是当了圣女后才第一次展示信赖值的吧</blockquote>
+她说自己从小信赖值就很高了，而且如果就算都是信者带来得话为什么下降得这么快也不好解释
+
