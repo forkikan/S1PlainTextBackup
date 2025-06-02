@@ -8013,3 +8013,85 @@ GTO不一样，安彦良和在GTO里把马克贝魔改成 智将+武神+热爱�
 
 多安岛和其它后续创作的创作感觉，此人就是绍伊古～能力上一俊遮百丑。
 
+
+*****
+
+####  岸浪白野  
+##### 16943#       发表于 2025-6-2 16:51
+
+[X 上的 BANDAI SPIRITS ホビー事業部：“【#今週の新商品情報】 毎週火曜24時29分から放送の 『機動戦士Gundam GQuuuuuuX』(ジークアクス)より、 「Figure-rise Standard アマテ・ユズリハ(マチュ)」が6月7日(土)発売予定！ 帽子が取り外しできるハロがセット！](https://x.com/HobbySite/status/1929456924187369532)[https://t.co/42dab5sgXb](https://t.co/42dab5sgXb)” / X
+
+[Figure-rise Standard アマテ・ユズリハ(マチュ)｜バンダイ ホビーサイト](https://bandai-hobby.net/item/01_5936/)
+
+<img src="https://img.stage1st.com/forum/202506/02/164947t0zbmy446mtsgdmg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (446.05 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-2 16:49 上传
+
+<img src="https://img.stage1st.com/forum/202506/02/164951xrejojmm2hch1oqy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (458.38 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-2 16:49 上传
+
+<img src="https://img.stage1st.com/forum/202506/02/164955qqntvqss98azndzv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (468.79 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-2 16:49 上传
+
+<img src="https://img.stage1st.com/forum/202506/02/165023rnxwl2n1sxix2lxn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (603.48 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-2 16:50 上传
+
+<img src="https://img.stage1st.com/forum/202506/02/165046e24z2ps2c2gzz633.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.05 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-2 16:50 上传
+
+<img src="https://img.stage1st.com/forum/202506/02/165056g3x6qefpafjpdq0y.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.09 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-2 16:50 上传
+
+<img src="https://img.stage1st.com/forum/202506/02/165104m0cgy1yyhgh20yhe.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (794.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-2 16:51 上传
+
+<img src="https://img.stage1st.com/forum/202506/02/165001n55q5jwgpmvqcjl8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.13 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-2 16:50 上传
+
+
+*****
+
+####  猪突猛进R  
+##### 16944#       发表于 2025-6-2 16:53
+
+GQ里的瓦肯司令（指着快沦陷的月神2号）：369，雷比尔，我炮弹呢？
+

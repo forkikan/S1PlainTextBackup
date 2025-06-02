@@ -3281,3 +3281,14 @@ https://www.bilibili.com/video/BV1wW7gzbEor/
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">本土也不指望了，上次登了也没发，还是按港区来发吧
 
+
+*****
+
+####  AminGly  
+##### 1774#       发表于 2025-6-2 16:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67876167&amp;ptid=2071758" target="_blank">马桶3 发表于 2025-6-2 14:38</a>
+
+三星GP02，太猛了</blockquote>
+我现在最大的感受还是 卡多不配开gp02 给别人来开
+
