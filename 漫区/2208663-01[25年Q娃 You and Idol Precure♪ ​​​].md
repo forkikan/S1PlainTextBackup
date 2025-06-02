@@ -1121,3 +1121,16 @@ LO原画担当しました、、！
 
 没人吐槽女王么，简直实在劝诱梅洛伦使用心锁同时又撇清关系说我已经警告过你后果了哦，太q比了
 
+
+*****
+
+####  cmyk1234  
+##### 971#       发表于 2025-6-2 11:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67873727&amp;ptid=2208663" target="_blank">pokemon最爱 发表于 2025-6-1 19:30</a>
+然后有人怀疑Meroron付出的代价是Purirun的整个存在所以Purirun才性格大变</blockquote>
+我觉得代价只会由许愿人支付，梅洛伦的代价她自己付，普利伦也一样。
+不过我怀疑许愿钥匙和锁对应愤怒之箭和叹息之弓。
+
+—— 来自 HUAWEI CLS-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
