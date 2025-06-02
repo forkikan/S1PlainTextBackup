@@ -6137,3 +6137,15 @@ Y加左摇杆可以往当前角色站立的位置打标记，在地上有掉落�
 
 三狼确实是这游戏的一道槛，过了这个之后遇到的都是old ass，局外奖励也越来越好，相对就容易一些，针对三狼来说如果队伍里有神鹰哥会好打很多，我看主播开荒打这个直接三个神鹰，狼对盾牌没太多办法
 
+
+*****
+
+####  usodakedo  
+##### 620#       发表于 2025-6-3 01:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67877575&amp;ptid=2210352" target="_blank">acg_s1 发表于 2025-6-3 00:49</a>
+数值方面确实没有大菠萝类那么准确，经你一说我去训练场才发现还有个箱子，游玩指南也在这箱子里，里面还 ...</blockquote>
+神鹰哥成型后肉的一比，连最疯的人马都能玩盾戳流，目前我玩下来感觉几个人里好像就人偶妹妹强度不太行，或者是我没搞懂该怎么玩，但是有玉足和嫌弃脸<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
