@@ -8103,3 +8103,13 @@ GQ里的瓦肯司令（指着快沦陷的月神2号）：369，雷比尔，我�
 
 FRS的体型看着比shf正常多了
 
+
+*****
+
+####  Gaybird  
+##### 16946#       发表于 2025-6-2 17:18
+
+感觉FRS的脸比SHF的正，袖子也很正常
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
