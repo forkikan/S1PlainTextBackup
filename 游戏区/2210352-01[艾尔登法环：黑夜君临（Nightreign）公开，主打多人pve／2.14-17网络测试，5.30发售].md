@@ -5901,3 +5901,14 @@ PlayStation 5 / PlayStation 4 / Xbox Series X|S / Xbox One / Steam
 
 我们将持续改进，以便您能更舒适地享受《艾尔登法环 黑夜君临》的游戏体验，今后也请多多关照。
 
+
+*****
+
+####  cnlmaa  
+##### 602#       发表于 2025-6-2 19:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67876788&amp;ptid=2210352" target="_blank">Yidam 发表于 2025-6-2 19:30</a>
+
+后边更新能不能把翻滚键的加速跑给删了啊，摇杆都有疾跑了还要保留神秘的翻滚延迟，延迟加延迟，简直是一坨 ...</blockquote>
+试试改steam控制器配置， 右键-管理-控制器布局-编辑布局-B按钮齿轮-普通按压 改成 开始按压<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
