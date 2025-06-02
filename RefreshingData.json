@@ -8622,10 +8622,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 168890,
+    "totalreply": 168891,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1748903530,
+    "lastedit": 1748905448,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -11718,10 +11718,10 @@
     "update": false
   },
   "2123357": {
-    "totalreply": 446,
+    "totalreply": 447,
     "title": "[幻想生活i 转圈圈的龙和偷取时间的少女，5／22登录全平台]",
     "newtitle": "[幻想生活i 转圈圈的龙和偷取时间的少女，5／22登录全平台]",
-    "lastedit": 1748871252,
+    "lastedit": 1748905688,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12462,7 +12462,7 @@
     "lastedit": 1748834340,
     "category": "手游战斗",
     "active": true,
-    "update": true
+    "update": false
   },
   "1789861": {
     "totalreply": 147,
@@ -12948,7 +12948,7 @@
     "lastedit": 1748882700,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2252605": {
     "totalreply": 47,
@@ -13234,6 +13234,15 @@
     "title": "[CDPR《巫师4》首个PV正式公开！主角希里]",
     "newtitle": "[CDPR《巫师4》首个PV正式公开！主角希里]",
     "lastedit": 1748882774,
+    "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2183615": {
+    "totalreply": 47,
+    "title": "[【汉化招校对】铁塔专题：老登CRPG汉化补全企划第二弹，殖民船steam上传官方中文]",
+    "newtitle": "[【汉化招校对】铁塔专题：老登CRPG汉化补全企划第二弹，殖民船steam上传官方中文]",
+    "lastedit": 1748905332,
     "category": "游戏区",
     "active": true,
     "update": false
