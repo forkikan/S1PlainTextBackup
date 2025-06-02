@@ -3258,3 +3258,26 @@ https://www.bilibili.com/video/BV1wW7gzbEor/
 我的超级大脑告诉我 现在是使用超级力量打死对面的时候了</blockquote>
 三星GP02，太猛了
 
+
+*****
+
+####  demon6666  
+##### 1772#       发表于 2025-6-2 16:19
+
+<img src="https://img.stage1st.com/forum/202506/02/161857abjbcub89oppv9sr.jpg" referrerpolicy="no-referrer">
+
+<strong>1000059713.jpg</strong> (203.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-2 16:18 上传
+
+居然这都能达成
+
+*****
+
+####  王俊凯  
+##### 1773#       发表于 2025-6-2 16:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">本土也不指望了，上次登了也没发，还是按港区来发吧
+
