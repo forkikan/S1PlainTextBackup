@@ -7872,3 +7872,13 @@ GTO版马克贝就在敖德萨驾驶强人掩护部下回宇宙战死的勇武�
 我觉得没给麻球按一个空手道剑道之类格斗高手背景失策了，要不然很适合脑操碾压的 ...</blockquote>
 你别说，搞不好麻球超级体育生和柔韧性超人的设定可能真要用到驾驶上（）
 
+
+*****
+
+####  Toby_dak  
+##### 16931#       发表于 2025-6-2 12:25
+
+什么机动武斗传<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.46)
+
