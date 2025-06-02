@@ -8222,3 +8222,11 @@ HULK的體能的初始值是比雷神略低，因為數值表是說他能因憤�
 
 这点来说至少前面新手期对上大青椒和新安洲这些顶级boss都是要巴拉鸡自己打赢的。能脑控ntd，随手骚操作已经是后期大成了。
 
+
+*****
+
+####  jojonathan  
+##### 16957#       发表于 2025-6-3 06:26
+
+不知道今晚有没有虐茄看<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
