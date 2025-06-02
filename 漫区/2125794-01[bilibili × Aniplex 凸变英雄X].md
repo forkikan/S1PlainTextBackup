@@ -2972,3 +2972,14 @@ anime corner上周又排名第三了，海外还是挺有受众的。
 
 B站天天推这个绿毛的切片，不过外形的确可以，让人想认识一下这位美少女。
 
+
+*****
+
+####  新HGCG  
+##### 263#       发表于 2025-6-2 11:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67875439&amp;ptid=2125794" target="_blank">Dai-Dai-Dai-Dai 发表于 2025-6-2 09:29</a>
+
+B站天天推这个绿毛的切片，不过外形的确可以，让人想认识一下这位美少女。 ...</blockquote>
+是蓝毛吧
+
