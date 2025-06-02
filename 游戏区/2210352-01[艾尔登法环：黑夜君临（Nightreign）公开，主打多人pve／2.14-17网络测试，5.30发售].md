@@ -6207,3 +6207,11 @@ boss也做得很出色，目前打过的三狼和冰龙都各有特色，和朋�
 
 感觉更新后单人完全可以玩了，老ass前面几个boss应该是随便打的，难度下去了反而没有多人那么紧张
 
+
+*****
+
+####  RUANHYC  
+##### 625#       发表于 2025-6-3 02:44
+
+单人优化之后舒服太多了，发售两天就过了两个boss，今晚3小时就过了三个<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">数值压制嗯啊
+
