@@ -806,3 +806,54 @@ Day 1 業務聯絡環節：
 
 清夏的STEP3，6/17有專場生放送。
 
+
+*****
+
+####  北条早苗  
+##### 7017#       发表于 2025-6-1 20:03
+
+D4的雪融爽到了，感觉今天大家状态都还行
+
+*****
+
+####  cnmyster1ous  
+##### 7018#       发表于 2025-6-2 06:09
+
+7月来上海的人有什么确切消息了吗 看首字母推理了一堆人 除了首字母独家的优以外全是未知数
+
+如果能看到千纱的话想提前找黄牛抢票了
+
+*****
+
+####  Ask_10A  
+##### 7019#       发表于 2025-6-2 15:00
+
+如果是真名2+2+2，差不多就是这个组合
+
+<img src="https://img.stage1st.com/forum/202506/02/150028mmzqgmkrk3k3uk9s.png" referrerpolicy="no-referrer">
+
+<strong>157AE9ED6CA263012E76856F4B658AE6.png</strong> (19.52 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-2 15:00 上传
+
+*****
+
+####  宵神乐  
+##### 7020#       发表于 2025-6-2 15:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">说句中文，死宅又开始幻想了
+
+*****
+
+####  cnmyster1ous  
+##### 7021#       发表于 2025-6-2 17:40
+
+忘了考虑顺序这个问题
+
+不过印象玲玲之前经常体调不良，现在是恢复好了吗出国也能行了
+<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+还是等官宣人员再找黄牛吧
+

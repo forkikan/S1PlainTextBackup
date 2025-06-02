@@ -8113,3 +8113,13 @@ FRS的体型看着比shf正常多了
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  psycho_Gadfly  
+##### 16947#       发表于 2025-6-2 17:43
+
+<blockquote>岸浪白野 发表于 2025-6-2 16:02
+X 上的 アニメディア編集部：“📢アニメディア7月号の表紙を公開！ ┈┈┈┈┈┈┈ ◤表紙＆巻頭大特集◢  ...</blockquote>
+绿叔叔配鸭子，这对吗（CV talk也是 卖得太明显了
+
