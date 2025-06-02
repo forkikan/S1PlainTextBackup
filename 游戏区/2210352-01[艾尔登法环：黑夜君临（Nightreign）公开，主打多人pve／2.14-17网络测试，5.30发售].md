@@ -6149,3 +6149,33 @@ Y加左摇杆可以往当前角色站立的位置打标记，在地上有掉落�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  水莲寺流歌  
+##### 621#       发表于 2025-6-3 01:19
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">和两个朋友本来是抱着赤石的心情买的，没想到体验下来还不错
+
+首先就是每个角色都很有特点，目前尝试过的铁眼追踪者女爵伴生技能都很有意思，这不单单是本体换个武器就能体验到的
+
+bd成型之后是真的有爽感，试过一局神皮双头刀和神皮襁褓，局内强化练级回血都拿到的局，滑步蹭几刀血又回满了，和本体的翻滚喝药简直不是一个体验
+
+boss也做得很出色，目前打过的三狼和冰龙都各有特色，和朋友语音打分身的boss简直乐趣满满<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+觉得比较不满的点一个是缩圈实在太快了，导致整局游戏都在慌不择路的跑路，实际上给我们规划探索路径的时间真的很少，在不熟悉地图的情况下体验确实不怎么好
+
+另一个是没有投票结束本局的功能，在第一次缩圈就掉魂掉等级已经没什么希望的情况下没有办法直接结束游戏，只能无聊的摆烂到第一天结束<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hirro  
+##### 622#       发表于 2025-6-3 01:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67877610&amp;ptid=2210352" target="_blank">usodakedo 发表于 2025-6-3 01:10</a>
+
+神鹰哥成型后肉的一比，连最疯的人马都能玩盾戳流，目前我玩下来感觉几个人里好像就人偶妹妹强度不太行， ...</blockquote>
+老鹰皮肤3超帅，但一看技能完全没有让人用的欲望，就没买
+
+具体团队思路是什么，怎么算成型
+
