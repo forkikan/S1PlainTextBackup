@@ -8123,3 +8123,11 @@ FRS的体型看着比shf正常多了
 X 上的 アニメディア編集部：“📢アニメディア7月号の表紙を公開！ ┈┈┈┈┈┈┈ ◤表紙＆巻頭大特集◢  ...</blockquote>
 绿叔叔配鸭子，这对吗（CV talk也是 卖得太明显了
 
+
+*****
+
+####  jojonathan  
+##### 16948#       发表于 2025-6-2 18:34
+
+今晚还有亚马逊的剧透图吗<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
