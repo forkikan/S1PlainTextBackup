@@ -1277,3 +1277,61 @@ f517c8f801569c187783111f7dde3b28.png
 
 <img src="https://img.stage1st.com/forum/202506/02/195641dyskbskpfrcppo5d.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jaewoongh_  
+##### 978#       发表于 2025-6-2 20:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">新角色出场后果然又是同人图井喷
+
+<img src="https://img.stage1st.com/forum/202506/02/201912wv1jkhc01jykcu2e.jpg" referrerpolicy="no-referrer">
+
+<strong>GsPvGRMaMAEI5Fy.jpg</strong> (651.11 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-2 20:19 上传
+
+[https://x.com/echieichi_/status/1928964208219340937](https://x.com/echieichi_/status/1928964208219340937)
+
+<img src="https://img.stage1st.com/forum/202506/02/202014yeyefkqyyueekqmy.gif" referrerpolicy="no-referrer">
+
+<strong>SaveTwitter.Net_7BJfcOXR5783rYQU_(720p).gif</strong> (686.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-2 20:20 上传
+
+[https://x.com/aki_precure/status/1929198638884114924](https://x.com/aki_precure/status/1929198638884114924)
+
+<img src="https://img.stage1st.com/forum/202506/02/202053zq4lkb4qlr64k6j8.jpg" referrerpolicy="no-referrer">
+
+<strong>GsVZqB_aMAAk7VF.jpg</strong> (190.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-2 20:20 上传
+
+[https://x.com/another_pikuru/status/1929046596203012563](https://x.com/another_pikuru/status/1929046596203012563)
+
+<img src="https://img.stage1st.com/forum/202506/02/202128vi8r7llgyjenbdz5.jpg" referrerpolicy="no-referrer">
+
+<strong>GsVjRZGaMAAbts7.jpg</strong> (628.16 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-2 20:21 上传
+
+[https://x.com/tete__a/status/1929057173289709748](https://x.com/tete__a/status/1929057173289709748)
+
+<img src="https://img.stage1st.com/forum/202506/02/202149eef1l0kgauuplfel.jpg" referrerpolicy="no-referrer">
+
+<strong>GsHUuR_XQAEAcp0.jpg</strong> (356.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-2 20:21 上传
+
+[https://x.com/nagatasanzui/status/1928056014848270649](https://x.com/nagatasanzui/status/1928056014848270649)
+
