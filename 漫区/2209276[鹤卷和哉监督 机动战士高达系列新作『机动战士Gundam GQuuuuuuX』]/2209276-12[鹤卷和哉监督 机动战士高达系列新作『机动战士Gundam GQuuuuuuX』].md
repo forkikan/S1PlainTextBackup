@@ -7931,3 +7931,19 @@ GTO版马克贝就在敖德萨驾驶强人掩护部下回宇宙战死的勇武�
 有的，兄弟有的。叫“[Psy-Walken (大槻涼樹)] U.C.0069 (機動戦士 ...</blockquote>
 0069夏亚才10岁吧<img src="https://static.stage1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 16937#       发表于 2025-6-2 16:02
+
+[X 上的 アニメディア編集部：“📢アニメディア7月号の表紙を公開！ ┈┈┈┈┈┈┈ ◤表紙＆巻頭大特集◢ 機動戦士Gundam GQuuuuuuX ⬛️Wカバー&amp;総力特集🟨 ゲゲゲの鬼太郎 私の愛した歴代ゲゲゲ ┈┈┈┈┈┈┈ 今月は創刊44周年記念号❣ 6月10日（火）発売です✨ #GQuuuuuuX #ジークアクス #ゲゲゲの鬼太郎 #私の愛した歴代ゲゲゲ [url]https://t.co/bqZbfuSXN9](https://x.com/iid_animedia/status/1929447905166836100)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/02/160155umtxdzcwfmwm3qft.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.41 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-2 16:01 上传
+

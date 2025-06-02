@@ -1842,3 +1842,16 @@ pc又加了 ...</blockquote>
 但 ...</blockquote>
 长按突进的招式是有cd的，在右下角技能图标的上面，那一个小三角形图标<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Andariel  
+##### 2191#       发表于 2025-6-2 15:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67876180&amp;ptid=1978008" target="_blank">darkangel0224 发表于 2025-6-2 14:44</a>
+
+过完试玩，那个头目战是比较完全的机体性能。剧情模式就是网游常见的开篇残疾人模式，有点路径依赖了
+
+但 ...</blockquote>
+闪避成功后那个立刻突进的Y和X都是需要消耗贝塔能量的，没能量时就按不出来
+

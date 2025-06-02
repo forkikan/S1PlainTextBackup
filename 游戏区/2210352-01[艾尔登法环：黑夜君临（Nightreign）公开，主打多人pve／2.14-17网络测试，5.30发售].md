@@ -5731,3 +5731,29 @@ Solo能力非常强，技能朴实无华（简单无脑）可以做到0依赖队
 
 - 黑暗之魂三：冷冽谷的舞娘、无名王者。魂3的BOSS刷的概率感觉很低，舞娘遇到一次，无名还没遇见
 
+
+*****
+
+####  ts1abaras  
+##### 595#       发表于 2025-6-2 16:03
+
+不如做成怪猎like
+
+—— 来自 Xiaomi 22041211AC, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  jy000129  
+##### 596#       发表于 2025-6-2 16:04
+
+服务器维护了？
+
+*****
+
+####  ohi.02  
+##### 597#       发表于 2025-6-2 16:04
+
+停服维护三个小时<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
