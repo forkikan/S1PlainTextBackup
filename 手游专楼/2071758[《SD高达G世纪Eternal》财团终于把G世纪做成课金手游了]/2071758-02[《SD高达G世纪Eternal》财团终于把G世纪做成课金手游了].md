@@ -3292,3 +3292,18 @@ https://www.bilibili.com/video/BV1wW7gzbEor/
 三星GP02，太猛了</blockquote>
 我现在最大的感受还是 卡多不配开gp02 给别人来开
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 1775#       发表于 2025-6-2 16:59
+
+<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">挖槽这也行，加油啊吉翁残党的大哥哥们
+
+*****
+
+####  HEERO.W  
+##### 1776#       发表于 2025-6-2 17:02
+
+日服上次登顶了也没法，说明万代给的福利预算就只有3K，不知道什么时候取消
+
