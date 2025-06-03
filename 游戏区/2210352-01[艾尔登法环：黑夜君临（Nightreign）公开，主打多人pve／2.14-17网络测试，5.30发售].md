@@ -6303,3 +6303,18 @@ boss也做得很出色，目前打过的三狼和冰龙都各有特色，和朋�
 ps5版 没有会员单人可以玩吗
 还是即使单人也需要会员？
 
+
+*****
+
+####  hirro  
+##### 634#       发表于 2025-6-3 10:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67876206&amp;ptid=2210352" target="_blank">晨汐听雨 发表于 2025-6-2 14:54</a>
+
+细数一下拼好魂的各个联动BOSS，本来以为会有挺多，结果还不到十个，不知道后续会不会添加更多boss
+
+- 黑暗 ...</blockquote>
+舞娘伤害极高，之前没遇到昨晚直接连续两个，差不多是铃珠猎人的升级版
+
+无名遇到过，除了最终BOSS外可能是仅有一个两排血的
+

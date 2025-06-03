@@ -1966,3 +1966,18 @@ demo打完，223已入库，等开下载了<img src="https://static.stage1st.com
 最近同时在玩三国无双起源。就觉得demo还是差了一口气，不如起源流畅。是我的错觉么。 ...</blockquote>
 起源弹反闪避都是无条件打断任何动作且毫无延迟，武技很多都有霸体无双更是全程无敌，当然流畅了
 
+
+*****
+
+####  洛克萨斯  
+##### 2203#       发表于 2025-6-3 10:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67870701&amp;ptid=1978008" target="_blank">ATRO 发表于 2025-5-31 20:19</a>
+
+对了，提醒新人先看系统设置，有几个默认不开的非常有用：
+
+1）自动QTE
+
+2）自动拾取</blockquote>
+边缘防掉落是哪个，没看到设置里面有
+
