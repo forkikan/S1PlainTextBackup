@@ -6278,3 +6278,15 @@ N3以上就推荐组队了
 我看到Reddit有人提到支援武器的辅助换弹功能，这个东西目前就是纯粹多余设定，等于只是强力的战备需要多占 ...</blockquote>
 这个更像是一代的路径依赖了，但一代是强制4人同屏的俯视角游戏，二代变3d了还这么搞就尬住了。另外感觉箭头二代就没重视过这个系统，从发售以来这个辅助装填一堆抽搐的模型bug没见修过也没见提过。
 
+
+*****
+
+####  normalli  
+##### 6513#       发表于 2025-6-3 10:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67877892&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2025-6-3 08:50</a>
+我看到Reddit有人提到支援武器的辅助换弹功能，这个东西目前就是纯粹多余设定，等于只是强力的战备需要多占 ...</blockquote>
+这个本来是个配合的机制，双人无后座力炮火力非常恐怖，相当于可以移动的反坦克炮
+
+—— 来自 Xiaomi 23127PN0CC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
