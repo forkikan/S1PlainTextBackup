@@ -6248,3 +6248,16 @@ boss也做得很出色，目前打过的三狼和冰龙都各有特色，和朋�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  ParukiaMKII  
+##### 629#       发表于 2025-6-3 09:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67877919&amp;ptid=2210352" target="_blank">jy000129 发表于 2025-6-3 09:02</a>
+
+昨晚野排搞定了人马，终于只剩冰龙和最终BOSS了
+
+—— 来自 鹅球 v3.3.96</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">恭喜你离通关不远了，最难的已经过了，剩下俩弱鸡了
+
