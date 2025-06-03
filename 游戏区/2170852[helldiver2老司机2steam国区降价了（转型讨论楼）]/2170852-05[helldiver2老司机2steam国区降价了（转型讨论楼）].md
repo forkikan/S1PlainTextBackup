@@ -6455,3 +6455,13 @@ hd2虽然弱化了很多友军伤害，但是他还是有很多这方面的保�
 另外游戏自带陀螺仪瞄准，加上准心吸附我觉得比键鼠还好用。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 —— 来自 HONOR FLC-AN00, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  iefA  
+##### 6527#       发表于 2025-6-3 12:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67878726&amp;ptid=2170852" target="_blank">保科智子 发表于 2025-6-3 12:31</a>
+ 手柄默认战备输入是左手的十字键，怎样兼顾左摇杆的移动，C手吗？ 我倒是试过改到右边的ABXY输入，但会同 ...</blockquote>
+xbox布局手柄我直接右手大拇指搓球
+
