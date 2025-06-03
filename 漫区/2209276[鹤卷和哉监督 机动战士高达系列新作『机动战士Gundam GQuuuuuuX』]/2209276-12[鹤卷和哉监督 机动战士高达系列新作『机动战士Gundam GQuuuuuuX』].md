@@ -9091,3 +9091,14 @@ GQX世界线如果是正史拉拉搞出来的话，我猜正史拉拉的目的�
 还是提醒一下，今晚首播晚5分钟</blockquote>
 亞馬遜也會跟著晚5分鐘上架嗎？
 
+
+*****
+
+####  oi99o  
+##### 17010#       发表于 2025-6-3 19:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67880309&amp;ptid=2209276" target="_blank">我聞如是 发表于 2025-6-3 19:45</a>
+
+亞馬遜也會跟著晚5分鐘上架嗎？</blockquote>
+目前没有相关消息，先默认是原定时间吧
+
