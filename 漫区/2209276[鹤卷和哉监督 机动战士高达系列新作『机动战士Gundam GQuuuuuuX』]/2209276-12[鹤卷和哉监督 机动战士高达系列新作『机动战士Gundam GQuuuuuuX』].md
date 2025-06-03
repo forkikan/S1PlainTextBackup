@@ -9342,3 +9342,39 @@ g ...</blockquote>
 
 今天开播时间确定了吗，已经准备睡了<img src="https://static.stage1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  萩原组土狼p  
+##### 17033#       发表于 2025-6-3 22:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67880815&amp;ptid=2209276" target="_blank">缪斯替 发表于 2025-6-3 22:04</a>
+
+看完视频之后自我反省感觉我对富野的敬仰主要来自于他对年轻小鬼的关怀，而高达里年轻小鬼和NT又是趋近却不 ...</blockquote>
+当年被富野寄予厚望关怀的年轻小鬼们，长大以后变得比大光头还劳保，是最绷不住的，我说的就是大文豪<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 17034#       发表于 2025-6-3 23:01
+
+G永恒送白毛
+
+都说了第9集才送
+
+<img src="https://img.stage1st.com/forum/202506/03/230112uatiaz7i21ivjvms.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (458.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-3 23:01 上传
+
+
+*****
+
+####  jojonathan  
+##### 17035#       发表于 2025-6-3 23:02
+
+白毛终究还是死了嘛<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

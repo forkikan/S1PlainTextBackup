@@ -3441,3 +3441,13 @@ wdnmd为什么强自不是专用机
 
 1吉翁勉强可以说整两台三星这期的UR扎古，2专用机目前也不可能达成吧？扎夫特词条倒是点之前没想到这么少XD
 
+
+*****
+
+####  jackyhuang  
+##### 1790#       发表于 2025-6-3 23:02
+
+送白毛了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
