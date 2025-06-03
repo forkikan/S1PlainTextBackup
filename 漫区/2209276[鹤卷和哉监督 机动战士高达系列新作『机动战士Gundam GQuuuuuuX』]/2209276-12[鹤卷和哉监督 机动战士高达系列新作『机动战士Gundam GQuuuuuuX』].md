@@ -8479,3 +8479,32 @@ MACHU要是在地球完成真正的大海目标之后，GQX主线该怎么走
 
 说绿叔叔是梦男感觉怪怪的，我认为他是信徒，说通俗点是脑残粉<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ykyin09  
+##### 16985#       发表于 2025-6-3 15:54
+
+这不哈曼吗（
+
+*****
+
+####  conanlm  
+##### 16986#       发表于 2025-6-3 15:54
+
+黄叔娶了紫婆，获得月球控制权，宣称自己才是吉恩正统
+
+与基连的吉恩和联邦，三足鼎立
+
+做个UC三国，能不能成功统一地球圈
+
+*****
+
+####  王留美  
+##### 16987#       发表于 2025-6-3 15:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67879409&amp;ptid=2209276" target="_blank">conanlm 发表于 2025-6-3 15:54</a>
+ 黄叔娶了紫婆，获得月球控制权，宣称自己才是吉恩正统 与基连的吉恩和联邦，三足鼎立 做个UC三国，能不能成 ...</blockquote>
+那谁是司马家？
+我知道了，西洛克
+
