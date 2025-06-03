@@ -9176,3 +9176,58 @@ g ...</blockquote>
 
 说起来反射弧有点长了，没人觉得gq2号机那个头很像阿努比斯的狗头吗
 
+
+*****
+
+####  wpcc  
+##### 17018#       发表于 2025-6-3 21:16
+
+あ、ぐらんぶる好きです。アニメ2期楽しみです
+
+山下你要干什么 鹤卷怎么做的了s2？
+
+*****
+
+####  wpcc  
+##### 17019#       发表于 2025-6-3 21:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67880625&amp;ptid=2209276" target="_blank">Libartas 发表于 2025-6-3 21:13</a>
+说起来反射弧有点长了，没人觉得gq2号机那个头很像阿努比斯的狗头吗</blockquote>
+猫神 应该不是狗神 阿努比斯神格差的有点远了
+
+*****
+
+####  Libartas  
+##### 17020#       发表于 2025-6-3 21:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67880636&amp;ptid=2209276" target="_blank">wpcc 发表于 2025-6-3 21:16</a>
+あ、ぐらんぶる好きです。アニメ2期楽しみです
+
+山下你要干什么 鹤卷怎么做的了s2？ ...</blockquote>
+这不是说碧蓝之海2期么
+
+*****
+
+####  Libartas  
+##### 17021#       发表于 2025-6-3 21:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67880639&amp;ptid=2209276" target="_blank">wpcc 发表于 2025-6-3 21:17</a>
+猫神 应该不是狗神 阿努比斯神格差的有点远了</blockquote>
+头部那个浮游炮更像壁画里阿努比斯的耳朵，贝斯特的没那么长
+
+
+*****
+
+####  Geyorkias  
+##### 17022#       发表于 2025-6-3 21:22
+
+<img src="https://img.stage1st.com/forum/202506/03/212147q99tio81nxxhnlxc.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20250603222024.png</strong> (182.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-3 21:21 上传
+
+阿努比斯高达的要更细更长。
+
