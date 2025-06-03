@@ -3408,3 +3408,11 @@ wdnmd为什么强自不是专用机
 
 哎呀，错过开服金异端了
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 1787#       发表于 2025-6-3 17:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">困难都没打完，EX只打了第一关，又整新活
+

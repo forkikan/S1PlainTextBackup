@@ -8612,3 +8612,53 @@ OST2要发了，不知道下一首插曲什么时候
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  syndrome2032  
+##### 16997#       发表于 2025-6-3 17:14
+
+ 本帖最后由 syndrome2032 于 2025-6-3 17:16 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67879784&amp;ptid=2209276" target="_blank">无念 发表于 2025-6-3 17:12</a>
+那不是还有玫瑰嘛，不论那是机体还是人，都可以当参考的，如果玫瑰指的是艾尔美斯，那起码他们得到了一台 ...</blockquote>
+我一直觉得gqux世界的拉拉可能不是gqux世界，而是元祖世界的正牌拉拉。
+
+之前放出那张艾尔美斯截图我感觉和元祖版长得几乎一模一样。
+
+至于拉拉本人，如果你真的信元祖和cca那些谜语的话。
+
+拉拉的精神可能真的能寄生在nt空间达到精神永生。
+
+*****
+
+####  猪突猛进R  
+##### 16998#       发表于 2025-6-3 17:16
+
+关于GQX怎么开发的，按剧情基连在搞量产强化人，我倾向于还是有ZZ的普露系列（或者干脆就是哈曼系列？）。
+
+GQX开播前就有说是9号机，上集FRED出来有人觉得坐实了10号机。
+
+还有人把这和正史的联邦78系列联系起来，我觉得没必要，吉翁与联邦开发序列又不一样。
+
+不过这样GQX之前确定有8台测试机，说不定就是普露系列开的。
+
+而且按foo, bar, baz, qux, quux, corge, grault, garply, waldo, fred
+
+从第4台开始说不定机体已经定型了，番茄的9号机和喵安的10号机搭载了特殊塞克缪系统而已。
+
+（后面期待下白色带翅膀的量产机大战喵安和麻球）
+
+
+*****
+
+####  无念  
+##### 16999#       发表于 2025-6-3 17:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67879790&amp;ptid=2209276" target="_blank">syndrome2032 发表于 2025-6-3 17:14</a>
+我一直觉得gqux世界的拉拉可能不是gqux世界，而是元祖世界的正牌拉拉。
+
+之前放出那张艾尔美斯截图我感觉 ...</blockquote>
+一直都有这种猜测啊，虽然很有可能是叙述诡计，但是目前给出的线索的确有暗示
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
