@@ -6594,3 +6594,14 @@ ds手柄+陀螺仪+特调震动我觉得真比键鼠舒服
 草里的 桑海电视台都报道了</blockquote>
 事到如今超级气球是太空法西斯的事情已经说不出口了
 
+
+*****
+
+####  FLZB  
+##### 6540#       发表于 2025-6-3 14:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67878985&amp;ptid=2170852" target="_blank">chris1987 发表于 2025-6-3 13:52</a>
+
+现在新人债券最先买哪个？我看b站都说优先买什么民主爆破？就是里面有爆炸十字弓的那个嘛？ ...</blockquote>
+民主爆破，不仅武器强度高还是解放配装自由度的重要一环。其次化学专家，毒雷毒狗强无敌<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
