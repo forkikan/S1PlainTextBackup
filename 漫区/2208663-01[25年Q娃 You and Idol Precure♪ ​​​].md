@@ -1394,3 +1394,49 @@ f517c8f801569c187783111f7dde3b28.png
 https://x.com/blossom394/status/1929099144334897529</blockquote>
 太扭曲了
 
+
+*****
+
+####  jaewoongh_  
+##### 983#       发表于 2025-6-3 10:47
+
+<img src="https://img.stage1st.com/forum/202506/03/104403sm6km0kswnpowmmq.jpg" referrerpolicy="no-referrer">
+
+<strong>GsdhaigagAAG0mk.jpg</strong> (516.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-3 10:44 上传
+
+[https://x.com/sharumon1108/status/1929618079614689565](https://x.com/sharumon1108/status/1929618079614689565)
+
+<img src="https://img.stage1st.com/forum/202506/03/104436s88z0m28nwmnunmj.jpg" referrerpolicy="no-referrer">
+
+<strong>GseWuV4b0AEPzsv.jpg</strong> (255.48 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-3 10:44 上传
+
+[https://x.com/paru_rariri/status/1929676691917693195](https://x.com/paru_rariri/status/1929676691917693195)
+
+<img src="https://img.stage1st.com/forum/202506/03/104458ptt5n5yt3z6b3v6p.jpg" referrerpolicy="no-referrer">
+
+<strong>Gse0HaJb0AEKIu1.jpg</strong> (285.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-3 10:44 上传
+
+[https://x.com/feelthehadou/status/1929709009453629728](https://x.com/feelthehadou/status/1929709009453629728)
+
+<img src="https://img.stage1st.com/forum/202506/03/104547hyff0m3endreslf5.jpg" referrerpolicy="no-referrer">
+
+<strong>GsXrYphaEAAWgEL.jpg</strong> (404 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-3 10:45 上传
+
+[https://x.com/cherrieflavors/status/1929206835426595161](https://x.com/cherrieflavors/status/1929206835426595161)（印尼大友）
+

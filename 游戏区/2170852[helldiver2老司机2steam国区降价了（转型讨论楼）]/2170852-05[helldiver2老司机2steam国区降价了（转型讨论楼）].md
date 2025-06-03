@@ -6302,3 +6302,16 @@ N3以上就推荐组队了
 
 —— 来自 Xiaomi 23127PN0CC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  赤井稻妻  
+##### 6515#       发表于 2025-6-3 10:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67878229&amp;ptid=2170852" target="_blank">normalli 发表于 2025-6-3 10:33</a>
+
+这个本来是个配合的机制，双人无后座力炮火力非常恐怖，相当于可以移动的反坦克炮
+
+—— 来自 Xiaomi 231 ...</blockquote>
+主要是要双战备，比如两个人都带无后坐力炮，才能有1+1&gt;2的效果，要不然就只能是那个not gay短裤，你的弹药包队友走了，单剩下你就变成了gay短裤
+
