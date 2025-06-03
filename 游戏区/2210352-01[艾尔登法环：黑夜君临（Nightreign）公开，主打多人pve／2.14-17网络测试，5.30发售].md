@@ -6282,3 +6282,15 @@ boss也做得很出色，目前打过的三狼和冰龙都各有特色，和朋�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  jy000129  
+##### 632#       发表于 2025-6-3 09:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67877940&amp;ptid=2210352" target="_blank">ParukiaMKII 发表于 2025-6-3 09:10</a>
+恭喜你离通关不远了，最难的已经过了，剩下俩弱鸡了</blockquote>
+感觉鳄鱼，人马和癫火大眼怪残血后像疯狗一样，难的一匹<img src="https://static.stage1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
