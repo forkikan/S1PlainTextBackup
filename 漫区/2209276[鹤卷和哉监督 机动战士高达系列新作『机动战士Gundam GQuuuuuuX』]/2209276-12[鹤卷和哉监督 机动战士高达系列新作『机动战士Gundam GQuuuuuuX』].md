@@ -8375,3 +8375,11 @@ MACHU要是在地球完成真正的大海目标之后，GQX主线该怎么走
 
 不过电子眼和盖兹解释的时候是说“吉翁内也有不爽扎比家的人” 如果信息是基连给的有点怪
 
+
+*****
+
+####  profr  
+##### 16973#       发表于 2025-6-3 13:04
+
+有没有一种可能，消息是绿叔叔给的，目的在于洗清自己的嫌疑<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

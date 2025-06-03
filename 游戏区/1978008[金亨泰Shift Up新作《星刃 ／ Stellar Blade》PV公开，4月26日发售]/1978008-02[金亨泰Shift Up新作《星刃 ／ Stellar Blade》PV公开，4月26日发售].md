@@ -2019,3 +2019,15 @@ demo打完，223已入库，等开下载了<img src="https://static.stage1st.com
 边缘防掉落是哪个，没看到设置里面有</blockquote>
 我也没看到，p5的
 
+
+*****
+
+####  ATRO  
+##### 2208#       发表于 2025-6-3 13:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67878100&amp;ptid=1978008" target="_blank">洛克萨斯 发表于 2025-6-3 10:00</a>
+边缘防掉落是哪个，没看到设置里面有</blockquote>
+嗯？我记错了吗？晚上回去看看，我记得就在和自动QTE一个菜单里的一项，可能不是叫这个名字，但是后面的选项说明里有建筑物边缘动作修正。
+
+—— 来自 samsung SM-S9280, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
