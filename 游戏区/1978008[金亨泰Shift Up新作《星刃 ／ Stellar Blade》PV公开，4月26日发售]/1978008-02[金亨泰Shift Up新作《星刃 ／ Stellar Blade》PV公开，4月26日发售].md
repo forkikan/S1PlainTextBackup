@@ -2008,3 +2008,14 @@ demo打完，223已入库，等开下载了<img src="https://static.stage1st.com
 
 打BOSS最后进QTE然后突然进动画还以为是换场景继续打
 
+
+*****
+
+####  ladiesman802  
+##### 2207#       发表于 2025-6-3 12:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67878100&amp;ptid=1978008" target="_blank">洛克萨斯 发表于 2025-6-3 10:00</a>
+
+边缘防掉落是哪个，没看到设置里面有</blockquote>
+我也没看到，p5的
+
