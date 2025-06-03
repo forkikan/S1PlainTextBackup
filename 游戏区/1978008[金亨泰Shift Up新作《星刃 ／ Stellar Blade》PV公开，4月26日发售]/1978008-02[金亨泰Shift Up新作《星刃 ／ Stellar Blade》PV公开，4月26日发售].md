@@ -2049,3 +2049,13 @@ demo玩到第一个存档点，给我直观感受就是太tm尼尔了 设定，�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">试玩了一下还挺难的，感觉攻击正面敌人时候想转向攻击背后的人基本没办法？
 
+
+*****
+
+####  oyss  
+##### 2211#       发表于 2025-6-3 22:06
+
+看鬼佬讨论lili能不能做R18 mod, 
+
+就跟国内讨论游戏电影会不会被和谐一样
+
