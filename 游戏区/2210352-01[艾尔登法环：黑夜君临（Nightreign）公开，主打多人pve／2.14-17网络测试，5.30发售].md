@@ -6690,3 +6690,14 @@ FROM SOFTWARE今日宣布，《艾尔登法环 黑夜君临》的全球总销量
 
 人马硬直要打身体，跳劈很容易打到腿或者其他部位，恶心
 
+
+*****
+
+####  nesrelax  
+##### 672#       发表于 2025-6-3 19:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67879303&amp;ptid=2210352" target="_blank">hirro 发表于 2025-6-3 16:30</a>
+
+地图上都有图标，封印监牢需要你有石剑钥匙，在地图上有井盖一样图标的地方找个小恶魔放钥匙，出来BOSS ...</blockquote>
+那个是普通封印监牢，古老封印监牢好像是有几率在普通的封印监牢里面出现，出现的怪比普通的强，掉落也更好，但是不知道怎么样才算出现<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
