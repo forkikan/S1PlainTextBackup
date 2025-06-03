@@ -2031,3 +2031,13 @@ demo打完，223已入库，等开下载了<img src="https://static.stage1st.com
 
 —— 来自 samsung SM-S9280, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  chivalry  
+##### 2209#       发表于 2025-6-3 13:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67877397&amp;ptid=1978008" target="_blank">pandaman7777 发表于 2025-6-2 23:38</a>
+demo玩到第一个存档点，给我直观感受就是太tm尼尔了 设定，氛围，表现，各种 ...</blockquote>
+金桑给尼尔的情书，我一直当高清尼尔 2 代餐的<img src="https://static.stage1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">
+
