@@ -6339,3 +6339,36 @@ ps5版 没有会员单人可以玩吗
 
 鸟哥能力发动期间反伤的专属遗物词条到手后当不用进架势的瞬发弱化版妖刀格挡用了，弹出硬直直接给它一个戟蓄力冲刺防反。另外光有自己防御时加嘲讽词条队友没抓减嘲讽词条时这效果跟不存在一样，根本防不住转火，我这边反正是放弃了
 
+
+*****
+
+####  ParukiaMKII  
+##### 637#       发表于 2025-6-3 10:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67878026&amp;ptid=2210352" target="_blank">jy000129 发表于 2025-6-3 09:39</a>
+
+感觉鳄鱼，人马和癫火大眼怪残血后像疯狗一样，难的一匹
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+确实颠，但是毕竟是环，拿个盾舒服非常多，不论啥职业
+
+*****
+
+####  astrayl  
+##### 638#       发表于 2025-6-3 10:41
+
+这种类型的游戏主要看持续运营吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不知道fs后面是怎么规划的
+
+
+*****
+
+####  serj005  
+##### 639#       发表于 2025-6-3 10:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67878257&amp;ptid=2210352" target="_blank">astrayl 发表于 2025-6-3 10:41</a>
+这种类型的游戏主要看持续运营吧不知道fs后面是怎么规划的</blockquote>
+感觉压根没有持续运营，后面更新一个dlc应该就没了。
+现在还是先来点数值调整降降难度吧。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

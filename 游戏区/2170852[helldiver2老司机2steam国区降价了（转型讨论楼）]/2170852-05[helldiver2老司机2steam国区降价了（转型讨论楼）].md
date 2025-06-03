@@ -6290,3 +6290,15 @@ N3以上就推荐组队了
 
 —— 来自 Xiaomi 23127PN0CC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  normalli  
+##### 6514#       发表于 2025-6-3 10:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67877981&amp;ptid=2170852" target="_blank">briareos 发表于 2025-6-3 09:23</a>
+萌新跟风保卫EOS一个多礼拜，蹭着各路老兵王打杂混到20多级，昨天是实打实地打了第一场硬仗，首先是房主带 ...</blockquote>
+其实新手非常推荐用实弹狗，加特林炮台，轨道激光，专注清杂就好，这几个解锁都比较快
+
+—— 来自 Xiaomi 23127PN0CC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
