@@ -6580,3 +6580,11 @@ FROM SOFTWARE今日宣布，《艾尔登法环 黑夜君临》的全球总销量
 
 本作玩法提供了一个魂玩家未接触过的游戏思路，深度不多不少可以类似单机保持几十小时的新鲜感，但要可持续发展深度就显得有点不足了
 
+
+*****
+
+####  ylssb10438  
+##### 661#       发表于 2025-6-3 16:12
+
+感觉这游戏很像以前war3的那些刷级刷装守基地的rpg图<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
