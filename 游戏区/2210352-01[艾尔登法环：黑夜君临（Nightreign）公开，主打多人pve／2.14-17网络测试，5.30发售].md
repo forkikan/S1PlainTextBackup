@@ -6380,3 +6380,17 @@ ps5版 没有会员单人可以玩吗
 
 有局外成长吗 
 
+
+*****
+
+####  serj005  
+##### 641#       发表于 2025-6-3 11:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67878406&amp;ptid=2210352" target="_blank">ko1p 发表于 2025-6-3 11:17</a>
+有局外成长吗</blockquote>
+有，但是收益很不稳定。
+每局结算掉落遗物和抽遗物的货币。
+单个遗物词条最多三个，每个角色能装三个遗物，好词条能引起角色质变，但出词条概率很随机，很多是智力+1灵巧+1之类的垃圾遗物，像我就是卡了很长时间没刷出有用的词条，导致局外成长基本等于没有。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
