@@ -9393,3 +9393,45 @@ G永恒送白毛
 
 G英靈殿<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  七七見奈波  
+##### 17038#       发表于 2025-6-3 23:26
+
+直播房间换哪里了，发得太快没看见😂
+
+*****
+
+####  猪突猛进R  
+##### 17039#       发表于 2025-6-3 23:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67881138&amp;ptid=2209276" target="_blank">七七見奈波 发表于 2025-6-3 23:26</a>
+
+直播房间换哪里了，发得太快没看见😂</blockquote>
+[https://web.lovelivegundam.top/#/LoveLive](https://web.lovelivegundam.top/#/LoveLive)
+
+*****
+
+####  大十字紅朔  
+##### 17040#       发表于 2025-6-3 23:29
+
+ 本帖最后由 大十字紅朔 于 2025-6-3 23:31 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67880663&amp;ptid=2209276" target="_blank">Geyorkias 发表于 2025-6-3 21:22</a>
+
+阿努比斯高达的要更细更长。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/carton2017/028.png" referrerpolicy="no-referrer">お前はネオエジプトのガンダムファイター、ガンダムアヌビス！
+
+不过G高里面是法老高达来着……
+
+
+*****
+
+####  七七見奈波  
+##### 17041#       发表于 2025-6-3 23:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67881154&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-3 23:29</a>
+
+https://web.lovelivegundam.top/#/LoveLive</blockquote>
+感谢，原来没换地方，看屏幕上主播留言还以为换地方了
+
