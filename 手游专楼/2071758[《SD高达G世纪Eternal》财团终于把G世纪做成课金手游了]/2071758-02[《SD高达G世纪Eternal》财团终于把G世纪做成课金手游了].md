@@ -3426,3 +3426,18 @@ wdnmd为什么强自不是专用机
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  rockroxas  
+##### 1789#       发表于 2025-6-3 18:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67879962&amp;ptid=2071758" target="_blank">无念 发表于 2025-6-3 17:50</a>
+
+最难的明明是扎夫特称号吧，目前真的能打出来么
+
+—— 来自 HONOR SDY-AN00, Android 14, 鹅球 v3.5.99 ...</blockquote>
+别慌，虽然自由正义都没词条，但是下期种命就要带着UR限定鸟来了（
+
+1吉翁勉强可以说整两台三星这期的UR扎古，2专用机目前也不可能达成吧？扎夫特词条倒是点之前没想到这么少XD
+
