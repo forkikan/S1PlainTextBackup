@@ -9156,3 +9156,23 @@ g ...</blockquote>
 g ...</blockquote>
 没有高达就没有偶像大师 确定的事实
 
+
+*****
+
+####  Gaybird  
+##### 17016#       发表于 2025-6-3 21:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67880445&amp;ptid=2209276" target="_blank">希望之异热同心 发表于 2025-6-3 07:21</a>
+【【浅谈】从夏利亚布尔所见的富野由悠季与安彦良和的新人类理念分歧-哔哩哔哩】 https://b23.tv/BpnvbiD
+g ...</blockquote>
+三牛掌握的资料可能和部分漏油也没差多少，但是视频制作和文案这块太赏心悦目了
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Libartas  
+##### 17017#       发表于 2025-6-3 21:13
+
+说起来反射弧有点长了，没人觉得gq2号机那个头很像阿努比斯的狗头吗
+

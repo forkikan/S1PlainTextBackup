@@ -3041,3 +3041,14 @@ B站天天推这个绿毛的切片，不过外形的确可以，让人想认识�
 合理解释是，以前高，空难后认识的人都以为她死了所以跌了，记者的信赖让她有个基础幸运加成所以能猜对硬 ...</blockquote>
 有点道理
 
+
+*****
+
+####  草台培训班  
+##### 268#       发表于 2025-6-3 21:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67878785&amp;ptid=2125794" target="_blank">DARK_HGCG 发表于 2025-6-3 12:46</a>
+
+日本人：你们中国人拍冻鳗，在反派身上画一个我们江户时代的方孔铜钱，是不是想乳日？</blockquote>
+这也太弱智了
+
