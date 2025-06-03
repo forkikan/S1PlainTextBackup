@@ -8430,3 +8430,11 @@ MACHU要是在地球完成真正的大海目标之后，GQX主线该怎么走
 
 现在把绿叔叔吹得太高结果最后人家只是直觉比较好的恋爱脑该怎么办啊<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Gysumitka  
+##### 16979#       发表于 2025-6-3 14:07
+
+又来个恋爱脑是吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">gqx怎么全是单箭头恋爱脑寡妇，都太自顾自
+

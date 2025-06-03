@@ -6547,3 +6547,11 @@ xbox布局手柄我直接右手大拇指搓球
 我倒是试过改到右边的ABXY输入，但会同 ...</blockquote>
 左手按L1和摇杆，右手按十字键不就行了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  九十九忍  
+##### 6536#       发表于 2025-6-3 14:08
+
+ds手柄+陀螺仪+特调震动我觉得真比键鼠舒服
+
