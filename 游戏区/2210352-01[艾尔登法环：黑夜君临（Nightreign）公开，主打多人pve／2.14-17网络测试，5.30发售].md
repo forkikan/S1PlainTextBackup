@@ -6721,3 +6721,23 @@ FROM SOFTWARE今日宣布，《艾尔登法环 黑夜君临》的全球总销量
 
 哈哈哈哈<img src="https://p.sda1.dev/24/2b25b6ce0c4e02ebf450375c2aad21a6/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RUANHYC  
+##### 675#       发表于 2025-6-3 21:47
+
+真别说，雷圣这俩图标真的太接近了，有时候没细看很容易跑错营地
+
+*****
+
+####  fbman  
+##### 676#       发表于 2025-6-3 21:48
+
+ 本帖最后由 fbman 于 2025-6-3 21:50 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67879503&amp;ptid=2210352" target="_blank">ylssb10438 发表于 2025-6-3 16:12</a>
+感觉这游戏很像以前war3的那些刷级刷装守基地的rpg图</blockquote>
+感觉做成war3rpg那种空闲时间大家各自刷野，时间到了传送回主城守城打boss的模式更有趣，现在跑圈压力太大了。<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
