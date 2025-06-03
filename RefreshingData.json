@@ -873,12 +873,12 @@
     "update": false
   },
   "2065831": {
-    "totalreply": 1879,
+    "totalreply": 1880,
     "title": "[【H】黑泥楼4]",
     "newtitle": "[【H】黑泥楼4]",
-    "lastedit": 1748633287,
+    "lastedit": 1748911453,
     "category": "虚拟主播区专楼",
-    "active": false,
+    "active": true,
     "update": false
   },
   "1914409": {
@@ -7362,10 +7362,10 @@
     "update": false
   },
   "2170568": {
-    "totalreply": 63083,
+    "totalreply": 63084,
     "title": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
     "newtitle": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
-    "lastedit": 1748879052,
+    "lastedit": 1748911332,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -7461,10 +7461,10 @@
     "update": false
   },
   "2171134": {
-    "totalreply": 13881,
+    "totalreply": 13896,
     "title": "[少女前线2：追放 五号楼  8号大决战勒]",
     "newtitle": "[少女前线2：追放 五号楼【群工会ID详见主楼】]",
-    "lastedit": 1748788446,
+    "lastedit": 1748911330,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12429,10 +12429,10 @@
     "update": false
   },
   "2210352": {
-    "totalreply": 626,
+    "totalreply": 627,
     "title": "[艾尔登法环：黑夜君临（Nightreign）公开，主打多人pve／2.14-17网络测试，5.30发售]",
     "newtitle": "[艾尔登法环：黑夜君临（Nightreign）公开，主打多人pve，5.30发售]",
-    "lastedit": 1748901615,
+    "lastedit": 1748911211,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13234,6 +13234,15 @@
     "title": "[【汉化招校对】铁塔专题：老登CRPG汉化补全企划第二弹，殖民船steam上传官方中文]",
     "newtitle": "[【汉化招校对】铁塔专题：老登CRPG汉化补全企划第二弹，殖民船steam上传官方中文]",
     "lastedit": 1748905332,
+    "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2252754": {
+    "totalreply": 42,
+    "title": "[任天堂病棟13楼，2025.6.5迈入ns2时代！]",
+    "newtitle": "[任天堂病棟13楼，2025.6.5迈入ns2时代！]",
+    "lastedit": 1748911454,
     "category": "游戏区",
     "active": true,
     "update": false
