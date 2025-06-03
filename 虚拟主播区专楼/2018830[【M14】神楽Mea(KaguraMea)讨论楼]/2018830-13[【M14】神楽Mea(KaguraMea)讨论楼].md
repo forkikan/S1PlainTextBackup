@@ -18283,3 +18283,14 @@ OK。  
 根据之前bmi21.5可得当时在125斤左右，现在怕是比我重了(当时也比我重)
 加上我不锻炼，被DV的时候应该打不过她
 
+
+*****
+
+####  shmilyhua  
+##### 18637#       发表于 2025-6-3 17:55
+
+这几天折腾了一下，借了些别人的轮子，搓了个TG的监视（视奸）机器人，暂时在试运行，感兴趣的可以加入看看。（
+t.me/meakagura_channel
+
+—— 来自 Google Pixel 8 Pro, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

@@ -3416,3 +3416,13 @@ wdnmd为什么强自不是专用机
 
 <img src="https://static.stage1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">困难都没打完，EX只打了第一关，又整新活
 
+
+*****
+
+####  无念  
+##### 1788#       发表于 2025-6-3 17:50
+
+最难的明明是扎夫特称号吧，目前真的能打出来么
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
