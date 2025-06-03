@@ -8524,3 +8524,39 @@ MACHU要是在地球完成真正的大海目标之后，GQX主线该怎么走
 
 正史夏亚主要是没有人引导，自己摸石头过河，好事没干成坏事也没干成
 
+
+*****
+
+####  eilot  
+##### 16990#       发表于 2025-6-3 16:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67879258&amp;ptid=2209276" target="_blank">RE㐅ia 发表于 2025-6-3 15:17</a>
+
+不好说，鸡西莉亚最看重的那个什么项目现在不就是有鸭子在参与吗</blockquote>
+千萬不要說GUX鴨子因為看了劇本，所以他才失蹤，讓扎比家自己鬼打鬼?
+
+只是為何放過卡爾馬他可以退出整條戰線?
+
+又或者鴨子他去了地球，就是去找卡爾馬?
+
+*****
+
+####  adretyu67.  
+##### 16991#       发表于 2025-6-3 16:30
+
+绿叔叔和鸭子聊了半天估计还是回到nt统治论。
+
+*****
+
+####  adretyu67.  
+##### 16992#       发表于 2025-6-3 16:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67879577&amp;ptid=2209276" target="_blank">eilot 发表于 2025-6-3 16:29</a>
+
+千萬不要說GUX鴨子因為看了劇本，所以他才失蹤，讓扎比家自己鬼打鬼?
+
+只是為何放過卡爾馬他可以退出整條 ...</blockquote>
+有一种可能，gqux鸭子因为开场上了高达缴了WB当自己母舰。
+
+所以他不需要执行原作的追击战追到地球，自然也坑不了卡尔马。
+

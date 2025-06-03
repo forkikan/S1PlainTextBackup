@@ -6588,3 +6588,18 @@ FROM SOFTWARE今日宣布，《艾尔登法环 黑夜君临》的全球总销量
 
 感觉这游戏很像以前war3的那些刷级刷装守基地的rpg图<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jy000129  
+##### 662#       发表于 2025-6-3 16:30
+
+ 本帖最后由 jy000129 于 2025-6-3 16:31 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67879503&amp;ptid=2210352" target="_blank">ylssb10438 发表于 2025-6-3 16:12</a>
+感觉这游戏很像以前war3的那些刷级刷装守基地的rpg图</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还真像，掐着表了刷怪练级凑装备打BOSS
+
+要不是某些点BOSS随机性太大都能军事化路线了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
