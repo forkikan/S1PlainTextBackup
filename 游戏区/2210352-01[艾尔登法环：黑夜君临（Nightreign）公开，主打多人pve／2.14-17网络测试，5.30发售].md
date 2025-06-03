@@ -6545,3 +6545,26 @@ FROM SOFTWARE今日宣布，《艾尔登法环 黑夜君临》的全球总销量
 
 代哥赚翻了，边角料奶粉作能有350w，看来首月冲500w不是梦啊
 
+
+*****
+
+####  xiaosayang  
+##### 658#       发表于 2025-6-3 15:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67879057&amp;ptid=2210352" target="_blank">医生狼多 发表于 2025-6-3 14:11</a>
+
+夜王三阶段要来了
+
+FROM SOFTWARE今日宣布，《艾尔登法环 黑夜君临》的全球总销量已突破350万份，感谢所有 ...</blockquote>
+历战王说是<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hirro  
+##### 659#       发表于 2025-6-3 15:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67879146&amp;ptid=2210352" target="_blank">nesrelax 发表于 2025-6-3 14:41</a>
+
+有人知道所谓的“古老封印监牢”和“古老法师塔”这两种特殊地形有什么能在地图上看出来的方法吗，古老封印 ...</blockquote>
+地图上都有图标，封印监牢需要你有石剑钥匙，在地图上有井盖一样图标的地方找个小恶魔放钥匙，出来BOSS
+

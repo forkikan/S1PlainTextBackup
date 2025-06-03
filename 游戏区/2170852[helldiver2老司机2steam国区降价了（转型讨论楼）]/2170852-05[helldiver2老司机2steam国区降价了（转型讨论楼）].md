@@ -6640,3 +6640,16 @@ ds手柄+陀螺仪+特调震动我觉得真比键鼠舒服
 另外没必要追求走搓，即使N10飞扑搓也够用了，扔500空袭叫补给增援都是短 ...</blockquote>
 搓主要是不按ctrl看不到指令，按下动不了，要飞扑搓就得搓的很快，飞扑搓出来，然后立刻爬起来跑，不然容易被围
 
+
+*****
+
+####  保科智子  
+##### 6544#       发表于 2025-6-3 15:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67879021&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2025-6-3 14:02</a>
+
+我是用的ps5手柄，所以c手方便，键位设置是r1劲舞团，l1下蹲趴下飞扑，圈标记，可以在瞄准射击的时候直接 ...</blockquote>
+DS的十字那么硬用C手搓战备太强了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+肩键我用的是快速手雷，手雷瞄准不能触发陀螺仪还是得靠R3调整来炸巢。打开steam输入是可以设置多个触发，但这样就没有扳机和震动了。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
