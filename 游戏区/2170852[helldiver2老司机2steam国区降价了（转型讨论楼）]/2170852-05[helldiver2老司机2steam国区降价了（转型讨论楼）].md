@@ -6723,3 +6723,14 @@ DS的十字那么硬用C手搓战备太强了。<img src="https://static.stage1s
 
 喷子武器只适合过渡，论强度还是不如你游造神计划的双幻神一毛。
 
+
+*****
+
+####  qwased  
+##### 6550#       发表于 2025-6-3 17:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67879657&amp;ptid=2170852" target="_blank">nbwjh0630 发表于 2025-6-3 16:47</a>
+
+普通破裂目前在掠食旅的表现强于火喷，属于是对掠食旅特化武器，目前火喷只能绑定补包玩，打中甲还比较慢 ...</blockquote>
+普通破裂一样要补包，或者说除了爆裂铳炸弹弩的武器其实都要补包<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">现在除了城里还能找点野生盒饭，用其他武器除非三号位是机枪系或者机炮不然都是一波烟就打光了
+
