@@ -6497,3 +6497,53 @@ xbox布局手柄我直接右手大拇指搓球
 
 按住呼叫键后方向键原本的功能是被屏蔽的，○×△□却没屏蔽是说到底还是箭头的问题，一直没解决。
 
+
+*****
+
+####  kalavinka  
+##### 6531#         楼主| 发表于 2025-6-3 13:56
+
+草里的 桑海电视台都报道了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赤井稻妻  
+##### 6532#       发表于 2025-6-3 13:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67878470&amp;ptid=2170852" target="_blank">AEmpire 发表于 2025-6-3 11:33</a>
+
+真搞不懂现在的攻略人均推荐民主爆破的，新人还是得以保活清杂为主，结果现在人均带个爆燃弩爆裂铳打东线 ...</blockquote>
+一个是爆裂铳是最超模的主武器，主手4穿独一无二，而且也是主副手唯一可以打爆虫巢的武器，也是唯一可以打爆重甲的手雷，就功能上本体武器基本没办法替代，然后毒雷也一样，震撼弹也是，所以很多人推荐新手换民主爆破和毒这种组合，也就忽略了铁血老兵的火喷和主宰
+
+*****
+
+####  全装甲夏亚  
+##### 6533#       发表于 2025-6-3 14:00
+
+现在啥配装新手来了不也得被掠食虫扇几个巴掌，三五个掠食虫围上来针都扎不上，爆破债券就算不用爆燃弩也有榴弹手枪和铝热能用，这个债券还是强
+
+
+*****
+
+####  赤井稻妻  
+##### 6534#       发表于 2025-6-3 14:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67878726&amp;ptid=2170852" target="_blank">保科智子 发表于 2025-6-3 12:31</a>
+
+手柄默认战备输入是左手的十字键，怎样兼顾左摇杆的移动，C手吗？
+
+我倒是试过改到右边的ABXY输入，但会同 ...</blockquote>
+我是用的ps5手柄，所以c手方便，键位设置是r1劲舞团，l1下蹲趴下飞扑，圈标记，可以在瞄准射击的时候直接飞扑，左手c手的时候持续按着r1，标记纯属平时不用，就放在圈的位置了
+
+*****
+
+####  gnleez  
+##### 6535#       发表于 2025-6-3 14:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67878726&amp;ptid=2170852" target="_blank">保科智子 发表于 2025-6-3 12:31</a>
+
+手柄默认战备输入是左手的十字键，怎样兼顾左摇杆的移动，C手吗？
+
+我倒是试过改到右边的ABXY输入，但会同 ...</blockquote>
+左手按L1和摇杆，右手按十字键不就行了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

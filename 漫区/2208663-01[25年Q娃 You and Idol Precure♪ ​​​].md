@@ -1503,3 +1503,13 @@ ZQ小姐究竟是何方神圣啊，真是传说中的偶像，突然能理解草
 
 —— 来自 HUAWEI JER-AN20, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
 
+
+*****
+
+####  noneoneone  
+##### 990#       发表于 2025-6-3 13:58
+
+但我还是很难想象恢复记忆后顶着这两张脸说话噗哩
+
+—— 来自 Xiaomi 2410DPN6CC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
