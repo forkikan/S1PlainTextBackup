@@ -6611,3 +6611,32 @@ FROM SOFTWARE今日宣布，《艾尔登法环 黑夜君临》的全球总销量
 
 试水还卖这么多，而且大量反馈和经验可以移植到Duskblood那边
 
+
+*****
+
+####  LiniN  
+##### 664#       发表于 2025-6-3 16:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67879146&amp;ptid=2210352" target="_blank">nesrelax 发表于 2025-6-3 14:41</a>
+
+有人知道所谓的“古老封印监牢”和“古老法师塔”这两种特殊地形有什么能在地图上看出来的方法吗，古老封印 ...</blockquote>
+我看加载tip里有提到古老法杖，原句不记得了，当时读的时候感觉就是看运气的。法师塔这种纯背板机制如果明写古老可能普通塔就不会有人去了吧。
+
+
+*****
+
+####  zy450  
+##### 665#       发表于 2025-6-3 16:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67879503&amp;ptid=2210352" target="_blank">ylssb10438 发表于 2025-6-3 16:12</a>
+
+感觉这游戏很像以前war3的那些刷级刷装守基地的rpg图</blockquote>
+真怀念，真好玩
+
+*****
+
+####  jacket  
+##### 666#       发表于 2025-6-3 16:57
+
+之前以为隐者光着脚，原来穿了鞋
+

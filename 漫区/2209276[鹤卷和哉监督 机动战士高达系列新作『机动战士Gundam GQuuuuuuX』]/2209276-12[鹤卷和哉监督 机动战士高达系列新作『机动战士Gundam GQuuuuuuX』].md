@@ -8570,3 +8570,14 @@ MACHU要是在地球完成真正的大海目标之后，GQX主线该怎么走
 
 OST2要发了，不知道下一首插曲什么时候
 
+
+*****
+
+####  yanghuangu  
+##### 16994#       发表于 2025-6-3 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67878738&amp;ptid=2209276" target="_blank">璇瑢子R 发表于 2025-6-3 12:34</a>
+
+你不如说连个正经nt都没有是怎么开发出需要强力nt的机子的</blockquote>
+这不是经典的自己先造车站等别人铺路过来吗<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">属于呼应现实了
+
