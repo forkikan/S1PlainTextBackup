@@ -9378,3 +9378,18 @@ G永恒送白毛
 
 白毛终究还是死了嘛<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cayon  
+##### 17036#       发表于 2025-6-3 23:10
+
+跟主角也没啥互动，变女鬼也不知道要说啥<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我聞如是  
+##### 17037#       发表于 2025-6-3 23:12
+
+G英靈殿<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
