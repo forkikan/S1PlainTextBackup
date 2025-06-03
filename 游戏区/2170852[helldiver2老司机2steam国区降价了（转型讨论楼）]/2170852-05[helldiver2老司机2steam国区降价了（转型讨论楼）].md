@@ -6423,3 +6423,13 @@ hd2虽然弱化了很多友军伤害，但是他还是有很多这方面的保�
 
 2025-6-3 11:49 上传
 
+
+*****
+
+####  银色天空  
+##### 6524#       发表于 2025-6-3 12:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67878531&amp;ptid=2170852" target="_blank">briareos 发表于 2025-6-3 11:50</a>
+要命了 我打字是用tp键盘 所以为了打HD2又加了一个单手键盘 自己觉得很好使 如果切过去就只能用TP键盘的 ...</blockquote>
+用wasd可以飞扑搓指令，也不算笨
+
