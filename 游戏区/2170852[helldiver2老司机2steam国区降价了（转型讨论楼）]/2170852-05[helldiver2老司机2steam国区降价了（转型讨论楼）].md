@@ -6584,3 +6584,13 @@ ds手柄+陀螺仪+特调震动我觉得真比键鼠舒服
 要命了 我打字是用tp键盘 所以为了打HD2又加了一个单手键盘 自己觉得很好使 如果切过去就只能用TP键盘的 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">键盘没白买，可以试试把战备改建的W和S改成Q和E，可以实现边跑边搓，就是要经过改变肌肉记忆的阵痛期
 
+
+*****
+
+####  ykyin09  
+##### 6539#       发表于 2025-6-3 14:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67879000&amp;ptid=2170852" target="_blank">kalavinka 发表于 2025-6-3 13:56</a>
+草里的 桑海电视台都报道了</blockquote>
+事到如今超级气球是太空法西斯的事情已经说不出口了
+

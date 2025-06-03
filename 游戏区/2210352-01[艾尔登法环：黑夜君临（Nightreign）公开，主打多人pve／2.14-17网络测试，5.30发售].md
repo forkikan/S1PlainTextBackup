@@ -6463,3 +6463,31 @@ FROM SOFTWARE今日宣布，《艾尔登法环 黑夜君临》的全球总销量
 推荐戟，他用戟是特殊优化动作。其他角色都有对应武器类型的优化动作</blockquote>
 惊了，这个是真不知道，我以为图鉴上写的擅长只是个普通的推荐
 
+
+*****
+
+####  kemyes  
+##### 649#       发表于 2025-6-3 14:26
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就这品质还能350W叫后劲不足，隔壁KT真的哭死
+
+*****
+
+####  usodakedo  
+##### 650#       发表于 2025-6-3 14:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67879085&amp;ptid=2210352" target="_blank">umbasa 发表于 2025-6-3 14:20</a>
+我靠，说你胖还喘上了。350w的小品试水作还叫后劲不足啊，我敢说代便都没指望这玩意首月能卖500w。生命周 ...</blockquote>
+主要这几天骂归骂，喷归喷，差评归差评，但居然真的开始理解小石了，尤其是newtype这块，多增加点内容，改善一下新人体验，真的可以9分
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  leafS  
+##### 651#       发表于 2025-6-3 14:30
+
+我就希望能给个投票放弃当局的选项，有时候开局血崩后面完全就是垃圾长痛时间，真的感觉在浪费生命
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
