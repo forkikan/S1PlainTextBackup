@@ -1956,3 +1956,13 @@ demo打完，223已入库，等开下载了<img src="https://static.stage1st.com
 
 —— 来自 samsung SM-F9460, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  一心敬  
+##### 2202#       发表于 2025-6-3 09:45
+
+<blockquote>razielzyc 发表于 2025-6-2 20:28
+最近同时在玩三国无双起源。就觉得demo还是差了一口气，不如起源流畅。是我的错觉么。 ...</blockquote>
+起源弹反闪避都是无条件打断任何动作且毫无延迟，武技很多都有霸体无双更是全程无敌，当然流畅了
+
