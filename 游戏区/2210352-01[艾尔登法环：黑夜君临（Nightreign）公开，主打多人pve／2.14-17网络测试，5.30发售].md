@@ -6394,3 +6394,11 @@ ps5版 没有会员单人可以玩吗
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  鈴姉御肌  
+##### 642#       发表于 2025-6-3 13:21
+
+原来这布德奇冥还真是个谐音梗 这BOSS日文名叫ナメレス(NAMELESS)<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
