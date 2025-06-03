@@ -6261,3 +6261,24 @@ boss也做得很出色，目前打过的三狼和冰龙都各有特色，和朋�
 —— 来自 鹅球 v3.3.96</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">恭喜你离通关不远了，最难的已经过了，剩下俩弱鸡了
 
+
+*****
+
+####  pgain2004  
+##### 630#       发表于 2025-6-3 09:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67877855&amp;ptid=2210352" target="_blank">nesrelax 发表于 2025-6-3 08:34</a>
+核心是被动的防御时推摇杆+B可以进入强化防御模式，大幅度提高防御强度。对装备要求不是很高，拿到能盾戳 ...</blockquote>
+推荐戟，他用戟是特殊优化动作。其他角色都有对应武器类型的优化动作
+
+*****
+
+####  ohi.02  
+##### 631#       发表于 2025-6-3 09:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67877464&amp;ptid=2210352" target="_blank">北欧王座 发表于 2025-6-3 00:04</a>
+上手了还可以，7，8分水平，妖魔化反攻倒算与其说是游戏品质特别差，不如说是与诸多其他社群摩擦产生的不满 ...</blockquote>
+举盾吧，几个紫色的大盾牌都不错
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
