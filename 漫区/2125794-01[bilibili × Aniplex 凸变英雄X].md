@@ -3007,3 +3007,27 @@ B站天天推这个绿毛的切片，不过外形的确可以，让人想认识�
 
 —— 来自 OnePlus IN2020, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  DARK_HGCG  
+##### 266#       发表于 2025-6-3 12:46
+
+日本人：你们中国人拍冻鳗，在反派身上画一个我们江户时代的方孔铜钱，是不是想乳日？
+
+<img src="https://img.stage1st.com/forum/202506/03/124629rlxacf0oogttf0kl.jpg" referrerpolicy="no-referrer">
+
+<strong>1748925781789.jpg</strong> (14.99 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-3 12:46 上传
+
+<img src="https://img.stage1st.com/forum/202506/03/124630r71vryht4yvoq4u4.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250603-134240.png</strong> (70.77 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-3 12:46 上传
+
