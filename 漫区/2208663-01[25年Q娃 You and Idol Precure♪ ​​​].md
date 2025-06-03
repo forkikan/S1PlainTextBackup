@@ -1461,3 +1461,11 @@ https://x.com/blossom394/status/1929099144334897529</blockquote>
 
 回复记忆在转回来那得多扭啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  reoch  
+##### 986#       发表于 2025-6-3 11:08
+
+看标题第20集寻找记忆，第21集五人合体技，进展好快啊，希望不是草草带过，这个失去记忆的代价明明有很多可以写的
+
