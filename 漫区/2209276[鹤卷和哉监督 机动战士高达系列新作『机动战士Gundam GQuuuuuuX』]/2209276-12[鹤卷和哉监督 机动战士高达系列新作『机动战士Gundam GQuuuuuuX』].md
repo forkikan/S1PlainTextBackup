@@ -8581,3 +8581,34 @@ OST2要发了，不知道下一首插曲什么时候
 你不如说连个正经nt都没有是怎么开发出需要强力nt的机子的</blockquote>
 这不是经典的自己先造车站等别人铺路过来吗<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">属于呼应现实了
 
+
+*****
+
+####  eilot  
+##### 16995#       发表于 2025-6-3 17:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67879596&amp;ptid=2209276" target="_blank">adretyu67. 发表于 2025-6-3 16:32</a>
+
+有一种可能，gqux鸭子因为开场上了高达缴了WB当自己母舰。
+
+所以他不需要执行原作的追击战追到地球，自然 ...</blockquote>
+這樣說也可以引伸出一個可能
+
+就是鴨子全程都是用紅高達，其後再加BIT在宇宙中測試其性能，戰果愈來愈豐碩，所以才有高達量產意見，將原定的各種MA開發計劃都取消
+
+令他沒機會像原作一樣被丟去地球
+
+還是卡爾馬退休能退出扎比家這戰線及關係圈，反而有問題
+
+*****
+
+####  无念  
+##### 16996#       发表于 2025-6-3 17:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67879655&amp;ptid=2209276" target="_blank">yanghuangu 发表于 2025-6-3 16:47</a>
+这不是经典的自己先造车站等别人铺路过来吗属于呼应现实了</blockquote>
+那不是还有玫瑰嘛，不论那是机体还是人，都可以当参考的，如果玫瑰指的是艾尔美斯，那起码他们得到了一台完整的塞可缪ma
+如果指的是拉拉，那nt力可太强力了，足足当了十年多的宇宙女鬼
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
