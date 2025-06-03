@@ -9143,3 +9143,16 @@ g ...</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来感觉今晚蓝原延珠的直播间又要被米诺夫斯基粒子隔绝通讯了
 
+
+*****
+
+####  wpcc  
+##### 17015#       发表于 2025-6-3 20:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67880445&amp;ptid=2209276" target="_blank">希望之异热同心 发表于 2025-6-3 20:21</a>
+
+【【浅谈】从夏利亚布尔所见的富野由悠季与安彦良和的新人类理念分歧-哔哩哔哩】 https://b23.tv/BpnvbiD
+
+g ...</blockquote>
+没有高达就没有偶像大师 确定的事实
+

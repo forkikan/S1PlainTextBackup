@@ -6713,3 +6713,11 @@ FROM SOFTWARE今日宣布，《艾尔登法环 黑夜君临》的全球总销量
 
 我倒是感觉前途光明，毕竟现在这样子也能多半好评，大伙确实是能心灵相通的<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  医生狼多  
+##### 674#         楼主| 发表于 2025-6-3 21:02
+
+哈哈哈哈<img src="https://p.sda1.dev/24/2b25b6ce0c4e02ebf450375c2aad21a6/image.jpg" referrerpolicy="no-referrer">
+
