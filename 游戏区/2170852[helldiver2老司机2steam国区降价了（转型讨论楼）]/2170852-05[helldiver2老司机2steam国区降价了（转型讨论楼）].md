@@ -6555,3 +6555,32 @@ xbox布局手柄我直接右手大拇指搓球
 
 ds手柄+陀螺仪+特调震动我觉得真比键鼠舒服
 
+
+*****
+
+####  赤井稻妻  
+##### 6537#       发表于 2025-6-3 14:20
+
+ 本帖最后由 赤井稻妻 于 2025-6-3 14:22 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67878435&amp;ptid=2170852" target="_blank">briareos 发表于 2025-6-3 11:25</a>
+
+就差三百币了 我要解锁火喷！ 好后悔先开轮椅这个券 换弹轻甲不如B-08跑图甲耐活 
+
+打FPS用鼠标键盘已 ...</blockquote>
+我推荐用榴弹枪+补给背包这种组合，主副雷都随便带，全场只有泰坦你需要注意一点，可以带500，用反泰坦体操来杀，就是等泰坦近身跳舞直接给500，低难度也可以带轨道炮打击，虽然cd长但是出手不用管
+
+需要注意的就是用榴弹杀牛需要往他身侧的地面射来炸屁股，有机会从身后射击也是炸屁股，杀穿刺虫是等他埋地之后炸脸，5发就能击杀
+
+另一个打虫子的邪道武器是喷火器，现在喷火器烧泰坦的头也很快，但是太危险了，不是很推荐了，因为接敌太近了，除了容易被围还容易死于不明aoe
+
+
+*****
+
+####  First_Snow  
+##### 6538#       发表于 2025-6-3 14:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67878531&amp;ptid=2170852" target="_blank">briareos 发表于 2025-6-3 11:50</a>
+
+要命了 我打字是用tp键盘 所以为了打HD2又加了一个单手键盘 自己觉得很好使 如果切过去就只能用TP键盘的 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">键盘没白买，可以试试把战备改建的W和S改成Q和E，可以实现边跑边搓，就是要经过改变肌肉记忆的阵痛期
+
