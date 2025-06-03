@@ -6734,3 +6734,14 @@ DS的十字那么硬用C手搓战备太强了。<img src="https://static.stage1s
 普通破裂目前在掠食旅的表现强于火喷，属于是对掠食旅特化武器，目前火喷只能绑定补包玩，打中甲还比较慢 ...</blockquote>
 普通破裂一样要补包，或者说除了爆裂铳炸弹弩的武器其实都要补包<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">现在除了城里还能找点野生盒饭，用其他武器除非三号位是机枪系或者机炮不然都是一波烟就打光了
 
+
+*****
+
+####  stormquantage  
+##### 6551#       发表于 2025-6-3 20:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67878470&amp;ptid=2170852" target="_blank">AEmpire 发表于 2025-6-3 11:33</a>
+
+真搞不懂现在的攻略人均推荐民主爆破的，新人还是得以保活清杂为主，结果现在人均带个爆燃弩爆裂铳打东线 ...</blockquote>
+但我推荐朋友还是先买爆破，就算是东线这个也是优先。原因无他，铝热和榴弹手枪在东线功能性太强。初始战令只要拿到破裂者主武器基本都可以了，学会了再玩爆裂双雄永远不差，但铝热和榴弹手枪这俩东西无可替代。如果玩西线那爆破就更无脑了，甲抗都是对应的。
+

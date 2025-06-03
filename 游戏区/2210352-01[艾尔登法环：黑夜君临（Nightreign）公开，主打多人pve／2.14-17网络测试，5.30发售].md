@@ -6701,3 +6701,15 @@ FROM SOFTWARE今日宣布，《艾尔登法环 黑夜君临》的全球总销量
 地图上都有图标，封印监牢需要你有石剑钥匙，在地图上有井盖一样图标的地方找个小恶魔放钥匙，出来BOSS ...</blockquote>
 那个是普通封印监牢，古老封印监牢好像是有几率在普通的封印监牢里面出现，出现的怪比普通的强，掉落也更好，但是不知道怎么样才算出现<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  plok201  
+##### 673#       发表于 2025-6-3 20:35
+
+一周都不到就350W了，石榴和FF7流口水了好吧
+
+想了想，本作有个好是其实他没有多随机，大的方向基本上是定死的，很快游玩过程就变成速通研究的优化部分，一个350W人一起研究的速通挺有趣的
+
+我倒是感觉前途光明，毕竟现在这样子也能多半好评，大伙确实是能心灵相通的<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
