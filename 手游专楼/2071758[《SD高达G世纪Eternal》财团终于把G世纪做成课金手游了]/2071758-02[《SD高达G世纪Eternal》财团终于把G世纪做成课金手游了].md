@@ -3315,3 +3315,14 @@ https://www.bilibili.com/video/BV1wW7gzbEor/
 
 万哥给的3000抽了个有德，最近手气真不行
 
+
+*****
+
+####  电脑死机  
+##### 1778#       发表于 2025-6-3 08:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67876678&amp;ptid=2071758" target="_blank">ドロロ 发表于 2025-6-2 18:46</a>
+
+万哥给的3000抽了个有德，最近手气真不行</blockquote>
+已经很好了，我已经70连没见过任何ur了
+

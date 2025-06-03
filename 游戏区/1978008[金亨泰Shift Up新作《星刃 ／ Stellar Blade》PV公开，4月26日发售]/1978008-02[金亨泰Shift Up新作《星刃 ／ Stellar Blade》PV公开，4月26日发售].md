@@ -1946,3 +1946,13 @@ ps5首发就不预购pc了，期待漏油的4k高清色图。<img src="https://s
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  棍机凹升龙  
+##### 2201#       发表于 2025-6-3 08:31
+
+demo打完，223已入库，等开下载了<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-F9460, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
