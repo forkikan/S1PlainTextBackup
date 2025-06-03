@@ -3344,3 +3344,21 @@ EX5设计就很好，普通人要多做一台流星，双流星金异端师匠�
 
 好，等周年活动机！
 
+
+*****
+
+####  AminGly  
+##### 1781#       发表于 2025-6-3 11:17
+
+这成就居然不给我用超级力量了
+
+*****
+
+####  kenqqex  
+##### 1782#       发表于 2025-6-3 11:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67878408&amp;ptid=2071758" target="_blank">AminGly 发表于 2025-6-3 11:17</a>
+
+这成就居然不给我用超级力量了</blockquote>
+你可以用满破44和ur人的 依然超级力量 <img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
