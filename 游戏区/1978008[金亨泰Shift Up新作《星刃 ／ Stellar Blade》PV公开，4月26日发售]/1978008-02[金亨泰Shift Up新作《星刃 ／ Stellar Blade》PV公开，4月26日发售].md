@@ -1936,3 +1936,13 @@ demo玩到第一个存档点，给我直观感受就是太tm尼尔了<img src="h
 
 通关一周目有挑战模式可以打所有boss的
 
+
+*****
+
+####  Schwarzess  
+##### 2200#       发表于 2025-6-3 08:21
+
+ps5首发就不预购pc了，期待漏油的4k高清色图。<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+

@@ -8238,3 +8238,13 @@ HULK的體能的初始值是比雷神略低，因為數值表是說他能因憤�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">预告图里番茄嘴都咧到天上去了，真能虐的起来吗
 
+
+*****
+
+####  古怪山庄士大夫  
+##### 16959#       发表于 2025-6-3 08:16
+
+<blockquote>jojonathan 发表于 2025-6-3 06:26
+不知道今晚有没有虐茄看</blockquote>
+对应第三集，今晚是爱茄tv
+
