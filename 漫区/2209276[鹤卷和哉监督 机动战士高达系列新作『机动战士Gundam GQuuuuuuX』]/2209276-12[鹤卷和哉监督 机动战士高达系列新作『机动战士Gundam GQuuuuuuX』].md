@@ -8274,3 +8274,11 @@ HULK的體能的初始值是比雷神略低，因為數值表是說他能因憤�
 
 シロウズ在二创里已经开始抢占骡子敲代码和卡缪灌魔爪的生态位了，现代化改造有点太猛了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  未来起航  
+##### 16963#       发表于 2025-6-3 11:39
+
+话说紫婆真抠门吧。引发ziknova的报酬就是给点奖学金<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

@@ -6368,3 +6368,27 @@ hd2虽然弱化了很多友军伤害，但是他还是有很多这方面的保�
 
 这个加捡来的补给背包也救了我一命
 
+
+*****
+
+####  AEmpire  
+##### 6520#       发表于 2025-6-3 11:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67878332&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2025-6-3 11:01</a>
+
+每个玩家都有属于自己的麦河，你也可以试试用手柄打虫子，因为虫子不是很需要瞄准，但是用手柄可以很方便 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">真搞不懂现在的攻略人均推荐民主爆破的，新人还是得以保活清杂为主，结果现在人均带个爆燃弩爆裂铳打东线的掠食变种被追的开不出枪，还不如带把喷子有体验
+
+
+*****
+
+####  AEmpire  
+##### 6521#       发表于 2025-6-3 11:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67878435&amp;ptid=2170852" target="_blank">briareos 发表于 2025-6-3 11:25</a>
+
+就差三百币了 我要解锁火喷！ 好后悔先开轮椅这个券 换弹轻甲不如B-08跑图甲耐活 
+
+打FPS用鼠标键盘已 ...</blockquote>
+键鼠可以把搓指令改成方向键用右手去搓，也可以做到边跑边搓的。虽然这时候用不了鼠标，但是也比原地罚站好多了
+
