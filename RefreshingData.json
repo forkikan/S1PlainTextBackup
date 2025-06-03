@@ -5607,10 +5607,10 @@
     "update": false
   },
   "2139166": {
-    "totalreply": 11720,
+    "totalreply": 11721,
     "title": "[Capcom《街霸 6》新宣传视频公开，2023年6月2日发售]",
     "newtitle": "[Capcom《街霸 6》新宣传视频公开，2023年6月2日发售]",
-    "lastedit": 1748921423,
+    "lastedit": 1748925377,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -7362,10 +7362,10 @@
     "update": false
   },
   "2170568": {
-    "totalreply": 63098,
+    "totalreply": 63099,
     "title": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
     "newtitle": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
-    "lastedit": 1748924536,
+    "lastedit": 1748925488,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -7524,10 +7524,10 @@
     "update": false
   },
   "2170852": {
-    "totalreply": 6524,
+    "totalreply": 6526,
     "title": "[helldiver2老司机2steam国区降价了（转型讨论楼）]",
     "newtitle": "[helldiver2老司机2steam国区降价了（转型讨论楼）]",
-    "lastedit": 1748924418,
+    "lastedit": 1748925377,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -10521,10 +10521,10 @@
     "update": false
   },
   "2209276": {
-    "totalreply": 16968,
+    "totalreply": 16970,
     "title": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
     "newtitle": "[鹤卷和哉监督 机动战士高达系列新作『机动战士Gundam GQuuuuuuX』]",
-    "lastedit": 1748924532,
+    "lastedit": 1748925373,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 144109,
+    "totalreply": 144116,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1748924775,
+    "lastedit": 1748925377,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12137,7 +12137,7 @@
     "newtitle": "[直到魔女消逝这个片子没有专楼吗(ある魔女が死ぬまで)]",
     "lastedit": 1748665934,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2252059": {
@@ -12366,10 +12366,10 @@
     "update": false
   },
   "2136112": {
-    "totalreply": 124,
+    "totalreply": 128,
     "title": "[符文工房 龙之天地发表 ，2025年／5／30发售，ns／steam]",
     "newtitle": "[符文工房 龙之天地发表 ，2025／6／5发售，ns／steam]",
-    "lastedit": 1748924771,
+    "lastedit": 1748925377,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12888,10 +12888,10 @@
     "update": false
   },
   "2252566": {
-    "totalreply": 65,
+    "totalreply": 66,
     "title": "[三国8重制版现在有定论了吗，和三国志14哪个评价更好]",
     "newtitle": "[三国8重制版现在有定论了吗，和三国志14哪个评价更好]",
-    "lastedit": 1748852174,
+    "lastedit": 1748925012,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12930,7 +12930,7 @@
     "lastedit": 1748919180,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2252605": {
     "totalreply": 47,
@@ -13230,10 +13230,10 @@
     "update": false
   },
   "2252754": {
-    "totalreply": 96,
+    "totalreply": 97,
     "title": "[任天堂病棟13楼，2025.6.5迈入ns2时代！]",
     "newtitle": "[任天堂病棟13楼，2025.6.5迈入ns2时代！]",
-    "lastedit": 1748924775,
+    "lastedit": 1748925377,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13244,6 +13244,15 @@
     "newtitle": "[哪一部机战有完整的铁血高达剧情的？]",
     "lastedit": 1748923577,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2119636": {
+    "totalreply": 49,
+    "title": "[gal归漫叶水怀旧愿望单(ToHeart重制25／06／26发售)]",
+    "newtitle": "[gal归漫叶水怀旧愿望单(ToHeart重制25／06／26发售)]",
+    "lastedit": 1748925132,
+    "category": "漫区",
     "active": true,
     "update": false
   }

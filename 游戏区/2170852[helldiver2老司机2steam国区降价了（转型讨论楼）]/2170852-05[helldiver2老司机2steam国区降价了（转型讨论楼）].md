@@ -6433,3 +6433,25 @@ hd2虽然弱化了很多友军伤害，但是他还是有很多这方面的保�
 要命了 我打字是用tp键盘 所以为了打HD2又加了一个单手键盘 自己觉得很好使 如果切过去就只能用TP键盘的 ...</blockquote>
 用wasd可以飞扑搓指令，也不算笨
 
+
+*****
+
+####  ykyin09  
+##### 6525#       发表于 2025-6-3 12:28
+
+我一代用手柄玩的，习惯了十字键搓战备，现在让我用键盘我实在用不来<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  保科智子  
+##### 6526#       发表于 2025-6-3 12:31
+
+ 本帖最后由 保科智子 于 2025-6-3 12:34 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67878332&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2025-6-3 11:01</a>
+每个玩家都有属于自己的麦河，你也可以试试用手柄打虫子，因为虫子不是很需要瞄准，但是用手柄可以很方便 ...</blockquote>
+手柄默认战备输入是左手的十字键，怎样兼顾左摇杆的移动，C手吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我倒是试过改到右边的ABXY输入，但会同时触发蹲起动作，遇到→→的战备就是人和球一起飞出去。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+另外游戏自带陀螺仪瞄准，加上准心吸附我觉得比键鼠还好用。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+—— 来自 HONOR FLC-AN00, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
