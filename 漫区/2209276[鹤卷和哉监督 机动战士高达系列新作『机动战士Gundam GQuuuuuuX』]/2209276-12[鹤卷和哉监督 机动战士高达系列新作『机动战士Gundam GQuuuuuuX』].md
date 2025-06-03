@@ -9113,3 +9113,12 @@ gqx伟大，把三牛炸出来了
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  猫兔同笼  
+##### 17012#       发表于 2025-6-3 20:27
+
+For the Barrel人设我是真的喜欢，机设是真不敢苟同，杂志连载的小说还是太自由了
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
