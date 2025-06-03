@@ -1477,3 +1477,29 @@ https://x.com/blossom394/status/1929099144334897529</blockquote>
 
 ZQ小姐究竟是何方神圣啊，真是传说中的偶像，突然能理解草莓前辈为什么那么痴迷于美月前辈了<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ΣPRC  
+##### 988#       发表于 2025-6-3 13:55
+
+上北ふたご
+<img src="https://p.sda1.dev/24/17de1447fc6cd0cb7193655466619dc2/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI JER-AN20, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
+*****
+
+####  ΣPRC  
+##### 989#       发表于 2025-6-3 13:56
+
+蒼依てて
+<img src="https://p.sda1.dev/24/15ef4ef68ce4ca4ae4c7b8f113cd6c2c/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/9e455e933390e7cd28ca04c3b4cfc4a6/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/63094e1aa88073a6073f7b234763329c/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/234e8d386e96c12382f0195d7fb52423/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/f1c947edf7258f8e3187d93bf9785d2b/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/f27eb9daf3bcfd5b389600eefb125249/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI JER-AN20, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+

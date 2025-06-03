@@ -8411,3 +8411,22 @@ MACHU要是在地球完成真正的大海目标之后，GQX主线该怎么走
 
 看看这集能不能透露绿叔叔对于二号机和尤玛恩托的事情知道多少，要是啥都不知道的话，之前的算计通人设就有点小丑了（
 
+
+*****
+
+####  大十字紅朔  
+##### 16977#       发表于 2025-6-3 13:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67878576&amp;ptid=2209276" target="_blank">mengsu 发表于 2025-6-3 11:58</a>
+
+说来也是奇怪，喵安来之前老太婆连个正经NT都没有，她怎么能把脑波传导这科技线往下推的啊？不会全靠绿叔 ...</blockquote>
+基连在的话NT方面的技术和人员这些东西应该在基连手里
+
+
+*****
+
+####  LadySaazbaum  
+##### 16978#       发表于 2025-6-3 13:53
+
+现在把绿叔叔吹得太高结果最后人家只是直觉比较好的恋爱脑该怎么办啊<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

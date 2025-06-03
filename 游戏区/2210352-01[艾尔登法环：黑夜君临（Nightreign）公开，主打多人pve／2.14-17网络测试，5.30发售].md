@@ -6402,3 +6402,15 @@ ps5版 没有会员单人可以玩吗
 
 原来这布德奇冥还真是个谐音梗 这BOSS日文名叫ナメレス(NAMELESS)<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  serj005  
+##### 643#       发表于 2025-6-3 13:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67878909&amp;ptid=2210352" target="_blank">鈴姉御肌 发表于 2025-6-3 13:21</a>
+原来这布德奇冥还真是个谐音梗 这BOSS日文名叫ナメレス(NAMELESS)</blockquote>
+想问一下英语的Heolstor是怎么来的？感觉找不到比较接近的词。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
