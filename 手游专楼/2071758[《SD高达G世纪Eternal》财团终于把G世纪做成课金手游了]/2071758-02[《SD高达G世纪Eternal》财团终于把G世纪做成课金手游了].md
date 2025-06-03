@@ -3362,3 +3362,33 @@ EX5设计就很好，普通人要多做一台流星，双流星金异端师匠�
 这成就居然不给我用超级力量了</blockquote>
 你可以用满破44和ur人的 依然超级力量 <img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AminGly  
+##### 1783#       发表于 2025-6-3 11:49
+
+<blockquote>rockroxas 发表于 2025-6-3 11:07
+更新了永恒的挑战成就，主要是仅使用开发/活动机体完成拿钻（
+
+好，等周年活动机！
+
+全机存活这个感觉是盾活 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202506/03/114904lppsnfjp2pgcg9cg.png" referrerpolicy="no-referrer">
+
+<strong>IMG_2604.png</strong> (442.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-3 11:49 上传
+
+最难得感觉是全开发机打过去 刚打完ex1
+
+*****
+
+####  AminGly  
+##### 1784#       发表于 2025-6-3 11:51
+
+wdnmd为什么强自不是专用机
+

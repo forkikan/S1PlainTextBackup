@@ -8282,3 +8282,16 @@ HULK的體能的初始值是比雷神略低，因為數值表是說他能因憤�
 
 话说紫婆真抠门吧。引发ziknova的报酬就是给点奖学金<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  galgamesh11  
+##### 16964#       发表于 2025-6-3 11:45
+
+ 本帖最后由 galgamesh11 于 2025-6-3 11:48 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67878489&amp;ptid=2209276" target="_blank">未来起航 发表于 2025-6-3 11:39</a>
+
+话说紫婆真抠门吧。引发ziknova的报酬就是给点奖学金</blockquote>
+
+其实这只是不知道喵安具体能力的时候随口一说的，实际上喵安机外操控浮游炮杀人之后，紫婆直接大房间安排上了（在月球你估计奖学金全用了都租不到这种带窗户的），首席也说“你转眼成了基西莉亚最器重的手下之一”，显然察觉到喵安的才能之后紫婆给的待遇就完全不一样了
+

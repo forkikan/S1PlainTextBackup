@@ -6392,3 +6392,34 @@ hd2虽然弱化了很多友军伤害，但是他还是有很多这方面的保�
 打FPS用鼠标键盘已 ...</blockquote>
 键鼠可以把搓指令改成方向键用右手去搓，也可以做到边跑边搓的。虽然这时候用不了鼠标，但是也比原地罚站好多了
 
+
+*****
+
+####  sloorz  
+##### 6522#       发表于 2025-6-3 11:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67878435&amp;ptid=2170852" target="_blank">briareos 发表于 2025-6-3 11:25</a>
+
+就差三百币了 我要解锁火喷！ 好后悔先开轮椅这个券 换弹轻甲不如B-08跑图甲耐活 
+
+打FPS用鼠标键盘已 ...</blockquote>
+另推荐电喷，是打虫拉火车的神器。
+
+*****
+
+####  briareos  
+##### 6523#       发表于 2025-6-3 11:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67878478&amp;ptid=2170852" target="_blank">AEmpire 发表于 2025-6-3 11:36</a>
+
+键鼠可以把搓指令改成方向键用右手去搓，也可以做到边跑边搓的。虽然这时候用不了鼠标，但是也比原地罚站 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer"> 要命了 我打字是用tp键盘 所以为了打HD2又加了一个单手键盘 自己觉得很好使 如果切过去就只能用TP键盘的方向键  好像又复杂了
+
+<img src="https://img.stage1st.com/forum/202506/03/114951j9tjrz6aj86tc8mq.png" referrerpolicy="no-referrer">
+
+<strong>keyboard.png</strong> (657.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-3 11:49 上传
+
