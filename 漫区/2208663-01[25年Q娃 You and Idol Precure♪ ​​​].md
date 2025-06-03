@@ -1440,3 +1440,24 @@ https://x.com/blossom394/status/1929099144334897529</blockquote>
 
 [https://x.com/cherrieflavors/status/1929206835426595161](https://x.com/cherrieflavors/status/1929206835426595161)（印尼大友）
 
+
+*****
+
+####  丹德里恩  
+##### 984#       发表于 2025-6-3 10:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">往从未预料的道路上一路扭曲
+
+*****
+
+####  leleq  
+##### 985#       发表于 2025-6-3 10:57
+
+要是来个我说的失忆时三角倒转
+
+梅洛→噗哩伦→小歌
+
+变小歌→噗哩伦→梅洛→小歌
+
+回复记忆在转回来那得多扭啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
