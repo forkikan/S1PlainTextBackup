@@ -2041,3 +2041,11 @@ demo打完，223已入库，等开下载了<img src="https://static.stage1st.com
 demo玩到第一个存档点，给我直观感受就是太tm尼尔了 设定，氛围，表现，各种 ...</blockquote>
 金桑给尼尔的情书，我一直当高清尼尔 2 代餐的<img src="https://static.stage1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wingofsilver  
+##### 2210#       发表于 2025-6-3 15:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">试玩了一下还挺难的，感觉攻击正面敌人时候想转向攻击背后的人基本没办法？
+

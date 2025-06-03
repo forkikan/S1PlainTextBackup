@@ -8471,3 +8471,11 @@ MACHU要是在地球完成真正的大海目标之后，GQX主线该怎么走
 鸭子没准这里都没兴趣做什么基连家大清洗的事</blockquote>
 不好说，鸡西莉亚最看重的那个什么项目现在不就是有鸭子在参与吗
 
+
+*****
+
+####  ヒトニナル  
+##### 16984#       发表于 2025-6-3 15:50
+
+说绿叔叔是梦男感觉怪怪的，我认为他是信徒，说通俗点是脑残粉<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
