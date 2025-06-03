@@ -1469,3 +1469,11 @@ https://x.com/blossom394/status/1929099144334897529</blockquote>
 
 看标题第20集寻找记忆，第21集五人合体技，进展好快啊，希望不是草草带过，这个失去记忆的代价明明有很多可以写的
 
+
+*****
+
+####  キュアアイドル  
+##### 987#       发表于 2025-6-3 13:34
+
+ZQ小姐究竟是何方神圣啊，真是传说中的偶像，突然能理解草莓前辈为什么那么痴迷于美月前辈了<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
