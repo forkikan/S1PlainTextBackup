@@ -13024,3 +13024,36 @@ side6的态度其实可以参考妓院老板那个对着拉拉和番茄威吓了
 
 —— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  飞霞精灵  
+##### 17320#       发表于 2025-6-5 17:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67886048&amp;ptid=2209276" target="_blank">cckuku 发表于 2025-6-5 16:58</a>
+
+所以石锤小番茄就是被男人迷住了吧？之前那些说番茄并非恋爱脑，修斯代表的是非日常之类的这种解读一下就被 ...</blockquote>
+番茄这肉食性极高的生物，说没恋爱脑才奇怪啊<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+UC的新人类什么的清一色这架势，不都是看对眼了/脑电波对上了就直接开冲么。
+
+连文豪的巴纳吉也是满脑子奥黛丽。
+
+
+*****
+
+####  rockroxas  
+##### 17321#       发表于 2025-6-5 17:20
+
+微操来微操去把整个宇宙都送给鸭子血仇了，真是快乐幸福的未来啊，也许这就是鸭子梦女吧XD
+
+
+*****
+
+####  maosayun  
+##### 17322#       发表于 2025-6-5 17:24
+
+我也觉得番茄对地宇矛盾没有什么理解，目前她有的只有对自己与他人处境的感性认知，朴素莽撞又情绪化的正义感，对自由、kirakira和同龄男孩的模糊向往。她的“祛魅”也不是什么高大上的东西，不如说祛魅后才是迷茫和寻找下一个目标的开始，而她需要在剩下三集里给出自己的解答。这个解答可以小到“我要了解修斯，我要重新和喵安做朋友，我要和妈妈报平安”，大到“你这家伙（扎比家、solar ray、甚至绿叔叔也不是不可能）太过危险，是斗争的根源，是不可以存在在世上的”，要疾走的话一切皆有可能，我就不下判断了<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
