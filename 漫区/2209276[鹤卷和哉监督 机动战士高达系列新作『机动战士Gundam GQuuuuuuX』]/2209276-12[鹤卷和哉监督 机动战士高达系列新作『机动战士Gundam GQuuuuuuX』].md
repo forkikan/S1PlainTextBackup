@@ -12365,3 +12365,66 @@ dg的驾驶员只是耗材而已。反过来想这个世界也没mf和他们的�
 
 严格来说，穿越来的这个拉拉还是贪心的，目标还是三个人都能活下来，牺牲自己让鸭子活下来结果93年还是那个德性，还不如想点招让鸭子先搞到高达看看有什么变化。
 
+
+*****
+
+####  syndrome2032  
+##### 17264#       发表于 2025-6-5 14:50
+
+这个拉拉说是79拉拉但是想法和正版79拉拉还不太一样。
+
+79拉拉死后就可以永远和骡子鸭子在一起了，这是早就超脱肉体到达gm王发动的级别了。
+
+
+*****
+
+####  孙吧星人  
+##### 17265#       发表于 2025-6-5 14:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67884743&amp;ptid=2209276" target="_blank">仟音一心 发表于 2025-6-5 14:42</a></blockquote>
+这不最后还是被反杀了...<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无念  
+##### 17266#       发表于 2025-6-5 14:54
+
+很难想象一个这种表现的男人会去染头发，何况为啥是蓝色，染成kirakira色不好么<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Sliurus  
+##### 17267#       发表于 2025-6-5 14:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67884743&amp;ptid=2209276" target="_blank">仟音一心 发表于 2025-6-5 14:42</a></blockquote>
+Let‘s go Char<img src="https://static.stage1st.com/image/smiley/face2017/268.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  last_regret  
+##### 17268#       发表于 2025-6-5 14:54
+
+这集过后夏利亚读番茄心应该知道玫瑰里面和娼馆的是同一人了吧，还有nt潜力，说不定会去捞人？
+
+*****
+
+####  syndrome2032  
+##### 17269#       发表于 2025-6-5 14:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67884844&amp;ptid=2209276" target="_blank">last_regret 发表于 2025-6-5 14:54</a>
+这集过后夏利亚读番茄心应该知道玫瑰里面和娼馆的是同一人了吧，还有nt潜力，说不定会去捞人？ ...</blockquote>
+和绿叔叔抢男人，真的能去接吗
+gqux拉拉肯定是等正版红叔叔，绿叔叔劝不动。
+
+*****
+
+####  wcorvo  
+##### 17270#       发表于 2025-6-5 14:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67884301&amp;ptid=2209276" target="_blank">洛克萨斯 发表于 2025-6-5 13:48</a>
+
+还剩修斯的线没解释了吧，我看到有个很扯的说法是修斯是贝子里面阿姆罗的孩子 ...</blockquote>
+请看下一集：杀儿无悔
+
