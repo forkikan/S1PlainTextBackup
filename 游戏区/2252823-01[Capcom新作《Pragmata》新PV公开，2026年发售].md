@@ -490,3 +490,14 @@ re9据小道消息不完全是捕风捉影，确实有在做只是可能进度�
 
 感觉会被骂ltp游戏<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">卡普空在集美那的好名声也要没了应该
 
+
+*****
+
+####  weiduopla  
+##### 58#       发表于 2025-6-5 15:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67884818&amp;ptid=2252823" target="_blank">oahcihs 发表于 2025-6-5 14:51</a>
+
+据Dusk Golem透露，游戏开发过程中遭遇了技术迭代、引擎适配等常见问题。尤其值得注意的是，《Pragmata》最 ...</blockquote>
+导演名字看着感觉像华裔。
+

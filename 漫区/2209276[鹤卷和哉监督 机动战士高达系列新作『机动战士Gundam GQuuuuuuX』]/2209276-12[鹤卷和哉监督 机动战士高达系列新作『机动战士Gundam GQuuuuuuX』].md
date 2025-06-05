@@ -12634,3 +12634,33 @@ https://www.bilibili.com/video/BV1RDTEz1EAt/</blockquote>
 
 我真是太喜欢这部作品了，如果在if线的基础上，把0079想象成Re0那样的世界，很难想象拉拉在多少次轮回失败之后，对废鸭说出你很碍事，多么的绝望
 
+
+*****
+
+####  洛克萨斯  
+##### 17289#       发表于 2025-6-5 15:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67885178&amp;ptid=2209276" target="_blank">孤舟垂钓 发表于 2025-6-5 15:33</a>
+
+我真是太喜欢这部作品了，如果在if线的基础上，把0079想象成Re0那样的世界，很难想象拉拉在多少次轮回失败 ...</blockquote>
+慈母恨铁不成钢<img src="https://static.stage1st.com/image/smiley/bundam2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  七里由馬  
+##### 17290#       发表于 2025-6-5 15:42
+
+<blockquote>朋友费小号 发表于 2025-6-5 10:59
+79if相关内容这些年看了挺多了，看gq就是奔着年轻人看的，结果年轻人到现在都还在随波逐流，这下真水母了
+
+ ...</blockquote>
+实际上gsd不就看出来了，群众根本不想看新主角只想看🐔神大杀四方。
+
+
+*****
+
+####  GMP  
+##### 17291#       发表于 2025-6-5 15:45
+
+安彦就是一画画的，他懂个p高达<img src="https://static.stage1st.com/image/smiley/bundam2017/037.png" referrerpolicy="no-referrer">
+

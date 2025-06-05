@@ -6970,3 +6970,27 @@ Steam的手柄映射功能非常强大。你可以设置按下LB键后改变操�
 两条一起上效率都不如蓄一发类星体，dps还是太低了</blockquote>
 类星体就不能这么算了，毕竟类星体需要蓄力还需要冷却，来两只牛就很麻烦
 
+
+*****
+
+####  nbwjh0630  
+##### 6569#       发表于 2025-6-5 15:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67885144&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2025-6-5 15:30</a>
+
+类星体就不能这么算了，毕竟类星体需要蓄力还需要冷却，来两只牛就很麻烦 ...</blockquote>
+激光大炮有个难崩的点是比起爆裂冲和焦土这种东西没啥优势，他能处理的焦土和爆裂冲也能处理，甚至做的更好，随便拿一把三号位都是更专的，但有个非常大的问题，就是一号位普遍最高只能处理高效处理中甲，这个问题在光能这种反重压力不是很大的情况下就不是问题，但东西线这种atat无畏牛泰坦满地走的环境就显得十分难崩。
+
+
+*****
+
+####  nbwjh0630  
+##### 6570#       发表于 2025-6-5 15:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67884180&amp;ptid=2170852" target="_blank">银月术士329 发表于 2025-6-5 13:33</a>
+
+泰坦也就2颗铝热</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">超大巢一次刷都是刷3-5个泰坦，就算有补包处理起来还是太慢了。
+
+不带补包更是只能开火车等队友
+
