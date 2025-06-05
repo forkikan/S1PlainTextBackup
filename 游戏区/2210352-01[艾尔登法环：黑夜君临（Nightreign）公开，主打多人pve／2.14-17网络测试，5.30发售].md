@@ -6934,3 +6934,25 @@ FS游戏的共斗。我觉得法环的正经联机共斗也是做得比较残缺
 黑夜君临现在这个有点尴尬的状态很大一部分就是因为缺少pvp， ...</blockquote>
 黑夜君临不长期运营？那到期彻底变单机？
 
+
+*****
+
+####  thealoneer  
+##### 694#       发表于 2025-6-5 14:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67884734&amp;ptid=2210352" target="_blank">junqqq999 发表于 2025-6-5 14:41</a>
+
+黑夜君临不长期运营？那到期彻底变单机？</blockquote>
+服务器应该不关，但是内容更新估计就出一个dlc为止了
+
+
+*****
+
+####  LiniN  
+##### 695#       发表于 2025-6-5 15:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67880028&amp;ptid=2210352" target="_blank">慕兰 发表于 2025-6-3 18:12</a>
+
+这个飞驰的猎人是真的恶心，究极马拉松，武器判定加剑气判定加地雷。前面的夜王都顺风顺水的，这boss刷不到 ...</blockquote>
+更新后我想看看单人无赖强度，然后选了没碰过的人马，结果初见丝血过了，少一刀就要被人马的矛雨给打死了。我甚至在打败它后还被矛雨抽得到处飞。
+

@@ -6948,3 +6948,14 @@ Steam的手柄映射功能非常强大。你可以设置按下LB键后改变操�
 
 比方说无畏就可以用激光大炮或者反器材步枪之类的东西打眼睛，很快就能击杀
 
+
+*****
+
+####  FLZB  
+##### 6567#       发表于 2025-6-5 14:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67884595&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2025-6-5 14:24</a>
+
+除非是补给背包铝热，不然铝热不够用，倒是激光大炮打牛效率如何，我前几天玩得时候看有人东线用激光大炮滋 ...</blockquote>
+两条一起上效率都不如蓄一发类星体，dps还是太低了
+

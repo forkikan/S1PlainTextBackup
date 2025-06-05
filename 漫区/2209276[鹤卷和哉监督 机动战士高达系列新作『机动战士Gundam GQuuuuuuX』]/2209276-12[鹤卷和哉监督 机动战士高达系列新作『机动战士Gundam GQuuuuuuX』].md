@@ -12428,3 +12428,62 @@ gqux拉拉肯定是等正版红叔叔，绿叔叔劝不动。
 还剩修斯的线没解释了吧，我看到有个很扯的说法是修斯是贝子里面阿姆罗的孩子 ...</blockquote>
 请看下一集：杀儿无悔
 
+
+*****
+
+####  pmoe  
+##### 17271#       发表于 2025-6-5 14:58
+
+所以女主抱着的哈罗是不是阿姆罗在操作。
+
+*****
+
+####  赤黑的假面  
+##### 17272#       发表于 2025-6-5 15:01
+
+这几集下来，怎么感觉修司在不在都不影响吉翁那边的大人物们开战啥的
+
+*****
+
+####  last_regret  
+##### 17273#       发表于 2025-6-5 15:01
+
+<blockquote>syndrome2032 发表于 2025-6-5 14:56
+和绿叔叔抢男人，真的能去接吗
+
+gqux拉拉肯定是等正版红叔叔，绿叔叔劝不动。 ...</blockquote>
+读番茄心是看不出拉拉喜欢夏亚的吧，甚至就算看出来了也能作为夏亚诱捕器？
+
+
+*****
+
+####  岸浪白野  
+##### 17274#       发表于 2025-6-5 15:05
+
+[X 上的 わみ屋：“マチュとララァ　#GQuuuuuuX #ジークアクス](https://x.com/B1ration/status/1930336892870111560)[https://t.co/Z8yDlYBCOF](https://t.co/Z8yDlYBCOF)” / X
+
+<img src="https://img.stage1st.com/forum/202506/05/150158son6t34b9439d9od.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.01 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 15:01 上传
+
+[X 上的 양갈래：“[url]https://t.co/TstaAeMDk6](https://x.com/2wintail__/status/1930467569464684707)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/05/150619azabfftxy9ozosjt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.13 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 15:06 上传
+
+*****
+
+####  秋月孝三  
+##### 17275#       发表于 2025-6-5 15:07
+
+不玩梗的话，正史夏亚对拉拉的执念在于他希望拉拉能作为NT引导他觉醒。鸡夸世界线的鸭子提前觉醒NT以后拉拉还对他有没有吸引力很难说<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
