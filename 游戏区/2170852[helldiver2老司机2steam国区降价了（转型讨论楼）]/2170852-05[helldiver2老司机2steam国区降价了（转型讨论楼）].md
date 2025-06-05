@@ -7136,3 +7136,16 @@ Steam的手柄映射功能非常强大。你可以设置按下LB键后改变操�
 
 不知道数值有没有削弱，看视频至少能秒僵尸，没削就好玩了
 
+
+*****
+
+####  DawnGuardian  
+##### 6581#       发表于 2025-6-5 20:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67887529&amp;ptid=2170852" target="_blank">Dashuaibi 发表于 2025-6-5 20:35</a>
+
+名字上确实是arc3，电喷是arc12
+
+不知道数值有没有削弱，看视频至少能秒僵尸，没削就好玩了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那我只能祈祷箭头最好想清楚了他在干嘛
+

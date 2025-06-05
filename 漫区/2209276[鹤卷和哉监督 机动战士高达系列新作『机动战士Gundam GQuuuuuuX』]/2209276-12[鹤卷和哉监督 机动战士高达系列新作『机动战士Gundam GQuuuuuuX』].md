@@ -13386,3 +13386,26 @@ MAV也定死了是修斯的话，也就是说即使包饺子，估计也看不�
 笑死了 这IF线的联邦完全是战败国了 吉恩的度假胜地是吧 冷战个头吔</blockquote>
 剧场版名言“联邦残党嘛，总要给那些人一些工作”<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  创始’’’天翔  
+##### 17350#       发表于 2025-6-5 20:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67885725&amp;ptid=2209276" target="_blank">洛克萨斯 发表于 2025-6-5 16:25</a>
+
+有行动力的恋爱脑</blockquote>
+我就知道红蓝是真的<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 17351#       发表于 2025-6-5 20:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67886234&amp;ptid=2209276" target="_blank">飞霞精灵 发表于 2025-6-5 17:19</a>
+
+番茄这肉食性极高的生物，说没恋爱脑才奇怪啊
+
+UC的新人类什么的清一色这架势，不都是看对眼了/脑电波对上 ...</blockquote>
+毕竟巴上帝见到的汤小美是行动力拉满，也不会一直不说人话，确实魅力十足（认不认同她否定伪鸭的政治观点另说），而这边相对符合条件的好像是夏利亚<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
