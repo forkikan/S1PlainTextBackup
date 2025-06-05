@@ -5223,3 +5223,18 @@ ep1-3还是看不下去，ep4观感回升，ep56还行，但ep78从制作理性�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">对我来说这集已经把开头的电波味都丢了，外星人越来越普通了
 
+
+*****
+
+####  裂空之龙  
+##### 456#       发表于 2025-6-5 15:58
+
+虽然但是，这话提出来的那句口号，老是让我串戏到A5<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xxxcc  
+##### 457#       发表于 2025-6-5 16:00
+
+八千代一秒就修理好了，上一集根本毫无意义啊！
+
