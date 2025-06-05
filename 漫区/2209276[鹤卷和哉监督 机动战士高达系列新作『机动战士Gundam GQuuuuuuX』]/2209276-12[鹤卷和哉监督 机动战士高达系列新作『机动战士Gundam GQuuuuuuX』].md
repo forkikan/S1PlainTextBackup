@@ -13577,3 +13577,23 @@ MS的战斗根本不重要，加入游戏后的打戏就由该游戏的监督随
 只打倒过扎古</blockquote>
 比巴尼强<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  s8698s  
+##### 17367#       发表于 2025-6-5 23:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">我现在就要看下一集
+
+*****
+
+####  eilot  
+##### 17368#       发表于 2025-6-5 23:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67888131&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-5 22:20</a>
+
+X 上的 ナポリたん：“開発中止となり結果的に建造されなかったMS… #GQuuuuuuX #ジークアクス [url]https: ...</blockquote>
+勇士在這時現在沒甚麼大不了
+
+釣上來的是完美戰神渣古的話就不同
+
