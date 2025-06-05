@@ -5090,3 +5090,15 @@ https://www.bilibili.com/video/BV1md7Gz5E4s
 
 下集看预告应该是狸猫一家的红白喜事，八千代的身份正在从故事的创造者往记录者转变。
 
+
+*****
+
+####  NBXX  
+##### 443#       发表于 2025-6-5 09:53
+
+<img src="https://wx1.sinaimg.cn/large/006LAPkagy1i22qe3jyw5j31031evngk.jpg" referrerpolicy="no-referrer">
+
+「アポカリプスホテルぷすぷすぷす」#9 漫画汉化
+
+嘭子戴上了结婚戒指
+

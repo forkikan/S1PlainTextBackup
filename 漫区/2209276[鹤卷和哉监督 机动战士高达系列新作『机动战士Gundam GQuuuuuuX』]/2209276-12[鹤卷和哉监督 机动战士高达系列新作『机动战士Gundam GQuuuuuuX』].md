@@ -10008,3 +10008,71 @@ ORIGINだとカジノで出会った事に変更されてた！
 炎属性武器を持ったカンチャナとヴァーニとマチュのファンアートです。
 <img src="https://p.sda1.dev/24/874cb9c3a0523ee2d0bb00924f2900db/20250604_223103.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  航母掉头  
+##### 17091#       发表于 2025-6-5 09:47
+
+我要吹鹤卷
+
+*****
+
+####  希望之异热同心  
+##### 17092#       发表于 2025-6-5 09:48
+
+【路人视角的夏利亚审问玛秋belike】 [https://www.bilibili.com/video/B ... f2610f35b7fe305f5e2](https://www.bilibili.com/video/BV1RDTEz1EAt/?share_source=copy_web&amp;vd_source=3e9acfd81de88f2610f35b7fe305f5e2)
+
+这个真把我看笑了，怪不得小森一直在说这是机密，她眼里番茄一声不吭然后夏利亚啥都招了，这是番茄审他还是他审番茄啊哈哈哈哈哈<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  1096beam  
+##### 17093#       发表于 2025-6-5 09:48
+
+最有乐子最有讨论热情的一集泥潭不争气啊
+
+*****
+
+####  秋月孝三  
+##### 17094#       发表于 2025-6-5 09:49
+
+烤羊，最好元祖！
+
+
+*****
+
+####  blood_iron  
+##### 17095#       发表于 2025-6-5 09:51
+
+阿姆罗实锤是UC历史上烤羊第一人<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ARATANG  
+##### 17096#       发表于 2025-6-5 09:52
+
+终于能烤羊烤番茄了 
+
+*****
+
+####  阿卡拉兰斯  
+##### 17097#       发表于 2025-6-5 09:52
+
+晚了，大伙已经在贴吧牛国安狂欢完了
+
+*****
+
+####  regular  
+##### 17098#       发表于 2025-6-5 09:52
+
+re0：怎么重来也带不动红战士
+
+*****
+
+####  ヒトニナル  
+##### 17099#       发表于 2025-6-5 09:53
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玛秋是有在娼馆当女仆（？）的可能性的，可惜没采用
+夏CM本子暴增可能性微存
+
