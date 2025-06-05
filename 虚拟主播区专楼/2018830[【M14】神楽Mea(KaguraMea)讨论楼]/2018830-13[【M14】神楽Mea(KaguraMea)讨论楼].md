@@ -21431,3 +21431,18 @@ Bye-bye啦谢谢大家！
 
 2:09:48 9. おやすみ泣き声、さよなら歌姫 / クリープハイプ
 
+
+*****
+
+####  术士q  
+##### 18660#       发表于 2025-6-5 23:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67888105&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2025-6-5 22:15</a>
+准备进行史上最大的tts存档行动
+
+她饭盒发了啥</blockquote>
+也是对应直播里提到的（前情在介绍会员的好处都有啥）【说起来都没怎么更新饭盒，更点什么好捏】
+【对了，就更'直播塔诺西!!!!!!!!'吧】
+
+<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">fanbox内容也差不多，然后我们可以看到blog里有好多个叹号❗，可爱捏
+
