@@ -12693,3 +12693,115 @@ https://www.bilibili.com/video/BV1RDTEz1EAt/</blockquote>
 
 番茄回归日常的希望还是挺大的。毕竟那可是连精神病都打不爆的大楼和地板。
 
+
+*****
+
+####  无念  
+##### 17295#       发表于 2025-6-5 16:09
+
+我早说了番茄回去还不简单，吉翁给side6发个文的事，毕竟她只是有驾驶吉翁ms的嫌疑，搞破坏的可是联邦的精神病和魔鬼鱼
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  tonberry  
+##### 17296#       发表于 2025-6-5 16:10
+
+修司是贝子或者倩子的可能性确实挺大，但如果骡子儿子假药成真大概率是另一个世界，结尾会不会又是搞什么两个世界隔离的“遗憾美”结局
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  Evomenon  
+##### 17297#       发表于 2025-6-5 16:10
+
+番茄想回归side6的日常生活，首先side6当局得对她的犯罪行为既往不咎，其次把新人类当枪使的这群“大人”都得嗝屁，老实说挺难想象的（
+
+—— 来自 HUAWEI ELS-AN10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  无念  
+##### 17298#       发表于 2025-6-5 16:14
+
+side6的态度其实可以参考妓院老板那个对着拉拉和番茄威吓了半天最后一枪描边，番茄飞机起飞了了还要护着拉拉的表现，只要是鸭子或者绿叔叔还在，番茄回不回去只考虑她个人就可以
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  岸浪白野  
+##### 17299#       发表于 2025-6-5 16:15
+
+[X 上的 Ａきらー＠お仕事募集中：“豚バラっていうよりチューリップのからあげですね #GQuuuuuuX #ジークアクス [url]https://t.co/8tf9XWSJcE](https://x.com/akirararagi/status/1930536402032193660)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/05/161308uw2wbzxunodbvx6v.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.31 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 16:13 上传
+
+[X 上的 えんぎよし：“待ち人来たる [url]https://t.co/04mRV8w7tM](https://x.com/ENGIYOSI/status/1930529977533071697)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/05/161326pz5090ib26kftfr2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.08 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 16:13 上传
+
+[X 上的 しおたん：“館を出る日を夢見る娼婦と男娼 [url]https://t.co/uJJZ4xg1Zh](https://x.com/dokata_s/status/1930271724815430117)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/05/161356vrz2mh2clcv2c5hh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.49 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 16:13 上传
+
+[X 上的 Hyde：“「薔薇の所へ行きなさい！」 #GQuuuuuuX #ジークアクス [url]https://t.co/tgL9lL12S0](https://x.com/tabakko/status/1930214714447147199)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/05/161446ogajuugzigwahpi3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (807.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 16:14 上传
+
+[X 上的 kodamazon：“お姉様 #GQuuuuuuX #ジークアクス [url]https://t.co/hPVeZFRxcb](https://x.com/kodamazon_kdm/status/1930531914265288788)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/05/161508pfzuf5v9fy7vixvf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.82 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 16:15 上传
+
+*****
+
+####  无念  
+##### 17300#       发表于 2025-6-5 16:15
+
+为啥一定要是贝子，就不能是鸭（妹）子么<img src="https://static.stage1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  03e7  
+##### 17301#       发表于 2025-6-5 16:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67884989&amp;ptid=2209276" target="_blank">eilot 发表于 2025-6-5 15:12</a>
+
+拉拉預知最後一刻，腦電波通知夏亞正在鳳翼扇後不要再追擊或跳起而是防禦，令李阿寶失去最後兩次BLOCK再加 ...</blockquote>
+被抓硬直了，完全没有防御的机会
+
