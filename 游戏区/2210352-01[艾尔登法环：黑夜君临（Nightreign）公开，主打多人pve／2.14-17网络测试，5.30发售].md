@@ -7036,3 +7036,17 @@ FS游戏的共斗。我觉得法环的正经联机共斗也是做得比较残缺
 不贪不是人，正片32:50开始
 [https://www.bilibili.com/video/BV1WwTszCENr](https://www.bilibili.com/video/BV1WwTszCENr)
 
+
+*****
+
+####  usodakedo  
+##### 704#       发表于 2025-6-5 18:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67886501&amp;ptid=2210352" target="_blank">jacket 发表于 2025-6-5 17:54</a>
+
+不贪不是人，正片32:50开始
+
+https://www.bilibili.com/video/BV1WwTszCENr</blockquote>
+类似的套路其实前几天有人研究出来了
+[https://bbs.nga.cn/read.php?tid=44253818](https://bbs.nga.cn/read.php?tid=44253818)
+

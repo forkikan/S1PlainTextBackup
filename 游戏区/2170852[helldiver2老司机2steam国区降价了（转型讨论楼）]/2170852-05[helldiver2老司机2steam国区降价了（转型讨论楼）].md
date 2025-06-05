@@ -7024,3 +7024,73 @@ Steam的手柄映射功能非常强大。你可以设置按下LB键后改变操�
 
 这新通行证看着像机械战警
 
+
+*****
+
+####  FLZB  
+##### 6574#       发表于 2025-6-5 18:24
+
+幽默完了箭头，还好没买唯一真史，该用电榴弹电🐕狠狠控制一下队友了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Dashuaibi  
+##### 6575#       发表于 2025-6-5 18:24
+
+磁暴步兵债券，真出来绑定遥遥领先护甲了
+
+*****
+
+####  LrGsite  
+##### 6576#       发表于 2025-6-5 18:26
+
+<img src="https://img.stage1st.com/forum/202506/05/182441b3ta76i96i4l66uv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (82.12 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 18:24 上传
+
+<img src="https://img.stage1st.com/forum/202506/05/182528reldl1lrumukd8ul.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (164 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 18:25 上传
+
+<img src="https://img.stage1st.com/forum/202506/05/182538jc0cajj519c0eaej.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (190.51 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 18:25 上传
+
+<img src="https://img.stage1st.com/forum/202506/05/182558finnpnne58z5wip0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (136.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 18:25 上传
+
+<img src="https://img.stage1st.com/forum/202506/05/182608hbbufwc83ylyu3pu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (180.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 18:26 上传
+
+<img src="https://img.stage1st.com/forum/202506/05/182639juwyu65ozu5nps2k.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (222.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 18:26 上传
+
+新战争债券6月12上线，新步枪**电榴弹投掷电棒两套新甲
+
