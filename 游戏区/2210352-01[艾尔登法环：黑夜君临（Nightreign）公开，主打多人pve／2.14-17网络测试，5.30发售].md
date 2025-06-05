@@ -7132,3 +7132,18 @@ https://www.bilibili.com/video/BV1WwTszCENr</blockquote>
 毒圈是可以跑出去的，由于赐福点多，所以那点扣血速度完全毛毛雨，但是设置了一个时间限制，大约三分钟必 ...</blockquote>
 我的意思是，在毒圈就只能跑了，这限制了很多操作。时限也是。制作组对毒圈的理解感觉还是太刻板了。当然，因为没有PVP，很多毒圈操作的价值和必要性也有限。
 
+
+*****
+
+####  modkingr  
+##### 713#       发表于 2025-6-6 00:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67888777&amp;ptid=2210352" target="_blank">wasian 发表于 2025-6-6 00:31</a>
+
+执行者+追踪者打了波10连胜
+
+感觉执行者强度是最恐怖的，双s加成哪怕不用妖刀输出都很吓人，更别说妖刀完全 ...</blockquote>
+守护者在boss场中感觉是辅助为主，最好带冰龙遗物稳定上冰伤跟boss打盾戳，利用强盾防+仇恨遗物给DPS职业一个很好的输出环境最佳
+
+另外守护者带聚怪旋风遗物在清杂场合太imba了，那冲击力连失乡都吃不住，非常霸道
+
