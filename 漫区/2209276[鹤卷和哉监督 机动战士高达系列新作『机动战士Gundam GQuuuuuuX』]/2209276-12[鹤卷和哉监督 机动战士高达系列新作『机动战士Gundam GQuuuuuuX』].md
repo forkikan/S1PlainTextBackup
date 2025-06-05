@@ -12272,3 +12272,16 @@ dg的驾驶员只是耗材而已。反过来想这个世界也没mf和他们的�
 
 至于小番茄跳过这段时间会发生什么，当然是为了肮脏的大人去接受训练开Ω·瓦索隆
 
+
+*****
+
+####  osore  
+##### 17256#       发表于 2025-6-5 14:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67884202&amp;ptid=2209276" target="_blank">秋月孝三 发表于 2025-6-5 13:36</a>
+
+也有可能是精神被绿叔叔入侵了
+
+—— 来自 鹅球 v3.3.96</blockquote>
+让我想起EVA里明日香被精神污染
+

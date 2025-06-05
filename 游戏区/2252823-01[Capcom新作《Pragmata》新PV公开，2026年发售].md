@@ -342,3 +342,47 @@ it's real xd
 
 戴安娜刻板印象总觉得很老的样子 读成狄阿娜感觉年轻点
 
+
+*****
+
+####  eulereld  
+##### 43#       发表于 2025-6-5 14:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67884062&amp;ptid=2252823" target="_blank">chris1987 发表于 2025-6-5 13:19</a>
+2026年了还有人在用XD做表情吗</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">蘿莉用什麼都是對的是合理的！
+
+—— 來自 [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  夜雨秋水  
+##### 44#       发表于 2025-6-5 14:09
+
+之前的背景故事爆料：
+《Pragmata》是一款动作叙事类游戏，讲述了在一次失败的人类殖民月球行动后，两个机器人在月球生活的故事。在机器人和人工智能占领月球后，人类放弃了殖民月球的计划，同时切断了机器人与地球的联系，但没有彻底解决这个问题。玩家扮演的两个机器人通过不断的进化变的越来越趋近于人类，它们开始渴望前往地球。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  Booorunestud  
+##### 45#       发表于 2025-6-5 14:14
+
+能不能把鞋穿上 看不得玉
+
+*****
+
+####  喵喵叫的猫  
+##### 46#       发表于 2025-6-5 14:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67884461&amp;ptid=2252823" target="_blank">夜雨秋水 发表于 2025-6-5 14:09</a>
+
+之前的背景故事爆料：
+
+《Pragmata》是一款动作叙事类游戏，讲述了在一次失败的人类殖民月球行动后，两个机 ...</blockquote>
+2个机器人。。。
+
+这爆料会不会已经把最大爆点给透了
+
