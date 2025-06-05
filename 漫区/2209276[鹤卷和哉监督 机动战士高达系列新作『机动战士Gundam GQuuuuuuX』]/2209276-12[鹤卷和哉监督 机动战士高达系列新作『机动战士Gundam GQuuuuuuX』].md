@@ -11658,3 +11658,45 @@ GQUX为什么是"The Beginning"呢（两次短讯都说开GQUX是get The Beginni
 
 —— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  kkl12355  
+##### 17203#       发表于 2025-6-5 11:51
+
+<blockquote>无念 发表于 2025-6-5 11:44
+小女仆这发型肯定是故意的，这下骡鸭性转有固定造型了(
+
+拉拉这么担心鸭子却不怎么管骡子，甚至都没提，我估 ...</blockquote>
+“hello，您的生活好助手”———雷氏工业
+
+
+*****
+
+####  真爱与热情  
+##### 17204#       发表于 2025-6-5 11:52
+
+这集有个很在意的伏笔，那个发信息引导番茄逃离木马的人是谁？总不可能是拉拉靠意念黑进木马里面了吧
+
+*****
+
+####  希望之异热同心  
+##### 17205#       发表于 2025-6-5 11:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67883133&amp;ptid=2209276" target="_blank">ftyaid 发表于 2025-6-5 11:43</a>
+GQUX为什么是"The Beginning"呢（两次短讯都说开GQUX是get The Beginning）
+
+难道是和暴走之后的能力相关吗 ...</blockquote>
+鹤卷太能藏了，声优说到第十集才会明白很多事情，但也就是说不是完全解密，搞不好直接藏到12集去
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  57042711  
+##### 17206#       发表于 2025-6-5 11:54
+
+拉拉现在已经可以说是神了，快进到阿克西斯冲击其实是拉拉发功<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
