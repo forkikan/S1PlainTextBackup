@@ -5175,3 +5175,11 @@ https://www.bilibili.com/video/BV1md7Gz5E4s
 
 这集最后的狸星民谣，让我想起了《丸子与银河龙》里的那首《Denderaryuba》，都是如此的富有人情味，在关键场景起到决定性的气氛作用，感受到了民谣的魅力。
 
+
+*****
+
+####  qwased  
+##### 452#       发表于 2025-6-5 13:08
+
+看完想到ff14 7.0同样也整了坟头蹦迪的活，但是对比起来那就是彻头彻尾的屎<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
