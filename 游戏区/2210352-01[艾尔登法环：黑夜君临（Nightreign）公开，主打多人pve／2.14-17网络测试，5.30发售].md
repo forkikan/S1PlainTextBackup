@@ -6812,3 +6812,26 @@ FROM SOFTWARE今日宣布，《艾尔登法环 黑夜君临》的全球总销量
 
 有的角色单刷boss就是纯马拉松，太折磨了
 
+
+*****
+
+####  usodakedo  
+##### 684#       发表于 2025-6-5 12:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67883023&amp;ptid=2210352" target="_blank">zakki 发表于 2025-6-5 11:33</a>
+人马三阶段已经解包出来，还挺帅的。看来早就做好了，拖着等后续更新
+
+【【艾尔登法环黑夜君临】“黑夜光骑 ...</blockquote>
+三阶段像是突破黑夜控制了，不知道能不能补个cg
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  shyso  
+##### 685#       发表于 2025-6-5 12:55
+
+不知道三阶段的解锁方式是什么，有没有额外奖励
+
+不会直接就是把现在的boss直接加一个阶段吧
+

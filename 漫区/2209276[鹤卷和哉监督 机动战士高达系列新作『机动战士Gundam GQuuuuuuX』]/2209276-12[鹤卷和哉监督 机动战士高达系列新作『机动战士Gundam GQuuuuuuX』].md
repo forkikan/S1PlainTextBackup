@@ -12081,3 +12081,56 @@ B 站的其实大多就是官方中文字幕（毕竟源自带），楼上坛友
 B 站的其实大多就是官方中文字幕（毕竟源自带），楼上坛友提到的「客人会找你茬的」之类的就是 Amazon Pri ...</blockquote>
 原来如此，反正我是之前听说官方简中质量不行所以直接选了繁中字幕看<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zpl123  
+##### 17238#       发表于 2025-6-5 12:49
+
+话说日经访谈速报富野说又想做高达了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hyde999  
+##### 17239#       发表于 2025-6-5 12:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67883799&amp;ptid=2209276" target="_blank">zpl123 发表于 2025-6-5 12:49</a>
+
+话说日经访谈速报富野说又想做高达了</blockquote>
+老头要做的话就把F91和海盗填完吧，别自己开新坑了，创造新时代的不会是老人
+
+
+*****
+
+####  古怪山庄士大夫  
+##### 17240#       发表于 2025-6-5 12:54
+
+<blockquote>zpl123 发表于 2025-6-5 12:49
+话说日经访谈速报富野说又想做高达了</blockquote>
+说一下而已(当然了有新作看更好)
+
+
+*****
+
+####  iuiuk2  
+##### 17241#       发表于 2025-6-5 12:57
+
+我懂了，这部其实是科比主题动画，
+
+麻球这集和gqx合砍80分，打戏也和文戏合砍80分<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我聞如是  
+##### 17242#       发表于 2025-6-5 12:57
+
+7話基西利亞才剛拉到資金源，8話夏亞那邊說批了預算
+
+9話劇情才不過2天
+
+10話那個邪神炮已經竣工了
+
+9話和10話之間應該會快進至少1個月吧
+
+不知這段時間番茄在索頓上幹什麼
+
