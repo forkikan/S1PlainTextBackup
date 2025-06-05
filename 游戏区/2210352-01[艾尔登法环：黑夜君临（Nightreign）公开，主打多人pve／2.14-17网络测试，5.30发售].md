@@ -6769,3 +6769,13 @@ FROM SOFTWARE今日宣布，《艾尔登法环 黑夜君临》的全球总销量
 
 小石：我就是魂批头子<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zakki  
+##### 680#       发表于 2025-6-5 11:33
+
+人马三阶段已经解包出来，还挺帅的。看来早就做好了，拖着等后续更新
+
+【【艾尔登法环黑夜君临】“黑夜光骑士”弗格尔三阶段演示-哔哩哔哩】 https://b23.tv/5LnMyFc
+

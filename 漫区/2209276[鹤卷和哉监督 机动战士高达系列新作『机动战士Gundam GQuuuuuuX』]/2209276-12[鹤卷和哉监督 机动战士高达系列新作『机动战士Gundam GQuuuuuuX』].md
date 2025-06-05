@@ -11281,3 +11281,187 @@ g3不是白色，所以没问题
 
 2025-6-5 11:26 上传
 
+
+*****
+
+####  eilot  
+##### 17189#       发表于 2025-6-5 11:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67882868&amp;ptid=2209276" target="_blank">洛克萨斯 发表于 2025-6-5 11:19</a>
+
+单机靠盾突破大气层，核心战机能扛得住深海水压，能启动赛克缪就不需要驾驶员手操的os
+
+战斗力不敢说，但绝 ...</blockquote>
+其實看模型外表，總感覺今次高達是沒機戰機(?)
+
+現在懷疑愛美號第一次穿越到GUX線是何時，因為在所羅門時就已經紫婆婆提及玫瑰和紅高達一起消失
+
+紅高達的BIT是否模仿做出來，所以弄得那麼巨大，而赛克缪是否在逆運算的產品?
+
+不過當時工程師看不到內部的拉拉嗎
+
+*****
+
+####  朋友费小号  
+##### 17190#       发表于 2025-6-5 11:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67882944&amp;ptid=2209276" target="_blank">osore 发表于 2025-6-5 11:26</a>
+
+这集都这么“做作”的给二创递子弹了，你还想怎么样</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">）的年轻人被现实撞得头破血流但为了自己的目标继续向前走这种阳光的感觉，纯搞“r-18二创”也不需要这集递子弹来着
+
+*****
+
+####  岸浪白野  
+##### 17191#       发表于 2025-6-5 11:30
+
+[X 上的 オオデ イラ：“コモリ少尉の入浴シーンはまだですか #GQuuuuuuX #ジークアクス #お風呂って自由ですか [url]https://t.co/U84QjfpnAp](https://x.com/oooooooode_i/status/1929801355243540940)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/05/104404v3n10l739bl93743.png" referrerpolicy="no-referrer">
+
+<strong>OBO]J$]B{}I0CKMU01QJ]HM.png</strong> (3.71 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 10:44 上传
+
+[X 上的 オオデ イラ：“「これは私の私物よ 感謝しなさい！」 #GQuuuuuuX #ジークアクス #コモリ少尉 [url]https://t.co/BNsSlx6rwZ](https://x.com/oooooooode_i/status/1930267320112558381)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/05/104110py6haojkv8aayk5k.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (815.31 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 10:41 上传
+
+[X 上的 sAngo79：“コモリちゃん #GQuuuuuX #ジークアクス [url]https://t.co/JdnkLNDZcK](https://x.com/sango_p79/status/1929906353134547169)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/05/112544jjq5jdfuryh5fz7b.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.44 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 11:25 上传
+
+[X 上的 うさ桜：“ニャアンを見た人が大体思う事 #GQuuuuuuX #ジークアクス [url]https://t.co/VMpvUfaTyK](https://x.com/yngg224556/status/1929859356566474870)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/05/104502fsg5xtgcz0vzxclk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.02 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 10:45 上传
+
+[X 上的 みゃいど：“マチュ ＆ ニャアン コーデ② #GQuuuuuuX #ジークアクス [url]https://t.co/qEtJGQMAuN](https://x.com/SuiSui_dm/status/1929840980930482371)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/05/112616a7nl2s7we62cz2o0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.61 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 11:26 上传
+
+[X 上的 ダオシタカ！：“対シュウジ仕様マチュ (こうかは いまひとつの ようだ) [url]https://t.co/cLcs5iTf8Z](https://x.com/daoshitaka/status/1929913945374228869)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/05/104349o5m5c33zgq4ayq4a.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.27 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 10:43 上传
+
+[X 上的 kodamazon：“マチュ！ #GQuuuuuuX #ジークアクス [url]https://t.co/REWDrExCnt](https://x.com/kodamazon_kdm/status/1929914230259757316)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/05/104259pf39siihqc3i3fcr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.87 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 10:42 上传
+
+[X 上的 ちえりん☆🍎：“[url]https://t.co/n9Hi7cXMJs](https://x.com/ZBKNsuki/status/1929918687546618035)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/05/112716edo15q9nttdvscu1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (757.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 11:27 上传
+
+[X 上的 ななほ：“[url]https://t.co/NXGTHSC2qO](https://x.com/nanay0n_74/status/1929967546469638174)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/05/112746q6pv6ipfsa6bzppe.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.04 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 11:27 上传
+
+[X 上的 榎ゆきみ@コミカライズ5巻発売中：“コモリちゃん可愛かったです #GQuuuuuuX #ジークアクス [url]https://t.co/bCGOPthOxb](https://x.com/yukimimi1024/status/1929978648914018424)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/05/112833koxopkxxxxdddnxz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.86 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 11:28 上传
+
+[X 上的 七星りょう✨️｜Nanase Ryo✨️：“もしもあの館に残っていたら…新人メイドのマチュ #ジークアクス #GQuuuuuuX #マチュ [url]https://t.co/DLbbTJHbqr](https://x.com/Re_Riam/status/1930006656831893712)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/05/112854mezt00o7n2c0p7co.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.6 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 11:28 上传
+
+*****
+
+####  ftyaid  
+##### 17192#       发表于 2025-6-5 11:30
+
+只要不对番茄的塑造有期待，整部剧一下就好看起来了<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+吉翁内战，手电筒大战大扎姆，两台高达，穿越时间线的拉拉，鸭子和绿叔叔的算计，以及在摸鱼的骡子，这些要素不比主角团吸引多了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  桜庭ななみ  
+##### 17193#       发表于 2025-6-5 11:32
+
+gqx是鸭子是萝莉控最合理的一集
+
+*****
+
+####  21wwwb  
+##### 17194#       发表于 2025-6-5 11:35
+
+不想认真写女主人公的高达故事可以不写。。
+
+*****
+
+####  LadySaazbaum  
+##### 17195#       发表于 2025-6-5 11:35
+
+钢针看完这集明显感觉绿叔叔还不到幕后黑色一盘大棋那种玄乎其玄的地位，只是直觉比较好的恋爱脑中层管理，知道自己的能力地位，有点小九九但不多，在力所能及的范围里动点手段罢辽。
+
+没有什么计划通所以被哐哐打脸的概率骤降。其实他对待几个nt小孩儿都蛮好的，应该能善终…………吧。
+
+*****
+
+####  YU_JI  
+##### 17196#       发表于 2025-6-5 11:37
+
+我要求很低的，让番茄最后几集去把这群人桌子掀了我就和鹤卷和解（）
+
