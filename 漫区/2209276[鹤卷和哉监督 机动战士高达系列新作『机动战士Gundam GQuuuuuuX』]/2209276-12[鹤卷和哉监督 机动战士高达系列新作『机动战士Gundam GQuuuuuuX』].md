@@ -13805,3 +13805,14 @@ TV一开头是负责找寻红高的任务。虽然没确保到红高，但至少
  ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">传达年轻人不要抢别人机体  不要妨碍公务人员执法  不要和来路不明的野男人一起溜冰 逃课 离家出走 私奔 不散就会被卖到妓院 这是何等正确的价值观啊
 
+
+*****
+
+####  岸波白野  
+##### 17383#       发表于 2025-6-6 02:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67889019&amp;ptid=2209276" target="_blank">王元姬无惨 发表于 2025-6-6 02:33</a>
+
+传达年轻人不要抢别人机体  不要妨碍公务人员执法  不要和来路不明的野男人一起溜冰 逃课 离家出走 私奔  ...</blockquote>
+噫噫噫太挥舞着批判的武器的老登臭了，就这样还怎么有Z世代新血为代孙爆新米，鹤卷榎户痞子你们这样的大人就是要被修正哇
+
