@@ -5335,3 +5335,73 @@ ep1-3还是看不下去，ep4观感回升，ep56还行，但ep78从制作理性�
 之前漫画不是说第九集会有喷水的精彩表现吗，结果这集到最后都没有喷热水 ...</blockquote><blockquote>９話くらいあと</blockquote>
 应该指的是 2+9 所以是第11话
 
+
+*****
+
+####  TOYSTORY  
+##### 468#       发表于 2025-6-5 23:00
+
+<img src="https://img.stage1st.com/forum/202506/05/230116swppnjrqzwuqgnli.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (113.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 23:01 上传
+
+<img src="https://img.stage1st.com/forum/202506/05/230116nytyllhticy6icho.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (115.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 23:01 上传
+
+<img src="https://img.stage1st.com/forum/202506/05/230117g0otsrfgwof5dv58.jpg" referrerpolicy="no-referrer">
+
+<strong>3.jpg</strong> (173.52 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 23:01 上传
+
+<img src="https://img.stage1st.com/forum/202506/05/230118yrzrd5lzngvvrzel.jpg" referrerpolicy="no-referrer">
+
+<strong>4.jpg</strong> (123.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 23:01 上传
+
+<img src="https://img.stage1st.com/forum/202506/05/230121lkyqr5t5gxtoyqxn.jpg" referrerpolicy="no-referrer">
+
+<strong>5.jpg</strong> (71.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 23:01 上传
+
+<img src="https://img.stage1st.com/forum/202506/05/230122o9rh9b997krkhrhh.png" referrerpolicy="no-referrer">
+
+<strong>6.png</strong> (1.24 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 23:01 上传
+
+[https://www.bilibili.com/video/BV1H2TszCEQi](https://www.bilibili.com/video/BV1H2TszCEQi)
+
+第10話「シーツの白さは心の白さ」
+
+ホテリエロボットのヤチヨです。
+
+『銀河楼』では、ご宿泊されるお客様のプライバシーをお守りいたします。
+
+しかし例外として、事件性のある場合などはお客様の情報を提供する場合もございます。
+
+というのが人類のお客様を対象にした当ホテルのルールなのですが、地球外生命体のお客様の場合は…………
+
+その時に考えましょう。
+
+这粉毛小狸猫不会是鹏子的女儿吧？<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
