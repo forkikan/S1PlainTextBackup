@@ -13238,3 +13238,11 @@ MAV也定死了是修斯的话，也就是说即使包饺子，估计也看不�
 这小机器人拿的起来饺子？这合理吗？</blockquote>
 这机器人可能是93夏亚代打
 
+
+*****
+
+####  xwz  
+##### 17337#       发表于 2025-6-5 18:29
+
+说起来，得亏拉拉和麻球都是NT，不然一个日本人一个印度人，怎么交流？用英语吗？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
