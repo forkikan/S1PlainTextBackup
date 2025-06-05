@@ -16,3 +16,12 @@
 
 —— 来自 HUAWEI PAL-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  lcn  
+##### 47149#       发表于 2025-6-5 22:03
+
+我狂金棋怎么只有20个了？
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
