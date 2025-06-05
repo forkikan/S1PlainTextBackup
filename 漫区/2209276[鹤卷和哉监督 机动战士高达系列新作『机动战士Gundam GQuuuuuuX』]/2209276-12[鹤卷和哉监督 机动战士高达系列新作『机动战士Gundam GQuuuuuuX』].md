@@ -12664,3 +12664,24 @@ https://www.bilibili.com/video/BV1RDTEz1EAt/</blockquote>
 
 安彦就是一画画的，他懂个p高达<img src="https://static.stage1st.com/image/smiley/bundam2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sliurus  
+##### 17292#       发表于 2025-6-5 15:49
+
+阿姆罗轮回附身在哈啰上的话，那不就成幽灵诡计了吗
+
+
+*****
+
+####  穿越护城河  
+##### 17293#       发表于 2025-6-5 15:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67885166&amp;ptid=2209276" target="_blank">maosayun 发表于 2025-6-5 15:32</a>
+
+看剧场版时就觉得khara沉迷写uc同人无法自拔了，主创只是迫不及待想把if线的设定和人物快快端上来，连作为 ...</blockquote>
+麻球就算想回归日常，以后的好日子也是大家可想而知的
+
+就像0080最后一幕
+
