@@ -6804,3 +6804,11 @@ FROM SOFTWARE今日宣布，《艾尔登法环 黑夜君临》的全球总销量
 开发者打自己做的游戏和玩家自己打完全不是一回事，因为开发者基本上知道这游戏的大部分设计，没啥学习成 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">箭头：难说
 
+
+*****
+
+####  慕兰  
+##### 683#       发表于 2025-6-5 12:38
+
+有的角色单刷boss就是纯马拉松，太折磨了
+

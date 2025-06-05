@@ -12037,3 +12037,47 @@ UC就算能解析这个技术也找不到合适的驾驶员吧……
 UC就算能解析这个技术也找不到合适的驾驶员吧……</blockquote>
 dg的驾驶员只是耗材而已。反过来想这个世界也没mf和他们的驾驶员这么鬼畜的玩意打恶魔高达。
 
+
+*****
+
+####  顾然  
+##### 17234#       发表于 2025-6-5 12:38
+
+ 本帖最后由 顾然 于 2025-6-5 12:39 编辑 
+
+人都出了不上机卖个模型万代答应吗<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 不过可能要等到第二季啥的 只剩几集了确实量太少了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  pokemon最爱  
+##### 17235#       发表于 2025-6-5 12:38
+
+其实吧官方是有提供中文字幕的（简中繁中都有，繁中好像翻译质量更好些）<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+所以这几集我都是去nyaa下载直接看官中，B站的机翻质量实在太难绷了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  千恋万花  
+##### 17236#       发表于 2025-6-5 12:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67883705&amp;ptid=2209276" target="_blank">pokemon最爱 发表于 2025-6-5 12:38</a>
+
+其实吧官方是有提供中文字幕的（简中繁中都有，繁中好像翻译质量更好些）
+
+所以这几集我都是去nyaa下载直接 ...</blockquote>
+B 站的其实大多就是官方中文字幕（毕竟源自带），楼上坛友提到的「客人会找你茬的」之类的就是 Amazon Prime Video 的官方简体中文字幕内容（这部的简体是日翻英再翻中，繁体是日翻中）
+
+*****
+
+####  pokemon最爱  
+##### 17237#       发表于 2025-6-5 12:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67883747&amp;ptid=2209276" target="_blank">千恋万花 发表于 2025-6-5 12:43</a>
+
+B 站的其实大多就是官方中文字幕（毕竟源自带），楼上坛友提到的「客人会找你茬的」之类的就是 Amazon Pri ...</blockquote>
+原来如此，反正我是之前听说官方简中质量不行所以直接选了繁中字幕看<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
