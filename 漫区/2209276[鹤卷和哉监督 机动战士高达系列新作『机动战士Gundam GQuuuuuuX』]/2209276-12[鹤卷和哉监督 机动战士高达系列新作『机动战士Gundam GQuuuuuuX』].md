@@ -12915,3 +12915,68 @@ side6的态度其实可以参考妓院老板那个对着拉拉和番茄威吓了
 还剩修斯的线没解释了吧，我看到有个很扯的说法是修斯是贝子里面阿姆罗的孩子 ...</blockquote>
 修斯这蓝毛难道不是猜测逆袭夏亚女主青恩的孩子？
 
+
+*****
+
+####  洛克萨斯  
+##### 17311#       发表于 2025-6-5 16:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67885928&amp;ptid=2209276" target="_blank">g救世主高达 发表于 2025-6-5 16:45</a>
+
+小说世界线夏亚不是没被阿姆罗打死，反而阿姆罗被路人大魔偷死了吗，拉拉看的还是不够全锕 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以g3不是白色的啊
+
+*****
+
+####  g救世主高达  
+##### 17312#       发表于 2025-6-5 16:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67881992&amp;ptid=2209276" target="_blank">cckuku 发表于 2025-6-5 10:20</a>
+
+一想到拉拉多当了六年的雏鸡就有点让人绷不住</blockquote>
+拉拉出生的地方本来就那鸟样很合理，闪哈女主琪琪被联邦八十老头骑了n年才是真难蹦，就因为这个我看闪哈都跳过琪琪出场片段<img src="https://static.stage1st.com/image/smiley/carton2017/012.png" referrerpolicy="no-referrer">
+
+*****
+
+####  西洛克  
+##### 17313#       发表于 2025-6-5 16:50
+
+<blockquote>飞霞精灵 发表于 2025-6-5 15:08
+总帅从79到93就是一路被乳过来的，还差这点嘛
+
+脱出型NT也不是如今才有的梗了。
+
+某种意义上来说只输给骡子也 ...</blockquote>
+外传是感受到了拉拉的呼唤
+
+*****
+
+####  tonberry  
+##### 17314#       发表于 2025-6-5 16:51
+
+有人看过akb0048么，我不是很懂，但查了下，
+大岛优子：以center nova现象消失闻名
+高桥南：也是以center nova现象消失，被誉为绝对的leader
+前田敦子：center nova现象的引导者
+
+如果大岛优子是夏亚，前田敦子是拉拉，那高桥南就是阿姆罗喽。
+那除了夏亚被泽克诺瓦的拉拉引导（被消失），阿姆罗也应该被引导？有可能某个世界线的阿姆罗已经被消失了？
+当然也可能修司代替阿姆罗被引导了。
+
+—— 来自 vivo V2419A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  未来起航  
+##### 17315#       发表于 2025-6-5 16:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67885166&amp;ptid=2209276" target="_blank">maosayun 发表于 2025-6-5 15:32</a>
+
+看剧场版时就觉得khara沉迷写uc同人无法自拔了，主创只是迫不及待想把if线的设定和人物快快端上来，连作为 ...</blockquote>
+番茄这塑造没啥问题，问题永远是时间，一个12集的片子9集过去了，主角团塑造连tm四分之一都没有。
+
+之前top2也能靠极速展开+拿前作内容当垫子来完成任务，但娜娜到总共六集的第四集也已经能力完全觉醒了，这边猫和番茄还在八字都没一撇的阶段<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+说是第十集要整大的把很多东西搞明白，但我预期极大概率并不是那种靠一俩设定就能把前面全部圆上的情节（
+
