@@ -41,3 +41,18 @@
 
 而且一般都是极破法和U撑大头
 
+
+*****
+
+####  江戸前ルナ  
+##### 18234#       发表于 2025-6-5 23:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67887998&amp;ptid=1158205" target="_blank">Sylpheed 发表于 2025-6-5 21:54</a>
+
+不用，真为了TA不如巴尔刀
+
+而且一般都是极破法和U撑大头
+
+单说狐狸的话，被动30 LB15 觉醒4，耳环戒指洗一 ...</blockquote>
+谢谢，巴尔刀没抽到，超级咸鱼也没极武，那就拿这把和85加洗耳环凑一下了
+
