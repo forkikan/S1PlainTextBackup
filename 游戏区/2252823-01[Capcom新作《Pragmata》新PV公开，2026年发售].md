@@ -472,3 +472,21 @@ re9据小道消息不完全是捕风捉影，确实有在做只是可能进度�
 
 要求不高，做出生化奇兵那水平就行了
 
+
+*****
+
+####  liuguokobe  
+##### 56#       发表于 2025-6-5 15:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67884992&amp;ptid=2252823" target="_blank">艾诺琳 发表于 2025-6-5 15:12</a>
+
+要求不高，做出生化奇兵那水平就行了</blockquote>
+如果是战斗的话那是平均水平，如果是剧情的话那太难了
+
+*****
+
+####  uyghgyg  
+##### 57#       发表于 2025-6-5 15:22
+
+感觉会被骂ltp游戏<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">卡普空在集美那的好名声也要没了应该
+
