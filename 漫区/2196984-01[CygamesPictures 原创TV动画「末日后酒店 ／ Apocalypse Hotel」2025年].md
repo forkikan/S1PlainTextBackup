@@ -5324,3 +5324,14 @@ ep1-3还是看不下去，ep4观感回升，ep56还行，但ep78从制作理性�
 八千代一秒就修理好了，上一集根本毫无意义啊！</blockquote>
 有意义，八千代大战狸猫这么精彩的打戏，这季度隔壁都很久没做到了（
 
+
+*****
+
+####  NBXX  
+##### 467#       发表于 2025-6-5 22:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67887139&amp;ptid=2196984" target="_blank">Yinacona 发表于 2025-6-5 19:29</a>
+
+之前漫画不是说第九集会有喷水的精彩表现吗，结果这集到最后都没有喷热水 ...</blockquote><blockquote>９話くらいあと</blockquote>
+应该指的是 2+9 所以是第11话
+
