@@ -10543,3 +10543,134 @@ GQX无视麻球的个人意愿，直接把麻球单人带走
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  mhss  
+##### 17131#       发表于 2025-6-5 10:24
+
+没有了蓝毛魅魔，观感还在持续攀升。
+国内引进起的“跨时之战”这名字是真的妙，一开始我还以为是为了硬凑quuuuuux的谐音。
+
+*****
+
+####  猪突猛进R  
+##### 17132#       发表于 2025-6-5 10:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67881992&amp;ptid=2209276" target="_blank">cckuku 发表于 2025-6-5 10:20</a>
+
+一想到拉拉多当了六年的雏鸡就有点让人绷不住</blockquote>
+开播前有人讨论没鸭子捞拉拉会怎样。
+
+众人：不会吧不会吧。
+
+现在<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rhantolk  
+##### 17133#       发表于 2025-6-5 10:24
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">现在就是等着看元祖登场了吧
+
+*****
+
+####  秋月孝三  
+##### 17134#       发表于 2025-6-5 10:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都不是，而是拉拉没给鸭子挡刀的全新IF
+
+*****
+
+####  cody198879  
+##### 17135#       发表于 2025-6-5 10:28
+
+有当头牌才能的主角实在是太厉害了<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PTP-AN70, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  Sliurus  
+##### 17136#       发表于 2025-6-5 10:28
+
+这集基本可以确定本质是个爱情故事了吧，拉拉为了保鸭子引发的一连串蝴蝶效应，NT聊天室也是围绕喜欢的男人的交流
+
+*****
+
+####  yanghuangu  
+##### 17137#       发表于 2025-6-5 10:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67881843&amp;ptid=2209276" target="_blank">tony701 发表于 2025-6-5 10:11</a>
+
+这么一想地球联邦都这样了锦华大佐还能偷偷给搞出精神病高达，太牛逼了
+
+ ...</blockquote>
+还要躲吉翁眼线，偷偷在废墟里跟小弟接头，锦华太难了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  岸浪白野  
+##### 17138#       发表于 2025-6-5 10:32
+
+[機動戦士Gundam GQuuuuuuX：マチュとシュウジのL-2ジャケット　STRICT-G×SPIEWAK - MANTANWEB（まんたんウェブ）](https://mantan-web.jp/article/20250604dog00m200079000c.html)
+
+<img src="https://img.stage1st.com/forum/202506/05/102945t4uueqrmb2heaqbo.jpg" referrerpolicy="no-referrer">
+
+<strong>$%]G0Q%%3}5E[MY(C]8(6[4_tmb.jpg</strong> (96.32 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 10:29 上传
+
+<img src="https://img.stage1st.com/forum/202506/05/103210s0kui07uyvid0did.jpg" referrerpolicy="no-referrer">
+
+<strong>}2Z9B0G`~I~U~M62~SL7`B1.jpg</strong> (141.74 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 10:32 上传
+
+<img src="https://img.stage1st.com/forum/202506/05/103227ht9zchhfv269cc7q.jpg" referrerpolicy="no-referrer">
+
+<strong>NJURM69]KMEV5{X9Z0OVA1E.jpg</strong> (129.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 10:32 上传
+
+*****
+
+####  仟音一心  
+##### 17139#       发表于 2025-6-5 10:32
+
+ 本帖最后由 仟音一心 于 2025-6-5 10:34 编辑 
+
+对了还有这个。
+<img src="https://p.sda1.dev/24/69f6c3b6577d1c91cd1e98c292581452/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  EFSF  
+##### 17140#       发表于 2025-6-5 10:34
+
+就这设定至少能有下面两种演化分支：
+1. 拉拉帝皇说
+艾尔梅斯里的是79拉拉，处于被骡子捅死前死与不死之间的静滞状态。
+
+2.初始拉拉说
+艾尔梅斯里的是一个最初始的拉拉，她没有替夏亚挨刀，看夏亚噶了NT爆发陷入这种状态，她穿越各种时间空间都看到夏亚死在那一瞬，最后收束回到那一瞬间帮夏亚挡刀，高达世界全都回到0079的世界线。
+
+上面两种都还能有一个再演化分支：
+GQX是这个拉拉的幻境，夏亚没有受到伤害的一个拉拉死前的幻觉世界，这个世界里充斥着拉拉穿越时间空间以及其他NT的记忆碎片，所以揉合了很多东西。这个拉拉从静滞中醒来，GQX的世界就没了。
+
+—— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  RPG-7  
+##### 17141#       发表于 2025-6-5 10:35
+
+我看别的地方说两个黑皮女仆的发型一个捏93鸭一个捏骡，拉拉别太爱了
+

@@ -3467,3 +3467,44 @@ wdnmd为什么强自不是专用机
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有三集，绿叔叔，首席，不知道还会有谁？
 
+
+*****
+
+####  rockroxas  
+##### 1793#       发表于 2025-6-5 10:25
+
+各种无ur无sp开发机ex作业都出来了
+
+没想到夏亚这机这么强，一台一星就够把吉翁ex1做了
+
+*****
+
+####  rockroxas  
+##### 1794#       发表于 2025-6-5 10:26
+
+<blockquote>洛克萨斯 发表于 2025-6-5 10:10
+还有三集，绿叔叔，首席，不知道还会有谁？</blockquote>
+首席不是已经进招募了
+
+
+*****
+
+####  洛克萨斯  
+##### 1795#       发表于 2025-6-5 10:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67882124&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-6-5 10:26</a>
+
+首席不是已经进招募了</blockquote>
+那个不是盖茨么
+
+*****
+
+####  rockroxas  
+##### 1796#       发表于 2025-6-5 10:35
+
+<blockquote>洛克萨斯 发表于 2025-6-5 10:32
+那个不是盖茨么</blockquote>
+哦，是我看错了
+
+还有一个大概是拉拉吧
+
