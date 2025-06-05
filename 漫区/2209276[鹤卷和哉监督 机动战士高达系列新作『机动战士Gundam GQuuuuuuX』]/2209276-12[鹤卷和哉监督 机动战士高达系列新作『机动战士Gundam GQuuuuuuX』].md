@@ -10076,3 +10076,137 @@ re0：怎么重来也带不动红战士
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玛秋是有在娼馆当女仆（？）的可能性的，可惜没采用
 夏CM本子暴增可能性微存
 
+
+*****
+
+####  行政裁定书  
+##### 17100#       发表于 2025-6-5 09:55
+
+拉拉这是图什么
+
+*****
+
+####  最强惠酱  
+##### 17101#       发表于 2025-6-5 09:55
+
+ 本帖最后由 最强惠酱 于 2025-6-5 09:56 编辑 
+
+卡拉漫威dc看多了，有种要做高达闪点重塑uc的感觉<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  九山节度使  
+##### 17102#       发表于 2025-6-5 09:55
+
+🍅援气太高了
+这种欠揍jk就该狠狠地娼馆if激烈前后啊啊啊啊啊
+
+*****
+
+####  yanghuangu  
+##### 17103#       发表于 2025-6-5 09:56
+
+笑了，吉翁果然在地球上占了一堆飞地不走了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qratosones1337  
+##### 17104#       发表于 2025-6-5 09:57
+
+这下实锤了，为什么同时爱两个人？因为妈妈当然同时爱儿子和爸爸
+
+*****
+
+####  璇瑢子R  
+##### 17105#       发表于 2025-6-5 09:59
+
+拉拉看了所有的可能性
+
+每一个平行宇宙里夏亚都会来鸡院女票她。
+
+所以才坚定的不肯走
+
+
+*****
+
+####  猪突猛进R  
+##### 17106#       发表于 2025-6-5 10:00
+
+<img src="https://img.stage1st.com/forum/202506/05/100012ggw4z4ti3wqtaie3.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (70.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 10:00 上传
+
+<img src="https://img.stage1st.com/forum/202506/05/100012r0vriyyv6vm1vcv6.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (63.94 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 10:00 上传
+
+*****
+
+####  阿卡拉兰斯  
+##### 17107#       发表于 2025-6-5 10:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67881576&amp;ptid=2209276" target="_blank">qratosones1337 发表于 2025-6-5 09:57</a>
+
+这下实锤了，为什么同时爱两个人？因为妈妈当然同时爱儿子和爸爸</blockquote>
+那这白次男真有点丢人，真就每个宇宙都被爹薄纱没有一次成为史上最强之人<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yone0000  
+##### 17108#       发表于 2025-6-5 10:01
+
+昨天S1没有开，在外面看了一天🐏的梗图<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  woui003woui  
+##### 17109#       发表于 2025-6-5 10:01
+
+麻球这集成了货真价实的随波逐流水母
+
+看起来是按自己意图去行动，实际上全程被gqx和拉拉推着走，主观能动性效果低于烧了妓/院的女仆
+
+对军队的立场这块还是和喵安的明显对照线，预期剩下的剧情矛盾应该就围绕着基西莉亚的武器计划展开？
+
+以及，虽然能很清晰认知到
+
+想要看到实际的海洋结果窗外是山
+
+麻球想带拉拉走并表示“（那名男子）只是个梦吧”
+
+拉拉拒绝并表示我必须等他
+
+GQX无视麻球的个人意愿，直接把麻球单人带走
+
+虽然潜入海洋了但并非自身去接触海洋的游泳而是乘坐GQX
+
+整个出逃计划都是在绿叔叔的默许以及神秘短信的指引下进行，找到玫瑰以后马上就又回到了监禁状态
+
+以上这些演出是有明确含义的，但已经不太想去思考麻球到底受到什么影响了，要是下集再来一句类似于魔女那集最后的台词实在遭不住
+
+*****
+
+####  洛克萨斯  
+##### 17110#       发表于 2025-6-5 10:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这集最乐就是钦定总帅是永世骡一儿
+
+*****
+
+####  a85982313  
+##### 17111#       发表于 2025-6-5 10:02
+
+上周（第8集）个收1.7，世带3.3
+上上周（第7集）飞榜，个收低于1.5
+<img src="https://p.sda1.dev/24/b81abd51af6a6dc6e6f682bc075ac8a0/image.jpg" referrerpolicy="no-referrer">
+

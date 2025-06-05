@@ -5102,3 +5102,14 @@ https://www.bilibili.com/video/BV1md7Gz5E4s
 
 嘭子戴上了结婚戒指
 
+
+*****
+
+####  KDConan  
+##### 444#       发表于 2025-6-5 09:54
+
+确实是红白喜事<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+达到了抽象的新高度，我喜欢<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
