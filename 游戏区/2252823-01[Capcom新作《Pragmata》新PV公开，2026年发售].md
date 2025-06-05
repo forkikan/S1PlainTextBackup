@@ -657,3 +657,14 @@ re9据小道消息不完全是捕风捉影，确实有在做只是可能进度�
 
 这小女孩的头发效果进步很大啊
 
+
+*****
+
+####  weiduopla  
+##### 74#       发表于 2025-6-6 07:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67888912&amp;ptid=2252823" target="_blank">SENKON 发表于 2025-6-6 01:18</a>
+
+好像是韩国人</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">啊？也行吧……
+
