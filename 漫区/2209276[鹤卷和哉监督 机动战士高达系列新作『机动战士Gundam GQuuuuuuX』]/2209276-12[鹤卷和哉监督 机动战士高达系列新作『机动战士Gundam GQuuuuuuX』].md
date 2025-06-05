@@ -11700,3 +11700,140 @@ GQUX为什么是"The Beginning"呢（两次短讯都说开GQUX是get The Beginni
 
 —— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  岸浪白野  
+##### 17207#       发表于 2025-6-5 11:58
+
+[X 上的 鹿てっく：“シャロンの薔薇の正体、まさかのだったなぁ… [url]https://t.co/bpcheNAYCA](https://x.com/shikatec/status/1930284747386957997)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/05/115814d7ac4waagg86msee.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.86 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 11:58 上传
+
+<img src="https://img.stage1st.com/forum/202506/05/115820s8371p5u7hpicuub.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.27 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 11:58 上传
+
+*****
+
+####  ftyaid  
+##### 17208#       发表于 2025-6-5 11:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67883290&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-5 11:58</a>
+
+X 上的 鹿てっく：“シャロンの薔薇の正体、まさかのだったなぁ… [url]https://t.co/bpcheNAYCA” / X[/ur ...</blockquote>
+这位确实能让科技跃升几个时代<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 17209#       发表于 2025-6-5 11:59
+
+gqux拉拉应该是被正史拉拉同步了，每夜都在梦见79if里鸭子开勇士被骡子开元祖捅死。也因此知道了自己和鸭子的恋情。
+
+后面对剧情有没有影响很难说，玫瑰里还坐着一个呢。我倾向于gqux拉拉不会再直接上线了，当然在kirakira里唱拉拉歌还是做得到的。
+
+再粗暴一点就是直接zeknova拉过来和79拉拉融合。
+
+拉拉这剧情怎么充斥着是79拉拉慢了半步没给鸭子挡刀于是后悔之下nt爆发观测出来的平行世界。最后估摸得穿回去挡刀让79回归正常。
+
+gqux这边紫婆瘦子一起便当，玫瑰消失?
+
+*****
+
+####  猪突猛进R  
+##### 17210#       发表于 2025-6-5 11:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67883246&amp;ptid=2209276" target="_blank">57042711 发表于 2025-6-5 11:54</a>
+
+拉拉现在已经可以说是神了，快进到阿克西斯冲击其实是拉拉发功
+
+—— 来自 HUAWEI FIN-AL60a, Android 12,  ...</blockquote>
+其实GQ世界的拉拉挺惨的，神（棍）的是被捞起来的拉拉。
+
+
+*****
+
+####  YU_JI  
+##### 17211#       发表于 2025-6-5 12:02
+
+这集留了拉拉在等夏亚的扣子，按照这片的伏笔回收率，鸭子最后包要到地球把拉拉带走的
+
+*****
+
+####  螺旋的小夜曲  
+##### 17212#       发表于 2025-6-5 12:02
+
+到现在我算是明白了，是高达不能没有阿姆罗
+
+<img src="https://img.stage1st.com/forum/202506/05/120152ww830x3iavie0iea.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1749096103567.jpg</strong> (31.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 12:01 上传
+
+*****
+
+####  璇瑢子R  
+##### 17213#       发表于 2025-6-5 12:03
+
+就预告而言
+第三集预告联邦魔女，大家都觉得要开新线了。结果魔女一集下线，联邦查无此人
+第四集预告就是平平淡淡的黑拳
+第五集预告基西利亚刺杀计划，结果基西利亚最后才出现而且就是预告那几秒画面
+第六集预告精神力大闹side6，结果被绿叔叔秒杀，side6损失极小(相比预期)
+第七集预告是剧场版所罗门部分
+第八集预告，小番茄单机突入大气层，然后拉拉。结果单机突入全自动驾驶，拉拉倒是正经说了
+
+所以有不小的概率，下一集很可能重点不在吉翁内战上
+
+*****
+
+####  大义灭亲林有德  
+##### 17214#       发表于 2025-6-5 12:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67881992&amp;ptid=2209276" target="_blank">cckuku 发表于 2025-6-5 10:20</a>
+
+一想到拉拉多当了六年的雏鸡就有点让人绷不住</blockquote>
+你仔细一想拉拉是三妹，再结合网上三妹的形象自动脑补一说话就晃脑袋+咖喱味英语，再看看阿三的爱情动作片里那脏兮兮的风格，也就对拉拉祛魅了。
+
+*****
+
+####  Toby_dak  
+##### 17215#       发表于 2025-6-5 12:06
+
+S1维护时候无聊看了看B站的弹幕，只能说这中文翻译能看下去真神人了。
+
+<img src="https://p.sda1.dev/24/fde03fa7b38eb5cc3f3f5c3b08061e73/1000115856.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/d4a4cbeffb0aedffd1ac579857a2ca6e/1000115857.jpg" referrerpolicy="no-referrer">
+不知道風俗店的指名是什么不奇怪，至少指名手配应该听说吧？这找茬是哪冒出来的。
+
+<img src="https://p.sda1.dev/24/dff0baf7f8fab7a87c3fdd43a74b3f0b/1000115855.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/08a133831f5dc8e416047c333f8cb322/1000115858.jpg" referrerpolicy="no-referrer">
+日文的屈折是光的偏转折射，画面上也能看到这样的视觉特效。望文生义翻成变形，无话可说。有些新人还以为爱美号和重高达一样会变形。
+
+这种翻译只能说有多远就躲多远。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.46)
+
+*****
+
+####  syndrome2032  
+##### 17216#       发表于 2025-6-5 12:08
+
+gqux的空调有点厉害。
+单机突入大气层不算啥，元祖就是这么做的。
+但是番茄坐驾驶舱里不穿驾驶服也就是有点热的程度。
+
