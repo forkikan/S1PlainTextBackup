@@ -5285,3 +5285,23 @@ ep1-3还是看不下去，ep4观感回升，ep56还行，但ep78从制作理性�
 
 10集预告：？？？<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Yinacona  
+##### 463#       发表于 2025-6-5 19:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67887044&amp;ptid=2196984" target="_blank">TOYSTORY 发表于 2025-6-5 19:12</a>
+
+好看好看，家族主题还有欢送死者甚至看出点寻梦环游记的味道
+
+不过中间有段大家吃东西的合照里的八千代为啥 ...</blockquote>
+有人说是当时还没恢复意识时所以直接把八千代搬过去摆拍的所以八千代都没什么表情，感觉这说法挺靠谱（
+
+*****
+
+####  Yinacona  
+##### 464#       发表于 2025-6-5 19:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">之前漫画不是说第九集会有喷水的精彩表现吗，结果这集到最后都没有喷热水
+

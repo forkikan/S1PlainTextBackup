@@ -13305,3 +13305,19 @@ MAV也定死了是修斯的话，也就是说即使包饺子，估计也看不�
 
 说到语言问题，给玛秋发消息的神秘人也挺奇怪的，Let's get the Beginning是英语，而もうすぐ薔薇が咲く和ロックが外れる。右是日语，但是之后指路又变成了英语
 
+
+*****
+
+####  岸浪白野  
+##### 17344#       发表于 2025-6-5 19:33
+
+庵野确实很喜欢
+
+<img src="https://img.stage1st.com/forum/202506/05/193149u1hdf64a21bu7xhn.jpg" referrerpolicy="no-referrer">
+
+<strong>I[J@$CBJ{IBBVH55FZ_4U3I.jpg</strong> (111.56 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 19:31 上传
+
