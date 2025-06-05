@@ -7006,3 +7006,24 @@ FS游戏的共斗。我觉得法环的正经联机共斗也是做得比较残缺
 
 打完三狼隐者多了句台词说“狗狗学会伸手了吗？”
 
+
+*****
+
+####  hootao  
+##### 701#       发表于 2025-6-5 17:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67885614&amp;ptid=2210352" target="_blank">jacket 发表于 2025-6-5 16:14</a>
+用铁眼单人开荒好难，为了打三狼拿着圣属性武器开场又打不过盔甲系，中间城堡的红利吃不到。
+
+不过单人模式 ...</blockquote>
+铁眼、人偶妹、魔女偶尔也要捡把顺手的近战武器做过度
+
+—— 来自 OPPO PKK110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  hugosol  
+##### 702#       发表于 2025-6-5 17:43
+
+人偶妹支线只能solo了吗，三狼完全匹配不到人
+

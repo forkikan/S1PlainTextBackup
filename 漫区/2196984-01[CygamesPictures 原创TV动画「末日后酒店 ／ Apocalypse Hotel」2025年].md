@@ -5238,3 +5238,11 @@ ep1-3还是看不下去，ep4观感回升，ep56还行，但ep78从制作理性�
 
 八千代一秒就修理好了，上一集根本毫无意义啊！
 
+
+*****
+
+####  水莲寺流歌  
+##### 458#       发表于 2025-6-5 17:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">外婆不配合的话大变活狸那个魔术怎么做到的，真是越想越地狱
+
