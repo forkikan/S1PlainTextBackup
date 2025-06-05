@@ -5246,3 +5246,17 @@ ep1-3还是看不下去，ep4观感回升，ep56还行，但ep78从制作理性�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">外婆不配合的话大变活狸那个魔术怎么做到的，真是越想越地狱
 
+
+*****
+
+####  Asukalangley33  
+##### 459#       发表于 2025-6-5 17:55
+
+这集属于难得看哭的tv动画
+大概一半就有点绷不住，后面放录像破防了
+
+看完准备往下拉看下评论区找认同，然后发现在为了所谓“米线”吵架，真无语了
+真就有种星河战队的电影拍出来是为了讽刺nazi，结果被评价家说是nazi宣传片的荒诞感
+
+—— 来自 Xiaomi 24031PN0DC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

@@ -7027,3 +7027,12 @@ FS游戏的共斗。我觉得法环的正经联机共斗也是做得比较残缺
 
 人偶妹支线只能solo了吗，三狼完全匹配不到人
 
+
+*****
+
+####  jacket  
+##### 703#       发表于 2025-6-5 17:54
+
+不贪不是人，正片32:50开始
+[https://www.bilibili.com/video/BV1WwTszCENr](https://www.bilibili.com/video/BV1WwTszCENr)
+

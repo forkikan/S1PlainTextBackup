@@ -13077,3 +13077,92 @@ UC的新人类什么的清一色这架势，不都是看对眼了/脑电波对�
 S1维护时候无聊看了看B站的弹幕，只能说这中文翻译能看下去真神人了。</blockquote>
 哪个字幕组？
 
+
+*****
+
+####  zzf111  
+##### 17325#       发表于 2025-6-5 17:48
+
+这哈啰是真的有鬼，既然打算讲开局的神秘短信了那哈啰不讲那就是置若罔闻
+
+*****
+
+####  ryanghj  
+##### 17326#       发表于 2025-6-5 17:49
+
+其实玛秋也没祛魅，本来去地球的想法就是和很修司在一起捆绑的，之所以会说 真想下去游泳啊 的原因是修司不在而已
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  与天争锋_LZ  
+##### 17327#       发表于 2025-6-5 17:51
+
+刚刚补到第六集
+
+这小机器人拿的起来饺子？这合理吗？
+
+<img src="https://img.stage1st.com/forum/202506/05/175113pk57567l5duk353o.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图-676429265.jpg</strong> (174.56 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 17:51 上传
+
+<img src="https://img.stage1st.com/forum/202506/05/175113vblhhhushehhv1va.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图-676441078.jpg</strong> (142.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 17:51 上传
+
+<img src="https://img.stage1st.com/forum/202506/05/175113p5rnorb4rrnw4o0s.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图-676450312.jpg</strong> (105.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 17:51 上传
+
+
+*****
+
+####  型月神话伊阿宋  
+##### 17328#       发表于 2025-6-5 17:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67886477&amp;ptid=2209276" target="_blank">与天争锋_LZ 发表于 2025-6-5 17:51</a>
+
+刚刚补到第六集
+
+这小机器人拿的起来饺子？这合理吗？</blockquote>
+这玩意设定上是修司自己动手改的
+
+*****
+
+####  七七見奈波  
+##### 17329#       发表于 2025-6-5 17:56
+
+就麻球这集对吉翁全否定的态度，将来让她靠吉翁粉饰回归日常，那估计得相当不乐意
+
+*****
+
+####  久井路路  
+##### 17330#       发表于 2025-6-5 17:56
+
+MAV也定死了是修斯的话，也就是说即使包饺子，估计也看不到夸克斯和基弗雷德的兄弟携手战斗了啊。
+
+倒是有点遗憾
+
+*****
+
+####  与天争锋_LZ  
+##### 17331#       发表于 2025-6-5 17:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67886499&amp;ptid=2209276" target="_blank">型月神话伊阿宋 发表于 2025-6-5 17:54</a>
+
+这玩意设定上是修司自己动手改的</blockquote>
+但是这圆柱型的硬手怎么改能改的用横面持物啊，哆啦a梦的圆球手好歹还是软的
+
