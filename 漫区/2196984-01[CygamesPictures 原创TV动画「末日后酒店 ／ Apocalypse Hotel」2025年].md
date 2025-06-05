@@ -5405,3 +5405,11 @@ ep1-3还是看不下去，ep4观感回升，ep56还行，但ep78从制作理性�
 
 这粉毛小狸猫不会是鹏子的女儿吧？<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ayanamilin  
+##### 469#       发表于 2025-6-6 00:51
+
+这一集太恶俗了，对中国人来说恐怕只有庄子门徒能看得下去吧。就算是某些地方的喜丧也没有这么离谱。
+

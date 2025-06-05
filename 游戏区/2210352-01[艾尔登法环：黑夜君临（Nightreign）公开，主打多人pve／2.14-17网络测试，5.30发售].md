@@ -7147,3 +7147,49 @@ https://www.bilibili.com/video/BV1WwTszCENr</blockquote>
 
 另外守护者带聚怪旋风遗物在清杂场合太imba了，那冲击力连失乡都吃不住，非常霸道
 
+
+*****
+
+####  wasian  
+##### 714#       发表于 2025-6-6 00:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67888799&amp;ptid=2210352" target="_blank">modkingr 发表于 2025-6-6 00:36</a>
+
+守护者在boss场中感觉是辅助为主，最好带冰龙遗物稳定上冰伤跟boss打盾戳，利用强盾防+仇恨遗物给DPS职业 ...</blockquote>
+只能说比较团队，做任务单通像铃珠树灵这种，别的职业等级高我还会打，守护者直接头也不回，削闪避+精防给的数值不够，玩着很难受
+
+不过聚怪确实好用，算是一个前期的补强了
+
+*****
+
+####  modkingr  
+##### 715#       发表于 2025-6-6 00:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67888831&amp;ptid=2210352" target="_blank">wasian 发表于 2025-6-6 00:46</a>
+
+只能说比较团队，做任务单通像铃珠树灵这种，别的职业等级高我还会打，守护者直接头也不回，削闪避+精防 ...</blockquote>
+毕竟这角色加点都是血精，和游戏效率至上的玩法比较冲突，确实不适合单通
+
+*****
+
+####  modkingr  
+##### 716#       发表于 2025-6-6 00:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67888831&amp;ptid=2210352" target="_blank">wasian 发表于 2025-6-6 00:46</a>
+
+只能说比较团队，做任务单通像铃珠树灵这种，别的职业等级高我还会打，守护者直接头也不回，削闪避+精防 ...</blockquote>
+另外你说的执行者强度最恐怖是单通结论吗？我感觉这角色设计角度就有一种为单通而服务的感觉
+
+联机感觉妖刀能用的场合不算多
+
+
+*****
+
+####  usodakedo  
+##### 717#       发表于 2025-6-6 00:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67888792&amp;ptid=2210352" target="_blank">Steel.Haze 发表于 2025-6-6 00:35</a>
+我的意思是，在毒圈就只能跑了，这限制了很多操作。时限也是。制作组对毒圈的理解感觉还是太刻板了。当然 ...</blockquote>
+不过我其实回看了一下小石的访谈，倒也不是洗，他当初强调的是做一款能够让角色快速成型的合作类短rpg游戏，为此需要随机，限时这些元素，所以加入了肉鸽和缩圈这两种市面上已经验证过的方案，要说这两者最后呈现的问题确实有，不过最初设想的合作类短rpg倒是真的实现了。
+其实我打同样算是共斗的怪猎不到万不得已必然不组野队也不开黑，这游戏最开始我也是单人通关的，但现在反而更喜欢多打打野排了
+
