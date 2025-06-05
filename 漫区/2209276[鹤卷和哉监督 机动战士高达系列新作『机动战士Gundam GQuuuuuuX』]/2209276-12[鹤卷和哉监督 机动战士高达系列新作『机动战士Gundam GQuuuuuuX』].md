@@ -11465,3 +11465,196 @@ gqx是鸭子是萝莉控最合理的一集
 
 我要求很低的，让番茄最后几集去把这群人桌子掀了我就和鹤卷和解（）
 
+
+*****
+
+####  蕾洁之风  
+##### 17197#       发表于 2025-6-5 11:38
+
+<img src="https://p.sda1.dev/24/914c1e093893e18041075d223ee75d39/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 17198#       发表于 2025-6-5 11:38
+
+[X 上的 谷 和也🍜ラル飯５巻発売中：“コモリ「まあ、たしかに薔薇ですけど…」 #GQuuuuuuX #ジークアクス [url]https://t.co/ImODydCas4](https://x.com/ta_02k/status/1930270767889166440)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/05/113807krinr8nz9vi0aya5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.2 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 11:38 上传
+
+[X 上的 Y🙃：“シャアム 私の屍を越えてゆけ [url]https://t.co/AahG6bgSJg](https://x.com/yy0880yy/status/1930212795045556743)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/05/113430kfz66xtz5aa6zx3a.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.59 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 11:34 上传
+
+[X 上的 錆々【さびさび】：“セファとコモリ [url]https://t.co/UP9vXqA5Zw](https://x.com/Sabi_Sabi1234/status/1930240431385944407)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/05/113404p3mq4hmi2m3nxqzg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (883.34 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 11:34 上传
+
+[X 上的 チバサ：“オーバーサイズ　マチュ&amp;ニャアン✨ リプ欄に個別であげてます〜✨ #GQuuuuuuX #ジークアクス [url]https://t.co/W7p6ZX6sNv](https://x.com/tibasa9/status/1930218148969820340)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/05/113317f37he3dd23tetebs.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.64 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 11:33 上传
+
+[X 上的 みゃいど：“マチュ ＆ ニャアン コーデ③ #GQuuuuuuX #ジークアクス [url]https://t.co/HH10iyp48H](https://x.com/SuiSui_dm/status/1930213786033475613)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/05/113332qmhm7fsuz4lk49pp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.17 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 11:33 上传
+
+[X 上的 JAZZ JACK：“#GQuuuuuuX #ジークアクス [url]https://t.co/VcLiMTqDt4](https://x.com/JAZZ_JACK_/status/1930251057453773219)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/05/113656rqugo4mrimgu7qum.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (645 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 11:36 上传
+
+[X 上的 ばん！：“夜中の変なテンションで描いたララァのラフ… [url]https://t.co/TvWrGta2yh](https://x.com/bansanv3/status/1930016519003746370)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/05/113627etcyp2kc5vyc12uc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.24 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 11:36 上传
+
+[X 上的 うるりひ＠c105新刊発売中：“その夜マチュは眠れなかったという… [url]https://t.co/iieLs0ffOX](https://x.com/Ulrich_46/status/1930280906889277890)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/05/113831qn8ocl01b1amvnnc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.81 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 11:38 上传
+
+[X 上的 お鮫🦈：“[url]https://t.co/tR3DfztuIO](https://x.com/osamesamesame/status/1930349804330332619)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/05/113849kzzqfs2fq1rer5m2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.21 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 11:38 上传
+
+[X 上的 ゆうしゃめんま / Y. Menma：“マチュ@売れる顔 #ジークアクス #GQuuuuuuX [url]https://t.co/UZOxJsp4nu](https://x.com/obuchi314/status/1930157717857153213)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/05/113452p6eveqq0vd2gg2e1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.45 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 11:34 上传
+
+[X 上的 黒羽好大：“おしごとがんばりまちゅ [url]https://t.co/8u5wmxej2l](https://x.com/kuroha4416/status/1930046495858029007)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/05/113524vt9s90jq5sv01pjf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.71 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 11:35 上传
+
+[X 上的 うきた乳業🍼🐮❄️：“これでいきます [url]https://t.co/jwxrpIvbLd](https://x.com/UkitaMilk/status/1930223914996904145)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/05/113711s38gdbq8ir1i8qr1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.4 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 11:37 上传
+
+[X 上的 カスガ：“気まずい再会。 [url]https://t.co/aPuWj0D1kg](https://x.com/kasuga391/status/1930262298058186934)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/05/113726repyu6mszggvgjtf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (614.37 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 11:37 上传
+
+[X 上的 ちひろ：“「カバスの館ネタ同人、こういうの誰か出してくださいお願いします」の気持ちで描いた。 [url]https://t.co/mppUmnrYyN](https://x.com/chihiro4010/status/1930265082669478074)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/05/113744eriq5biw88r242iw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.79 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 11:37 上传
+
+
+*****
+
+####  弹匣与花窗  
+##### 17199#       发表于 2025-6-5 11:43
+
+从头到尾都被利用的青年人最后不给利用者一点教训那纯恶心人了，这么整的话我都不知道是想传达什么价值观<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+反正对这片没啥期待也没什么观看障碍，我就看剩下三集准备怎么搞
+
+*****
+
+####  ftyaid  
+##### 17200#       发表于 2025-6-5 11:43
+
+GQUX为什么是"The Beginning"呢（两次短讯都说开GQUX是get The Beginning）
+
+难道是和暴走之后的能力相关吗，还是说番茄每次开GQUX都在推动事态发展呢
+
+
+*****
+
+####  无念  
+##### 17201#       发表于 2025-6-5 11:44
+
+小女仆这发型肯定是故意的，这下骡鸭性转有固定造型了(
+拉拉这么担心鸭子却不怎么管骡子，甚至都没提，我估计骡子在G夸世界混的可能比我们想象的好，搞不好就要来收拾残局顺路再殴打一次鸭子了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  无念  
+##### 17202#       发表于 2025-6-5 11:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67882946&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-5 11:27</a>
+但必须得到GQX的认可（而且这个同意还可以撤回），不然就会像喵安一样开一半吐出来。 ...</blockquote>
+讲道理喵安可能是自己想跑的，因为弹出驾驶舱的时候G夸头又没关上，说明塞可缪那会还开着呢，可能是喵安强烈的丢下高达跑路的想法被接受了
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
