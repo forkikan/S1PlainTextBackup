@@ -7208,3 +7208,48 @@ https://www.bilibili.com/video/BV1WwTszCENr</blockquote>
 
 我的感觉是上限很高，下限也不会太差
 
+
+*****
+
+####  modkingr  
+##### 719#       发表于 2025-6-6 01:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67888848&amp;ptid=2210352" target="_blank">usodakedo 发表于 2025-6-6 00:52</a>
+
+不过我其实回看了一下小石的访谈，倒也不是洗，他当初强调的是做一款能够让角色快速成型的合作类短rpg游 ...</blockquote>
+我擦，想到一起了，前面发感想的时候我也想说怪猎共斗的问题，最后没发
+
+我觉得黑环在处理【共斗】问题上做的探索比怪猎成功太多了。时至今日，感觉怪猎游戏给人的感觉还是1vs1，极端情况下艾露猫都不带。除了W系强推了【合作】型的共斗boss贝希摩斯黑龙等等之外，功利性的联机只有分享任务奖励，追求效率又会直接滑坡到重弩定番，没有那种看起来合理一点的联机共斗
+
+而且怪猎在【共斗】这个领域走了这么多年了竟然还是这个水平让人很想不通。还有什么联机就是为了打队友之类的胡话，很神秘
+
+*****
+
+####  astrayl  
+##### 720#       发表于 2025-6-6 01:09
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">等一下双人补丁，找不到第三个认识的一起玩这个了。。。。
+
+
+*****
+
+####  wasian  
+##### 721#       发表于 2025-6-6 01:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67888889&amp;ptid=2210352" target="_blank">astrayl 发表于 2025-6-6 01:09</a>
+
+等一下双人补丁，找不到第三个认识的一起玩这个了。。。。</blockquote>
+匹野人呗，我三人小队时间有时对不上也是2+1野人，不是太整蛊的基本都能配合
+
+*****
+
+####  shyso  
+##### 722#       发表于 2025-6-6 01:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67888848&amp;ptid=2210352" target="_blank">usodakedo 发表于 2025-6-6 00:52</a>
+
+不过我其实回看了一下小石的访谈，倒也不是洗，他当初强调的是做一款能够让角色快速成型的合作类短rpg游 ...</blockquote>
+os不好用，匕首的轻击combo的后摇很长不能取消而且手太短，需要在连段中间闪避的场合有一半闪不掉，闪掉了九成九也接不上
+
+但是匕首8段触发重演很好用，boss硬直或者目标不是自己的时候可以极大提升输出
+
