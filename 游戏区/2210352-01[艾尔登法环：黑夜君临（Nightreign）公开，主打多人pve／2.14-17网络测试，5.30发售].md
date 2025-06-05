@@ -6852,3 +6852,25 @@ FROM SOFTWARE今日宣布，《艾尔登法环 黑夜君临》的全球总销量
 
 <img src="https://img.stage1st.com/forum/202506/05/132242ga3o50178mz5h71v.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jacket  
+##### 687#       发表于 2025-6-5 13:38
+
+商店里买来的系统遗物有没办法卖掉？买了一个发现卖不掉。
+
+
+*****
+
+####  忘却旋律  
+##### 688#       发表于 2025-6-5 13:44
+
+ 本帖最后由 忘却旋律 于 2025-6-5 13:45 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67884223&amp;ptid=2210352" target="_blank">jacket 发表于 2025-6-5 13:38</a>
+
+商店里买来的系统遗物有没办法卖掉？买了一个发现卖不掉。</blockquote>
+遗物装备页面 切角色 切到底 是出售，
+
+不好意思 理错了 你是说 买的遗物卖不掉是吧  那不太清楚 我反正只把最小的都卖掉了 不过确实有个一灰色的小的卖不掉，按你这么说估计是之前 一开始 随便买了一个
+

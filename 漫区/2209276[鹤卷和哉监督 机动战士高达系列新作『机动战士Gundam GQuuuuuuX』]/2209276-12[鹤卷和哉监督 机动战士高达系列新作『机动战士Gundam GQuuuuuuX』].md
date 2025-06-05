@@ -12199,3 +12199,40 @@ UC就算能解析这个技术也找不到合适的驾驶员吧……</blockquote
 dg的驾驶员只是耗材而已。反过来想这个世界也没mf和他们的驾驶员这么鬼畜的玩意打恶魔高达。所以强度低点 ...</blockquote>
 但这个不是DG啊
 
+
+*****
+
+####  秋月孝三  
+##### 17249#       发表于 2025-6-5 13:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67884125&amp;ptid=2209276" target="_blank">ヒトニナル 发表于 2025-6-5 13:26</a>
+说起来下集预告玛秋被绿叔叔壁咚还脸红让我有点难绷，面食いかな😅</blockquote>
+也有可能是精神被绿叔叔入侵了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  57042711  
+##### 17250#       发表于 2025-6-5 13:39
+
+绿叔叔攻击性还是太强了…正确的NT能力使用方法请参考f91结尾<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  大十字紅朔  
+##### 17251#       发表于 2025-6-5 13:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67884017&amp;ptid=2209276" target="_blank">kyo1165 发表于 2025-6-5 13:13</a>
+
+这恶心人的剧情，还夏亚梦男，这根本是对夏亚的终极侮辱。</blockquote>
+要是被恶心到说明庵野成功了<img src="https://static.stage1st.com/image/smiley/carton2017/041.png" referrerpolicy="no-referrer">
+
+<img src="https://static.stage1st.com/image/smiley/carton2017/042.png" referrerpolicy="no-referrer">庵野君最讨厌的是别人的二创
+
+<img src="https://static.stage1st.com/image/smiley/carton2017/040.png" referrerpolicy="no-referrer">庵野君最喜欢的是自己的二创
+
+我忘了这话是不是富野说的了
+
