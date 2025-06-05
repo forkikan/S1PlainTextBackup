@@ -12487,3 +12487,99 @@ gqux拉拉肯定是等正版红叔叔，绿叔叔劝不动。 ...</blockquote>
 
 不玩梗的话，正史夏亚对拉拉的执念在于他希望拉拉能作为NT引导他觉醒。鸡夸世界线的鸭子提前觉醒NT以后拉拉还对他有没有吸引力很难说<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  飞霞精灵  
+##### 17276#       发表于 2025-6-5 15:08
+
+总帅从79到93就是一路被乳过来的，还差这点嘛<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+脱出型NT也不是如今才有的梗了。
+
+某种意义上来说只输给骡子也算是能力的体现，毕竟其他人在骡子手下走不过三回合<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+倒是把总帅找雏妓这个事做实了有点难绷。
+
+我模糊的印象里总帅找拉拉就是靠NT共鸣出来的。
+
+*****
+
+####  rockroxas  
+##### 17277#       发表于 2025-6-5 15:09
+
+这故事展开就是为了让绿叔叔不接触活的拉拉，不然绿叔叔直接天降把老板扬了不就完了，不影响接下来去捞机体
+
+至于为什么不去找，也许小番茄跟拉拉接触后学会了大脑封闭术（
+
+*****
+
+####  Sabbah  
+##### 17278#       发表于 2025-6-5 15:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67884527&amp;ptid=2209276" target="_blank">玖羽 发表于 2025-6-5 14:16</a>
+
+路人视角的夏利亚审问玛秋belike
+
+https://www.bilibili.com/video/BV1RDTEz1EAt/</blockquote>
+就是增添加减那么几句构成了富野作品以实用对话为绝对核心拉着片子跑的节奏
+
+回忆叙说和心理内部描写都是随着实在场景渲染到位后的大杀器，这些元素很少用来当作填充物使用。
+
+我可以这么做妄断:有长段填充物式心理描写的场景，去掉所有内心戏后也会与本楼所述的富野式电波感十分接近。
+
+
+*****
+
+####  eilot  
+##### 17279#       发表于 2025-6-5 15:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67884829&amp;ptid=2209276" target="_blank">孙吧星人 发表于 2025-6-5 14:52</a>
+
+这不最后还是被反杀了...</blockquote>
+拉拉預知最後一刻，腦電波通知夏亞正在鳳翼扇後不要再追擊或跳起而是防禦，令李阿寶失去最後兩次BLOCK再加疾風腿機會
+
+*****
+
+####  量产失败型  
+##### 17280#       发表于 2025-6-5 15:13
+
+你挡枪失败的拉拉能穿越,猜一个小说版横死的阿姆罗也魂穿至此了,不是在哈罗上就是在GQU上,发微信给麻球导航的也是他,毕竟舰内通信<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  王留美  
+##### 17281#       发表于 2025-6-5 15:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67884415&amp;ptid=2209276" target="_blank">朋友费小号 发表于 2025-6-5 14:04</a>
+ 要是他们真敢写修斯是贝子，那我认栽了，直接签投降书</blockquote>
+贝子不算什么了
+我建议直接上倩子<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ardente  
+##### 17282#       发表于 2025-6-5 15:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">拉拉女士看了那么多世界线骡鸭都是男的吗，那很无聊了
+
+*****
+
+####  孙吧星人  
+##### 17283#       发表于 2025-6-5 15:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67884989&amp;ptid=2209276" target="_blank">eilot 发表于 2025-6-5 15:12</a>
+
+拉拉預知最後一刻，腦電波通知夏亞正在鳳翼扇後不要再追擊或跳起而是防禦，令李阿寶失去最後兩次BLOCK再加 ...</blockquote>
+什么凤翼扇，这是鸭翼扇。<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rockroxas  
+##### 17284#       发表于 2025-6-5 15:18
+
+[https://bbs.nga.cn/read.php?tid=44256633](https://bbs.nga.cn/read.php?tid=44256633)
+
+我记错了，染发的设定是这贴里10楼说的，具体设定集啥的我没有去关注，有没有谁看到过确切的设定
+
