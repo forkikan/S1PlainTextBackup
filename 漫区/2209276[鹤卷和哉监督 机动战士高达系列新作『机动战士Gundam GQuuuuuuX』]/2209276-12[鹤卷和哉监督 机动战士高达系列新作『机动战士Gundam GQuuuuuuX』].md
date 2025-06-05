@@ -13275,3 +13275,33 @@ MAV也定死了是修斯的话，也就是说即使包饺子，估计也看不�
 说起来，得亏拉拉和麻球都是NT，不然一个日本人一个印度人，怎么交流？用英语吗？ ...</blockquote>
 地球联邦通用语言是英文，交流估计还是能交流的
 
+
+*****
+
+####  无念  
+##### 17341#       发表于 2025-6-5 19:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67886691&amp;ptid=2209276" target="_blank">永远的春天 发表于 2025-6-5 18:18</a>
+这机器人可能是93夏亚代打</blockquote>
+93夏亚会包饺子卖萌也挺难绷的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  永远的春天  
+##### 17342#       发表于 2025-6-5 19:21
+
+<blockquote>无念 发表于 2025-6-5 19:18
+93夏亚会包饺子卖萌也挺难绷的
+
+—— 来自 HONOR SDY-AN00, Android 14, 鹅球 v3.5.99 ...</blockquote>
+贝子小说里还提到阿宝在军官宿舍里腌制泡菜，准备任务完成后回来就能吃上
+
+*****
+
+####  ヒトニナル  
+##### 17343#       发表于 2025-6-5 19:24
+
+说到语言问题，给玛秋发消息的神秘人也挺奇怪的，Let's get the Beginning是英语，而もうすぐ薔薇が咲く和ロックが外れる。右是日语，但是之后指路又变成了英语
+
