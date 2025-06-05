@@ -638,3 +638,14 @@ re9据小道消息不完全是捕风捉影，确实有在做只是可能进度�
 卡普空之前财报里说手上有两个最高规格的项目随时都能发售，一个是荒野，另一个当时都猜要么是re9，要么是 ...</blockquote>
 荒野这玩意他们之前还觉得可以随时发售吗？卡普空对猎批很有自信啊
 
+
+*****
+
+####  SENKON  
+##### 72#       发表于 2025-6-6 01:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67885212&amp;ptid=2252823" target="_blank">weiduopla 发表于 2025-6-5 15:36</a>
+
+导演名字看着感觉像华裔。</blockquote>
+好像是韩国人
+
