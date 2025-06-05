@@ -13332,3 +13332,46 @@ MAV也定死了是修斯的话，也就是说即使包饺子，估计也看不�
 地球联邦通用语言是英文，交流估计还是能交流的</blockquote>
 然后，想象一下，日本人和印度人用英语交流，那个场面……<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  林登·万  
+##### 17346#       发表于 2025-6-5 20:06
+
+笑死了 这IF线的联邦完全是战败国了 吉恩的度假胜地是吧 冷战个头吔<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  岸浪白野  
+##### 17347#       发表于 2025-6-5 20:10
+
+[X 上的 SPIT：“#GQuuuuuuX #ジークアクス](https://x.com/TakeTheSTrain/status/1930564996335046957)[https://t.co/aUEncHYQIL](https://t.co/aUEncHYQIL)” / X
+
+<img src="https://img.stage1st.com/forum/202506/05/201019q85aklzkujgz7d2a.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.33 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 20:10 上传
+
+[X 上的 Re-さいせー：“](https://x.com/Re_Saisei/status/1930586728890581005)[https://t.co/tPdRkF5ZZN](https://t.co/tPdRkF5ZZN)” / X
+
+<img src="https://img.stage1st.com/forum/202506/05/201047anz52nka2ofv5fvo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.99 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 20:10 上传
+
+*****
+
+####  璇瑢子R  
+##### 17348#       发表于 2025-6-5 20:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67887368&amp;ptid=2209276" target="_blank">林登·万 发表于 2025-6-5 20:06</a>
+笑死了 这IF线的联邦完全是战败国了 吉恩的度假胜地是吧 冷战个头吔</blockquote>
+基连和基西利亚冷战
+
