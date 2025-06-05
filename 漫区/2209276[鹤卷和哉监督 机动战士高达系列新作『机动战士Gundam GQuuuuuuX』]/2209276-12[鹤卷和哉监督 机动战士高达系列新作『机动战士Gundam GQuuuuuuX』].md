@@ -11066,3 +11066,105 @@ OP里面出现的各种绿色特效可以理解为虚拟世界里常见的电子
 除非白色男人被其他人搶先殺了就可以沒之後(79小說)</blockquote>
 g3不是白色，所以没问题
 
+
+*****
+
+####  岸浪白野  
+##### 17171#       发表于 2025-6-5 11:09
+
+ 本帖最后由 岸浪白野 于 2025-6-5 11:11 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67882707&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-5 11:06</a>
+
+和22年企划书驾驶服的对比</blockquote>
+说实话GFreD这机是2023年的剧本才加的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+原本2022年的时候喵安是开什么的确实挺好奇
+
+*****
+
+####  asikies  
+##### 17172#       发表于 2025-6-5 11:09
+
+拉拉穿越cca夏亚穿越在剧场版时就被预测出来了，鹤卷不行啊。
+
+*****
+
+####  osore  
+##### 17173#       发表于 2025-6-5 11:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67882613&amp;ptid=2209276" target="_blank">朋友费小号 发表于 2025-6-5 10:59</a>
+
+79if相关内容这些年看了挺多了，看gq就是奔着年轻人看的，结果年轻人到现在都还在随波逐流，这下真水母了
+
+ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都宇宙厕妹了，当然没有屌用
+
+*****
+
+####  Devola  
+##### 17174#       发表于 2025-6-5 11:11
+
+主角团全都是挂件工具人，塑造？这仨当柴烧就行，本质是为了煮野史这口汤
+
+就节目效果来说，神回啊神回，看了两天密密麻麻的梗了
+
+
+*****
+
+####  岸浪白野  
+##### 17175#       发表于 2025-6-5 11:12
+
+[X 上的 JAZZ JACK：“#GQuuuuuuX #ジークアクス [url]https://t.co/JrwRtX0XmD](https://x.com/JAZZ_JACK_/status/1930267332007305435)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/05/111149o2kl0yn8mlkcvf29.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (132.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 11:11 上传
+
+[X 上的 Ervin@Sked1000円で描く男：“これか、シャロンの薔薇・・・？ ゲルググに似てますね？ #GQuuuuuuX #ジークアクス [url]https://t.co/AGtYjlGx9J](https://x.com/Ervin0083/status/1930362274017095779)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/05/111245vy2xoeefxobzobos.jpg" referrerpolicy="no-referrer">
+
+<strong>8ETQ4CBE3E6LPSME7Y(6[87.jpg</strong> (100.33 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 11:12 上传
+
+[X 上的 よしや：“シャロンの薔薇 シャロンノバラ シャリアノブル シャリア・ブルのブラウブロ！？ [url]https://t.co/Kv0csv1pE3](https://x.com/yoshiya_SD/status/1930413046029267260)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/05/111232ilzy3kldn99lkz73.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.23 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 11:12 上传
+
+*****
+
+####  ヒトニナル  
+##### 17176#       发表于 2025-6-5 11:14
+
+玛秋现在就一湿件型NT
+而ジークアクス开始ブレバーン化<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  moudianzi  
+##### 17177#       发表于 2025-6-5 11:14
+
+确实整活高手，一集能弄出几个适合二创发挥的场面
+
+*****
+
+####  07579394  
+##### 17178#       发表于 2025-6-5 11:16
+
+这个场馆有点像大枪苇人在little witch时期的世界观，不过缺少贫乳。
+
+羊宫真不合适，太fuwafuwa了
+
