@@ -2059,3 +2059,208 @@ demo玩到第一个存档点，给我直观感受就是太tm尼尔了 设定，�
 
 就跟国内讨论游戏电影会不会被和谐一样
 
+
+*****
+
+####  Andariel  
+##### 2212#       发表于 2025-6-2 15:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67876180&amp;ptid=1978008" target="_blank">darkangel0224 发表于 2025-6-2 14:44</a>
+
+过完试玩，那个头目战是比较完全的机体性能。剧情模式就是网游常见的开篇残疾人模式，有点路径依赖了
+
+但 ...</blockquote>
+闪避成功后那个立刻突进的Y和X都是需要消耗贝塔能量的，没能量时就按不出来
+
+*****
+
+####  razielzyc  
+##### 2213#       发表于 2025-6-2 20:28
+
+最近同时在玩三国无双起源。就觉得demo还是差了一口气，不如起源流畅。是我的错觉么。
+
+*****
+
+####  superbigd  
+##### 2214#       发表于 2025-6-2 22:15
+
+玩一下demo,优化还行,3060ti下还算顺畅,就是除了人物建模,其它的还是粗糙
+
+特别是这基础闪避都需要技能点的QTE式的战斗系统真的是一坨
+
+*****
+
+####  黑耀星尘  
+##### 2215#       发表于 2025-6-2 22:30
+
+糅杂了很多游戏的一部分就是既要又要了。搞的整个战斗系统过于复杂了
+
+*****
+
+####  姐霓姐霓  
+##### 2216#       发表于 2025-6-2 23:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67876926&amp;ptid=1978008" target="_blank">razielzyc 发表于 2025-6-2 20:28</a>
+
+最近同时在玩三国无双起源。就觉得demo还是差了一口气，不如起源流畅。是我的错觉么。 ...</blockquote>
+那不是肯定的吗，无双这割草还不流畅那就没得玩了
+
+*****
+
+####  桥洞底下盖小被  
+##### 2217#       发表于 2025-6-2 23:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67876926&amp;ptid=1978008" target="_blank">razielzyc 发表于 2025-6-2 20:28</a>
+最近同时在玩三国无双起源。就觉得demo还是差了一口气，不如起源流畅。是我的错觉么。 ...</blockquote>
+别小看起源啊<img src="https://static.stage1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pandaman7777  
+##### 2218#       发表于 2025-6-2 23:38
+
+demo玩到第一个存档点，给我直观感受就是太tm尼尔了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer"> 设定，氛围，表现，各种
+
+*****
+
+####  ladiesman802  
+##### 2219#       发表于 2025-6-3 01:07
+
+支线是不是都可以打多次主线boss？我已经打了受伤版金刚，禁地双锤怪，潜地怪和天台的亚巴顿
+
+我发现主线boss比野外杂兵还简单，它们出招都很有规律，野外我最讨厌潜沙怪，从地里跳出来给你一巴掌，躲不掉只能被打，死之前还给你个投技
+
+远距离机器人加近战机器人也很恶心
+
+*****
+
+####  袄_偶滴小乔  
+##### 2220#       发表于 2025-6-3 02:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67877604&amp;ptid=1978008" target="_blank">ladiesman802 发表于 2025-6-3 01:07</a>
+支线是不是都可以打多次主线boss？我已经打了受伤版金刚，禁地双锤怪，潜地怪和天台的亚巴顿
+
+我发现主线bos ...</blockquote>
+主线boss亚种的话除了这四个，应该只剩一个拿第一个电池后面那个怪了。
+
+通关一周目有挑战模式可以打所有boss的
+
+*****
+
+####  Schwarzess  
+##### 2221#       发表于 2025-6-3 08:21
+
+ps5首发就不预购pc了，期待漏油的4k高清色图。<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  棍机凹升龙  
+##### 2222#       发表于 2025-6-3 08:31
+
+demo打完，223已入库，等开下载了<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-F9460, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  一心敬  
+##### 2223#       发表于 2025-6-3 09:45
+
+<blockquote>razielzyc 发表于 2025-6-2 20:28
+最近同时在玩三国无双起源。就觉得demo还是差了一口气，不如起源流畅。是我的错觉么。 ...</blockquote>
+起源弹反闪避都是无条件打断任何动作且毫无延迟，武技很多都有霸体无双更是全程无敌，当然流畅了
+
+*****
+
+####  洛克萨斯  
+##### 2224#       发表于 2025-6-3 10:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67870701&amp;ptid=1978008" target="_blank">ATRO 发表于 2025-5-31 20:19</a>
+
+对了，提醒新人先看系统设置，有几个默认不开的非常有用：
+
+1）自动QTE
+
+2）自动拾取</blockquote>
+边缘防掉落是哪个，没看到设置里面有
+
+*****
+
+####  谢皮利男爵  
+##### 2225#       发表于 2025-6-3 10:31
+
+这个快跑做得这么别扭吗 非得往前先跳一下再跑 然后跑得也不那么快<img src="https://static.stage1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  袄_偶滴小乔  
+##### 2226#       发表于 2025-6-3 10:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67878217&amp;ptid=1978008" target="_blank">谢皮利男爵 发表于 2025-6-3 10:31</a>
+
+这个快跑做得这么别扭吗 非得往前先跳一下再跑 然后跑得也不那么快</blockquote>
+
+你那是长按闪避接快跑，正常快跑是l3，跑一会儿会加速
+
+*****
+
+####  诗怀雅  
+##### 2227#       发表于 2025-6-3 12:01
+
+打BOSS最后进QTE然后突然进动画还以为是换场景继续打
+
+*****
+
+####  ladiesman802  
+##### 2228#       发表于 2025-6-3 12:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67878100&amp;ptid=1978008" target="_blank">洛克萨斯 发表于 2025-6-3 10:00</a>
+
+边缘防掉落是哪个，没看到设置里面有</blockquote>
+我也没看到，p5的
+
+*****
+
+####  ATRO  
+##### 2229#       发表于 2025-6-3 13:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67878100&amp;ptid=1978008" target="_blank">洛克萨斯 发表于 2025-6-3 10:00</a>
+边缘防掉落是哪个，没看到设置里面有</blockquote>
+嗯？我记错了吗？晚上回去看看，我记得就在和自动QTE一个菜单里的一项，可能不是叫这个名字，但是后面的选项说明里有建筑物边缘动作修正。
+
+—— 来自 samsung SM-S9280, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  chivalry  
+##### 2230#       发表于 2025-6-3 13:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67877397&amp;ptid=1978008" target="_blank">pandaman7777 发表于 2025-6-2 23:38</a>
+demo玩到第一个存档点，给我直观感受就是太tm尼尔了 设定，氛围，表现，各种 ...</blockquote>
+金桑给尼尔的情书，我一直当高清尼尔 2 代餐的<img src="https://static.stage1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wingofsilver  
+##### 2231#       发表于 2025-6-3 15:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">试玩了一下还挺难的，感觉攻击正面敌人时候想转向攻击背后的人基本没办法？
+
+*****
+
+####  oyss  
+##### 2232#       发表于 2025-6-3 22:06
+
+看鬼佬讨论lili能不能做R18 mod, 
+
+就跟国内讨论游戏电影会不会被和谐一样
+
+*****
+
+####  nagitoY  
+##### 2233#       发表于 2025-6-5 09:41
+
+看了下，现在ps5还没发购买nikke联动dlc，几号上线啊？
+

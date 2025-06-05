@@ -9674,3 +9674,337 @@ gqx高魔的世界观真方便啊
 
 永恒里面发的全地形适性原来不是乱发啊
 
+
+*****
+
+####  oi99o  
+##### 17073#       发表于 2025-6-3 23:57
+
+真是艾尔美斯啊
+
+*****
+
+####  ku2154513  
+##### 17074#       发表于 2025-6-3 23:57
+
+还有一个拉拉吗
+
+*****
+
+####  七七見奈波  
+##### 17075#       发表于 2025-6-3 23:58
+
+玫瑰还真是艾尔梅斯…………
+
+*****
+
+####  Wondering  
+##### 17076#       发表于 2025-6-3 23:58
+
+拍的什么玩意？拉拉是这种人吗？
+
+*****
+
+####  Ashice  
+##### 17077#       发表于 2025-6-3 23:58
+
+gto里夏亚不是在贾布罗打灰到时候遇到拉拉的嘛？
+
+正史的话两人是什么时候遇到的啊？
+
+*****
+
+####  Aunn  
+##### 17078#       发表于 2025-6-3 23:59
+
+这展开必然有第二季吧
+
+*****
+
+####  RPG-7  
+##### 17079#       发表于 2025-6-3 23:59
+
+拉拉被阿姆罗一光剑捅这来了？
+
+*****
+
+####  燃烧的石头  
+##### 17080#       发表于 2025-6-3 23:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67881283&amp;ptid=2209276" target="_blank">Ashice 发表于 2025-6-3 23:58</a>
+gto里夏亚不是在贾布罗打灰到时候遇到拉拉的嘛？
+
+正史的话两人是什么时候遇到的啊？ ...</blockquote>
+0079里是卡尔玛死后夏亚被下放，然后遇见的拉拉，gto不能当真的话
+
+—— 来自 realme RMX3370, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  伊露伊道格拉斯  
+##### 17081#       发表于 2025-6-3 23:59
+
+我服了，绿叔叔又双叒叕算到了，你无敌了
+
+*****
+
+####  oi99o  
+##### 17082#       发表于 2025-6-4 00:00
+
+<img src="https://img.stage1st.com/forum/202506/03/235942p1gcott77hatogcz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (39.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-3 23:59 上传
+
+羊宫王朝了
+
+*****
+
+####  猪突猛进R  
+##### 17083#       发表于 2025-6-4 00:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67881283&amp;ptid=2209276" target="_blank">Ashice 发表于 2025-6-3 23:58</a>
+
+gto里夏亚不是在贾布罗打灰到时候遇到拉拉的嘛？
+
+正史的话两人是什么时候遇到的啊？ ...</blockquote>
+夏亚算计完卡少被免官后的一段时间里。
+
+*****
+
+####  ParadiseMartyr  
+##### 17084#       发表于 2025-6-5 09:42
+
+tmd外野怎么这么坏啊，高达都没法第一时间讨论
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Piano-Forest  
+##### 17085#         楼主| 发表于 2025-6-5 09:43
+
+<img src="https://p.sda1.dev/24/8e88bf191c3ad27d1fc274e421557509/20250604_212828.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/b73c7c260c282873ca27accbfa6f77d6/20250604_212838.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/49db60e85092657ab197687371ce20cf/20250604_212831.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/a7e15c1308d5bb4f025517ab7d10166e/20250604_212834.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/2747d480742e31386f2bf73363659b4f/20250604_212841.jpg" referrerpolicy="no-referrer">
+
+·池田由美 绘
+
+·小堀史絵 绘
+<img src="https://p.sda1.dev/24/f7c70962dcaabb675c4d80ecca299a6a/20250602_191429.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/996d9c960d61638ffa3a247db372d5dc/20250604_190417.jpg" referrerpolicy="no-referrer">
+
+6月20日(金)より、劇場先行版『機動戦士Gundam GQuuuuuuX -Beginning-』の再上映が決定いたしました！
+
+さらに、入場者プレゼント第9弾として《DESIGN WORKS 3》を配布！
+
+本作のクリエイターによるTVシリーズ『機動戦士Gundam GQuuuuuuX』の設定原案資料を収めた豪華冊子となっています！
+<img src="https://p.sda1.dev/24/6e58ffc4fe97fd9ab70747245d89aada/20250604_111915.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/dd208c6211fcc26d030383b15e56a8ca/20250604_111916.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/54e608a8bbfbb73d521368e489537dee/20250604_112923.jpg" referrerpolicy="no-referrer">
+
+NOMELON NOLEMONが担当する「機動戦士Gundam GQuuuuuuX」の挿入歌を収録したCD『HALO - EP』を7/2(水)に発売！
+
+アニメ本編より、主人公"マチュ”とAIロボット"ハロ”の印象的なカットを線画風に落とし込んだ特別仕様になっています
+<img src="https://p.sda1.dev/24/d0aa88223a184a4102816098618b79a3/20250604_222320.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  kenqqex  
+##### 17086#       发表于 2025-6-5 09:44
+
+我要把我昨晚00:00没发完的消息重新发一次:
+
+杨工菲娜!!!!!!!!!!!!!!!!!!!!!!<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FuckSCUT  
+##### 17087#       发表于 2025-6-5 09:44
+
+基连会是福山润配吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 17088#         楼主| 发表于 2025-6-5 09:44
+
+[https://m.weibo.cn/detail/5173606478778984](https://m.weibo.cn/detail/5173606478778984)
+
+GQ第9话中最后登场的两栖型机动战士，是我请求鶴巻监督加入的。因为觉得如果画面中能有些水下作业的痕迹会更好，而且它只是漂浮在波间，肩膀以下的设计其实可以省略，这样也能减轻制作现场的负担。希望它将来还能有更多表现机会。
+
+GQ第9话。一开始的构想是在2022年11月的剧情提案阶段，登场的并不是现在这位“那位女性”，而是初代高达中的其他角色。到了2023年7月的第一稿剧本时，故事彻底发生了变化，那位女性才登场。
+
+这集的剧本是以榎户先生的稿子为主轴，我这边则加入了例如“索顿舰内的新剧情”等内容，写了一个不同版本的剧本。最终由鹤卷监督把这两个版本合并整合成现在的形式。
+
+顺带一提，2022年11月的剧情提案中所登场的初代高达角色，并不是“岛”的人。
+
+GQ第9话。在剧本设定中，即便战争已经结束，在地球上的地缘政治（经济、军事、资源）关键区域，吉翁依然设立了若干飞地，并以护卫为由，半强制地建立了吉翁军的驻军基地（还包括工厂）。（弊社社长谈）
+
+[https://weibo.com/6303938704/5173793691798291](https://weibo.com/6303938704/5173793691798291)
+
+负责了《密会》角川Sneaker文库版的插图的大枪苇人
+
+大枪老师讲今年底他将举办30周年纪念画展，其实他挺想把《密会》这些图作为展品展出的，但时过境迁这隔太久了（《密会》角川Sneaker文库版出版于1/4个世纪前——2000年），说真的他现在都不知道该联系哪里去申请许可。（过往大枪老师个人画展应该是只有在2011年办的那次展出过《密会》画作）
+
+【机动战士高达0079 密会 第一章：炽热依旧【个人重译版】】 
+[https://b23.tv/zK2KSc3](https://b23.tv/zK2KSc3)
+
+译者Xeku的话：
+
+GQuuuuuuX第9集拉拉也终于是登场了，考虑到片中出现了诸如“卡巴斯庄园”这样的台词，且诸多场景、闪回无不在呼应《密会》小说的文本，也坐实了GQuuuuuuX本篇确实想要引入相关设定的意愿。考虑到《密会》原来的中译本过于古早，难免存在部分不通顺、漏译和用词不统一的问题，为此，我对《密会》基于角川的日文原版进行了重新翻译，力求准确的同时符合现代的阅读习惯。
+
+《密会》简介：
+
+本篇因展现了拉拉神秘的过去而备受粉丝的关注。该作品的另一个显著特点是，它在开篇和故事中都触及了新人类理论。
+
+富野由悠季在本书的后记中写道：
+
+将来，这部小说可能会被说成TV版，电影版《机动战士高达》的原作，但这是错误的。
+
+本书是在TV版过后20年的1997年，为了在角川书店的《mini文库》上出版而创作的作品。后因会再收录进《Sneaker文库》而进行了增补和修订，是为了使其更具小说特质的改编。
+
+当角川书店在推出mini文库时，向我提出是否能创作一部以《高达》为主题的外传小说时，我意识到没有一部基于TV版故事的文字或漫画作品（注：因为原本的Sonorama版《机动战士高达》小说，也就是阿姆罗挂掉那版其实和TV有很大区别）。那是1996年的事情。
+
+因此，我考虑是否能创作出TV版和电影版的初代《高达》小说，挑战通过描写阿姆罗与拉拉的密会，创作出一部可称为初代《高达》的浓缩版小说。便是这部《密会》。
+
+因此，这不是一部外传，而是一部结构上更接近原作的作品，也因此我怀着它未来可能会被视为原作的想法完成。
+
+Xeku注：也就是说，虽然以往《密会》经常被称为“79小说外传”之类的东西，但是实际上是独立的作品，和光头写的《机动战士高达》小说三部曲（Sonorama版独立故事线）并不是承接之类的关系，《密会》是富野本人所说的“更接近原作的作品”，如果这一点作为“那边的世界”的切入口引入到GQuuuuuuX中显然就更合适了，那么闲话少叙，下面就是正文。
+
+<img src="https://p.sda1.dev/24/85ad9a6585895aa188ceb08578f32c62/20250604_212949.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/a4412ca69b1e748dbce89b3492606bd2/20250604_213107.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/6546c81c85a25975dcc625e367617271/20250604_213108.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/4a2fe3cb8452c69a2ef59f41e2c704f0/20250604_213110.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/24/601e4998d4aad9c7311d0563668f21d5/20250604_213143.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/1f30281e384ea10c6748f67f227b96e3/20250604_213146.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/2b28cda91177f5c50e5c399a4cbd7b80/20250604_213148.jpg" referrerpolicy="no-referrer">
+
+麦谷興一
+[https://x.com/chocolateshop_i/status/1929942982075294046](https://x.com/chocolateshop_i/status/1929942982075294046)
+
+むか〜し版権絵で彼女と士官さんの出会いを描きました。22年前（！）のお仕事です。
+
+「MS ERA」や「密会」でのシチュに合わせて描きました。
+
+その子が居るので娼館に行った。ではなく、娼館に遊びに行ったらその子が居た。
+
+ORIGINだとカジノで出会った事に変更されてた！
+<img src="https://p.sda1.dev/24/883adc8d0bbcbf701d60f31f40f41529/20250604_010614.jpg" referrerpolicy="no-referrer">
+
+最近描いたと思ったララァ、6年前だった件。
+
+と言うことはマツコがサンライズに突入したのも6年前か。
+
+と言うことはことぶきつかささんが結婚したのも6年前か。
+<img src="https://p.sda1.dev/24/0557da62f81af44e02dbe47d0e59a5a8/20250604_213040.jpg" referrerpolicy="no-referrer">
+
+基连·扎比背后的画
+
+法国画家古斯塔夫·莫罗于1876年创作的水彩画《施洗约翰的头在显灵 / The Apparition》
+<img src="https://p.sda1.dev/24/5d7ee7112630309b55ebe39a3d74a2fd/20250604_212953.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/ee35ab85e4f07713a07a6c9e58962710/The_Apparition,_Gustave_Moreau_1876.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 17089#         楼主| 发表于 2025-6-5 09:45
+
+[https://x.com/_I211/status/1929932338839879834](https://x.com/_I211/status/1929932338839879834)
+
+「本物の海…泳ぎたかったな…」
+<img src="https://p.sda1.dev/24/79b2e24a4b5921c097ae7e313211167e/20250604_003652.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/YY_shibata/status/1929930888080765234](https://x.com/YY_shibata/status/1929930888080765234)
+
+第9話ご視聴いただきありがとうございます！
+
+動画で参加しております！
+
+配信等でもお楽しみください！
+<img src="https://p.sda1.dev/24/494a7d693e21107dcc0510d7c90444bd/20250604_212634.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/1fbe4cdb1951f53139ec4fc6f951eb77/20250604_212635.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/kouda_nyo/status/1929931892952052183](https://x.com/kouda_nyo/status/1929931892952052183)
+
+メイド、、ララァ、、
+<img src="https://p.sda1.dev/24/bbb193c5f07ebeefa3b725009a703785/20250604_212645.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/nkn_ruka/status/1929930942308856237](https://x.com/nkn_ruka/status/1929930942308856237)
+
+第9話、ほんの少しですが動画で参加しておりました
+
+本当にありがとうございました！
+<img src="https://p.sda1.dev/24/ebc375297c62a959cf0f5b74b12f9b23/20250604_212640.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/_take_oekaki/status/1929902791818166393](https://x.com/_take_oekaki/status/1929902791818166393)
+
+♨
+<img src="https://p.sda1.dev/24/86386a746d178213c1b694c16e6ea517/20250604_212607.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 17090#         楼主| 发表于 2025-6-5 09:45
+
+[https://m.weibo.cn/detail/5173769657910089](https://m.weibo.cn/detail/5173769657910089)
+<img src="https://p.sda1.dev/24/d5dfd6a3537f2c7e6ec0d3150bb4b1bd/20250604_223157.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/ZBKNsuki/status/1929931537983910157](https://x.com/ZBKNsuki/status/1929931537983910157)
+<img src="https://p.sda1.dev/24/20b411cdfcd4d2a55efb45b0500d837c/20250604_224336.jpg" referrerpolicy="no-referrer">
+
+羽海野千花
+[https://x.com/CHICAUMINO/status/1929970378006507619](https://x.com/CHICAUMINO/status/1929970378006507619)
+
+わたしがはじめて好きになった
+
+アニメの中の美しい女の子
+<img src="https://p.sda1.dev/24/2404346a780eb4c38fab61194f52ead1/20250604_224420.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/gingatrain814/status/1929989723491348836](https://x.com/gingatrain814/status/1929989723491348836)
+<img src="https://p.sda1.dev/24/5b37ef5e416d706d75b1e5561d8a382a/20250604_223126.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/teruya13/status/1930037087375634519](https://x.com/teruya13/status/1930037087375634519)
+<img src="https://p.sda1.dev/24/4d1a86b4b31436658da0b8f279fa3656/20250604_223143.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/syatey_12/status/1930183584259985682](https://x.com/syatey_12/status/1930183584259985682)
+
+コモリ少尉はｲｲｿﾞ…のrkgk6
+<img src="https://p.sda1.dev/24/212e5da1ff4b39c424674697a63f0053/20250604_223224.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/mm_kc24/status/1930246431203569900](https://x.com/mm_kc24/status/1930246431203569900)
+<img src="https://p.sda1.dev/24/85b4d6e5fbc38eac149a008c09e0c004/20250604_223221.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/namaedousiyoka/status/1930061713266880613](https://x.com/namaedousiyoka/status/1930061713266880613)
+
+これがジークアクス9話でカバスの館（意味深）が俺たちに見せたマチュの”キラキラ”なんだよね……
+<img src="https://p.sda1.dev/24/ba82334ff0d496c54fbd63c5a33677f8/20250604_223211.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/hajime_kiya/status/1929947750181056782](https://x.com/hajime_kiya/status/1929947750181056782)
+<img src="https://p.sda1.dev/24/cd520633ceb9131c9efd262d9e6d1500/20250604_222852.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/Toriyaro_NICHI/status/1929951040872513540](https://x.com/Toriyaro_NICHI/status/1929951040872513540)
+<img src="https://p.sda1.dev/24/eeaeab86d3f9f112acc2e93d2e1fddd1/20250604_222925.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/Ndoromaru/status/1929948565742465404](https://x.com/Ndoromaru/status/1929948565742465404)
+
+９話のかもしれないマチュ
+<img src="https://p.sda1.dev/24/3165616ca21787d899bd63f2a06515d4/20250604_222911.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/fujisawa/status/1929949006358294849](https://x.com/fujisawa/status/1929949006358294849)
+
+らくがき　ジークアクスなんか可愛い娘おった
+<img src="https://p.sda1.dev/24/c053431772555c49fbf3afec0d566215/20250604_223058.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/sasakamakue/status/1930224607547846932](https://x.com/sasakamakue/status/1930224607547846932)
+
+炎属性武器を持ったカンチャナとヴァーニとマチュのファンアートです。
+<img src="https://p.sda1.dev/24/874cb9c3a0523ee2d0bb00924f2900db/20250604_223103.jpg" referrerpolicy="no-referrer">
+
