@@ -12244,3 +12244,31 @@ dg的驾驶员只是耗材而已。反过来想这个世界也没mf和他们的�
 
 还剩修斯的线没解释了吧，我看到有个很扯的说法是修斯是贝子里面阿姆罗的孩子<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  朋友费小号  
+##### 17253#       发表于 2025-6-5 14:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">要是他们真敢写修斯是贝子，那我认栽了，直接签投降书
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 17254#       发表于 2025-6-5 14:05
+
+阿姆罗你居然生了个不知所谓的东西<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rockroxas  
+##### 17255#       发表于 2025-6-5 14:05
+
+修斯是谁已经没所谓了，无非是给他做出点单手当手电筒之类的奇迹背书而已
+
+就跟小番茄想干嘛已经没所谓了，最大看点无非是她能破坏谁的计划到什么程度，少数人也许想看到她追/杀男人女人
+
+既然对于鸭打不赢骡的怨念那么深，最后估计会是鸭把骡捅了（怨念或者AI，本人的可能性比较低），玫瑰拉拉释怀什么的
+
+至于小番茄跳过这段时间会发生什么，当然是为了肮脏的大人去接受训练开Ω·瓦索隆
+
