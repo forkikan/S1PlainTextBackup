@@ -3539,3 +3539,33 @@ wdnmd为什么强自不是专用机
 
 —— 来自 LENOVO TB321FU, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 1800#       发表于 2025-6-6 02:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67873479&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-6-1 17:47</a>
+
+能搭拉克丝的一击必杀词条
+
+满血条件下总共加攻30%的被动
+
+5移动，有5射程的武器</blockquote>
+4格的粒子炮拉满也有5K+
+
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 1801#       发表于 2025-6-6 02:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67882111&amp;ptid=2071758" target="_blank">rockroxas 发表于 2025-6-5 10:25</a>
+
+各种无ur无sp开发机ex作业都出来了
+
+就是看了下ex2作业，要一堆一堆会狙击的盾驾驶
+
+没想到夏亚这机这么强， ...</blockquote>
+一将功成万骨枯
+
