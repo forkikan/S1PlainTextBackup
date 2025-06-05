@@ -11837,3 +11837,56 @@ gqux的空调有点厉害。
 单机突入大气层不算啥，元祖就是这么做的。
 但是番茄坐驾驶舱里不穿驾驶服也就是有点热的程度。
 
+
+*****
+
+####  YU_JI  
+##### 17217#       发表于 2025-6-5 12:12
+
+ 本帖最后由 YU_JI 于 2025-6-5 12:13 编辑 
+<blockquote>Toby_dak 发表于 2025-6-5 12:06
+S1维护时候无聊看了看B站的弹幕，只能说这中文翻译能看下去真神人了。
+
+</blockquote>
+
+我都是把这个当机翻的，这个出的很快，基本就是前脚放送结束，后脚视频就出来了，要么是机翻要么就是凭第一印象直接翻的
+
+*****
+
+####  大十字紅朔  
+##### 17218#       发表于 2025-6-5 12:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67883374&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-6-5 12:06</a>
+
+S1维护时候无聊看了看B站的弹幕，只能说这中文翻译能看下去真神人了。</blockquote>
+因为是机翻的
+
+很多省略主语的台词都错了
+
+*****
+
+####  最强惠酱  
+##### 17219#       发表于 2025-6-5 12:15
+
+说来这个世界的螺没上过白色基地不会如此了解地形吧，发短信难道是主宇宙角色<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  osore  
+##### 17220#       发表于 2025-6-5 12:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你都上b站看盗版了还在乎翻译吗
+
+*****
+
+####  YU_JI  
+##### 17221#       发表于 2025-6-5 12:18
+
+<blockquote>最强惠酱 发表于 2025-6-5 12:15
+说来这个世界的螺没上过白色基地不会如此了解地形吧，发短信难道是主宇宙角色
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+NT空间感知也能解释，只是开了大地图而已，0079的骡也未必有多熟悉阿巴瓦空
+
