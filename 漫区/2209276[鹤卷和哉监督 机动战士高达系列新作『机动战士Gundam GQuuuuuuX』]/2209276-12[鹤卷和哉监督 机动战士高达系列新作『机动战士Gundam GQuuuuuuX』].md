@@ -13246,3 +13246,14 @@ MAV也定死了是修斯的话，也就是说即使包饺子，估计也看不�
 
 说起来，得亏拉拉和麻球都是NT，不然一个日本人一个印度人，怎么交流？用英语吗？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mengsu  
+##### 17338#       发表于 2025-6-5 18:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67886456&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-5 17:49</a>
+
+其实玛秋也没祛魅，本来去地球的想法就是和很修司在一起捆绑的，之所以会说 真想下去游泳啊 的原因是修司不 ...</blockquote>
+小番茄开头就讲了向往真正的重力真正的大海嘛，修斯只是碰巧和她目标相同让她更执着了而已。
+
