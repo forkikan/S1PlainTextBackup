@@ -397,3 +397,11 @@ it's real xd
 可別說，之前的預告片裡大的機甲的動作風格看著真的像機械人，至少不像現在那般是個多話的人類
 所以現在露出人臉、看到是/像個普通的人類我反而吃驚
 
+
+*****
+
+####  wlhlz  
+##### 48#       发表于 2025-6-5 14:27
+
+主角也是机器人啊，不过这两真还需要趋近人类吗，你要不说这设定PV里根本看不出不是人类好吧<img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+

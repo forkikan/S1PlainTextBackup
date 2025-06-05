@@ -12306,3 +12306,29 @@ dg的驾驶员只是耗材而已。反过来想这个世界也没mf和他们的�
 
 考虑到夏利亚都不知道修司是谁，还天天嚷嚷高达在说。先怀疑是倒A高达派来这个世界修正历史线带拉拉回正作时间线的。
 
+
+*****
+
+####  大十字紅朔  
+##### 17259#       发表于 2025-6-5 14:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67884301&amp;ptid=2209276" target="_blank">洛克萨斯 发表于 2025-6-5 13:48</a>
+
+还剩修斯的线没解释了吧，我看到有个很扯的说法是修斯是贝子里面阿姆罗的孩子 ...</blockquote>
+头发颜色不对啊
+
+染色的吗……
+
+
+*****
+
+####  rockroxas  
+##### 17260#       发表于 2025-6-5 14:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67884653&amp;ptid=2209276" target="_blank">大十字紅朔 发表于 2025-6-5 14:30</a>
+
+头发颜色不对啊
+
+染色的吗……</blockquote>
+好像有设定说修司的头发确实是染的，染之前是棕色来着（就是发这张反色图那个推说的？
+
