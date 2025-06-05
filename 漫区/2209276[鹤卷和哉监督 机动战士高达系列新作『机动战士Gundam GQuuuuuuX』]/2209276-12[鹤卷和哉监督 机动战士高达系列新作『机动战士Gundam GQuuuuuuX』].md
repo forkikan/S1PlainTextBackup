@@ -13616,3 +13616,93 @@ X 上的 ナポリたん：“開発中止となり結果的に建造されな�
 <img src="https://p.sda1.dev/24/a124ef66ef09158dcb6f3d66a6998d3e/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/24/d7e9e44282fd967614ea23d51c29391a/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 17371#       发表于 2025-6-6 00:30
+
+ 本帖最后由 岸浪白野 于 2025-6-6 00:31 编辑 
+
+[X 上的 桐ヶ谷ユウジ✈ にじさんじ・Vtuber・ガンダム定期投稿中：“これは繰り返しの中で謎の畜生と出会い魔法少女になってしまったパターンのララァ・スンです #GQuuuuuuX #ジークアクス [url]https://t.co/ilPIHk99rb](https://x.com/ykirigaya/status/1930180223313846702)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/06/003132ep7zbhmlu979lgkn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.23 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-6 00:31 上传
+
+[X 上的 タケウチ　リョースケ：“🌹](https://x.com/ryosuketarou/status/1930615662097084877)[https://t.co/9TGxpX9lTj](https://t.co/9TGxpX9lTj)” / X
+
+<img src="https://img.stage1st.com/forum/202506/06/002913v85cfrnv8p4kkk58.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.74 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-6 00:29 上传
+
+[X 上的 おしず/伏木：“シャララの波動を感じたので昔の絵を載せて良いですか？](https://x.com/oh_syz/status/1930589690844832224)[https://t.co/95DENZHjlt](https://t.co/95DENZHjlt)” / X
+
+<img src="https://img.stage1st.com/forum/202506/06/000644dftwomvltdy5wswd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.54 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-6 00:06 上传
+
+[X 上的 日楽：“ｱﾑｼｬﾗﾗ](https://x.com/kf_hiraku/status/1930198087873769719)[https://t.co/5S7GhFpMZp](https://t.co/5S7GhFpMZp)” / X
+
+<img src="https://img.stage1st.com/forum/202506/06/000532ik3pt3yczbwmy8k8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (426.43 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-6 00:05 上传
+
+[X 上的 ドル：“自分が映画鑑賞絵として描いた絵、今すごく味がしてきました](https://x.com/doragnof_/status/1930542682012520629)[https://t.co/RbgrQFSozN](https://t.co/RbgrQFSozN)” / X
+
+<img src="https://img.stage1st.com/forum/202506/06/000512v6amzd088h1dt8dr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.14 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-6 00:05 上传
+
+[X 上的 シャパリントン：“｢通りすがりの仮面ララァイダーだ。覚えておけ。｣ #GQuuuuuuX #ジークアクス](https://x.com/syaparinton/status/1930590105078755667)[https://t.co/5eQltrp1Xc](https://t.co/5eQltrp1Xc)” / X
+
+<img src="https://img.stage1st.com/forum/202506/06/000427lc44veuiz71ejjhi.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (861.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-6 00:04 上传
+
+*****
+
+####  Steel.Haze  
+##### 17372#       发表于 2025-6-6 00:30
+
+我在想，谜底是否不只是79（或类79TV世界观的拉拉）的拉拉和其机体。还有其它炸弹，比如.....93夏亚也穿越了，实际上现在有2个夏亚，一个在高达脑子里面，一个正在隐秘行动？那个老UC7**格的太空小艇仅是背景装饰吗？
+
+以及我特意去重看看了TV79和剧场版79，拉拉那段，实际上她和艾尔美斯，在动画中的表现，都是迸发出光柱，然后在一个巨大的光斑后完全消失，没有残骸也没有殉爆火光，不过因为拉拉之死这部分是日本动画最早的意识流表演之一，大部分观众会认为这是意识流意向的一部分。鹤卷和痞子这些老登就利用了这个要素。（另，逆袭中夏亚的回忆部分会略微有点像爆球，但是那是夏亚的个人回忆，他的印象可能是觉得爆炸了，记忆被结论覆盖了）
+
+*****
+
+####  岸浪白野  
+##### 17373#       发表于 2025-6-6 00:31
+
+<img src="https://img.stage1st.com/forum/202506/06/002428eluhrzbgupgw7p95.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.55 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-6 00:24 上传
+

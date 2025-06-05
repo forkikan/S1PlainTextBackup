@@ -56,3 +56,16 @@
 单说狐狸的话，被动30 LB15 觉醒4，耳环戒指洗一 ...</blockquote>
 谢谢，巴尔刀没抽到，超级咸鱼也没极武，那就拿这把和85加洗耳环凑一下了
 
+
+*****
+
+####  Sylpheed  
+##### 18235#       发表于 2025-6-6 00:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67888448&amp;ptid=1158205" target="_blank">江戸前ルナ 发表于 2025-6-5 23:20</a>
+谢谢，巴尔刀没抽到，超级咸鱼也没极武，那就拿这把和85加洗耳环凑一下了 ...</blockquote>
+遗物也可以看看能不能捡到双ta的能有个至少10来点ta，戒指耳环就不用刷太多了。
+理想状态戒指耳环能洗出双10ta加上列剑和基础ta甚至都不需要连击u了，不过要戒指还早兼顾技伤有就有点太难洗了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
