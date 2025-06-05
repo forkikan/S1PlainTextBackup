@@ -6889,3 +6889,17 @@ Steam的手柄映射功能非常强大。你可以设置按下LB键后改变操�
 
 我说的写实逻辑指的现实中都是枪弹分开携行，hd2的辅助装弹也是枪弹分开的状态下才能进行辅助装填，但实际游戏中不可能枪弹分开携行
 
+
+*****
+
+####  风萧飒  
+##### 6562#       发表于 2025-6-5 12:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67882895&amp;ptid=2170852" target="_blank">nbwjh0630 发表于 2025-6-5 11:21</a>
+东线铝热只能处理牛，光靠铝热处理泰坦还是太难。
+
+还是一个问题，不带补包的光靠3个铝热库存很难处理黄烟 ...</blockquote>
+东线很多人还是爱单走，抱团一般只能开黑了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
