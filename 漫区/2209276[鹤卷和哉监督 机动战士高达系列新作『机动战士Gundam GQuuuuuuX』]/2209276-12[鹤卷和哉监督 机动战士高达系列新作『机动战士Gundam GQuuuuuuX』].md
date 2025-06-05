@@ -10887,3 +10887,182 @@ OP里面出现的各种绿色特效可以理解为虚拟世界里常见的电子
 
 阿姆罗是红高机魂吧，可能是另一边白色高达里的阿姆罗魂穿过来。只有鸭和阿姆罗有找玫瑰的动机，现在鸭健在就只剩阿姆罗了。
 
+
+*****
+
+####  大十字紅朔  
+##### 17158#       发表于 2025-6-5 10:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67882323&amp;ptid=2209276" target="_blank">仟音一心 发表于 2025-6-5 10:37</a></blockquote>
+取り憑かれる是“鬼上身”的意思
+
+事实上阿姆罗和夏亚一直被拉拉的幽灵缠住了
+
+这翻译不对
+
+*****
+
+####  朋友费小号  
+##### 17159#       发表于 2025-6-5 10:59
+
+79if相关内容这些年看了挺多了，看gq就是奔着年轻人看的，结果年轻人到现在都还在随波逐流，这下真水母了
+
+但是如果骡子最后能出来大杀四方，我可以笑哈哈的看乐子<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 17160#       发表于 2025-6-5 11:01
+
+[X 上的 機動戦士Gundam GQuuuuuuX（ジークアクス）：“◤フォロワー数37万人◢ フォロワー数が【37万人】を突破しました！ 放送・配信をご視聴の皆さま、沢山の感想を寄せてくださっている皆さま、ありがとうございます！ 来週放送となる第10話「イオマグヌッソ封鎖」もぜひお楽しみにお待ちください！ #GQuuuuuuX #ジークアクス [url]https://t.co/EIhLbZug2A](https://x.com/G_GQuuuuuuX/status/1930459563779649786)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/05/110059dakpvqfap10q33pp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.97 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 11:00 上传
+
+
+*****
+
+####  YU_JI  
+##### 17161#       发表于 2025-6-5 11:04
+
+对番茄的后续期待已经降到最低了，现在各路牛鬼蛇神汇聚手电筒，阴谋全部上桌，西红柿能去当个莽子直接把桌给掀了，把事情全搅的一团糟，我都能继续夸夸鹤卷gg的主角塑造<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">（最好是包括你绿叔叔的，虽然我觉得不可能）
+
+*****
+
+####  格林达姆  
+##### 17162#       发表于 2025-6-5 11:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">捞出的可以是正史里的拉拉，但gquux本身反而没啥可能进正史吧
+
+剧情目前是简练工整，但感觉本作未必真就想讲什么故事，说不定只是想搞个多元宇宙if玩玩而已<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+都烘托到这了这阿姆罗要是最后都不露个脸真说不过去啊<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">虽然这样更扯了，但我还真想看抱着篮球的牛高达出场
+
+*****
+
+####  Piano-Forest  
+##### 17163#         楼主| 发表于 2025-6-5 11:05
+
+◤フォロワー数37万人◢
+
+フォロワー数が【37万人】を突破しました！
+
+放送・配信をご視聴の皆さま、沢山の感想を寄せてくださっている皆さま、ありがとうございます！
+
+来週放送となる第10話「イオマグヌッソ封鎖」もぜひお楽しみにお待ちください！
+<img src="https://p.sda1.dev/24/fe3175d76323d8aff8c7b79f153ea074/20250605_110500.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 17164#       发表于 2025-6-5 11:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67882639&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-5 11:01</a>
+
+X 上的 機動戦士Gundam GQuuuuuuX（ジークアクス）：“◤フォロワー数37万人◢ フォロワー数が【37万人】を ...</blockquote>
+
+和22年企划书驾驶服的对比
+
+<img src="https://img.stage1st.com/forum/202506/05/110546fsddbbtss52o5yxo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.97 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 11:05 上传
+
+<img src="https://img.stage1st.com/forum/202506/05/110523fjk8z58jh5mhdqah.png" referrerpolicy="no-referrer">
+
+<strong>WI}`093N0F79)57)PI1FM.png</strong> (120.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 11:05 上传
+
+*****
+
+####  洛克萨斯  
+##### 17165#       发表于 2025-6-5 11:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202506/05/110503uc38pcca53iii0c8.png" referrerpolicy="no-referrer">
+
+<strong>fb1ac395528182f4ece666ecbe36fbf.png</strong> (92.19 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 11:05 上传
+
+骡叔叔要是出来一枪秒了绿叔叔也是很有戏剧感
+
+d0882b81d305d3839e7bfaf1fec7f48.jpg
+(48.95 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 11:05 上传
+
+<img src="https://img.stage1st.com/forum/202506/05/110535sttjb6bt8xxtw8t5.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  YU_JI  
+##### 17166#       发表于 2025-6-5 11:06
+
+这集倒是有去写番茄对于地球的态度反差，但是脚本给我的感觉像是随手带过，完全没有想在这个问题上深入思考的感觉
+
+*****
+
+####  eilot  
+##### 17167#       发表于 2025-6-5 11:06
+
+紅色男人註定在其他世界上遇上白色男人就會死嗎?
+
+除非白色男人被其他人搶先殺了就可以沒之後(79小說)
+
+這是拉拉版的命運石之門嗎?
+
+*****
+
+####  大十字紅朔  
+##### 17168#       发表于 2025-6-5 11:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67882338&amp;ptid=2209276" target="_blank">ryanghj 发表于 2025-6-5 10:38</a>
+
+虚拟世界说其实挺有力的
+
+OP里面出现的各种绿色特效可以理解为虚拟世界里常见的电子干扰特效 ...</blockquote>
+不要遇事不决虚拟世界……虚拟世界反正都是虚拟的，整个故事都不需要逻辑了
+
+剧中剧设定都好点，其实大家是拍戏，绿色特效是没扣完的绿幕<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hsyg  
+##### 17169#       发表于 2025-6-5 11:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67881992&amp;ptid=2209276" target="_blank">cckuku 发表于 2025-6-5 10:20</a>
+
+一想到拉拉多当了六年的雏鸡就有点让人绷不住</blockquote>
+还雏毛都20了，而且都被其他**知道了，属于大家都知道夏亚的妈妈很棒了。
+
+赢了人生输了妈，还输了所有其他世界线，暗夜割割才是真的大黑
+
+*****
+
+####  洛克萨斯  
+##### 17170#       发表于 2025-6-5 11:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67882712&amp;ptid=2209276" target="_blank">eilot 发表于 2025-6-5 11:06</a>
+
+紅色男人註定在其他世界上遇上白色男人就會死嗎?
+
+除非白色男人被其他人搶先殺了就可以沒之後(79小說)</blockquote>
+g3不是白色，所以没问题
+

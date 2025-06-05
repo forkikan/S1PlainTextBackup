@@ -5131,3 +5131,15 @@ https://www.bilibili.com/video/BV1md7Gz5E4s
 
 坟头蹦迪！婚礼上香！大变死人<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shimotsuki14  
+##### 447#       发表于 2025-6-5 10:57
+
+充满了佐贺味儿
+
+反正当事人（？）都不是地球人……
+
+—— 来自 OPPO PKJ110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
