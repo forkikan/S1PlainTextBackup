@@ -5313,3 +5313,14 @@ ep1-3还是看不下去，ep4观感回升，ep56还行，但ep78从制作理性�
 
 结尾民谣我看得快落泪，演好简单的家庭小故事真的很容易打动观众
 
+
+*****
+
+####  aptx8285144  
+##### 466#       发表于 2025-6-5 20:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67885470&amp;ptid=2196984" target="_blank">xxxcc 发表于 2025-6-5 16:00</a>
+
+八千代一秒就修理好了，上一集根本毫无意义啊！</blockquote>
+有意义，八千代大战狸猫这么精彩的打戏，这季度隔壁都很久没做到了（
+

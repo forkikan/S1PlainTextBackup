@@ -15,3 +15,11 @@ via：Coxxs
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ChengChung  
+##### 5645#       发表于 2025-6-5 20:20
+
+有人试过sw2支持ipv6之后是否对对战有帮助吗
+
