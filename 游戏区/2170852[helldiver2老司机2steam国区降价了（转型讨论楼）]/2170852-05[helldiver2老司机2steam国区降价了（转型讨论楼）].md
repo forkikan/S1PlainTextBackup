@@ -7196,3 +7196,14 @@ Steam的手柄映射功能非常强大。你可以设置按下LB键后改变操�
 东线带补包的话确实还是毒雷+最后通牒好使，不过最后通牒现在是不是不能拆泰坦巢了 ...</blockquote>
 能的，被削之后影响的基本只有西线干扰塔，索伦眼本来用红战备也随便拆
 
+
+*****
+
+####  qwased  
+##### 6587#       发表于 2025-6-6 03:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67889057&amp;ptid=2170852" target="_blank">xinfengj 发表于 2025-6-6 03:05</a>
+
+能的，被削之后影响的基本只有西线干扰塔，索伦眼本来用红战备也随便拆 ...</blockquote>
+那只要稍微练一下按右键切最后通牒的同时按左键这个射击法就够用了，现在溅射范围很大不需要打的很准就能秒牛秒泰坦<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
