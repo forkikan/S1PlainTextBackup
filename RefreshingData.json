@@ -7866,10 +7866,10 @@
     "update": false
   },
   "2171972": {
-    "totalreply": 1187,
+    "totalreply": 1188,
     "title": "[【V17】虚拟YouTuber(vtuber)综合讨论楼]",
     "newtitle": "[【V17】虚拟YouTuber(vtuber)综合讨论楼]",
-    "lastedit": 1749123128,
+    "lastedit": 1749130931,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -10575,10 +10575,10 @@
     "update": false
   },
   "2210399": {
-    "totalreply": 145333,
+    "totalreply": 145350,
     "title": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼10.0]",
-    "lastedit": 1749130567,
+    "lastedit": 1749130934,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11466,12 +11466,12 @@
     "update": false
   },
   "2251065": {
-    "totalreply": 135,
+    "totalreply": 136,
     "title": "[后宫文／修罗场文讨论楼避难所]",
     "newtitle": "[后宫文／修罗场文讨论楼避难所 250508更新瘤剑仙]",
-    "lastedit": 1748858536,
+    "lastedit": 1749130934,
     "category": "漫区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2249132": {
@@ -11511,10 +11511,10 @@
     "update": false
   },
   "2251312": {
-    "totalreply": 1268,
+    "totalreply": 1270,
     "title": "[所以说现在买switch2的正确姿势是什么]",
     "newtitle": "[所以说现在买switch2的正确姿势是什么]",
-    "lastedit": 1749130690,
+    "lastedit": 1749130934,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13131,10 +13131,10 @@
     "update": false
   },
   "2252859": {
-    "totalreply": 83,
+    "totalreply": 85,
     "title": "[《最终幻想战略版 伊瓦利斯战记》2025.9.30]",
     "newtitle": "[《最终幻想战略版 伊瓦利斯战记》2025.9.30]",
-    "lastedit": 1749130460,
+    "lastedit": 1749130932,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13226,6 +13226,114 @@
     "newtitle": "[第27届上海国际电影节坛友都抢到票了吗]",
     "lastedit": 1749125173,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2252895": {
+    "totalreply": 68,
+    "title": "[传闻苏超拒绝海参协会介入，硬刚了？！]",
+    "newtitle": "[传闻苏超拒绝海参协会介入，硬刚了？！]",
+    "lastedit": 1749131108,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2252948": {
+    "totalreply": 67,
+    "title": "[蔚来还有未来吗]",
+    "newtitle": "[蔚来还有未来吗]",
+    "lastedit": 1749131105,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2252835": {
+    "totalreply": 94,
+    "title": "[比亚迪六月大降价]",
+    "newtitle": "[比亚迪六月大降价]",
+    "lastedit": 1749131108,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2252902": {
+    "totalreply": 42,
+    "title": "[归墟第二个起名贴XD]",
+    "newtitle": "[归墟第二个起名贴XD]",
+    "lastedit": 1749131105,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2252925": {
+    "totalreply": 49,
+    "title": "[如何看待外野关闭期间隋大厨与i人团队闹翻]",
+    "newtitle": "[如何看待外野关闭期间隋大厨与i人团队闹翻]",
+    "lastedit": 1749131105,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2252878": {
+    "totalreply": 62,
+    "title": "[五个亿，也可以了。论坛不值钱啊]",
+    "newtitle": "[五个亿，也可以了。论坛不值钱啊]",
+    "lastedit": 1749131105,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2252856": {
+    "totalreply": 64,
+    "title": "[2025年6月网文综合推荐交流楼]",
+    "newtitle": "[2025年6月网文综合推荐交流楼]",
+    "lastedit": 1749131105,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2252819": {
+    "totalreply": 106,
+    "title": "[归墟测试中]",
+    "newtitle": "[归墟测试中]",
+    "lastedit": 1749131108,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2252926": {
+    "totalreply": 82,
+    "title": "[【俄乌专楼】6月战火依旧 ​​无人机群上大分​]",
+    "newtitle": "[【俄乌专楼】6月战火依旧 ​​无人机群上大分​]",
+    "lastedit": 1749131108,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2252932": {
+    "totalreply": 71,
+    "title": "[外野结束了，来说说你难以忘记的外野帖子／用户]",
+    "newtitle": "[外野结束了，来说说你难以忘记的外野帖子／用户]",
+    "lastedit": 1749131105,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2252852": {
+    "totalreply": 109,
+    "title": "[没有外野的日子，大家都拿什么打发时间？]",
+    "newtitle": "[没有外野的日子，大家都拿什么打发时间？]",
+    "lastedit": 1749131108,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2252904": {
+    "totalreply": 62,
+    "title": "[江苏省城市足球联赛—苏超联赛专楼]",
+    "newtitle": "[江苏省城市足球联赛—苏超联赛专楼]",
+    "lastedit": 1749131105,
+    "category": "外野",
     "active": true,
     "update": false
   }
