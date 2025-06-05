@@ -13521,3 +13521,33 @@ UC的新人类什么的清一色这架势，不都是看对眼了/脑电波对�
 
 MS的战斗根本不重要，加入游戏后的打戏就由该游戏的监督随意发挥了。
 
+
+*****
+
+####  newise  
+##### 17362#       发表于 2025-6-5 22:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67887979&amp;ptid=2209276" target="_blank">xwz 发表于 2025-6-5 21:52</a>
+
+通用英语啊，问题是这俩一个日本人一个印度人，现实中这俩地方的人互相用英语能听得懂对方说啥吗？尤其一 ...</blockquote>
+拉拉可是青楼的头牌专门伺候达官贵人多才多艺是必须的，总不能净给给恩客冰吧，谁是丈育不好说<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+番茄个体育生甚至被拉着跑得喘气
+
+番茄唯一优势是外形可能更符合某金发碧眼欧巴的癖好罢了，还有就是年龄更小<img src="https://static.stage1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 17363#       发表于 2025-6-5 22:20
+
+[X 上的 ナポリたん：“開発中止となり結果的に建造されなかったMS… #GQuuuuuuX #ジークアクス [url]https://t.co/H0fts7aLmT](https://x.com/tail_001/status/1930621535414636799)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/05/222045jly13f30a0zs1psb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (919.4 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 22:20 上传
+
