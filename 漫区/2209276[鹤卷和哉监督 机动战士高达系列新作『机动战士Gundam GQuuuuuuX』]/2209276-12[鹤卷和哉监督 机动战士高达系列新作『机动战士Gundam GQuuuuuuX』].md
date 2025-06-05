@@ -12181,3 +12181,21 @@ UC就算能解析这个技术也找不到合适的驾驶员吧……</blockquote
 —— 来自 HUAWEI BRA-AL00, Android 12, 鹅球 v3.5.99 ...</blockquote>
 难说，但是正史拉拉不是GQ拉拉梦见的那个在一年战争时期没救到夏亚的拉拉。
 
+
+*****
+
+####  ヒトニナル  
+##### 17247#       发表于 2025-6-5 13:26
+
+说起来下集预告玛秋被绿叔叔壁咚还脸红让我有点难绷，面食いかな😅
+
+*****
+
+####  大十字紅朔  
+##### 17248#       发表于 2025-6-5 13:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67883692&amp;ptid=2209276" target="_blank">syndrome2032 发表于 2025-6-5 12:37</a>
+
+dg的驾驶员只是耗材而已。反过来想这个世界也没mf和他们的驾驶员这么鬼畜的玩意打恶魔高达。所以强度低点 ...</blockquote>
+但这个不是DG啊
+

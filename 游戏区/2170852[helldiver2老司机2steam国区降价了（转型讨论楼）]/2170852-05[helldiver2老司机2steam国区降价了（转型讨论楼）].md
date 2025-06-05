@@ -6903,3 +6903,23 @@ Steam的手柄映射功能非常强大。你可以设置按下LB键后改变操�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  xinfengj  
+##### 6563#       发表于 2025-6-5 13:33
+
+加入最后通牒神教，雷换毒雷
+
+*****
+
+####  银月术士329  
+##### 6564#       发表于 2025-6-5 13:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67882895&amp;ptid=2170852" target="_blank">nbwjh0630 发表于 2025-6-5 11:21</a>
+
+东线铝热只能处理牛，光靠铝热处理泰坦还是太难。
+
+还是一个问题，不带补包的光靠3个铝热库存很难处理黄烟 ...</blockquote>
+泰坦也就2颗铝热
+
