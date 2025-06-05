@@ -10306,3 +10306,240 @@ GQX无视麻球的个人意愿，直接把麻球单人带走
 小羊！<img src="https://static.stage1st.com/image/smiley/carton2017/470.png" referrerpolicy="no-referrer">
 有一说一拉拉配的也没毛病啊
 
+
+*****
+
+####  发呆的龙虾  
+##### 17120#       发表于 2025-6-5 10:15
+
+穿越来的也不是主世界拉拉吧？
+
+—— 来自 HUAWEI BRA-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  真爱与热情  
+##### 17121#       发表于 2025-6-5 10:15
+
+这片子有出续集的可能性吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 17122#       发表于 2025-6-5 10:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67881843&amp;ptid=2209276" target="_blank">tony701 发表于 2025-6-5 10:11</a>
+
+这么一想地球联邦都这样了锦华大佐还能偷偷给搞出精神病高达，太牛逼了
+
+ ...</blockquote>
+联邦有孤忠！<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">虽然是个垃圾人，蚌埠住了
+
+*****
+
+####  岸浪白野  
+##### 17123#       发表于 2025-6-5 10:18
+
+[X 上的 BANDAI SPIRITS ホビー事業部：“【HOBBY NEW ITEM INFO.】 11月発売予定 本日以降、順次WEB予約受付開始 HG 1/144 ザク(GQ) ジオン公国軍の制式量産型モビルスーツ「ザク」をHGより商品化！ 詳細はこちら▼ [url]https://t.co/LPUDt53GU0](https://x.com/HobbySite/status/1930424448794144890) #ガンプラ #GQuuuuuuX #ジークアクス [https://t.co/mUcX3LuCJP](https://t.co/mUcX3LuCJP)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/05/101617kz57r1jaxfda17vf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.35 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 10:16 上传
+
+<img src="https://img.stage1st.com/forum/202506/05/101649pq7q00j6zy3qzq3n.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.41 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 10:16 上传
+
+<img src="https://img.stage1st.com/forum/202506/05/101622ebe0vhhsncpevc5s.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.14 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 10:16 上传
+
+<img src="https://img.stage1st.com/forum/202506/05/101626ngeottivmbvp6gec.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.09 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 10:16 上传
+
+<img src="https://img.stage1st.com/forum/202506/05/101631ps93j7tkr877s9aj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (551.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 10:16 上传
+
+[X 上的 BANDAI SPIRITS ホビー事業部：“【HOBBY NEW ITEM INFO.】 12月発売予定 本日以降、順次WEB予約受付開始 HG 1/144 シャア専用ザク(GQ) シャアのパーソナルカラーである赤色にペイントされたモビルスーツ「シャア専用ザク」をHGより商品化！ 詳細はこちら▼ [url]https://t.co/SEUkSrwHZd](https://x.com/HobbySite/status/1930425718288359456) #ガンプラ #GQuuuuuuX #ジークアクス [https://t.co/CtiDSQdLNp](https://t.co/CtiDSQdLNp)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/05/101710eaa2o2atfwhotgaz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.59 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 10:17 上传
+
+<img src="https://img.stage1st.com/forum/202506/05/101749zr3cwmpd3t43zddt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.67 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 10:17 上传
+
+<img src="https://img.stage1st.com/forum/202506/05/101714c55hwh4ttcyalgl2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.63 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 10:17 上传
+
+<img src="https://img.stage1st.com/forum/202506/05/101718wwl141t4jlw7gkc4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.46 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 10:17 上传
+
+<img src="https://img.stage1st.com/forum/202506/05/101723fbawavbz8838s8ad.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (565.11 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 10:17 上传
+
+[X 上的 BANDAI SPIRITS ホビー事業部：“【HOBBY NEW ITEM INFO.】 12月発売予定 本日以降、順次WEB予約受付開始 HG 1/144 白いガンダム 特徴的な頭部・胴体周りのカラーリング、赤いガンダムとは異なる側頭部のデザインを再現！ 新規造形のハイパー・バズーカが付属！ 詳細はこちら▼ [url]https://t.co/QuKRjKYHva](https://x.com/HobbySite/status/1930426981512032707) #ガンプラ #GQuuuuuuX [https://t.co/oJyneP5tWg](https://t.co/oJyneP5tWg)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/05/101807weq9rdan13gexhh0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.39 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 10:18 上传
+
+<img src="https://img.stage1st.com/forum/202506/05/101840l1vggu7nvmbg6kww.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.36 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 10:18 上传
+
+<img src="https://img.stage1st.com/forum/202506/05/101814f7chxmzf39r5mcgm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (978.72 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 10:18 上传
+
+<img src="https://img.stage1st.com/forum/202506/05/101818ws2i5s6u0sts75l5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (917.75 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 10:18 上传
+
+<img src="https://img.stage1st.com/forum/202506/05/101823lmrr027ehrake578.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.3 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 10:18 上传
+
+<img src="https://img.stage1st.com/forum/202506/05/101855bp5dfhohi6whewfx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (574.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 10:18 上传
+
+
+*****
+
+####  cckuku  
+##### 17124#       发表于 2025-6-5 10:20
+
+一想到拉拉多当了六年的雏鸡就有点让人绷不住<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sliurus  
+##### 17125#       发表于 2025-6-5 10:20
+
+这集看拉拉的描述才发现喵安走的是拉拉的路子，被年轻吉翁军官拉进吉翁开ms（ma）
+
+*****
+
+####  闭挂锁人  
+##### 17126#       发表于 2025-6-5 10:20
+
+我都怀疑你坛维护是为了防止高达遗老激情烤羊了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  helgarose87  
+##### 17127#       发表于 2025-6-5 10:21
+
+<blockquote>tony701 发表于 2025-6-5 10:11
+这么一想地球联邦都这样了锦华大佐还能偷偷给搞出精神病高达，太牛逼了
+
+ ...</blockquote>
+最倭幻想属于是了
+
+十年前还生气下 现在只当小丑了
+
+*****
+
+####  仟音一心  
+##### 17128#       发表于 2025-6-5 10:22
+
+902早有记载
+[https://b23.tv/v7xXg5x](https://b23.tv/v7xXg5x)
+<img src="https://p.sda1.dev/24/b52a2a0ee5cbf9ec496cfd0de3614a2e/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/7f04e2243cfeba9f52f1cf2ceb75aea5/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/469a9f13728c0a65400ea7c82dda9b69/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/20f566878dc936c1b3afac447ab037e5/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/7bf4f829d1cb84369a34a1c07d77825d/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/7e0b890c5306ccafd539c3a6dfdfd89d/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/77afe746b1f9826ea012bb183655cf9f/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/6a0585fc2ebc030cf26cb55ddafb96e4/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/ed9ec8fd1405e808393317a9543bfff5/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  hyde999  
+##### 17129#       发表于 2025-6-5 10:23
+
+设定上拉拉应该是9岁进窑子，17岁才接客。应该不算雏妓
+
+*****
+
+####  Schwarzess  
+##### 17130#       发表于 2025-6-5 10:23
+
+羊本身配的没问题，有几句模仿潘惠子仿得还挺像的。只能说搞2.5次元企划出来的无论红黑流量就是这样的。<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
