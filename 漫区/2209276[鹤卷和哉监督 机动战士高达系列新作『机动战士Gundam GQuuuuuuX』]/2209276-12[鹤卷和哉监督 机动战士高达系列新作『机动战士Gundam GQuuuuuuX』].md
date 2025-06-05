@@ -11935,3 +11935,105 @@ UC历最初的宇宙移民大多数是被从地球赶走的贫困阶级，联邦
 有机会，没计划
 鹤卷先不提，庵野大概是想继续搞的
 
+
+*****
+
+####  EFSF  
+##### 17225#       发表于 2025-6-5 12:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67883227&amp;ptid=2209276" target="_blank">真爱与热情 发表于 2025-6-5 11:52</a>
+
+这集有个很在意的伏笔，那个发信息引导番茄逃离木马的人是谁？总不可能是拉拉靠意念黑进木马里面了吧 ...</blockquote>
+由于这指导方式和0079最后骡子指挥白色要塞全员撤退相似，普遍猜测是阿姆罗。
+
+GQX很有可能已经受到很多世界线的NT的干扰了。
+
+
+*****
+
+####  依然荏苒  
+##### 17226#       发表于 2025-6-5 12:32
+
+骡子会登场？这都9集了都没见过，明显查无此人。鸭妹都更靠谱
+
+*****
+
+####  syndrome2032  
+##### 17227#       发表于 2025-6-5 12:32
+
+艾尔美斯大概率是被赛克缪发动冻结了时间吧。
+
+*****
+
+####  cckuku  
+##### 17228#       发表于 2025-6-5 12:32
+
+骡叔叔不出来说不过去啊，最后不会是骡子叔叔跳出来开着夸克斯大杀四方把？
+
+*****
+
+####  xwr  
+##### 17229#       发表于 2025-6-5 12:33
+
+ 本帖最后由 xwr 于 2025-6-5 12:37 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67883374&amp;ptid=2209276" target="_blank">Toby_dak 发表于 2025-6-5 12:06</a>
+
+S1维护时候无聊看了看B站的弹幕，只能说这中文翻译能看下去真神人了。</blockquote>
+这个简中字幕其实是英翻中，从最开始就是，最明显的是军衔，为什么总是称“夏利亚指挥官”？因为海军中校是Commander啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+为什么是找茬，因为英文是“pick you up”
+
+为什么是变形，因为英文是“it looks distorted”
+
+*****
+
+####  大十字紅朔  
+##### 17230#       发表于 2025-6-5 12:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67882983&amp;ptid=2209276" target="_blank">朋友费小号 发表于 2025-6-5 11:29</a>
+
+我想看的是有着美好肉体（指身材和不会有代谢类疾病）的年轻人被现实撞得头破血流但为了自己的目标继续向 ...</blockquote>
+一边想搞UCIF一边想搞年轻人的青春剧
+
+然后两边各搞各的<img src="https://static.stage1st.com/image/smiley/carton2017/382.png" referrerpolicy="no-referrer">
+
+而且只有12集
+
+*****
+
+####  大十字紅朔  
+##### 17231#       发表于 2025-6-5 12:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67882782&amp;ptid=2209276" target="_blank">岸浪白野 发表于 2025-6-5 11:12</a>
+
+X 上的 JAZZ JACK：“#GQuuuuuuX #ジークアクス [https://t.co/JrwRtX0XmD” / X](https://t.co/JrwRtX0XmD” / X)</blockquote>
+UC就算能解析这个技术也找不到合适的驾驶员吧……
+
+<img src="https://img.stage1st.com/forum/202506/05/123455qicezebewk9bvvia.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>111149o2kl0yn8mlkcvf29.webp</strong> (57.64 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 12:34 上传
+
+*****
+
+####  ryanghj  
+##### 17232#       发表于 2025-6-5 12:36
+
+骡子出来也大概率不会上机，夏亚同理
+
+夏利亚可以视为gqux原创人物
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  syndrome2032  
+##### 17233#       发表于 2025-6-5 12:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67883669&amp;ptid=2209276" target="_blank">大十字紅朔 发表于 2025-6-5 12:35</a>
+UC就算能解析这个技术也找不到合适的驾驶员吧……</blockquote>
+dg的驾驶员只是耗材而已。反过来想这个世界也没mf和他们的驾驶员这么鬼畜的玩意打恶魔高达。
+
