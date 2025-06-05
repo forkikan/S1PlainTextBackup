@@ -6921,3 +6921,16 @@ FS游戏的共斗。我觉得法环的正经联机共斗也是做得比较残缺
 
 现在单人玩黑环感觉像是在玩速通<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  junqqq999  
+##### 693#       发表于 2025-6-5 14:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67884508&amp;ptid=2210352" target="_blank">thealoneer 发表于 2025-6-5 14:14</a>
+
+打完8个夜王，我现在非常期待duskbloods了。
+
+黑夜君临现在这个有点尴尬的状态很大一部分就是因为缺少pvp， ...</blockquote>
+黑夜君临不长期运营？那到期彻底变单机？
+
