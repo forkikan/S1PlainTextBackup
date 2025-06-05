@@ -13321,3 +13321,14 @@ MAV也定死了是修斯的话，也就是说即使包饺子，估计也看不�
 
 2025-6-5 19:31 上传
 
+
+*****
+
+####  xwz  
+##### 17345#       发表于 2025-6-5 19:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67886921&amp;ptid=2209276" target="_blank">g救世主高达 发表于 2025-6-5 18:51</a>
+
+地球联邦通用语言是英文，交流估计还是能交流的</blockquote>
+然后，想象一下，日本人和印度人用英语交流，那个场面……<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
