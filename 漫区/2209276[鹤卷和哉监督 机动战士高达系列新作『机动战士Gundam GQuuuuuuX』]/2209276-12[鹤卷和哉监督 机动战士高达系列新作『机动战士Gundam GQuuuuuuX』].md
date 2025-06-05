@@ -12882,3 +12882,36 @@ side6的态度其实可以参考妓院老板那个对着拉拉和番茄威吓了
 
 到时候番茄那些事情就成GP系列那种全部被删除的东西了
 
+
+*****
+
+####  rockroxas  
+##### 17308#       发表于 2025-6-5 16:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67885837&amp;ptid=2209276" target="_blank">plok201 发表于 2025-6-5 16:36</a>
+
+番茄很简单啊，上层交易完说查清楚了是误会就行了
+
+大结局大概率汤大基、紫婆、周锦华、甚至那个side6总统 ...</blockquote>
+小番茄这事再简单，也需要一个大佬给她作保
+
+现在问题是1.包括绿叔叔再内所有人都存在被她打脸的高风险，事后还有没有大佬给她作保 2.她追的男人贴的女人都不太可能回归她那个日常，所以她大概率也不会回去，无论是继续追/贴或者捅死这俩，都不会回去
+
+
+*****
+
+####  g救世主高达  
+##### 17309#       发表于 2025-6-5 16:45
+
+小说世界线夏亚不是没被阿姆罗打死，反而阿姆罗被路人大魔偷死了吗，拉拉看的还是不够全锕<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  g救世主高达  
+##### 17310#       发表于 2025-6-5 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67884301&amp;ptid=2209276" target="_blank">洛克萨斯 发表于 2025-6-5 13:48</a>
+
+还剩修斯的线没解释了吧，我看到有个很扯的说法是修斯是贝子里面阿姆罗的孩子 ...</blockquote>
+修斯这蓝毛难道不是猜测逆袭夏亚女主青恩的孩子？
+
