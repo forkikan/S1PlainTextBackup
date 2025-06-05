@@ -13607,3 +13607,12 @@ X 上的 ナポリたん：“開発中止となり結果的に建造されな�
 
 不过想想，好像也没毛病，片名翻译叫跨时，而英文更是有6个u，universe的u。。。。
 
+
+*****
+
+####  仟音一心  
+##### 17370#       发表于 2025-6-6 00:18
+
+<img src="https://p.sda1.dev/24/a124ef66ef09158dcb6f3d66a6998d3e/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/d7e9e44282fd967614ea23d51c29391a/image.jpg" referrerpolicy="no-referrer">
+
