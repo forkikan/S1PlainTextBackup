@@ -10674,3 +10674,156 @@ GQX是这个拉拉的幻境，夏亚没有受到伤害的一个拉拉死前的�
 
 我看别的地方说两个黑皮女仆的发型一个捏93鸭一个捏骡，拉拉别太爱了
 
+
+*****
+
+####  岸浪白野  
+##### 17142#       发表于 2025-6-5 10:37
+
+|[機動戦士Gundam GQuuuuuuX マチュのキャップ | ガンダムシリーズ ファッション・アクセサリー | アニメグッズ ・おもちゃならプレミアムバンダイ｜バンダイナムコグループの公式通販サイト](https://p-bandai.jp/item/item-1000231227/)|
+
+<img src="https://img.stage1st.com/forum/202506/05/103641y7um44j4cvmvv4vv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.41 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 10:36 上传
+
+[X 上的 『機動戦士ガンダム』関連イベント情報 【バンダイナムコアミューズメント公式】：“／ 📢6月5日（木） ララァ・スン登場！！ ＼ 機動戦士Gundam GQuuuuuuX （読み：#ジークアクス） 期間限定公式ショップに6月5日より「ララァ・スン」の新商品が登場！ ✨MAVアクリルスタンド✨ ✨S賞アクリルパネル✨ ✨A´賞缶バッジ✨ 公式サイト ▶[url]https://t.co/lS03gmuAsb](https://x.com/am_ev_gundam/status/1930113037270430084) #gquuuuuux [https://t.co/WfZgGsEFtv](https://t.co/WfZgGsEFtv)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/05/103712esmidzu3duzmziid.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (447.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 10:37 上传
+
+<img src="https://img.stage1st.com/forum/202506/05/103718ki26k6c2ccckhplp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (645.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 10:37 上传
+
+<img src="https://img.stage1st.com/forum/202506/05/103723vwnqgizwmwyo11ou.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (574.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 10:37 上传
+
+*****
+
+####  仟音一心  
+##### 17143#       发表于 2025-6-5 10:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67881634&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-5 10:00</a></blockquote>
+<img src="https://p.sda1.dev/24/914386db04003222fb33c7a742521de6/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/f8e93874bb5db13a3a55a59af32768cb/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/3d40f1f99790322b497b5cda52366bb0/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/24/c23fb03bef00e60218c922654ac60725/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 17144#       发表于 2025-6-5 10:38
+
+哈罗肯定有问题吧，对gqx性能非常了解，这集逃跑的时候无工质推进飞行，还会各种吐槽<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 17145#       发表于 2025-6-5 10:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67882279&amp;ptid=2209276" target="_blank">EFSF 发表于 2025-6-5 10:34</a>
+
+就这设定至少能有下面两种演化分支：
+
+1. 拉拉帝皇说
+
+艾尔梅斯里的是79拉拉，处于被骡子捅死前死与不死之间 ...</blockquote>
+虚拟世界说其实挺有力的
+
+OP里面出现的各种绿色特效可以理解为虚拟世界里常见的电子干扰特效
+
+
+*****
+
+####  wcorvo  
+##### 17146#       发表于 2025-6-5 10:41
+
+看到有人说白哈罗里是阿姆罗的灵魂
+
+那么有没有一种可能全程都是阿姆罗在开gquuuux<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+各种神操作全都解释得通了
+
+*****
+
+####  猪突猛进R  
+##### 17147#       发表于 2025-6-5 10:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67882329&amp;ptid=2209276" target="_blank">洛克萨斯 发表于 2025-6-5 10:38</a>
+
+哈罗肯定有问题吧，对gqx性能非常了解，这集逃跑的时候无工质推进飞行，还会各种吐槽 ...</blockquote>
+反了，不如把哈罗理解为GQX的一个终端。
+
+*****
+
+####  YU_JI  
+##### 17148#       发表于 2025-6-5 10:42
+
+我服了，刚看完一进s1就开始维护
+
+*****
+
+####  仟音一心  
+##### 17149#       发表于 2025-6-5 10:42
+
+破案了。
+<img src="https://p.sda1.dev/24/9168ddb3bc29e955f4eba633f6592040/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 17150#       发表于 2025-6-5 10:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67882376&amp;ptid=2209276" target="_blank">猪突猛进R 发表于 2025-6-5 10:41</a>
+
+反了，不如把哈罗理解为GQX的一个终端。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第一次欧米茄赛克缪启动把哈罗夺舍了？原本是博美犬的机器人而已啊
+
+*****
+
+####  仟音一心  
+##### 17151#       发表于 2025-6-5 10:44
+
+<img src="https://img.stage1st.com/forum/202506/05/104437q1gopgz7psgsi8s1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (214.48 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 10:44 上传
+
+*****
+
+####  YU_JI  
+##### 17152#       发表于 2025-6-5 10:45
+
+短信指路那段确实颇有0079阿巴瓦空NT导航的既视感
+
+*****
+
+####  吴怀在  
+##### 17153#       发表于 2025-6-5 10:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67881506&amp;ptid=2209276" target="_blank">ヒトニナル 发表于 2025-6-5 09:53</a>
+玛秋是有在娼馆当女仆（？）的可能性的，可惜没采用
+夏CM本子暴增可能性微存 ...</blockquote>
+如果真拍50集，估计就能看到一整集讲麻球在妓院的生活了
+
