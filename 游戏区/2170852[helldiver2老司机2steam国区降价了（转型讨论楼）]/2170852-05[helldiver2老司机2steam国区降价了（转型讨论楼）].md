@@ -6959,3 +6959,14 @@ Steam的手柄映射功能非常强大。你可以设置按下LB键后改变操�
 除非是补给背包铝热，不然铝热不够用，倒是激光大炮打牛效率如何，我前几天玩得时候看有人东线用激光大炮滋 ...</blockquote>
 两条一起上效率都不如蓄一发类星体，dps还是太低了
 
+
+*****
+
+####  赤井稻妻  
+##### 6568#       发表于 2025-6-5 15:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67884876&amp;ptid=2170852" target="_blank">FLZB 发表于 2025-6-5 14:59</a>
+
+两条一起上效率都不如蓄一发类星体，dps还是太低了</blockquote>
+类星体就不能这么算了，毕竟类星体需要蓄力还需要冷却，来两只牛就很麻烦
+
