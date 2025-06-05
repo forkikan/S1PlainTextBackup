@@ -10827,3 +10827,63 @@ OP里面出现的各种绿色特效可以理解为虚拟世界里常见的电子
 夏CM本子暴增可能性微存 ...</blockquote>
 如果真拍50集，估计就能看到一整集讲麻球在妓院的生活了
 
+
+*****
+
+####  biye  
+##### 17154#       发表于 2025-6-5 10:49
+
+原案甚至没哈罗 只是有人认为没哈罗怎么算高达 所以真可能就是个吐槽役
+可以期待有彩蛋 毕竟阿姆罗不露个脸就太遗憾了
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.46)
+
+*****
+
+####  岸浪白野  
+##### 17155#       发表于 2025-6-5 10:49
+
+|[機動戦士Gundam GQuuuuuuX　カドキャラ | 機動戦士 Gundam GQuuuuuuX（読み：ジークアクス） | アニメグッズ ・おもちゃならプレミアムバンダイ｜バンダイナムコグループの公式通販サイト](https://p-bandai.jp/item/item-1000230667/)|
+
+<img src="https://img.stage1st.com/forum/202506/05/104738e7hfwmixzlw5m5fw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.07 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 10:47 上传
+
+<img src="https://img.stage1st.com/forum/202506/05/104844eiwcgyw9gdc1ci3y.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.55 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 10:48 上传
+
+<img src="https://img.stage1st.com/forum/202506/05/104949qd8g5q8nz5dhyxjm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 10:49 上传
+
+*****
+
+####  YU_JI  
+##### 17156#       发表于 2025-6-5 10:55
+
+<blockquote>biye 发表于 2025-6-5 10:49
+原案甚至没哈罗 只是有人认为没哈罗怎么算高达 所以真可能就是个吐槽役
+
+可以期待有彩蛋 毕竟阿姆罗不露个脸 ...</blockquote>
+这片原案和现在的版本差的不少，加入哈罗应该是比较早期的决定了，说不好哈罗在现在的剧情到底占了多少比重
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 17157#       发表于 2025-6-5 10:55
+
+阿姆罗是红高机魂吧，可能是另一边白色高达里的阿姆罗魂穿过来。只有鸭和阿姆罗有找玫瑰的动机，现在鸭健在就只剩阿姆罗了。
+
