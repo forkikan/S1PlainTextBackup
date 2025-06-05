@@ -5268,3 +5268,20 @@ ep1-3还是看不下去，ep4观感回升，ep56还行，但ep78从制作理性�
 
 10集要捏他酒店恐怖电影吗<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TOYSTORY  
+##### 461#       发表于 2025-6-5 19:12
+
+好看好看，家族主题还有欢送死者甚至看出点寻梦环游记的味道
+
+不过中间有段大家吃东西的合照里的八千代为啥不是战车形态，作画失误吗？
+
+*****
+
+####  shimotsuki14  
+##### 462#       发表于 2025-6-5 19:15
+
+10集预告：？？？<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
