@@ -6779,3 +6779,28 @@ FROM SOFTWARE今日宣布，《艾尔登法环 黑夜君临》的全球总销量
 
 【【艾尔登法环黑夜君临】“黑夜光骑士”弗格尔三阶段演示-哔哩哔哩】 https://b23.tv/5LnMyFc
 
+
+*****
+
+####  usodakedo  
+##### 681#       发表于 2025-6-5 12:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67880992&amp;ptid=2210352" target="_blank">thealoneer 发表于 2025-6-3 22:51</a>
+尽管玩家对单人游戏难度有所担忧，但该作的总监石崎淳也亲自证明，单刷击败所有Boss是“非常有可能的”。
+
+ ...</blockquote>
+开发者打自己做的游戏和玩家自己打完全不是一回事，因为开发者基本上知道这游戏的大部分设计，没啥学习成本
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  DawnGuardian  
+##### 682#       发表于 2025-6-5 12:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67883494&amp;ptid=2210352" target="_blank">usodakedo 发表于 2025-6-5 12:17</a>
+
+开发者打自己做的游戏和玩家自己打完全不是一回事，因为开发者基本上知道这游戏的大部分设计，没啥学习成 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">箭头：难说
+
