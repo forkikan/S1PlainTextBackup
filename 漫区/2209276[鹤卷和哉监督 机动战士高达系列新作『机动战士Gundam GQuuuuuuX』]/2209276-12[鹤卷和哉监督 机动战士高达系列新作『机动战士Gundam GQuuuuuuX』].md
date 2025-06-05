@@ -13166,3 +13166,53 @@ MAV也定死了是修斯的话，也就是说即使包饺子，估计也看不�
 这玩意设定上是修司自己动手改的</blockquote>
 但是这圆柱型的硬手怎么改能改的用横面持物啊，哆啦a梦的圆球手好歹还是软的
 
+
+*****
+
+####  岸浪白野  
+##### 17332#       发表于 2025-6-5 17:59
+
+只打倒过扎古
+
+<img src="https://img.stage1st.com/forum/202506/05/175900knusr5sso6ud5lim.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (790.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 17:59 上传
+
+<img src="https://img.stage1st.com/forum/202506/05/175918f1hhojp7t7o55oll.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (105.29 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 17:59 上传
+
+*****
+
+####  岸浪白野  
+##### 17333#       发表于 2025-6-5 18:00
+
+[X 上的 メロンブックス＠仙台店：“今の時点では残念ながら… クリエイターの皆様、 夏コミ楽しみにしております [url]https://t.co/9ozzlbnHC4](https://x.com/melon_sendai01/status/1930519052168069354)” / X[/url]
+
+<img src="https://img.stage1st.com/forum/202506/05/180024rrmn1tfgw1g1mrxz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.23 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 18:00 上传
+
+
+*****
+
+####  银川智将Kuroky  
+##### 17334#       发表于 2025-6-5 18:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67885178&amp;ptid=2209276" target="_blank">孤舟垂钓 发表于 2025-6-5 15:33</a>
+
+我真是太喜欢这部作品了，如果在if线的基础上，把0079想象成Re0那样的世界，很难想象拉拉在多少次轮回失败 ...</blockquote>
+那不如异世界高达的夏亚太多了
+
