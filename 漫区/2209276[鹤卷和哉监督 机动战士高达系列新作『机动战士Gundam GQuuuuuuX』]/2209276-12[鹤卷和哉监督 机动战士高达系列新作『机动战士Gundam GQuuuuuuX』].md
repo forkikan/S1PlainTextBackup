@@ -13794,3 +13794,14 @@ TV一开头是负责找寻红高的任务。虽然没确保到红高，但至少
 
 <img src="https://pbs.twimg.com/media/GspjZPCasAM0AR_?format=jpg&amp;name=large" id="aimg_QhZfY" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
+
+*****
+
+####  王元姬无惨  
+##### 17382#       发表于 2025-6-6 02:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67883125&amp;ptid=2209276" target="_blank">弹匣与花窗 发表于 2025-6-5 11:43</a>
+从头到尾都被利用的青年人最后不给利用者一点教训那纯恶心人了，这么整的话我都不知道是想传达什么价值观
+ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">传达年轻人不要抢别人机体  不要妨碍公务人员执法  不要和来路不明的野男人一起溜冰 逃课 离家出走 私奔 不散就会被卖到妓院 这是何等正确的价值观啊
+
