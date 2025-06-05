@@ -11168,3 +11168,116 @@ g3不是白色，所以没问题
 
 羊宫真不合适，太fuwafuwa了
 
+
+*****
+
+####  Launce  
+##### 17179#       发表于 2025-6-5 11:18
+
+<img src="https://img.stage1st.com/forum/202506/05/111810u8qckhla0ewhkj4j.jpg" referrerpolicy="no-referrer">
+
+<strong>UGM`UB%6@J]DT09`)9`F42N.jpg</strong> (80.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 11:18 上传
+
+<img src="https://img.stage1st.com/forum/202506/05/111815zm2net72z327wh9d.jpg" referrerpolicy="no-referrer">
+
+<strong>~ZJF3Z3~Z0BSJ9@D5[JOQ3R.jpg</strong> (127.05 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 11:18 上传
+
+发型对比
+
+*****
+
+####  洛克萨斯  
+##### 17180#       发表于 2025-6-5 11:19
+
+单机靠盾突破大气层，核心战机能扛得住深海水压，能启动赛克缪就不需要驾驶员手操的os<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+战斗力不敢说，但绝对是最好开之一的高达了
+
+*****
+
+####  pokemon最爱  
+##### 17181#       发表于 2025-6-5 11:21
+
+这集看下来感觉就算之后某个天然卷开着全身精骨的卡牛出来机械降神也不奇怪了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kinga  
+##### 17182#       发表于 2025-6-5 11:21
+
+先不说好看不好看，就说话题量够不够吧，这几周推特娱乐板块霸榜的搜索量
+
+这次起码商业成绩不会差
+
+
+*****
+
+####  朋友费小号  
+##### 17183#       发表于 2025-6-5 11:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+*****
+
+####  朋友费小号  
+##### 17184#       发表于 2025-6-5 11:22
+
+可惜了番茄这个年轻人这么美好的人设和肉体
+
+*****
+
+####  洛克萨斯  
+##### 17185#       发表于 2025-6-5 11:25
+
+爱美号里面的拉拉是纱织还是潘惠美/潘惠子呢<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  osore  
+##### 17186#       发表于 2025-6-5 11:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67882909&amp;ptid=2209276" target="_blank">朋友费小号 发表于 2025-6-5 11:22</a>
+
+可惜了番茄这个年轻人这么美好的人设和肉体</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这集都这么“做作”的给二创递子弹了，你还想怎么样
+
+*****
+
+####  猪突猛进R  
+##### 17187#       发表于 2025-6-5 11:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67882868&amp;ptid=2209276" target="_blank">洛克萨斯 发表于 2025-6-5 11:19</a>
+
+单机靠盾突破大气层，核心战机能扛得住深海水压，能启动赛克缪就不需要驾驶员手操的os
+
+战斗力不敢说，但绝 ...</blockquote>
+但必须得到GQX的认可（而且这个同意还可以撤回），不然就会像喵安一样开一半吐出来。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大十字紅朔  
+##### 17188#       发表于 2025-6-5 11:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67881506&amp;ptid=2209276" target="_blank">ヒトニナル 发表于 2025-6-5 09:53</a>
+
+玛秋是有在娼馆当女仆（？）的可能性的，可惜没采用
+
+夏CM本子暴增可能性微存 ...</blockquote>
+当在娼馆当女仆，然后被当了军人喵安piao是吧
+
+<img src="https://img.stage1st.com/forum/202506/05/112622acdnwidmw1zu1pco.jpg" referrerpolicy="no-referrer">
+
+<strong>1749056971739.jpg</strong> (98.9 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-5 11:26 上传
+

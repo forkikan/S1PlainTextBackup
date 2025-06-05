@@ -5159,3 +5159,11 @@ https://www.bilibili.com/video/BV1md7Gz5E4s
 
 奶奶托孤都是托给八千代，男友被揍(虽然八千代的关注点还挺搞笑的)后还得感谢八千代的祝福<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  朋友费小号  
+##### 450#       发表于 2025-6-5 11:24
+
+红白喜事，挺好，也算看的开心，但确实感觉前几集那个末世的感觉一去不复返了
+
