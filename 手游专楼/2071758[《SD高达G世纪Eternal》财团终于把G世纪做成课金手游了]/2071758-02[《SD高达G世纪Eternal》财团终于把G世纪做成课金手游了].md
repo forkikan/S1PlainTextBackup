@@ -3459,3 +3459,11 @@ wdnmd为什么强自不是专用机
 
 不知不觉又攒到5W钻了，雷霆卡池氪佬加把劲，再发3000，种命卡池肯定更多发力，再赚3000，算上日常和活动，我种命池又可以下井了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 1792#       发表于 2025-6-5 10:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有三集，绿叔叔，首席，不知道还会有谁？
+
