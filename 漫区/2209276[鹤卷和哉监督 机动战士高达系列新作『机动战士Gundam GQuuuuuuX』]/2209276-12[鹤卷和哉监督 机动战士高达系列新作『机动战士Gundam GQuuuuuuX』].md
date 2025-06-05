@@ -13742,3 +13742,37 @@ TV一开头是负责找寻红高的任务。虽然没确保到红高，但至少
 
 那不就夏亚二代吗
 
+
+*****
+
+####  plok201  
+##### 17377#       发表于 2025-6-6 01:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67888705&amp;ptid=2209276" target="_blank">人生如戏 发表于 2025-6-6 00:14</a>
+
+虽然都知道这个是0079的IF线，但这样直接弄个多元宇宙的出来，给人一种故事圆不好的就平行时空跨宇宙的感觉 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">谁知道会不会最后来个什么多元宇宙时空监察官阿姆罗，告诉你是阿克西斯冲击活下来的，反正我觉得这群人肯定想复刻93大结局的
+
+那最后出现什么不可解现象，观测不可能啥的，拿一堆不明觉厉的台词哄住观众就完事了
+
+至于解释，反正那个是万代负责的，外加那么多老登给你万字解析护航，和EVA一样，不跟你解析清楚粉丝更狂热
+
+*****
+
+####  璇瑢子R  
+##### 17378#       发表于 2025-6-6 01:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67888940&amp;ptid=2209276" target="_blank">plok201 发表于 2025-6-6 01:34</a>
+谁知道会不会最后来个什么多元宇宙时空监察官阿姆罗，告诉你是阿克西斯冲击活下来的，反正我觉得这群人肯 ...</blockquote>
+剧情随便放飞
+
+观众会自己脑补出一个合理化的解释来说服自己的
+
+
+*****
+
+####  rockroxas  
+##### 17379#       发表于 2025-6-6 01:41
+
+驾驶的还是倒A跟海牛的混合设计是吧
+
