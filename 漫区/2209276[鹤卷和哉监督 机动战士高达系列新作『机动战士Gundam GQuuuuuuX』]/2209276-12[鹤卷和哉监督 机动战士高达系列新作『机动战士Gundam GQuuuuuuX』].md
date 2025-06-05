@@ -13784,3 +13784,13 @@ TV一开头是负责找寻红高的任务。虽然没确保到红高，但至少
 
 其实去年那个啦啦宝都现代化改造拉拉投屏PV不都预告过了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，舞台不重要，老登们来看骡鸭为了拉拉妹打架送米给我代孙才是钢弹的醍醐味啊哇咔咔
 
+
+*****
+
+####  冰风血羽  
+##### 17381#       发表于 2025-6-6 02:07
+
+<blockquote>https://x.com/koheimizusaki/status/1930465233166053654</blockquote>
+
+<img src="https://pbs.twimg.com/media/GspjZPCasAM0AR_?format=jpg&amp;name=large" id="aimg_QhZfY" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
