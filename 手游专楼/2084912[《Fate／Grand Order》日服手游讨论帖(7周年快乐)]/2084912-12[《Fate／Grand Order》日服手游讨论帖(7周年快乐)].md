@@ -78,3 +78,44 @@
 狗萌新又出货了 而我连礼装都不出</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">但是你欧啊 出的是新绿王
 
+
+*****
+
+####  qixinno2  
+##### 16860#       发表于 2025-6-5 13:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67884068&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-6-5 13:19</a>
+
+但是你欧啊 出的是新绿王</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你出俩我才出一个 欧个蛋
+
+*****
+
+####  alucardcz  
+##### 16861#       发表于 2025-6-5 14:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67884087&amp;ptid=2084912" target="_blank">qixinno2 发表于 2025-6-5 13:22</a>
+
+你出俩我才出一个 欧个蛋</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">数量有什么用！要质量！
+
+*****
+
+####  qixinno2  
+##### 16862#       发表于 2025-6-5 14:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67884623&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-6-5 14:27</a>
+
+数量有什么用！要质量！</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">纯打手一宝也没啥用阿 不如你两个带减CD的
+
+*****
+
+####  森兰丸  
+##### 16863#       发表于 2025-6-5 16:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67881941&amp;ptid=2084912" target="_blank">alucardcz 发表于 2025-6-5 10:16</a>
+
+此时应该来一张小图庆祝s1复活 （还是红卡好</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想说点啥又不知道说啥好....还是就一张纯表情吧
+
