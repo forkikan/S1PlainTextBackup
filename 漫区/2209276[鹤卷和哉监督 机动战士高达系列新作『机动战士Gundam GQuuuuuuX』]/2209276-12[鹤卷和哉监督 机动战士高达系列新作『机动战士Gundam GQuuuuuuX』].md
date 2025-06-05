@@ -13421,3 +13421,51 @@ UC的新人类什么的清一色这架势，不都是看对眼了/脑电波对�
 
 哎 又要开始可悲的单恋了麻球
 
+
+*****
+
+####  yanghuangu  
+##### 17353#       发表于 2025-6-5 21:47
+
+ 本帖最后由 yanghuangu 于 2025-6-5 21:51 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67886777&amp;ptid=2209276" target="_blank">xwz 发表于 2025-6-5 18:29</a>
+
+说起来，得亏拉拉和麻球都是NT，不然一个日本人一个印度人，怎么交流？用英语吗？ ...</blockquote>
+都宇宙世纪了，也应该用统一的通用语了吧，再说拉拉也算高档会所的高级员工吧，大概也要会几门语言撑撑场面吧<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xwz  
+##### 17354#       发表于 2025-6-5 21:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67887956&amp;ptid=2209276" target="_blank">yanghuangu 发表于 2025-6-5 21:47</a>
+
+都宇宙世纪了，也应该用统一的通用语了吧</blockquote>
+通用英语啊，问题是这俩一个日本人一个印度人，现实中这俩地方的人互相用英语能听得懂对方说啥吗？尤其一个不爱学习的JK，一个没啥文化水平的那啥<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gawain  
+##### 17355#       发表于 2025-6-5 21:52
+
+ 本帖最后由 gawain 于 2025-6-5 21:54 编辑 
+
+你们说，最后一集最后一幕不会是跳到0093。给辣个男人一个背影<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+现在这剧情摆明就是重开这条uc线，引入多宇宙设定，奔着本世界线多系列作品去了。 剧情上根本不会在乎填多少坑，而就是要往多了挖。 以后会不会也给时间线编号，和漫威一样搞<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+代哥这次牛啊，这多元宇宙一出根本就不愁uc作品不能反复炒了，所有uc线的衍生作品，高人气的角色机体都可以拿来用。 还能愁非uc胶难卖？ 代哥要笑死了好嘛。
+
+*****
+
+####  zzf111  
+##### 17356#       发表于 2025-6-5 21:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67882279&amp;ptid=2209276" target="_blank">EFSF 发表于 2025-6-5 10:34</a>
+
+就这设定至少能有下面两种演化分支：
+
+1. 拉拉帝皇说
+
+艾尔梅斯里的是79拉拉，处于被骡子捅死前死与不死之间 ...</blockquote>
+第三条拉拉变成不凋花的神头了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">（老滚神学里相当于可以有自己世界的独立于自己创世主的创世主，但都是梵天一梦）
+

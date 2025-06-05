@@ -148,32 +148,45 @@ if __name__ == '__main__':
         cookies[key] = value
     headers = {'User-agent':'Mozilla/5.0 (Windows NT 10.0; Win64; x64) AppleWebKit/537.36 (KHTML, like Gecko) Chrome/92.0.4515.159 Safari/537.36 Edg/92.0.902.78'}
     ''' 获取formhash'''
-    RURL = 'https://stage1st.com/2b/forum.php?mod=viewthread&tid=334540&extra=page%3D1'
+    RURL = 'https://stage1st.com/2b/forum.php?mod=viewthread&tid=2104105&extra=page%3D1'
     s1 = requests.get(RURL, headers=headers,  cookies=cookies)
     content = s1.content
-    signal.signal(signal.SIGALRM, timeout_handler)
-    signal.alarm(60)  # 设置超时时间为60秒
-    try:
-        while True:
-            rows = re.findall(r'<input type=\"hidden\" name=\"formhash\" value=\"(.*?)\" />', str(content)) #正则匹配找到formhash值
-            if len(rows)!=0:
-                formhash = rows[0]
-                print('formhash is: ' + formhash)
-                subject = u''
-                # Aurl = 'https://raw.fastgit.org/TomoeMami/S1PlainTextBackup/master/A-Thread-id.txt'
-                # s = requests.get(Aurl)
-                # threadid = s.content.decode('utf-8')
-                '''回帖ID，手动修改'''
-                threadid = 2143473
-                '''回帖ID，手动修改'''
-                replyurl = 'https://stage1st.com/2b/forum.php?mod=post&action=reply&fid=151&tid='+str(threadid)+'&extra=page%3D1&replysubmit=yes'
-                #url为要回帖的地址
-                Data = {'formhash': formhash,'message': 回帖字符串,'subject': subject,'posttime':int(time.time()),'wysiwyg':1,'usesig':1}
-                req = requests.post(replyurl,data=Data,headers=headers,cookies=cookies)
-                print(req)
-                break
-            else:
-                print('none formhash!')
-                continue
-    except TimeoutError:
-        print("Function execution has timed out.")
+    # if datetime.now().strftime('%d') == '01':
+    rows = re.findall(r'<input type=\"hidden\" name=\"formhash\" value=\"(.*?)\" />', str(content)) #正则匹配找到formhash值
+    if len(rows)!=0:
+        formhash = rows[0]
+        print('formhash is: ' + formhash)
+        posturl = 'https://stage1st.com/2b/forum.php?mod=post&action=newthread&fid=157&extra=&topicsubmit=yes'
+        subject = f"{datetime.now().strftime('昨日S1热点帖子汇总/S1补帖指南V%y%m')}"
+        #url为要回帖的地址
+        Data = {'formhash': formhash,'message': 回帖字符串,'subject': subject,'posttime':int(time.time()),'wysiwyg':1,'usesig':1}
+        req = requests.post(posturl,data=Data,headers=headers,cookies=cookies)
+        print(req)
+    else:
+        print('none formhash!')
+    # signal.signal(signal.SIGALRM, timeout_handler)
+    # signal.alarm(60)  # 设置超时时间为60秒
+    # try:
+    #     while True:
+    #         rows = re.findall(r'<input type=\"hidden\" name=\"formhash\" value=\"(.*?)\" />', str(content)) #正则匹配找到formhash值
+    #         if len(rows)!=0:
+    #             formhash = rows[0]
+    #             print('formhash is: ' + formhash)
+    #             subject = u''
+    #             # Aurl = 'https://raw.fastgit.org/TomoeMami/S1PlainTextBackup/master/A-Thread-id.txt'
+    #             # s = requests.get(Aurl)
+    #             # threadid = s.content.decode('utf-8')
+    #             '''回帖ID，手动修改'''
+    #             threadid = 2143473
+    #             '''回帖ID，手动修改'''
+    #             replyurl = 'https://stage1st.com/2b/forum.php?mod=post&action=reply&fid=151&tid='+str(threadid)+'&extra=page%3D1&replysubmit=yes'
+    #             #url为要回帖的地址
+    #             Data = {'formhash': formhash,'message': 回帖字符串,'subject': subject,'posttime':int(time.time()),'wysiwyg':1,'usesig':1}
+    #             req = requests.post(replyurl,data=Data,headers=headers,cookies=cookies)
+    #             print(req)
+    #             break
+    #         else:
+    #             print('none formhash!')
+    #             continue
+    # except TimeoutError:
+    #     print("Function execution has timed out.")
