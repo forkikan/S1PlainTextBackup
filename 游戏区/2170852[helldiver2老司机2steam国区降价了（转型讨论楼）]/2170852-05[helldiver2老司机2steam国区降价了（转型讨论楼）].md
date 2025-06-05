@@ -7122,3 +7122,17 @@ Steam的手柄映射功能非常强大。你可以设置按下LB键后改变操�
 
 这**下挂的该不会是3号位同款的arc3电弧投射器吧。。。
 
+
+*****
+
+####  Dashuaibi  
+##### 6580#       发表于 2025-6-5 20:35
+
+ 本帖最后由 Dashuaibi 于 2025-6-5 20:38 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67887431&amp;ptid=2170852" target="_blank">DawnGuardian 发表于 2025-6-5 20:20</a>
+
+这**下挂的该不会是3号位同款的arc3电弧投射器吧。。。</blockquote>
+名字上确实是arc3，电喷是arc12
+
+不知道数值有没有削弱，看视频至少能秒僵尸，没削就好玩了
+

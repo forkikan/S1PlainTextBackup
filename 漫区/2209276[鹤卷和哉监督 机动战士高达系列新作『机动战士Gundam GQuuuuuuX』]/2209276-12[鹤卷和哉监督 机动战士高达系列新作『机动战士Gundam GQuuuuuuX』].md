@@ -13375,3 +13375,14 @@ MAV也定死了是修斯的话，也就是说即使包饺子，估计也看不�
 笑死了 这IF线的联邦完全是战败国了 吉恩的度假胜地是吧 冷战个头吔</blockquote>
 基连和基西利亚冷战
 
+
+*****
+
+####  飞霞精灵  
+##### 17349#       发表于 2025-6-5 20:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67887368&amp;ptid=2209276" target="_blank">林登·万 发表于 2025-6-5 20:06</a>
+
+笑死了 这IF线的联邦完全是战败国了 吉恩的度假胜地是吧 冷战个头吔</blockquote>
+剧场版名言“联邦残党嘛，总要给那些人一些工作”<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
