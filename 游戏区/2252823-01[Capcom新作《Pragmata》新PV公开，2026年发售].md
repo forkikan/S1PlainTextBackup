@@ -668,3 +668,13 @@ re9据小道消息不完全是捕风捉影，确实有在做只是可能进度�
 好像是韩国人</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">啊？也行吧……
 
+
+*****
+
+####  大暴死  
+##### 75#       发表于 2025-6-6 08:04
+
+为啥第一反应是日版生化奇兵<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25019PNF3C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
